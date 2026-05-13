@@ -1,0 +1,28 @@
+<!DOCTYPE html>
+<html dir="rtl" lang="fa">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>صفحه تست</title>
+    <style>
+        body{font-family:Tahoma;background:linear-gradient(135deg,#667eea 0%,#764ba2 100%);margin:0;padding:20px;min-height:100vh;display:flex;justify-content:center;align-items:center}
+        .card{background:#fff;border-radius:20px;padding:40px;max-width:500px;box-shadow:0 20px 60px rgba(0,0,0,0.3);text-align:center}
+        h1{color:#667eea}.time{font-size:48px;font-weight:bold;color:#764ba2;margin:20px 0;direction:ltr}
+        button{background:#667eea;color:#fff;border:none;padding:12px 30px;border-radius:25px;margin:5px;cursor:pointer}
+        .footer{margin-top:20px;font-size:12px;color:#999}
+    </style>
+</head>
+<body>
+<div class=card>
+<h1>سلام!</h1>
+<p>این فایل از گیت هاب اجرا شده</p>
+<div class=time id=clock>--:--:--</div>
+<button onclick="alert('سلام!')">کلیک کن</button>
+<div class=footer>اگر این صفحه را می بینی، یعنی درست کار می کند</div>
+</div>
+<script>
+function updateClock(){var now=new Date();document.getElementById('clock').innerHTML=now.toLocaleTimeString('fa-IR');}
+setInterval(updateClock,1000);updateClock();
+</script>
+</body>
+</html>
