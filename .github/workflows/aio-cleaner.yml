@@ -1,62 +1,59 @@
 name: aio-cleaner
+
 on:
   workflow_dispatch:
     inputs:
       clean_all:
-        description: 'Clean ALL platforms (telegram, youtube, x, instagram, website, leecher, google-play, direct)'
+        description: 'پاک کردن همه چیز (telegram, youtube, x, instagram, website, leecher)'
         required: false
         type: boolean
         default: false
       clean_telegram:
-        description: 'Clean Telegram'
+        description: 'پاک کردن دیتای Telegram (media, archive, last_ids)'
         required: false
         type: boolean
         default: false
       clean_youtube:
-        description: 'Clean Youtube'
+        description: 'پاک کردن Youtube'
         required: false
         type: boolean
         default: false
       clean_x:
-        description: 'Clean X'
+        description: 'پاک کردن X'
         required: false
         type: boolean
         default: false
       clean_instagram:
-        description: 'Clean Instagram'
+        description: 'پاک کردن Instagram'
         required: false
         type: boolean
         default: false
       clean_website:
-        description: 'Clean Website'
+        description: 'پاک کردن Website'
         required: false
         type: boolean
         default: false
       clean_leecher:
-        description: 'Clean Leecher folder'
+        description: 'پاک کردن Leecher'
         required: false
         type: boolean
         default: false
-      clean_google_play:
-        description: 'Clean Google Play folder'
-        required: false
-        type: boolean
-        default: false
-      clean_direct:
-        description: 'Clean Direct folder'
-        required: false
-        type: boolean
-        default: false
+
 jobs:
   clean:
     runs-on: ubuntu-latest
     permissions:
       contents: write
+
     steps:
       - uses: actions/checkout@v4
+        with:
+          fetch-depth: 1
+
       - uses: actions/setup-python@v5
         with:
           python-version: "3.11"
+
       - name: Clean selected platforms
         env:
           CLEAN_ALL: ${{ github.event.inputs.clean_all }}
@@ -66,18 +63,16 @@ jobs:
           CLEAN_INSTAGRAM: ${{ github.event.inputs.clean_instagram }}
           CLEAN_WEBSITE: ${{ github.event.inputs.clean_website }}
           CLEAN_LEECHER: ${{ github.event.inputs.clean_leecher }}
-          CLEAN_GOOGLE_PLAY: ${{ github.event.inputs.clean_google_play }}
-          CLEAN_DIRECT: ${{ github.event.inputs.clean_direct }}
         run: |
           python << 'EOF'
           import shutil, os
           from pathlib import Path
 
-          # Determine what to clean
           clean_all = os.environ.get("CLEAN_ALL") == "true"
           platforms = []
+          
           if clean_all:
-              platforms = ["telegram", "youtube", "x", "instagram", "website", "leecher", "google-play", "direct"]
+              platforms = ["telegram", "youtube", "x", "instagram", "website", "leecher"]
           else:
               if os.environ.get("CLEAN_TELEGRAM") == "true":
                   platforms.append("telegram")
@@ -91,71 +86,62 @@ jobs:
                   platforms.append("website")
               if os.environ.get("CLEAN_LEECHER") == "true":
                   platforms.append("leecher")
-              if os.environ.get("CLEAN_GOOGLE_PLAY") == "true":
-                  platforms.append("google-play")
-              if os.environ.get("CLEAN_DIRECT") == "true":
-                  platforms.append("direct")
 
           if not platforms:
-              print("ℹ️ No platforms selected, nothing to clean.")
+              print("ℹ️ هیچ پلتفرمی انتخاب نشده")
               exit(0)
 
           cleaned = []
+          
           for platform in platforms:
               if platform == "telegram":
+                  # پاک کردن مدیاها
                   content_dir = Path("telegram") / "content"
-                  md_file = Path("telegram.md")
-                  deleted = False
                   if content_dir.exists():
                       shutil.rmtree(content_dir)
-                      print(" Deleted telegram/content/")
-                      deleted = True
-                  if md_file.exists():
-                      md_file.unlink()
-                      print(" Deleted telegram.md")
-                      deleted = True
-                  if deleted:
-                      cleaned.append("telegram")
-                  else:
-                      print("ℹ️ telegram: nothing to delete")
+                      print("🧹 Deleted telegram/content/")
+                      cleaned.append("telegram/content")
+                  
+                  # پاک کردن آرشیو کانال‌ها
+                  data_dir = Path("telegram") / "data"
+                  if data_dir.exists():
+                      shutil.rmtree(data_dir)
+                      print("🧹 Deleted telegram/data/")
+                      cleaned.append("telegram/data")
+                  
+                  # پاک کردن فایل last_ids.json
+                  last_ids_file = Path("telegram") / "last_ids.json"
+                  if last_ids_file.exists():
+                      last_ids_file.unlink()
+                      print("🧹 Deleted telegram/last_ids.json")
+                      cleaned.append("telegram/last_ids.json")
+                  
+                  # پاک کردن فایل اصلی telegram.md (اگه وجود داره)
+                  main_file = Path("telegram.md")
+                  if main_file.exists():
+                      main_file.unlink()
+                      print("🧹 Deleted telegram.md")
+                      cleaned.append("telegram.md")
+                  
               elif platform == "leecher":
                   folder = Path("leecher")
-                  if folder.exists() and folder.is_dir():
+                  if folder.exists():
                       shutil.rmtree(folder)
-                      print(" Deleted leecher/ folder")
+                      print("🧹 Deleted leecher/")
                       cleaned.append("leecher")
-                  else:
-                      print("ℹ️ leecher: folder not found, nothing to delete")
-              elif platform == "google-play":
-                  folder = Path("google-play")
-                  if folder.exists() and folder.is_dir():
-                      shutil.rmtree(folder)
-                      print(" Deleted google-play/ folder")
-                      cleaned.append("google-play")
-                  else:
-                      print("ℹ️ google-play: folder not found, nothing to delete")
-              elif platform == "direct":
-                  folder = Path("direct")
-                  if folder.exists() and folder.is_dir():
-                      shutil.rmtree(folder)
-                      print(" Deleted direct/ folder")
-                      cleaned.append("direct")
-                  else:
-                      print("ℹ️ direct: folder not found, nothing to delete")
+                  
               else:
-                  # youtube, x, instagram, website: delete the whole folder
                   folder = Path(platform)
-                  if folder.exists() and folder.is_dir():
+                  if folder.exists():
                       shutil.rmtree(folder)
-                      print(f" Deleted {platform}/ folder")
+                      print(f"🧹 Deleted {platform}/")
                       cleaned.append(platform)
-                  else:
-                      print(f"ℹ️ {platform}: folder not found, nothing to delete")
 
-          # Write cleaned list for the commit step
+          # ذخیره لیست برای commit
           with open("/tmp/cleaned_platforms.txt", "w") as f:
               f.write(",".join(cleaned))
           EOF
+
       - name: Commit and push deletions
         env:
           BRANCH: ${{ github.ref_name }}
@@ -163,40 +149,43 @@ jobs:
           git config user.name "github-actions[bot]"
           git config user.email "github-actions[bot]@users.noreply.github.com"
           git config http.postBuffer 524288000
+
           PLATFORMS=$(cat /tmp/cleaned_platforms.txt)
           if [ -z "$PLATFORMS" ]; then
-            echo "No changes to commit."
+            echo "No changes to commit"
             exit 0
           fi
-          # Stage deletions for each platform
+
+          # Stage deletions
           IFS=',' read -ra PLATFORM_ARRAY <<< "$PLATFORMS"
           for p in "${PLATFORM_ARRAY[@]}"; do
-            if [ "$p" = "telegram" ]; then
-              git add -A telegram/content/ telegram.md 2>/dev/null || true
-            elif [ "$p" = "leecher" ]; then
-              git add -A leecher/ 2>/dev/null || true
-            elif [ "$p" = "google-play" ]; then
-              git add -A google-play/ 2>/dev/null || true
-            elif [ "$p" = "direct" ]; then
-              git add -A direct/ 2>/dev/null || true
+            if [ "$p" = "telegram/content" ]; then
+              git add -A telegram/content/ 2>/dev/null || true
+            elif [ "$p" = "telegram/data" ]; then
+              git add -A telegram/data/ 2>/dev/null || true
+            elif [ "$p" = "telegram/last_ids.json" ]; then
+              git add -A telegram/last_ids.json 2>/dev/null || true
+            elif [ "$p" = "telegram.md" ]; then
+              git add -A telegram.md 2>/dev/null || true
             else
               git add -A "$p/" 2>/dev/null || true
             fi
           done
+
           if git diff --staged --quiet; then
-            echo "No deletions to commit."
+            echo "No deletions to commit"
             exit 0
           fi
-          git commit -m "🧹 Clean media: $PLATFORMS (manual trigger) [skip ci]"
-          RETRIES=5
-          for i in $(seq 1 $RETRIES); do
-            echo "Push attempt $i..."
-            git pull --rebase --autostash origin "$BRANCH"
+
+          git commit -m "🧹 Cleaned: $PLATFORMS [skip ci]"
+
+          for i in 1 2 3 4 5; do
+            git pull --rebase origin "$BRANCH"
             if git push origin "$BRANCH"; then
-              echo "Push succeeded."
-              break
-            else
-              echo "Push failed."
-              [ $i -lt $RETRIES ] && sleep 3 || exit 1
+              echo "Push succeeded"
+              exit 0
             fi
+            echo "Push failed, retry $i/5..."
+            sleep 3
           done
+          exit 1
