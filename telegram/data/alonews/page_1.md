@@ -1,8 +1,21 @@
 # آرشیو کانال alonews - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 01:46
+📅 آخرین بروزرسانی: 1405/02/24 03:03
 
 ---
+
+## alonews — post 119836
+
+<div align="center"><video src="telegram/content/alonews_119836.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119836.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈معین: مهدی تاج الکی میگه، من قرار نیست هیچ آهنگی واسه تیم فوتبال تو جام جهانی بخونم.
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119835
 
@@ -202,14 +215,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈وزیر امور خارجه سوریه: دمشق خواهان دستیابی به توافقی امنیتی با اسرائیل است که بر پایه احترام متقابل به حاکمیت دو طرف و حفظ ثبات منطقه شکل بگیرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119815
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار سی‌بی‌اس مدعی شد: پیشرفت‌هایی در مذاکرات با ایران دیده می‌شود
 
 ✅ @AloNews خبر جنگ
 </div>

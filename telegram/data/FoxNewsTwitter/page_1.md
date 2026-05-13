@@ -1,8 +1,20 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 01:28
+📅 آخرین بروزرسانی: 1405/02/24 02:46
 
 ---
+
+## FoxNewsTwitter — post 341683
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341683.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341683.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: President Trump is in China and expected to talk trade and the Iran war with Chinese President Xi Jinping. @BillMelugin_ has the latest.
+</div>
 
 ## FoxNewsTwitter — post 341682
 
@@ -310,21 +322,5 @@ Raman says his rise is fueled by frustration across Los Angeles, but is trying t
 Pratt, running as an independent after losing his home in the Pacific Palisades fire, has leaned into criticism of current leadership as recovery efforts remain a major issue.
 
 He's been gaining ground in the race, fueled in part by voters sharing his same frustrations with the status quo.
-</div>
-
-## FoxNewsTwitter — post 341660
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341660.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-"New York City believes in punishing success."
-
-Dallas Mayor Eric Johnson says the clash between NYC leadership and finance giants is pushing firms to reconsider where they operate — and Texas is welcoming them with open arms.
-
-His pitch for "Y’all Street" over Wall Street comes as a steady stream of financial firms expand their operations in Texas.
-
-They were drawn there because of lower taxes and fewer regulations, a trend Johnson says is accelerating even more under New York City Mayor Zohran Mamdani.
 </div>
 
