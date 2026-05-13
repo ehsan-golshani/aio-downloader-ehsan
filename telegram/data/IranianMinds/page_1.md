@@ -1,8 +1,36 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 00:12
+📅 آخرین بروزرسانی: 1405/02/24 01:40
 
 ---
+
+## IranianMinds — post 20093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 وزیر خارجه سوریه :
+
+میخوایم روابطمون با داداشیمون اسرائیل رو قوی تر کنیم و به حاکمیت هم احترام بزاریم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20092
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 گوگل رسما اعلام کرد در جام جهانی اسپانسری تیم های ملی عراق و مراکش رو گرفته و تمامی هزینه های این تیم هارو‌ میده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 عراقچی :
+
+هرکسی بخواد با ما دشمنی کنه و با اسرائیل تبانی کنه بد پشیمون میشه
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20090
 

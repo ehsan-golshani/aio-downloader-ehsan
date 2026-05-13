@@ -1,12 +1,100 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 00:11
+📅 آخرین بروزرسانی: 1405/02/24 01:39
 
 ---
 
-## Persian_Trend_Official — post 14075
+## Persian_Trend_Official — post 14081
 
-<div align="center"><a href="telegram/content/اتاق جنگ چهارشنبه 23 اردیبهشت | جمهوری اسلامی ناو امریکایی را تهدید….dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 اتاق جنگ چهارشنبه 23 اردیبهشت | جمهوری اسلامی ناو امریکایی را تهدید…</a></div>
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14081.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14081.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شبتون بخیر ❤️🔥
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14080
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14080.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به این وضعیت اقتصادی می‌گویید امنیت؟ امنیت کجاست وقتی یک پدر شرمنده زن و بچه‌اش است چون سفره‌اش خالی مانده و حقوقش حتی کفاف اجاره خانه را نمی‌دهد؟
+
+امنیت کجاست وقتی جوانی نمی‌تواند یک متر زمین بخرد و رؤیاهایش زیر بار تورم و فساد دفن شده است؟ امنیت کجاست وقتی جوانی عمر و آرزوهایش را در صف مهاجرت یا بیکاری از دست می‌دهد؟
+
+امنیت اجتماعی بدون رفاه پایدار وجود ندارد. جامعه‌ای که نرخ بیکاری جوانانش بالاست تورم افسارگسیخته دارد و سرمایه انسانی‌اش مهاجرت می‌کند در واقع در وضعیت ناامنی ساختاری است. شما نام این فروپاشی را امنیت گذاشته‌اید. این تحریف واژه‌هاست واژه‌ها را از معنا تهی کرده‌اید تا واقعیت تلخ را بپوشانید.
+
+
+امنیت واقعی همان چیزی است که مردم در همه‌پرسی انتخاب خواهند کرد آزادی، اینترنت، اقتصاد سالم، و زندگی انسانی. امنیت یعنی امید به آینده نه ترس از فردا.
+
+امنیتی که شما از آن دم می‌زنید، در واقع پوششی است برای فقر، سرکوب، و بی‌عدالتی. امنیت یعنی آرامش روانی، یعنی آینده‌ای قابل پیش‌بینی یعنی فرصت رشد و شکوفایی. اما آنچه امروز مردم ایران تجربه می‌کنند چیزی جز اضطراب فروپاشی اقتصادی و نابودی امید نیست.
+
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14079
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ بنیامین نتانیاهو: من می‌خواهم دانش‌آموزان اسرائیلی در استفاده از ChatGPT، Claude و پیشرفته‌ترین ابزارهای هوش مصنوعی جهان - و حتی قبل از فارغ‌التحصیلی از دبیرستان - بهترین باشند. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14078
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14078.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14078.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ بنیامین نتانیاهو:
+
+من می‌خواهم دانش‌آموزان اسرائیلی در استفاده از ChatGPT، Claude و پیشرفته‌ترین ابزارهای هوش مصنوعی جهان - و حتی قبل از فارغ‌التحصیلی از دبیرستان - بهترین باشند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14077
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14077.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢امارات متحده عربی دیدار مخفیانه نتانیاهو از ابوظبی در طول جنگ با ایران را تکذیب کرد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14076
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14076.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14076.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 انهدام پهپاد انتحاری روسی توسط سرباز اوکراینی در لحظات آخر
+
+ویدئویی منتشر شده که نشان می‌دهد یک سرباز اوکراینی با استفاده از سلاح «آکا-۷۴» موفق می‌شود یک پهپاد انتحاری کواد را تنها لحظاتی پیش از برخورد منهدم کند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14075
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فایل صوتی لایو اول
@@ -29,8 +117,6 @@ https://youtube.com/live/xKXwDy6wYig?feature=share
 </div>
 
 ## Persian_Trend_Official — post 14073
-
-<div align="center"><a href="telegram/content/‎⁨اتاق_جنگ_چهارشنبه_23_اردیبهشت_جمهوری_اسلامی⁩.opus.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ‎⁨اتاق_جنگ_چهارشنبه_23_اردیبهشت_جمهوری_اسلامی⁩.opus</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فایل صوتی لایو اول
@@ -207,58 +293,5 @@ https://youtube.com/live/xKXwDy6wYig?feature=share
 
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14059
-
-<div align="center"><img src="telegram/content/Persian_Trend_Official_14059.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ تمام افراد ثروتمند آمریکا را با Air Force One خود به پکن برده است.
-
-📝 Nick
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14058
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14058.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14058.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ فارس:
-
-تصاویر دیده‌نشده از رزمایش ضد هلی‌برن سپاه تهران بزرگ
-
-📝 Nick
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14057
-
-<div align="center"><img src="telegram/content/Persian_Trend_Official_14057.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ برخی از رسانه‌های فرانسوی دست به انتشار گزارشی به نقل از «فلورین تاردیف» خبرنگار «پاری‌مچ» زده‌اند که حکایت از روابط پنهانی امانوئل ماکرون و گلشیفته فراهانی دارد.
-
-این خبرنگار فرانسوی در گزارش خود نوشته که سیلی که زن ماکرون به او در کنار در خروجی هواپیما زد، به خاطر همین رابطه بوده.
-
-منبع خبر
-
-📝 Nick
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ در حالی که اینترنت در ایران به مدت ۷۵ روز قطع است، شرکت اپل دیروز به صورت رسمی اولین نمایندگی خود را در افغانستان افتتاح نمود. تکذیب شد. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>
 

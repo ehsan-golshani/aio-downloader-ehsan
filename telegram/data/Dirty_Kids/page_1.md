@@ -1,8 +1,31 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 00:15
+📅 آخرین بروزرسانی: 1405/02/24 01:43
 
 ---
+
+## Dirty_Kids — post 389407
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389407.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دوست دختر جدید پوبون (رپر) از روی یه پُل تو مکزیک افتاده پایین و گویا کمر و گردنش شکسته؛
+
+پوبون هم استوریش کرده و از مردم خواسته که پول دونیت کنن تا هزینه عملش دربیاد...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من دیگه اگه بگن قراره یه ابر بزرگ بیاد رو آسمون ایران ازش کیر بباره تعجب نمیکنم.
+
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389405
 
