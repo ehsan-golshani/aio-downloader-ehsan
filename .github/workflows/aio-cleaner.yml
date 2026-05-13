@@ -4,7 +4,7 @@ on:
   workflow_dispatch:
     inputs:
       clean_all:
-        description: 'پاک کردن همه چیز (telegram, youtube, x, instagram, website, leecher)'
+        description: 'پاک کردن همه چیز (telegram, youtube, x, instagram, website, leecher, google-play, direct)'
         required: false
         type: boolean
         default: false
@@ -38,6 +38,16 @@ on:
         required: false
         type: boolean
         default: false
+      clean_google_play:
+        description: 'پاک کردن Google Play APKها'
+        required: false
+        type: boolean
+        default: false
+      clean_direct:
+        description: 'پاک کردن Direct Downloader'
+        required: false
+        type: boolean
+        default: false
 
 jobs:
   clean:
@@ -63,6 +73,8 @@ jobs:
           CLEAN_INSTAGRAM: ${{ github.event.inputs.clean_instagram }}
           CLEAN_WEBSITE: ${{ github.event.inputs.clean_website }}
           CLEAN_LEECHER: ${{ github.event.inputs.clean_leecher }}
+          CLEAN_GOOGLE_PLAY: ${{ github.event.inputs.clean_google_play }}
+          CLEAN_DIRECT: ${{ github.event.inputs.clean_direct }}
         run: |
           python << 'EOF'
           import shutil, os
@@ -72,7 +84,7 @@ jobs:
           platforms = []
           
           if clean_all:
-              platforms = ["telegram", "youtube", "x", "instagram", "website", "leecher"]
+              platforms = ["telegram", "youtube", "x", "instagram", "website", "leecher", "google-play", "direct"]
           else:
               if os.environ.get("CLEAN_TELEGRAM") == "true":
                   platforms.append("telegram")
@@ -86,6 +98,10 @@ jobs:
                   platforms.append("website")
               if os.environ.get("CLEAN_LEECHER") == "true":
                   platforms.append("leecher")
+              if os.environ.get("CLEAN_GOOGLE_PLAY") == "true":
+                  platforms.append("google-play")
+              if os.environ.get("CLEAN_DIRECT") == "true":
+                  platforms.append("direct")
 
           if not platforms:
               print("ℹ️ هیچ پلتفرمی انتخاب نشده")
@@ -116,19 +132,26 @@ jobs:
                       print("🧹 Deleted telegram/last_ids.json")
                       cleaned.append("telegram/last_ids.json")
                   
-                  # پاک کردن فایل اصلی telegram.md (اگه وجود داره)
-                  main_file = Path("telegram.md")
-                  if main_file.exists():
-                      main_file.unlink()
-                      print("🧹 Deleted telegram.md")
-                      cleaned.append("telegram.md")
-                  
               elif platform == "leecher":
                   folder = Path("leecher")
                   if folder.exists():
                       shutil.rmtree(folder)
                       print("🧹 Deleted leecher/")
                       cleaned.append("leecher")
+                  
+              elif platform == "google-play":
+                  folder = Path("google-play")
+                  if folder.exists():
+                      shutil.rmtree(folder)
+                      print("🧹 Deleted google-play/")
+                      cleaned.append("google-play")
+                  
+              elif platform == "direct":
+                  folder = Path("direct")
+                  if folder.exists():
+                      shutil.rmtree(folder)
+                      print("🧹 Deleted direct/")
+                      cleaned.append("direct")
                   
               else:
                   folder = Path(platform)
@@ -165,8 +188,6 @@ jobs:
               git add -A telegram/data/ 2>/dev/null || true
             elif [ "$p" = "telegram/last_ids.json" ]; then
               git add -A telegram/last_ids.json 2>/dev/null || true
-            elif [ "$p" = "telegram.md" ]; then
-              git add -A telegram.md 2>/dev/null || true
             else
               git add -A "$p/" 2>/dev/null || true
             fi
