@@ -1,0 +1,155 @@
+<!DOCTYPE html>
+<html dir="rtl" lang="fa">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>داشبورد من</title>
+    <style>
+        * {
+            margin: 0;
+            padding: 0;
+            box-sizing: border-box;
+        }
+        body {
+            font-family: 'Tahoma', sans-serif;
+            background: linear-gradient(135deg, #667eea 0%, #764ba2 100%);
+            min-height: 100vh;
+            padding: 20px;
+        }
+        .container {
+            max-width: 500px;
+            margin: auto;
+        }
+        .card {
+            background: rgba(255,255,255,0.95);
+            border-radius: 25px;
+            padding: 30px;
+            margin-bottom: 20px;
+            box-shadow: 0 10px 40px rgba(0,0,0,0.2);
+            backdrop-filter: blur(10px);
+        }
+        h1 {
+            color: #667eea;
+            font-size: 28px;
+            margin-bottom: 10px;
+        }
+        .time-box {
+            background: linear-gradient(135deg, #667eea, #764ba2);
+            color: white;
+            padding: 20px;
+            border-radius: 15px;
+            text-align: center;
+            margin: 20px 0;
+        }
+        #clock {
+            font-size: 48px;
+            font-weight: bold;
+            direction: ltr;
+            font-family: monospace;
+        }
+        #date {
+            font-size: 16px;
+            margin-top: 5px;
+            opacity: 0.9;
+        }
+        button {
+            background: #667eea;
+            color: white;
+            border: none;
+            padding: 12px 25px;
+            border-radius: 25px;
+            font-size: 16px;
+            cursor: pointer;
+            margin: 5px;
+            transition: transform 0.2s;
+        }
+        button:active {
+            transform: scale(0.95);
+        }
+        .btn-secondary {
+            background: #764ba2;
+        }
+        .counter {
+            text-align: center;
+            margin-top: 20px;
+            font-size: 18px;
+        }
+        #countValue {
+            font-size: 36px;
+            font-weight: bold;
+            color: #667eea;
+        }
+        .footer {
+            text-align: center;
+            margin-top: 20px;
+            font-size: 12px;
+            color: rgba(255,255,255,0.8);
+        }
+    </style>
+</head>
+<body>
+    <div class="container">
+        <div class="card">
+            <h1>✨ سلام!</h1>
+            <p>این صفحه از گیت‌هاب اجرا شده</p>
+            
+            <div class="time-box">
+                <div id="clock">--:--:--</div>
+                <div id="date">--</div>
+            </div>
+            
+            <div style="text-align: center;">
+                <button onclick="showMessage()">📣 کلیک کن</button>
+                <button class="btn-secondary" onclick="changeBg()">🎨 تغییر رنگ</button>
+            </div>
+            
+            <div class="counter">
+                <div>تعداد کلیک:</div>
+                <div id="countValue">0</div>
+            </div>
+        </div>
+        
+        <div class="card">
+            <h3>ℹ️ اطلاعات</h3>
+            <p>✅ فایل با موفقیت بارگیری شد</p>
+            <p>📱 این صفحه روی گوشی هم درست کار می‌کند</p>
+            <p>🔄 هر بار که برنامه رو ببندی و باز کنی، آخرین نسخه از گیت‌هاب میاد</p>
+        </div>
+        
+        <div class="footer">
+            power by GitHub
+        </div>
+    </div>
+
+    <script>
+        // ساعت و تاریخ
+        function updateTime() {
+            const now = new Date();
+            document.getElementById('clock').textContent = now.toLocaleTimeString('fa-IR');
+            document.getElementById('date').textContent = now.toLocaleDateString('fa-IR', {
+                weekday: 'long',
+                year: 'numeric',
+                month: 'long',
+                day: 'numeric'
+            });
+        }
+        setInterval(updateTime, 1000);
+        updateTime();
+        
+        // شمارنده کلیک
+        let count = 0;
+        function showMessage() {
+            count++;
+            document.getElementById('countValue').textContent = count;
+            alert('👋 سلام! این پیام از گیت‌هاب اومده!');
+        }
+        
+        // تغییر رنگ زمینه
+        function changeBg() {
+            const colors = ['#667eea', '#e74c3c', '#2ecc71', '#f39c12', '#1abc9c', '#e67e22'];
+            const randomColor = colors[Math.floor(Math.random() * colors.length)];
+            document.body.style.background = `linear-gradient(135deg, ${randomColor} 0%, #764ba2 100%)`;
+        }
+    </script>
+</body>
+</html>
