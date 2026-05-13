@@ -4,6 +4,12 @@ on:
   schedule:
     - cron: "*/15 * * * *"
   workflow_dispatch:
+    inputs:
+      channel:
+        description: '📢 نام کانال (برای آرشیو سفارشی)'
+        required: false
+        type: string
+        default: ''
 
 jobs:
   fetch:
@@ -12,54 +18,57 @@ jobs:
       contents: write
 
     steps:
-      - uses: actions/checkout@v4
+      - uses: actions/checkout@v5
+        with:
+          fetch-depth: 1
 
       - uses: actions/setup-python@v5
         with:
           python-version: "3.11"
 
-      - name: Install Python dependencies
-        run: pip install playwright requests jdatetime
-
-      - name: Install Chromium for Playwright
+      - name: Install dependencies
         run: |
+          pip install playwright requests jdatetime
           python -m playwright install chromium
           python -m playwright install-deps chromium
 
       - name: Run archiver
-        run: python .github/script/fetch_telegram_pw.py
-
-      - name: Commit and push changes
         env:
-          BRANCH: ${{ github.ref_name }}
+          TARGET_CHANNEL: ${{ github.event.inputs.channel }}
+          FORCE_JAVASCRIPT_ACTIONS_TO_NODE24: true
+        run: |
+          if [ -n "$TARGET_CHANNEL" ] && [ "$TARGET_CHANNEL" != "null" ]; then
+            echo "🎯 Custom archive for: $TARGET_CHANNEL"
+            python .github/script/fetch_telegram_pw.py --channel "$TARGET_CHANNEL" --limit 10
+          else
+            echo "🔄 Normal update for all channels"
+            python .github/script/fetch_telegram_pw.py
+          fi
+
+      - name: Commit and push
         run: |
           git config user.name "github-actions[bot]"
           git config user.email "github-actions[bot]@users.noreply.github.com"
-          git config http.postBuffer 524288000
-
-          # Stage only if files exist (avoid error on empty content dir)
-          if [ -d telegram/content ]; then git add telegram/content/; fi
-          git add telegram/last_ids.json telegram.md
-
-          # Skip commit if nothing changed
+          
+          git add telegram/data/ telegram/content/ telegram/last_ids.json 2>/dev/null || true
+          
           if git diff --staged --quiet; then
-            echo "No changes to commit."
+            echo "ℹ️ No changes"
             exit 0
           fi
-
-          # Commit with a descriptive message
-          git commit -m "Update Telegram messages [skip ci]"
-
-          # Retry loop with pull‑rebase to avoid conflicts
-          RETRIES=5
-          for i in $(seq 1 $RETRIES); do
-            echo "Push attempt $i..."
-            git pull --rebase --autostash origin "$BRANCH"
-            if git push origin "$BRANCH"; then
-              echo "Push succeeded."
-              break
-            else
-              echo "Push failed."
-              [ $i -lt $RETRIES ] && sleep 3 || exit 1
+          
+          if [ -n "$TARGET_CHANNEL" ] && [ "$TARGET_CHANNEL" != "null" ]; then
+            git commit -m "📦 Custom archive for $TARGET_CHANNEL [skip ci]" || exit 0
+          else
+            git commit -m "🔄 Update Telegram archive [skip ci]" || exit 0
+          fi
+          
+          for i in 1 2 3; do
+            git pull --rebase origin ${{ github.ref_name }} 2>/dev/null || true
+            if git push origin ${{ github.ref_name }}; then
+              echo "✅ Push succeeded"
+              exit 0
             fi
+            sleep 3
           done
+          exit 1
