@@ -1,122 +1,53 @@
 #!/usr/bin/env python3
 """
-Scrape public Telegram channels with Playwright.
-- Adds a Hijri‑Shamsi update timestamp for each script run.
-- Downloads photos, videos, AND documents (all file types).
-- Sorts messages by ID (newest first) across channels.
-- Handles file size limit with archive pages.
-- Deduplicates posts based on (channel, post_id) to prevent repeats.
-- Centers media and shows captions in right‑to‑left (RTL) for Persian.
-- Shows a notice when no new posts are found in an update cycle.
-- Generate absolute GitHub links for pagination (when run in a Git repo).
-- Navigation buttons (top & bottom) styled as clickable buttons.
-- Download links open in a new tab to preserve scroll position.
-- Ignores .webm videos (animations/stickers) to improve media detection.
-- Captions use inline Vazirmatn font (falls back to Tahoma if not installed).
+Telegram Channel Archiver - نسخه نهایی با پشتیبانی کامل از فایل و ویدیو
 """
 
 import asyncio
+import argparse
 import json
-import os
+import mimetypes
 import re
+import sys
 import time
 from pathlib import Path
-from urllib.parse import urljoin, urlparse
 from zoneinfo import ZoneInfo
 
 import jdatetime
 import requests
 from playwright.async_api import async_playwright
 
-# ---- Paths ----
+# ========== تنظیمات ==========
 SCRIPT_DIR = Path(__file__).resolve().parent
 REPO_ROOT = SCRIPT_DIR.parent.parent
 
 CHANNELS_FILE = REPO_ROOT / "telegram" / "channels.json"
-STATE_FILE    = REPO_ROOT / "telegram" / "last_ids.json"
-OUTPUT_FILE   = REPO_ROOT / "telegram.md"
-CONTENT_DIR   = REPO_ROOT / "telegram" / "content"
+STATE_FILE = REPO_ROOT / "telegram" / "last_ids.json"
+DATA_DIR = REPO_ROOT / "telegram" / "data"
+CONTENT_DIR = REPO_ROOT / "telegram" / "content"
 
 IRAN_TZ = ZoneInfo("Asia/Tehran")
-HEADERS = {
-    "User-Agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 "
-                  "(KHTML, like Gecko) Chrome/120.0.0.0 Safari/537.36"
-}
+HEADERS = {"User-Agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36"}
+MESSAGES_PER_PAGE = 20
 
-MSG_START = "<!-- MSG START -->"
-MSG_END   = "<!-- MSG END -->"
-TOP_NAV_START = "<!-- TOP_NAV START -->"
-TOP_NAV_END   = "<!-- TOP_NAV END -->"
-NAV_START = "<!-- NAV START -->"
-NAV_END   = "<!-- NAV END -->"
+parser = argparse.ArgumentParser()
+parser.add_argument('--channel', type=str, default=None)
+parser.add_argument('--limit', type=int, default=0)
+parser.add_argument('--force', action='store_true')
+args = parser.parse_args()
 
-HEADER_TEMPLATE = f"""\
-# خواننده تلگرام
+TARGET_CHANNEL = args.channel
+CUSTOM_MODE = args.limit > 0
 
-{TOP_NAV_START}
-{TOP_NAV_END}
+print("=" * 50)
+print("🚀 Telegram Archiver - نسخه نهایی")
+print(f"📢 Channel: {TARGET_CHANNEL or 'ALL'}")
+print("=" * 50)
 
-{MSG_START}
-{MSG_END}
-
-{NAV_START}
-{NAV_END}
-"""
-
-# ----------------------------------------------------------------------
-# Helpers
-# ----------------------------------------------------------------------
-def get_github_base_url():
-    """
-    Return (repo_url, branch) for the current git repository, or (None, None).
-    Uses subprocess to query git.
-    """
-    try:
-        import subprocess
-        # Get remote URL
-        remote = subprocess.run(
-            ["git", "config", "--get", "remote.origin.url"],
-            capture_output=True, text=True, cwd=REPO_ROOT
-        ).stdout.strip()
-        if not remote:
-            return None, None
-
-        # Convert SSH to HTTPS if necessary
-        if remote.startswith("git@"):
-            remote = re.sub(r"git@([^:]+):(.+)\.git", r"https://\1/\2", remote)
-        elif remote.endswith(".git"):
-            remote = remote[:-4]
-
-        # Get current branch
-        branch = subprocess.run(
-            ["git", "rev-parse", "--abbrev-ref", "HEAD"],
-            capture_output=True, text=True, cwd=REPO_ROOT
-        ).stdout.strip()
-
-        return remote, branch
-    except Exception:
-        return None, None
-
-
-def safe_filename(name: str, max_length: int = 100) -> str:
-    """Truncate filename to a safe length, preserving the extension."""
-    if len(name) <= max_length:
-        return name
-    stem, dot, ext = name.rpartition(".")
-    if not dot:                     # no extension
-        return name[:max_length]
-    keep = max_length - len(ext) - 4  # room for '...' + dot
-    if keep <= 0:                   # extension itself too long
-        return name[:max_length]
-    prefix = stem[:keep // 2]
-    suffix = stem[-(keep - keep // 2):]
-    return f"{prefix}...{suffix}.{ext}"
-
-
+# ========== توابع کمکی ==========
 def load_channels():
     with open(CHANNELS_FILE, "r", encoding="utf-8") as f:
         return json.load(f)
-
 
 def load_state():
     if STATE_FILE.exists():
@@ -124,593 +55,437 @@ def load_state():
             return json.load(f)
     return {}
 
-
 def save_state(state):
     STATE_FILE.parent.mkdir(parents=True, exist_ok=True)
     with open(STATE_FILE, "w", encoding="utf-8") as f:
         json.dump(state, f, ensure_ascii=False, indent=2)
 
+def get_channel_dir(channel_name):
+    channel_dir = DATA_DIR / channel_name
+    channel_dir.mkdir(parents=True, exist_ok=True)
+    return channel_dir
 
-def build_nav_buttons(next_page_rel: str | None, prev_page_rel: str | None,
-                      base_url: str | None = None) -> str:
-    """
-    Build navigation buttons as HTML links styled like buttons.
-    Returns empty string if no links.
-    """
-    button_style = (
-        "display:inline-block; padding:6px 12px; margin:0 4px; "
-        "background-color:#2ea44f; color:white; text-decoration:none; "
-        "border-radius:4px; font-weight:bold;"
-    )
-    parts = []
-    if prev_page_rel:
-        href = urljoin(base_url, prev_page_rel) if base_url else prev_page_rel
-        parts.append(f'<a href="{href}" style="{button_style}">صفحه قبل</a>')
-    if next_page_rel:
-        href = urljoin(base_url, next_page_rel) if base_url else next_page_rel
-        parts.append(f'<a href="{href}" style="{button_style}">صفحه بعد</a>')
-    return " ".join(parts) if parts else ""
+def get_page_files(channel_dir):
+    files = list(channel_dir.glob("page_*.md"))
+    pages = []
+    for f in files:
+        match = re.search(r'page_(\d+)\.md', f.name)
+        if match:
+            pages.append((int(match.group(1)), f))
+    pages.sort(key=lambda x: x[0])
+    return pages
 
+def get_existing_ids(channel_dir):
+    all_ids = set()
+    for _, file_path in get_page_files(channel_dir):
+        if file_path.exists():
+            content = file_path.read_text(encoding='utf-8')
+            ids = re.findall(r'post (\d+)', content)
+            all_ids.update(int(i) for i in ids)
+    return all_ids
 
-def wrap_page(message_block: str, next_rel: str | None, prev_rel: str | None,
-              base_url: str | None = None) -> str:
-    # Top and bottom navigation
-    nav_buttons = build_nav_buttons(next_rel, prev_rel, base_url=base_url)
-    # Top navigation: place inside a RTL div aligned left (end side)
-    top_nav_div = (
-        f'<div dir="rtl" style="text-align:left; margin-bottom:10px;">{nav_buttons}</div>'
-        if nav_buttons else ""
-    )
-    # Bottom navigation similarly
-    bottom_nav_div = (
-        f'<div dir="rtl" style="text-align:left; margin-top:10px;">{nav_buttons}</div>'
-        if nav_buttons else ""
-    )
-
-    page = HEADER_TEMPLATE.replace(
-        f"{TOP_NAV_START}\n{TOP_NAV_END}",
-        f"{TOP_NAV_START}\n{top_nav_div}\n{TOP_NAV_END}"
-    )
-    page = page.replace(
-        f"{MSG_START}\n{MSG_END}",
-        f"{MSG_START}\n{message_block}\n{MSG_END}"
-    )
-    page = page.replace(
-        f"{NAV_START}\n{NAV_END}",
-        f"{NAV_START}\n{bottom_nav_div}\n{NAV_END}"
-    )
-    return page
-
-
-def extract_message_md(md_text: str) -> str | None:
-    start = md_text.find(MSG_START)
-    end = md_text.find(MSG_END)
-    if start == -1 or end == -1:
+def get_extension_from_content_type(content_type):
+    """دریافت پسوند مناسب از Content-Type"""
+    if not content_type:
         return None
-    return md_text[start + len(MSG_START):end].strip()
+    
+    content_type = content_type.lower()
+    
+    # تصاویر
+    if 'image/jpeg' in content_type or 'image/jpg' in content_type:
+        return '.jpg'
+    if 'image/png' in content_type:
+        return '.png'
+    if 'image/gif' in content_type:
+        return '.gif'
+    if 'image/webp' in content_type:
+        return '.webp'
+    
+    # ویدیوها
+    if 'video/mp4' in content_type:
+        return '.mp4'
+    if 'video/webm' in content_type:
+        return '.webm'
+    if 'video/quicktime' in content_type:
+        return '.mov'
+    if 'video/x-msvideo' in content_type:
+        return '.avi'
+    
+    # اسناد
+    if 'application/pdf' in content_type:
+        return '.pdf'
+    if 'application/zip' in content_type:
+        return '.zip'
+    if 'application/x-rar-compressed' in content_type:
+        return '.rar'
+    if 'application/x-tar' in content_type:
+        return '.tar'
+    if 'application/x-gzip' in content_type:
+        return '.gz'
+    
+    # کانفیگ‌ها
+    if 'text/plain' in content_type:
+        return '.txt'
+    
+    return None
 
+def get_extension_from_filename(filename):
+    """دریافت پسوند از نام فایل"""
+    if not filename:
+        return None
+    
+    # لیست پسوندهای معروف
+    known_extensions = [
+        '.jpg', '.jpeg', '.png', '.gif', '.webp',
+        '.mp4', '.webm', '.mov', '.avi', '.mkv',
+        '.pdf', '.zip', '.rar', '.7z', '.tar', '.gz',
+        '.mp3', '.wav', '.flac', '.ogg',
+        '.apk', '.exe', '.msi',
+        '.npvt', '.inpvt', '.ovpn', '.8nptv',    # کانفیگ‌های خاص
+        '.txt', '.json', '.xml', '.yml', '.yaml',
+        '.html', '.css', '.js'
+    ]
+    
+    lower_name = filename.lower()
+    for ext in known_extensions:
+        if lower_name.endswith(ext):
+            return ext
+    
+    return None
 
-def get_existing_archives():
-    archives = []
-    if not CONTENT_DIR.exists():
-        return archives
-    pattern = re.compile(r"^archive_(\d+)\.md$")
-    for f in CONTENT_DIR.iterdir():
-        m = pattern.match(f.name)
-        if m:
-            archives.append((int(m.group(1)), f))
-    archives.sort(key=lambda x: x[0])
-    return archives
+def fix_filename_extension(filename, content_type):
+    """اصلاح پسوند فایل بر اساس نام و Content-Type"""
+    if not filename:
+        return None
+    
+    # حذف کاراکترهای اضافی
+    filename = filename.strip()
+    
+    # استخراج پسوند فعلی
+    current_ext = get_extension_from_filename(filename)
+    correct_ext = get_extension_from_content_type(content_type)
+    
+    # اگه پسوند درستی داره، همون رو برگردون
+    if current_ext and correct_ext and current_ext == correct_ext:
+        return filename
+    
+    # اگه پسوند فعلی در لیست معروف هاست، حفظش کن
+    if current_ext in ['.npvt', '.inpvt', '.ovpn', '.8nptv']:
+        return filename
+    
+    # اگه پسوند درستی از Content-Type داریم و فعلی نداریم
+    if correct_ext and not current_ext:
+        return filename + correct_ext
+    
+    # اگه فایل بدون پسونده (مثل Audio)
+    if not current_ext and correct_ext:
+        return filename + correct_ext
+    
+    return filename
 
-
-def parse_post_header(header_line: str):
-    line = header_line.strip()
-    if not line.startswith("## "):
-        return None, None
-    m = re.search(r"## (.+?) — post (\d+)", line)
-    if m:
-        return m.group(1).strip(), int(m.group(2))
-    m = re.search(r"post (\d+)\)?\s*—\s*(.+)$", line)
-    if m:
-        return m.group(2).strip(), int(m.group(1))
-    m = re.search(r"## .+? — (.+)$", line)
-    if m:
-        return m.group(1).strip(), None
-    return None, None
-
-
-def deduplicate_messages(old_block: str, new_ids_set: set[tuple[str, int]]) -> str:
-    parts = re.split(r"(?=\n## )", old_block)
-    kept = []
-    for part in parts:
-        first_line = part.split("\n")[0]
-        ch, pid = parse_post_header(first_line)
-        if pid is not None and ch is not None and (ch, pid) in new_ids_set:
-            continue
-        kept.append(part)
-    return "".join(kept)
-
-
-# ----------------------------------------------------------------------
-# Media download
-# ----------------------------------------------------------------------
-def download_media(url, channel_name, post_id, media_type='photo', filename=None):
+def download_media(url, channel_name, post_id, media_type='photo', original_filename=None):
+    """دانلود مدیا با مدیریت خطا و پسوند صحیح"""
+    if not url:
+        return None
+    
     CONTENT_DIR.mkdir(parents=True, exist_ok=True)
-
-    # --- choose initial extension based on media_type ---
-    ext_map = {'photo': '.jpg', 'video': '.mp4', 'document': '.dat'}
-    if filename is None:
-        ext = ext_map.get(media_type, '.jpg')
-        local_name = f"{channel_name}_{post_id}_{int(time.time())}{ext}"
+    
+    url = url.strip()
+    if url.startswith('/'):
+        url = f"https://t.me{url}"
+    elif url.startswith('//'):
+        url = f"https:{url}"
+    
+    # تعیین نام فایل
+    if original_filename:
+        base_filename = original_filename
     else:
-        if len(filename) > 100:
-            filename = safe_filename(filename, max_length=100)
-        local_name = filename
-
-    local_path = CONTENT_DIR / local_name
-
+        base_filename = f"{channel_name}_{post_id}"
+    
     try:
-        resp = requests.get(url, headers=HEADERS, timeout=30)
+        print(f"    📥 Downloading: {url[:80]}...")
+        resp = requests.get(url, headers=HEADERS, timeout=60)
         resp.raise_for_status()
-
-        # --- use Content-Type to correct the extension ---
+        
         content_type = resp.headers.get('Content-Type', '').lower()
-        ext_map_mime = {
-            'image/jpeg': '.jpg',
-            'image/png': '.png',
-            'image/webp': '.webp',
-            'video/mp4': '.mp4',
-            'video/webm': '.webm',
-            'video/quicktime': '.mov',
-            'application/pdf': '.pdf',
-            # add more if needed
-        }
-        correct_ext = None
-        for mime, extension in ext_map_mime.items():
-            if mime in content_type:
-                correct_ext = extension
-                break
-
-        if correct_ext and not local_name.endswith(correct_ext):
-            new_local_name = str(Path(local_name).stem) + correct_ext
-            local_path = CONTENT_DIR / new_local_name
-            local_name = new_local_name
-            print(f"    ℹ️ Corrected extension -> {local_name}")
-
-        local_path.write_bytes(resp.content)
-        return f"telegram/content/{local_name}"
-
-    except Exception as e:
-        print(f"    ⚠️ Media download failed: {e}")
-        return None
-
-
-def download_document(post_url, channel_name, post_id):
-    print(f"    📄 Fetching document page: {post_url}")
-    try:
-        resp = requests.get(post_url, headers=HEADERS, timeout=30)
-        resp.raise_for_status()
-        html = resp.text
-
-        match = re.search(
-            r'<a\s[^>]*class="tgme_widget_message_document_wrap"[^>]*\shref="([^"]+)"',
-            html
-        )
-        if not match:
-            print("    ⚠️ No document download link found on the post page.")
-            return None
-        doc_url = match.group(1)
-        if doc_url.startswith("/"):
-            doc_url = "https://t.me" + doc_url
-
-        # Try to get a meaningful filename
-        parsed = urlparse(doc_url)
-        path = parsed.path
-        if path and "/" in path:
-            potential_name = path.split("/")[-1]
-            if potential_name:
-                filename = safe_filename(potential_name, max_length=100)
+        
+        # اصلاح نام فایل
+        final_filename = fix_filename_extension(base_filename, content_type)
+        
+        # اگه هنوز پسوند نداره، از Content-Type استفاده کن
+        if not get_extension_from_filename(final_filename):
+            ext = get_extension_from_content_type(content_type)
+            if ext:
+                final_filename += ext
             else:
-                filename = None
-        else:
-            filename = None
-
-        # Fallback
-        if not filename or not any(c in filename for c in (".", "_")):
-            ext = ".dat"
-            filename = f"{channel_name}_{post_id}_{int(time.time())}{ext}"
-
-        print(f"    ⬇️ Downloading document: {doc_url} -> {filename}")
-        return download_media(doc_url, channel_name, post_id,
-                              media_type='document', filename=filename)
-
+                final_filename += '.dat'
+        
+        local_path = CONTENT_DIR / final_filename
+        
+        if local_path.exists():
+            print(f"    📁 Already exists: {final_filename}")
+            return f"telegram/content/{final_filename}"
+        
+        local_path.write_bytes(resp.content)
+        print(f"    ✅ Downloaded: {final_filename}")
+        return f"telegram/content/{final_filename}"
+        
     except Exception as e:
-        print(f"    ⚠️ Document download failed: {e}")
+        print(f"    ⚠️ Download failed: {e}")
         return None
 
-
-# ----------------------------------------------------------------------
-# Archive shifting with correct pagination & absolute URLs
-# ----------------------------------------------------------------------
-def shift_archives_for_new_page1(message_block_new_page1: str,
-                                 repo_url: str | None, branch: str | None):
-    """
-    Move existing archives up by one, create new archive_1 with the provided block.
-    Navigation: archive_N → next = archive_N+1 (older), prev = archive_N-1 (newer).
-    archive_1 → prev = "../telegram.md" (main page, newer), next = archive_2 (older).
-    Uses absolute GitHub URLs if repo_url/branch are available.
-    """
-    CONTENT_DIR.mkdir(parents=True, exist_ok=True)
-
-    old_blocks = {}
-    for num, path in get_existing_archives():
-        content = path.read_text(encoding="utf-8")
-        block = extract_message_md(content)
-        if block is None:
-            block = content.strip()
-        old_blocks[num] = block
-
-    existing = sorted(old_blocks.keys(), reverse=True)
-    for num in existing:
-        old_path = CONTENT_DIR / f"archive_{num}.md"
-        new_path = CONTENT_DIR / f"archive_{num+1}.md"
-        if old_path.exists():
-            old_path.rename(new_path)
-
-    # Determine base URL for archive files
-    if repo_url and branch:
-        archive_base = f"{repo_url}/blob/{branch}/telegram/content/"
-    else:
-        archive_base = None
-
-    # New archive_1 (oldest of the previously archived content)
-    new_page1_path = CONTENT_DIR / "archive_1.md"
-    prev_rel = "../../telegram.md"             # back to main page (newer)
-    next_rel = "archive_2.md" if (2 in [n+1 for n in old_blocks]) else None
-    new_page1 = wrap_page(message_block_new_page1,
-                          next_rel=next_rel,
-                          prev_rel=prev_rel,
-                          base_url=archive_base)
-    new_page1_path.write_text(new_page1, encoding="utf-8")
-
-    total_archives = len(old_blocks) + 1
-    for new_num in range(2, total_archives + 1):
-        old_num = new_num - 1
-        block = old_blocks.get(old_num, "")
-        file_path = CONTENT_DIR / f"archive_{new_num}.md"
-        prev_rel = f"archive_{new_num-1}.md"   # newer
-        next_rel = f"archive_{new_num+1}.md" if new_num < total_archives else None  # older
-        page = wrap_page(block, next_rel=next_rel, prev_rel=prev_rel,
-                         base_url=archive_base)
-        file_path.write_text(page, encoding="utf-8")
-
-    print(f"✅ Archives shifted: new archive_1 created, total pages = {total_archives}")
-
-
-def split_main_page(new_entries_block: str, old_messages_block: str,
-                    repo_url: str | None, branch: str | None):
-    """
-    Main page too large: keep new entries on main, move old content to archive_1.
-    """
-    test_page = wrap_page(new_entries_block, next_rel=None, prev_rel=None)
-    if len(test_page.encode("utf-8")) <= 950 * 1024:
-        shift_archives_for_new_page1(old_messages_block, repo_url, branch)
-        # Main page: next = archive_1 (older), previous = None
-        next_rel_main = "telegram/content/archive_1.md"
-        prev_rel_main = None
-        main_base = f"{repo_url}/blob/{branch}/" if repo_url and branch else None
-        main_page = wrap_page(new_entries_block,
-                              next_rel=next_rel_main,
-                              prev_rel=prev_rel_main,
-                              base_url=main_base)
-        OUTPUT_FILE.write_text(main_page, encoding="utf-8")
-        print("✅ Main page updated, old content moved to archive_1.md")
-    else:
-        print("⚠️ New entries alone exceed 950KB – splitting inside new entries.")
-        half = len(new_entries_block) // 2
-        head_block = new_entries_block[:half]
-        tail_block = new_entries_block[half:]
-        shift_archives_for_new_page1(old_messages_block, repo_url, branch)
-        main_page = wrap_page(head_block, next_rel=None,
-                              prev_rel="telegram/content/archive_1.md")
-        OUTPUT_FILE.write_text(main_page, encoding="utf-8")
-        print("⚠️ Some new messages may be lost due to size limit.")
-
-
-# ----------------------------------------------------------------------
-# Scraping
-# ----------------------------------------------------------------------
-async def scrape_channel_all(page, channel_name, last_id, max_scrolls):
+async def scrape_messages(page, channel_name, target_count, last_id):
+    """دریافت پیام‌ها با مدیا"""
     url = f"https://t.me/s/{channel_name}"
-    print(f"  🌐 Loading {url} ...")
-    await page.goto(url, wait_until="networkidle", timeout=30000)
-
+    print(f"  🌐 Loading {url}")
+    
     try:
-        await page.wait_for_selector("[data-post]", timeout=15000)
-    except:
-        print("    ❌ No messages found on initial page.")
+        await page.goto(url, wait_until="domcontentloaded", timeout=30000)
+        await page.wait_for_selector("[data-post]", timeout=10000)
+    except Exception as e:
+        print(f"    ❌ Failed: {e}")
         return []
-
-    all_messages = []
+    
+    messages = []
     seen_ids = set()
-
-    for scroll_count in range(1, max_scrolls + 1):
-        current_msgs = await page.evaluate("""() => {
-            const containers = document.querySelectorAll('[data-post]');
-            const msgs = [];
-            containers.forEach(el => {
+    scroll_count = 0
+    max_scrolls = 25
+    
+    while True:
+        new_msgs = await page.evaluate("""() => {
+            const results = [];
+            for (const el of document.querySelectorAll('[data-post]')) {
                 const dataPost = el.getAttribute('data-post');
-                if (!dataPost) return;
+                if (!dataPost) continue;
                 const parts = dataPost.split('/');
-                if (parts.length < 2) return;
-                const channel = parts[0];
+                if (parts.length < 2) continue;
                 const postId = parseInt(parts[1]);
-                if (isNaN(postId)) return;
-
+                if (isNaN(postId)) continue;
+                
                 const textEl = el.querySelector('.tgme_widget_message_text');
-                const text = textEl ? textEl.innerText : '';
-
-                let mediaUrl = null, mediaType = null;
-
-                // 1) Video element – most reliable
-                const videoTag = el.querySelector('video');
-                if (videoTag && videoTag.src && !videoTag.src.startsWith('blob:')) {
-                    mediaUrl = videoTag.src;
-                    mediaType = 'video';
+                let text = textEl ? textEl.innerText : '';
+                
+                let mediaItems = [];
+                
+                // 1. ویدیو
+                const videoEl = el.querySelector('video');
+                if (videoEl && videoEl.src && !videoEl.src.startsWith('blob:')) {
+                    mediaItems.push({ type: 'video', url: videoEl.src, filename: null });
                 }
-
-                // 2) Video wrapper (alternative)
-                if (!mediaUrl) {
-                    const videoWrap = el.querySelector('.tgme_widget_message_video_wrap');
-                    if (videoWrap) {
-                        const vid = videoWrap.querySelector('video');
-                        if (vid && vid.src && !vid.src.startsWith('blob:')) {
-                            mediaUrl = vid.src;
-                            mediaType = 'video';
-                        } else {
-                            // fallback: maybe a background image (poster)
-                            const style = videoWrap.getAttribute('style') || '';
-                            const match = style.match(/url\\('(.*?)'\\)/);
-                            if (match) { mediaUrl = match[1]; mediaType = 'video'; }
-                        }
-                    }
-                }
-
-                // 3) Photo wrap
-                if (!mediaUrl) {
+                
+                // 2. عکس
+                if (mediaItems.length === 0) {
                     const photoWrap = el.querySelector('.tgme_widget_message_photo_wrap');
                     if (photoWrap) {
                         const style = photoWrap.getAttribute('style') || '';
-                        const match = style.match(/url\\('(.*?)'\\)/);
-                        if (match) { mediaUrl = match[1]; mediaType = 'photo'; }
-                    }
-                }
-
-                // 4) Photo wrap inside a link (video with cover)
-                if (!mediaUrl) {
-                    const linkPhoto = el.querySelector('a.tgme_widget_message_photo_wrap');
-                    if (linkPhoto) {
-                        const videoInside = linkPhoto.querySelector('video');
-                        if (videoInside && videoInside.src && !videoInside.src.startsWith('blob:')) {
-                            mediaUrl = videoInside.src;
-                            mediaType = 'video';
-                        } else {
-                            const style = linkPhoto.getAttribute('style') || '';
-                            const match = style.match(/url\\('(.*?)'\\)/);
-                            if (match) { mediaUrl = match[1]; mediaType = 'photo'; }
+                        const match = style.match(/url\\(['"]?(.*?)['"]?\\)/);
+                        if (match) {
+                            mediaItems.push({ type: 'photo', url: match[1], filename: null });
                         }
                     }
                 }
-
-                // 5) Document
-                if (!mediaUrl) {
-                    const docWrap = el.querySelector('a.tgme_widget_message_document_wrap');
-                    if (docWrap) {
-                        mediaUrl = 'https://t.me/' + channel + '/' + postId;
-                        mediaType = 'document';
+                
+                // 3. فایل ضمیمه
+                const docWrap = el.querySelector('a.tgme_widget_message_document_wrap');
+                if (docWrap) {
+                    const docUrl = docWrap.getAttribute('href');
+                    if (docUrl) {
+                        let filename = null;
+                        const nameEl = docWrap.querySelector('.tgme_widget_message_document_title');
+                        if (nameEl) filename = nameEl.innerText;
+                        if (!filename) filename = docUrl.split('/').pop() || 'file';
+                        
+                        mediaItems.push({ type: 'document', url: docUrl, filename: filename });
                     }
                 }
-
-                msgs.push({
-                    id: postId,
-                    text: text,
-                    media_url: mediaUrl,
-                    media_type: mediaType
-                });
-            });
-            return msgs;
+                
+                results.push({ id: postId, text: text, mediaItems: mediaItems });
+            }
+            return results;
         }""")
-
-        new_added = 0
-        for m in current_msgs:
-            if m["id"] not in seen_ids:
-                seen_ids.add(m["id"])
-                all_messages.append(m)
-                new_added += 1
-
-        print(f"    Scroll {scroll_count}: total unique={len(all_messages)}, new this scroll={new_added}")
-
-        if all_messages:
-            oldest_id = min(msg["id"] for msg in all_messages)
-            if oldest_id <= last_id:
-                print(f"    Reached last_id ({last_id}) – stopping scroll.")
+        
+        for msg in new_msgs:
+            if msg['id'] not in seen_ids:
+                seen_ids.add(msg['id'])
+                if target_count > 0:
+                    if len(messages) < target_count:
+                        messages.append(msg)
+                else:
+                    if msg['id'] > last_id:
+                        messages.append(msg)
+        
+        if messages and target_count == 0:
+            oldest = min(m['id'] for m in messages)
+            if oldest <= last_id:
                 break
-
-        if new_added == 0:
-            print("    No new messages added – end of history.")
+        
+        if target_count > 0 and len(messages) >= target_count:
+            messages = messages[:target_count]
             break
-
+        
+        if scroll_count >= max_scrolls:
+            break
+        
         await page.evaluate("window.scrollTo(0, document.body.scrollHeight)")
-        await asyncio.sleep(2)
+        await asyncio.sleep(1.5)
+        scroll_count += 1
+    
+    messages.sort(key=lambda x: x['id'], reverse=True)
+    print(f"    ✅ Got {len(messages)} messages")
+    return messages
 
-        try:
-            await page.wait_for_function(
-                f"document.querySelectorAll('[data-post]').length > {len(seen_ids)}",
-                timeout=5000
-            )
-        except:
-            print("    No further messages loaded after scroll.")
-            break
+def save_page(channel_dir, page_num, messages, channel_name):
+    """ذخیره صفحه با فرمت Markdown"""
+    file_path = channel_dir / f"page_{page_num}.md"
+    
+    now = jdatetime.datetime.now(IRAN_TZ).strftime('%Y/%m/%d %H:%M')
+    
+    content = f"# آرشیو کانال {channel_name} - صفحه {page_num}\n\n"
+    content += f"📅 آخرین بروزرسانی: {now}\n\n---\n\n"
+    
+    for msg in messages:
+        content += f"## {channel_name} — post {msg['id']}\n\n"
+        
+        # نمایش مدیاها
+        for media in msg.get('mediaItems', []):
+            if media['type'] == 'photo' and media.get('url'):
+                content += f'<div align="center"><img src="{media["url"]}" alt="Photo"></div>\n\n'
+            elif media['type'] == 'video' and media.get('url'):
+                content += f'<div align="center"><video src="{media["url"]}" controls style="max-width:100%; border-radius:12px;"></video></div>\n\n'
+                content += f'<div align="center"><a href="{media["url"]}" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>\n\n'
+            elif media['type'] == 'document' and media.get('url'):
+                fname = media.get('filename', 'فایل')
+                content += f'<div align="center"><a href="{media["url"]}" target="_blank" class="file-link" style="color:#2ea4d9;">📎 {fname}</a></div>\n\n'
+        
+        # متن پیام
+        if msg.get('text'):
+            content += f'<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">\n{msg["text"]}\n</div>\n\n'
+    
+    file_path.write_text(content, encoding='utf-8')
+    print(f"    💾 Saved page {page_num} with {len(messages)} messages")
+    return file_path
 
-    filtered = [m for m in all_messages if m["id"] > last_id]
-    filtered.sort(key=lambda x: x["id"], reverse=True)
-    return filtered
+async def process_channel(page, channel_name, state):
+    """پردازش یک کانال"""
+    channel_dir = get_channel_dir(channel_name)
+    existing_ids = get_existing_ids(channel_dir)
+    last_id = state.get(channel_name, 0)
+    
+    is_new = len(existing_ids) == 0
+    
+    if is_new:
+        print(f"\n📡 {channel_name}: New channel - fetching first {MESSAGES_PER_PAGE} messages")
+        messages = await scrape_messages(page, channel_name, MESSAGES_PER_PAGE, 0)
+    else:
+        print(f"\n📡 {channel_name}: Checking for new messages after ID {last_id}")
+        messages = await scrape_messages(page, channel_name, 0, last_id)
+    
+    if not messages:
+        print(f"   ℹ️ No new messages")
+        return 0
+    
+    # فیلتر پیام‌های تکراری
+    new_messages = [m for m in messages if m['id'] not in existing_ids]
+    
+    if not new_messages:
+        print(f"   ℹ️ All messages already exist")
+        return 0
+    
+    # دانلود مدیاها
+    for msg in new_messages:
+        for media in msg.get('mediaItems', []):
+            if media['type'] == 'photo':
+                media['url'] = download_media(media['url'], channel_name, msg['id'], 'photo')
+            elif media['type'] == 'video':
+                media['url'] = download_media(media['url'], channel_name, msg['id'], 'video')
+            elif media['type'] == 'document':
+                media['url'] = download_media(media['url'], channel_name, msg['id'], 'document', media.get('filename'))
+    
+    # جمع‌آوری همه پیام‌ها
+    all_messages = []
+    
+    # خواندن پیام‌های موجود
+    for _, file_path in get_page_files(channel_dir):
+        if file_path.exists():
+            content = file_path.read_text(encoding='utf-8')
+            blocks = re.split(r'\n(?=## )', content)
+            for block in blocks:
+                pid_match = re.search(r'post (\d+)', block)
+                if pid_match:
+                    pid = int(pid_match.group(1))
+                    
+                    # استخراج مدیاهای موجود
+                    media_items = []
+                    img_matches = re.findall(r'<img src="([^"]+)"', block)
+                    for img in img_matches:
+                        media_items.append({'type': 'photo', 'url': img})
+                    
+                    video_matches = re.findall(r'<video src="([^"]+)"', block)
+                    for vid in video_matches:
+                        media_items.append({'type': 'video', 'url': vid})
+                    
+                    file_matches = re.findall(r'class="file-link"[^>]*>📎 ([^<]+)</a>', block)
+                    for fname in file_matches:
+                        media_items.append({'type': 'document', 'url': '', 'filename': fname})
+                    
+                    text_match = re.search(r'<div dir="rtl"[^>]*>(.*?)</div>', block, re.DOTALL)
+                    text = re.sub(r'<[^>]+>', '', text_match.group(1) if text_match else '').strip()
+                    
+                    all_messages.append({'id': pid, 'text': text, 'mediaItems': media_items})
+    
+    # اضافه کردن پیام‌های جدید
+    all_messages.extend(new_messages)
+    all_messages.sort(key=lambda x: x['id'], reverse=True)
+    
+    # بازسازی صفحات
+    pages = {}
+    for i in range(0, len(all_messages), MESSAGES_PER_PAGE):
+        page_num = i // MESSAGES_PER_PAGE + 1
+        pages[page_num] = all_messages[i:i + MESSAGES_PER_PAGE]
+    
+    # ذخیره صفحات
+    for page_num, page_msgs in pages.items():
+        save_page(channel_dir, page_num, page_msgs, channel_name)
+    
+    # حذف صفحات اضافی
+    existing_pages = get_page_files(channel_dir)
+    for page_num, file_path in existing_pages:
+        if page_num not in pages:
+            file_path.unlink()
+    
+    # به‌روزرسانی state
+    new_last_id = max(m['id'] for m in new_messages)
+    state[channel_name] = max(last_id, new_last_id)
+    
+    print(f"   ✅ Added {len(new_messages)} messages, reorganized into {len(pages)} pages")
+    return len(new_messages)
 
-
-# ----------------------------------------------------------------------
 async def main():
     channels = load_channels()
+    
+    if TARGET_CHANNEL:
+        clean = TARGET_CHANNEL.lstrip('@')
+        if clean in channels:
+            channels = [clean]
+            print(f"🎯 Target channel: {clean}")
+        else:
+            print(f"❌ Channel '{TARGET_CHANNEL}' not found")
+            sys.exit(1)
+    
     state = load_state()
-    is_first_run = not state
-
-    scroll_limit = 15 if is_first_run else 50
-
+    total = 0
+    
     async with async_playwright() as p:
         browser = await p.chromium.launch(headless=True)
         page = await browser.new_page()
-
-        all_messages = []
-        for ch_name in channels:
-            clean_name = ch_name.lstrip("@")
-            last_id = state.get(ch_name, 0)
-
-            msgs = await scrape_channel_all(page, clean_name, last_id, max_scrolls=scroll_limit)
-            if not msgs:
-                print(f"  ℹ️ No new messages for {ch_name}")
-                continue
-
-            for m in msgs:
-                m["_channel"] = clean_name
-
-            all_messages.extend(msgs)
-            print(f"  ✅ {ch_name}: fetched {len(msgs)} new messages (after filter)")
-
+        
+        for ch in channels:
+            total += await process_channel(page, ch, state)
+        
         await browser.close()
-
-    # ---- Block .webm video (animated stickers/emojis) ----
-    for m in all_messages:
-        if m.get("media_type") == "video" and m.get("media_url", "").lower().endswith(".webm"):
-            m["media_url"] = None
-            m["media_type"] = None
-
-    # ---- Obtain repository info for absolute links ----
-    repo_url, branch = get_github_base_url()
-
-    # ---- Update timestamp header ----
-    now_jalali = jdatetime.datetime.now(IRAN_TZ)
-    update_header = f"\n---\n📅 بروزرسانی: {now_jalali.strftime('%Y/%m/%d %H:%M')}\n---\n\n"
-
-    # ---- Build new message entries ----
-    new_entries_list = []
-    new_ids_set = set()
-
-    for msg in all_messages:
-        ch = msg["_channel"]
-        pid = msg["id"]
-        new_ids_set.add((ch, pid))
-
-        media_md = None
-        media_type = msg.get("media_type")
-        media_url = msg.get("media_url")
-
-        if media_url and media_type in ("photo", "video"):
-            media_md = download_media(media_url, ch, pid, media_type=media_type)
-        elif media_url and media_type == "document":
-            media_md = download_document(media_url, ch, pid)
-            if not media_md:
-                media_md = media_url  # fallback link
-
-        # ---- Centered media & RTL caption with Vazirmatn font ----
-        header = f"## {ch} — post {pid}\n\n"
-        media_html = ""
-        if media_md:
-            if media_type == "photo":
-                media_html = f'<div align="center">\n  <img src="{media_md}" alt="Photo">\n</div>'
-            elif media_type == "video":
-                media_html = f'<div align="center">\n  <a href="{media_md}" target="_blank">🎬 Download video</a>\n</div>'
-            elif media_type == "document":
-                media_html = f'<div align="center">\n  <a href="{media_md}" target="_blank">📎 Download file</a>\n</div>'
-
-        caption = msg.get("text", "")
-        if not caption:
-            if media_type == "photo": caption = "📷 Photo"
-            elif media_type == "video": caption = "🎬 Video"
-            elif media_type == "document": caption = "📎 Document"
-
-        # Inline RTL + Vazirmatn font, fallback to Tahoma
-        caption_style = "dir='rtl' style='font-family: \"Vazirmatn\", Tahoma, sans-serif;'"
-        caption_div = f'<div {caption_style}>\n{caption}\n</div>' if caption else ""
-
-        entry = header + media_html + "\n" + caption_div + "\n\n"
-        new_entries_list.append(entry)
-
-    new_entries_block = update_header + "".join(new_entries_list)
-
-    # ---- If no new posts were fetched, show a notice ----
-    if not new_entries_list:
-        caption_style = "dir='rtl' style='font-family: \"Vazirmatn\", Tahoma, sans-serif;'"
-        new_entries_block += f'<div {caption_style}>\nهیچ پیام جدیدی در این بروزرسانی ارسال نشد.\n</div>\n\n'
-
-    # ---- Load and deduplicate existing messages ----
-    old_messages_block = ""
-    if OUTPUT_FILE.exists():
-        old_raw = OUTPUT_FILE.read_text(encoding="utf-8")
-        extracted = extract_message_md(old_raw)
-        if extracted is not None:
-            old_messages_block = extracted
-        else:
-            lines = old_raw.split("\n")
-            if lines and lines[0].startswith("# "):
-                old_messages_block = "\n".join(lines[1:]).strip()
-            else:
-                old_messages_block = old_raw.strip()
-
-    if old_messages_block.strip() and new_ids_set:
-        old_messages_block = deduplicate_messages(old_messages_block, new_ids_set)
-
-    # ---- Combine and handle size limit, with correct pagination ----
-    if new_entries_block or old_messages_block:
-        # Determine base URL for the main page
-        main_base = f"{repo_url}/blob/{branch}/" if repo_url and branch else None
-
-        trial_page = wrap_page(new_entries_block + old_messages_block,
-                               next_rel=None, prev_rel=None,
-                               base_url=main_base)
-        size = len(trial_page.encode("utf-8"))
-        if size > 950 * 1024 and old_messages_block.strip():
-            # Split: new entries on main, old goes to archive_1
-            split_main_page(new_entries_block, old_messages_block,
-                            repo_url, branch)
-        else:
-            # No split needed, all content on main page
-            archives = get_existing_archives()
-            next_rel_main = None
-            if archives:
-                # Main page → next = first archive (older)
-                next_rel_main = f"telegram/content/archive_{archives[0][0]}.md"
-            main_page = wrap_page(new_entries_block + old_messages_block,
-                                  next_rel=next_rel_main,
-                                  prev_rel=None,
-                                  base_url=main_base)
-            OUTPUT_FILE.write_text(main_page, encoding="utf-8")
-            print("✅ Main page updated (no split needed).")
-    else:
-        if not OUTPUT_FILE.exists():
-            OUTPUT_FILE.write_text(wrap_page("", None, None,
-                                             base_url=f"{repo_url}/blob/{branch}/" if repo_url and branch else None))
-            print("ℹ️ No messages yet, empty page created.")
-
-    # ---- Update state ----
-    for ch_name in channels:
-        clean_name = ch_name.lstrip("@")
-        ch_msgs = [m for m in all_messages if m["_channel"] == clean_name]
-        if ch_msgs:
-            max_id = max(m["id"] for m in ch_msgs)
-            state[ch_name] = max(state.get(ch_name, 0), max_id)
-
+    
     save_state(state)
-    print("✅ State saved.")
-
+    print(f"\n✅ Done! Total new messages added: {total}")
 
 if __name__ == "__main__":
     asyncio.run(main())
