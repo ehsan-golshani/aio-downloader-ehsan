@@ -1,0 +1,276 @@
+# آرشیو کانال FoxNewsTwitter - صفحه 1
+
+📅 آخرین بروزرسانی: 1405/02/24 00:04
+
+---
+
+## FoxNewsTwitter — post 341676
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341676.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: The White House shares brand new photos of President Trump's arrival in China for his landmark state visit, where he will meet with President Xi to discuss major foreign policy and trade issues.
+</div>
+
+## FoxNewsTwitter — post 341675
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341675.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341675.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+RT @TheStoryFNC: “We have time to try him again...”
+
+EXCLUSIVE: South Carolina Attorney General @AGAlanWilson says state will seek speedy trial after Alex Murdaugh’s murder convictions are overturned
+</div>
+
+## FoxNewsTwitter — post 341674
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341674.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341674.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST IN: Vice President JD Vance defends the fraud task force for its efforts to prioritize American citizens:
+
+"We're a generous country. We're a generous people. I love that about this country.”
+
+“But part of that generosity is that it extends to our fellow Americans. We cannot give Medicare and Medicaid benefits to everybody all over the world.”
+
+“It's going to bankrupt those programs. They ought to belong to Americans first."
+</div>
+
+## FoxNewsTwitter — post 341673
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341673.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341673.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+"I can do all things through Christ who strengthens me.”
+
+DHS Secretary Markwayne Mullin leans on his Christian faith as he sends a message of support to his ICE agents, defending them against media scrutiny:
+
+“If any agency needs to hear that, it's ICE. No matter what the media wants to say, I know you're doing your job every day, and I want you to know I am proud to be part of it.”
+
+“I take it with tremendous pride, and I'm willing to stand beside you and stand in front of you and defend you every single day."
+</div>
+
+## FoxNewsTwitter — post 341672
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341672.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341672.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST NOW: VP Vance makes an 'Apprentice' joke when asked about President Trump doing a crowd poll of himself and Secretary Rubio earlier this week.
+
+"I just don't think it sounds like the president of the United States to have a televised competition for who would succeed him as his apprentice."
+
+"I just think that's not at all what you would expect the president to do."
+
+"I think it's natural for him to joke around with us a little bit to play around with the idea. But I can tell you the president is as focused as any of us on making sure we do as good of a job now for the American people."
+</div>
+
+## FoxNewsTwitter — post 341671
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341671.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Senate confirms Kevin Warsh as Federal Reserve Chair in a 54–45 vote.
+
+Warsh replaces Jerome Powell, who will stay on the board as a Fed governor, despite repeated criticism from President Trump, who has been pushing the Fed to cut rates and accused Powell of making decisions "too late."
+
+Democrat John Fetterman was the only member of his party to join Republicans as the lone vote from his party to back Trump’s pick.
+</div>
+
+## FoxNewsTwitter — post 341670
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341670.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341670.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Vice President JD Vance shuts down talk of a "joint ticket" with Secretary of State Marco Rubio, insisting he is focused solely on the job the American people already elected him to do:
+
+"There are a few topics that I want to talk about less than what office I'm going to run for years down the road when I'm having a good time and trying to do good work in the job that the American people already elected me to do.”
+
+“I've answered this question, probably in any number of ways, I love Marco. I think he's a great secretary of state. He's become a very, very dear friend. But I think both of us are very much focused on accomplishing the American people's business right now.”
+</div>
+
+## FoxNewsTwitter — post 341669
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341669.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341669.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: "We believe that at least half of the hospices in the entire area around Los Angeles are fraudulent."
+
+"Today we announce 800 of those hospices have been suspended. 800 hospices that last year charged the federal taxpayer $1.4 billion will no longer be paid." - CMS Administrator Dr. Mehmet Oz
+</div>
+
+## FoxNewsTwitter — post 341668
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341668.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341668.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+VP VANCE: "So you're saying that we kicked off 800 fraudulent healthcare providers off of the Medicare system, and not a single one of them called the government and said, 'hey, you made a mistake?'"
+
+DR. OZ: "We've had a handful of calls. We're not sure they're legitimate yet, but it's less than 20 out of 800 and we're auditing them."
+
+VP VANCE:" Unbelievable... At least 780 are not even trying to claim that they're not fraudulent?"
+
+"Those are businesses that we were giving hundreds of millions, in some cases billions of dollars to, not to provide services, but to make a fraudster rich. It's just completely insane."
+</div>
+
+## FoxNewsTwitter — post 341667
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341667.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341667.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST IN: Vice President JD Vance rips the Biden administration’s failure to prevent medical identity theft after a California psychotherapist was stripped of her benefits.
+
+Vance highlights the doctor's case — 40 years in the medical field only to have her Medicare "turned off" because a fraudster exploited the system.
+
+"A fraudster had stolen her identity and signed her up for healthcare services that she didn't need, and so she had been turned off of the healthcare services that she did need."
+
+“This happens way too much in the United States of America. And it happens because until recently, we did not have a government or an administration that actually took the fraud program and took anti-fraud prevention seriously."
+</div>
+
+## FoxNewsTwitter — post 341666
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341666.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341666.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: VP Vance calls out officials in Hawaii for refusing to crack down on Medicaid fraud in the state:
+
+"Guess how many convictions or indictments has Hawaii had over the last few years in its Medicaid fraud program? The answer is zero."
+
+"Not a single indictment, not a single conviction, because the administrators of the Hawaii program just don't take it seriously. They don't think that fraud is a big enough problem."
+</div>
+
+## FoxNewsTwitter — post 341665
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341665.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341665.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST IN: Vice President JD Vance reveals how fraudulent healthcare providers are taking advantage of patients and exploiting the American taxpayer:
+
+"You have people who've been prescribed medications that they don't even need.
+
+“Sometimes they've had drugs put into their bodies that they don't need because fraudsters have actually encouraged false prescriptions and false administration to medications.”
+
+“It's a defrauding of the American taxpayer, but it's a violation of the trust that should exist between every American and the people who prescribe the medications."
+</div>
+
+## FoxNewsTwitter — post 341664
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341664.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341664.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Vice President JD Vance announces the federal government is deferring over a billion dollars in Medicaid reimbursements to California, citing a failure by the state to combat systemic fraud.
+
+"We're announcing that the federal government is deferring $1.3 billion in Medicaid reimbursements from the state of California.”
+
+“And the simple reason is because the state of California has not taken fraud very seriously."
+</div>
+
+## FoxNewsTwitter — post 341663
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341663.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: Vance delivers remarks on Trump admin's fraud crackdown https://twitter.com/i/broadcasts/1wGWjaVqmRpKQ
+</div>
+
+## FoxNewsTwitter — post 341662
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341662.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341662.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: Acting ICE Director Todd Lyons honors fallen law enforcement officers and agents:
+
+"Police week is sacred, not because of ceremony, but because behind every name we honor was a human being, a son, a daughter, a husband, a wife, a mother, a father, a partner, and a friend. Someone who kissed their family goodbye one last time without knowing it would be the last time."
+
+"These are generations of law enforcement professionals who stood watch over this nation, accepted the risks most Americans will never fully understand."
+</div>
+
+## FoxNewsTwitter — post 341661
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341661.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+“Funny how they never attack my policy ideas... I’m in the arena, son.”
+
+Spencer Pratt is firing back at his critics after L.A. mayoral candidate Nithya Raman called him to “mini Trump” and warned voters about the "fascism" he may bring to office.
+
+Pratt says opponents are dodging substance and focusing on his past, arguing they “want the continued decline of the city.”
+
+Raman says his rise is fueled by frustration across Los Angeles, but is trying to warn voters of heading “in the wrong direction” if that anger isn’t addressed differently.
+
+Pratt, running as an independent after losing his home in the Pacific Palisades fire, has leaned into criticism of current leadership as recovery efforts remain a major issue.
+
+He's been gaining ground in the race, fueled in part by voters sharing his same frustrations with the status quo.
+</div>
+
+## FoxNewsTwitter — post 341660
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341660.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+"New York City believes in punishing success."
+
+Dallas Mayor Eric Johnson says the clash between NYC leadership and finance giants is pushing firms to reconsider where they operate — and Texas is welcoming them with open arms.
+
+His pitch for "Y’all Street" over Wall Street comes as a steady stream of financial firms expand their operations in Texas.
+
+They were drawn there because of lower taxes and fewer regulations, a trend Johnson says is accelerating even more under New York City Mayor Zohran Mamdani.
+</div>
+
