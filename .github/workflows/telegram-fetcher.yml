@@ -1,74 +1,51 @@
-name: telegram-fetcher
+# .github/workflows/telegram-fetcher.yml
+name: Telegram Channel Fetcher
 
 on:
   schedule:
+    # هر ۱۵ دقیقه یکبار اجرا میشه (با تأخیر احتمالی)
     - cron: "*/15 * * * *"
   workflow_dispatch:
     inputs:
       channel:
-        description: '📢 نام کانال (برای آرشیو سفارشی)'
-        required: false
-        type: string
+        description: 'نام کانال (مثلاً VahidOOnLine) - برای آرشیو دستی ۱۰ پیام بیشتر'
+        required: true
         default: ''
+        type: string
 
 jobs:
-  fetch:
+  fetch-telegram:
     runs-on: ubuntu-latest
     permissions:
       contents: write
-
     steps:
-      - uses: actions/checkout@v5
+      - name: Checkout code
+        uses: actions/checkout@v4
+      
+      - name: Setup Python
+        uses: actions/setup-python@v5
         with:
-          fetch-depth: 1
-
-      - uses: actions/setup-python@v5
-        with:
-          python-version: "3.11"
-
+          python-version: '3.11'
+      
       - name: Install dependencies
         run: |
           pip install playwright requests jdatetime
           python -m playwright install chromium
           python -m playwright install-deps chromium
-
-      - name: Run archiver
+      
+      - name: Run Telegram Fetcher
         env:
+          # ---------- مهم: آدرس مخزن جدید را اینجا یک بار ست کن ----------
+          REPO_OWNER: "ehsan-golshani"
+          REPO_NAME: "aio-downloader-ehsan"
           TARGET_CHANNEL: ${{ github.event.inputs.channel }}
-          FORCE_JAVASCRIPT_ACTIONS_TO_NODE24: true
         run: |
-          if [ -n "$TARGET_CHANNEL" ] && [ "$TARGET_CHANNEL" != "null" ]; then
-            echo "🎯 Custom archive for: $TARGET_CHANNEL"
-            python .github/script/fetch_telegram_pw.py --channel "$TARGET_CHANNEL" --limit 10
-          else
-            echo "🔄 Normal update for all channels"
-            python .github/script/fetch_telegram_pw.py
-          fi
-
-      - name: Commit and push
+          python .github/scripts/fetch_telegram_pw.py
+      
+      - name: Commit and push changes
         run: |
           git config user.name "github-actions[bot]"
           git config user.email "github-actions[bot]@users.noreply.github.com"
-          
-          git add telegram/data/ telegram/content/ telegram/last_ids.json 2>/dev/null || true
-          
-          if git diff --staged --quiet; then
-            echo "ℹ️ No changes"
-            exit 0
-          fi
-          
-          if [ -n "$TARGET_CHANNEL" ] && [ "$TARGET_CHANNEL" != "null" ]; then
-            git commit -m "📦 Custom archive for $TARGET_CHANNEL [skip ci]" || exit 0
-          else
-            git commit -m "🔄 Update Telegram archive [skip ci]" || exit 0
-          fi
-          
-          for i in 1 2 3; do
-            git pull --rebase origin ${{ github.ref_name }} 2>/dev/null || true
-            if git push origin ${{ github.ref_name }}; then
-              echo "✅ Push succeeded"
-              exit 0
-            fi
-            sleep 3
-          done
-          exit 1
+          git add telegram/ || true
+          git diff --staged --quiet || git commit -m "Update Telegram archive [skip ci]"
+          git push
