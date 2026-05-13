@@ -1,28 +1,1129 @@
 <!DOCTYPE html>
-<html dir="rtl" lang="fa">
+<html lang="fa" dir="rtl">
 <head>
     <meta charset="UTF-8">
-    <meta name="viewport" content="width=device-width, initial-scale=1.0">
-    <title>صفحه تست</title>
+    <meta name="viewport" content="width=device-width, initial-scale=1.0, maximum-scale=1.0, user-scalable=yes, viewport-fit=cover">
+    <meta name="apple-mobile-web-app-capable" content="yes">
+    <meta name="apple-mobile-web-app-status-bar-style" content="black-translucent">
+    <meta name="theme-color" content="#2ea4d9">
+    <title>TeleMirror - آرشیو کانال‌های تلگرام</title>
     <style>
-        body{font-family:Tahoma;background:linear-gradient(135deg,#667eea 0%,#764ba2 100%);margin:0;padding:20px;min-height:100vh;display:flex;justify-content:center;align-items:center}
-        .card{background:#fff;border-radius:20px;padding:40px;max-width:500px;box-shadow:0 20px 60px rgba(0,0,0,0.3);text-align:center}
-        h1{color:#667eea}.time{font-size:48px;font-weight:bold;color:#764ba2;margin:20px 0;direction:ltr}
-        button{background:#667eea;color:#fff;border:none;padding:12px 30px;border-radius:25px;margin:5px;cursor:pointer}
-        .footer{margin-top:20px;font-size:12px;color:#999}
+        * {
+            margin: 0;
+            padding: 0;
+            box-sizing: border-box;
+            -webkit-tap-highlight-color: transparent;
+        }
+
+        :root {
+            --bg: #0f0c29;
+            --bg-light: #1a1a3e;
+            --bg-dark: #24243e;
+            --card: rgba(255,255,255,0.96);
+            --surface: rgba(255,255,255,0.95);
+            --surface2: #f5f5f5;
+            --border: #e0e0e0;
+            --text: #1a1a1a;
+            --text2: #6c6c6c;
+            --text3: #8e8e8e;
+            --accent: #2ea4d9;
+            --purple: #8b5cf6;
+            --green: #10b981;
+            --red: #ef4444;
+            --yellow: #f59e0b;
+            --blue: #3b82f6;
+            --bubble-bg: #ffffff;
+            --safe-bottom: env(safe-area-inset-bottom, 12px);
+            --safe-top: env(safe-area-inset-top, 0px);
+            
+            --font-xs: clamp(0.6rem, 3vw, 0.7rem);
+            --font-sm: clamp(0.7rem, 3.5vw, 0.75rem);
+            --font-base: clamp(0.85rem, 4vw, 0.95rem);
+            --font-md: clamp(0.95rem, 4.5vw, 1rem);
+            --font-lg: clamp(1.1rem, 5vw, 1.2rem);
+            
+            --radius-sm: clamp(8px, 3vw, 10px);
+            --radius-md: clamp(12px, 4vw, 14px);
+            --radius-lg: clamp(14px, 5vw, 18px);
+            
+            --spacing-xs: clamp(4px, 1.5vw, 6px);
+            --spacing-sm: clamp(6px, 2vw, 8px);
+            --spacing-md: clamp(8px, 3vw, 12px);
+            --spacing-lg: clamp(12px, 4vw, 16px);
+            --spacing-xl: clamp(16px, 5vw, 20px);
+        }
+
+        @media (prefers-color-scheme: dark) {
+            :root {
+                --card: rgba(30,30,45,0.96);
+                --surface: #1c1c1e;
+                --surface2: #2c2c2e;
+                --border: #38383a;
+                --text: #ffffff;
+                --text2: #8e8e93;
+                --text3: #6c6c70;
+                --bubble-bg: #1c1c1e;
+            }
+        }
+
+        html, body {
+            height: 100%;
+            overflow: hidden;
+            background: radial-gradient(circle at 20% 50%, var(--bg), var(--bg-light), var(--bg-dark));
+        }
+
+        body {
+            font-family: -apple-system, BlinkMacSystemFont, 'Segoe UI', Roboto, Helvetica, Arial, sans-serif;
+            color: var(--text);
+            display: flex;
+            flex-direction: column;
+            -webkit-font-smoothing: antialiased;
+            font-size: var(--font-base);
+        }
+
+        /* هبرگر منو */
+        .hamburger {
+            position: fixed; top: 16px; right: 16px; width: 44px; height: 44px;
+            background: rgba(255,255,255,0.95); backdrop-filter: blur(20px);
+            -webkit-backdrop-filter: blur(20px); border-radius: 50%;
+            display: flex; flex-direction: column; align-items: center;
+            justify-content: center; gap: 5px; cursor: pointer; z-index: 1001;
+            border: 1px solid rgba(255,255,255,0.3);
+            box-shadow: 0 4px 20px rgba(0,0,0,0.15);
+        }
+        .hamburger span { width: 18px; height: 2px; background: #4a5568; border-radius: 2px; transition: 0.3s; }
+        .hamburger.open span:nth-child(1) { transform: rotate(45deg) translate(5px,5px); background: var(--purple); }
+        .hamburger.open span:nth-child(2) { opacity: 0; }
+        .hamburger.open span:nth-child(3) { transform: rotate(-45deg) translate(5px,-5px); background: var(--purple); }
+        
+        .side-menu {
+            position: fixed; top: 0; right: -280px; width: 260px; height: 100vh;
+            background: rgba(255,255,255,0.98); backdrop-filter: blur(30px);
+            -webkit-backdrop-filter: blur(30px); z-index: 1000;
+            transition: right 0.3s; box-shadow: -4px 0 30px rgba(0,0,0,0.15);
+            padding: 70px 12px 20px; overflow-y: auto;
+        }
+        .side-menu.open { right: 0; }
+        .menu-overlay { position: fixed; top: 0; left: 0; right: 0; bottom: 0; background: rgba(0,0,0,0.5); z-index: 999; display: none; }
+        .menu-overlay.open { display: block; }
+        .menu-item {
+            padding: 12px 14px; margin-bottom: 4px; font-size: 14px; font-weight: 500;
+            color: #334155; border-radius: 14px; cursor: pointer;
+            display: flex; align-items: center; gap: 10px; user-select: none;
+        }
+        .menu-item:active { background: #e2e8f0; }
+        .menu-item.active { background: linear-gradient(135deg, var(--purple), #764ba2); color: #fff; }
+
+        .container { max-width: 520px; margin: 0 auto; padding: 0; }
+        .header { text-align: center; margin: 40px 0 24px; }
+        .header h1 { font-size: 28px; font-weight: 800; background: linear-gradient(135deg, #fff, #a78bfa); -webkit-background-clip: text; background-clip: text; color: transparent; }
+        .header p { color: rgba(255,255,255,0.6); font-size: 12px; margin-top: 6px; }
+        
+        .page { display: none; animation: fadeIn 0.3s; }
+        .page.active { display: block; }
+        @keyframes fadeIn { from{opacity:0;transform:translateY(10px);} to{opacity:1;transform:translateY(0);} }
+        
+        .card {
+            background: var(--card); backdrop-filter: blur(20px); -webkit-backdrop-filter: blur(20px);
+            border-radius: 22px; padding: 18px; margin-bottom: 14px;
+            box-shadow: 0 6px 24px rgba(0,0,0,0.1); border: 1px solid rgba(255,255,255,0.3);
+        }
+        .section-title { font-size: 16px; font-weight: 700; margin-bottom: 14px; color: var(--text); display: flex; align-items: center; gap: 8px; }
+        
+        .input-group { margin-bottom: 14px; }
+        label { display: block; font-size: 11px; font-weight: 600; margin-bottom: 4px; color: #475569; }
+        input, select, textarea {
+            width: 100%; padding: 11px 14px; border: 1.5px solid #e2e8f0; border-radius: 16px;
+            font-size: 13px; font-family: inherit; background: #fff; color: #1e293b;
+            -webkit-appearance: none; transition: 0.2s;
+        }
+        input:focus, select:focus, textarea:focus { outline: none; border-color: var(--purple); box-shadow: 0 0 0 3px rgba(139,92,246,0.1); }
+        
+        button {
+            width: 100%; padding: 12px; border: none; border-radius: 20px;
+            font-size: 14px; font-weight: 600; cursor: pointer; transition: 0.2s;
+            user-select: none; background: linear-gradient(135deg, var(--purple), #6d28d9); color: #fff;
+        }
+        button:active { transform: scale(0.97); }
+        button:disabled { opacity: 0.6; pointer-events: none; }
+        .btn-sm {
+            display: inline-flex; align-items: center; justify-content: center;
+            gap: 4px; padding: 7px 12px; font-size: 11px; border-radius: 14px;
+            width: auto; text-decoration: none; color: #fff; cursor: pointer; border: none;
+        }
+        .btn-blue { background: var(--blue); }
+        .btn-yellow { background: var(--yellow); color: #000; }
+        .btn-red { background: var(--red); }
+        .btn-green { background: var(--green); }
+        .btn-row { display: flex; gap: 8px; flex-wrap: wrap; }
+        .btn-row .btn-sm { flex: 1; min-width: 80px; }
+        
+        .status-box {
+            margin-top: 10px; padding: 10px 14px; border-radius: 14px;
+            font-size: 12px; display: none; line-height: 1.6;
+        }
+        .status-success { display: block; background: #d1fae5; color: #065f46; }
+        .status-error { display: block; background: #fee2e2; color: #991b1b; }
+        .status-info { display: block; background: #dbeafe; color: #1e40af; }
+        
+        .log-box {
+            background: #0d1117; color: #58a6ff; border-radius: 14px; padding: 12px;
+            font-family: monospace; font-size: 11px; margin-top: 12px;
+            white-space: pre-wrap; word-break: break-all; max-height: 300px;
+            overflow-y: auto; line-height: 1.5; border: 1px solid #30363d; display: none;
+        }
+        .log-header { display: flex; justify-content: space-between; align-items: center; margin-bottom: 8px; position: sticky; top: 0; background: #0d1117; padding: 4px 0; z-index: 1; }
+        .log-copy { background: #21262d; color: #c9d1d9; border: 1px solid #30363d; padding: 4px 10px; border-radius: 6px; font-size: 10px; cursor: pointer; width: auto; }
+        .log-success { color: #3fb950; }
+        .log-error { color: #f85149; }
+        .log-warn { color: #d2991d; }
+        .log-time { color: #8b949e; }
+        
+        .repo-badge {
+            background: #f1f5f9; border-radius: 14px; padding: 10px;
+            font-size: 11px; color: #475569; text-align: center; font-family: monospace;
+        }
+        
+        .loader {
+            display: inline-block; width: 16px; height: 16px;
+            border: 2px solid rgba(255,255,255,.3); border-radius: 50%;
+            border-top-color: #fff; animation: spin 0.6s linear infinite;
+            vertical-align: middle; margin-left: 6px;
+        }
+        @keyframes spin { to{transform:rotate(360deg);} }
+        
+        .disabled-msg {
+            text-align: center;
+            padding: 50px 20px;
+            color: #94a3b8;
+            font-size: 14px;
+            background: #f8fafc;
+            border-radius: 20px;
+            margin: 20px 0;
+        }
+
+        /* ========== استایل‌های چت ========== */
+        .chat-container { flex: 1; overflow-y: auto; position: relative; background: #e8ecef; scroll-behavior: smooth; }
+        @media (prefers-color-scheme: dark) { .chat-container { background: #0a0a0a; } }
+        .chat-messages { display: flex; flex-direction: column; padding: var(--spacing-md) var(--spacing-sm) calc(env(safe-area-inset-bottom, 12px) + var(--spacing-lg)); }
+        
+        .msg-group { margin-bottom: var(--spacing-sm); animation: fadeInUp 0.25s ease-out; }
+        @keyframes fadeInUp { from { opacity: 0; transform: translateY(10px); } to { opacity: 1; transform: translateY(0); } }
+        .msg-group-new { animation: slideInDown 0.3s ease-out; }
+        @keyframes slideInDown { from { opacity: 0; transform: translateY(-15px); } to { opacity: 1; transform: translateY(0); } }
+        
+        .msg-row { display: flex; align-items: flex-end; gap: var(--spacing-sm); max-width: 90%; }
+        .msg-row.in { align-self: flex-start; }
+        .msg-avatar { width: clamp(28px, 7vw, 32px); height: clamp(28px, 7vw, 32px); border-radius: 50%; background: linear-gradient(135deg, #2ea4d9, #7c4dff); display: flex; align-items: center; justify-content: center; font-size: var(--font-sm); color: white; flex-shrink: 0; }
+        .msg-bubble { background: var(--bubble-bg); padding: var(--spacing-sm) var(--spacing-md); border-radius: var(--radius-lg); border-top-right-radius: 4px; box-shadow: 0 1px 2px rgba(0,0,0,0.05); max-width: 100%; word-break: break-word; }
+        .msg-text { font-size: var(--font-base); line-height: 1.55; color: var(--text); }
+        .msg-text a { color: var(--accent); text-decoration: none; word-break: break-all; }
+        
+        /* باکس کد و کانفیگ */
+        .config-box {
+            background: #1a1a2e;
+            border-radius: var(--radius-sm);
+            padding: var(--spacing-md);
+            margin: var(--spacing-xs) 0;
+            font-family: 'SF Mono', 'Monaco', monospace;
+            font-size: var(--font-xs);
+            color: #4ecd6b;
+            word-break: break-all;
+            cursor: pointer;
+            max-width: 100%;
+            max-height: 150px;
+            overflow-y: auto;
+            line-height: 1.5;
+        }
+        .config-box:active { background: #2a2a3e; }
+        .config-type { display: inline-block; background: #4ecd6b20; color: #4ecd6b; font-size: var(--font-xs); padding: 2px var(--spacing-sm); border-radius: var(--radius-sm); margin-bottom: var(--spacing-xs); }
+        .proxy-line { display: flex; flex-wrap: wrap; gap: var(--spacing-xs); margin: 2px 0; }
+        .proxy-label { color: #888; min-width: 45px; font-size: var(--font-xs); }
+        .proxy-value { color: #4ecd6b; font-size: var(--font-xs); word-break: break-all; flex: 1; }
+        
+        /* مدیا */
+        .media-gallery { display: flex; flex-wrap: wrap; gap: var(--spacing-xs); margin: var(--spacing-xs) 0; }
+        .media-item { cursor: pointer; border-radius: var(--radius-sm); overflow: hidden; background: var(--surface2); flex: 1; min-width: 80px; max-width: calc(50% - 4px); position: relative; }
+        .msg-media { width: 100%; max-height: 200px; object-fit: cover; display: block; cursor: pointer; }
+        
+        .video-box { background: var(--surface2); border-radius: var(--radius-sm); overflow: hidden; margin: var(--spacing-xs) 0; cursor: pointer; }
+        .video-thumb { position: relative; background: #000; min-height: 150px; display: flex; align-items: center; justify-content: center; }
+        .video-thumb video { width: 100%; max-height: 180px; object-fit: cover; }
+        .video-play-btn { position: absolute; width: 48px; height: 48px; background: rgba(0,0,0,0.6); border-radius: 50%; display: flex; align-items: center; justify-content: center; color: white; font-size: 1.5rem; }
+        .video-info { padding: var(--spacing-sm); display: flex; justify-content: space-between; align-items: center; font-size: var(--font-xs); color: var(--text2); }
+        
+        .file-box { background: var(--surface2); border-radius: var(--radius-sm); padding: var(--spacing-md); margin: var(--spacing-xs) 0; display: flex; align-items: center; gap: var(--spacing-md); cursor: pointer; transition: background 0.2s; border: 0.5px solid var(--border); }
+        .file-box:active { background: var(--surface); transform: scale(0.99); }
+        .file-icon { font-size: var(--font-lg); }
+        .file-info { flex: 1; overflow: hidden; }
+        .file-name { font-weight: 500; font-size: var(--font-xs); white-space: nowrap; overflow: hidden; text-overflow: ellipsis; }
+        .file-download-btn { background: var(--accent); color: white; border: none; border-radius: var(--radius-sm); padding: var(--spacing-xs) var(--spacing-sm); font-size: var(--font-xs); cursor: pointer; }
+        .file-download-btn:active { opacity: 0.8; transform: scale(0.96); }
+        
+        .msg-actions-row { display: flex; flex-wrap: wrap; gap: var(--spacing-sm); margin-top: var(--spacing-sm); }
+        .tg-btn { padding: var(--spacing-sm) var(--spacing-lg); border-radius: 25px; font-size: var(--font-xs); font-weight: 600; border: none; cursor: pointer; display: inline-flex; align-items: center; gap: 4px; transition: 0.1s; }
+        .tg-btn:active { transform: scale(0.96); opacity: 0.8; }
+        .tg-btn-primary { background: var(--accent); color: white; }
+        .tg-btn-outline { background: transparent; color: var(--accent); border: 1px solid var(--accent); }
+        
+        .msg-meta { display: flex; align-items: center; justify-content: flex-end; gap: var(--spacing-sm); margin-top: var(--spacing-sm); padding-top: var(--spacing-xs); border-top: 0.5px solid var(--border); font-size: var(--font-xs); color: var(--text3); flex-wrap: wrap; }
+        .msg-time { display: flex; align-items: center; gap: 3px; }
+        .proxy-tag { background: #4ecd6b20; color: #4ecd6b; padding: 2px var(--spacing-sm); border-radius: var(--radius-sm); font-size: var(--font-xs); }
+        
+        .date-header { text-align: center; margin: var(--spacing-lg) 0 var(--spacing-md); }
+        .date-header span { background: rgba(0,0,0,0.06); padding: 4px var(--spacing-lg); border-radius: 20px; font-size: var(--font-xs); color: var(--text2); }
+        
+        .loading-indicator { text-align: center; padding: var(--spacing-lg); color: var(--accent); font-size: var(--font-sm); display: flex; align-items: center; justify-content: center; gap: var(--spacing-sm); }
+        .loading-spinner { width: 20px; height: 20px; border: 2px solid var(--border); border-top-color: var(--accent); border-radius: 50%; animation: spin 0.8s linear infinite; }
+        
+        .scroll-down-btn { position: fixed; bottom: 70px; right: 16px; background: var(--surface); border: 0.5px solid var(--border); border-radius: 50%; width: 48px; height: 48px; display: flex; align-items: center; justify-content: center; cursor: pointer; box-shadow: 0 2px 10px rgba(0,0,0,0.2); z-index: 50; transition: all 0.2s; color: var(--accent); font-size: 1.3rem; opacity: 0; visibility: hidden; transform: translateY(10px); }
+        .scroll-down-btn.show { opacity: 1; visibility: visible; transform: translateY(0); }
+        .scroll-down-btn:active { transform: scale(0.95); background: var(--surface2); }
+        
+        .toast { position: fixed; bottom: 70px; left: 50%; transform: translateX(-50%); background: rgba(0,0,0,0.85); color: white; padding: var(--spacing-sm) var(--spacing-lg); border-radius: 30px; font-size: var(--font-sm); z-index: 200; opacity: 0; transition: 0.2s; pointer-events: none; white-space: nowrap; backdrop-filter: blur(8px); }
+        .toast.show { opacity: 1; }
+        
+        .media-viewer { position: fixed; inset: 0; background: rgba(0,0,0,0.96); z-index: 1000; display: flex; align-items: center; justify-content: center; flex-direction: column; }
+        .media-viewer-content { max-width: 95%; max-height: 85%; }
+        .media-viewer-image, .media-viewer-video { max-width: 100%; max-height: 80vh; border-radius: var(--radius-sm); }
+        .media-viewer-close { position: absolute; top: 20px; right: 20px; width: 44px; height: 44px; background: rgba(255,255,255,0.2); border: none; border-radius: 50%; color: white; font-size: var(--font-lg); cursor: pointer; }
+        .media-viewer-btn { position: absolute; bottom: 20px; right: 20px; background: rgba(255,255,255,0.2); border: none; border-radius: 30px; padding: var(--spacing-sm) var(--spacing-lg); color: white; cursor: pointer; font-size: var(--font-sm); }
+        
+        /* لیست کانال‌ها - چپ‌چین برای نام انگلیسی */
+        .channel-name-en {
+            direction: ltr;
+            text-align: left;
+            display: inline-block;
+            font-family: 'SF Mono', 'Monaco', monospace;
+            letter-spacing: 0.5px;
+        }
+        .tg-list-preview-en {
+            direction: ltr;
+            text-align: left;
+            font-family: monospace;
+            font-size: 0.7rem;
+        }
     </style>
 </head>
 <body>
-<div class=card>
-<h1>سلام!</h1>
-<p>این فایل از گیت هاب اجرا شده</p>
-<div class=time id=clock>--:--:--</div>
-<button onclick="alert('سلام!')">کلیک کن</button>
-<div class=footer>اگر این صفحه را می بینی، یعنی درست کار می کند</div>
-</div>
-<script>
-function updateClock(){var now=new Date();document.getElementById('clock').innerHTML=now.toLocaleTimeString('fa-IR');}
-setInterval(updateClock,1000);updateClock();
-</script>
+    <div class="hamburger" id="hamburger"><span></span><span></span><span></span></div>
+    <div class="side-menu" id="sideMenu">
+        <div class="menu-item" data-page="telegram">💬 تلگرام</div>
+        <div class="menu-item" data-page="direct">⚡ دانلود مستقیم</div>
+        <div class="menu-item" data-page="youtube">▶️ یوتیوب</div>
+        <div class="menu-item" data-page="instagram">📷 اینستاگرام</div>
+        <div class="menu-item" data-page="tools">🛠️ ابزارها</div>
+        <div class="menu-item" data-page="settings">⚙️ تنظیمات</div>
+    </div>
+    <div class="menu-overlay" id="menuOverlay"></div>
+
+    <div class="container">
+        <div class="header" id="mainHeader">
+            <h1>TeleMirror</h1>
+            <p>آرشیو هوشمند کانال‌های تلگرام</p>
+        </div>
+
+        <!-- TELEGRAM PAGE - فعال با TeleMirror -->
+        <div id="telegramPage" class="page active">
+            <div class="card">
+                <div class="section-title">📡 لیست کانال‌ها</div>
+                <div class="tg-list" id="channelsList" style="max-height: 400px; overflow-y: auto;"></div>
+            </div>
+        </div>
+
+        <!-- صفحه چت (در同一个 صفحه ولی مخفی) -->
+        <div id="chatPage" style="display: none;">
+            <div class="tg-header" style="display: flex; align-items: center; gap: 12px; margin-bottom: 12px;">
+                <button id="btnBack" onclick="backToChannels()" style="background: var(--purple); color: white; border: none; width: 40px; height: 40px; border-radius: 50%; font-size: 1.5rem; cursor: pointer;">←</button>
+                <div>
+                    <div id="chatTitle" style="font-weight: bold; font-size: 1rem;">کانال</div>
+                    <div id="chatSubtitle" style="font-size: 0.7rem; color: var(--text2);"></div>
+                </div>
+                <button id="refreshChatBtn" onclick="refreshCurrentChannel()" style="background: var(--purple); color: white; border: none; width: 40px; height: 40px; border-radius: 50%; font-size: 1.2rem; cursor: pointer; margin-right: auto;">🔄</button>
+            </div>
+            <div class="chat-container" id="chatContainer" style="height: 60vh; overflow-y: auto; background: #e8ecef; border-radius: 20px;">
+                <div class="chat-messages" id="chatMessages">
+                    <div class="loading-indicator" style="padding: 40px;">📚 در حال بارگذاری...</div>
+                </div>
+            </div>
+            <div class="scroll-down-btn" id="scrollDownBtn" onclick="scrollToBottom()" style="display: none;">↓</div>
+        </div>
+
+        <!-- DIRECT PAGE - Disabled -->
+        <div id="directPage" class="page">
+            <div class="disabled-msg">
+                ⚡ <strong>دانلود مستقیم</strong><br>
+                این قابلیت غیرفعال شده است.
+            </div>
+        </div>
+
+        <!-- YOUTUBE PAGE - Disabled -->
+        <div id="youtubePage" class="page">
+            <div class="disabled-msg">
+                ▶️ <strong>یوتیوب</strong><br>
+                این قابلیت غیرفعال شده است.
+            </div>
+        </div>
+
+        <!-- INSTAGRAM PAGE - Disabled -->
+        <div id="instagramPage" class="page">
+            <div class="disabled-msg">
+                📷 <strong>اینستاگرام</strong><br>
+                این قابلیت غیرفعال شده است.
+            </div>
+        </div>
+
+        <!-- TOOLS PAGE -->
+        <div id="toolsPage" class="page">
+            <div class="card">
+                <div class="section-title">🔍 عیب‌یابی</div>
+                <div class="btn-row" style="margin-bottom:8px;">
+                    <button class="btn-sm btn-blue" id="btnTest">🔍 تست اتصال</button>
+                    <button class="btn-sm btn-yellow" id="btnCheckRuns">🔄 اجراهای فعال</button>
+                </div>
+                <div class="log-box" id="homeLog"><div class="log-header"><span>📋 گزارش</span><button class="log-copy" onclick="copyLog('homeLog')">📋 کپی</button></div></div>
+            </div>
+            <div class="card">
+                <div class="section-title">🛠️ مدیریت Actions</div>
+                <div class="btn-row" style="margin-bottom:8px;">
+                    <button class="btn-sm btn-blue" id="btnListWf">📋 لیست workflowها</button>
+                    <button class="btn-sm btn-red" id="btnCancelAll">⏹️ استپ همه</button>
+                </div>
+                <div class="log-box" id="toolsLog"><div class="log-header"><span>📋 گزارش</span><button class="log-copy" onclick="copyLog('toolsLog')">📋 کپی</button></div></div>
+            </div>
+        </div>
+
+        <!-- SETTINGS PAGE -->
+        <div id="settingsPage" class="page">
+            <div class="card">
+                <div class="section-title">⚙️ تنظیمات</div>
+                <div class="input-group">
+                    <label>لینک مخزن</label>
+                    <input type="text" id="repoUrl" placeholder="https://github.com/ehsan-golshani/aio-downloader-ehsan" dir="ltr">
+                </div>
+                <div class="input-group">
+                    <label>GitHub Token</label>
+                    <input type="password" id="githubToken" placeholder="ghp_..." dir="ltr">
+                </div>
+                <button id="btnSave" style="background:var(--green);">💾 ذخیره و تست</button>
+                <div id="settingsStatus" style="margin-top:12px;text-align:center;font-size:12px;padding:10px;border-radius:14px;background:#f1f5f9;">⚪ تنظیم نشده</div>
+            </div>
+        </div>
+    </div>
+
+    <div class="toast" id="toast"></div>
+
+    <script>
+    (function() {
+        // ========== تنظیمات ==========
+        const GH_USER = 'ehsan-golshani';
+        const GH_REPO = 'aio-downloader-ehsan';
+        const RAW_BASE = `https://raw.githubusercontent.com/${GH_USER}/${GH_REPO}/main`;
+        const CHANNELS_URL = `${RAW_BASE}/telegram/channels.json`;
+        const API_BASE = `https://api.github.com/repos/${GH_USER}/${GH_REPO}`;
+        const DATA_BASE = `${RAW_BASE}/telegram/data`;
+
+        let channels = [], token = '';
+        let currentChannel = '';
+        let currentMessages = [];
+        let displayedCount = 10;
+        let isLoadingMore = false;
+        let isInChat = false;
+        
+        const CACHE_KEY_PREFIX = 'telemirror_v16_';
+        const CACHE_EXPIRY = 10 * 60 * 1000;
+        const LOAD_MORE_STEP = 10;
+
+        // UI elements
+        const channelsListDiv = $('#channelsList');
+        const chatContainer = $('#chatContainer');
+        const chatMessagesDiv = $('#chatMessages');
+        const scrollDownBtn = $('#scrollDownBtn');
+        const telegramPage = $('#telegramPage');
+        const chatPageDiv = document.getElementById('chatPage');
+        
+        let isNearBottom = true;
+        
+        // ========== توابع کمکی ==========
+        function $(id) { return document.getElementById(id); }
+        
+        function toast(msg, err = false) { 
+            let t = $('#toast'); 
+            t.textContent = msg; 
+            t.style.background = err ? '#e53935' : 'rgba(0,0,0,0.85)'; 
+            t.classList.add('show'); 
+            setTimeout(() => t.classList.remove('show'), 2000); 
+        }
+        
+        function escapeHtml(s) { if (!s) return ''; return s.replace(/[&<>]/g, m => ({ '&': '&amp;', '<': '&lt;', '>': '&gt;' }[m])); }
+        
+        function fixMediaUrl(url) {
+            if (!url) return '';
+            if (url.startsWith('http://') || url.startsWith('https://')) return url;
+            if (url.startsWith('/')) return `${RAW_BASE}${url}`;
+            if (url.startsWith('telegram/content/')) return `${RAW_BASE}/${url}`;
+            return `${RAW_BASE}/telegram/${url}`;
+        }
+        
+        function saveChannelCache(channelName, data) { 
+            try { localStorage.setItem(CACHE_KEY_PREFIX + channelName, JSON.stringify({ ts: Date.now(), data: data })); } catch(e) {} 
+        }
+        function loadChannelCache(channelName) { 
+            try { 
+                let c = localStorage.getItem(CACHE_KEY_PREFIX + channelName); 
+                if (!c) return null; 
+                let d = JSON.parse(c); 
+                if (Date.now() - d.ts < CACHE_EXPIRY) return d.data; 
+            } catch(e) {} 
+            return null; 
+        }
+
+        // تشخیص کانفیگ و پروکسی
+        function detectConfig(t) {
+            if (!t) return null;
+            let s = t.trim().toLowerCase();
+            if (s.startsWith('vless://')) return { type: 'vless', name: 'VLESS', isTg: false };
+            if (s.startsWith('vmess://')) return { type: 'vmess', name: 'VMess', isTg: false };
+            if (s.startsWith('trojan://')) return { type: 'trojan', name: 'Trojan', isTg: false };
+            if (s.startsWith('ss://')) return { type: 'ss', name: 'Shadowsocks', isTg: false };
+            if (s.startsWith('ssr://')) return { type: 'ssr', name: 'ShadowsocksR', isTg: false };
+            if (s.startsWith('tuic://')) return { type: 'tuic', name: 'TUIC', isTg: false };
+            if (s.startsWith('hysteria://')) return { type: 'hysteria', name: 'Hysteria', isTg: false };
+            if (s.startsWith('wireguard://')) return { type: 'wireguard', name: 'WireGuard', isTg: false };
+            if (s.includes('slipnet-enc://')) return { type: 'slipnet', name: 'Slipnet', isTg: false };
+            if (s.startsWith('tg://proxy') || s.includes('secret=')) return { type: 'mtproto', name: 'MTProto', isTg: true };
+            if (s.startsWith('tg://socks')) return { type: 'socks', name: 'SOCKS5', isTg: true };
+            return null;
+        }
+        
+        function extractConfigs(t) {
+            if (!t) return [];
+            let configs = [];
+            let patterns = [/(vless:\/\/[^\s]+)/gi, /(vmess:\/\/[^\s]+)/gi, /(trojan:\/\/[^\s]+)/gi, /(ss:\/\/[^\s]+)/gi, /(ssr:\/\/[^\s]+)/gi, /(tuic:\/\/[^\s]+)/gi, /(hysteria:\/\/[^\s]+)/gi, /(wireguard:\/\/[^\s]+)/gi, /(slipnet-enc:\/\/[^\s]+)/gi, /(tg:\/\/proxy[^\s]+)/gi, /(tg:\/\/socks[^\s]+)/gi];
+            for (let p of patterns) { let m = t.match(p); if (m) for (let c of m) { let d = detectConfig(c); if (d && !configs.some(x => x.content === c)) configs.push({ content: c, ...d }); } }
+            return configs;
+        }
+        
+        function extractMTProxy(t) {
+            let lines = t.split('\n'), server = null, port = null, secret = null;
+            for (let l of lines) { 
+                let sm = l.match(/Server:\s*(\S+)/i); if (sm) server = sm[1];
+                let pm = l.match(/Port:\s*(\d+)/i); if (pm) port = pm[1];
+                let sem = l.match(/Secret:\s*(\S+)/i); if (sem) secret = sem[1];
+            }
+            if (server && port) { 
+                let sh = secret || ''; 
+                if (sh && !sh.startsWith('ee') && sh.length === 32) sh = 'ee' + sh; 
+                return { server, port, secret: sh, link: `tg://proxy?server=${server}&port=${port}&secret=${sh}` }; 
+            }
+            return null;
+        }
+        
+        function getFileIcon(filename) {
+            if (!filename) return '📄';
+            const ext = filename.split('.').pop().toLowerCase();
+            if (['jpg', 'jpeg', 'png', 'gif', 'webp'].includes(ext)) return '🖼️';
+            if (['mp4', 'mkv', 'avi', 'mov', 'webm'].includes(ext)) return '🎬';
+            if (['pdf'].includes(ext)) return '📕';
+            if (['zip', 'rar', '7z', 'tar', 'gz'].includes(ext)) return '🗜️';
+            if (['apk'].includes(ext)) return '📱';
+            if (['mp3', 'wav', 'flac', 'ogg'].includes(ext)) return '🎵';
+            if (['npvt', 'inpvt', 'ovpn', '8nptv'].includes(ext)) return '🔐';
+            return '📄';
+        }
+
+        // پارس کردن پیام‌ها از فایل Markdown صفحه
+        function parseMessagesFromMd(md) {
+            let msgs = [];
+            let blocks = md.split(/\n(?=## [A-Za-z0-9_]+ — post \d+)/);
+            
+            for (let b of blocks) {
+                let h = b.match(/^## ([A-Za-z0-9_]+) — post (\d+)/m);
+                if (!h) continue;
+                
+                let channel = h[1];
+                let postId = parseInt(h[2]);
+                
+                let images = [];
+                let imgMatches = [...b.matchAll(/<img src="([^"]+)" alt="Photo">/g)];
+                for (let match of imgMatches) {
+                    images.push({ type: 'image', url: fixMediaUrl(match[1]) });
+                }
+                
+                let videos = [];
+                let videoMatches = [...b.matchAll(/<video src="([^"]+)"[^>]*>/g)];
+                for (let match of videoMatches) {
+                    videos.push({ type: 'video', url: fixMediaUrl(match[1]) });
+                }
+                
+                let files = [];
+                let fileMatches = [...b.matchAll(/class="file-link"[^>]*>📎 ([^<]+)<\/a>/g)];
+                for (let match of fileMatches) {
+                    files.push({ type: 'file', name: match[1], url: null });
+                }
+                
+                let text = '';
+                let div = b.match(/<div dir='rtl'[^>]*>([\s\S]*?)<\/div>/);
+                if (div) {
+                    text = div[1];
+                    text = text.replace(/<br\s*\/?>/g, '\n').replace(/<[^>]+>/g, '').replace(/&nbsp;/g, ' ').replace(/&quot;/g, '"').replace(/&amp;/g, '&').trim();
+                } else {
+                    text = b.replace(/<[^>]+>/g, '').replace(/## .+\n/, '').trim();
+                }
+                
+                let mtproxy = extractMTProxy(b);
+                let configs = extractConfigs(b + ' ' + text);
+                
+                let date = '';
+                let dm = b.match(/📅 (?:آخرین )?بروزرسانی: ([\d\/]+) (\d+:\d+)/);
+                if (dm) {
+                    date = `${dm[1]} ${dm[2]}`;
+                } else {
+                    let pageDate = b.match(/# آرشیو کانال .+? - صفحه \d+\n\n📅 آخرین بروزرسانی: ([\d\/]+) (\d+:\d+)/);
+                    if (pageDate) date = `${pageDate[1]} ${pageDate[2]}`;
+                }
+                
+                msgs.push({ channel, postId, date, text, images, videos, files, mtproxy, configs });
+            }
+            
+            msgs.sort((a, b) => b.postId - a.postId);
+            return msgs;
+        }
+
+        // بارگذاری آرشیو یک کانال
+        async function loadChannelArchive(channelName, forceRefresh = false) {
+            if (!forceRefresh) {
+                let cached = loadChannelCache(channelName);
+                if (cached && cached.length > 0) {
+                    currentMessages = cached;
+                    displayedCount = Math.min(10, currentMessages.length);
+                    renderMessages(true);
+                    toast(`📦 ${currentMessages.length} پیام از حافظه`);
+                    return;
+                }
+            }
+            
+            let channelDir = `${DATA_BASE}/${channelName}`;
+            let allMessages = [];
+            let pageNum = 1;
+            
+            chatMessagesDiv.innerHTML = '<div class="loading-indicator" style="padding: 40px;"><div class="loading-spinner"></div><span>بارگذاری آرشیو...</span></div>';
+            
+            try {
+                while (true) {
+                    let pageUrl = `${channelDir}/page_${pageNum}.md?t=${Date.now()}`;
+                    let res = await fetch(pageUrl);
+                    
+                    if (!res.ok) {
+                        if (pageNum === 1) {
+                            toast(`⚠️ آرشیوی برای ${channelName} یافت نشد`, true);
+                            chatMessagesDiv.innerHTML = `<div class="loading-indicator" style="padding: 40px;">📭 آرشیوی وجود ندارد<br>از بخش مدیریت درخواست آرشیو بدید</div>`;
+                            currentMessages = [];
+                            return;
+                        }
+                        break;
+                    }
+                    
+                    let md = await res.text();
+                    let parsed = parseMessagesFromMd(md);
+                    allMessages.push(...parsed);
+                    pageNum++;
+                }
+                
+                if (allMessages.length === 0) {
+                    toast(`⚠️ هیچ پیامی برای ${channelName} یافت نشد`, true);
+                    chatMessagesDiv.innerHTML = `<div class="loading-indicator" style="padding: 40px;">📭 پیامی یافت نشد</div>`;
+                    currentMessages = [];
+                    return;
+                }
+                
+                allMessages.sort((a, b) => b.postId - a.postId);
+                currentMessages = allMessages;
+                saveChannelCache(channelName, currentMessages);
+                displayedCount = Math.min(10, currentMessages.length);
+                renderMessages(true);
+                toast(`✅ ${currentMessages.length} پیام از ${pageNum - 1} صفحه بارگذاری شد`);
+                
+            } catch(e) {
+                console.error(e);
+                toast('❌ خطا: ' + e.message, true);
+                chatMessagesDiv.innerHTML = `<div class="loading-indicator" style="padding: 40px;">❌ خطا در بارگذاری</div>`;
+            }
+        }
+
+        // رندر مدیا
+        function renderMedia(msg) {
+            let html = '';
+            
+            if (msg.images && msg.images.length > 0) {
+                html += `<div class="media-gallery">`;
+                msg.images.slice(0, 4).forEach((img, idx) => {
+                    html += `<div class="media-item" onclick="showMedia('${img.url}', 'image')">
+                                <img src="${img.url}" class="msg-media" loading="lazy" onerror="this.style.display='none'">
+                                ${idx === 3 && msg.images.length > 4 ? `<div style="position:absolute;bottom:4px;right:4px;background:rgba(0,0,0,0.6);color:white;padding:2px 6px;border-radius:12px;font-size:10px;">+${msg.images.length-4}</div>` : ''}
+                            </div>`;
+                });
+                html += `</div>`;
+            }
+            
+            if (msg.videos && msg.videos.length > 0) {
+                for (let v of msg.videos) {
+                    let fileName = v.url.split('/').pop() || 'video';
+                    html += `<div class="video-box" onclick="showMedia('${v.url}', 'video')">
+                                <div class="video-thumb">
+                                    <video src="${v.url}" preload="metadata"></video>
+                                    <div class="video-play-btn">▶</div>
+                                </div>
+                                <div class="video-info">
+                                    <span>🎬 ${fileName}</span>
+                                    <button class="file-download-btn" onclick="event.stopPropagation(); downloadFile('${v.url}', '${fileName}')">📥</button>
+                                </div>
+                            </div>`;
+                }
+            }
+            
+            if (msg.files && msg.files.length > 0) {
+                for (let f of msg.files) {
+                    let icon = getFileIcon(f.name);
+                    html += `<div class="file-box" onclick="downloadFileFromName('${currentChannel}', ${msg.postId}, '${f.name}')">
+                                <div class="file-icon">${icon}</div>
+                                <div class="file-info">
+                                    <div class="file-name">${escapeHtml(f.name)}</div>
+                                </div>
+                                <button class="file-download-btn" onclick="event.stopPropagation(); downloadFileFromName('${currentChannel}', ${msg.postId}, '${f.name}')">📥</button>
+                            </div>`;
+                }
+            }
+            
+            return html;
+        }
+        
+        window.downloadFileFromName = (channelName, postId, filename) => {
+            const url = `${RAW_BASE}/telegram/content/${channelName}_${postId}_${filename}`;
+            window.open(url, '_blank');
+            toast(`📥 دانلود ${filename}`);
+        };
+        
+        window.downloadFile = (url, filename) => {
+            window.open(url, '_blank');
+            toast(`📥 دانلود ${filename}`);
+        };
+
+        window.showMedia = (url, type) => {
+            let v = document.createElement('div'); 
+            v.className = 'media-viewer';
+            v.innerHTML = `<div class="media-viewer-content">${type === 'image' ? `<img src="${url}" class="media-viewer-image">` : `<video src="${url}" class="media-viewer-video" controls autoplay></video>`}</div>
+                           <button class="media-viewer-close">✕</button>
+                           <button class="media-viewer-btn">📥 دانلود</button>`;
+            v.querySelector('.media-viewer-close').onclick = () => v.remove();
+            v.querySelector('.media-viewer-btn').onclick = () => { 
+                let a = document.createElement('a'); 
+                a.href = url; 
+                a.download = url.split('/').pop() || 'download'; 
+                a.click(); 
+            };
+            v.onclick = (e) => { if (e.target === v) v.remove(); };
+            document.body.appendChild(v);
+        };
+
+        // رندر پیام‌ها
+        function renderMessages(scrollToBottom = false, isLoadMore = false) {
+            if (!currentMessages.length) {
+                chatMessagesDiv.innerHTML = '<div class="loading-indicator" style="padding: 40px;">📭 پیامی یافت نشد</div>';
+                return;
+            }
+            
+            let toShow = currentMessages.slice(0, displayedCount);
+            let html = '';
+            let lastDateHeader = '';
+            
+            if (displayedCount < currentMessages.length) {
+                html += `<div class="loading-indicator" id="topLoadingIndicator" style="display: none;">
+                            <div class="loading-spinner"></div>
+                            <span>در حال بارگذاری پیام‌های قدیمی‌تر...</span>
+                        </div>`;
+            }
+            
+            for (let i = 0; i < toShow.length; i++) {
+                let m = toShow[i];
+                let datePart = '', timePart = '';
+                if (m.date) {
+                    let parts = m.date.split(' ');
+                    datePart = parts[0] || '';
+                    timePart = parts[1] || '';
+                }
+                
+                if (datePart && datePart !== lastDateHeader) {
+                    html += `<div class="date-header"><span>${datePart}</span></div>`;
+                    lastDateHeader = datePart;
+                }
+                
+                let configHtml = '', actionsHtml = '', tags = [];
+                
+                if (m.mtproxy && m.mtproxy.link) {
+                    configHtml += `<div class="config-box" onclick="copyText('${m.mtproxy.link.replace(/'/g, "\\'")}')">
+                        <div class="config-type">🔐 MTProto Proxy</div>
+                        <div class="proxy-line"><span class="proxy-label">سرور:</span><span class="proxy-value">${escapeHtml(m.mtproxy.server)}</span></div>
+                        <div class="proxy-line"><span class="proxy-label">پورت:</span><span class="proxy-value">${escapeHtml(m.mtproxy.port)}</span></div>
+                    </div>`;
+                    actionsHtml += `<div class="msg-actions-row">
+                        <a href="${m.mtproxy.link}" target="_blank" class="tg-btn tg-btn-primary">⚡ افزودن به تلگرام</a>
+                        <button class="tg-btn tg-btn-outline" onclick="copyText('${m.mtproxy.link.replace(/'/g, "\\'")}')">📋 کپی لینک</button>
+                    </div>`;
+                    tags.push('MTProto');
+                }
+                
+                if (m.configs && m.configs.length > 0) {
+                    for (let cfg of m.configs) {
+                        let icon = { vless:'🚀', vmess:'📡', trojan:'🐴', ss:'🔒', ssr:'⚡', tuic:'🔷', hysteria:'🦅', wireguard:'🔐', slipnet:'🌊', mtproto:'🔐', socks:'🧦' }[cfg.type] || '📁';
+                        let displayContent = cfg.content.length > 200 ? cfg.content.substring(0, 180) + '...' : cfg.content;
+                        configHtml += `<div class="config-box" onclick="copyText('${cfg.content.replace(/'/g, "\\'")}')">
+                            <div class="config-type">${icon} ${cfg.name}</div>
+                            <div>${escapeHtml(displayContent)}</div>
+                        </div>`;
+                        
+                        if (cfg.isTg) {
+                            actionsHtml += `<div class="msg-actions-row"><a href="${cfg.content}" target="_blank" class="tg-btn tg-btn-primary">⚡ افزودن به تلگرام</a><button class="tg-btn tg-btn-outline" onclick="copyText('${cfg.content.replace(/'/g, "\\'")}')">📋 کپی لینک</button></div>`;
+                        } else {
+                            actionsHtml += `<div class="msg-actions-row"><button class="tg-btn tg-btn-outline" onclick="copyText('${cfg.content.replace(/'/g, "\\'")}')">📋 کپی کانفیگ</button></div>`;
+                        }
+                        tags.push(cfg.name);
+                    }
+                }
+                
+                let mediaHtml = renderMedia(m);
+                
+                let timeHtml = timePart ? `<div class="msg-time">🕐 ${timePart}</div>` : '';
+                let tagsHtml = tags.length > 0 ? `<span class="proxy-tag">${tags.join(', ')}</span>` : '';
+                
+                let msgClass = (isLoadMore && i >= (displayedCount - LOAD_MORE_STEP)) ? 'msg-group-new' : 'msg-group';
+                
+                html += `<div class="${msgClass}">
+                    <div class="msg-row in">
+                        <div class="msg-avatar">📢</div>
+                        <div class="msg-bubble">
+                            ${m.text ? `<div class="msg-text">${escapeHtml(m.text).replace(/\n/g, '<br>').replace(/(https?:\/\/[^\s]+)/g, '<a href="$1" target="_blank">$1</a>')}</div>` : ''}
+                            ${configHtml}
+                            ${mediaHtml}
+                            ${actionsHtml}
+                            <div class="msg-meta">
+                                ${timeHtml}
+                                <span>📌 #${m.postId}</span>
+                                ${tagsHtml}
+                            </div>
+                        </div>
+                    </div>
+                </div>`;
+            }
+            
+            chatMessagesDiv.innerHTML = html;
+            document.getElementById('chatSubtitle').textContent = `${displayedCount} از ${currentMessages.length} پیام`;
+            
+            if (scrollToBottom && chatContainer) {
+                setTimeout(() => {
+                    chatContainer.scrollTop = chatContainer.scrollHeight;
+                    if (scrollDownBtn) scrollDownBtn.classList.remove('show');
+                    isNearBottom = true;
+                }, 50);
+            }
+        }
+        
+        async function loadOldMessages() {
+            if (isLoadingMore) return;
+            if (displayedCount >= currentMessages.length) return;
+            
+            isLoadingMore = true;
+            let indicator = document.getElementById('topLoadingIndicator');
+            if (indicator) indicator.style.display = 'flex';
+            
+            let oldScrollHeight = chatContainer.scrollHeight;
+            let oldScrollTop = chatContainer.scrollTop;
+            
+            let newCount = Math.min(displayedCount + LOAD_MORE_STEP, currentMessages.length);
+            displayedCount = newCount;
+            renderMessages(false, true);
+            
+            let newScrollHeight = chatContainer.scrollHeight;
+            let addedHeight = newScrollHeight - oldScrollHeight;
+            chatContainer.scrollTop = oldScrollTop + addedHeight;
+            
+            if (indicator) indicator.style.display = 'none';
+            isLoadingMore = false;
+        }
+        
+        function handleChatScroll() {
+            if (!chatContainer) return;
+            
+            let scrollTop = chatContainer.scrollTop;
+            let scrollHeight = chatContainer.scrollHeight;
+            let clientHeight = chatContainer.clientHeight;
+            let isBottom = scrollHeight - scrollTop - clientHeight < 100;
+            
+            if (isBottom) {
+                if (scrollDownBtn) scrollDownBtn.classList.remove('show');
+                isNearBottom = true;
+            } else if (displayedCount >= 10 && scrollHeight > clientHeight + 200) {
+                if (scrollDownBtn) scrollDownBtn.classList.add('show');
+                isNearBottom = false;
+            }
+            
+            if (scrollTop < 100 && !isLoadingMore && displayedCount < currentMessages.length) {
+                loadOldMessages();
+            }
+        }
+        
+        function setupScrollListener() {
+            if (!chatContainer) return;
+            chatContainer.removeEventListener('scroll', handleChatScroll);
+            chatContainer.addEventListener('scroll', handleChatScroll);
+        }
+        
+        window.copyText = async (t) => { 
+            try { await navigator.clipboard.writeText(t); toast('✅ کپی شد'); } 
+            catch { let ta = Object.assign(document.createElement('textarea'), { value: t }); document.body.appendChild(ta); ta.select(); document.execCommand('copy'); document.body.removeChild(ta); toast('✅ کپی شد'); } 
+        };
+        
+        window.scrollToBottom = () => {
+            if (chatContainer) {
+                chatContainer.scrollTo({ top: chatContainer.scrollHeight, behavior: 'smooth' });
+                setTimeout(() => { if (scrollDownBtn) scrollDownBtn.classList.remove('show'); isNearBottom = true; }, 500);
+            }
+        };
+        
+        window.refreshCurrentChannel = async () => { 
+            if (currentChannel) {
+                toast('🔄 در حال بروزرسانی...');
+                await loadChannelArchive(currentChannel, true);
+            } 
+        };
+        
+        window.backToChannels = () => {
+            isInChat = false;
+            telegramPage.style.display = 'block';
+            chatPageDiv.style.display = 'none';
+            document.getElementById('mainHeader').style.display = 'block';
+        };
+        
+        async function openChannel(channelName) {
+            currentChannel = channelName;
+            displayedCount = 10;
+            isInChat = true;
+            telegramPage.style.display = 'none';
+            chatPageDiv.style.display = 'block';
+            document.getElementById('mainHeader').style.display = 'none';
+            document.getElementById('chatTitle').textContent = channelName;
+            document.getElementById('chatSubtitle').textContent = 'در حال بارگذاری...';
+            chatMessagesDiv.innerHTML = '<div class="loading-indicator" style="padding: 40px;"><div class="loading-spinner"></div><span>بارگذاری آرشیو...</span></div>';
+            if (scrollDownBtn) scrollDownBtn.classList.remove('show');
+            isNearBottom = true;
+            
+            await loadChannelArchive(channelName, false);
+            setupScrollListener();
+        }
+        
+        window.openChannel = openChannel;
+
+        // بارگذاری لیست کانال‌ها
+        async function loadChannels() {
+            try { 
+                let r = await fetch(CHANNELS_URL); 
+                if (!r.ok) throw new Error(); 
+                channels = await r.json(); 
+                renderChannels(); 
+            } catch(e) { 
+                if (channelsListDiv) channelsListDiv.innerHTML = '<div class="loading-indicator" style="padding: 40px;">❌ خطا در بارگذاری کانال‌ها</div>'; 
+            }
+        }
+        
+        function renderChannels() { 
+            if (!channelsListDiv) return;
+            channelsListDiv.innerHTML = channels.map(c => `<div class="tg-list-item" onclick="openChannel('${c}')" style="display: flex; align-items: center; padding: 12px 16px; border-bottom: 0.5px solid var(--border); cursor: pointer; gap: 12px;">
+                <div style="width: 48px; height: 48px; border-radius: 50%; background: linear-gradient(135deg, #2ea4d9, #4a90d9); display: flex; align-items: center; justify-content: center; font-size: 1.3rem; color: white; flex-shrink: 0;">📢</div>
+                <div style="flex: 1; min-width: 0;">
+                    <div class="channel-name-en" style="font-weight: 600; font-size: 0.95rem; direction: ltr; text-align: left;">${escapeHtml(c)}</div>
+                    <div class="tg-list-preview-en" style="font-size: 0.7rem; color: var(--text2); margin-top: 4px; direction: ltr; text-align: left;">t.me/${escapeHtml(c)}</div>
+                </div>
+                <div style="background: var(--accent); color: white; font-size: 0.7rem; padding: 4px 10px; border-radius: 20px; font-weight: 500;">کانال</div>
+            </div>`).join('') || '<div class="loading-indicator" style="padding: 40px;">📭 کانالی وجود ندارد</div>'; 
+        }
+
+        // ========== کدهای ابزارها و تنظیمات از پروژه اصلی ==========
+        var K = 'aio_v11';
+        var S = {};
+        try { var v = localStorage.getItem(K); if (v) S = JSON.parse(v); } catch (e) { S = {}; }
+        S.token = S.token || ''; S.repoUrl = S.repoUrl || '';
+        S.username = S.username || ''; S.repo = S.repo || '';
+        
+        function saveMainSettings() { try { localStorage.setItem(K, JSON.stringify(S)); } catch (e) {} }
+        
+        function showLog(id) { var b = $(id); if (b) b.style.display = 'block'; }
+        function clearLog(id) {
+            var b = $(id); if (!b) return;
+            var h = b.querySelector('.log-header'); b.innerHTML = ''; if (h) b.appendChild(h);
+            b.style.display = 'none';
+        }
+        function addLog(id, msg, cls) {
+            var b = $(id); if (!b) return;
+            b.style.display = 'block';
+            var t = new Date().toLocaleTimeString('fa-IR');
+            var c = cls ? ' log-' + cls : '';
+            var safeMsg = msg.replace(/[&<>]/g, function(m) {
+                if (m === '&') return '&amp;';
+                if (m === '<') return '&lt;';
+                if (m === '>') return '&gt;';
+                return m;
+            });
+            b.innerHTML += '<span class="log-time">[' + t + ']</span><span class="' + c + '">' + safeMsg + '</span>\n';
+            b.scrollTop = b.scrollHeight;
+        }
+        window.copyLog = function(id) {
+            var b = $(id); if (!b) return;
+            var txt = b.textContent || '';
+            if (navigator.clipboard) { navigator.clipboard.writeText(txt).then(function() { toast('✅ کپی شد'); }); }
+            else { var ta = document.createElement('textarea'); ta.value = txt; ta.style.position = 'fixed'; ta.style.opacity = '0'; document.body.appendChild(ta); ta.select(); document.execCommand('copy'); document.body.removeChild(ta); toast('✅ کپی شد'); }
+        };
+        
+        function mainApi(path, method, body) {
+            if (!method) method = 'GET';
+            if (!S.token) return Promise.reject(new Error('توکن تنظیم نشده'));
+            var headers = { 'Authorization': 'token ' + S.token, 'Accept': 'application/vnd.github.v3+json' };
+            if (body) headers['Content-Type'] = 'application/json';
+            return fetch('https://api.github.com' + path, { method: method, headers: headers, body: body ? JSON.stringify(body) : null })
+                .then(function(res) {
+                    if (res.status === 401) throw new Error('توکن نامعتبر');
+                    if (res.status === 403) throw new Error('Rate limit');
+                    if (!res.ok) throw new Error('HTTP ' + res.status);
+                    return res;
+                });
+        }
+        
+        function saveSettings() {
+            var url = $('repoUrl').value.trim(), t = $('githubToken').value.trim();
+            if (!url) { toast('لینک مخزن را وارد کنید'); return; }
+            var m = url.match(/github\.com\/([^\/]+)\/([^\/]+?)(?:\.git)?$/);
+            if (!m) { toast('لینک نامعتبر'); return; }
+            S.username = m[1]; S.repo = m[2].replace(/\.git$/, ''); S.repoUrl = url;
+            if (t) S.token = t; saveMainSettings();
+            var st = $('settingsStatus'); st.innerHTML = '⚪ تست اتصال...';
+            mainApi('/repos/' + S.username + '/' + S.repo).then(function() {
+                st.innerHTML = '✅ متصل به ' + S.username + '/' + S.repo;
+                st.style.color = '#10b981'; st.style.background = '#d1fae5'; toast('✅ اتصال موفق');
+            }).catch(function(e) {
+                st.innerHTML = '⚠️ ذخیره شد اما: ' + e.message;
+                st.style.color = '#92400e'; st.style.background = '#fef3c7';
+            });
+        }
+        
+        function testConnection() {
+            clearLog('homeLog'); showLog('homeLog'); addLog('homeLog', '🔍 تست اتصال...');
+            if (!S.token || !S.username) { addLog('homeLog', '❌ تنظیمات ناقص', 'error'); return; }
+            mainApi('/repos/' + S.username + '/' + S.repo).then(function() {
+                addLog('homeLog', '✅ مخزن: ' + S.username + '/' + S.repo, 'success');
+                return mainApi('/repos/' + S.username + '/' + S.repo + '/actions/workflows');
+            }).then(function(res) { return res.json(); }).then(function(d) {
+                addLog('homeLog', 'Workflowها: ' + d.total_count);
+                var a = 0;
+                for (var i = 0; i < d.workflows.length; i++) { if (d.workflows[i].state === 'active') a++; }
+                addLog('homeLog', 'فعال: ' + a + ' | غیرفعال: ' + (d.total_count - a));
+                return mainApi('/rate_limit');
+            }).then(function(res) { return res.json(); }).then(function(d) {
+                addLog('homeLog', 'Rate Limit: ' + d.resources.core.used + '/' + d.resources.core.limit);
+            }).catch(function(e) { addLog('homeLog', '❌ ' + e.message, 'error'); });
+        }
+        
+        function checkRuns() {
+            clearLog('homeLog'); showLog('homeLog'); addLog('homeLog', '🔄 اجراهای فعال...');
+            mainApi('/repos/' + S.username + '/' + S.repo + '/actions/runs?per_page=10').then(function(res) { return res.json(); })
+                .then(function(d) {
+                    addLog('homeLog', 'تعداد: ' + d.total_count);
+                    for (var i = 0; i < d.workflow_runs.length; i++) {
+                        var r = d.workflow_runs[i], icon = r.status === 'in_progress' ? '🔄' : r.status === 'queued' ? '⏳' : r.conclusion === 'success' ? '✅' : '❌';
+                        addLog('homeLog', icon + ' ' + r.name + ' | ' + r.status + ' | ' + r.conclusion, r.conclusion === 'failure' ? 'error' : '');
+                    }
+                }).catch(function(e) { addLog('homeLog', '❌ ' + e.message, 'error'); });
+        }
+        
+        function listWorkflows() {
+            clearLog('toolsLog'); showLog('toolsLog'); addLog('toolsLog', '📡 workflowها...');
+            mainApi('/repos/' + S.username + '/' + S.repo + '/actions/workflows').then(function(res) { return res.json(); })
+                .then(function(d) {
+                    addLog('toolsLog', 'تعداد: ' + d.total_count);
+                    for (var i = 0; i < d.workflows.length; i++) {
+                        var w = d.workflows[i];
+                        addLog('toolsLog', (w.state === 'active' ? '✅' : '❌') + ' ' + w.name + ' [' + w.state + ']', w.state === 'active' ? 'success' : 'error');
+                    }
+                }).catch(function(e) { addLog('toolsLog', '❌ ' + e.message, 'error'); });
+        }
+        
+        function cancelAllRuns() {
+            if (!confirm('استپ همه؟')) return;
+            clearLog('toolsLog'); showLog('toolsLog'); addLog('toolsLog', '⏹️ استپ...');
+            mainApi('/repos/' + S.username + '/' + S.repo + '/actions/runs?status=in_progress&status=queued').then(function(res) { return res.json(); })
+                .then(function(d) {
+                    if (!d.total_count) { addLog('toolsLog', '✅ هیچی فعال نیست', 'success'); return; }
+                    return Promise.all(d.workflow_runs.map(function(r) {
+                        return mainApi('/repos/' + S.username + '/' + S.repo + '/actions/runs/' + r.id + '/cancel', 'POST')
+                            .then(function() { addLog('toolsLog', '✅ ' + r.name, 'success'); })
+                            .catch(function(e) { addLog('toolsLog', '❌ ' + e.message, 'error'); });
+                    }));
+                }).then(function() { addLog('toolsLog', '🎯 تموم', 'success'); }).catch(function(e) { addLog('toolsLog', '❌ ' + e.message, 'error'); });
+        }
+        
+        function bind(id, ev, fn) { var el = $(id); if (el) el.addEventListener(ev, fn); }
+        
+        function initPage() {
+            // تنظیمات اولیه
+            $('repoUrl').value = S.repoUrl || '';
+            $('githubToken').value = S.token || '';
+            if (S.username && S.repo) { 
+                var st = $('settingsStatus'); 
+                if (st) { st.innerHTML = '✅ ' + S.username + '/' + S.repo; st.style.color = '#10b981'; st.style.background = '#d1fae5'; }
+            }
+            
+            // منو
+            bind('hamburger', 'click', function() {
+                var m = $('sideMenu'), o = $('menuOverlay'), h = $('hamburger');
+                var open = m.classList.contains('open');
+                m.classList.toggle('open', !open); o.classList.toggle('open', !open); h.classList.toggle('open', !open);
+            });
+            bind('menuOverlay', 'click', function() {
+                var m = $('sideMenu'), o = $('menuOverlay'), h = $('hamburger');
+                m.classList.remove('open'); o.classList.remove('open'); h.classList.remove('open');
+            });
+            document.querySelectorAll('.menu-item[data-page]').forEach(function(m) {
+                m.addEventListener('click', function() {
+                    var page = this.dataset.page;
+                    document.querySelectorAll('.page').forEach(function(p) { p.classList.remove('active'); });
+                    var t = $(page + 'Page'); if (t) t.classList.add('active');
+                    document.querySelectorAll('.menu-item').forEach(function(mi) { mi.classList.remove('active'); });
+                    this.classList.add('active');
+                    var menu = $('sideMenu'), overlay = $('menuOverlay'), hamburger = $('hamburger');
+                    menu.classList.remove('open'); overlay.classList.remove('open'); hamburger.classList.remove('open');
+                    
+                    // اگر به صفحه تلگرام رفتیم و در چت نیستیم، لیست رو نمایش بده
+                    if (page === 'telegram' && !isInChat) {
+                        telegramPage.style.display = 'block';
+                        chatPageDiv.style.display = 'none';
+                        document.getElementById('mainHeader').style.display = 'block';
+                    }
+                });
+            });
+            
+            bind('btnSave', 'click', saveSettings);
+            bind('btnTest', 'click', testConnection);
+            bind('btnCheckRuns', 'click', checkRuns);
+            bind('btnListWf', 'click', listWorkflows);
+            bind('btnCancelAll', 'click', cancelAllRuns);
+            
+            // بارگذاری کانال‌ها
+            loadChannels();
+            
+            // اگه توکن در S هست، توی متغیر token هم بذار
+            if (S.token) token = S.token;
+        }
+        
+        document.addEventListener('DOMContentLoaded', initPage);
+    })();
+    </script>
 </body>
 </html>
