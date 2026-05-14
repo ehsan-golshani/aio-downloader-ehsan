@@ -100,7 +100,7 @@
             
             <div style="text-align: center;">
                 <button onclick="showMessage()">📣 کلیک 666 کن</button>
-                <button class="btn-secondary" onclick="changeBg()">🎨 تغییر رنگ</button>
+                <button class="btn-secondary" onclick="changeBg()">🎨 تغییر 7777 رنگ</button>
             </div>
             
             <div class="counter">
