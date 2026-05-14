@@ -1,8 +1,120 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/24 18:55
+📅 آخرین بروزرسانی: 1405/02/24 21:01
 
 ---
+
+## IranianMinds — post 20100
+
+<div align="center"><video src="telegram/content/IranianMinds_20100.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20100.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+در حال حاضر، تحولی که در یک قرن گذشته دیده نشده در سراسر جهان شتاب گرفته و وضعیت بین‌المللی سیال و پرآشوب است.
+
+جهان به یک چهارراه جدید رسیده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20099
+
+<div align="center"><video src="telegram/content/IranianMinds_20099.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20099.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+آیا می‌توانیم، به نفع رفاه مردم هر دو کشور و آینده بشریت، آینده‌ای روشن‌تر برای روابط دوجانبه‌مان بسازیم؟
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20098
+
+<div align="center"><video src="telegram/content/IranianMinds_20098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+تمام جهان در حال تماشای دیدار ماست
+
+@IranianMindsi
+</div>
+
+## IranianMinds — post 20097
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 مارکو روبیو:
+
+واشنگتن به پکن روشن کرد که هرگونه حمایت از ایران به روابط دوجانبه آسیب می رساند
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20096
+
+<div align="center"><video src="telegram/content/IranianMinds_20096.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20096.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 لحظه ی دیدار ترامپ و رئیس جمهور‌ چین
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20095
+
+<div align="center"><img src="telegram/content/IranianMinds_20095.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رویترز :
+
+طبق گزارش وزارت خارجه، آمریکا و چین توافق کردند که هیچ کشوری نباید در تنگه هرمز عوارض حمل و نقل دریایی دریافت کند.
+
+این موضوع پیش از نشست ترامپ و شی در پکن، توسط مارکو روبیو، وزیر خارجه آمریکا، و وانگ یی، وزیر خارجه چین، مورد بحث قرار گرفت!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20094
+
+<div align="center"><video src="telegram/content/IranianMinds_20094.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20094.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
+ae23
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
+
+## IranianMinds — post 20093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 وزیر خارجه سوریه :
+
+میخوایم روابطمون با داداشیمون اسرائیل رو قوی تر کنیم و به حاکمیت هم احترام بزاریم
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20092
 
@@ -148,99 +260,5 @@ https://t.me/+qNjExGEJztE2OGI0
 در این شکایت، ایران به دخالت مستقیم و آشکار در امور داخلی لبنان و کشاندن این کشور به جنگ متهم شده است.
 
 @IranianMinds
-</div>
-
-## IranianMinds — post 20079
-
-<div align="center"><video src="telegram/content/IranianMinds_20079.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20079.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اکانت اسرائیل به فارسی:
-
-وقتی به زودی به اسرائیل سفر کنید، این منظره زیبا از پنجره هواپیما در انتظار شماست. به امید دیدار شما در تل‌آویو یا تهران.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20078
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عباس عراقچی وارد هند شد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20077
-
-<div align="center"><img src="telegram/content/IranianMinds_20077.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سنتکام با انتشار تصویری از گشت‌زنی جنگنده پنهان‌کار F-35A امریکا بر فراز آب‌های نزدیک تنگه هرمز خبر داد.
-
-به گفته سنتکام، این جنگنده توان حمل تا ۱۸ هزار پوند مهمات را در سرعت مافوق صوت دارد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20075
-
-<div align="center"><video src="telegram/content/IranianMinds_20075.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20075.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 حملات اسرائیل به جنوب لبنان
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پولیتیکو به نقل از یک مقام ارشد کاخ سفید:
-
-چین پیش از دیدار ترامپ به ایران فشار آورده تا به توافق برسد با آمریکا.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20072
-
-<div align="center"><img src="telegram/content/IranianMinds_20072.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مجله فرانسوی Paris Match ادعا میکند که رئیس‌جمهور فرانسه، مکرون، چند ماه با گلشیفته فراهانی بازیگر‌ایرانی یک رابطهٔ افلاطونی ( رابطه صمیمانه عاطفی بدون رابطه ی جنسی ) داشته و پیام‌هایی مانند «خیلی زیبا هستی» رد و بدل کرده‌اند.
-
-ماجرای جنجالی مه ۲۰۲۵ در هانوی که به نظر می‌رسید بریژیت او را در باند فرودگاه سیلی زده باشد، در واقع یک دعوای زوجین بوده، زمانی که بریژیت پیام‌ها را وسط پرواز در گوشی مکرون دیده است.
-
-گلشیفته درباره این ادعا هنوز چیزی نگفته.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20071
-
-<div align="center"><img src="telegram/content/IranianMinds_20071.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
-
-👍دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-ge23
-🔔کانال دربی بت :
-🪙https://t.me/+aCbq7yy8QY80NzQ0
 </div>
 
