@@ -1,8 +1,24 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/25 01:10
+📅 آخرین بروزرسانی: 1405/02/25 01:51
 
 ---
+
+## FoxNewsTwitter — post 341666
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341666.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341666.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: VP Vance calls out officials in Hawaii for refusing to crack down on Medicaid fraud in the state:
+
+"Guess how many convictions or indictments has Hawaii had over the last few years in its Medicaid fraud program? The answer is zero."
+
+"Not a single indictment, not a single conviction, because the administrators of the Hawaii program just don't take it seriously. They don't think that fraud is a big enough problem."
+</div>
 
 ## FoxNewsTwitter — post 341665
 

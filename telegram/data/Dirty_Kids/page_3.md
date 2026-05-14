@@ -1,8 +1,40 @@
 # آرشیو کانال Dirty_Kids - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/25 00:37
+📅 آخرین بروزرسانی: 1405/02/25 02:05
 
 ---
+
+## Dirty_Kids — post 389424
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389424.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لاشیا فهمیدن ما عرقو با دوغ میخوریم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389423
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389423.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عکس پروفایل معلمای ادبیات
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389422
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جدی پیک می تر از این جنده های حجابی تو دانشگاه وجود نداره، یارو سال اول کارشناسی کامپیوتره بعد استیکر زده رو لپ تاپش LEAVE ME ALONE IM CODING، بیا برو کیرم تو کدت شد
+
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389421
 
@@ -221,39 +253,6 @@ A23
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وقتی به “بله” می گید سوپر اپلیکیشن، حس بقالی رو دارم که رو تابلوش زده هایپر مارکت!
 
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389399
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389399.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امانوئل تو زن داری؟
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389398
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رفته بودیم ماسال. به صاحب‌ ویلا گفتم اینجا محلیا چه‌جوری‌ند؟ به حجاب گیرن یا زنا راحت بتابن؟
-گفت: زنا هر جور دوست دارن بپوشن، اما مردا شلوارک نپوشن، اهالی حساسن به شلوارک:))))))
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389396
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389396.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صلواتی خونخوار حکم اعدام ‎#محمد_عباسی رو داد و جمهوری اسلامی امروز مخفیانه طناب دار رو دور گردنش انداخت.
 
 
 @Dirty_Kids 👻

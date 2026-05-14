@@ -1,8 +1,24 @@
 # آرشیو کانال FarsiVOA - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/25 01:20
+📅 آخرین بروزرسانی: 1405/02/25 02:00
 
 ---
+
+## FarsiVOA — post 217685
+
+<div align="center"><img src="telegram/content/FarsiVOA_217685.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا روز پنج‌شنبه به وقت پکن مورد استقبال رسمی شی جین‌پینگ، رئیس جمهوری چین قرار گرفت. آقای ترامپ در راس یک هئیت عالی‌رتبه سیاسی و اقتصادی وارد چین شده است. انتظار می‌رود که مسئله تنگه هرمز یکی از مسائل مورد گفت‌وگو در این سفر باشد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217684
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️تحریم‌های مرتبط با جمهوری اسلامی علیه نهادهای چینی چه اثری دارد؟
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217683
 
@@ -171,20 +187,6 @@ https://ir.voanews.com/a/reuters-saudi-arabia-kuwait-attacked-iraq-iranian-milit
 
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/8149643.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️در برنامه تفسیر خبر امروز، مهدی آقازمانی با کارشناسان مهمان، درباره سفر تاریخی پرزیدنت ترامپ به چین و موضوع ایران به عنوان یکی از محورهای گفتگوی رهبران دو کشور ، گفتگو می‌کند
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️ویدئوی گفت‌وگو با دو ملی‌پوش فوتبال ایران در تلویزیون حکومتی جمهوری اسلامی درباره وضعیت تحصیل و دانشگاه محل تحصیل‌شان، در شبکه‌های اجتماعی خبرساز شده و بار دیگر حاشیه‌های مربوط به ادعاهای تحصیلی برخی بازیکنان تیم ملی را به یاد کاربران آورده است.
 @FarsiVOA
 </div>
 

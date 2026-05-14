@@ -1,8 +1,32 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/25 01:22
+📅 آخرین بروزرسانی: 1405/02/25 02:03
 
 ---
+
+## IranianMinds — post 20115
+
+<div align="center"><img src="telegram/content/IranianMinds_20115.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💔
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20114
+
+<div align="center"><video src="telegram/content/IranianMinds_20114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 وزیر دارایی اسرائیل:
+
+فکر می‌کنم در همین دوره، عملا داریم ایده تشکیل کشور فلسطین را کاملا از بین میبریم.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20113
 
@@ -262,23 +286,5 @@ ae23
 🎯همین حالا عضو شو و شروع کن👇
 https://t.me/+OS-QBvyDO4M2ZGY0
 https://t.me/+OS-QBvyDO4M2ZGY0
-</div>
-
-## IranianMinds — post 20093
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وزیر خارجه سوریه :
-
-میخوایم روابطمون با داداشیمون اسرائیل رو قوی تر کنیم و به حاکمیت هم احترام بزاریم
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20092
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 گوگل رسما اعلام کرد در جام جهانی اسپانسری تیم های ملی عراق و مراکش رو گرفته و تمامی هزینه های این تیم هارو‌ میده.
-
-@IranianMinds
 </div>
 

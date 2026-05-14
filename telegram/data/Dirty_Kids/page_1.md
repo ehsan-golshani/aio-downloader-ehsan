@@ -1,8 +1,41 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 00:37
+📅 آخرین بروزرسانی: 1405/02/25 02:05
 
 ---
+
+## Dirty_Kids — post 389472
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389472.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو خیابون حل اشکال ریاضی میزارن بعد رتبه یک کنکور رو اعدام میکنن.
+اینجا، ایران جان..
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏تو آسانسور از دختره پرسیدم کدوم طبقه میری ؟
+گفت : فرقی نمیکنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389470
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389470.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ملانیا واقعا خوشتیپه
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389469
 
@@ -240,44 +273,6 @@ G24
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ‏از روزی که ‎#رضاشاه_کبیر سر از خاک بیرون آورد جمهوری اسهالی روی خوش ندید.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389448
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ShirOKhorshid-2026.05.14.apk
-</div>
-
-## Dirty_Kids — post 389447
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مراد؛ ویروس هانتا 😂🤌⁩⁩
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389446
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقایقی قبل این اپلیکیشن بنام "شیر و خورشید" که نسخه تغییر یافته سایفون هستش تو تلگرام درحال وایرال شدنه و میگن خیلی خوب کار میکنه.
-
-مهم: اگر این نسخه رو نصب کنید دیگه دردسر ستاپ کردن MITM و... ندارید!
-این نسخه حدودا یک ساعت پیش توسط برنامه‌نویس شیر و خورشید آپدیت شد و به راحتی می‌تونید طبق این آموزش بهش وصل بشید:
-1- وارد اپلیکیشن شیر و خورشید(آخرین نسخه که امروز منتشر شده) می‌شید
-2- وارد بخش Options میشید از نوار بالا
-3- روی More Options کلیک میکنید
-4- گزینه‌ی Connection Protocol رو قرار میدید روی CDN Fronting
-5- میرید و عادی کانکت میشید و به راحتی وصل میشه.
-
-+ من تست نکردم ولی دیدم میگن جوابه
 
 
 @Dirty_Kids 👻

@@ -1,8 +1,28 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 01:22
+📅 آخرین بروزرسانی: 1405/02/25 02:03
 
 ---
+
+## IranianMinds — post 20135
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴حمید رسایی:
+
+دولت می‌خواهد قیمت بنزین را تا ۲۰ هزار تومان افزایش بدهد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ به فاکس‌نیوز:
+
+رهبر چین پیشنهاد داده است که در موضوع ایران کمک کند و همچنین وعده داده که به ایران تجهیزات نظامی منتقل نکند. او می‌خواهد که تنگه هرمز باز بماند.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20133
 
@@ -224,30 +244,6 @@ https://t.me/+qNjExGEJztE2OGI0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 کاخ سفید پس از مذاکرات دوجانبه ایالات متحده و چین در پکن، پایتخت چین، در بیانیه‌ای اعلام کرد که دو هیئت در مورد مسائلی مانند دسترسی به بازار چین، سرمایه‌گذاری چین در صنایع ایالات متحده، مواد مخدر، به ویژه فنتانیل، «جریان آزاد» تجارت از طریق تنگه هرمز و سایر مسائل کلیدی گفتگو کردند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20115
-
-<div align="center"><img src="telegram/content/IranianMinds_20115.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💔
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20114
-
-<div align="center"><video src="telegram/content/IranianMinds_20114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وزیر دارایی اسرائیل:
-
-فکر می‌کنم در همین دوره، عملا داریم ایده تشکیل کشور فلسطین را کاملا از بین میبریم.
 
 @IranianMinds
 </div>

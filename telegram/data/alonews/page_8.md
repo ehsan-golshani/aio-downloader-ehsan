@@ -1,8 +1,16 @@
 # آرشیو کانال alonews - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/25 01:27
+📅 آخرین بروزرسانی: 1405/02/25 02:08
 
 ---
+
+## alonews — post 119834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ارتش اسرائیل: مدتی پیش حزب‌الله لبنان از جنوب این کشور با پهپاد و چندین موشک ضدتانک بهمون حمله کرد که هیچکس آسیبی ندید.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119833
 
@@ -198,14 +206,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈کانال ۱۲ اسرائیل: امارات و اسرائیل به دنبال علنی‌تر کردن روابط خود هستند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119813
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈منابع عراقی از شنیده‌شدن صدای چندین انفجار در اربیل عراق خبر می‌دهند.
 
 ✅ @AloNews خبر جنگ
 </div>

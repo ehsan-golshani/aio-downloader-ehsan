@@ -1,8 +1,17 @@
 # آرشیو کانال alonews - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 01:27
+📅 آخرین بروزرسانی: 1405/02/25 02:08
 
 ---
+
+## alonews — post 120053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری/ترامپ:
+نابودی نظامی ایران ادامه خواهد یافت‌‌
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120052
 
@@ -189,17 +198,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈لیندسی گراهام، سناتور مطرح آمریکایی با آشغال نامیدن متحدان چین از جمله ایران و روسیه، از این کشور برای باز کردن تنگه هرمز درخواست کمک کرد!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120033
-
-<div align="center"><img src="telegram/content/alonews_120033.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رسایی:
-قالیباف بدون هیچ دلیلی مجلس رو بسته
 
 ✅ @AloNews خبر جنگ
 </div>

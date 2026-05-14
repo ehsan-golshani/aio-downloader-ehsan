@@ -1,8 +1,38 @@
 # آرشیو کانال WithYashar - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/25 01:09
+📅 آخرین بروزرسانی: 1405/02/25 01:50
 
 ---
+
+## WithYashar — post 11211
+
+<div align="center"><img src="telegram/content/WithYashar_11211.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلفی لی جون، بنیانگذار و مدیرعامل شیائومی با ایلان ماسک
+@withyashar
+</div>
+
+## WithYashar — post 11210
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الجزیره: چین با آمریکا در مورد ایران انعطاف دارد، اما در مورد تایوان نه
+
+مسئولان چینی پیام واضحی به ایالات متحده ارسال کرده‌اند:
+چین در بسیاری از مسائل مانند ایران، تجارت و فناوری آماده انعطاف و پذیرش اختلاف نظر است، اما در یک موضوع حساس، انعطاف‌پذیر نیست و آن تایوان است.
+@withyashar
+</div>
+
+## WithYashar — post 11209
+
+<div align="center"><video src="telegram/content/WithYashar_11209.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11209.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایلان لوله لول سر میز شمام 😂
+@withyashar
+</div>
 
 ## WithYashar — post 11208
 
@@ -126,36 +156,6 @@
 جان بولتون: مذاکره با ایران برای یک توافق هسته‌ای هدر دادن اکسیژن است.
 
 این افراد دهه‌ها پیش تصمیم استراتژیکی برای دستیابی به سلاح‌های هسته‌ای گرفتند و در این ۴۷ سال هیچ مدرکی وجود ندارد که نشان دهد آن‌ها این هدف را رها کرده‌اند.
-@withyashar
-</div>
-
-## WithYashar — post 11191
-
-<div align="center"><video src="telegram/content/WithYashar_11191.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11191.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ بعد از ۵۰ سال، اولین رئیس‌ جمهوری شد که به معبد آسمان چین رفت
-@withyashar
-</div>
-
-## WithYashar — post 11190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاخ سفید : ترامپ و شی توافق کردن که تنگه هرمز باید باز بمونه
-@withyashar
-</div>
-
-## WithYashar — post 11189
-
-<div align="center"><video src="telegram/content/WithYashar_11189.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11189.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاکس نیوز با حیرت : داداش بزرگه نگات میکنه ، لبخند بزنید شما با دوربین ها رصد میشوید
-خبرنگار فاکس‌نیوز گزارش داد که خودروی آن‌ها در چین تنها دو دقیقه در محدوده «توقف ممنوع» پکن ایستاد و بلافاصله پیامک جریمه ۴۰ دلاری برای راننده صادر شد. به گفته او، در این کشور دوربین‌های نظارتی همه‌جا فعال هستند و تخلفات رانندگی در لحظه ثبت و اعمال می‌شود.
 @withyashar
 </div>
 

@@ -1,8 +1,46 @@
 # آرشیو کانال mwarmonitor - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 00:21
+📅 آخرین بروزرسانی: 1405/02/25 01:50
 
 ---
+
+## mwarmonitor — post 9083
+
+<div align="center"><img src="telegram/content/mwarmonitor_9083.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸شهادت در مورد وضعیت فرماندهی مرکزی ایالات متحده (سنتکام) 🔸«من قویاً باور دارم که هر موفقیتی که به دست می‌آوریم با نیروهایمان آغاز می‌شود و با آن‌ها پایان می‌یابد. تنها در ۷ ماه گذشته، فرزندان دختر و پسر آمریکا که در سنتکام خدمت می‌کنند، نقش‌های کلیدی در…
+</div>
+
+## mwarmonitor — post 9082
+
+<div align="center"><img src="telegram/content/mwarmonitor_9082.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸دریادار برد کوپر، فرمانده فرماندهی مرکزی ایالات متحده (CENTCOM)، صبح امروز درباره وضعیت و آرایش عملیاتی سنتکام در کنگره شهادت خواهد داد. @mwarmonitor
+</div>
+
+## mwarmonitor — post 9081
+
+<div align="center"><img src="telegram/content/mwarmonitor_9081.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸کمک کنید تا در جریان درآمدی سپاه پاسداران انقلاب اسلامی (IRGC) اختلال ایجاد کنیم.
+
+🔸برای ما درباره این افراد اطلاعات/نکته ارسال کنید؛ کسانی که این شرکت تولیدکننده پهپاد را مدیریت می‌کنند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9080
+
+<div align="center"><img src="telegram/content/mwarmonitor_9080.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸یک ناو جنگی آبی - خاکی uss makin مستقر در سن‌دیگو در حال آماده‌سازی برای اعزام به خاورمیانه است، در حالی که ملوانان کالیفرنیایی برای اعزام آماده می‌شوند. نیویورک پست
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9079
 
@@ -217,53 +255,5 @@
 🔴 پس از دیدار دونالد ترامپ و شی جین‌پینگ، یک مقام کاخ سفید اعلام کرد که چین و ایالات متحده آمریکا توافق دارند که ایران هرگز نباید به سلاح هسته‌ای دست یابد و تنگه هرمز باید باز بماند. i24 news
 
 @mwarmonitor
-</div>
-
-## mwarmonitor — post 9062
-
-<div align="center"><video src="telegram/content/mwarmonitor_9062.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/mwarmonitor_9062.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇨🇳🇺🇸دونالد ترامپ و شی جین‌پینگ در حال بازدید از «معبد آسمان» در پکن هستند.
-🔸خبرنگار: آقای رئیس‌جمهور، گفتگوها چطور بود؟
-🔹دونالد ترامپ: عالی بود. جای فوق‌العاده‌ایه. چین زیباست.
-مترجم (به چینی): پرزیدنت ترامپ می‌گن که گفتگوها خیلی خوب بوده.
-🔸خبرنگار: آقای رئیس‌جمهور، آیا درباره تایوان صحبتی کردید؟
-(ترامپ و شی جین‌پینگ بدون پاسخ به سوال، در حال ژست گرفتن برای عکس هستند)
-مقام چینی: متشکرم. ممنون. خیلی ممنون.
-خبرنگار (دوباره): آقای رئیس‌جمهور، آیا در مورد تایوان صحبت کردید؟
-مقام چینی: ممنون از مطبوعات. متشکرم. ممنون.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9061
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️خبر فوتبالی از نیویورک تایمز:
-
-🎙شکیرا، مدونا و گروه BTS اجرای نخستین نمایش بین دو نیمه را در فینال جام جهانی فوتبال بر عهده خواهند داشت.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9060
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🇨🇳مراسم رسمی استقبال از دونالد ترامپ با حضور شی جین‌پینگ در چین برگزار شد
-
-💠در این مراسم، رئیس‌جمهور چین با برگزاری تشریفات کامل دیپلماتیک از رئیس‌جمهور آمریکا استقبال کرد؛ رویدادی که در چارچوب سفر رسمی ترامپ به پکن و با هدف بررسی روابط دوجانبه، همکاری‌های اقتصادی و تحولات راهبردی بین دو کشور انجام خواهد گرفت.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9059
-
-<div align="center"><img src="telegram/content/mwarmonitor_9059.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری: بنیامین نتانیاهو به‌طور محرمانه به امارات متحده عربی سفر کرده و در جریان عملیات «شیر غران» علیه ایران با محمد بن زاید دیدار کرده است. i24 news @mwarmonitor
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال alonews - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 01:27
+📅 آخرین بروزرسانی: 1405/02/25 02:08
 
 ---
+
+## alonews — post 119974
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈برد کوپر: ما درگیر اقدامات خصمانه علیه ایران نیستیم، بلکه آتش بس داریم
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119962
 
@@ -189,16 +197,6 @@
 👈بنیامین نتانیاهو: همان‌طور که یک متفکر زمانی گفت، به‌ویژه در روسیه، او گفت: «دولت اسرائیل یک ابرقدرت کوچک است، اما ابرقدرت است.»
 
 🔴 ما قرار است به یک ابرقدرت بزرگ جهانی تبدیل شویم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119943
-
-<div align="center"><img src="telegram/content/alonews_119943.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزرای خارجه روسیه و ایران در دهلی‌نو دیدار کردند
 
 ✅ @AloNews خبر جنگ
 </div>

@@ -1,8 +1,19 @@
 # آرشیو کانال alonews - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 01:27
+📅 آخرین بروزرسانی: 1405/02/25 02:08
 
 ---
+
+## alonews — post 120033
+
+<div align="center"><img src="telegram/content/alonews_120033.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رسایی:
+قالیباف بدون هیچ دلیلی مجلس رو بسته
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120031
 
@@ -216,13 +227,5 @@
 🔤 @safevpn_feedback
 
 ╚═════════════════════════╝
-</div>
-
-## alonews — post 120010
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرگزاری ایسنا : با قیمت قطعی خودرو باید خداحافظی کنید،چون تو جدیدترین طرح فروش ایران‌خودرو و سایپا،خریداران باید نیمی از مبلغ خودرو رو امروز بپردازن بدون اینکه بدونن در زمان تحویل چه قیمتی در انتظارشونه!
-
-✅ @AloNews خبر جنگ
 </div>
 

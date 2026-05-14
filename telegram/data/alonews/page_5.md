@@ -1,8 +1,18 @@
 # آرشیو کانال alonews - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/25 01:27
+📅 آخرین بروزرسانی: 1405/02/25 02:08
 
 ---
+
+## alonews — post 119943
+
+<div align="center"><img src="telegram/content/alonews_119943.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزرای خارجه روسیه و ایران در دهلی‌نو دیدار کردند
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119926
 
@@ -237,14 +247,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈رئیس جمهور چین: رنسانس چین و شعار «آمریکا را دوباره بزرگ کنیم» می‌توانند دست در دست هم پیش بروند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119907
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فارس: عبور کشتی‌های چینی از تنگه هرمز با هماهنگی ایران آغاز شد
 
 ✅ @AloNews خبر جنگ
 </div>

@@ -1,8 +1,16 @@
 # آرشیو کانال alonews - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/25 01:27
+📅 آخرین بروزرسانی: 1405/02/25 02:08
 
 ---
+
+## alonews — post 119907
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فارس: عبور کشتی‌های چینی از تنگه هرمز با هماهنگی ایران آغاز شد
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119906
 
@@ -190,14 +198,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈فواد ایزدی، تحلیلگر ارشد صدا و سیما: ترامپ رفته چین تا التماس کنه که ایران ولش کنه و انقدر نزنیمش
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119873
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت خارجه چین: پکن و واشنگتن بر سر جهت‌گیری جدید روابط توافق کردند
 
 ✅ @AloNews خبر جنگ
 </div>
