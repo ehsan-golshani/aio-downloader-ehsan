@@ -1,8 +1,20 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 01:51
+📅 آخرین بروزرسانی: 1405/02/25 03:04
 
 ---
+
+## FoxNewsTwitter — post 341756
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341756.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump says China’s leader was right about America’s decline under President Biden — but argues the U.S. has completely rebounded under his administration.
+
+In a lengthy post, Trump touted booming markets, record investment, the "ending" of DEI, and what he called the “strongest military on earth by far,” while predicting a stronger relationship with China moving forward.
+</div>
 
 ## FoxNewsTwitter — post 341755
 
@@ -296,13 +308,5 @@ Trump noted that while China continues to purchase Iranian oil, Xi expressed a s
 "He said he’s not going to give military equipment, that’s a big statement... But at the same time, he said you know they buy a lot of their oil there and they’d like to keep doing that. He’d like to see Hormuz straight opened."
 
 The full interview airs tonight at 9pm ET.
-</div>
-
-## FoxNewsTwitter — post 341736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: US Border Patrol Chief Mike Banks abruptly resigns, Fox News has learned
 </div>
 

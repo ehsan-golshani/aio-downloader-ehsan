@@ -1,8 +1,23 @@
 # آرشیو کانال DEJradio - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 20:51
+📅 آخرین بروزرسانی: 1405/02/25 03:06
 
 ---
+
+## DEJradio — post 4613
+
+<div align="center"><video src="telegram/content/DEJradio_4613.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/DEJradio_4613.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺🎥 ”ساختمون فرماندهان ارشد سـ.ـپاه در جنگ کاملا داغون شد
+
+یک شهروند خبرنگار از تهران با ارسال ویدیویی از انهدام کامل یکی از اقامتگاه‌های سـ.ـپاه پاسداران نوشت، «این ساختمونی است که فرماندهان ارشد زندگی میکردن همونایی که تو جنگ بمبارون شدن. می‌گن جنگ رو بردیم ولی حتی پول ندارن خونه‌های داغون ‌شده ‌شون رو درست کنن. این دیگه چه جور پیروزیه؟ این فیلمی رو که دیشب تو تهران گرفتم، براتون می‌فرستم.»
+
+#جمهوری_اسلامی #IRGCterrorists
+@DEJradio
+</div>
 
 ## DEJradio — post 4612
 

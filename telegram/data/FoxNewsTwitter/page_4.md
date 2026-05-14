@@ -1,8 +1,20 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 01:51
+📅 آخرین بروزرسانی: 1405/02/25 03:04
 
 ---
+
+## FoxNewsTwitter — post 341690
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341690.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341690.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Chinese President Xi Jinping walks out for his meeting with President Trump.
+</div>
 
 ## FoxNewsTwitter — post 341689
 
@@ -292,23 +304,5 @@ DR. OZ: "We've had a handful of calls. We're not sure they're legitimate yet, bu
 VP VANCE:" Unbelievable... At least 780 are not even trying to claim that they're not fraudulent?"
 
 "Those are businesses that we were giving hundreds of millions, in some cases billions of dollars to, not to provide services, but to make a fraudster rich. It's just completely insane."
-</div>
-
-## FoxNewsTwitter — post 341667
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341667.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341667.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-JUST IN: Vice President JD Vance rips the Biden administration’s failure to prevent medical identity theft after a California psychotherapist was stripped of her benefits.
-
-Vance highlights the doctor's case — 40 years in the medical field only to have her Medicare "turned off" because a fraudster exploited the system.
-
-"A fraudster had stolen her identity and signed her up for healthcare services that she didn't need, and so she had been turned off of the healthcare services that she did need."
-
-“This happens way too much in the United States of America. And it happens because until recently, we did not have a government or an administration that actually took the fraud program and took anti-fraud prevention seriously."
 </div>
 

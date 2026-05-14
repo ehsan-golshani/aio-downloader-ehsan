@@ -1,8 +1,24 @@
 # آرشیو کانال alonews - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/25 02:08
+📅 آخرین بروزرسانی: 1405/02/25 03:21
 
 ---
+
+## alonews — post 119815
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار سی‌بی‌اس مدعی شد: پیشرفت‌هایی در مذاکرات با ایران دیده می‌شود
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119814
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کانال ۱۲ اسرائیل: امارات و اسرائیل به دنبال علنی‌تر کردن روابط خود هستند
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119813
 

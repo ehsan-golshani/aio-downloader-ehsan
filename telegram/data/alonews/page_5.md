@@ -1,8 +1,34 @@
 # آرشیو کانال alonews - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/25 02:08
+📅 آخرین بروزرسانی: 1405/02/25 03:21
 
 ---
+
+## alonews — post 119945
+
+<div align="center"><video src="telegram/content/alonews_119945.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119945.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترور هدفمند در جنوب لبنان
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119944
+
+<div align="center"><video src="telegram/content/alonews_119944.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119944.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈بنیامین نتانیاهو: همان‌طور که یک متفکر زمانی گفت، به‌ویژه در روسیه، او گفت: «دولت اسرائیل یک ابرقدرت کوچک است، اما ابرقدرت است.»
+
+🔴 ما قرار است به یک ابرقدرت بزرگ جهانی تبدیل شویم
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119943
 
@@ -231,22 +257,6 @@
 🔴به آینده روشن روابط چین و آمریکا
 
 🔴به دوستی میان مردم دو کشور، و به سلامتی رئیس‌جمهور ترامپ و همه دوستان ی پیک عرق میخورم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119909
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈پاکستان: آتش‌بس برقرار است و ما با طرفین مذاکرات در ارتباط هستیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119908
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رئیس جمهور چین: رنسانس چین و شعار «آمریکا را دوباره بزرگ کنیم» می‌توانند دست در دست هم پیش بروند
 
 ✅ @AloNews خبر جنگ
 </div>

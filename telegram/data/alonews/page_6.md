@@ -1,8 +1,24 @@
 # آرشیو کانال alonews - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/25 02:08
+📅 آخرین بروزرسانی: 1405/02/25 03:21
 
 ---
+
+## alonews — post 119909
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پاکستان: آتش‌بس برقرار است و ما با طرفین مذاکرات در ارتباط هستیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رئیس جمهور چین: رنسانس چین و شعار «آمریکا را دوباره بزرگ کنیم» می‌توانند دست در دست هم پیش بروند
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119907
 
@@ -182,23 +198,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 محسن مسلمان که حسابی تو تجمعات حامیان حکومت فعال بود، به کادرفنی تیم امید پرسپولیس پیوست.
 @AloSport
-</div>
-
-## alonews — post 119875
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دقایقی پیش زمین‌لرزه‌ای ۵ ریشتری در عمق ۸ کیلومتری بردسیر کرمان را لرزاند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119874
-
-<div align="center"><img src="telegram/content/alonews_119874.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فواد ایزدی، تحلیلگر ارشد صدا و سیما: ترامپ رفته چین تا التماس کنه که ایران ولش کنه و انقدر نزنیمش
-
-✅ @AloNews خبر جنگ
 </div>
 

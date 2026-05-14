@@ -1,8 +1,35 @@
 # آرشیو کانال FarsiVOA - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 02:00
+📅 آخرین بروزرسانی: 1405/02/25 03:13
 
 ---
+
+## FarsiVOA — post 217780
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺سفر نادر رئیس سیا به کوبا و انتقال پیام رئیس‌جمهوری آمریکا
+
+▪️جان رتکلیف رئیس سازمان اطلاعات مرکزی آمریکا، سیا، روز پنج‌شنبه در سفری «سطح بالا» به کوبا، با مقام‌های ارشد وزارت کشور این کشور دیدار و گفت‌وگو کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150103.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️شک مقام‌های جمهوری اسلامی به یکدیگر شکاف در حکومت را عمیق‌تر کرد؛ جنگ تهدیدها و تهمت‌ها
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️نگرانی مسکو از گسترش تروریسم در افغانستان و پیامدهای آن برای ایران و دیگر کشورها
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217777
 
@@ -169,35 +196,5 @@ https://ir.voanews.com/a/high-risk-countries-us-department-of-state-travel-warni
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گزارش فریبا مودت درباره جزئیات روز نخست دیدار پرزیدنت ترامپ با رئیس جمهوری چین
-</div>
-
-## FarsiVOA — post 217760
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شکریا برادوست در برنامه تفسیر خبر: تمرکز بر ملی‌گرایی در چین افزایش یافته است
-</div>
-
-## FarsiVOA — post 217759
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺پرزیدنت ترامپ: رئیس جمهوری چین گفته که به رژیم ایران تجهیزات نظامی نخواهد داد
-
-◾️پرزیدنت ترامپ می‌گوید که شی جین‌پینگ، رئیس‌ جمهوری چین، متعهد شده است پس از مذاکرات سطح بالای دو رهبر، ارسال تجهیزات نظامی برای رژیم ایران را متوقف کند.
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/iran-us-trump-china-chi-weapon-hannity-/8150025.html?withmediaplayer=1
-</div>
-
-## FarsiVOA — post 217758
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺علی فالح الزیدی نخست‌وزیر جدید عراق شد
-
-▪️پارلمان عراق روز پنجشنبه ۲۴ اردیبهشت، به دولت جدید این کشور به ریاست علی فالح الزیدی و ۱۴ وزیر کابینه او رای اعتماد داد.
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/iraq-new-prime-minister-ali-alfateh-alzeidi-iran/8150045.html/?nocach=1
 </div>
 

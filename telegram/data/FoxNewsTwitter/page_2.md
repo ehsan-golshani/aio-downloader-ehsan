@@ -1,8 +1,16 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 01:51
+📅 آخرین بروزرسانی: 1405/02/25 03:04
 
 ---
+
+## FoxNewsTwitter — post 341736
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: US Border Patrol Chief Mike Banks abruptly resigns, Fox News has learned
+</div>
 
 ## FoxNewsTwitter — post 341735
 
@@ -246,21 +254,5 @@ Fox News (Twitter/X)
 RT @SpecialReport: 🚨WATCH: "Big Brother is watching."
 
 Our team with @BretBaier is on the ground in Beijing, and the level of surveillance is unlike anything we’ve seen. From 20+ cameras on a single street corner to instant fines sent straight to your phone, the CCP sees everything. They call it "safety"—but what’s the real cost of social scoring?
-</div>
-
-## FoxNewsTwitter — post 341710
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341710.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341710.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump highlights the special relationship between the United States and China:
-
-“The American and Chinese people share much in common. We value hard work. We value courage and achievement. We love our families and we love our countries.”
-
-“Together, we have the chance to draw on these values, to create a future of greater prosperity, cooperation and happiness and peace for our children."
 </div>
 

@@ -1,8 +1,30 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 02:03
+📅 آخرین بروزرسانی: 1405/02/25 03:15
 
 ---
+
+## IranianMinds — post 20160
+
+<div align="center"><img src="telegram/content/IranianMinds_20160.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 محمد قنطری، سرپرست جدید امور سوریه در واشنگتن دی‌سی.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20159
+
+<div align="center"><img src="telegram/content/IranianMinds_20159.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پست جدید ترامپ:
+
+ایالت 243ام.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20158
 
@@ -201,32 +223,6 @@ ShirOKhorshid-2026.05.14.apk
 این شهر قلب تپنده یهودیان و بخشی جدانشدنی از اسرائیل است.
 
 روز اورشلیم خجسته باد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20137
-
-<div align="center"><video src="telegram/content/IranianMinds_20137.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20137.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ:
-
-شی مایل است شاهد انجام یک معامله باشد. او گفت: «اگر بتوانم کمکی داشته باشم، دوست دارم کمک کنم.»
-
-هر کسی که این مقدار نفت می‌خرد، دوست دارد تنگه هرمز را باز ببیند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سنتکام:
-
-امارات، بحرین، عربستان، کویت، اردن و اسرائیل در عملیات آمریکا شرکت کردند.
 
 @IranianMinds
 </div>

@@ -1,8 +1,93 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 02:05
+📅 آخرین بروزرسانی: 1405/02/25 03:18
 
 ---
+
+## Dirty_Kids — post 389479
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍 🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389478
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389478.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A24
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+✅https://t.me/+4_ADqwB9e-QwYjlk
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389477
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389477.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قضیه السیسی اگه نمیدونی این ویدیو کمکت میکنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389475
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389475.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیفونیا با کانفیگ پولی در حال خوندن پستای اندرویدیا که با وپن شیر 🌞 وصل شدن:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389474
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎙️خبرنگار : امیرعلی چرا اومدی تجمع؟
+🧑امیرعلی : به عشق رهبر
+
+🎙️خبرنگار : امیرعلی، مامان و بابات مجبورت کردن که بیای تجمعات؟
+
+🧑امیرعلی : آره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389473
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389473.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کصمادرتون…
+نسلتون رو ✌🏽 بار گائیدم…
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389472
 
@@ -156,123 +241,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ریدم=)))))))))
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389455
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x ✖️  
-👍دارای مجوز رسمی Gambling Judge سوئد
-👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    3️⃣2️⃣ 🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
-</div>
-
-## Dirty_Kids — post 389454
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389454.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x ✖️
-
- 
-👍دارای مجوز رسمی Gambling Judge سوئد
-👍
-     
-💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
-💳تسویه حساب دلاری سریع
-💊بیمه شرط میکس
-⚠️فروش شرط
-🔔ویرایش شرط                    3️⃣2️⃣
-
-🎁20%هدیه واریز از طریق ارز و ووچر
-┅━━━━━━━━━━━
-🎁 10%برگشت باخت به صورت روزانه
-🎁 10%برگشت باخت به صورت هفتگی
-🎁10%برگشت باخت به صورت ماهانه
-💻ادرس ورود به سایت:
-https://bet120x.com/fa/?btag=971470
-➖➖➖➖➖
-   👈 آموزش واریز و برداشت دلاری
-👉
-
-🔪کانال اطلاع رسانی:👇
-✈️https://t.me/+1Wv5nGY_a54xNzlk
-</div>
-
-## Dirty_Kids — post 389453
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389453.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گیر چه عقب مونده‌هایی افتادیم
-
-ننگ ۵۰۰ ساله روحانیت رو از تاریخ ایران پاک باید کنیم
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389452
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389452.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389452.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هنوز رد خونت روشه ...
-#پرهام_آقامحمدی
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389451
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389451.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
-
-⚫️با بالاترین کیفیت ممکن⚡️ 
-⚫️100 هزار تومان شارژ هدیه 🎁
-⚫️پایین ترین قیمت گیگی 250🌐 
-⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
-
-بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
-
-بادبان راهتو باز می‌کنه⛵️
-
-G24
-🛡@BadBan_VPN | کانال 
-🤖@BadBan_VPNBot | ربات 
-📞@BadBan_VPNSupport | پشتیبانی
-</div>
-
-## Dirty_Kids — post 389450
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389450.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389450.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت دیشبِ خیابون فرشته تهران:
-دعوا سر دختر
-
-طهران الان قسمت بندی شده
-یه گوشه حی‌در حی‌در میکنن عرزشیا هپی بشن، یه گوشه پروپاگاندا، یجا برای بچه پولدارا و...
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389449
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389449.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏از روزی که ‎#رضاشاه_کبیر سر از خاک بیرون آورد جمهوری اسهالی روی خوش ندید.
 
 
 @Dirty_Kids 👻

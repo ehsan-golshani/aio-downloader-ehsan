@@ -1,8 +1,33 @@
 # آرشیو کانال FarsiVOA - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/25 02:00
+📅 آخرین بروزرسانی: 1405/02/25 03:13
 
 ---
+
+## FarsiVOA — post 217688
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️چه انتظاری از سفر پرزیدنت ترامپ به چین می‌‌توان داشت؟ گفت‌وگو با شهیر شهیدثالث و شکریا برادوست
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217687
+
+<div align="center"><video src="telegram/content/FarsiVOA_217687.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217687.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ادامه خاموشی اینترنت و اعدام‌ها درایران؛ واکنش کاربران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️مراسم استقبال رسمی از دونالد ترامپ رئیس جمهوری آمریکا، در چین
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217685
 
@@ -156,37 +181,6 @@ https://ir.voanews.com/a/8149652.html
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️حملە امارات و عربستان بە جمهوری اسلامی و سفر مخفیانە نخست وزیر اسرائیل بە امارات
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217668
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺رویترز: عربستان و کویت در جریان عملیات «خشم حماسی» نیابتی‌های جمهوری اسلامی در عراق را هدف قرار دادند
-
-▪️خبرگزاری رویترز به نقل از منابع امنیتی و نظامی گزارش داده است که عربستان سعودی در جریان عملیات «خشم حماسی» مواضع شبه‌نظامیان شیعه مورد حمایت رژیم ایران در عراق را هدف حملات هوایی قرار داد. علاوه بر این، حملات تلافی‌جویانه‌ای نیز از خاک کویت علیه اهدافی در عراق انجام شده است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/reuters-saudi-arabia-kuwait-attacked-iraq-iranian-militias/8149641.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️وام «ارزان» و کلان شرکت خودروسازی سایپا از مردم
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217666
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺جی‌دی‌ ونس در مورد در مذاکرات با جمهوری اسلامی: فکر می‌کنم پیشرفت‌هایی حاصل شده است
-
-▪️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز چهارشنبه در گفت‌وگو با خبرنگاران گفت که در مذاکرات با جمهوری اسلامی پیشرفت‌هایی حاصل شده است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149643.html
 @FarsiVOA
 </div>
 

@@ -1,8 +1,42 @@
 # آرشیو کانال alonews - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 02:08
+📅 آخرین بروزرسانی: 1405/02/25 03:21
 
 ---
+
+## alonews — post 120055
+
+<div align="center"><img src="telegram/content/alonews_120055.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌐 اینترنت رایگان و آزاد برای همه مردم
+
+⚡ VPN رایگان
+⚡ کانفیگ تست‌شده و پرسرعت
+⚡ آپدیت روزانه
+⚡ بدون قطعی و دردسر
+
+@NetaazaadVPN
+@NetaazaadVPN
+
+اینجا فقط وصل میشی و راحت استفاده میکنی 🫡
+
+👇
+@NetaazaadVPN
+@NetaazaadVPN
+@NetaazaadVPN
+</div>
+
+## alonews — post 120054
+
+<div align="center"><img src="telegram/content/alonews_120054.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴احتمالا ویزا مهدی طارمی به علت خدمت در سپاه صادر نشود
+‼️
+
+@AloSport
+</div>
 
 ## alonews — post 120053
 
@@ -175,29 +209,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈بدل شاه فقید در تهران رویت شد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اعتراضات در کوبا آغاز شده
-این اعتراضات در حالی آغاز شد که دولت کوبا برق مناطق شرقی این کشور را به طور نامحدود قطع کرد.
-
-🔴دولت اعلام کرد که "مطلقاً سوختی باقی نمانده است" و وضعیت اکنون "بحرانی" است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120034
-
-<div align="center"><video src="telegram/content/alonews_120034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈لیندسی گراهام، سناتور مطرح آمریکایی با آشغال نامیدن متحدان چین از جمله ایران و روسیه، از این کشور برای باز کردن تنگه هرمز درخواست کمک کرد!
 
 ✅ @AloNews خبر جنگ
 </div>

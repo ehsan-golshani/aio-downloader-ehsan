@@ -1,8 +1,30 @@
 # آرشیو کانال alonews - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 02:08
+📅 آخرین بروزرسانی: 1405/02/25 03:21
 
 ---
+
+## alonews — post 119976
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈شبکه MS NOW: شرکت‌های خصوصی چینی در حال بررسی فروش موشک‌های ضدهوایی به ایران هستند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119975
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رونگ هوان»، فعال رسانه‌ای و تحلیلگر سیاسی چینی، تأکید کرد که پکن مناسب‌ترین و توانمندترین طرف برای ایفای نقش میانجیگری فعال بین واشنگتن و تهران است
+
+
+🔴 او اشاره کرد که بهبود روابط چین و آمریکا در ماه‌های اخیر، افق‌های جدیدی را برای ترغیب دو طرف به بازگشت به میز مذاکرات مستقیم گشوده است.
+
+🔴 این تحلیلگر سیاسی توضیح داد که منطقه در وضعیت تنش‌آفرینی متقابلی به سر می‌برد که نیازمند ابتکاری از سوی چین است تا نردبان کاهش تنش را فراهم آورد که آبروی هر دو طرف حفظ شود و به وضعیت بی‌ثباتی که به ضرر منافع همگان است، پایان دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119974
 
@@ -171,32 +193,6 @@
 👈عارف: به هیچ قیمتی تنگۀ هرمز را از دست نخواهیم داد
 
 🔴اصلا تنگۀ هرمز مال ماست؛ ملک ما بوده حالا مدتی از ملکمان خوب استفاده نمی‌کردیم.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119945
-
-<div align="center"><video src="telegram/content/alonews_119945.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119945.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترور هدفمند در جنوب لبنان
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119944
-
-<div align="center"><video src="telegram/content/alonews_119944.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119944.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈بنیامین نتانیاهو: همان‌طور که یک متفکر زمانی گفت، به‌ویژه در روسیه، او گفت: «دولت اسرائیل یک ابرقدرت کوچک است، اما ابرقدرت است.»
-
-🔴 ما قرار است به یک ابرقدرت بزرگ جهانی تبدیل شویم
 
 ✅ @AloNews خبر جنگ
 </div>
