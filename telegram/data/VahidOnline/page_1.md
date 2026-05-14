@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOnline - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 01:32
+📅 آخرین بروزرسانی: 1405/02/24 08:49
 
 ---
+
+## VahidOnline — post 75455
+
+<div align="center"><video src="telegram/content/VahidOnline_75455.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/VahidOnline_75455.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری مهر پرچم حزب‌الله را در ویدیوی مربوط به بدرقه فوتبالیست‌ها سانسور کرد.
+FattahiFarzad
+اعضای تیم فوتبال چهارشنبه‌شب ۲۳ اردیبهشت‌ماه در میدان انقلاب تهران برای حضور در جام جهانی ۲۰۲۶ بدرقه شدند؛ رقابت‌هایی که خرداد و تیر ۱۴۰۵ به میزبانی مشترک آمریکا، مکزیک و کانادا برگزار خواهد شد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
 
 ## VahidOnline — post 75454
 

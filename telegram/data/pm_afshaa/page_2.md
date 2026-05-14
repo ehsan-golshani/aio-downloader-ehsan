@@ -1,8 +1,17 @@
 # آرشیو کانال pm_afshaa - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 04:56
+📅 آخرین بروزرسانی: 1405/02/24 08:47
 
 ---
+
+## pm_afshaa — post 90691
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امارات در حال ساخت قفس‌های ضدپهپادی اطراف مراکز مهم و نفتی خودشه و داره برای جنگ آماده میشه.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90689
 
