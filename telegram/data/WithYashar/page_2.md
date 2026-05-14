@@ -1,8 +1,19 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 02:45
+📅 آخرین بروزرسانی: 1405/02/24 04:54
 
 ---
+
+## WithYashar — post 11158
+
+<div align="center"><video src="telegram/content/WithYashar_11158.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11158.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب چین 😂
+@withyashar
+</div>
 
 ## WithYashar — post 11157
 

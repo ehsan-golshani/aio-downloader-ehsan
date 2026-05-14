@@ -1,8 +1,19 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 02:45
+📅 آخرین بروزرسانی: 1405/02/24 04:54
 
 ---
+
+## WithYashar — post 11178
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مارکو روبیو تایید کرد چین و آمریکا به توافق رسیدن که ایران نباید تو تنگه عوارض بگیره از کشوری
+
+این «توافق» فعلاً در حد موضع مشترک سیاسی و دیپلماتیک گزارش شده، نه یک پیمان رسمی یا قطعنامه بین‌المللی.
+چین هنوز در بسیاری از موضوعات از ایران فاصله نگرفته و حتی در شورای امنیت بعضی قطعنامه‌های ضد ایران را وتو کرده است.
+دلیل حساسیت موضوع این است که حدود یک‌پنجم نفت جهان از تنگه هرمز عبور می‌کند و هرگونه عوارض یا محدودیت می‌تواند قیمت جهانی انرژی را به شدت تحت تأثیر قرار دهد
+@withyashar
+</div>
 
 ## WithYashar — post 11177
 
@@ -132,17 +143,6 @@ https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شکست هفتمین رأی‌گیری سنای امریکا برای پایان جنگ علیه ایران
-@withyashar
-</div>
-
-## WithYashar — post 11158
-
-<div align="center"><video src="telegram/content/WithYashar_11158.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11158.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب چین 😂
 @withyashar
 </div>
 
