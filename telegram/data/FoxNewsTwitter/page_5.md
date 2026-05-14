@@ -1,8 +1,26 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/25 00:22
+📅 آخرین بروزرسانی: 1405/02/25 01:10
 
 ---
+
+## FoxNewsTwitter — post 341665
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341665.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341665.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST IN: Vice President JD Vance reveals how fraudulent healthcare providers are taking advantage of patients and exploiting the American taxpayer:
+
+"You have people who've been prescribed medications that they don't even need.
+
+“Sometimes they've had drugs put into their bodies that they don't need because fraudsters have actually encouraged false prescriptions and false administration to medications.”
+
+“It's a defrauding of the American taxpayer, but it's a violation of the trust that should exist between every American and the people who prescribe the medications."
+</div>
 
 ## FoxNewsTwitter — post 341664
 

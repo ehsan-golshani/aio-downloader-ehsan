@@ -1,8 +1,46 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 00:21
+📅 آخرین بروزرسانی: 1405/02/25 01:09
 
 ---
+
+## WithYashar — post 11250
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فاکس نیوز : تو سفر ترامپ، بین مأموران سرویس مخفی آمریکا و پلیس چین، تنش ایجاد شده و درگیری لفظی و حتی فیزیکی هم پیش اومده.
+@withyashar
+</div>
+
+## WithYashar — post 11249
+
+<div align="center"><img src="telegram/content/WithYashar_11249.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کت کش ها در مراسم اربعین کتلت سرلشکر سیدعبدالرحیم موسوی در قم
+@withyashar
+</div>
+
+## WithYashar — post 11248
+
+<div align="center"><video src="telegram/content/WithYashar_11248.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11248.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏ترامپ به دلیل مرگ برادر بزرگترش که بر اثر نوشیدن الکل جانش را از دست داد ،مشروب نمیخوره ،ولی اینجا جرعه‌ای از آن را مینوشه و به نشانه احترام به رئیس جمهور شی جین پینگ
+‏ولی داشت بالا می‌آورد
+@withyashar
+</div>
+
+## WithYashar — post 11247
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارش‌های امروز، هرتزوگ رئیس جمهور اسرائیل حضور حضوری خود در نیویورک را لغو کرده و گفته به دلیل «شرایطی که مانع سفر شده» نمی‌تواند به آمریکا بیاید.
+اما این سفر یک سفر رسمی سیاسی به کاخ سفید نبود،بلکه مربوط به شرکت او در مراسم فارغ‌التحصیلی «Jewish Theological Seminary» در نیویورک بود.
+
+در عین حال، خبر جداگانه‌ای هم درباره سفر احتمالی بنیامین ناتانیاهو به آمریکا وجود داشت که دفتر او گفته بود هنوز برنامه قطعی‌ای برایش نهایی نشده است
+@withyashar
+</div>
 
 ## WithYashar — post 11246
 
@@ -135,26 +173,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Voice message
-</div>
-
-## WithYashar — post 11229
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«دریادار برد کوپر»، فرمانده سنتکام: «فرماندهی مرکزی ایالات متحده (سنتکام) مستقیماً در پاسخ به تهدیدهایی که جمهوری اسلامی ایران ایجاد می‌کرد، تأسیس شد. رژیم ایران طی ۴۷ سال گذشته منطقه را دچار هراس و بی‌ثباتی کرده و دشمنی با آمریکا را به یکی از اصول اساسی…
-</div>
-
-## WithYashar — post 11228
-
-## WithYashar — post 11227
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خسته نباشی یاشار
-نظرت راجب سیم‌کارت پرو چیه به مردم عادی هم دارن میدن الان
-</div>
-
-## WithYashar — post 11226
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لطفا عکس از اس ام اس هایی که رژیم میده برام نفرستید ! خیلی خوشم میاد ! اگه قرار‌باشه هر روز اونا اس ام اس بدن شمام همتون اسکرین بفرستین که نمیشه ! به هیچ عنوان اسکرین ندید دیگه مخصوصا ‌جانفدا رو … مرسی اه
 </div>
 

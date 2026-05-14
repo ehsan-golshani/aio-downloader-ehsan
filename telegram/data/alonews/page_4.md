@@ -1,8 +1,36 @@
 # آرشیو کانال alonews - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 00:39
+📅 آخرین بروزرسانی: 1405/02/25 01:27
 
 ---
+
+## alonews — post 119962
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈میدل ایست نیوز : پارلمان عراق به برنامه دولت علی الزیدی رای داد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119961
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ : رئیس‌جمهور شی علاقه‌منده که درباره ایران به توافق برسه، اون گفت : اگه بتونم کمکی بکنم، حاضرم کمک کنم ✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119960
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈هانیتی از فاکس: آیا درباره حمایت چین از ایران با شی صحبت کردید؟ 🔴 ترامپ: او گفت که تجهیزات نظامی نخواهد داد. این یک بیانیه بزرگ است. 🔴 اما در عین حال، گفت که آنها مقدار زیادی نفت از آنجا می‌خرند و دوست دارند این کار را ادامه دهند. ✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119959
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مارکو روبیو: نیروهای مسلح اوکراین در حال حاضر قوی ترین و قدرتمندترین نیروهای مسلح در تمام اروپا هستند.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119958
 
@@ -171,62 +199,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈وزرای خارجه روسیه و ایران در دهلی‌نو دیدار کردند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119926
-
-<div align="center"><video src="telegram/content/alonews_119926.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119926.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رئیس جمهور چین شی جین پینگ:
-هم چین و هم ایالات متحده از همکاری سود می برند و از رویارویی شکست می خورند.
-
-
-🔴دو کشور ما باید شریک باشند نه رقیب.‌‌
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119925
-
-<div align="center"><video src="telegram/content/alonews_119925.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119925.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت امور خارجه هند اعلام کرد که یه کشتی با پرچم هند در سواحل عمان مورد حمله قرار گرفته.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119924
-
-<div align="center"><video src="telegram/content/alonews_119924.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119924.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈یسرائیل کاتز، وزیر دفاع اسرائیل درباره ایران: ماموریت ما کامل نشده؛ ما برای احتمال اینکه ممکنه مجبور شیم دوباره اقدام کنیم، شاید حتی «بزودی» آماده‌ایم. گر اهدافمون تأمین نشن، دوباره اقدام خواهیم کرد.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119923
-
-<div align="center"><video src="telegram/content/alonews_119923.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119923.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ توی چین یه جوری رفتار میکنه انگار اون میزبانه و رئیس جمهور چین اومده آمریکا.
-
 
 ✅ @AloNews خبر جنگ
 </div>

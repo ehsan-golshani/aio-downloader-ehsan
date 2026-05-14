@@ -1,8 +1,39 @@
 # آرشیو کانال WithYashar - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/25 00:21
+📅 آخرین بروزرسانی: 1405/02/25 01:09
 
 ---
+
+## WithYashar — post 11208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزیر خزانه‌داری آمریکا:
+تأسیسات اصلی بارگیری نفت ایران به مدت ۳ روز است از سرویس خارج شده است
+@withyashar
+</div>
+
+## WithYashar — post 11207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرنگار صداوسیما به نقل از نیروی دریایی سپاه: از شب گذشته تاکنون ۳۰ فروند کشتی از تنگه هرمز با مجوز ایران عبور کرده‌اند
+@withyashar
+</div>
+
+## WithYashar — post 11206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شی جین‌پینگ: چین و ایالات متحده هر دو از همکاری سود می‌برند و از تقابل زیان می‌بینند.
+
+دو کشور ما باید شریک باشند نه رقیب.
+@withyashar
+</div>
+
+## WithYashar — post 11205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ از رئیس‌جمهور چین برای سفر به ایالات متحده در ماه سپتامبر آینده دعوت کرد
+@withyashar
+</div>
 
 ## WithYashar — post 11204
 
@@ -125,39 +156,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فاکس نیوز با حیرت : داداش بزرگه نگات میکنه ، لبخند بزنید شما با دوربین ها رصد میشوید
 خبرنگار فاکس‌نیوز گزارش داد که خودروی آن‌ها در چین تنها دو دقیقه در محدوده «توقف ممنوع» پکن ایستاد و بلافاصله پیامک جریمه ۴۰ دلاری برای راننده صادر شد. به گفته او، در این کشور دوربین‌های نظارتی همه‌جا فعال هستند و تخلفات رانندگی در لحظه ثبت و اعمال می‌شود.
-@withyashar
-</div>
-
-## WithYashar — post 11188
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هند: حمله به یک کشتی ما در نزدیکی
-سواحل عمان غیرقابل قبول است
-
-یک کشتی هندی توسط افراد ناشناس دزدیده شده و به سمت ایران اسکورت میشود
-@withyashar
-</div>
-
-## WithYashar — post 11187
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس داده ها , شرکت تتر مبلغ 344 میلیون دلار USDT مرتبط با بانک مرکزی ایران رو فریز کرده و دلیلش هم بخاطر دور زدن تحریم‌ها بوده که شرکت آرکهام کیف پول‌های مرتبط رو شناسایی کرده
-@withyashar
-</div>
-
-## WithYashar — post 11186
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسنیم: کیفرخواست زیباکلام و مدیرمسئول خبرگزاری آنا صادر شد ممنوعیت زیباکلام از انجام هرگونه فعالیت رسانه‌ای به مدت سه ماه صادر شده
-@withyashar
-</div>
-
-## WithYashar — post 11185
-
-<div align="center"><img src="telegram/content/WithYashar_11185.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقایقی پیش زمین‌لرزه‌ای بسیار شدید ۵ ریشتری در عمق ۸ کیلومتری بردسیر کرمان را لرزاند
 @withyashar
 </div>
 

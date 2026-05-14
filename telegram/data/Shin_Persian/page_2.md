@@ -1,8 +1,31 @@
 # آرشیو کانال Shin_Persian - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 16:00
+📅 آخرین بروزرسانی: 1405/02/25 01:16
 
 ---
+
+## Shin_Persian — post 5980
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Tue, 12 May 2026 21:00:34 UTC
+
+Another earthquake shook Tehran just now
+
+فارسی
+
+همین الان زلزله دیگری تهران را لرزاند
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5979
+
+<div align="center"><img src="telegram/content/Shin_Persian_5979.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn Tue, 12 May 2026 20:25:23 UTC President Trump @POTUS: "When the Fake News says that the Iranian enemy is doing well, Militarily, against us, it’s virtual TREASON in that it is such a false, and even preposterous, statement. They are…
+</div>
 
 ## Shin_Persian — post 5978
 

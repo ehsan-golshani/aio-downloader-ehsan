@@ -1,8 +1,32 @@
 # آرشیو کانال WithYashar - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/25 00:21
+📅 آخرین بروزرسانی: 1405/02/25 01:09
 
 ---
+
+## WithYashar — post 11168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کامنتم زیر پست ترامپ
+
+https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
+بترکونینننن 💥🙌🏾حملههههه
+</div>
+
+## WithYashar — post 11167
+
+<div align="center"><video src="telegram/content/WithYashar_11167.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11167.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لحظه استقبال از دونالد ترامپ در پکن، چین
+@withyashar
+</div>
+
+## WithYashar — post 11166
+
+## WithYashar — post 11165
 
 ## WithYashar — post 11164
 

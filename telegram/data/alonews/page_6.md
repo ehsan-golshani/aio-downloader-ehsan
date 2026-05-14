@@ -1,8 +1,52 @@
 # آرشیو کانال alonews - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/25 00:39
+📅 آخرین بروزرسانی: 1405/02/25 01:27
 
 ---
+
+## alonews — post 119906
+
+<div align="center"><img src="telegram/content/alonews_119906.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈طی ۲۴ ساعت گذشته بزرگترین حملات پهپادی ثبت شده تا امروز از سوی روسیه علیه اوکراین با بیش از ۱۴۰۰ فروند پهپاد انتحاری ثبت شده است.
+
+🔴همچنین بیش از پنجاه تیر موشک نیز شلیک شده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119905
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پاپ لئو افزایش هزینه‌های نظامی در اروپا به بالاترین سطح از پایان جنگ سرد را خیانت به دیپلماسی دانست و افزود که جهان در حال معلول شدن بر اثر جنگ‌ها است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119904
+
+<div align="center"><video src="telegram/content/alonews_119904.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119904.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سناتور گراهام درباره حمایت چین از ایران: اگر آنها تغییر کنند، چین پاداش خواهد گرفت.
+
+🔴اگر تغییر نکنند، مجازات خواهند شد!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119903
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈آکسیوس به نقل از مقامات آمریکایی: یکی از گزینه‌های ترامپ در مورد ایران پس از بازگشت از چین، از سرگیری عملیات آزادی در تنگه هرمز است
+
+🔴یکی دیگر از گزینه‌های ترامپ، راه‌اندازی یک کمپین بمباران جدید با تمرکز بر زیرساخت‌های ایران است
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119902
 
@@ -154,47 +198,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈وزارت خارجه چین: پکن و واشنگتن بر سر جهت‌گیری جدید روابط توافق کردند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119872
-
-<div align="center"><img src="telegram/content/alonews_119872.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت امور خارجه هند اعلام کرد که یک کشتی با پرچم هند در سواحل عمان دیروز مورد حمله قرار گرفت، این حادثه را «غیرقابل قبول» دانست و نگرانی خود را از هدف قرار گرفتن مداوم کشتی‌های تجاری و دریانوردان غیرنظامی ابراز کرد.
-
-🔴 دهلی نو تأیید کرد که همه اعضای خدمه هندی حاضر در کشتی در امنیت هستند و از مقامات عمانی برای انجام عملیات نجات تشکر کرد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تسنیم: کیفرخواست زیباکلام و مدیرمسئول خبرگزاری آنا صادر شد ممنوعیت زیباکلام از انجام هرگونه فعالیت رسانه‌ای به مدت سه ماه صادر شده
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119870
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جهت رزرو تبلیغات vpn در کانال #الونیوز به کانال زیر مراجعه کنید👇
-
-📃https://t.me/ads_alonews
-📃https://t.me/ads_alonews
-</div>
-
-## alonews — post 119868
-
-<div align="center"><img src="telegram/content/alonews_119868.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تورم تخم مرغی!
-
-🔴با ۵۰۰ هزارتومان(هزینه هر شانه تخم مرغ در این ماه) در ماه های مختلف چند شانه تخم مرغ می‌توان خرید؟
 
 ✅ @AloNews خبر جنگ
 </div>

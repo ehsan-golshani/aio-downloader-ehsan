@@ -1,8 +1,15 @@
 # آرشیو کانال FarsiVOA - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/25 00:31
+📅 آخرین بروزرسانی: 1405/02/25 01:20
 
 ---
+
+## FarsiVOA — post 217663
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️علی جوانمردی: جایگاە چین در بحران ایران و احتمال توافق
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217662
 

@@ -1,8 +1,28 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 00:22
+📅 آخرین بروزرسانی: 1405/02/25 01:10
 
 ---
+
+## FoxNewsTwitter — post 341754
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341754.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341754.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump tells @seanhannity that Chinese President Xi Jinping offered to assist the U.S. in negotiating with Iran to reopen the Strait of Hormuz.
+
+Trump notes that China’s significant oil interests play a major role in its desire to keep the critical waterway open and stable.
+
+“President Xi would like to see a deal made. He would like to see a deal made. And he did offer, he said, ‘If I can be of any help at all, I would like to be of help.’”
+
+"He said 'If I could be of any help whatsoever, I would like to help.'"
+
+The full interview airs tonight at 9 p.m. ET on 'Hannity.'
+</div>
 
 ## FoxNewsTwitter — post 341753
 
@@ -282,19 +302,5 @@ Fox News (Twitter/X)
 NEW: Iran has reportedly seized a ship off the coast of the UAE, ramping up tensions in the region as disputes grow over alleged attacks and a denied Netanyahu visit.
 
 U.S. officials say talks with the Iranian regime have made some progress but remain uncertain, with Iran signaling it’s ready for either diplomacy or conflict, @TreyYingst reports.
-</div>
-
-## FoxNewsTwitter — post 341734
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341734.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: Spencer Pratt is suddenly within single digits of L.A. Mayor Karen Bass, with new polling showing the former reality TV star and independent candidate gaining 12 points since March.
-
-The Emerson poll has Bass at 30%, Pratt at 22%, and socialist-linked Nithya Raman at 19%
-
-Pratt’s campaign is leaning hard into L.A.’s homelessness crisis, using sharp social media and attention-grabbing ads to turn a long-shot bid into a race people are now watching.
 </div>
 

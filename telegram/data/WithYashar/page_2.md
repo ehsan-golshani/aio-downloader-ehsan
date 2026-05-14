@@ -1,8 +1,29 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 00:21
+📅 آخرین بروزرسانی: 1405/02/25 01:09
 
 ---
+
+## WithYashar — post 11229
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«دریادار برد کوپر»، فرمانده سنتکام: «فرماندهی مرکزی ایالات متحده (سنتکام) مستقیماً در پاسخ به تهدیدهایی که جمهوری اسلامی ایران ایجاد می‌کرد، تأسیس شد. رژیم ایران طی ۴۷ سال گذشته منطقه را دچار هراس و بی‌ثباتی کرده و دشمنی با آمریکا را به یکی از اصول اساسی…
+</div>
+
+## WithYashar — post 11228
+
+## WithYashar — post 11227
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خسته نباشی یاشار
+نظرت راجب سیم‌کارت پرو چیه به مردم عادی هم دارن میدن الان
+</div>
+
+## WithYashar — post 11226
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لطفا عکس از اس ام اس هایی که رژیم میده برام نفرستید ! خیلی خوشم میاد ! اگه قرار‌باشه هر روز اونا اس ام اس بدن شمام همتون اسکرین بفرستین که نمیشه ! به هیچ عنوان اسکرین ندید دیگه مخصوصا ‌جانفدا رو … مرسی اه
+</div>
 
 ## WithYashar — post 11225
 
@@ -166,37 +187,6 @@ INDOPACOM، فرماندهی نظامی آمریکا برای منطقهٔ «ه�
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ایلان لوله لول سر میز شمام 😂
-@withyashar
-</div>
-
-## WithYashar — post 11208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر خزانه‌داری آمریکا:
-تأسیسات اصلی بارگیری نفت ایران به مدت ۳ روز است از سرویس خارج شده است
-@withyashar
-</div>
-
-## WithYashar — post 11207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرنگار صداوسیما به نقل از نیروی دریایی سپاه: از شب گذشته تاکنون ۳۰ فروند کشتی از تنگه هرمز با مجوز ایران عبور کرده‌اند
-@withyashar
-</div>
-
-## WithYashar — post 11206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شی جین‌پینگ: چین و ایالات متحده هر دو از همکاری سود می‌برند و از تقابل زیان می‌بینند.
-
-دو کشور ما باید شریک باشند نه رقیب.
-@withyashar
-</div>
-
-## WithYashar — post 11205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ از رئیس‌جمهور چین برای سفر به ایالات متحده در ماه سپتامبر آینده دعوت کرد
 @withyashar
 </div>
 
