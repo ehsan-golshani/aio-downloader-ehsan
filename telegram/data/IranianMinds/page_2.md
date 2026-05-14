@@ -1,8 +1,60 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 11:53
+📅 آخرین بروزرسانی: 1405/02/24 14:23
 
 ---
+
+## IranianMinds — post 20093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 وزیر خارجه سوریه :
+
+میخوایم روابطمون با داداشیمون اسرائیل رو قوی تر کنیم و به حاکمیت هم احترام بزاریم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20092
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 گوگل رسما اعلام کرد در جام جهانی اسپانسری تیم های ملی عراق و مراکش رو گرفته و تمامی هزینه های این تیم هارو‌ میده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 عراقچی :
+
+هرکسی بخواد با ما دشمنی کنه و با اسرائیل تبانی کنه بد پشیمون میشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20090
+
+<div align="center"><img src="telegram/content/IranianMinds_20090.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+املت هم‌ تو‌ این مملکت قسطی شد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20089
+
+<div align="center"><video src="telegram/content/IranianMinds_20089.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20089.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 مهدی تاج رئیس فدراسیون فوتبال :
+
+معین قراره برای تیم ملی یه آهنگ بخونه !
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20088
 

@@ -1,8 +1,72 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 11:53
+📅 آخرین بروزرسانی: 1405/02/24 14:23
 
 ---
+
+## IranianMinds — post 20115
+
+<div align="center"><img src="telegram/content/IranianMinds_20115.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💔
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20114
+
+<div align="center"><video src="telegram/content/IranianMinds_20114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 وزیر دارایی اسرائیل:
+
+فکر می‌کنم در همین دوره، عملا داریم ایده تشکیل کشور فلسطین را کاملا از بین میبریم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20113
+
+<div align="center"><video src="telegram/content/IranianMinds_20113.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20113.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 جان بولتون:
+
+مذاکره برای توافق هسته ‌ای با ایران، هدر دادن وقته.
+
+این ‌ها دهه ‌ها پیش تصمیم راهبردی ‌شان را برای رسیدن به سلاح هسته‌ای گرفته‌اند.
+
+در این ۴۷ سال اخیر حتی یک مدرک هم وجود نداشته که نشان بدهد از این هدف ساخت سلاح هسته ای عقب کشیده‌ اند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20112
+
+<div align="center"><video src="telegram/content/IranianMinds_20112.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20112.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نتانیاهو:
+
+همون ‌طور که یه متفکری یه بار فکر کنم تو روسیه بود بهم گفت اسرائیل یه ابرقدرت کوچیکه، ولی بازم ابرقدرته.
+
+ما قراره به یه ابرقدرت بزرگ و جهانی تبدیل بشیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20111
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 مهدی تاج رئیس فدراسیون فوتبال : معین قراره برای تیم ملی یه آهنگ بخونه ! @IranianMinds
+</div>
 
 ## IranianMinds — post 20110
 
@@ -222,57 +286,5 @@ ae23
 🎯همین حالا عضو شو و شروع کن👇
 https://t.me/+OS-QBvyDO4M2ZGY0
 https://t.me/+OS-QBvyDO4M2ZGY0
-</div>
-
-## IranianMinds — post 20093
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وزیر خارجه سوریه :
-
-میخوایم روابطمون با داداشیمون اسرائیل رو قوی تر کنیم و به حاکمیت هم احترام بزاریم
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20092
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 گوگل رسما اعلام کرد در جام جهانی اسپانسری تیم های ملی عراق و مراکش رو گرفته و تمامی هزینه های این تیم هارو‌ میده.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عراقچی :
-
-هرکسی بخواد با ما دشمنی کنه و با اسرائیل تبانی کنه بد پشیمون میشه
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20090
-
-<div align="center"><img src="telegram/content/IranianMinds_20090.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-املت هم‌ تو‌ این مملکت قسطی شد
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20089
-
-<div align="center"><video src="telegram/content/IranianMinds_20089.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20089.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مهدی تاج رئیس فدراسیون فوتبال :
-
-معین قراره برای تیم ملی یه آهنگ بخونه !
-
-@IranianMinds
 </div>
 
