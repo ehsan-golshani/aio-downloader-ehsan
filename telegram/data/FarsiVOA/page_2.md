@@ -1,8 +1,80 @@
 # آرشیو کانال FarsiVOA - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 14:20
+📅 آخرین بروزرسانی: 1405/02/24 16:03
 
 ---
+
+## FarsiVOA — post 217696
+
+<div align="center"><video src="telegram/content/FarsiVOA_217696.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217696.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گزارش فرهاد فلاحی از چین؛ واشنگتن از پکن در ارتباط با جمهوری اسلامی چه می‌خواهد؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217695
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️مردم درباره سفر پرزيدنت ترامپ به چین چه می‌گویند؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217694
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گفت‌وگو با مسعود کاظم‌زاده و ابراهیم روشندل درباره انتظارات از سفر رئيس جمهوری آمریکا به چین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217693
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️راهبرد چین در خلیج فارس؛ انرژی حرف اول را می‌زند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217692
+
+<div align="center"><video src="telegram/content/FarsiVOA_217692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️چه توقعات اقتصادی می‌توان از سفر دونالد ترامپ به چین داشت؟ گفت‌وگو با نادر حبیبی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217691
+
+<div align="center"><video src="telegram/content/FarsiVOA_217691.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217691.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گزارش خبرنگار اعزامی صدای آمریکا از سفر رئیس جمهوری آمریکا به چین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217690
+
+<div align="center"><video src="telegram/content/FarsiVOA_217690.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217690.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️سخنان آغازین دونالد ترامپ، رئیس جمهوری آمریکا در دیدار با رئیس جمهوری چین پس از مراسم استقبال رسمی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217689
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️آیا چین اراده و قدرت این را دارد که جمهوری اسلامی را وادار کند از ناامن‌سازی تنگه هرمز دست بر دارد؟
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217688
 
@@ -95,92 +167,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️آنچه دولت علی الزیدی برای عراق به ارمغان نمی‌آورد؟
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217676
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺مارکو روبیو: امیدواریم چین در واداشتن جمهوری اسلامی به اتمام بی‌ثبات‌سازی خلیج فارس نقش فعال‌تری ایفا کند
-
-▪️مارکو روبیو، وزیر امور خارجه آمریکا، در یک گفت‌وگوی اختصاصی با شان هنیتی از شبکه فاکس‌نیوز درباره تلاش‌ها برای وادار کردن چین به برخورد با جمهوری اسلامی ایران در ارتباط با اقداماتش در خلیج فارس توضیح داد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149668.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217675
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺آمریکا سپرده ضمانت ویزا برای اعضای واجد شرایط تیم‌های شرکت‌کننده در «جام جهانی» و برخی هواداران را لغو کرد
-
-▪️ایالات متحده می‌گوید سپرده ضمانت ویزا برای اعضای واجد شرایط تیم‌ها و برخی هواداران تیم‌ها لغو کرده است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149664.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217674
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺مایک والتز: جمهوری اسلامی در انجام اقدامات غیرقانونی خود منزوی است
-
-▪️مایک والتز، سفیر آمریکا در سازمان ملل متحد، فهرستی از ۱۱۳ کشور را بازنشر کرد که پیش‌نویس قطعنامه شورای امنیت سازمان ملل که جمهوری اسلامی را به دلیل بستن تنگه هرمز محکوم می‌کند،‌ امضا کرده‌اند.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149663.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺امارات «گزارش‌ها درباره سفر نخست‌وزیر اسرائیل» را تکذیب کرد
-
-▪️وزارت امور خارجه امارات در بیانیه‌ای «گزارش‌های منتشرشده درباره سفر ادعایی بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به امارات یا پذیرش هرگونه هیئت نظامی اسرائیلی در این کشور را» تکذیب کرد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149657.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217672
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺وزارت خارجه آمریکا: واشنگتن آماده «کمک مستقیم» ۱۰۰میلیون دلاری به مردم کوبا است
-
-▪️وزارت خارجه آمریکا روز چهارشنبه در بیانیه‌ای گفت که واشنگتن آماده است ۱۰۰ میلیون دلار به‌طور مستقیم به مردم کوبا کمک کند.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149655.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217671
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺نگاهی به دیدار‌های گذشته دونالد ترامپ با شی جین‌پینگ
-
-▪️سفر دونالد ترامپ، رئیس‌جمهوری آمریکا، به پکن و دیدارهای پیش‌روی او با شی جین‌پینگ، رئیس‌جمهوری چین، یکی از تیترهای مهم خبری روزهای اخیر در رسانه‌ها و جراید معتبر جهان در چند روز اخیر بوده است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149652.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217670
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️بررسی پوشش اخبار درگیری نظامی با جمهوری اسلامی در رسانه‌های غربی
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217669
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️حملە امارات و عربستان بە جمهوری اسلامی و سفر مخفیانە نخست وزیر اسرائیل بە امارات
 @FarsiVOA
 </div>
 

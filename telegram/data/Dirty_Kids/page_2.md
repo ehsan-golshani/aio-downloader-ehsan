@@ -1,8 +1,97 @@
 # آرشیو کانال Dirty_Kids - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 14:25
+📅 آخرین بروزرسانی: 1405/02/24 16:08
 
 ---
+
+## Dirty_Kids — post 389413
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389413.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389412
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زینب موشک دوست🤣🤣🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389411
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگ انیمیشن‌های لگویی وارد فاز جدیدی شد!
+
+لگوی شاه عالیه فقط! 👏🤩
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389410
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389410.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درسته مکرون جلوی چشم دنیا چک خورد،
+ولی مدال طلای واکنش به لو رفتن چت عاشقانه،
+میرسه به زن ایرانی‌ای که وسط پرواز از خوابِ شوهرش استفاده کرد، با انگشتش گوشی رو باز کرد،
+با دیدن پیامای عاشقانه،
+چنان قشقرقی بپاکرد که هواپیما فرود اضطراری کرد تو هند 😭✈️
+بدون چمدون پیاده‌شون کردن🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389409
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389409.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانی بودن یعنی traumatized شدن با هر چیز ساده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389407
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389407.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دوست دختر جدید پوبون (رپر) از روی یه پُل تو مکزیک افتاده پایین و گویا کمر و گردنش شکسته؛
+
+پوبون هم استوریش کرده و از مردم خواسته که پول دونیت کنن تا هزینه عملش دربیاد...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من دیگه اگه بگن قراره یه ابر بزرگ بیاد رو آسمون ایران ازش کیر بباره تعجب نمیکنم.
+
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389405
 
@@ -162,96 +251,6 @@
 بهمن محصص ۱۳ سال پیش گلشیفته رو اینجوری توصیف کرد...
 
 چقد فحش خورد اون روزا
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x 
-✖️  
-👍دارای مجوز رسمی Gambling Judge سوئد
-👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    
-3️⃣
-2️⃣ 
-🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
-</div>
-
-## Dirty_Kids — post 389389
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389389.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x 
-✖️
-
- 
-👍دارای مجوز رسمی Gambling Judge سوئد
-👍
-     
-💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
-💳تسویه حساب دلاری سریع
-💊بیمه شرط میکس
-⚠️فروش شرط
-🔔ویرایش شرط                    
-3️⃣
-2️⃣
-
-
-🎁20%هدیه واریز از طریق ارز و ووچر
-┅━━━━━━━━━━━
-
-🎁 10%برگشت باخت به صورت روزانه
-
-🎁 10%برگشت باخت به صورت هفتگی
-
-🎁10%برگشت باخت به صورت ماهانه
-💻ادرس ورود به سایت:
-https://bet120x.com/fa/?btag=971470
-➖➖➖➖➖
-   👈 آموزش واریز و برداشت دلاری
-👉
-
-🔪کانال اطلاع رسانی:👇
-✈️https://t.me/+1Wv5nGY_a54xNzlk
-</div>
-
-## Dirty_Kids — post 389388
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-و همچنان گلی در حال درخشیدنه
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389387
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389387.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آلیس روزنبلوم ستاره اونلی فنز 2 میلیون دلار(360 میلیارد) از طرفدار درجه یکش دریافت کرد تا باهاش ملاقات کنه.
-
-طرفداراش وقتی آلیس رو دیده گفته هر روز ۳ بار باهاش خودارضایی می‌کرده!
-وقتی طرفدارش خواسته به بازوی آلیس دست بزنه، آلیس گفته به من دست نزن، تو خیلی چندش آوری! فورا از من دور شو وگرنه به پلیس زنگ میزنم.
-اون جقی بدبختم ۳۶۰ میلیاردش بگا میره و دست از پا دراز تر برمیگرده خونه.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389383
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389383.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ببخشید من متوجه نشدم تو این مثلث عشقی فاعل کیه؟
 
 
 @Dirty_Kids 👻

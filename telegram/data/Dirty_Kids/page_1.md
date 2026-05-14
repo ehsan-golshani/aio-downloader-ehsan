@@ -1,8 +1,115 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 14:25
+📅 آخرین بروزرسانی: 1405/02/24 16:08
 
 ---
+
+## Dirty_Kids — post 389437
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389437.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ تو چین یه جور داره رفتار میکنه که انگار اون میزبانه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389436
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این چه سمی بود دیدم 😂🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389435
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389435.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقیقا وقتی فکر می‌کنی جمهوری اسلامی تپه نریده باقی نذاشته، همون لحظه یه تپه جدید می‌سازه و میره سرش میرینه.
+فقط مونده بود برن از امارات کشتی بدزدن فرار کنن، که اونم گویا حاصل شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389434
+
+<div align="center"><a href="telegram/content/derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+😀Telegram Channel👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389433
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389433.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سختی زبان چینی همینقدر بگم که اگه یکم تن صداتو بالا پایین کنی معنی کلمه از توت‌فرنگی به خوارتو گاییدم تغییر می‌کنه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389431
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389431.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389431.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شراب چینی ایلان ماسکو کصخل کرده، هر کی میاد باهاش عکس بگیره شکلک در میاره 😂
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389430
 
@@ -184,94 +291,5 @@ A23
 اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
 ✅https://t.me/+4_ADqwB9e-QwYjlk
 ✅https://t.me/+4_ADqwB9e-QwYjlk
-</div>
-
-## Dirty_Kids — post 389413
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389413.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#بخوابیم
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389412
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زینب موشک دوست🤣🤣🤣
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389411
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ انیمیشن‌های لگویی وارد فاز جدیدی شد!
-
-لگوی شاه عالیه فقط! 👏🤩
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389410
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389410.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درسته مکرون جلوی چشم دنیا چک خورد،
-ولی مدال طلای واکنش به لو رفتن چت عاشقانه،
-میرسه به زن ایرانی‌ای که وسط پرواز از خوابِ شوهرش استفاده کرد، با انگشتش گوشی رو باز کرد،
-با دیدن پیامای عاشقانه،
-چنان قشقرقی بپاکرد که هواپیما فرود اضطراری کرد تو هند 😭✈️
-بدون چمدون پیاده‌شون کردن🤣
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389409
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389409.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانی بودن یعنی traumatized شدن با هر چیز ساده.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389407
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389407.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دوست دختر جدید پوبون (رپر) از روی یه پُل تو مکزیک افتاده پایین و گویا کمر و گردنش شکسته؛
-
-پوبون هم استوریش کرده و از مردم خواسته که پول دونیت کنن تا هزینه عملش دربیاد...
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389406
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من دیگه اگه بگن قراره یه ابر بزرگ بیاد رو آسمون ایران ازش کیر بباره تعجب نمیکنم.
-
-
-
-@Dirty_Kids 👻
 </div>
 

@@ -1,8 +1,72 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/24 14:21
+📅 آخرین بروزرسانی: 1405/02/24 16:04
 
 ---
+
+## Persian_Trend_Official — post 14073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فایل صوتی لایو اول
+نسخه کم حجم - 5.1 مگابایت
+
+اتاق جنگ چهارشنبه ۲۳ اردیبهشت | جمهوری اسلامی ناو آمریکایی را تهدید به حمله کرد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14072
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14072.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴چت جی پی تی وارد پرونده قتل شد!
+
+💢رسانه‌های کره جنوبی گزارش دادن زنی متهم شده قبل از مسموم کردن چند نفر، از ChatGPT درباره ترکیب الکل و قرص خواب‌آور سؤال کرده
+
+💢طبق گزارش‌ها، این زن پرسیده بوده:
+اگه الکل و داروی خواب‌آور باهم مصرف بشن چی میشه؟
+چه دوزی خطرناکه؟
+و آیا ممکنه باعث مرگ بشه؟
+پلیس میگه بعد از همین جستجوها، به سه مرد نوشیدنی آلوده داده شده که دو نفرشون جونشونو از دست دادن 💀
+
+💢حالا نکته عجیب‌تر:
+دادگاه از گفتگوهای ChatGPT به‌عنوان مدرک برای اثبات «نیت قتل» استفاده کرده!
+
+💢وکیل پرونده گفته این شاید یکی از اولین پرونده‌هاییه که چت‌های AI به‌عنوان شاهد مستقیم تو پرونده قتل پذیرفته میشن..
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14071
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14071.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دفتر نخست وزیر اسرائیل :
+
+💢در حين عملیات «غرش شیران»، نخست وزیر نتانیاهو مخفیانه از امارات متحده عربی بازدید و با شیخ محمد بن زاید، رئیس امارات متحده عربی دیدار کرد.
+
+💢این دیدار منجر به یک پیشرفت تاریخی در روابط بین اسرائیل و امارات متحده عربی شد.
+</div>
+
+## Persian_Trend_Official — post 14070
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://youtube.com/live/xKXwDy6wYig?feature=share
+</div>
+
+## Persian_Trend_Official — post 14069
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا ده دقیقه دیکه لایو آغاز میشه
+</div>
 
 ## Persian_Trend_Official — post 14068
 
