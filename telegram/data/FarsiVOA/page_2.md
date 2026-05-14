@@ -1,8 +1,61 @@
 # آرشیو کانال FarsiVOA - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 08:55
+📅 آخرین بروزرسانی: 1405/02/24 11:50
 
 ---
+
+## FarsiVOA — post 217683
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️نویسندگان زندانی، تصویر ترسناک جهان امروز
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217682
+
+<div align="center"><video src="telegram/content/FarsiVOA_217682.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217682.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ايران، كشورى كه آفلاين است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️نشست «عراق در خاورمیانه جدید» در اندیشکده آتلانتیک
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217680
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️جی دی ونس، معاون رئیس جمهوری آمریکا: در مذاکرات با جمهوری اسلامی پیشرفت‌هایی حاصل شده است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️شروط آمریکا برای عادی‌سازی روابط با طالبان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️تازه‌ترین مواضع قانون‌گذاران آمریکایی در کنگره
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️آنچه دولت علی الزیدی برای عراق به ارمغان نمی‌آورد؟
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217676
 
@@ -133,77 +186,5 @@ https://ir.voanews.com/a/8149643.html
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️ویدئوی گفت‌وگو با دو ملی‌پوش فوتبال ایران در تلویزیون حکومتی جمهوری اسلامی درباره وضعیت تحصیل و دانشگاه محل تحصیل‌شان، در شبکه‌های اجتماعی خبرساز شده و بار دیگر حاشیه‌های مربوط به ادعاهای تحصیلی برخی بازیکنان تیم ملی را به یاد کاربران آورده است.
 @FarsiVOA
-</div>
-
-## FarsiVOA — post 217663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️علی جوانمردی: جایگاە چین در بحران ایران و احتمال توافق
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217662
-
-<div align="center"><video src="telegram/content/FarsiVOA_217662.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217662.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️دونالد ترامپ، رئیس جمهوری آمریکا، روز چهارشنبه ۲۳ اردیبهشت وارد پکن شد. او در بدو ورود، از سوی معاون رئیس‌جمهوری چین، همراه با گارد احترام نظامی و شعار «خوش آمدید» حدود ۳۰۰ نوجوان و جوان چینی که پرچم‌های آمریکا و چین را در دست داشتند مورد استقبال قرار گرفت.
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217661
-
-<div align="center"><video src="telegram/content/FarsiVOA_217661.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217661.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️گزارش فرهاد فلاحی، خبرنگار صدای آمریکا، از پکن؛ پوشش ویژه سفر پرزیدنت ترامپ به چین
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217660
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️وقوع زلزله‌های متعدد در استان تهران نشانه چیست و شهروندان باید چه کنند؟ گفت‌وگو با عطارد عزیزی نمینی
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217659
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺وزیر انرژی آمریکا: رژیم ایران «به‌طرزی نگران‌کننده‌» به سلاح هسته‌ای نزدیک شده است
-
-▪️کریس رایت، وزیر انرژی ایالات متحده، روز چهارشنبه ۲۳ اردیبهشت هشدار داد که رژیم ایران به مرحله‌ای «بسیار نگران‌کننده» در برنامه هسته‌ای خود رسیده است و تنها چند هفته با تولید اورانیوم در سطح تسلیحاتی فاصله دارد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/nypost-chris-wright-iran-close-to-nuclear-weapon/8149630.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217658
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺نتیجه منفی آزمایش‌ها در ایتالیا و اسپانیا برای یافتن رد پای جهانی ویروس هانتا
-
-▪️وزارت‌ بهداشت دو کشور ایتالیا و اسپانیا، روز چهارشنبه ۲۳ اردیبهشت، اعلام کردند نتیجه آزمایش‌های هفده نفری که مشکوک به ابتلا به ویروس هانتا بودند، منفی بوده‌ است. این در حالی است که دولت‌های جهان همچنان به هدف جلوگیری از گسترش این ویروس در تلاش ردیابی موارد احتمالی ابتلا به بیماری هستند.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/hantavirus-cruise-spain-france-health-test/8149628.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217657
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺هشدار بنیاد نرگس: جسم نرگس محمدی توان تحمل هیچ «فشار مضاعفی» را ندارد
-
-◾️بنیاد نرگس، روز چهارشنبه ۲۳ اردیبهشت، در بیانیه‌ای ضمن تشریح روند درمانی نرگس محمدی در زنجان و تهران، اعلام کرد: «این زندانی سیاسی، نیازمند درمان دست‌کم ۸ ماهه است و بدنش در وضعیت فعلی توان تحمل هیچ‌گونه فشار مضاعف و بازگشت به شرایط حبس را ندارد.»
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/narges-mohammadi-prison-pressure-endurance-/8149626.html?withmediaplayer=1
 </div>
 

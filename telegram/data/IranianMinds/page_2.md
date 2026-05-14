@@ -1,8 +1,70 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 08:58
+📅 آخرین بروزرسانی: 1405/02/24 11:53
 
 ---
+
+## IranianMinds — post 20088
+
+<div align="center"><img src="telegram/content/IranianMinds_20088.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴رئیس جمهور ترامپ آماده است عملیات پتک را علیه رژیم تروریستی ایران آغاز نماید.
+دولت او می‌گوید این اقدام، ساعت قانونی اختیارات جنگی را دوباره تنظیم می‌کند و ۶۰ روز فرصت عملیات رزمی پیش از دخالت کنگره می‌دهد.
+رژیم ایران دستپاچه در حال آماده‌سازی است، اما عملیات به احتمال زیاد بلا‌فاصله پس از سفر رسمی چین آغاز خواهد شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20087
+
+<div align="center"><img src="telegram/content/IranianMinds_20087.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 اکانت اسرائیل به فارسی:
+
+محمد عباسی و دخترش فاطمه در دی‌ماه دستگیر شدند.
+محمد را بدون ملاقات آخر، امروز صبح اعدام کردند.
+جمهوری اسلامی روی خون مردمش حکومت می‌کند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20086
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴شهبازی، مجری صدا‌و‌سیما:
+
+بهترین کار نظام تو ۴۷ سال گذشته، ملی کردن اینترنت بود.
+
+ای حرومزاده ۱۰۰۰ پدر .
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20084
+
+<div align="center"><img src="telegram/content/IranianMinds_20084.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دیگه شد یه کسب درآمد داعم براشون و همه جا شروع کردن به فروش سیمکارت و اینترنت پرو !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20083
+
+<div align="center"><img src="telegram/content/IranianMinds_20083.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 عراقچی :
+
+در تلاشی آشکار برای ایجاد اختلاف، کویت به ‌صورت غیرقانونی به یک قایق ایرانی در خلیج فارس حمله کرده و ۴ نفر از شهروندان ما را بازداشت کرده است. این اقدام غیرقانونی در نزدیکی جزیره ‌ای رخ داده که آمریکا از آن برای حمله به ایران استفاده میکند.
+
+ما خواستار آزادی فوری شهروندان ‌مان هستیم و حق پاسخگویی را برای خود محفوظ می‌دانیم.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20082
 

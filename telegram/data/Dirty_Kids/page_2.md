@@ -1,8 +1,55 @@
 # آرشیو کانال Dirty_Kids - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 03:01
+📅 آخرین بروزرسانی: 1405/02/24 11:56
 
 ---
+
+## Dirty_Kids — post 389396
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389396.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صلواتی خونخوار حکم اعدام ‎#محمد_عباسی رو داد و جمهوری اسلامی امروز مخفیانه طناب دار رو دور گردنش انداخت.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389395
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389395.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی قمصری در کاخ الیزه در واکنش به رابطه «گلشیفته و مکرون»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389394
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389394.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شما غلط کردی با صاحابت.
+از طرف مردم گه نخور.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خمینی وقتی با فشار دولت صدام، مجبور به تَرک عراق شد، به سمت کویت رفت.
+کویت او را راه نداد و آفتابه بدست در مرز عراق و کویت گرفتار شد.
+چرا فرانسه رو انتخاب کرد؟
+چون شهروندان ایرانی می‌توانستند بدون نیاز به ویزا تا "سه ماه" در فرانسه اقامت کنند.
+
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389392
 

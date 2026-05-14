@@ -1,8 +1,17 @@
 # آرشیو کانال pm_afshaa - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 08:47
+📅 آخرین بروزرسانی: 1405/02/24 11:41
 
 ---
+
+## pm_afshaa — post 90712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴رویترز: آمریکا و چین توافق کردن هیچ کشوری نباید عوارض از تنگه هرمز بگیره
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90711
 
@@ -200,19 +209,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴رئیس ستاد ارتش اسرائیل:
 جنگ با ایران پایان نیافته و برای از سرگیری جنگ در هوشیاری کامل قرار داریم. از یهودا و سامره تا تهران برای دفاع و حمله آماده‌ایم.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90692
-
-<div align="center"><img src="telegram/content/pm_afshaa_90692.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴مجله مادام فیگارو به نقل از فلوریان تاردیف، روزنامه‌نگار فرانسوی: سیلی بریژیت مکرون به همسرش در هواپیما پس از آن رخ داده که اون پیام‌های صمیمانه امانوئل مکرون با گلشیفته فراهانی رو دیده بود.
-
-به گفته تاردیف، مکرون برای چند ماه رابطه‌ای افلاطونی با این گلشیفته فراهانی داشته و در پیام‌هاش جملاتی مثل «به نظرم بسیار زیبا هستید» نوشته بود.
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

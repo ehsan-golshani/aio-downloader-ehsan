@@ -1,8 +1,16 @@
 # آرشیو کانال idfinfarsi - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 00:14
+📅 آخرین بروزرسانی: 1405/02/24 11:55
 
 ---
+
+## idfinfarsi — post 11578
+
+<div align="center"><img src="telegram/content/idfinfarsi_11578.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اورشلیم، شهر ادیان و پایتخت ابدی اسرائیل. در روز اورشلیم، ما اتحاد شهری را جشن می‌گیریم که گذشته‌ای کهن و آینده‌ای امیدوار را به هم پیوند می‌دهد. سال نو مبارک، برای اورشلیم و ساکنانش.
+</div>
 
 ## idfinfarsi — post 11575
 
