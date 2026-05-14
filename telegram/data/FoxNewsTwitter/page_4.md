@@ -1,8 +1,34 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/24 22:47
+📅 آخرین بروزرسانی: 1405/02/25 00:22
 
 ---
+
+## FoxNewsTwitter — post 341687
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341687.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump and President Xi Jinping meet for bilateral talks https://twitter.com/i/broadcasts/1nJOLEBAamlxR
+</div>
+
+## FoxNewsTwitter — post 341686
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341686.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341686.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+.@seanhannity: "What is your read on President Xi?"
+
+SECRETARY RUBIO: "China has a plan...they believe they will be the world's most powerful country."
+
+"We're not trying to constrain China, but their rise cannot come at our expense."
+</div>
 
 ## FoxNewsTwitter — post 341685
 
@@ -290,31 +316,5 @@ JUST IN: Vice President JD Vance reveals how fraudulent healthcare providers are
 “Sometimes they've had drugs put into their bodies that they don't need because fraudsters have actually encouraged false prescriptions and false administration to medications.”
 
 “It's a defrauding of the American taxpayer, but it's a violation of the trust that should exist between every American and the people who prescribe the medications."
-</div>
-
-## FoxNewsTwitter — post 341664
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341664.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341664.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: Vice President JD Vance announces the federal government is deferring over a billion dollars in Medicaid reimbursements to California, citing a failure by the state to combat systemic fraud.
-
-"We're announcing that the federal government is deferring $1.3 billion in Medicaid reimbursements from the state of California.”
-
-“And the simple reason is because the state of California has not taken fraud very seriously."
-</div>
-
-## FoxNewsTwitter — post 341663
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341663.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: Vance delivers remarks on Trump admin's fraud crackdown https://twitter.com/i/broadcasts/1wGWjaVqmRpKQ
 </div>
 

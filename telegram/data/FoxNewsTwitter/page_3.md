@@ -1,8 +1,36 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/24 22:47
+📅 آخرین بروزرسانی: 1405/02/25 00:22
 
 ---
+
+## FoxNewsTwitter — post 341707
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341707.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341707.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Trump and President Xi arrive at the welcome state banquet in China, taking their seats as the event gets underway.
+</div>
+
+## FoxNewsTwitter — post 341706
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341706.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341706.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST IN: @seanhannity says President Trump’s meeting with Xi could lead to Chinese cooperation on Iran, oil, and soybean purchases benefiting American farmers.
+
+Telling @ainsleyearhardt his takeaways from the interview, Hannity says China appears ready to help with “whatever Trump needs” regarding Iran.
+
+He also said Xi was surprised when Trump invited him to meet with American CEOs, a move that made a strong impression on the Chinese leader.
+</div>
 
 ## FoxNewsTwitter — post 341705
 
@@ -229,31 +257,5 @@ Fox News (Twitter/X)
 NEW: Secretary Rubio says stepping behind the White House press secretary podium wasn't "too bad," but he's not sure if he'd have fun if he had to do it every week.
 
 "Karoline is irreplaceable....We can't wait until Karoline gets back." |@seanhannity
-</div>
-
-## FoxNewsTwitter — post 341687
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341687.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: President Trump and President Xi Jinping meet for bilateral talks https://twitter.com/i/broadcasts/1nJOLEBAamlxR
-</div>
-
-## FoxNewsTwitter — post 341686
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341686.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341686.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-.@seanhannity: "What is your read on President Xi?"
-
-SECRETARY RUBIO: "China has a plan...they believe they will be the world's most powerful country."
-
-"We're not trying to constrain China, but their rise cannot come at our expense."
 </div>
 

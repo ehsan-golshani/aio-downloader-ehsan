@@ -1,8 +1,18 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/24 23:00
+📅 آخرین بروزرسانی: 1405/02/25 00:34
 
 ---
+
+## IranianMinds — post 20107
+
+<div align="center"><img src="telegram/content/IranianMinds_20107.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ و رئیس جمهور‌ چین در معبد بهشت پکن
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20105
 
@@ -252,18 +262,6 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 محمد عباسی و دخترش فاطمه در دی‌ماه دستگیر شدند.
 محمد را بدون ملاقات آخر، امروز صبح اعدام کردند.
 جمهوری اسلامی روی خون مردمش حکومت می‌کند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴شهبازی، مجری صدا‌و‌سیما:
-
-بهترین کار نظام تو ۴۷ سال گذشته، ملی کردن اینترنت بود.
-
-ای حرومزاده ۱۰۰۰ پدر .
 
 @IranianMinds
 </div>

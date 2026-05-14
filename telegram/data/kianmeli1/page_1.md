@@ -1,8 +1,26 @@
 # آرشیو کانال kianmeli1 - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 22:51
+📅 آخرین بروزرسانی: 1405/02/25 00:26
 
 ---
+
+## kianmeli1 — post 87410
+
+<div align="center"><img src="telegram/content/kianmeli1_87410.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴روزنامه اعتماد مدعی شد: اینترنت بین الملل خرداد ماه وصل می‌ شود
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87409
+
+<div align="center"><img src="telegram/content/kianmeli1_87409.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴رئیس کمیسیون امنیت ملی مجلس، از پیشنهاد تعیین جایزه ۵۰ میلیون یورویی برای کشتن دونالد ترامپ، بنیامین نتانیاهو و فرمانده سنتکام خبر داده است.
+https://t.me/kianmeli1
+</div>
 
 ## kianmeli1 — post 87408
 
@@ -185,27 +203,5 @@ https://t.me/kianmeli1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴اینترنشنال: احسان افرشته «امان نامه» داشت اما اعدام شد قوه قضاییه جمهوری اسلامی خبر داد احسان افرشته، جوان ۳۳ ساله‌، را به اتهام همکاری با اسرائیل، اعدام کرده اما دو منبع گفتند او، پیش از بازگشت به ایران از ترکیه، به‌طور داوطلبانه خود را به وزارت اطلاعات…
-</div>
-
-## kianmeli1 — post 87390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اینترنشنال: احسان افرشته «امان نامه» داشت اما اعدام شد
-
-قوه قضاییه جمهوری اسلامی خبر داد احسان افرشته، جوان ۳۳ ساله‌، را به اتهام همکاری با اسرائیل، اعدام کرده اما دو منبع گفتند او، پیش از بازگشت به ایران از ترکیه، به‌طور داوطلبانه خود را به وزارت اطلاعات معرفی کرده بود اما بلافاصله در فرودگاه بازداشت شد.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87389
-
-<div align="center"><img src="telegram/content/kianmeli1_87389.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عراقچی
-
-کویت در تلاشی آشکار برای ایجاد اختلاف، به طور غیرقانونی به یک قایق ایرانی حمله کرده و ۴ نفر از شهروندان ما را در خلیج فارس بازداشت کرده است. این اقدام غیرقانونی در نزدیکی جزیره‌ای که ایالات متحده از آن برای حمله به ایران استفاده کرده است، رخ داده است.
-
-ما خواستار آزادی فوری اتباع خود هستیم و حق پاسخگویی را برای خود محفوظ می‌داریم.
-https://t.me/kianmeli1
 </div>
 

@@ -1,8 +1,79 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 22:46
+📅 آخرین بروزرسانی: 1405/02/25 00:21
 
 ---
+
+## WithYashar — post 11225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ: رهبر چین پیشنهاد کمک در مورد مسئله ایران را داد
+او قول داد که تجهیزات نظامی به آنها منتقل نکند.
+او می‌خواهد تنگه هرمز باز بماند.
+@withyashar
+</div>
+
+## WithYashar — post 11224
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سناتور کنگره خطاب به برد کوپر:
+برجام توانایی هسته ای ایران رو محدود میکرد ولی ترامپ پاره کرد، الان وارد یه جنگ بی‌پایان شدیم، آیا ترامپ هیچ وقت به شما نگفت چرا برجام رو پاره کرد؟
+
+کوپر فرمانده سنتکام:
+خانم سناتور زمانی که این ۸ سال پیش اتفاق افتاد من یک سمت دیگه داشتم! من سیاستمدار نیستم و نمیتونم جواب این سوال رو بدم!
+@withyashar
+</div>
+
+## WithYashar — post 11223
+
+<div align="center"><video src="telegram/content/WithYashar_11223.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11223.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«دریادار برد کوپر»، فرمانده سنتکام:
+
+«فرماندهی مرکزی ایالات متحده (سنتکام) مستقیماً در پاسخ به تهدیدهایی که جمهوری اسلامی ایران ایجاد می‌کرد، تأسیس شد.
+
+رژیم ایران طی ۴۷ سال گذشته منطقه را دچار هراس و بی‌ثباتی کرده و دشمنی با آمریکا را به یکی از اصول اساسی حاکمیت خود تبدیل کرده است.
+
+سابقه خصمانه و مرگبار آنها علیه ایالات متحده کاملاً مستند و ثبت‌شده است
+@withyashar
+</div>
+
+## WithYashar — post 11222
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا درباره حمایت چین از ایران با رئیس جمهور چین صحبت کردید؟
+
+ترامپ: ما در مورد این موضوع صحبت کردیم. منظورم اینه که وقتی میگید «حمایت»، آنها با ما جنگ نمی‌کنن یا چیزی شبیه این. او گفت که تجهیزات نظامی ارائه نخواهد کرد، این یک بیانیه بزرگه. اما در عین حال گفت که آنها مقدار زیادی نفت خودشون رو از ایران میخرن و دوست دارن این کار رو ادامه بدن.
+@withyashar
+</div>
+
+## WithYashar — post 11221
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برد کوپر فرمانده سنتکام مدعی شد: توانمندی‌های موشکی، دریایی، پهپادی و صنعتی ایران 90 درصد تضعیف شده است. او افزود که نیروی دریایی ایران تا یک نسل دیگر نیز به سطحی که پیش از جنگ در اختیار داشت باز نخواهد گشت
+@withyashar
+</div>
+
+## WithYashar — post 11220
+
+<div align="center"><video src="telegram/content/WithYashar_11220.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11220.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایلان ماسک و پسرش «اِکس اَش اِی-توئلو» «X Æ A-Xii» در پکن
+@withyashar
+</div>
+
+## WithYashar — post 11219
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرمانده سنت‌کام: ظرف کمتر از ۴۰ روز می‌توانیم به اهدافمان در ایران دست پیدا کنیم
+@withyashar
+</div>
 
 ## WithYashar — post 11218
 
@@ -127,53 +198,5 @@ INDOPACOM، فرماندهی نظامی آمریکا برای منطقهٔ «ه�
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترامپ از رئیس‌جمهور چین برای سفر به ایالات متحده در ماه سپتامبر آینده دعوت کرد
 @withyashar
-</div>
-
-## WithYashar — post 11204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آکسیوس: یکی از گزینه‌های ترامپ پس از بازگشت از چین از سر گیری پروژه آزادی در تنگه هرمز است. گزینه دیگر ترامپ حمله به زیرساخت‌های ایرانه.
-@withyashar
-</div>
-
-## WithYashar — post 11203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق برنامه ای که قرار داده بودیم ترامپ و رییس‌جمهور چین برای یک مهمانی شام با یکدیگر دیدار کردند @withyashar
-</div>
-
-## WithYashar — post 11202
-
-<div align="center"><video src="telegram/content/WithYashar_11202.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11202.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برنامه های ترامپ با حاکم چین به این ترتیبه : مراسم استقبال تو تالار بزرگ خلق چهارشنبه رسیدن به پکن ، استقرار و استراحت پنج شنبه ۱۴ مه - ملاقات با شی - ضیافت دولتی با شی جمعه تاریخ ۱۵ مه - جلسه عکس با شی- چای با شی - ناهار با شی و حرکت از پکن به آمریکا، @withyashar
-</div>
-
-## WithYashar — post 11201
-
-## WithYashar — post 11200
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فارس: عبور کشتی‌های چینی از تنگۀ هرمز از شب گذشته اغاز شده
-@withyashar
-یک کشتی ژاپنی هم اجازه عبور گرفت
-</div>
-
-## WithYashar — post 11199
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاخ سفید اعلام کرد در دیدار ترامپ و شی جین‌پینگ، دو طرف بر باز ماندن تنگه هرمز و تقویت همکاری‌های اقتصادی توافق کردند. این توافق شامل افزایش سرمایه‌گذاری چین در صنایع آمریکا و گسترش دسترسی شرکت‌های آمریکایی به بازار چین است.
-
-ترامپ: مذاکرات پکن بسیار مثبت و سازنده بود
-@withyashar
-</div>
-
-## WithYashar — post 11198
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با رفیق اروپاییم نشستیم داریم ویدیو مسیج های شما رو نگاه میکنیم براش ترجمه میکنم که داری چی میگی، بعد یهو میگه اینجا چی گفت، خب من چجوری گربه گیر رو ترجمه کنم😂😂😂😂😂 عشقی سلطان یاشار❤️❤️
 </div>
 

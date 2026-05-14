@@ -1,8 +1,20 @@
 # آرشیو کانال IranianMinds - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/24 23:00
+📅 آخرین بروزرسانی: 1405/02/25 00:34
 
 ---
+
+## IranianMinds — post 20086
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴شهبازی، مجری صدا‌و‌سیما:
+
+بهترین کار نظام تو ۴۷ سال گذشته، ملی کردن اینترنت بود.
+
+ای حرومزاده ۱۰۰۰ پدر .
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20084
 

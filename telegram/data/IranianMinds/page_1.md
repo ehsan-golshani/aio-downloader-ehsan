@@ -1,8 +1,20 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 23:00
+📅 آخرین بروزرسانی: 1405/02/25 00:34
 
 ---
+
+## IranianMinds — post 20149
+
+<div align="center"><img src="telegram/content/IranianMinds_20149.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کان‌نیوز:
+
+اسرائیل معتقد است که ترامپ وقتی از چین برگرده، درباره حمله مجدد به ایران تصمیم‌گیری میکنه.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20148
 
@@ -227,17 +239,5 @@ ShirOKhorshid-2026.05.14.apk
 ge24
 🔔کانال دربی بت :
 🪙https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20128
-
-<div align="center"><img src="telegram/content/IranianMinds_20128.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کاخ سفید:
-
-هر دو کشور ( چین و آمریکا ) توافق کردند که ایران هرگز نمی‌تواند سلاح هسته‌ای داشته باشد.
-
-@IranianMinds
 </div>
 

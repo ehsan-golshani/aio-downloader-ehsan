@@ -1,8 +1,33 @@
 # آرشیو کانال Dirty_Kids - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/24 23:02
+📅 آخرین بروزرسانی: 1405/02/25 00:37
 
 ---
+
+## Dirty_Kids — post 389421
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پلیس شریف دانمارک vs طرفداران تروریسم جهانی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389420
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389420.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مانوک خدابخشیان: "فعالیتی که برای براندازی پهلوی سوم وجود داره، برای براندازی رژیم وجود نداره. همه تلاش می‌کنند که این شاهزاده پهلوی به ایران برنگرده‌."
+روحت شاد عمومانوک
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389416
 
@@ -229,29 +254,6 @@ A23
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صلواتی خونخوار حکم اعدام ‎#محمد_عباسی رو داد و جمهوری اسلامی امروز مخفیانه طناب دار رو دور گردنش انداخت.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389395
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389395.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی قمصری در کاخ الیزه در واکنش به رابطه «گلشیفته و مکرون»
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389394
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389394.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شما غلط کردی با صاحابت.
-از طرف مردم گه نخور.
 
 
 @Dirty_Kids 👻

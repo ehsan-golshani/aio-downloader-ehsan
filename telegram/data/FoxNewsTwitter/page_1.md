@@ -1,8 +1,48 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 22:47
+📅 آخرین بروزرسانی: 1405/02/25 00:22
 
 ---
+
+## FoxNewsTwitter — post 341753
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341753.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341753.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+Bulldozers flatten hundreds of illegal mopeds in NYC.
+
+The NYPD took a dramatic step in its sweeping crackdown on vehicles increasingly linked to violent crime.
+
+Police Commissioner Jessica Tisch says many of the bikes are uninsured, carry fake or altered plates, and have become a growing public safety threat because criminals use their speed and anonymity to flee police.
+
+The stark warning comes after investigators linked illegal mopeds and scooters to multiple robberies and even the shooting death of a 7-month-old girl last month.
+
+Officials say the more than 200 crushed bikes represent only a small portion of the more than 5,700 illegal mopeds and scooters the NYPD seizes so far this year, nearly 10% more than at the same time last year.
+</div>
+
+## FoxNewsTwitter — post 341752
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341752.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341752.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+A wild police chase in Georgia ends when police perform a PIT maneuver, sending the fleeing U-Haul truck flying onto its side.
+
+Sheriff's deputies were forced to chase the U-Haul in and out of traffic.
+
+Authorities identified the driver as Damian Jones, who was reportedly wanted in other counties and accused of driving recklessly, hitting a truck, and nearly striking several vehicles during the pursuit.
+
+Investigators say drugs were found inside the vehicle, and Jones was taken into custody following the crash.
+
+No major injuries were reported.
+</div>
 
 ## FoxNewsTwitter — post 341751
 
@@ -256,31 +296,5 @@ NEW: Spencer Pratt is suddenly within single digits of L.A. Mayor Karen Bass, wi
 The Emerson poll has Bass at 30%, Pratt at 22%, and socialist-linked Nithya Raman at 19%
 
 Pratt’s campaign is leaning hard into L.A.’s homelessness crisis, using sharp social media and attention-grabbing ads to turn a long-shot bid into a race people are now watching.
-</div>
-
-## FoxNewsTwitter — post 341733
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341733.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341733.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: Alex Murdaugh’s lead attorney Jim Griffin reveals his client's shock and relief following the South Carolina Supreme Court’s decision to overturn his murder convictions.
-
-Griffin says while Murdaugh remains “skeptical” after years of courtroom losses, he's thrilled by the latest revelation.
-
-“I can tell you he is very relieved that he has gotten the label of convicted murderer of his wife and son off of him, and we plan to keep it off of him." | @LawrenceBJones3 @foxandfriends
-</div>
-
-## FoxNewsTwitter — post 341732
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341732.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: Linda McMahon faces House lawmakers on Trump's education agenda https://twitter.com/i/broadcasts/1AxRnawQVkgxl
 </div>
 
