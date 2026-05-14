@@ -1,8 +1,35 @@
 # آرشیو کانال WithYashar - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/24 20:48
+📅 آخرین بروزرسانی: 1405/02/24 22:46
 
 ---
+
+## WithYashar — post 11177
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@withyashar سفر قاهره
+</div>
+
+## WithYashar — post 11176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قصه بگم ؟ شایدم بهترین شرحی ‌باشه که لازم دارید بشنوید …
+</div>
+
+## WithYashar — post 11175
+
+## WithYashar — post 11174
+
+<div align="center"><video src="telegram/content/WithYashar_11174.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11174.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## WithYashar — post 11173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درودی دوباره یاشار جان
+میشه سوال منو ج بدین چرا ترامپ وقتی وارد چین شد نیومد ریس جمهور استقبالش در صورتی که باید بیاد ؟
+</div>
 
 ## WithYashar — post 11172
 
@@ -116,49 +143,6 @@ https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امشب چین 😂
-@withyashar
-</div>
-
-## WithYashar — post 11157
-
-<div align="center"><video src="telegram/content/WithYashar_11157.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11157.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همراهان ترامپ در چین
-@withyashar
-</div>
-
-## WithYashar — post 11156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سد عباس چپقچی وارد هند شد
-@withyashar
-</div>
-
-## WithYashar — post 11155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احسان افرشته، به اتهام جاسوسی و همکاری اطلاعاتی با موساد اعدام شد به گفته رژیم وی چند مرحله تماس از طریق پیام‌رسان‌ها داشته و در ادامه از طریق پست الکترونیک باهم در ارتباط بوده‌اند بیش از ۳۰۰ پیام بین آنها رد و بدل شده است. افرشته در ابتدا در پوشش راننده تاکسی…
-</div>
-
-## WithYashar — post 11154
-
-<div align="center"><video src="telegram/content/WithYashar_11154.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11154.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بی‌حرکت ایستادن کامل افسر چینی هنگام عبور هواپیمای رئیس جمهور آمریکا (ایر فورس وان) در چند متری او، توجه بسیاری از رسانه‌ها را به خود جلب کرد
-@withyashar
-</div>
-
-## WithYashar — post 11153
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک مقام ارشد کُرد در گفتگو با کانال۱۳ اسرائیل:
-در واقع خود پرزیدنت ترامپ مانع از طرح اقدام ما علیه حکومت ایران شد و اتهامات او در مورد ضبط سلاح های معترضین در ایران توسط کُردها، ناعادلانه و غیرمنطقی است
 @withyashar
 </div>
 

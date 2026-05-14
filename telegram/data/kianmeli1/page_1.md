@@ -1,8 +1,82 @@
 # آرشیو کانال kianmeli1 - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 15:58
+📅 آخرین بروزرسانی: 1405/02/24 22:51
 
 ---
+
+## kianmeli1 — post 87408
+
+<div align="center"><video src="telegram/content/kianmeli1_87408.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87408.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 کاتس وزیر دفاع اسرائیل  :
+ماموریت ما کامل نشده است.
+
+ما برای احتمال اینکه ممکن است مجبور به اقدام دوباره شویم - شاید حتی به زودی - آماده‌ایم.
+
+اگر اهداف تأمین نشوند، دوباره اقدام خواهیم کرد.
+   https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87407
+
+<div align="center"><img src="telegram/content/kianmeli1_87407.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ می‌گوید شی جین‌پینگ، رئیس‌جمهور چین، به او گفته است که چین تجهیزات نظامی به ایران ارائه نخواهد داد و از توافق صلح حمایت کرده است.
+
+ترامپ همچنین می‌گوید که رئیس‌جمهور شی پیشنهاد میانجیگری برای کاهش تنش‌ها به منظور بازگشایی تنگه هرمز را داده است.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87406
+
+<div align="center"><img src="telegram/content/kianmeli1_87406.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عربستان سعودی می‌خواهد با ایران پیمان عدم تجاوز امضا کند.
+
+این در حالی است که ایران در طول جنگ به خاک عربستان سعودی حمله کرده است.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87405
+
+<div align="center"><img src="telegram/content/kianmeli1_87405.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴به گزارش رویترز، عربستان سعودی به رئیس جمهور ترامپ گفته است که جنگ با ایران باید پایان یابد و تنگه هرمز باید باز بماند و در صورت ادامه بحران، نسبت به «زیان‌های اقتصادی غیرقابل اندازه‌گیری» هشدار داده است.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87404
+
+<div align="center"><img src="telegram/content/kianmeli1_87404.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دریاسالار برد کوپر، رئیس فرماندهی مرکزی ایالات متحده، گزارش‌های خبری مبنی بر اینکه ایران ۷۰ تا ۷۵ درصد از موشک‌ها و پرتابگرهای قبل از جنگ خود را حفظ کرده است، «غیردقیق» خواند و آنها را رد کرد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87403
+
+<div align="center"><img src="telegram/content/kianmeli1_87403.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ایران از همه کشورهای عضو بریکس می‌خواهد که جنگ آمریکا و اسرائیل علیه خود را محکوم کنند.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87402
+
+<div align="center"><img src="telegram/content/kianmeli1_87402.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴به گزارش خبرگزاری AXIOS، مقامات اسرائیلی می‌گویند که در طول این آخر هفته، اسرائیل در بالاترین سطح آمادگی قرار خواهد گرفت، زیرا این کشور منتظر تصمیم رئیس جمهور ترامپ در مورد از سرگیری جنگ علیه ایران است.
+https://t.me/kianmeli1
+</div>
 
 ## kianmeli1 — post 87401
 
@@ -132,95 +206,6 @@ https://t.me/kianmeli1
 کویت در تلاشی آشکار برای ایجاد اختلاف، به طور غیرقانونی به یک قایق ایرانی حمله کرده و ۴ نفر از شهروندان ما را در خلیج فارس بازداشت کرده است. این اقدام غیرقانونی در نزدیکی جزیره‌ای که ایالات متحده از آن برای حمله به ایران استفاده کرده است، رخ داده است.
 
 ما خواستار آزادی فوری اتباع خود هستیم و حق پاسخگویی را برای خود محفوظ می‌داریم.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87388
-
-<div align="center"><img src="telegram/content/kianmeli1_87388.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عباس عراقچی، امروز برای شرکت در نشست وزیران امور خارجه کشورهای عضو بریکس (برزیل، روسیه، هند، چین و آفریقای جنوبی+) وارد دهلی، هند شد. این در حالی است که مذاکرات آمریکا و ایران همچنان ادامه دارد اما متوقف شده است. طبق گزارش‌ها و ارزیابی‌های تعدادی از کارشناسان، انتظار می‌رود ایران برای صدور بیانیه مشترک از سوی بلوک اقتصادی به رهبری چین در حمایت از منافع ایران تلاش کند.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87387
-
-<div align="center"><img src="telegram/content/kianmeli1_87387.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴هفتمین رأی‌گیری سنای آمریکا برای پایان جنگ با ایران شکست خورد
-
-مجلس سنا برای هفتمین‌بار قطعنامهٔ پیشنهادی برای توقف جنگ با ایران را رد کرد.
-
-جمهوری‌خواهان تقریباً متحد عمل کردند تا اولین تلاش از زمان عبور ترامپ از ضرب‌الاجل ۶۰ روزه برای دریافت مجوز جنگ از کنگره را ناکام بگذارند
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87386
-
-<div align="center"><img src="telegram/content/kianmeli1_87386.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴رویترز؛
-
-منابع متعددی که از جزئیات ماجرا آگاه هستند، اعلام کردند که در جریان جنگ با ایران، جنگنده‌های عربستان سعودی اهدافی مرتبط با شبه‌نظامیان تحت حمایت تهران را در عراق بمباران کردند. بعلاوه، حملات تلافی‌جویانه‌ای نیز از کویت به داخل خاک عراق انجام شد.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87385
-
-<div align="center"><img src="telegram/content/kianmeli1_87385.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏🔴خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، از اعدام محمد عباسی از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴ خبر داد
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87384
-
-<div align="center"><video src="telegram/content/kianmeli1_87384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴آشنا: ایران هنوز شگفتی‌هایی برای دشمن دارد
-
-ایران ظرفیت عبور از چالش فعلی را دارد. برای توان نظامی ایران، ۴۷ سال زحمت کشیده شده است. به‌نظر من هیچ‌کس نمی‌داند ایران چقدر قدرت دارد.
-
-اگر قرار است مستقل باشیم آخرش اسلحه‌ها حرف می‌زنند.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87383
-
-<div align="center"><video src="telegram/content/kianmeli1_87383.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87383.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴زنگنه: ۳۰ درصد از گرانی‌ها طبیعی جنگ است / ۳۵ درصد از گرانی‌ها به خاطر ناکارآمدی دستگاه‌هاست
-
-محسن زنگنه، عضو کمیسیون برنامه و بودجه مجلس:
-برخی از وزارتخانه‌ها آرایش جنگی ندارند
-
-گزارشات وزارتخانه‌ها مداوم نیست و قطع می‌شود؛ به طور خاص وزارت جهاد کشاورزی اینگونه است
-
-باید در وزارت کشاورزی برنامه ریزی بهتری داشته باشیم که در آینده چه خواهد شد
-وزارت جهادکشاورزی یک مرتبه کود را هفت برابر کرده است!
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87382
-
-<div align="center"><video src="telegram/content/kianmeli1_87382.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87382.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تیراندازی در مجلس سنای فیلیپین
-
-به گزارش رویترز حداقل 12 گلوله در مجلس سنای فیلیپین شلیک شد اما یکی از نمایندگان تاکید کرد در این حادثه هیچ فردی زخمی یا کشته نشده است.
 https://t.me/kianmeli1
 </div>
 

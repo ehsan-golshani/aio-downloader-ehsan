@@ -1,8 +1,65 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/24 20:49
+📅 آخرین بروزرسانی: 1405/02/24 22:47
 
 ---
+
+## FoxNewsTwitter — post 341705
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341705.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump participates in state banquet with Xi https://twitter.com/i/broadcasts/1OGwblEEdlRKB
+</div>
+
+## FoxNewsTwitter — post 341704
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341704.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341704.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+SPOTTED: Elon Musk poses for pictures with Apple's Tim Cook at the Chinese state banquet in Beijing.
+
+Musk and Cook are just two of the major American CEOs joining President Trump on his trip to China for his historic summit with President Xi.
+</div>
+
+## FoxNewsTwitter — post 341703
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341703.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: An American doctor who helped treat sick passengers during a hantavirus outbreak at sea is now being cleared to leave isolation after days of uncertainty.
+
+He was one of 16 Americans taken to Nebraska for monitoring, but the only one placed in a biocontainment unit after an inconclusive test result.
+
+Hospital officials say he’s now been cleared to leave that unit and will join the others in standard quarantine as 11 cases, including three deaths, are reported worldwide.
+</div>
+
+## FoxNewsTwitter — post 341702
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341702.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Brand new details released about President Trump’s bilateral meeting with Chinese President Xi.
+
+The White House says China is interested in buying more American oil while also agreeing with the U.S. that Iran can never have a nuclear weapon.
+
+Meanwhile, the Chinese government says Trump was told that Taiwan is the most important issue on the table for the communist country — and warns the future of U.S.-China ties depends on how it’s handled.
+
+When it comes to Iran, President Trump says he doesn’t need Xi’s help with ending the conflict.
+
+U.S. CEOs are also making pitches for expanded business ties during the ongoing meeting.
+@aishahhasnie with the latest.
+</div>
 
 ## FoxNewsTwitter — post 341701
 
@@ -198,65 +255,5 @@ Fox News (Twitter/X)
 SECRETARY RUBIO: "China has a plan...they believe they will be the world's most powerful country."
 
 "We're not trying to constrain China, but their rise cannot come at our expense."
-</div>
-
-## FoxNewsTwitter — post 341685
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341685.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341685.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-SENATOR MURRAY: "Do you seriously believe there's abortion in the water, like some of the far-right activists are suggesting?"
-
-EPA ADMIN ZELDIN: "You just said abortion in the water?"
-
-MURRAY: "That's what some far-right activists are saying. That they have an audience, in the EPA, on that absurd issue."
-
-ZELDIN: "I have not had a conversation with anyone at the agency as far as abortions in water."
-
-"I don't even know what you're talking about."
-</div>
-
-## FoxNewsTwitter — post 341684
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341684.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: 38th annual candlelight vigil for fallen officers in Washington, DC https://twitter.com/i/broadcasts/1NGaraWVDYVJj
-</div>
-
-## FoxNewsTwitter — post 341683
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341683.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341683.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-FOX NEWS REPORT: President Trump is in China and expected to talk trade and the Iran war with Chinese President Xi Jinping. @BillMelugin_ has the latest.
-</div>
-
-## FoxNewsTwitter — post 341682
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341682.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341682.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-EXCLUSIVE: Secretary of State Marco Rubio outlines the high-stakes push for China to confront Iran over its actions in the Persian Gulf in an exclusive sit-down with @seanhannity aboard Air Force One:
-
-“The Chinese have ships stuck in the Persian Gulf... A Chinese cargo got hit over the weekend. I'm sure Iran didn't do it deliberately but they did it, it happened. And so that's why these Chinese ships are stuck in there.”
-
-“It's a huge source of instability. It threatens to destabilize Asia more than any other part of the world because it's heavily reliant on the straits for energy.”
-
-“It’s in [China’s] interest to resolve this. We hope to convince them to play a more active role in getting Iran to walk away from what they're doing now and trying to do now in the Persian Gulf."
 </div>
 

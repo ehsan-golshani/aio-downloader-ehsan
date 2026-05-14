@@ -1,8 +1,97 @@
 # آرشیو کانال kianmeli1 - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 15:58
+📅 آخرین بروزرسانی: 1405/02/24 22:51
 
 ---
+
+## kianmeli1 — post 87388
+
+<div align="center"><img src="telegram/content/kianmeli1_87388.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عباس عراقچی، امروز برای شرکت در نشست وزیران امور خارجه کشورهای عضو بریکس (برزیل، روسیه، هند، چین و آفریقای جنوبی+) وارد دهلی، هند شد. این در حالی است که مذاکرات آمریکا و ایران همچنان ادامه دارد اما متوقف شده است. طبق گزارش‌ها و ارزیابی‌های تعدادی از کارشناسان، انتظار می‌رود ایران برای صدور بیانیه مشترک از سوی بلوک اقتصادی به رهبری چین در حمایت از منافع ایران تلاش کند.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87387
+
+<div align="center"><img src="telegram/content/kianmeli1_87387.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴هفتمین رأی‌گیری سنای آمریکا برای پایان جنگ با ایران شکست خورد
+
+مجلس سنا برای هفتمین‌بار قطعنامهٔ پیشنهادی برای توقف جنگ با ایران را رد کرد.
+
+جمهوری‌خواهان تقریباً متحد عمل کردند تا اولین تلاش از زمان عبور ترامپ از ضرب‌الاجل ۶۰ روزه برای دریافت مجوز جنگ از کنگره را ناکام بگذارند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87386
+
+<div align="center"><img src="telegram/content/kianmeli1_87386.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴رویترز؛
+
+منابع متعددی که از جزئیات ماجرا آگاه هستند، اعلام کردند که در جریان جنگ با ایران، جنگنده‌های عربستان سعودی اهدافی مرتبط با شبه‌نظامیان تحت حمایت تهران را در عراق بمباران کردند. بعلاوه، حملات تلافی‌جویانه‌ای نیز از کویت به داخل خاک عراق انجام شد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87385
+
+<div align="center"><img src="telegram/content/kianmeli1_87385.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏🔴خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، از اعدام محمد عباسی از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴ خبر داد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87384
+
+<div align="center"><video src="telegram/content/kianmeli1_87384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴آشنا: ایران هنوز شگفتی‌هایی برای دشمن دارد
+
+ایران ظرفیت عبور از چالش فعلی را دارد. برای توان نظامی ایران، ۴۷ سال زحمت کشیده شده است. به‌نظر من هیچ‌کس نمی‌داند ایران چقدر قدرت دارد.
+
+اگر قرار است مستقل باشیم آخرش اسلحه‌ها حرف می‌زنند.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87383
+
+<div align="center"><video src="telegram/content/kianmeli1_87383.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87383.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴زنگنه: ۳۰ درصد از گرانی‌ها طبیعی جنگ است / ۳۵ درصد از گرانی‌ها به خاطر ناکارآمدی دستگاه‌هاست
+
+محسن زنگنه، عضو کمیسیون برنامه و بودجه مجلس:
+برخی از وزارتخانه‌ها آرایش جنگی ندارند
+
+گزارشات وزارتخانه‌ها مداوم نیست و قطع می‌شود؛ به طور خاص وزارت جهاد کشاورزی اینگونه است
+
+باید در وزارت کشاورزی برنامه ریزی بهتری داشته باشیم که در آینده چه خواهد شد
+وزارت جهادکشاورزی یک مرتبه کود را هفت برابر کرده است!
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87382
+
+<div align="center"><video src="telegram/content/kianmeli1_87382.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87382.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تیراندازی در مجلس سنای فیلیپین
+
+به گزارش رویترز حداقل 12 گلوله در مجلس سنای فیلیپین شلیک شد اما یکی از نمایندگان تاکید کرد در این حادثه هیچ فردی زخمی یا کشته نشده است.
+https://t.me/kianmeli1
+</div>
 
 ## kianmeli1 — post 87381
 

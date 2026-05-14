@@ -1,8 +1,46 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 21:04
+📅 آخرین بروزرسانی: 1405/02/24 23:02
 
 ---
+
+## Dirty_Kids — post 389467
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389467.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آخرین ورژن خفت و خواری بچه‌شیعه:
+رزمایش گذاشتن، هلی‌کوپتر نداشتن، بنرشو چاپ کردن گذاشتن اون وسط.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389466
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389466.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اصلی ترین سوالی که برای من پیش میاد که چرا تو همون ایران زیر کیر آخوند نمیخوابید ؟؟ چرا مهاجرت میکنید از راه دور برای آخوند دهنی میزنید ؟؟
+
+این جک و جنده آزادی‌رو دوست دارن ولی اعتقاد دارن ملت ایران لیاقت ندارن فقط برای خودشون خوبه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389465
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389465.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389465.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هنوز که هنوزه این ویدئو از درگیری چندتا ایرانی تو جاده ساحلیِ چالوس تو پیج‌های خارجی داره دست به دست میشه و تو اکسپلوره؛
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389464
 
@@ -204,8 +242,6 @@ ShirOKhorshid-2026.05.14.apk
 
 ## Dirty_Kids — post 389446
 
-<div align="center"><a href="telegram/content/ShirOKhorshid-2026.05.14.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ShirOKhorshid-2026.05.14.apk</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دقایقی قبل این اپلیکیشن بنام "شیر و خورشید" که نسخه تغییر یافته سایفون هستش تو تلگرام درحال وایرال شدنه و میگن خیلی خوب کار میکنه.
 
@@ -245,61 +281,6 @@ ShirOKhorshid-2026.05.14.apk
 
 حجمش رو تا جایی‌که میشد آوردم پایین
 موزیک خالیشم براتون پایین گذاشتم که حجمش خیلی کمتره
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389443
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389443.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389443.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جو خونه مکرون
-بعد از قضیه گلشیفته
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389442
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389442.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389442.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مصاحبه‌ی بسیار مهمی از عموی خوبم اسکات بسنت وزیر خزانه‌داری آمریکا با شبکه‌ی CNBC که گزارش مختصری از وضعیت روافض هزارپدر می‌ده:
-
-
-«چیزی که ما شاهدش هستیم اینه که تأسیسات بارگیری نفت روافض که اصلی‌ترین تأسیسات بارگیری نفت‌شونه، مجموعه‌ایه به نام جزیره خارک.
-
-ما رصد کردیم و دیدیم که در سه روز گذشته هیچ بارگیری نفتی صورت نگرفته. ما معتقدیم که مخازن ذخیره‌ی نفت رژیم قحبه‌زاده پر شده.
-
-هیچ کشتی‌ای‌ از اونجا خارج نمی‌شه و هیچ کشتی‌‌ای وارد نمی‌شه، بنابراین رژیم پدرخراب رافضی نمی‌تونه نفتش رو روی آب [در تانکرها] ذخیره کنه.
-بنابراین رژیم هزارپدر شروع به متوقف کردن تولید نفت خواهد کرد.
-ما از طریق تصاویر ماهواره‌ای می‌بینیم که این اتفاق در حال رخ دادنه.
-
-اما مهم‌تر از همه‌ی این حرف‌ها اینه که این یک رژیم شیطانی مادرهزارتختخوابیه.
-روافض جنایتکار تا اینجای سال جاری ۳۰ یا ۴۰ هزار نفر رو کشتن و اعدام کردن ‌ که خیلی از این معترضان مسالمت‌جو بودن‌. پس، با چنین رژیم مادرخر...
-
-﻿
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389441
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شی جین‌پینگ، رئیس‌جمهور چین در دیدار با ترامپ رئیس‌جمهور آمريکا:
-
-دو کشور ما باید شریک باشند، نه رقیب. مردم چین و ایالات متحده هر دو ملت‌های بزرگی هستند. تحقق احیای بزرگی ملت چین و عظمت دوباره آمریکا می‌تواند همزمان پیش برود. ما می‌توانیم به موفقیت یکدیگر کمک کنیم و رفاه کل جهان را ارتقا دهیم.
 
 
 @Dirty_Kids 👻

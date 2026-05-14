@@ -1,8 +1,44 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/24 20:48
+📅 آخرین بروزرسانی: 1405/02/24 22:46
 
 ---
+
+## WithYashar — post 11238
+
+<div align="center"><video src="telegram/content/WithYashar_11238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتانیاهو: دشمنان ما به دنبال نابودی همه ما هستند. همه ما
+آنها بین راست و چپ، سکولار و مذهبی، یهودی و عرب تفاوتی قائل نمی‌شوند.
+@withyashar
+نتانیاهو: اورشلیم را تحت حاکمیت اسرائیل برای همیشه حفظ خواهیم کرد
+</div>
+
+## WithYashar — post 11237
+
+## WithYashar — post 11236
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سومین دور مذاکرات مستقیم لبنان و اسرائیل در واشنگتن آغاز شد
+@withyashar
+</div>
+
+## WithYashar — post 11235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ اعلام کرد که انتظار می‌رود پکن ۲۰۰ هواپیما از بوئینگ سفارش دهد.
+@withyashar
+</div>
+
+## WithYashar — post 11234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کان نیوز : مقامات ارشد ارتش اسرائیل و سنتکام هفته گذشته جلسه داشتن و منتظرن ببینن فردا ترامپ بعد اتمام سفرش چه تصمیمی میگیره
+@withyashar
+</div>
 
 ## WithYashar — post 11233
 
@@ -127,57 +163,6 @@ Voice message
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فرمانده سنت‌کام: ظرف کمتر از ۴۰ روز می‌توانیم به اهدافمان در ایران دست پیدا کنیم
-@withyashar
-</div>
-
-## WithYashar — post 11218
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتانیاهو، نخست‌وزیر، و گیدعون سعر، وزیر خارجه، به مقامات دستور داده‌اند تا مقدمات طرح شکایت افترا علیه نیویورک تایمز را آغاز کنند.
-این شکایت به دلیل انتشار یادداشتی از نیکلاس کریستوف که شامل اتهاماتی مبنی بر سوءاستفاده جنسی از فلسطینیان در زندان‌های اسرائیل بوده،
-مقاله کریستف با عنوان «سکوتی که تجاوز به فلسطینیان با آن روبرو می‌شود» روز دوشنبه ۱۱ مه در نیویورک‌تایمز منتشر شده بود.
-@withyashar
-</div>
-
-## WithYashar — post 11217
-
-<div align="center"><img src="telegram/content/WithYashar_11217.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-INDOPACOM، فرماندهی نظامی آمریکا برای منطقهٔ «هندو-پاسیفیک»ایندوپکام: تفنگداران دریایی ایالات متحده، واحد یازدهم اعزامی تفنگداران دریایی، در حال انجام تیراندازی رزمی بر روی ناو جنگی یو اس اس کامستاک (LSD 45) در اقیانوس هند هستند. واحد یازدهم اعزامی دریایی، که بر روی گروه آماده آبی-خاکی باکسر(USS BOXER) مستقر شده است، یک نیروی پایدار و قابل اعتماد رزمی است که به بازدارندگی و واکنش به بحران در منطقه عملیاتی ناوگان هفتم ایالات متحده کمک می‌کند.
-@withyashar
-یاشار: ساده بگم ناو باکسر وسط راه مونده داره تمرین میکنه و معلوم نیست کی بیاد !
-</div>
-
-## WithYashar — post 11215
-
-<div align="center"><video src="telegram/content/WithYashar_11215.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11215.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گوشیT1 "ترامپ موبایل" بعد از نزدیک
-یه سال تأخیر بالاخره داره عرضه میشه
-یه گوشی طلایی ۴۹۹ دلاری با برند ترامپه که
-چیپ اسنپدراگون سری ۷، رم ۱۲ گیگ، حافظه
-۵۱۲ گیگ و دوربین سه‌گانه ۵۰ مگاپیکسلی دارهبه نظر میاد در اصل یه گوشی ساخت چین باشه که فقط مونتاژ نهاییشو تو آمریکا انجام دادن
-@withyashar
-</div>
-
-## WithYashar — post 11214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارکو روبیو : ترامپ موضوع ایران رو با چین مطرح کرد و این خیلی مهم بود
-
-طرف چینی گفت ما موافق نظامی‌کردن تنگه هرمز نیستیم
-با سیستم عوارض‌گیری هم مخالفیم، و این موضع ما هم هست
-@withyashar
-</div>
-
-## WithYashar — post 11213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر خزانه داری آمریکا:ایران رو انقدر تحت فشار اقتصادی قرار دادیم که توی پرداخت حقوق نیروهاشم به مشکل خورده. دارن نفسای آخرشونو میکشن
 @withyashar
 </div>
 

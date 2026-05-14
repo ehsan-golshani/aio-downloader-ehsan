@@ -1,8 +1,74 @@
 # آرشیو کانال IranianMinds - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/24 21:01
+📅 آخرین بروزرسانی: 1405/02/24 23:00
 
 ---
+
+## IranianMinds — post 20084
+
+<div align="center"><img src="telegram/content/IranianMinds_20084.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دیگه شد یه کسب درآمد داعم براشون و همه جا شروع کردن به فروش سیمکارت و اینترنت پرو !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20083
+
+<div align="center"><img src="telegram/content/IranianMinds_20083.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 عراقچی :
+
+در تلاشی آشکار برای ایجاد اختلاف، کویت به ‌صورت غیرقانونی به یک قایق ایرانی در خلیج فارس حمله کرده و ۴ نفر از شهروندان ما را بازداشت کرده است. این اقدام غیرقانونی در نزدیکی جزیره ‌ای رخ داده که آمریکا از آن برای حمله به ایران استفاده میکند.
+
+ما خواستار آزادی فوری شهروندان ‌مان هستیم و حق پاسخگویی را برای خود محفوظ می‌دانیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20082
+
+<div align="center"><img src="telegram/content/IranianMinds_20082.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 برای هفتمین بار هم تلاش برای محدود کردن اختیارات جنگی ترامپ در مجلس سنای آمریکا شکست خورد !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20081
+
+<div align="center"><img src="telegram/content/IranianMinds_20081.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💙 خان وی‌پی‌ان
+⚡️ سرعت بالا
+🛡 پینگ و پایداری عالی
+🔐 مناسب تلگرام، اینستا، یوتیوب، گیم و استریم
+💸 قیمت اقتصادی با پلن‌های متنوع
+
+🎁 تست ۵۰ مگ فقط ۷۵ تومن
+
+🛎 کانال:
+
+https://t.me/+qNjExGEJztE2OGI0
+
+🤖 ربات خرید:
+@Xan_vpn_bot
+</div>
+
+## IranianMinds — post 20080
+
+<div align="center"><img src="telegram/content/IranianMinds_20080.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴لبنان شکایتی رسمی به سازمان ملل ارائه داده است و ایران(جمهوری اسلامی) را به نقض کنوانسیون وین ۱۹۶۱ در مورد روابط دیپلماتیک متهم کرده است.
+در این شکایت، ایران به دخالت مستقیم و آشکار در امور داخلی لبنان و کشاندن این کشور به جنگ متهم شده است.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20079
 
