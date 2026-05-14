@@ -1,8 +1,224 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 16:06
+📅 آخرین بروزرسانی: 1405/02/24 18:55
 
 ---
+
+## IranianMinds — post 20114
+
+<div align="center"><video src="telegram/content/IranianMinds_20114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 وزیر دارایی اسرائیل:
+
+فکر می‌کنم در همین دوره، عملا داریم ایده تشکیل کشور فلسطین را کاملا از بین میبریم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20113
+
+<div align="center"><video src="telegram/content/IranianMinds_20113.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20113.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 جان بولتون:
+
+مذاکره برای توافق هسته ‌ای با ایران، هدر دادن وقته.
+
+این ‌ها دهه ‌ها پیش تصمیم راهبردی ‌شان را برای رسیدن به سلاح هسته‌ای گرفته‌اند.
+
+در این ۴۷ سال اخیر حتی یک مدرک هم وجود نداشته که نشان بدهد از این هدف ساخت سلاح هسته ای عقب کشیده‌ اند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20112
+
+<div align="center"><video src="telegram/content/IranianMinds_20112.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20112.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نتانیاهو:
+
+همون ‌طور که یه متفکری یه بار فکر کنم تو روسیه بود بهم گفت اسرائیل یه ابرقدرت کوچیکه، ولی بازم ابرقدرته.
+
+ما قراره به یه ابرقدرت بزرگ و جهانی تبدیل بشیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20111
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 مهدی تاج رئیس فدراسیون فوتبال : معین قراره برای تیم ملی یه آهنگ بخونه ! @IranianMinds
+</div>
+
+## IranianMinds — post 20110
+
+<div align="center"><img src="telegram/content/IranianMinds_20110.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سازمان تجارت دریایی بریتانیا گزارش داد که یک حادثه در فاصله ۳۸ مایل دریایی شمال‌شرق فجیره در امارات رخ داده است.
+
+گزارش‌ها حاکی است که یک کشتی لنگر گرفته توسط افراد غیرمجاز مورد بازدید قرار گرفته و اکنون به سمت آب‌های سرزمینی ایران در حرکت است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20109
+
+<div align="center"><img src="telegram/content/IranianMinds_20109.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
+
+👍دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+re24
+🔔کانال دربی بت :
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 20107
+
+<div align="center"><img src="telegram/content/IranianMinds_20107.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ و رئیس جمهور‌ چین در معبد بهشت پکن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20105
+
+<div align="center"><img src="telegram/content/IranianMinds_20105.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 مراد ویسی :
+
+قصد دارم لیستی از قاتلان مردم ایران در دی ماه تهیه کنم و هر شب اسم هاشون رو‌ در لایو بخونم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20104
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 الجزیره :
+
+مذاکرات و صحبتای ترامپ و رئیس جمهور چین در تالار پکن پایان یافت
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20103
+
+<div align="center"><video src="telegram/content/IranianMinds_20103.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20103.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ به رئیس‌ جمهور چین:
+
+افتخار دارم که در کنار شما هستم. افتخار دارم که دوست شما هستم و روابط بین چین و ایالات متحده بهتر از همیشه خواهد شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20102
+
+<div align="center"><video src="telegram/content/IranianMinds_20102.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20102.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ به رئیس‌ جمهور چین:
+
+شما یک رهبر بزرگ هستید. به همه می‌گویم که شما یک رهبر بزرگ هستید. گاهی مردم از گفتن این حرف توسط من خوششان نمی‌آید، اما با این حال می‌گویم چون حقیقت است.
+
+من فقط حقیقت را می‌گویم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20101
+
+<div align="center"><video src="telegram/content/IranianMinds_20101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+همیشه معتقد بودم که دو کشور ما منافع مشترک بیشتری نسبت به اختلافات داریم.
+
+موفقیت یکی، فرصتی برای دیگری است و یک رابطه دوجانبه باثبات برای جهان مفید است.
+
+چین و ایالات متحده هر دو از همکاری بهره می‌برند و از مواجهه ضرر می‌کنند. ما باید شریک باشیم، نه رقیب.
+
+باید به یکدیگر کمک کنیم تا موفق شویم، با هم رونق پیدا کنیم و راه درست برای تعامل کشورهای بزرگ در عصر جدید را بیابیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20100
+
+<div align="center"><video src="telegram/content/IranianMinds_20100.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20100.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+در حال حاضر، تحولی که در یک قرن گذشته دیده نشده در سراسر جهان شتاب گرفته و وضعیت بین‌المللی سیال و پرآشوب است.
+
+جهان به یک چهارراه جدید رسیده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20099
+
+<div align="center"><video src="telegram/content/IranianMinds_20099.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20099.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+آیا می‌توانیم، به نفع رفاه مردم هر دو کشور و آینده بشریت، آینده‌ای روشن‌تر برای روابط دوجانبه‌مان بسازیم؟
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20098
+
+<div align="center"><video src="telegram/content/IranianMinds_20098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+تمام جهان در حال تماشای دیدار ماست
+
+@IranianMindsi
+</div>
 
 ## IranianMinds — post 20097
 
@@ -68,186 +284,6 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 🔴 وزیر خارجه سوریه :
 
 میخوایم روابطمون با داداشیمون اسرائیل رو قوی تر کنیم و به حاکمیت هم احترام بزاریم
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20092
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 گوگل رسما اعلام کرد در جام جهانی اسپانسری تیم های ملی عراق و مراکش رو گرفته و تمامی هزینه های این تیم هارو‌ میده.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عراقچی :
-
-هرکسی بخواد با ما دشمنی کنه و با اسرائیل تبانی کنه بد پشیمون میشه
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20090
-
-<div align="center"><img src="telegram/content/IranianMinds_20090.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-املت هم‌ تو‌ این مملکت قسطی شد
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20089
-
-<div align="center"><video src="telegram/content/IranianMinds_20089.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20089.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مهدی تاج رئیس فدراسیون فوتبال :
-
-معین قراره برای تیم ملی یه آهنگ بخونه !
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20088
-
-<div align="center"><img src="telegram/content/IranianMinds_20088.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴رئیس جمهور ترامپ آماده است عملیات پتک را علیه رژیم تروریستی ایران آغاز نماید.
-دولت او می‌گوید این اقدام، ساعت قانونی اختیارات جنگی را دوباره تنظیم می‌کند و ۶۰ روز فرصت عملیات رزمی پیش از دخالت کنگره می‌دهد.
-رژیم ایران دستپاچه در حال آماده‌سازی است، اما عملیات به احتمال زیاد بلا‌فاصله پس از سفر رسمی چین آغاز خواهد شد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20087
-
-<div align="center"><img src="telegram/content/IranianMinds_20087.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اکانت اسرائیل به فارسی:
-
-محمد عباسی و دخترش فاطمه در دی‌ماه دستگیر شدند.
-محمد را بدون ملاقات آخر، امروز صبح اعدام کردند.
-جمهوری اسلامی روی خون مردمش حکومت می‌کند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴شهبازی، مجری صدا‌و‌سیما:
-
-بهترین کار نظام تو ۴۷ سال گذشته، ملی کردن اینترنت بود.
-
-ای حرومزاده ۱۰۰۰ پدر .
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20084
-
-<div align="center"><img src="telegram/content/IranianMinds_20084.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دیگه شد یه کسب درآمد داعم براشون و همه جا شروع کردن به فروش سیمکارت و اینترنت پرو !
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20083
-
-<div align="center"><img src="telegram/content/IranianMinds_20083.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عراقچی :
-
-در تلاشی آشکار برای ایجاد اختلاف، کویت به ‌صورت غیرقانونی به یک قایق ایرانی در خلیج فارس حمله کرده و ۴ نفر از شهروندان ما را بازداشت کرده است. این اقدام غیرقانونی در نزدیکی جزیره ‌ای رخ داده که آمریکا از آن برای حمله به ایران استفاده میکند.
-
-ما خواستار آزادی فوری شهروندان ‌مان هستیم و حق پاسخگویی را برای خود محفوظ می‌دانیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20082
-
-<div align="center"><img src="telegram/content/IranianMinds_20082.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 برای هفتمین بار هم تلاش برای محدود کردن اختیارات جنگی ترامپ در مجلس سنای آمریکا شکست خورد !
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20081
-
-<div align="center"><img src="telegram/content/IranianMinds_20081.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💙 خان وی‌پی‌ان
-⚡️ سرعت بالا
-🛡 پینگ و پایداری عالی
-🔐 مناسب تلگرام، اینستا، یوتیوب، گیم و استریم
-💸 قیمت اقتصادی با پلن‌های متنوع
-
-🎁 تست ۵۰ مگ فقط ۷۵ تومن
-
-🛎 کانال:
-
-https://t.me/+qNjExGEJztE2OGI0
-
-🤖 ربات خرید:
-@Xan_vpn_bot
-</div>
-
-## IranianMinds — post 20080
-
-<div align="center"><img src="telegram/content/IranianMinds_20080.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴لبنان شکایتی رسمی به سازمان ملل ارائه داده است و ایران(جمهوری اسلامی) را به نقض کنوانسیون وین ۱۹۶۱ در مورد روابط دیپلماتیک متهم کرده است.
-در این شکایت، ایران به دخالت مستقیم و آشکار در امور داخلی لبنان و کشاندن این کشور به جنگ متهم شده است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20079
-
-<div align="center"><video src="telegram/content/IranianMinds_20079.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20079.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اکانت اسرائیل به فارسی:
-
-وقتی به زودی به اسرائیل سفر کنید، این منظره زیبا از پنجره هواپیما در انتظار شماست. به امید دیدار شما در تل‌آویو یا تهران.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20078
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عباس عراقچی وارد هند شد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20077
-
-<div align="center"><img src="telegram/content/IranianMinds_20077.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سنتکام با انتشار تصویری از گشت‌زنی جنگنده پنهان‌کار F-35A امریکا بر فراز آب‌های نزدیک تنگه هرمز خبر داد.
-
-به گفته سنتکام، این جنگنده توان حمل تا ۱۸ هزار پوند مهمات را در سرعت مافوق صوت دارد.
 
 @IranianMinds
 </div>

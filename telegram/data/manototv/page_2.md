@@ -1,8 +1,131 @@
 # آرشیو کانال manototv - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 16:10
+📅 آخرین بروزرسانی: 1405/02/24 19:00
 
 ---
+
+## manototv — post 105435
+
+<div align="center"><video src="telegram/content/manototv_105435.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105435.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس گزارش‌های منتشرشده در شبکه‌های اجتماعی، خاطره خدادادی، دانشجوی رشته دندانپزشکی در بلاروس، پس از اظهار نظر درباره مسائل ایران در یک کانال تلگرامی، با دخالت سفارت جمهوری اسلامی بازداشت و به ۱۴ روز زندان محکوم شده است.
+به گفته نزدیکان او، قرار بود دهم اردیبهشت آزاد شود، اما همچنان در بازداشت به‌سر می‌برد و وضعیت تحصیل و اقامتش نامشخص است. همچنین گزارش شده که او در مدت بازداشت از دسترسی به وکیل و تماس با دوستانش محروم بوده است.
+</div>
+
+## manototv — post 105434
+
+<div align="center"><video src="telegram/content/manototv_105434.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105434.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌های داخلی ایران گزارش دادند زمین‌لرزه‌ای به بزرگی ۵ ریشتر منطقه بردسیر در استان کرمان را لرزاند.
+بر اساس این گزارش‌ها، کانون زلزله در عمق ۸ کیلومتری زمین و در نزدیکی روستای کمال‌آباد از توابع شهرستان بردسیر بوده است. هلال‌احمر اعلام کرد دو تیم ارزیاب برای بررسی وضعیت به منطقه اعزام شده‌اند.
+</div>
+
+## manototv — post 105433
+
+<div align="center"><video src="telegram/content/manototv_105433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروه ناظر اینترنتی نت‌بلاکس اعلام کرد قطعی اینترنت در ایران امروز وارد هفتادوششمین روز خود شده و از مرز ۱۸۰۰ ساعت گذشته است.
+نت‌بلاکس می‌گوید این محدودیت‌ها بر پایه دسترسی گزینشی و طبقاتی اعمال شده؛ به‌طوری که گروه‌های خاص به اینترنت دسترسی دارند، اما بخش بزرگی از شهروندان همچنان با محدودیت و اختلال گسترده مواجه‌اند
+</div>
+
+## manototv — post 105432
+
+<div align="center"><video src="telegram/content/manototv_105432.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105432.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان دریانوردی تجاری بریتانیا اعلام کرد یک کشتی در سواحل امارات و در نزدیکی تنگه هرمز دچار حادثه شده است.
+بر اساس این گزارش، افرادی «غیرمجاز» کنترل این کشتی را در دست گرفته‌اند و شناور اکنون به‌سمت آب‌های سرزمینی ایران در حرکت است. این نهاد دریایی بریتانیا اعلام کرد کشتی در فاصله ۳۸ مایلی سواحل فجیره قرار داشته است.
+</div>
+
+## manototv — post 105431
+
+<div align="center"><video src="telegram/content/manototv_105431.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105431.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پلیس بریتانیا اعلام کرد دومین فرد در چارچوب تحقیقات ضدتروریسم درباره آتش‌سوزی در یک کنیسه در شرق لندن متهم شده است.
+براساس اعلام پلیس، یک مرد ۳۱ ساله در ارتباط با این حمله بازداشت و تفهیم اتهام شده و تحقیقات درباره انگیزه و جزئیات حادثه ادامه دارد.
+</div>
+
+## manototv — post 105430
+
+<div align="center"><video src="telegram/content/manototv_105430.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105430.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همزمان با آغاز نشست وزیران خارجه کشورهای عضو بریکس در دهلی‌نو، عباس عراقچی، وزیر خارجه ایران، از اعضای این گروه و «همه کشورهای مسئول جامعه جهانی» خواست حملات آمریکا و اسرائیل علیه ایران را به‌صراحت محکوم کنند.
+خبرگزاری رویترز گزارش داد جنگ ایران و اسرائیل بر نشست دو روزه بریکس در هند سایه انداخته و اختلاف‌ها میان اعضا، رسیدن به موضعی مشترک و صدور بیانیه نهایی را دشوار کرده است. ایران از هند، رئیس دوره‌ای بریکس، خواسته از این نشست برای ایجاد اجماع علیه واشینگتن و تل‌آویو استفاده کند
+</div>
+
+## manototv — post 105428
+
+<div align="center"><video src="telegram/content/manototv_105428.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105428.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌های وابسته به قوه قضاییه جمهوری اسلامی گزارش دادند با دستور مقام قضایی در استان همدان، اموال ۴۷ نفر که به «جاسوسی» و «همکاری با رژیم اسرائیل» متهم شده‌اند، توقیف شده است.
+براساس این گزارش‌ها، این افراد در کشورهای مختلف از جمله بریتانیا، آلمان، آمریکا، ترکیه، عراق و سوئیس اقامت دارند و مقام‌های قضایی جمهوری اسلامی اعلام کرده‌اند پرونده آن‌ها در حال بررسی است. به گفته رسانه میزان، اموال توقیف‌شده قرار است برای «بازسازی اماکن آسیب‌دیده از جنگ» هزینه شود.
+</div>
+
+## manototv — post 105427
+
+<div align="center"><video src="telegram/content/manototv_105427.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105427.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در دیدار با شی جین‌پینگ در پکن، این نشست را «بسیار مهم» توصیف کرد و گفت توجه گسترده‌ای در آمریکا و جهان به این دیدار وجود دارد.
+ترامپ با اشاره به اهمیت این مذاکرات گفت برخی این نشست را «بزرگ‌ترین دیدار تاریخ» می‌دانند و تاکید کرد مردم آمریکا تقریبا درباره موضوع دیگری صحبت نمی‌کنند. او همچنین حضور در کنار شی جین‌پینگ را «باعث افتخار» دانست و ابراز امیدواری کرد روابط میان آمریکا و چین «بهتر از هر زمان دیگری» شود.
+</div>
+
+## manototv — post 105426
+
+<div align="center"><video src="telegram/content/manototv_105426.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105426.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ و شی جین‌پینگ، روسای جمهوری آمریکا و چین، در پکن دیدار کردند؛ دیداری که با مراسمی گسترده و تشریفات پرزرق‌وبرق همراه بود و صبح پنج‌شنبه با حضور هیات‌های بلندپایه دو کشور برگزار شد.
+ترامپ در سخنان آغازین خود این دیدار را «باعث افتخار» توصیف کرد و گفت:
+«رئیس‌جمهوری شی، بسیار سپاسگزارم. چنین استقبالی کمتر دیده‌ام. بیش از همه تحت تأثیر کودکان قرار گرفتم؛ شاد و فوق‌العاده بودند. ارتش چین قدرتمند بود، اما آن کودکان چیزهای زیادی را نمایندگی می‌کنند.»
+</div>
+
+## manototv — post 105425
+
+<div align="center"><video src="telegram/content/manototv_105425.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105425.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس‌جمهوری آمریکا، صبح پنج‌شنبه در جریان سفر خود به پکن همراه با شی جین‌پینگ، رئیس‌جمهوری چین، در مراسم رسمی استقبال و رژه نیروهای نظامی این کشور شرکت کرد.
+این مراسم در مقابل ساختمان «تالار بزرگ خلق» برگزار شد و دو رهبر ضمن بازدید از یگان‌های نظامی، شاهد اجرای مراسم سان و رژه نیروهای ارتش چین بودند.
+</div>
+
+## manototv — post 105424
+
+<div align="center"><video src="telegram/content/manototv_105424.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105424.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌
+مهدی تاج، رئیس فدراسیون فوتبال ایران، درباره انتشار آهنگی از سوی معین، برای تیم فوتبال در جام‌جهانی گفت فدراسیون فوتبال در تولید این کار دخیل نبوده، اما «در جریان» این موضوع است.
+تاج افزود: «هر کسی از ایران حمایت کند، مورد تایید ماست.»
+</div>
 
 ## manototv — post 105423
 
@@ -146,140 +269,5 @@
 ونس گفت دولت آمریکا در حال حاضر درگیر یک روند «فعال دیپلماتیک» برای اطمینان از عدم دستیابی جمهوری اسلامی به سلاح هسته‌ای است، اما در عین حال تاکید کرد ترامپ گزینه‌های مختلفی، از جمله گزینه‌های دیپلماتیک و نظامی، در اختیار دارد.
 
 معاون رئیس‌جمهوری آمریکا افزود اولویت اصلی ترامپ، حفاظت از مردم آمریکا و همچنین امنیت جهان در برابر تهدید ناشی از دستیابی جمهوری اسلامی به سلاح هسته‌ای است.
-</div>
-
-## manototv — post 105414
-
-<div align="center"><video src="telegram/content/manototv_105414.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105414.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واتس‌اپ قابلیت جدیدی به نام «حالت ناشناس» برای چت با هوش مصنوعی متا معرفی کرده که در آن، گفتگوها ذخیره یا قابل مشاهده نخواهند بود؛ حتی برای خود شرکت متا.
-واتس‌اپ می‌گوید این قابلیت برای گفتگو درباره موضوعات حساسی مثل سلامت، روابط و مسائل مالی طراحی شده است.
-با این حال، کارشناسان هشدار داده‌اند حذف کامل تاریخچه چت‌ها می‌تواند در صورت بروز آسیب یا سوءاستفاده، پیگیری مسئولیت را دشوار کند.
-</div>
-
-## manototv — post 105413
-
-<div align="center"><video src="telegram/content/manototv_105413.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105413.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حساب رسمی سفارت آمریکا در واتیکان اعلام کرد برخلاف برخی گزارش‌های رسانه‌ای، پاپ لئون چهاردهم هیچ افتخار یا نشان ویژه و انحصاری به سفیر جمهوری‌اسلامی در واتیکان اعطا نکرده است.
-در این بیانیه آمده است این مدال به همه سفیران مورد تایید واتیکان پس از بیش از دو سال خدمت داده می‌شود و سال‌هاست که یک رویه معمول و استاندارد به شمار می‌رود.
-سفارت آمریکا تأکید کرده این تقدیر صرفاً جنبه شخصی دارد و به‌معنای حمایت یا مخالفت با هیچ کشور یا سیاستی نیست.
-بر اساس این توضیحات، اخیراً ۱۳ سفیر این نشان را دریافت کرده‌اند و سفیران پیشین آمریکا نیز همین مدال را گرفته بودند.
-در ادامه این بیانیه آمده است که این نشان نیز مستقیماً توسط پاپ اهدا نشده است.
-</div>
-
-## manototv — post 105412
-
-<div align="center"><video src="telegram/content/manototv_105412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تینا قاضی‌مراد، سردبیر خبر منوتو، با انتقاد از وضعیت آموزش و محدودیت‌های اینترنت در ایران گفت مسئله فقط عقب‌ماندگی درسی نیست، بلکه «خروج انسان ایرانی از چرخه تمدن» است.
-
-او گفت جمهوری اسلامی با قطع اینترنت، تعطیلی مکرر مدارس و بی‌ثباتی آموزشی، جامعه ایران را از روند پیشرفت جهانی دور می‌کند و هشدار داد ادامه این وضعیت، انسان ایرانی را به مصرف‌کننده فناوری و در نهایت به حاشیه‌رانده‌شده جهان تبدیل خواهد کرد.
-</div>
-
-## manototv — post 105411
-
-<div align="center"><video src="telegram/content/manototv_105411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روزنامه‌نگار ارشد سیاسی کانال ۱۲ اسرائیل گزارش داده دفتر نخست‌وزیری اسرائیل تأیید کرد که بنیامین نتانیاهو در جریان جنگ اسرائیل و آمریکا با ایران، سفری محرمانه به امارات متحده عربی داشته و در آنجا با محمد بن زاید آل نهیان، رئیس امارات، دیدار کرده است. در ادامه آمده گزارش‌ها حاکی است این سفر محرمانه به یک تحول تاریخی در روابط اسرائیل و امارات منجر شده است.
-</div>
-
-## manototv — post 105410
-
-<div align="center"><video src="telegram/content/manototv_105410.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105410.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس عراقچی، وزیر خارجه جمهوری‌اسلامی در شبکه اکس بازداشت چهار شهروند ایرانی در خلیج فارس توسط کویت را تایید کرد. عراقچی در اکس نوشته: «در تلاشی آشکار برای ایجاد اختلاف، کویت به‌طور غیرقانونی به یک قایق ایرانی حمله کرده و چهار تن از شهروندان ما را در خلیج فارس بازداشت کرده است. این اقدام غیرقانونی در نزدیکی جزیره‌ای رخ داد که آمریکا از آن برای حمله به ایران استفاده کرده بود. ما خواستار آزادی فوری شهروندان خود هستیم و حق پاسخ‌گویی را برای خود محفوظ می‌دانیم.» کویت دیروز اعلام کرده بود چهار عضو منتسب به سپاه قصد داشتند از راه دریا وارد کویت شوند و «اقدامات خصمانه» انجام دهند. وزارت کشور کویت اعلام کرد در درگیری با نیروهای امنیتی، یک نیروی کویتی زخمی شده و دو نفر از متهمان نیز فرار کرده‌اند. سفیر جمهوری‌اسلامی نیز در این کشور احضار و یادداشت اعتراضی رسمی به او تحویل داده شده بود.
-</div>
-
-## manototv — post 105409
-
-<div align="center"><video src="telegram/content/manototv_105409.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105409.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شعبه اول دادگاه تجدیدنظر استان کهگیلویه و بویراحمد، فیض‌الله آذرنوش، پدر پدرام آذرنوش از جان‌باختگان اعتراضات ۱۴۰۱، به همراه سه شهروند دیگر این پرونده را در مجموع به ۳۰ سال حبس تعزیری محکوم کرد.
-
-بر اساس حکم صادرشده، فیض‌الله آذرنوش با اتهام‌هایی از جمله «تشکیل گروه با هدف برهم زدن امنیت کشور»، «فعالیت تبلیغی علیه جمهوری اسلامی»، «توهین به رهبری» و «اجتماع و تبانی علیه امنیت کشور» در مجموع به ۱۵ سال زندان محکوم شده که پنج سال آن قابل اجراست.
-
-همچنین میلاد کریمی‌نسب به شش سال زندان با پنج سال حبس قابل اجرا، امیرحسین محسنی‌پور به شش سال زندان با سه سال حبس قابل اجرا و مهدی کرمی به سه سال زندان محکوم شدند.
-</div>
-
-## manototv — post 105408
-
-<div align="center"><video src="telegram/content/manototv_105408.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105408.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-مقام‌های سوریه در ماه مارس «هلا منیر محمد» را به اتهام شکنجه و سوءاستفاده از زندانیان در دوران حکومت بشار اسد بازداشت کردند؛ زنی که به گفته زندانیان سابق، با نام «منیره» در زندان اطلاعات نیروی هوایی دمشق شناخته می‌شد و یکی از مخوف‌ترین نگهبانان این زندان بود.
-بر اساس گزارش‌ها، هلا در ظاهر یک آرایشگر شناخته‌شده و مدرس زیبایی در دمشق بود، اما چندین زندانی سابق می‌گویند او در زندان المزّه با ضرب‌وشتم، تحقیر، توهین فرقه‌ای و شکنجه زنان زندانی شناخته می‌شد.
-زندانیان سابق می‌گویند تنها صدای او برای ایجاد وحشت در سلول‌ها کافی بود. برخی روایت کرده‌اند او با لوله‌های پلاستیکی زندانیان را کتک می‌زد، موهای زنان را با خشونت می‌برید و هنگام آزار آن‌ها می‌خندید.
-گزارش‌ها حاکی است هلا پس از سقوط حکومت اسد همچنان در دمشق زندگی می‌کرد و به‌عنوان آرایشگر فعالیت داشت تا اینکه گروهی از بازماندگان زندان با تحقیقات مستقل او را شناسایی و به مقام‌های جدید سوریه معرفی کردند.
-خانواده و برخی آشنایان هلا اتهام‌ها را رد کرده‌اند و می‌گویند او «فقط یک زن جوان» بوده که دستورات مافوق‌ها را اجرا می‌کرده است. سازمان‌های حقوق بشری می‌گویند ده‌ها هزار نفر در دوران جنگ داخلی سوریه در زندان‌های حکومت اسد ناپدید یا کشته شده‌اند و زندان اطلاعات نیروی هوایی المزّه یکی از مراکز اصلی شکنجه و بازداشت بوده است.
-</div>
-
-## manototv — post 105407
-
-<div align="center"><video src="telegram/content/manototv_105407.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105407.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصاویری از استقبال از عباس عراقچی، وزیر خارجه جمهوری‌اسلامی در پایتخت هند، توسط رسانه‌های حکومتی منتشر شده است. بر پایه گزارش‌ها او برای شرکت در نشست وزرای خارجه بریکس وارد دهلی نو شده است.
-</div>
-
-## manototv — post 105405
-
-<div align="center"><video src="telegram/content/manototv_105405.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105405.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌
-تصاویر مارکو روبیو، وزیر خارجه آمریکا، با یک ست ورزشی خاکستری در هواپیمای ریاست جمهوری آمریکا، در شبکه‌های اجتماعی خبرساز شد.
-
-در تصویری که توسط استیون چونگ، مدیر ارتباطات کاخ سفید، منتشر شده روبیو دقیقاً همان لباس ورزشی‌ای را پوشیده که نیکلاس مادورو، رئیس‌جمهوری پیشین ونزوئلا، هنگام بازداشت توسط نیروهای آمریکایی در اوایل سال جاری به تن داشت.
-
-مدیر ارتباطات کاخ سفید در توضیح عکس‌ها به شوخی به «Nike Tech ونزوئلا» اشاره کرد.
-
-روبیو در جریان سفر دونالد ترامپ به چین او را همراهی می‌کند؛ سفری که محور آن مسائل تجاری و امنیتی عنوان شده است.
-</div>
-
-## manototv — post 105404
-
-<div align="center"><video src="telegram/content/manototv_105404.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105404.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سنتکام اعلام کرده یک جنگنده رادارگریز اف-۳۵آ نیروی هوایی آمریکا بر فراز آب‌های منطقه‌ای نزدیک تنگه هرمز عملیات گشت‌زنی انجام داده است و این جنگنده اف-۳۵آ توانایی حمل تا ۱۸ هزار پوند مهمات را دارد و در عین حال می‌تواند با سرعت مافوق صوت پرواز کند.
-</div>
-
-## manototv — post 105403
-
-<div align="center"><video src="telegram/content/manototv_105403.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105403.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایال زمیر، رییس ستاد کل ارتش اسرائیل، در جریان سفر به کرانه باختری گفت: «ما در همه جبهه‌ها واقعیت امنیتی جدیدی ایجاد کرده‌ایم، با این حال نبرد به پایان نرسیده است.»
-او افزود: «ارتش اسرائیل برای ازسرگیری جنگ در صورت نیاز آماده است و در دفاع و حمله، از یهودا و سامره تا تهران، در آمادگی و هوشیاری دائم قرار دارد.
 </div>
 
