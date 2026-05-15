@@ -1,8 +1,60 @@
 # آرشیو کانال IranianMinds - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/25 21:04
+📅 آخرین بروزرسانی: 1405/02/25 22:54
 
 ---
+
+## IranianMinds — post 20102
+
+<div align="center"><video src="telegram/content/IranianMinds_20102.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20102.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ به رئیس‌ جمهور چین:
+
+شما یک رهبر بزرگ هستید. به همه می‌گویم که شما یک رهبر بزرگ هستید. گاهی مردم از گفتن این حرف توسط من خوششان نمی‌آید، اما با این حال می‌گویم چون حقیقت است.
+
+من فقط حقیقت را می‌گویم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20101
+
+<div align="center"><video src="telegram/content/IranianMinds_20101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+همیشه معتقد بودم که دو کشور ما منافع مشترک بیشتری نسبت به اختلافات داریم.
+
+موفقیت یکی، فرصتی برای دیگری است و یک رابطه دوجانبه باثبات برای جهان مفید است.
+
+چین و ایالات متحده هر دو از همکاری بهره می‌برند و از مواجهه ضرر می‌کنند. ما باید شریک باشیم، نه رقیب.
+
+باید به یکدیگر کمک کنیم تا موفق شویم، با هم رونق پیدا کنیم و راه درست برای تعامل کشورهای بزرگ در عصر جدید را بیابیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20100
+
+<div align="center"><video src="telegram/content/IranianMinds_20100.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20100.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+در حال حاضر، تحولی که در یک قرن گذشته دیده نشده در سراسر جهان شتاب گرفته و وضعیت بین‌المللی سیال و پرآشوب است.
+
+جهان به یک چهارراه جدید رسیده است.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20099
 
@@ -210,52 +262,6 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 برای هفتمین بار هم تلاش برای محدود کردن اختیارات جنگی ترامپ در مجلس سنای آمریکا شکست خورد !
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20081
-
-<div align="center"><img src="telegram/content/IranianMinds_20081.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💙 خان وی‌پی‌ان
-⚡️ سرعت بالا
-🛡 پینگ و پایداری عالی
-🔐 مناسب تلگرام، اینستا، یوتیوب، گیم و استریم
-💸 قیمت اقتصادی با پلن‌های متنوع
-
-🎁 تست ۵۰ مگ فقط ۷۵ تومن
-
-🛎 کانال:
-
-https://t.me/+qNjExGEJztE2OGI0
-
-🤖 ربات خرید:
-@Xan_vpn_bot
-</div>
-
-## IranianMinds — post 20080
-
-<div align="center"><img src="telegram/content/IranianMinds_20080.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴لبنان شکایتی رسمی به سازمان ملل ارائه داده است و ایران(جمهوری اسلامی) را به نقض کنوانسیون وین ۱۹۶۱ در مورد روابط دیپلماتیک متهم کرده است.
-در این شکایت، ایران به دخالت مستقیم و آشکار در امور داخلی لبنان و کشاندن این کشور به جنگ متهم شده است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20079
-
-<div align="center"><video src="telegram/content/IranianMinds_20079.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20079.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اکانت اسرائیل به فارسی:
-
-وقتی به زودی به اسرائیل سفر کنید، این منظره زیبا از پنجره هواپیما در انتظار شماست. به امید دیدار شما در تل‌آویو یا تهران.
 
 @IranianMinds
 </div>

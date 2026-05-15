@@ -1,8 +1,84 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 21:06
+📅 آخرین بروزرسانی: 1405/02/25 22:57
 
 ---
+
+## Dirty_Kids — post 389519
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389519.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در تصویر: ترور تروریست ارشد حماس.
+
+احمد وحیدی، داری نگاه می‌کنی؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389518
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389518.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389518.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑 شاهزاده رضا پهلوی:
+جمهوری اسلامی الان برای اینکه سقوطش عقب بیفته، داره فشار و سرکوب مردم رو بیشتر میکنه؛
+
+واسه همین یه تیم حقوقی گذاشتم بررسی کنن اونایی که با سیستم سرکوب همکاری میکنن، بعدا چه بلایی سرشون میاد. نتیجه‌ش این شده که این کارا فقط یه همکاری ساده نیست و میتونه به‌عنوان کمک به جنایت علیه بشریت حساب بشه.
+یعنی هر کسی که آگاهانه بره سمت خبرچینی، کمک تو ایست بازرسی، سرکوب مردم یا حتی خرید و فروش اموال مصادره‌شده، باید بدونه بعدا ممکنه محاکمه بشه و جواب پس بده. حتی ممکنه از اموالشون برای جبران خسارت مردم استفاده بشه. به همه اونایی هم که الان دارن با سیستم همکاری میکنن هشدار میدم قبل از هر کاری یه فکر به آینده خودشون و خانوادشون بکنن؛ چون این وضعیت همیشگی نیست و یه روزی میرسه که همه‌چیز روشن میشه و هیچ‌کس نمیتونه از جواب پس دادن فرار کنه.
+
+هدف اینه که ایران تبدیل به یه کشور آزاد بشه که توش حق مردم رعایت بشه و اوضاع کشور درست بشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389517
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389517.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کچل عینکی ریشو دیدین فرار کنید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389516
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389516.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 کتاب اللمعة البيضاء نوشته آیت الله تبریزی، صفحه ۲۳۵: سینه های حضرت فاطمه انقدر بزرگ و دراز بوده که میتونسته اونو از شونه هاش بندازه پشت سرش و به بچه هاش شیر بده!
+
+همچنین سینه های حضرت فاطمه همیشه بوی خوب میداده و پیامبر سرشو بین سینه های حضرت فاطمه میذاشته تا اونو بو کنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389515
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389515.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یعنی این فیلم The Odyssey که قراره بسازن مزخرف ترین فیلمی خواهد بود که تاحالا ساخته شده! نقش آشیل رو قراره یه زن تغییر جنسیت داده بازی کنه و نقش هلن رو قراره یه سیاه پوست لاغر.🥴 حتی به دول آشیل و رنگ پوست هلن هم رحم نگردن این چپهای کسخل @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنیاد بین‌المللی رسانه‌های زنان (IWMF)، جایزه «شجاعت در خبرنگاری» رو داده به یک خبرنگار که اینترنت سفید داره.
+قشنگ داریم یه جوک رو زندگی می‌کنیم
+
+خواهران محمدی، خبرنگاران حوزه محور مقاومت، غزه و حومه.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389513
 
@@ -211,92 +287,6 @@ G25
 ترامپ: بی‌بی‌سی جعلی؟ تو گه بخور. منظورت همون جاکشاییه که با هوش مصنوعی دهن من حرف گذاشتند؟ همونا که از قول من بیانیه‌ای رو منتشر کردند که حالا خودشون اعتراف می‌کنن حقیقت نداشته؟ همون پوفیوزایی که کلمات وحشتناکی رو گذاشتن دهن من و بعد مجبور شدند اعتراف کنن که جعلی بوده؟
 همون دیوثایی که الان به خاطر ۵ میلیار...
 ﻿
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389494
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر از چندگاهی مچ خودمو درحال ریلز دیدن میگیرم. بی پروای فقیر
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389493
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران حتی تبریک تولدهامون‌ هم نفرینه
-ایشالله خودت ۱۲۰ ساله بشی بی‌شرف
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389492
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389492.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389492.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آنلاین شاپا باز شروع کردن...
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389491
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ اپلیکیشن اندروید سایت جهانی دربی بت
-💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
-🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
-😀Telegram Channel👇
-https://t.me/+bcynkEgSW2dlYTc0
-</div>
-
-## Dirty_Kids — post 389490
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389490.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
-
-👍دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-
-🔔کانال دربی بت :
-🪙https://t.me/+bcynkEgSW2dlYTc0
-</div>
-
-## Dirty_Kids — post 389489
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در مورد پروپوزال ایران:
-ترامپ: جمله اولش رو که خوندم انداختمش دور!
-خبرنگار: جمله اول چی بود؟
-ترامپ: یه‌ چیز غیرقال قبول! ما نمیخوایم ایران غنی سازی کنه!!
-خبرنگار: یعنی ۲۰ سال توقف غنی سازی کافی نیس؟
-ترامپ: ۲۰ سال کافیه ولی باید واقعی باشه و تضمین بدن!
-
 
 @Dirty_Kids 👻
 </div>

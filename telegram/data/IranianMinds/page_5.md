@@ -1,8 +1,50 @@
 # آرشیو کانال IranianMinds - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/25 21:04
+📅 آخرین بروزرسانی: 1405/02/25 22:54
 
 ---
+
+## IranianMinds — post 20124
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آموزش اتصال به اینترنت بین الملل:
+
+🔺 مهم: اگر این نسخه رو نصب کنید دیگه دردسر ستاپ کردن MITM و... ندارید!
+این نسخه حدودا یک ساعت پیش توسط برنامه‌نویس شیر و خورشید آپدیت شد و به راحتی می‌تونید طبق این آموزش بهش وصل بشید:
+1- وارد اپلیکیشن شیر و خورشید(آخرین نسخه که امروز منتشر شده) می‌شید
+2- وارد بخش Options میشید از نوار بالا
+3- روی More Options کلیک میکنید
+4- گزینه‌ی Connection Protocol رو قرار میدید روی CDN Fronting
+5- میرید و عادی کانکت میشید و به راحتی وصل میشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20123
+
+<div align="center"><img src="telegram/content/IranianMinds_20123.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست کاخ سفید در ایکس:
+تاریخ در حرکت است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20122
+
+<div align="center"><img src="telegram/content/IranianMinds_20122.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ببین کی داره اینو میگه…
+
+دو روز ۱۸ و ۱۹ دی ۱۴۰۴، ۲۳۶ کودک رو کشتید.
+۵۵۵ بچه رو هم بازداشت کردید.
+
+آها یادم نبود کودکان غزه و فلسطین مال شماس.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20121
 
@@ -230,58 +272,6 @@ re24
 🔴 ترامپ به رئیس‌ جمهور چین:
 
 افتخار دارم که در کنار شما هستم. افتخار دارم که دوست شما هستم و روابط بین چین و ایالات متحده بهتر از همیشه خواهد شد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20102
-
-<div align="center"><video src="telegram/content/IranianMinds_20102.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20102.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ به رئیس‌ جمهور چین:
-
-شما یک رهبر بزرگ هستید. به همه می‌گویم که شما یک رهبر بزرگ هستید. گاهی مردم از گفتن این حرف توسط من خوششان نمی‌آید، اما با این حال می‌گویم چون حقیقت است.
-
-من فقط حقیقت را می‌گویم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20101
-
-<div align="center"><video src="telegram/content/IranianMinds_20101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 رئیس ‌جمهور چین به ترامپ:
-
-همیشه معتقد بودم که دو کشور ما منافع مشترک بیشتری نسبت به اختلافات داریم.
-
-موفقیت یکی، فرصتی برای دیگری است و یک رابطه دوجانبه باثبات برای جهان مفید است.
-
-چین و ایالات متحده هر دو از همکاری بهره می‌برند و از مواجهه ضرر می‌کنند. ما باید شریک باشیم، نه رقیب.
-
-باید به یکدیگر کمک کنیم تا موفق شویم، با هم رونق پیدا کنیم و راه درست برای تعامل کشورهای بزرگ در عصر جدید را بیابیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20100
-
-<div align="center"><video src="telegram/content/IranianMinds_20100.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20100.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 رئیس ‌جمهور چین به ترامپ:
-
-در حال حاضر، تحولی که در یک قرن گذشته دیده نشده در سراسر جهان شتاب گرفته و وضعیت بین‌المللی سیال و پرآشوب است.
-
-جهان به یک چهارراه جدید رسیده است.
 
 @IranianMinds
 </div>

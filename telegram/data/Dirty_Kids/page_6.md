@@ -1,8 +1,73 @@
 # آرشیو کانال Dirty_Kids - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/25 21:06
+📅 آخرین بروزرسانی: 1405/02/25 22:57
 
 ---
+
+## Dirty_Kids — post 389401
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389401.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عمه جنده ام، گلشیفته
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389400
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی به “بله” می گید سوپر اپلیکیشن، حس بقالی رو دارم که رو تابلوش زده هایپر مارکت!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389399
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389399.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امانوئل تو زن داری؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389398
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رفته بودیم ماسال. به صاحب‌ ویلا گفتم اینجا محلیا چه‌جوری‌ند؟ به حجاب گیرن یا زنا راحت بتابن؟
+گفت: زنا هر جور دوست دارن بپوشن، اما مردا شلوارک نپوشن، اهالی حساسن به شلوارک:))))))
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389396
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389396.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صلواتی خونخوار حکم اعدام ‎#محمد_عباسی رو داد و جمهوری اسلامی امروز مخفیانه طناب دار رو دور گردنش انداخت.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389395
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389395.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی قمصری در کاخ الیزه در واکنش به رابطه «گلشیفته و مکرون»
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389394
 

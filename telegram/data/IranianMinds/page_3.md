@@ -1,8 +1,44 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/25 21:04
+📅 آخرین بروزرسانی: 1405/02/25 22:54
 
 ---
+
+## IranianMinds — post 20167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ به فاکس‌ نیوز :
+
+من از الان دیگه آدم صبوری نیستم و صبر بیشتری به ایران نشان نخواهم داد!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20166
+
+<div align="center"><img src="telegram/content/IranianMinds_20166.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ :
+
+من و رئیس جمهور چین درباره ایران صحبت کردیم. احساساتمان بسیار شبیه هم است. ما می‌خواهیم تنگه‌ هرمز باز باشد و هدف ما یکیه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20165
+
+<div align="center"><video src="telegram/content/IranianMinds_20165.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20165.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نتانیاهو:
+
+امروز، ۶۰٪ از نوار غزه تحت کنترل ماست. ولی فردا باید ببینیم…
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20164
 
@@ -196,42 +232,6 @@ ShirOKhorshid-2026.05.14.apk
 از الان دیگه باید با قیمت قطعی خودرو خداحافظی کنید؛
 
 در طرح جدید ایران ‌خودرو و سایپا، خریداران باید نصف پول رو از اول بدن بدون اینکه حتی بفهمن قیمت نهایی زمان تحویل خودرو براشون چقدره !
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20145
-
-<div align="center"><video src="telegram/content/IranianMinds_20145.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20145.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 کارشناس کانال ۱۴ اسرائیل:
-
-رژیم ایران در حال انجام تماس‌هایی به صورت مخفی و مستقیم با دولت ترامپ هست و به شدت احتیاج به پول داره.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20144
-
-<div align="center"><video src="telegram/content/IranianMinds_20144.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20144.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نتانیاهو:
-
-ما اورشلیم را برای همیشه تحت حاکمیت اسرائیل حفظ خواهیم کرد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 روبیو، وزیرخارجه آمریکا: ترامپ از رئیس جمهور چین کمکی نخواست و آمریکا به کمک چین نیازی نداره.
 
 @IranianMinds
 </div>

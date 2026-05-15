@@ -1,8 +1,38 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 21:04
+📅 آخرین بروزرسانی: 1405/02/25 22:54
 
 ---
+
+## IranianMinds — post 20188
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+اگر ۹ ماه پیش از بمب‌های B-2 استفاده نکرده بودم، ایران اکنون قادر به دستیابی به سلاح هسته‌ای بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20187
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+رئیس ‌جمهور چین با عدم دستیابی ایران به سلاح هسته‌ای موافق است و می‌خواهد ایران تنگه هرمز را باز کند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20186
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+تحقیقات درباره هدف قرار گرفتن مدرسه‌ای در ایران ( مدرسه میناب ) در جریان است.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20185
 
@@ -197,42 +227,6 @@ re25
 🔴 ترامپ :
 
 نابودی نظامی ایران ادامه خواهد داشت
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20167
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ به فاکس‌ نیوز :
-
-من از الان دیگه آدم صبوری نیستم و صبر بیشتری به ایران نشان نخواهم داد!
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20166
-
-<div align="center"><img src="telegram/content/IranianMinds_20166.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ :
-
-من و رئیس جمهور چین درباره ایران صحبت کردیم. احساساتمان بسیار شبیه هم است. ما می‌خواهیم تنگه‌ هرمز باز باشد و هدف ما یکیه.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20165
-
-<div align="center"><video src="telegram/content/IranianMinds_20165.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20165.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نتانیاهو:
-
-امروز، ۶۰٪ از نوار غزه تحت کنترل ماست. ولی فردا باید ببینیم…
 
 @IranianMinds
 </div>

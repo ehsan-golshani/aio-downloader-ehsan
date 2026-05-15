@@ -1,8 +1,22 @@
 # آرشیو کانال kianmeli1 - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 20:55
+📅 آخرین بروزرسانی: 1405/02/25 22:46
 
 ---
+
+## kianmeli1 — post 87393
+
+<div align="center"><video src="telegram/content/kianmeli1_87393.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87393.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴جان بولتون: مذاکره بر سر توافق هسته‌ای با ایران اتلاف اکسیژن است.
+
+این افراد دهه‌ها پیش تصمیمی استراتژیک برای دستیابی به سلاح‌های هسته‌ای گرفتند.
+در ۴۷ سال گذشته حتی یک مدرک هم وجود ندارد که نشان دهد آنها از این هدف دست کشیده‌اند
+https://t.me/kianmeli1
+</div>
 
 ## kianmeli1 — post 87392
 
@@ -213,19 +227,6 @@ https://t.me/kianmeli1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴وضعیت خیابان‌ها و پارک‌های پردیس پس از زلزله امشب
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87373
-
-<div align="center"><video src="telegram/content/kianmeli1_87373.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87373.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴حضور مردم در حاشیه شهر بومهن پس از وقوع زلزله امشب
-
-برخی مردم در خیابان خوابیده اند
 https://t.me/kianmeli1
 </div>
 
