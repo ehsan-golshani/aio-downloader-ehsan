@@ -1,8 +1,16 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 00:21
+📅 آخرین بروزرسانی: 1405/02/26 01:28
 
 ---
+
+## Persian_Trend_Official — post 14223
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14223.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واقعا احمدی نژاد چه شد ؟!
+</div>
 
 ## Persian_Trend_Official — post 14222
 
@@ -152,8 +160,6 @@ https://youtube.com/live/MneL4ZkKs1A?feature=share
 
 ## Persian_Trend_Official — post 14210
 
-<div align="center"><a href="telegram/content/اتاق جنگ جمعه 25 اردیبهشت | تلاش امارات برای دور بعدی جنگ با ایران.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 اتاق جنگ جمعه 25 اردیبهشت | تلاش امارات برای دور بعدی جنگ با ایران</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فایل صوتی لایو اول
 نسخه کم حجم - 7.07 مگابایت
@@ -240,25 +246,5 @@ https://youtube.com/live/MneL4ZkKs1A?feature=share
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بجا مانده از رزمایش خامنه ای !!! به نظر شما چه چیزی در این تصویر جلب توجه میکند ؟ اضافه وزن نیروی سپاه پاسداران که اصلا شبیه یک نظامی ورزیده نیست . به مدل نشستن رو زاپاس هم اصلا نمیپردازیم ! وقتی میگم سپاه پاسداران از یک ارتش حرفه ای به یک گروه مسلح تبدیل…
-</div>
-
-## Persian_Trend_Official — post 14199
-
-<div align="center"><img src="telegram/content/Persian_Trend_Official_14199.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بجا مانده از رزمایش خامنه ای !!!
-
-به نظر شما چه چیزی در این تصویر جلب توجه میکند ؟
-
-اضافه وزن نیروی سپاه پاسداران که اصلا شبیه یک نظامی ورزیده نیست .
-به مدل نشستن رو زاپاس هم اصلا نمیپردازیم !
-
-وقتی میگم سپاه پاسداران از یک ارتش حرفه ای به یک گروه مسلح تبدیل شده دلیلش این هست.
-تازه عرزشی ها اعتقاد دارن جنگ زمینی تخصص اون هاست !
-
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>
 

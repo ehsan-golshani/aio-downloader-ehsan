@@ -1,8 +1,40 @@
 # آرشیو کانال alonews - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 00:28
+📅 آخرین بروزرسانی: 1405/02/26 01:34
 
 ---
+
+## alonews — post 120269
+
+<div align="center"><img src="telegram/content/alonews_120269.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈دنا پلاس؛ ۳ میلیارد تومن ناقابل
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120268
+
+<div align="center"><img src="telegram/content/alonews_120268.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈آخرین قیمت نفت ۱۰۹.۴۳ دلار
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120267
+
+<div align="center"><img src="telegram/content/alonews_120267.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈هشدار مرندی: حمله ایالات متحده به زیرساخت‌های ایران به قیمت نابودی نیروهای نیابتی آمریکا در منطقه تمام خواهد شد!
+
+🔴اگر ترامپ به نیروگاه‌ها و پل‌های ایران حمله کند، جمهوری اسلامی برای همیشه نیروهای نیابتی او را در خلیج فارس نابود کرده و زیرساخت‌های حیاتی رژیم صهیونیستی را فوراً در هم خواهد شکست. رکود اقتصادی فاجعه‌بار جهانی تضمین خواهد شد.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120266
 
@@ -192,32 +224,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈رضا سپهوند، عضو کمیسیون انرژی مجلس: یه دلیل بمباران جنگ، روزانه ۳۰ میلیون لیتر کمبود بنزین داریم و در کوتاه‌مدت هم امکان افزایش تولید وجود ندارد، راهی جز صرفه جویی نداریم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120243
-
-<div align="center"><img src="telegram/content/alonews_120243.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری / ارتش اسرائیل : عزالدین الحداد فرمانده گردان‌های القسام، همراه با محافظ‌هاش ترور شد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120242
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رسانه پخش اسرائیل: تصمیم از سرگیری جنگ در ایران هنوز به رئیس‌جمهور ترامپ بستگی دارد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120241
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کانال ۱۳ اسرائیل: سیستم امنیتی معتقد است که ترامپ با حمله‌ای محدود به ایران موافقت خواهد کرد.
 
 ✅ @AloNews خبر جنگ
 </div>

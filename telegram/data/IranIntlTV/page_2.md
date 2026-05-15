@@ -1,8 +1,34 @@
 # آرشیو کانال IranIntlTV - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 00:15
+📅 آخرین بروزرسانی: 1405/02/26 01:22
 
 ---
+
+## IranIntlTV — post 337371
+
+<div align="center"><img src="telegram/content/IranIntlTV_337371.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آموزشکده توانا در گزارشی نوشت برخی وکلا با هماهنگی نهادهای امنیتی و قضات دادگاه‌های انقلاب، در پرونده‌های امنیتی به‌جای دفاع از متهمان، با درخواست عفو و «اقرار ضمنی» به اتهام‌ها، مسیر صدور و اجرای احکام سنگین از جمله اعدام را هموار می‌کنند.
+
+بر اساس این گزارش، این وکلا با تجدیدنظرخواهی فوری، فرصت قانونی اعتراض را نیز از متهمان سلب می‌کنند.
+این گزارش از «مهدی محرابی» به‌عنوان یکی از این وکلا نام برده و نوشته او در پرونده آتش‌سوزی پایگاه بسیج خیابان نامجو، مربوط به محمدامین بیگلری، امیرحسین حاتمی، علی فهیم و شاهین واحدپرست کلور، چهار معترض اعدام‌شده، نقش داشته است.
+
+در این گزارش همچنین آمده خانواده برخی متهمان امنیتی تحت فشار قرار می‌گیرند تا به‌جای وکلای مستقل، از «وکلای مورد تایید» استفاده کنند؛ اقدامی که به نوشته توانا، در مواردی به صدور احکام اعدام یا حبس‌های طولانی‌مدت منجر شده است.
+https://iranintl.com/202605156524
+</div>
+
+## IranIntlTV — post 337370
+
+<div align="center"><video src="telegram/content/IranIntlTV_337370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻هادی چوپان، قهرمان پیشین مسترالمپیا در یک مسابقه استعدادیابی که از صدا و سیمای جمهوری اسلامی پخش می‌شود، گفت: «ما با زحمت و هزار دردسر به قله رسیدیم، نباید بازیچه دلقکان مجازی شویم.»
+
+@iranintltvsport
+</div>
 
 ## IranIntlTV — post 337369
 
@@ -313,36 +339,6 @@ https://iranintl.com/202605158980
 براساس این گزارش، یکی از گزینه‌ها انجام حملات محدود و هدفمند علیه تاسیسات سوخت و انرژی ایران است.
 
 گزارش اشکان صفایی، خبرنگار ایران‌اینترنشنال
-@iranintltv
-</div>
-
-## IranIntlTV — post 337351
-
-<div align="center"><video src="telegram/content/IranIntlTV_337351.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337351.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ستاد فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد از زمان آغاز محاصره دریایی ایران، ۷۵ کشتی تجاری تغییر مسیر داده و چهار کشتی دیگر از کار افتاده‌اند.
-
-سنتکام این موضوع را نشانه اجرای کامل محاصره تنگه هرمز دانست.
-
-گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال
-@iranintltv
-</div>
-
-## IranIntlTV — post 337350
-
-<div align="center"><video src="telegram/content/IranIntlTV_337350.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337350.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ در مسیر بازگشت از چین گفت اگر اورانیوم غنی‌شده ایران تحویل داده نشود، آمریکا در «مقطعی مناسب» وارد ایران خواهد شد.
-
-او همچنین گفت شاید نیاز به «پاکسازی مجدد» در ایران باشد.
-
-گزارش سمیرا قرایی، خبرنگار ایران‌اینترنشنال
 @iranintltv
 </div>
 

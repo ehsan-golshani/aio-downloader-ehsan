@@ -1,8 +1,38 @@
 # آرشیو کانال IranIntlTV - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 00:15
+📅 آخرین بروزرسانی: 1405/02/26 01:22
 
 ---
+
+## IranIntlTV — post 337351
+
+<div align="center"><video src="telegram/content/IranIntlTV_337351.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337351.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ستاد فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد از زمان آغاز محاصره دریایی ایران، ۷۵ کشتی تجاری تغییر مسیر داده و چهار کشتی دیگر از کار افتاده‌اند.
+
+سنتکام این موضوع را نشانه اجرای کامل محاصره تنگه هرمز دانست.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337350
+
+<div align="center"><video src="telegram/content/IranIntlTV_337350.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337350.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ در مسیر بازگشت از چین گفت اگر اورانیوم غنی‌شده ایران تحویل داده نشود، آمریکا در «مقطعی مناسب» وارد ایران خواهد شد.
+
+او همچنین گفت شاید نیاز به «پاکسازی مجدد» در ایران باشد.
+
+گزارش سمیرا قرایی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337349
 
@@ -195,28 +225,5 @@ https://iranintl.com/202605151790
 
 او ادامه داد: «نیروهای مسلح و بسیج نیز مانند گذشته، آمادگی کامل و کوبنده‌ای برای برخورد قاطع با هرگونه تجاوز دشمن را دارند.»
 https://iranintl.com/202605158432
-</div>
-
-## IranIntlTV — post 337331
-
-<div align="center"><video src="telegram/content/IranIntlTV_337331.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337331.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند در پیام ارسالی خود به ایران اینترنشنال با اشاره به افزایش شدید قیمت داروها گفت که هزینه گچ گرفتن پای شکسته‌اش ۹ میلیون تومان شده است. پیام این مخاطب با هوش مصنوعی خوانده شده است.
-</div>
-
-## IranIntlTV — post 337330
-
-<div align="center"><img src="telegram/content/IranIntlTV_337330.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رییس‌کل دادگستری خراسان جنوبی اعلام کرد یک وکیل دادگستری در بیرجند در جریان اختلاف خانوادگی جان باخته است.
-
-او گفت این وکیل زن پس از آن‌که همسرش با خودرو او را زیر گرفت، جان خود را از دست داد و پرونده این حادثه برای رسیدگی ویژه در دستگاه قضایی در حال بررسی است.
-
-به گفته این مقام قضایی، متهم خود را به قوه قضاییه معرفی کرده است.
-https://iranintl.com/202605153493
 </div>
 

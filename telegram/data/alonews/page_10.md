@@ -1,8 +1,33 @@
 # آرشیو کانال alonews - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/02/26 00:28
+📅 آخرین بروزرسانی: 1405/02/26 01:34
 
 ---
+
+## alonews — post 120020
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خضریان، عضو کمیسیون امنیت ملی مجلس: ترامپ در جنگ گیر کرده است و با بلوف زدن به دنبال این است که عقب‌های سیاسی را در ایران فعال کند تا مردم را به سوی تسلیم سوق دهند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خروج مرغ زنده از خوزستان ممنوع شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120018
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عزیزی، رئیس کمیسیون امنیت ملی:
+پیش بینی کردیم که هرکس که ترامپ رو به هلاکت برسونه، 50 میلیون یورو پاداش دریافت کنه.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120017
 
@@ -190,37 +215,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈روبیو، وزیر امور خارجه آمریکا : ترامپ از رئیس جمهور چین کمکی نخواست، آمریکا به کمک چین نیازی نداره
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119984
-
-<div align="center"><video src="telegram/content/alonews_119984.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119984.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈حزب‌الله دو سرباز اسرائیلی رو که داشتن فرار میکردن هدف گرفت و با پهپاد کُشت
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119983
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈گزارش واشنگتن پست از یک ارزیابی اطلاعاتی محرمانه ایالات متحده: چین در نتیجه جنگ جاری آمریکا با ایران، در زمینه های نظامی، اقتصادی، دیپلماتیک و رسانه ای، دستاوردهای استراتژیک گسترده‌ای را به هزینه ایالات متحده به دست می آورد ، در حالی که نگرانی فزاینده‌ای در وزارت دفاع ایالات متحده در مورد پیامدهای ژئوپلیتیکی این درگیری وجود دارد
-
-🔴پکن از جنگ با ایران برای تقویت جایگاه بین‌المللی خود استفاده کرد، در حالی که واشنگتن بخش قابل توجهی از قابلیت‌های نظامی و اقتصادی خود را از بین برد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119982
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رسایی؛ نماینده‌ی مجلس:
-دولت قصد داره میزان سهمیه ماهانه بنزین ۱۵۰۰ تومنی و ۳۰۰۰ تومنی رو کاهش بده و قیمت بنزین ۵۰۰۰ تومنی رو هم به ۲۰۰۰۰ تومن برسونه.
 
 ✅ @AloNews خبر جنگ
 </div>

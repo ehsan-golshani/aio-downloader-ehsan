@@ -1,8 +1,25 @@
 # آرشیو کانال FarsiVOA - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 00:20
+📅 آخرین بروزرسانی: 1405/02/26 01:26
 
 ---
+
+## FarsiVOA — post 217703
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺سئول: بعید است کسی جز حکومت ایران پشت حمله به کشتی کره جنوبی باشد
+
+▪️یک مقام ارشد کره جنوبی اعلام کرد احتمال این‌که نهادی غیر از حکومت ایران مسئول حمله به یک کشتی باری کره‌جنوبی در نزدیکی تنگه هرمز بوده باشد، پایین است.
+
+▪️این مقام ارشد روز پنج‌شنبه ۲۴ اردیبهشت به خبرنگاران گفت که کره‌جنوبی در حال بررسی اطلاعاتی است که آمریکا درباره حمله ۴ مه علیه کشتی «نامو» متعلق به شرکت کشتیرانی کره‌جنوبی اچ‌ام‌ام به اشتراک گذاشته است.
+
+▪️در جریان این حمله کشتی دچار آتش‌سوزی شد و خسارتی به بخش پایینی بدنه کشتی وارد آمد.
+
+▪️جمهوری اسلامی پیش‌تر مسئولیت این حمله را که شامل برخوردی شدید به بدنه کشتی بود، رد کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8149917.html
+</div>
 
 ## FarsiVOA — post 217702
 
@@ -206,17 +223,6 @@ https://ir.voanews.com/a/8149914.html
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️نویسندگان زندانی، تصویر ترسناک جهان امروز
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217682
-
-<div align="center"><video src="telegram/content/FarsiVOA_217682.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217682.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️ايران، كشورى كه آفلاين است
 @FarsiVOA
 </div>
 

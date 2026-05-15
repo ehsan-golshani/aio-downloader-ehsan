@@ -1,8 +1,34 @@
 # آرشیو کانال alonews - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 00:28
+📅 آخرین بروزرسانی: 1405/02/26 01:34
 
 ---
+
+## alonews — post 120243
+
+<div align="center"><img src="telegram/content/alonews_120243.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری / ارتش اسرائیل : عزالدین الحداد فرمانده گردان‌های القسام، همراه با محافظ‌هاش ترور شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رسانه پخش اسرائیل: تصمیم از سرگیری جنگ در ایران هنوز به رئیس‌جمهور ترامپ بستگی دارد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120241
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کانال ۱۳ اسرائیل: سیستم امنیتی معتقد است که ترامپ با حمله‌ای محدود به ایران موافقت خواهد کرد.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120240
 
@@ -171,30 +197,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈بلومبرگ: امارات به دنبال پاسخ هماهنگ به ایران بود، اما عربستان و قطر با آن همراهی نکردند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120215
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر امور خارجه پاکستان: یازده پاکستانی و ۲۰ ایرانی که در کشتی‌های توقیف شده توسط نیروهای آمریکایی بودند، آزاد شده‌اند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر امور خارجه چین: ما خواستار بازگشایی هرچه سریع‌تر تنگه هرمز هستیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر خارجه چین : شی جین پینگ پاییز آینده به آمریکا سفر میکنه
 
 ✅ @AloNews خبر جنگ
 </div>

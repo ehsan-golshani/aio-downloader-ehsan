@@ -1,8 +1,19 @@
 # آرشیو کانال FarsiVOA - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/02/26 00:20
+📅 آخرین بروزرسانی: 1405/02/26 01:26
 
 ---
+
+## FarsiVOA — post 217662
+
+<div align="center"><video src="telegram/content/FarsiVOA_217662.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217662.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا، روز چهارشنبه ۲۳ اردیبهشت وارد پکن شد. او در بدو ورود، از سوی معاون رئیس‌جمهوری چین، همراه با گارد احترام نظامی و شعار «خوش آمدید» حدود ۳۰۰ نوجوان و جوان چینی که پرچم‌های آمریکا و چین را در دست داشتند مورد استقبال قرار گرفت.
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217661
 

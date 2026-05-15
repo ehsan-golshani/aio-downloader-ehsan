@@ -1,8 +1,48 @@
 # آرشیو کانال alonews - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 00:28
+📅 آخرین بروزرسانی: 1405/02/26 01:34
 
 ---
+
+## alonews — post 120113
+
+<div align="center"><video src="telegram/content/alonews_120113.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120113.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈جنوب لبنان، ساعاتی قبل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120112
+
+<div align="center"><video src="telegram/content/alonews_120112.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120112.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈صدای چند انفجار در اربیل 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120111
+
+<div align="center"><video src="telegram/content/alonews_120111.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120111.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سخنگوی وزارت امور خارجه چین: درگیری بین ایران و ایالات متحده از همان ابتدا هرگز نباید رخ می‌داد و نیازی به ادامه آن نیست
+
+
+🔴یافتن راه‌حل در اسرع وقت به نفع ایالات متحده، ایران، کشورهای منطقه و جهان است
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120110
 
@@ -220,32 +260,6 @@
 🔴موضع چین در قبال ایران روشن، ثابت است و تغییری نکرده است. دیروز به طور کامل از صحبت در این مورد خودداری کرد و هر آنچه خلاف آن شایعه می شود کذب محض است.
 
 🔴 چین صبح امروز تصمیم گرفت موضع خود را از طریق بیانیه کامل وزارت خارجه منتشر کند تا تمام حقیقت روشن شود
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رویترز: ترامپ مدعی شد «توافق‌های تجاری فوق‌العاده‌ای» با چین حاصل شده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120062
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: رئیس‌جمهور چین می‌خواهد شاهد توافق با ایران باشد و برای کمک به این کار اعلام آمادگی کرده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120061
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈قیمت جهانی نفت روز جمعه پس از آن افزایش یافت که دونالد ترامپ اعلام کرد چین پس از گفت‌وگوهای او با شی جین‌پینگ، با خرید نفت از آمریکا موافقت کرده است.
-
-🔴 با این حال، پکن تاکنون این ادعا را تأیید نکرده و به درخواست رسانه‌ها برای اظهار نظر نیز پاسخی نداده است
 
 ✅ @AloNews خبر جنگ
 </div>

@@ -1,8 +1,14 @@
 # آرشیو کانال FarsiVOA - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 00:20
+📅 آخرین بروزرسانی: 1405/02/26 01:26
 
 ---
+
+## FarsiVOA — post 217838
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گفت‌و‌گوی پرزیدنت ترامپ و مرتس همزمان با تشدید جنگ اوکراین و واکنش تند اروپا به روسیه
+</div>
 
 ## FarsiVOA — post 217837
 
@@ -160,18 +166,6 @@ https://ir.voanews.com/a/8150374.html/?nocach=1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جنگنده‌های اف-۱۶ امارات متحده عربی، هواپیمای حامل نارندرا مودی، نخست‌وزیر هند، را هنگام عبور از حریم هوایی امارات اسکورت کردند.
-
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217817
-
-<div align="center"><video src="telegram/content/FarsiVOA_217817.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217817.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصاویر منتشرشده در شبکه‌های اجتماعی، لحظه وقوع حمله هوایی اسرائیل به منطقه العباسیه در شهرستان صور در جنوب لبنان را نشان می‌دهد.
 
 @FarsiVOA
 </div>

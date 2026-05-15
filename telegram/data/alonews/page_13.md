@@ -1,8 +1,51 @@
 # آرشیو کانال alonews - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/26 00:28
+📅 آخرین بروزرسانی: 1405/02/26 01:34
 
 ---
+
+## alonews — post 119917
+
+<div align="center"><video src="telegram/content/alonews_119917.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119917.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈صداوسیما به‌نقل از نیروی دریایی سپاه:
+از شب گذشته تاکنون ۳۰ فروند کشتی از تنگۀ هرمز با مجوز ایران عبور کرده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119916
+
+<div align="center"><video src="telegram/content/alonews_119916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈اسکات بسنت، وزیر خزانه‌داری آمریکا :
+
+- تا الان امسال سی و چهل هزار نفر رو اعدام کردن و خیلی‌هاشون هم معترضای مسالمت‌آمیز بودن
+- خب با همچین رژیمی چطور باید برخورد کرد؟
+- از نظر اقتصادی خفش می‌کنیم،و فکر می‌کنیم کار به جایی رسیده که سربازاشون حقوق نمی‌گیرن
+- نمی‌تونن از خارج هم سلاح و مهماتشون رو تأمین کنن
+- برای همین فکر می‌کنم دیگه دارن به آخر خط می‌رسن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119915
+
+<div align="center"><img src="telegram/content/alonews_119915.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صدا و سیما: قراره محرم یه سریال کاملا جدید و خفن به اسم مختارنامه از شبکه آی فیلم پخش کنیم.
+
+[@AloTweet]
+</div>
 
 ## alonews — post 119914
 
@@ -177,36 +220,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈یدیعوت آحارانوت به نقل از یک منبع نظامی: سربازان در لبنان با زره و کلاه ایمنی در حال رفت و آمد هستند و نمی‌دانند چه زمانی ممکن است پهپادها به آنها حمله کنند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119897
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مدیر سرویس اطلاعات خارجی روسیه: هیچ نشانه ای از پایان درگیری نظامی بر سر ایران وجود ندارد و نمی توان موج جدیدی از تشدید تنش را رد کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119896
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈آکسیوس به نقل از مقامات اسرائیلی: ما در انتظار تصمیم ترامپ برای از سرگیری جنگ، سطح هشدار را در آخر هفته به بالاترین حد خود افزایش خواهیم داد. ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119895
-
-<div align="center"><video src="telegram/content/alonews_119895.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119895.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جان بولتون: مذاکره بر سر توافق هسته‌ای با ایران اتلاف اکسیژن است.
-
-🔴این افراد دهه‌ها پیش تصمیمی استراتژیک برای دستیابی به سلاح‌های هسته‌ای گرفتند.
-
-🔴در ۴۷ سال گذشته حتی یک مدرک هم وجود ندارد که نشان دهد آنها از این هدف دست کشیده‌اند
 
 ✅ @AloNews خبر جنگ
 </div>

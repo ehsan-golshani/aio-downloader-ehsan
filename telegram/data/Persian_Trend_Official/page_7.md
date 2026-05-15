@@ -1,8 +1,22 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 00:21
+📅 آخرین بروزرسانی: 1405/02/26 01:28
 
 ---
+
+## Persian_Trend_Official — post 14073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فایل صوتی لایو اول
+نسخه کم حجم - 5.1 مگابایت
+
+اتاق جنگ چهارشنبه ۲۳ اردیبهشت | جمهوری اسلامی ناو آمریکایی را تهدید به حمله کرد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14072
 

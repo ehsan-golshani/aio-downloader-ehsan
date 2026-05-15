@@ -1,8 +1,14 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 00:21
+📅 آخرین بروزرسانی: 1405/02/26 01:28
 
 ---
+
+## Persian_Trend_Official — post 14154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا دقایقی دیگه لایو شروع میشه
+</div>
 
 ## Persian_Trend_Official — post 14153
 
@@ -354,27 +360,6 @@ https://farsnews.ir/Khate_energy/1778660394098111565/%D8%A7%D8%B2-%D8%A7%D8%AE%D
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، و سرگئی لاوروف، وزیر امور خارجه روسیه، در شهر دهلی نو (پایتخت هند) با یکدیگر دیدار و گفتگو کردند
-
-🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14121
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14121.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14121.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وزیر دفاع اسرائیل، کاتز درباره ایران
-
-💢ماموریت ما کامل نشده است.
-
-💢ما برای احتمال اینکه ممکن است مجبور شویم دوباره اقدام کنیم - شاید حتی به زودی - آماده‌ایم.
-
-▪️اگر اهداف تأمین نشوند، دوباره اقدام خواهیم کرد.
 
 🫆:Tony
 

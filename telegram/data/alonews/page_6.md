@@ -1,8 +1,46 @@
 # آرشیو کانال alonews - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 00:28
+📅 آخرین بروزرسانی: 1405/02/26 01:34
 
 ---
+
+## alonews — post 120165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: وقتی به پیشنهاد ایران نگاه کردم، جمله اول را دوست نداشتم و قابل قبول نبود، بنابراین پیشنهاد را رد کردم
+
+🔴تحقیقات درباره هدف قرار دادن مدرسه در ایران در حال انجام است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120164
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: من به جایی رفتم که شی زندگی می کند، چیزی که به ندرت اتفاق می افتد.
+
+🔴خبرنگار: اونجا بودی؟
+
+🔴ترامپ: آره قشنگ بود.منظورم این است که مردم هرگز آن را ندیده اند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120163
+
+<div align="center"><video src="telegram/content/alonews_120163.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120163.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: رابطه بسیار خوبی با کیم جونگ اون دارم
+
+🔴دونالد ترامپ گفت با کیم جونگ اون، رهبر کره شمالی، «رابطه بسیار خوبی» دارد و او تا امروز نسبت به آمریکا محترمانه رفتار کرده است.
+
+🔴ترامپ اضافه کرد که میخواهد این احترام ادامه داشته باشد. این اظهارات در حالی مطرح میشود که پرونده کره شمالی دوباره به یکی از آزمون‌های مهم سیاست خارجی واشنگتن تبدیل شده، جایی که ترامپ مثل همیشه روی رابطه شخصی با رهبران سختگیر حساب باز میکند.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120162
 
@@ -189,46 +227,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈هواپیماهای باری نظامی آذربایجان از طریق حریم هوایی ترکیه به سمت تل آویو در حرکت هستند.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120113
-
-<div align="center"><video src="telegram/content/alonews_120113.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120113.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جنوب لبنان، ساعاتی قبل
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120112
-
-<div align="center"><video src="telegram/content/alonews_120112.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120112.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈صدای چند انفجار در اربیل 
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120111
-
-<div align="center"><video src="telegram/content/alonews_120111.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120111.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سخنگوی وزارت امور خارجه چین: درگیری بین ایران و ایالات متحده از همان ابتدا هرگز نباید رخ می‌داد و نیازی به ادامه آن نیست
-
-
-🔴یافتن راه‌حل در اسرع وقت به نفع ایالات متحده، ایران، کشورهای منطقه و جهان است
 
 
 ✅ @AloNews خبر جنگ

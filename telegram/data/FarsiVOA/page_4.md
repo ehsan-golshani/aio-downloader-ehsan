@@ -1,8 +1,15 @@
 # آرشیو کانال FarsiVOA - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 00:20
+📅 آخرین بروزرسانی: 1405/02/26 01:26
 
 ---
+
+## FarsiVOA — post 217797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️رهبران کدام شرکت‌های بزرگ آمریکایی دونالد ترامپ را در سفر به چین همراهی کردند؟
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217796
 
@@ -198,18 +205,6 @@ https://ir.voanews.com/a/8150089.html
 
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/marco-rubio-nbc-interview-china-iran-hormuz-strait/8150078.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺پاداش ۲۰۰هزار دلاری اف‌بی‌آی برای اطلاعات منجر به دستگیری مامور سابق آمریکایی؛ مونیکا ویت به جاسوسی برای رژیم ایران متهم است
-
-◾️پلیس فدرال آمریکا، اف‌بی‌آی اعلام کرد که برای دریافت اطلاعاتی که منجر به دستگیری و محاکمه مونیکا ویت شود، ۲۰۰ هزار دلار پاداش گذاشته است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8150083.html
 @FarsiVOA
 </div>
 

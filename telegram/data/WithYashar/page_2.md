@@ -1,8 +1,146 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 00:09
+📅 آخرین بروزرسانی: 1405/02/26 01:16
 
 ---
+
+## WithYashar — post 11334
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک تایمز: آمریکا محمد بکر سعید داود السعدی، فرمانده ارشد شبه‌نظامی گردان‌های حزب‌الله درعراق، رو دستگیر کرد و علیه‌اش کیفرخواست صادر کرد.
+
+او متهم به طراحی حداقل 18 حمله در اروپا، آمریکا و کانادا از پایان فوریه شده؛ این حملات به عنوان انتقام از حملات آمریکا و اسرائیل علیه جمهوری اسلامی برنامه‌ریزی شده بودن.
+@withyashar
+</div>
+
+## WithYashar — post 11333
+
+<div align="center"><video src="telegram/content/WithYashar_11333.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11333.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لحظه خداحافظی ترامپ با شی و خوشحالی او از سفر موفقیت آمیزش
+@withyashar
+</div>
+
+## WithYashar — post 11332
+
+<div align="center"><video src="telegram/content/WithYashar_11332.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11332.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏مایک والتز، سفیر آمریکا در سازمان ملل ، می‌گوید که یکی از «نتایج بزرگ» سفر ترامپ به چین این بود که چین موافقت کرده از ایران فاصله بگیرد.
+@withyashar
+</div>
+
+## WithYashar — post 11331
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منابع عبری :
+
+گویا ترامپ با یک حمله محدود جهت فشار بر سر تسلیم شدن موافقت کرده است
+@withyashar
+</div>
+
+## WithYashar — post 11330
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واشنگتن پست: جمهوری اسلامی واضح‌ترین بازنده دیدار ترامپ از پکن است، با مخالفت علنی پکن با اختلال در هرمز، تعهد به عدم ارسال تجهیزات نظامی به تهران و توافق بر اینکه تنگه «باید باز بماند.»
+@withyashar
+</div>
+
+## WithYashar — post 11328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+l وزارت خارجه آمریکا اعلام کرد آتش‌بس میان لبنان و اسرائیل به مدت ۴۵ روز دیگر تمدید شد.
+@withyashar
+</div>
+
+## WithYashar — post 11327
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@withyashar
+</div>
+
+## WithYashar — post 11326
+
+<div align="center"><video src="telegram/content/WithYashar_11326.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11326.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@withyashar
+</div>
+
+## WithYashar — post 11325
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میگم فالورایه شاهزاده داره کم میشه قبله جنگ ۹.۹ بود الان ۹.۷ شده
+</div>
+
+## WithYashar — post 11324
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میگم فالورایه شاهزاده داره کم میشه قبله جنگ ۹.۹ بود الان ۹.۷ شده
+</div>
+
+## WithYashar — post 11323
+
+## WithYashar — post 11322
+
+<div align="center"><img src="telegram/content/WithYashar_11322.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت جهانی استارلینک مینی با تخفیف به زیر ۲۰۰دلار (۳۶میلیون تومن) رسیده و پایین‌تر هم میاد. سایز دیشش هم اندازه‌ی یه کاغذ آ۴ هست!
+
+واقعیت اینکه شاید الان بشه جلوی اتصال به اینترنت رو گرفت ولی تا چند سال آینده عملا غیرممکن میشه!
+@withyashar
+</div>
+
+## WithYashar — post 11321
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هادی چوپان، در یک مسابقه استعدادیابی که از صدا و سیمای رژیم پخش می‌شود، گفت: «ما با زحمت و هزار دردسر به قله رسیدیم، نباید بازیچه دلقکان مجازی شویم.»
+@withyashar
+</div>
+
+## WithYashar — post 11320
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاهزاده رضا پهلوی : هم‌میهنان عزیزم،
+
+در روزهایی که شما با شجاعت در برابر رژیم اشغالگر ایران ایستاده‌اید، این نظام منفور و منزوی، همچنان به تجاوز به جان و مال مردم ادامه می‌دهد تا سرنگونی حتمی خود را اندکی به تعویق اندازد. در چنین شرایطی، وظیفه خود می‌دانم که تصویر عدالت در فردای ایران را برای کسانی که با جنایتکاران همکاری کنند، روشن‌تر ترسیم کنم.
+
+در این راستا، از «کمیته‌ تدوین مقررات عدالت انتقالی ایران» خواستم درباره‌ دو موضوع مهم، نظر مشورتی خود را ارائه کند: نخست، موضوع مسئولیت کیفری افرادی که با ساختارهای سرکوبگر جمهوری اسلامی همکاری می‌کنند؛ و دوم، موضوع مصادره‌ اموال معترضان و خانواده‌های آنان.
+@withyashar
+این کمیته اکنون نخستین نظر مشورتی خود را صادر کرده و پیام آن روشن است: این اقدامات، همکاری‌های ساده یا بی‌اهمیت نیستند؛ بلکه «یاری‌رسانی به جنایت علیه بشریت» محسوب می‌شوند. هیچ مقام، هیچ دستور و هیچ بهانه‌ای نمی‌تواند مسئولیت کیفری فردی را از میان ببرد. بنابراین، هر فردی که آگاهانه و داوطلبانه با ساختارهای سرکوبگر رژیم همکاری کند، چه در داخل و چه در خارج از ایران، باید بداند که در معرض مسئولیت کیفری قرار خواهد گرفت:
+
+خواه این همکاری از نوع گزارش‌دهی یا خبرچینی باشد؛
+خواه از نوع مشارکت در ایست‌های بازرسی‌ باشد؛
+خواه از نوع به‌کارگیری کودکان و نوجوانان در سرکوب معترضان باشد؛
+و خواه از نوع تحصیل، انتقال یا خرید و فروش اموالی باشد که در جریان سرکوب از معترضان و خانواده‌های آنان مصادره شده‌ است.
+@withyashar
+از این رو، نه‌تنها افرادی که در صدور دستور، اجرای آن، یا تسهیل این مصادره‌ها نقش دارند در معرض مسئولیت قرار خواهند گرفت، بلکه کسانی که آگاهانه و داوطلبانه به خرید و فروش این اموال می‌پردازند نیز باید پاسخگو باشند. این مسئولیت، استفاده از اموال یا دارایی‌های آنان برای جبران خسارت واردشده به مالکان اصلی را نیز شامل می‌‌شود.
+
+بنابراین، به همه‌ کسانی که امروز در صدد همکاری با دستگاه سرکوب رژیم هستند هشدار می‌دهم: پیش از آن‌که دست به اقدامی بزنید که به مردم ایران آسیب جانی، مالی و یا اجتماعی برساند، به آینده‌ خود و خانواده‌تان بیندیشید. به آن روز بیندیشید که ایران آزاد خواهد شد؛ روزی که حقیقت پنهان نخواهد ماند؛ روزی که اسامی آشکار خواهد شد؛ روزی که هیچ متجاوز و جنایتکاری از پاسخ‌گویی در برابر قانون در امان نخواهد ماند.
+
+آن روز، ملت ایران حکومتی خواهد داشت که حقوق ایرانیان را محترم می‌دارد و ایران را به سرزمینی آزاد و آباد بدل می‌کند.
+
+پاینده ایران،
+رضا پهلوی
+@withyashar
+</div>
+
+## WithYashar — post 11319
+
+## WithYashar — post 11318
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان سازمان مجاهدین خلق ایران (که در آمریکا با نام‌های MEK یا PMOI شناخته می‌شود) به‌صورت رسمی در تاریخ ۲۸ سپتامبر ۲۰۱۲ از فهرست «سازمان‌های تروریستی خارجی» وزارت خارجه آمریکا خارج شد. این تصمیم توسط وزارت خارجه دولت هیلاری کلینتون اعلام شد و همان روز اجرایی گردید
+@withyashar
+</div>
 
 ## WithYashar — post 11317
 
@@ -18,81 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آخرین فیلم مخفی وحید بنی عامریان، نخبه ریاضی در زندان اوین که از دفاعیه اش در مقابل بیدادگاه آخوندی می گوید. وحید روز 15 فروردین 1405 اعدام شد @withyashar
-</div>
-
-## WithYashar — post 11313
-
-## WithYashar — post 11312
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یاشار مجاهدین خیلی دارن به دانشجو های داخل ایران پیام میدن، واسه خودم تا الان از دو نفر مختلف پیش اومده، شروع میکنن به توضیح تاریخچه خودشون و همه چیزای خوب رو هم میچسبونن به خودشون و فلان
-نمیدونم چه پروژه ای راه انداختن ولی از طریق
-</div>
-
-## WithYashar — post 11311
-
-## WithYashar — post 11310
-
-<div align="center"><img src="telegram/content/WithYashar_11310.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده
-
-@withyashar
-</div>
-
-## WithYashar — post 11309
-
-## WithYashar — post 11308
-
-## WithYashar — post 11307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امریکا زمانی حمله میکنه که کسی منتظر نیس.
-</div>
-
-## WithYashar — post 11306
-
-## WithYashar — post 11305
-
-<div align="center"><video src="telegram/content/WithYashar_11305.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11305.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-## WithYashar — post 11304
-
-## WithYashar — post 11303
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال ۱۳ اسرائیل:
-
-سیستم امنیتی معتقد است که ترامپ با حمله‌ای محدود به ایران موافقت خواهد کرد.
-@withyashar
-</div>
-
-## WithYashar — post 11302
-
-## WithYashar — post 11301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یاشار بیا مثل سیاه جامگان یا حسن صباح یه فرقه راه بنداز 😅
-</div>
-
-## WithYashar — post 11300
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخرش مجبور به همین کار میشیم🫤
-</div>
-
-## WithYashar — post 11299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یاشار خودت یه فراخوان بده بزنیم کارو تموم کنیم 😂🤦‍♂‌ دیگه نمیکشیم
-</div>
-
-## WithYashar — post 11297
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیداریم مثل پلنگ 😾💪🏾
 </div>
 

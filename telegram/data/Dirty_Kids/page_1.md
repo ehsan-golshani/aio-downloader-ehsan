@@ -1,8 +1,36 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 00:25
+📅 آخرین بروزرسانی: 1405/02/26 01:31
 
 ---
+
+## Dirty_Kids — post 389528
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389528.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طبق گفته دو مقام خاورمیانه‌ای، آمریکا و اسرائیل دارن آماده‌سازی خیلی گسترده‌ای انجام می‌دن. (بزرگ‌ترین سطح از وقتی که آتش‌بس برقرار شده)
+
+این آماده‌سازی‌ها انقدر جدیه که ممکنه از هفته آینده دوباره حملات شروع بشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389526
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389526.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389526.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز یکی تو فضای مجازی با هوش مصنوعی یه عکس از ترامپ و ایلان ماسک زیر پرچم داس و چکشِ کمونیست ساخت؛
+
+بعد تو صداوسیما، خانعلی زاده (کارشناس روابط خارجی و همراه تیم مذاکره کننده تو سفر به پاکستان) خیلی جدی تحلیل کرد که این عکس خروجی سفر ترامپه و این یعنی آمریکا همیشه زیرخوابِ چینه...
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389525
 
@@ -239,37 +267,6 @@ https://bet120x.com/fa/?btag=971470
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بحران زیست‌محیطی در خلیج فارس در پی نشت نفت از جزیره مارو
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389502
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389502.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
-
-⚫️با بالاترین کیفیت ممکن⚡️ 
-⚫️100 هزار تومان شارژ هدیه 🎁
-⚫️پایین ترین قیمت گیگی 250🌐 
-⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
-
-بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
-
-بادبان راهتو باز می‌کنه⛵️
-
-G25
-🛡@BadBan_VPN | کانال 
-🤖@BadBan_VPNBot | ربات 
-📞@BadBan_VPNSupport | پشتیبانی
-</div>
-
-## Dirty_Kids — post 389501
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نمیدونم کیه این پسره و چه برنامه‌ای هست ولی داره درست میگه، این اقلیت ۵درصدی رافضی ولایت‌به‌باسن برای اینکه بمونن راضین همرو بکشن
 
 
 @Dirty_Kids 👻

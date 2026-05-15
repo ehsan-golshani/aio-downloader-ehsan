@@ -1,8 +1,42 @@
 # آرشیو کانال alonews - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 00:28
+📅 آخرین بروزرسانی: 1405/02/26 01:34
 
 ---
+
+## alonews — post 120290
+
+<div align="center"><video src="telegram/content/alonews_120290.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120290.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مجریان بیسواد صدا و سیما برداشتن یه تصویر هوش مصنوعی رو گذاشتن و دارن تحلیلش میکنن!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120289
+
+<div align="center"><video src="telegram/content/alonews_120289.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120289.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مصاحبه‌گر : قبول دارید عامل گرانی‌ها محاصره آمریکا علیه ماست؟
+
+🔴حامی حکومت : نه، قبول ندارم!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120288
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈نیویورک تایمز: گزینه‌های ترامپ در ایران شامل نیروهای ویژه زمینی برای کنترل اورانیوم است
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120287
 
@@ -189,38 +223,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈توییت جدید و عجیب ترامپ
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120269
-
-<div align="center"><img src="telegram/content/alonews_120269.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دنا پلاس؛ ۳ میلیارد تومن ناقابل
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120268
-
-<div align="center"><img src="telegram/content/alonews_120268.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈آخرین قیمت نفت ۱۰۹.۴۳ دلار
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120267
-
-<div align="center"><img src="telegram/content/alonews_120267.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈هشدار مرندی: حمله ایالات متحده به زیرساخت‌های ایران به قیمت نابودی نیروهای نیابتی آمریکا در منطقه تمام خواهد شد!
-
-🔴اگر ترامپ به نیروگاه‌ها و پل‌های ایران حمله کند، جمهوری اسلامی برای همیشه نیروهای نیابتی او را در خلیج فارس نابود کرده و زیرساخت‌های حیاتی رژیم صهیونیستی را فوراً در هم خواهد شکست. رکود اقتصادی فاجعه‌بار جهانی تضمین خواهد شد.
 
 ✅ @AloNews خبر جنگ
 </div>

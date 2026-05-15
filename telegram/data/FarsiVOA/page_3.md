@@ -1,8 +1,20 @@
 # آرشیو کانال FarsiVOA - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 00:20
+📅 آخرین بروزرسانی: 1405/02/26 01:26
 
 ---
+
+## FarsiVOA — post 217817
+
+<div align="center"><video src="telegram/content/FarsiVOA_217817.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217817.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تصاویر منتشرشده در شبکه‌های اجتماعی، لحظه وقوع حمله هوایی اسرائیل به منطقه العباسیه در شهرستان صور در جنوب لبنان را نشان می‌دهد.
+
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217816
 
@@ -282,13 +294,6 @@ https://ir.voanews.com/a/8150358.html
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️دونالد ترامپ: آمریکا و چین خواهان بازشدن تنگه هرمز هستند
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217797
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️رهبران کدام شرکت‌های بزرگ آمریکایی دونالد ترامپ را در سفر به چین همراهی کردند؟
 @FarsiVOA
 </div>
 

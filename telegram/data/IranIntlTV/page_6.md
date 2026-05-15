@@ -1,8 +1,29 @@
 # آرشیو کانال IranIntlTV - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 00:15
+📅 آخرین بروزرسانی: 1405/02/26 01:22
 
 ---
+
+## IranIntlTV — post 337290
+
+<div align="center"><video src="telegram/content/IranIntlTV_337290.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337290.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در پیامی به ایران اینترنشنال به سایر شهروندان توصیه می‌کند که اینترنت حکومتی «پرو» را نخرند و آن ‌را خیانت به مردم ایران دانست. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337280
+
+<div align="center"><video src="telegram/content/IranIntlTV_337280.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337280.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از مخاطبان ایران‌اینترنشنال که دانش‌آموز پایه دهم انسانی است می‌گوید با وجود نهایی نبودن امتحان‌های امسال، نگران سال آینده است، چون به گفته او کیفیت آموزش و شرایط یادگیری در سال جاری «افتضاح» بوده و دانش‌آموزان عملا چیزی یاد نگرفته‌اند. او می‌گوید در مدرسه غیردولتی تحصیل می‌کند.
+این پیام با هوش مصنوعی خوانده شده است.
+</div>
 
 ## IranIntlTV — post 337279
 
@@ -230,29 +251,5 @@ https://iranintl.com/202605150729
 
 گفت‌وگو با شکوه میرزادگی، نویسنده و موسس بنیاد میراث پاسارگاد
 @iranintltv
-</div>
-
-## IranIntlTV — post 337261
-
-<div align="center"><img src="telegram/content/IranIntlTV_337261.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سنتکام، ستاد فرماندهی مرکزی آمریکا، تصویری از یک جنگنده اف-۱۶ نیروی هوایی آمریکا منتشر کرد و اعلام کرد این جنگنده برای پرواز شبانه از پایگاهی در خاورمیانه به پرواز درآمده است.
-
-سنتکام نوشت: «جنگنده‌های نیروی هوایی آمریکا به طور منظم در حمایت از امنیت منطقه‌ای، آسمان خاورمیانه را گشت‌زنی می‌کنند.»
-https://iranintl.com/202605159752
-</div>
-
-## IranIntlTV — post 337260
-
-<div align="center"><img src="telegram/content/IranIntlTV_337260.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس عراقچی، وزیر خارجه جمهوری اسلامی، در نشست وزیران خارجه بریکس خواستار اصلاح ساختار سازمان ملل و «نمایندگی عادلانه» همه مناطق جهان در شورای امنیت شد.
-
-او در این نشست گفت: «جمهوری اسلامی خواستار اصلاح ساختار سازمان ملل و نمایندگی عادلانه همه مناطق جهان در شورای امنیت است.»
-
-وزیر خارجه جمهوری اسلامی همچنین تحریم‌های «یکجانبه» را سلاحی علیه حقوق انسان‌ها توصیف کرد و افزود: «تحریم‌های یکجانبه به سلاحی علیه حقوق انسان‌ها تبدیل شده‌اند و مقابله با تروریسم اقتصادی ماموریت ضروری بریکس است.»
-https://iranintl.com/202605159286
 </div>
 

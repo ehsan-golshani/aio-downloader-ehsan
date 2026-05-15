@@ -1,8 +1,34 @@
 # آرشیو کانال alonews - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 00:28
+📅 آخرین بروزرسانی: 1405/02/26 01:34
 
 ---
+
+## alonews — post 120063
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رویترز: ترامپ مدعی شد «توافق‌های تجاری فوق‌العاده‌ای» با چین حاصل شده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120062
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: رئیس‌جمهور چین می‌خواهد شاهد توافق با ایران باشد و برای کمک به این کار اعلام آمادگی کرده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120061
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قیمت جهانی نفت روز جمعه پس از آن افزایش یافت که دونالد ترامپ اعلام کرد چین پس از گفت‌وگوهای او با شی جین‌پینگ، با خرید نفت از آمریکا موافقت کرده است.
+
+🔴 با این حال، پکن تاکنون این ادعا را تأیید نکرده و به درخواست رسانه‌ها برای اظهار نظر نیز پاسخی نداده است
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120060
 
@@ -186,34 +212,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈سنتکام: از آغاز محاصره دریایی بنادر ایران، 72 کشتی تجاری را منحرف و 4 کشتی را از کار انداختیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت خارجه قطر: ما به طور کامل از تلاش‌های پاکستان برای میانجیگری بین آمریکا و ایران حمایت می‌کنیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120042
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سوپر اپ روبیکا بیش از یک ساعته قطع شده
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120041
-
-<div align="center"><img src="telegram/content/alonews_120041.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈محمدباقر قالیباف: پس شما به هگست، مجری تلویزیونی شکست‌خورده، بودجه‌ای می‌دهید که از سال ۲۰۰۷ بی‌سابقه است، تا بتواند در حیاط خلوت ما در هرمز نقش وزیر جنگ را بازی کند؟
-
-🔴می‌دانی چه چیزی دیوانه‌کننده‌تر از ۳۹ تریلیون دلار بدهی است؟ پرداخت حق بیمه پیش از بحران مالی جهانی برای حمایت از یک بازی نقش‌آفرینی زنده (LARP) و تنها چیزی که به دست می‌آوری یک بحران مالی جهانی جدید است.
 
 ✅ @AloNews خبر جنگ
 </div>

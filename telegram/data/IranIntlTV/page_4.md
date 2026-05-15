@@ -1,8 +1,31 @@
 # آرشیو کانال IranIntlTV - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 00:15
+📅 آخرین بروزرسانی: 1405/02/26 01:22
 
 ---
+
+## IranIntlTV — post 337331
+
+<div align="center"><video src="telegram/content/IranIntlTV_337331.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337331.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در پیام ارسالی خود به ایران اینترنشنال با اشاره به افزایش شدید قیمت داروها گفت که هزینه گچ گرفتن پای شکسته‌اش ۹ میلیون تومان شده است. پیام این مخاطب با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337330
+
+<div align="center"><img src="telegram/content/IranIntlTV_337330.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رییس‌کل دادگستری خراسان جنوبی اعلام کرد یک وکیل دادگستری در بیرجند در جریان اختلاف خانوادگی جان باخته است.
+
+او گفت این وکیل زن پس از آن‌که همسرش با خودرو او را زیر گرفت، جان خود را از دست داد و پرونده این حادثه برای رسیدگی ویژه در دستگاه قضایی در حال بررسی است.
+
+به گفته این مقام قضایی، متهم خود را به قوه قضاییه معرفی کرده است.
+https://iranintl.com/202605153493
+</div>
 
 ## IranIntlTV — post 337329
 
@@ -235,30 +258,5 @@ https://iranintl.com/202605157769
 طبق این گزارش، خانواده بهار در روز تولدش قصد داشتند بر سر مزار او مراسم یادبود برگزار کنند، اما اجازه حضور و تجمع در محل خاکسپاری به آن‌ها داده نشد. در نتیجه، خانواده ناچار شدند مراسم را در خانه و در اتاق شخصی او برگزار کنند.
 
 بر اساس این گزارش، افرادی ناشناس همچنین عکس بهار را که کنار مزارش قرار داشت، شکسته‌اند.
-</div>
-
-## IranIntlTV — post 337311
-
-<div align="center"><video src="telegram/content/IranIntlTV_337311.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337311.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام‌های شهروندان به ایران‌اینترنشنال حاکی است نیروهای انتظامی جمهوری اسلامی، هفته‌ها پس از برقراری آتش‌بس، همچنان خارج از مقرهای نظامی مستقر هستند. برخی از گزارش‌های مردمی از استقرار این نیروها در اصفهان و کرمانشاه، در مکان‌هایی از جمله قبرستان‌ها و بیابان‌ها خبر می‌دهند.
-
-گفت‌وگو با محسن مهیمنی، خبرنگار ایران‌اینترنشنال
-@iranintltv
-</div>
-
-## IranIntlTV — post 337310
-
-<div align="center"><video src="telegram/content/IranIntlTV_337310.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337310.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسیدگی به پرونده متهمان حمله با کوکتل مولوتوف به پارکینگ ساختمان مجاور دفتر ایران اینترنشنال در لندن، در دادگاه اولد بیلی آغاز شد. سه متهم این پرونده با اتهام پرتاب مواد آتش‌زا و به خطر انداختن جان مردم محاکمه می‌شوند.
-تاج‌الدین سروش، عضو تحریریه ایران‌اینترنشال، گزارش می‌دهد
-@iranintltv
 </div>
 

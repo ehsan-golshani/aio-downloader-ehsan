@@ -1,8 +1,27 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 00:21
+📅 آخرین بروزرسانی: 1405/02/26 01:28
 
 ---
+
+## Persian_Trend_Official — post 14177
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ارتش اسرائیل مدعی انهدام پرتابگر راکتی حزب‌الله شد
+
+💢ارتش اسرائیل اعلام کرد یک سکوی پرتاب راکت متعلق به حزب‌الله را که برای شلیک به شمال اسرائیل استفاده شده بود، هدف قرار داده و منهدم کرده است.
+
+بر اساس ادعای ارتش اسرائیل:
+
+▪️ این پرتابگر در منطقه «زبقین» در جنوب لبنان قرار داشته است
+▪️ حمله پس از شلیک راکت‌ها به سمت شمال اسرائیل انجام شده
+▪️ این موضع متعلق به نیروهای حزب‌الله بوده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14176
 
@@ -330,11 +349,5 @@ https://youtube.com/live/SFBV2nP6Gs4?feature=share
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 https://youtube.com/live/SFBV2nP6Gs4?feature=share
-</div>
-
-## Persian_Trend_Official — post 14154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا دقایقی دیگه لایو شروع میشه
 </div>
 

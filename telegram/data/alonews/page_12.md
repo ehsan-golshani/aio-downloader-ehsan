@@ -1,8 +1,36 @@
 # آرشیو کانال alonews - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/26 00:28
+📅 آخرین بروزرسانی: 1405/02/26 01:34
 
 ---
+
+## alonews — post 119953
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 فرمانده سنتکام، دریاسالار برد کوپر: امروز، حماس، حزب‌الله و حوثی‌ها همه از تأمین سلاح و حمایت‌های ایران قطع شده‌اند. 🔴این نتیجه از پیش تعیین‌شده نبود و نه به شانس به دست آمده است. این حاصل ماه‌ها برنامه‌ریزی دقیق و بر پایه دهه‌ها تجربه است. این نتایج همچنین…
+</div>
+
+## alonews — post 119952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈منابع خبری می‌گویند کشتی باری هندی که روز گذشته به مقصد شارجه در حرکت بوده در تنگه هرمز هدف قرار گرفته و غرق شده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 فرمانده سنتکام، دریاسالار برد کوپر: امروز، حماس، حزب‌الله و حوثی‌ها همه از تأمین سلاح و حمایت‌های ایران قطع شده‌اند.
+
+🔴این نتیجه از پیش تعیین‌شده نبود و نه به شانس به دست آمده است. این حاصل ماه‌ها برنامه‌ریزی دقیق و بر پایه دهه‌ها تجربه است. این نتایج همچنین بدون هزینه به دست نیامده‌اند.
+
+🔴برد کوپر درباره ایران: مذاکرات حساس ادامه دارد.
+
+🔴کار ما آماده بودن است و ما آماده‌ایم.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119950
 
@@ -212,48 +240,5 @@
 
 
 ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119917
-
-<div align="center"><video src="telegram/content/alonews_119917.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119917.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈صداوسیما به‌نقل از نیروی دریایی سپاه:
-از شب گذشته تاکنون ۳۰ فروند کشتی از تنگۀ هرمز با مجوز ایران عبور کرده‌اند.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119916
-
-<div align="center"><video src="telegram/content/alonews_119916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اسکات بسنت، وزیر خزانه‌داری آمریکا :
-
-- تا الان امسال سی و چهل هزار نفر رو اعدام کردن و خیلی‌هاشون هم معترضای مسالمت‌آمیز بودن
-- خب با همچین رژیمی چطور باید برخورد کرد؟
-- از نظر اقتصادی خفش می‌کنیم،و فکر می‌کنیم کار به جایی رسیده که سربازاشون حقوق نمی‌گیرن
-- نمی‌تونن از خارج هم سلاح و مهماتشون رو تأمین کنن
-- برای همین فکر می‌کنم دیگه دارن به آخر خط می‌رسن
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119915
-
-<div align="center"><img src="telegram/content/alonews_119915.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صدا و سیما: قراره محرم یه سریال کاملا جدید و خفن به اسم مختارنامه از شبکه آی فیلم پخش کنیم.
-
-[@AloTweet]
 </div>
 

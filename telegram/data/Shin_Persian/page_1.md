@@ -1,8 +1,130 @@
 # آرشیو کانال Shin_Persian - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 20:58
+📅 آخرین بروزرسانی: 1405/02/26 01:23
 
 ---
+
+## Shin_Persian — post 6023
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Fri, 15 May 2026 21:46:56 UTC
+
+Heavy #USAF 🇺🇸 jet activity over Erbil
+#KRI, #Iraq 🇮🇶
+
+فارسی
+
+فعالیت سنگین جت‌های نیروی هوایی ایالات متحده (USAF) 🇺🇸 بر فراز اربیل
+#KRI، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Fri, 15 May 2026 19:27:11 UTC
+
+ROYAL AIR FORCE - MIDDLE EAST - ORBAT - 15th May 2026
+As of this evening, I believe the RAF has the following aircraft still deployed in the Middle East:
+
+RAF Akrotiri, Cyprus:
+F-35B ZM142 #43C818 (since 06/02)
+F-35B ZM156 #43C826 (10/03)
+F-35B ZM159 #43C829 (06/02)
+F-35B ZM169 #43C833 (06/02)
+Typhoon ZK322 #43C6D5 (26/01)
+Typhoon ZK334 #43CAE8 (26/01)
+Typhoon ZK335 #43C746 (24/04)
+Typhoon ZK343 #43CAE3 (24/04)
+Typhoon ZK352 #43C77B (24/04)
+Typhoon ZK353 #43C77C (24/04)
+Typhoon ZK354 #43C77D (20/01)
+Typhoon ZK366 #43C794 (06/02)
+Typhoon ZK370 #43C798 (28/10/25)
+Voyager KC.3 ZZ334 #43C6F7
+Voyager KC.2 ZZ343 #43C700
+Protector RG.1 PR010 #43C972
+
+Al-Udeid Airbase (or another site), Qatar:
+Typhoon ZK347 #43C709 (as of 06/03)
+Typhoon ZK348 #43C70A (06/03)
+Typhoon ZK350 #43C70C (23/01)
+Typhoon ZK371 #43C799 (06/03)
+Typhoon ZK373 #43C79B (23/01)
+Typhoon ZK374 #43C79C (06/03)
+Typhoon ZK432 #43C7A9 (23/01)
+Typhoon ???? (x1 of the ones listed as Akrotiri should actually be here)
+
+Returned to the UK today (15/05):
+Voyager KC.2 ZZ338 #43C6FB
+Voyager KC.2 ZZ331 #43C6F4
+F-35B ZM141 #43C817
+F-35B ZM144 #43C81A
+F-35B ZM145 #43C81B
+F-35B ZM150 #43C820
+F-35B ZM157 #43C827
+F-35B ZM164 #43C82E
+F-35B ZM166 #43C821
+F-35B ZM168 #43C832
+
+Other recent returns to the UK:
+Typhoon ZK305 #43C60D (29/04)
+Typhoon ZK326 #43C6D9 (29/04)
+Typhoon ZK359 #43C782 (30/04)
+Typhoon ZK361 #43C784 (07/05)
+Shadow R.1 ZZ419 #43C2B5 (14/04)
+Shadow R.1 ZZ504 #43C61D (30/04)
+
+Usual caveats apply, my data is based on public flight tracking information and collaboration with @ArmchairAdml & others from @MATA_osint and so is subject to change/corrections!
+https://www.raf.mod.uk/news/articles/sustained-at-range-raf-fighters-deliver-defensive-cover-over-the-red-sea/
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6021
+
+<div align="center"><video src="telegram/content/Shin_Persian_6021.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Shin_Persian_6021.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Open Source Intel ✓ @Osint613
+Fri, 15 May 2026 19:06:22 UTC
+
+Four assistants to Haddad were killed inside a vehicle as they attempted to escape from the apartment used as his hiding location.
+
+فارسی
+
+چهار دستیار حداد در حالی که قصد داشتند با خودرویی از آپارتمانی که به عنوان مخفیگاه او استفاده می‌شد فرار کنند، کشته شدند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6020
+
+<div align="center"><img src="telegram/content/Shin_Persian_6020.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Waleed Gadban ✓ @GadbanWaleed
+Fri, 15 May 2026 17:28:51 UTC
+
+در تصویر: ترور تروریست ارشد حماس.
+
+احمد وحیدی، داری نگاه می‌کنی؟
+
+English
+
+In the image: The assassination of a senior Hamas terrorist.
+
+Ahmad Vahidi, are you watching?
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6019
 
@@ -255,83 +377,6 @@ Jet activity over Mosul, #Iraq 🇮🇶
 فارسی
 
 فعالیت جنگنده‌ها برفراز موصل، #Iraq 🇮🇶
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 6002
-
-<div align="center"><img src="telegram/content/Shin_Persian_6002.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Shin ✓ @hey_itsmyturn Thu, 14 May 2026 21:45:19 UTC President Trump @POTUS: "When President Xi very elegantly referred to the United States as perhaps being a declining nation, he was referring to the tremendous damage we suffered during the four years of…
-</div>
-
-## Shin_Persian — post 6001
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Shin ✓ @hey_itsmyturn
-Thu, 14 May 2026 21:45:19 UTC
-
-President Trump @POTUS:
-"When President Xi very elegantly referred to the United States as perhaps being a declining nation, he was referring to the tremendous damage we suffered during the four years of Sleepy Joe Biden and the Biden Administration, and on that score, he was 100% correct. Our Country suffered immeasurably with open borders, high taxes, transgender for everybody, men in women’s sports, DEI, horrible trade deals, rampant crime, and so much more! President Xi was not referring to the incredible rise that the United States has displayed to the world during the 16 spectacular months of the Trump Administration, which includes all-time high stock markets and 401K’s, military victory and thriving relationship in Venezuela, the military decimation of Iran (to be continued!) — Strongest military on earth by far, economic powerhouse again, with a record 18 trillion dollars being invested into the United States by others, best U.S. job market in history, with more people working in the United States right now than ever before, ending country destroying DEI, and so many other things that it would be impossible to readily list. In fact, President Xi congratulated me on so many tremendous successes in such a short period of time.Two years ago, we were, in fact, a Nation in decline. On that, I fully agree with President Xi! But now, the United States is the hottest Nation anywhere in the world, and hopefully our relationship with China will be stronger and better than ever before!"
-
-ترجمه فارسی در بخش نظرات
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5998
-
-<div align="center"><img src="telegram/content/Shin_Persian_5998.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Samim ✓ @PawnToPromotion Thu, 14 May 2026 10:14:23 UTC آپدیت «خیلی مهم» برای کلاینت شیر و خورشید 2026.05.14: تنظیمات بیشتر برای CDN Domain Fronting: توجه کنید سایفون خودش دامین فرانتینگ انجام میده! ولی اون روش MitM که @patterniha پیدا کرد تنظیمات و جزییات…
-</div>
-
-## Shin_Persian — post 5997
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Samim ✓ @PawnToPromotion
-Thu, 14 May 2026 10:14:23 UTC
-
-آپدیت «خیلی مهم» برای کلاینت شیر و خورشید 2026.05.14:
-
-تنظیمات بیشتر برای CDN Domain Fronting: توجه کنید سایفون خودش دامین فرانتینگ انجام میده! ولی اون روش MitM که @patterniha پیدا کرد تنظیمات و جزییات دامین فرانتینگ متفاوتی داره. در این آپدیت٬ کلاینت شیر و خورشید کاری مشابه به چیزی که @patterniha ها معرفی کرد انجام میده با این تفاوت که این روش در هسته شیر و خورشید اضافه شده پس دیگه نیازی به xray و cert وکارای دیگه نیست.
-
-۱. آپدیت رو نصب کنید
-۲. پروتکل را روی یکی از حالت های Auto یا Direct یا CDN Fronting تنظیم کنید
-۳. کلاینت شیر و خورشید باید الان خودش به تنهایی وصل بشه براتون!
-
-قابلیت تنظیمات بیشتر برای SNI و IP هم وجود داره که فعلا بهش نیازی نیست و میتونید خالی بگذارید باشه. ولی برای آینده شاید به کار بیاد.
-
-میتونید از اینجا دانلود و نصب کنید و ممنون میشم اگه repost کنید که تعداد بیشتری ببینند:
-
-https://github.com/shirokhorshid/shirokhorshid-android/releases/tag/v2026.05.14-8a28d0c
-
-در تلگرام هم آپلود کردم اگر براتون راحت تر هست میتونید از اونجا آپدیت رو بگیرید:
-
-https://t.me/+aF04HaDSxVI4ZGEx
-
-English
-
-"Very Important" update for the Lion and Sun client 2026.05.14:
-
-More settings for CDN Domain Fronting: Note that Psiphon performs its own domain fronting! However, the MitM (Man-in-the-Middle) method discovered by @patterniha involves different domain fronting settings and details. In this update, the Lion and Sun client performs an action similar to what @patterniha introduced, with the difference that this method has been integrated into the Lion and Sun core, so there is no longer a need for Xray, certificates, or other manual tasks.
-
-1. Install the update.
-2. Set the protocol to one of the following modes: Auto, Direct, or CDN Fronting.
-3. The Lion and Sun client should now connect for you on its own!
-
-There are also additional configuration options for SNI (Server Name Indication) and IP, which are not currently needed and can be left blank. However, they may be useful in the future.
-
-You can download and install it from here, and I would appreciate it if you reposted so more people can see it:
-
-https://github.com/shirokhorshid/shirokhorshid-android/releases/tag/v2026.05.14-8a28d0c
-
-I have also uploaded it to Telegram; if it is easier for you, you can get the update from there:
-
-https://t.me/+aF04HaDSxVI4ZGEx
 
 𝕏 · @shin_persian
 </div>

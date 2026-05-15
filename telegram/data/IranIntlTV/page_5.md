@@ -1,8 +1,33 @@
 # آرشیو کانال IranIntlTV - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 00:15
+📅 آخرین بروزرسانی: 1405/02/26 01:22
 
 ---
+
+## IranIntlTV — post 337311
+
+<div align="center"><video src="telegram/content/IranIntlTV_337311.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337311.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیام‌های شهروندان به ایران‌اینترنشنال حاکی است نیروهای انتظامی جمهوری اسلامی، هفته‌ها پس از برقراری آتش‌بس، همچنان خارج از مقرهای نظامی مستقر هستند. برخی از گزارش‌های مردمی از استقرار این نیروها در اصفهان و کرمانشاه، در مکان‌هایی از جمله قبرستان‌ها و بیابان‌ها خبر می‌دهند.
+
+گفت‌وگو با محسن مهیمنی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337310
+
+<div align="center"><video src="telegram/content/IranIntlTV_337310.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337310.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسیدگی به پرونده متهمان حمله با کوکتل مولوتوف به پارکینگ ساختمان مجاور دفتر ایران اینترنشنال در لندن، در دادگاه اولد بیلی آغاز شد. سه متهم این پرونده با اتهام پرتاب مواد آتش‌زا و به خطر انداختن جان مردم محاکمه می‌شوند.
+تاج‌الدین سروش، عضو تحریریه ایران‌اینترنشال، گزارش می‌دهد
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337309
 
@@ -223,26 +248,5 @@ https://iranintl.com/202605150594
 🔹 دانش‌آموز پایه دهم انسانی هستم. خوشبختانه امسال امتحان‌ها نهایی نیست، اما خیلی نگران سال آینده هستم، چون امسال ما هیچی یاد نگرفتیم و شرایط یادگیری افتضاح بوده. تو مدرسه غیردولتی هم درس می‌خوانم.
 🔹 از مشهد پیام می‌دهم. واقعاً ما از این بلاتکلیفی خسته شدیم، گرونی بیداد می‌کند، دخل و خرج‌مان با هم همخوانی ندارد، باید ده نفر کار کنیم که یک نفر بتواند بخورد.
 🔹 نیم‌قرن است که کل دنیا، مخصوصاً اروپا، فقط گفتند فلان کار جمهوری اسلامی را محکوم می‌کنیم و فایده‌ای نداشت. هر روز جمهوری اسلامی پُرروتر هم شد. نمی‌شود از یک دیوانه زنجیری توقع داشت با حرف آرام بگیرد.
-</div>
-
-## IranIntlTV — post 337290
-
-<div align="center"><video src="telegram/content/IranIntlTV_337290.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337290.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند در پیامی به ایران اینترنشنال به سایر شهروندان توصیه می‌کند که اینترنت حکومتی «پرو» را نخرند و آن ‌را خیانت به مردم ایران دانست. پیام او با هوش مصنوعی خوانده شده است.
-</div>
-
-## IranIntlTV — post 337280
-
-<div align="center"><video src="telegram/content/IranIntlTV_337280.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337280.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از مخاطبان ایران‌اینترنشنال که دانش‌آموز پایه دهم انسانی است می‌گوید با وجود نهایی نبودن امتحان‌های امسال، نگران سال آینده است، چون به گفته او کیفیت آموزش و شرایط یادگیری در سال جاری «افتضاح» بوده و دانش‌آموزان عملا چیزی یاد نگرفته‌اند. او می‌گوید در مدرسه غیردولتی تحصیل می‌کند.
-این پیام با هوش مصنوعی خوانده شده است.
 </div>
 
