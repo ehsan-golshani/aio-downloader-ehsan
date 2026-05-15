@@ -1,8 +1,18 @@
 # آرشیو کانال pm_afshaa - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 05:06
+📅 آخرین بروزرسانی: 1405/02/25 09:15
 
 ---
+
+## pm_afshaa — post 90744
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برد کوپر، فرمانده سنتکام:
+رژیم ایران از سال 1979 در حال گسترش وحشت در سراسر خاورمیانه است.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90743
 
@@ -209,16 +219,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴شی جین‌پینگ در دیدار با دونالد ترامپ:
 همواره باور داشتم منافع مشترک چین و آمریکا بیشتر از اختلافاتشونه.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴مدیر سرویس اطلاعات خارجی روسیه:
-هیچ نشانه‌ای از پایان درگیری نظامی بر سر ایران وجود نداره و نمیشه موج جدیدی از تشدید تنش رو رد کرد.
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

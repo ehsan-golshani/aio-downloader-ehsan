@@ -1,8 +1,20 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 05:16
+📅 آخرین بروزرسانی: 1405/02/25 09:25
 
 ---
+
+## Persian_Trend_Official — post 14092
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال رسمی پرشین ترند pinned a voice message
+</div>
+
+## Persian_Trend_Official — post 14091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر شب خواب رفیقای شهیدمو می‌بینم ! 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14090
 
@@ -364,17 +376,5 @@ https://youtube.com/live/xKXwDy6wYig?feature=share
 💢در حين عملیات «غرش شیران»، نخست وزیر نتانیاهو مخفیانه از امارات متحده عربی بازدید و با شیخ محمد بن زاید، رئیس امارات متحده عربی دیدار کرد.
 
 💢این دیدار منجر به یک پیشرفت تاریخی در روابط بین اسرائیل و امارات متحده عربی شد.
-</div>
-
-## Persian_Trend_Official — post 14070
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://youtube.com/live/xKXwDy6wYig?feature=share
-</div>
-
-## Persian_Trend_Official — post 14069
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا ده دقیقه دیکه لایو آغاز میشه
 </div>
 

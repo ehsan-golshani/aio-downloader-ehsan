@@ -1,8 +1,20 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/25 05:16
+📅 آخرین بروزرسانی: 1405/02/25 09:25
 
 ---
+
+## Persian_Trend_Official — post 14070
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://youtube.com/live/xKXwDy6wYig?feature=share
+</div>
+
+## Persian_Trend_Official — post 14069
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا ده دقیقه دیکه لایو آغاز میشه
+</div>
 
 ## Persian_Trend_Official — post 14068
 
