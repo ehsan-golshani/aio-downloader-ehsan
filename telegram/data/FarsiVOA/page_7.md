@@ -1,8 +1,24 @@
 # آرشیو کانال FarsiVOA - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/25 16:51
+📅 آخرین بروزرسانی: 1405/02/25 19:16
 
 ---
+
+## FarsiVOA — post 217686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️مراسم استقبال رسمی از دونالد ترامپ رئیس جمهوری آمریکا، در چین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217685
+
+<div align="center"><img src="telegram/content/FarsiVOA_217685.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا روز پنج‌شنبه به وقت پکن مورد استقبال رسمی شی جین‌پینگ، رئیس جمهوری چین قرار گرفت. آقای ترامپ در راس یک هئیت عالی‌رتبه سیاسی و اقتصادی وارد چین شده است. انتظار می‌رود که مسئله تنگه هرمز یکی از مسائل مورد گفت‌وگو در این سفر باشد.
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217684
 
@@ -166,25 +182,6 @@ https://ir.voanews.com/a/reuters-saudi-arabia-kuwait-attacked-iraq-iranian-milit
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️وام «ارزان» و کلان شرکت خودروسازی سایپا از مردم
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217666
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺جی‌دی‌ ونس در مورد در مذاکرات با جمهوری اسلامی: فکر می‌کنم پیشرفت‌هایی حاصل شده است
-
-▪️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز چهارشنبه در گفت‌وگو با خبرنگاران گفت که در مذاکرات با جمهوری اسلامی پیشرفت‌هایی حاصل شده است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149643.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️در برنامه تفسیر خبر امروز، مهدی آقازمانی با کارشناسان مهمان، درباره سفر تاریخی پرزیدنت ترامپ به چین و موضوع ایران به عنوان یکی از محورهای گفتگوی رهبران دو کشور ، گفتگو می‌کند
 @FarsiVOA
 </div>
 

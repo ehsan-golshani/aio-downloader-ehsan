@@ -1,8 +1,98 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/25 16:41
+📅 آخرین بروزرسانی: 1405/02/25 19:07
 
 ---
+
+## FoxNewsTwitter — post 341737
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341737.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341737.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump reveals to @seanhannity that Chinese President Xi Jinping has committed to withholding military equipment from Iran following their high-level discussions.
+
+Trump noted that while China continues to purchase Iranian oil, Xi expressed a strong desire to see the Strait of Hormuz remain open and free of interference.
+
+"He said he’s not going to give military equipment, that’s a big statement... But at the same time, he said you know they buy a lot of their oil there and they’d like to keep doing that. He’d like to see Hormuz straight opened."
+
+The full interview airs tonight at 9pm ET.
+</div>
+
+## FoxNewsTwitter — post 341736
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: US Border Patrol Chief Mike Banks abruptly resigns, Fox News has learned
+</div>
+
+## FoxNewsTwitter — post 341735
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341735.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341735.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: Iran has reportedly seized a ship off the coast of the UAE, ramping up tensions in the region as disputes grow over alleged attacks and a denied Netanyahu visit.
+
+U.S. officials say talks with the Iranian regime have made some progress but remain uncertain, with Iran signaling it’s ready for either diplomacy or conflict, @TreyYingst reports.
+</div>
+
+## FoxNewsTwitter — post 341734
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341734.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: Spencer Pratt is suddenly within single digits of L.A. Mayor Karen Bass, with new polling showing the former reality TV star and independent candidate gaining 12 points since March.
+
+The Emerson poll has Bass at 30%, Pratt at 22%, and socialist-linked Nithya Raman at 19%
+
+Pratt’s campaign is leaning hard into L.A.’s homelessness crisis, using sharp social media and attention-grabbing ads to turn a long-shot bid into a race people are now watching.
+</div>
+
+## FoxNewsTwitter — post 341733
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341733.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341733.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Alex Murdaugh’s lead attorney Jim Griffin reveals his client's shock and relief following the South Carolina Supreme Court’s decision to overturn his murder convictions.
+
+Griffin says while Murdaugh remains “skeptical” after years of courtroom losses, he's thrilled by the latest revelation.
+
+“I can tell you he is very relieved that he has gotten the label of convicted murderer of his wife and son off of him, and we plan to keep it off of him." | @LawrenceBJones3 @foxandfriends
+</div>
+
+## FoxNewsTwitter — post 341732
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341732.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: Linda McMahon faces House lawmakers on Trump's education agenda https://twitter.com/i/broadcasts/1AxRnawQVkgxl
+</div>
+
+## FoxNewsTwitter — post 341731
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341731.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: House Judiciary subcommittee holds hearing on Fairfax County's sanctuary policies https://twitter.com/i/broadcasts/1dGYljYZaLZKX
+</div>
 
 ## FoxNewsTwitter — post 341730
 
@@ -168,107 +258,5 @@ Fox News (Twitter/X)
 JUST IN: "From the beginning, our citizens have shared a deep sense of mutual respect.
 
 "Founding Father Benjamin Franklin published The Sayings of Confucius and his colonial newspaper and today sculpture. Recognizing that ancient Chinese sage is carved into the face of the United States Supreme Court very proudly." –President Trump
-</div>
-
-## FoxNewsTwitter — post 341711
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341711.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341711.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-RT @SpecialReport: 🚨WATCH: "Big Brother is watching."
-
-Our team with @BretBaier is on the ground in Beijing, and the level of surveillance is unlike anything we’ve seen. From 20+ cameras on a single street corner to instant fines sent straight to your phone, the CCP sees everything. They call it "safety"—but what’s the real cost of social scoring?
-</div>
-
-## FoxNewsTwitter — post 341710
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341710.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341710.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump highlights the special relationship between the United States and China:
-
-“The American and Chinese people share much in common. We value hard work. We value courage and achievement. We love our families and we love our countries.”
-
-“Together, we have the chance to draw on these values, to create a future of greater prosperity, cooperation and happiness and peace for our children."
-</div>
-
-## FoxNewsTwitter — post 341709
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341709.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341709.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: "This is a great honor. It was a fantastic day.
-
-"I want to thank President Xi, my friend, for this magnificent welcome."
-
-"It really was a magnificent welcome like none other. And for so graciously hosting us on this very historic state visit."
-
-"This evening is another cherished opportunity to discuss among friends some of the things that we discussed today. All good for the United States and for China. And it was a great honor to be with you." – President Trump
-</div>
-
-## FoxNewsTwitter — post 341708
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341708.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341708.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Xi welcomes President Trump to at the Chinese state banquet in Beijing:
-
-"Honorable president Donald J. Trump. Ladies and gentlemen, it is a great pleasure to host the state banquet in honor of President Trump during his state visit to China."
-
-"On behalf of the Chinese government and people, I would like to extend a warm welcome to President Trump and the US delegation."
-</div>
-
-## FoxNewsTwitter — post 341707
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341707.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341707.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump and President Xi arrive at the welcome state banquet in China, taking their seats as the event gets underway.
-</div>
-
-## FoxNewsTwitter — post 341706
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341706.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341706.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-JUST IN: @seanhannity says President Trump’s meeting with Xi could lead to Chinese cooperation on Iran, oil, and soybean purchases benefiting American farmers.
-
-Telling @ainsleyearhardt his takeaways from the interview, Hannity says China appears ready to help with “whatever Trump needs” regarding Iran.
-
-He also said Xi was surprised when Trump invited him to meet with American CEOs, a move that made a strong impression on the Chinese leader.
-</div>
-
-## FoxNewsTwitter — post 341705
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341705.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: President Trump participates in state banquet with Xi https://twitter.com/i/broadcasts/1OGwblEEdlRKB
 </div>
 

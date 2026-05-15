@@ -1,8 +1,106 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 16:41
+📅 آخرین بروزرسانی: 1405/02/25 19:07
 
 ---
+
+## FoxNewsTwitter — post 341780
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341780.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341780.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump defends the timeline of America’s conflict with Iran and highlights the devastating impact of U.S. strikes during an exclusive interview with @BretBaier.
+
+The President dismissed critics who claim he underestimated the situation, noting that the U.S. has maintained significant restraint by leaving critical infrastructure like electricity and Kharg Island oil valves intact despite having the capability to "knock that all out in two days."
+
+"I didn't underestimate anything. We hit them unbelievably hard. Look, we left their bridges. We left their electricity capacity. We can knock that all out in two days. Two days. Everything. We left Kharg Island, other than I said, hit it except for the valves where the oil comes out."
+
+Watch the full interview at 6 p.m. ET on ‘Special Report”’
+</div>
+
+## FoxNewsTwitter — post 341779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Longtime Rep. Steve Cohen, D-Tenn., announces end to re-election bid
+</div>
+
+## FoxNewsTwitter — post 341778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌Fox News (Twitter/X)
+
+Who will win the Academy of Country Music Award for Female Artist of the Year?
+
+Our sponsor Kalshi’s prediction market reveals the current frontrunners:
+
+— Ella Langley: 85%
+— Lainey Wilson: 12%
+— Megan Moroney: 5%
+
+https://www.foxnews.com/entertainment/lainey-wilson-marries-duck-hodges-dream-tennessee-waterfall-cave-wedding
+</div>
+
+## FoxNewsTwitter — post 341777
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341777.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+“Senior’s Day at Gold’s in Venice.”
+
+Health and Human Services Secretary Robert F. Kennedy Jr. and Hollywood icon Arnold Schwarzenegger showcase their longtime friendship during a workout session at Gold’s Gym Venice.
+
+This isn’t the first time the pair have worked out together, the former governor gave a look inside their friendship during an interview last year, saying, "We've worked out together and go gym and stuff like that, and I always was a big supporter of his."
+
+Schwarzenegger was previously married to Kennedy's cousin, journalist Maria Shriver, from 1986 until 2011.
+</div>
+
+## FoxNewsTwitter — post 341773
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341773.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+DHS Secretary Markwayne Mullin joined ICE officers on the ground in Virginia during an early morning operation that resulted in the arrest of a repeat criminal illegal alien previously removed multiple times from the United States.
+
+Mullin said the suspect’s record included drug possession and DUI charges while slamming Governor Spanberger’s sanctuary policies for making Virginia “a magnet for criminal illegal aliens.”
+</div>
+
+## FoxNewsTwitter — post 341772
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341772.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341772.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH: President Trump reacts to Secretary of State Marco Rubio’s viral Nike tracksuit:
+
+"I thought he looked very good in the outfit. Listen, I don't know if I'd do it, but I thought he looked very good."
+</div>
+
+## FoxNewsTwitter — post 341771
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341771.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341771.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH: Country music star Eric Church describes the creative process behind his extremely personal UNC commencement speech, revealing he turned to his guitar after months of writer's block:
+
+"Finally, one night, in a fit of frustration, I picked up my guitar just to kind of just to get away from the frustrating part of trying to write the speech. And as I was strumming the guitar, it just dawned on me. I hit all six strings and I thought, you know, hey, what what if I could make a speech out of these?" | @foxandfriends @ainsleyearhardt
+</div>
 
 ## FoxNewsTwitter — post 341770
 
@@ -170,117 +268,5 @@ NOW: President Trump arrives at Zhongnanhai Garden to meet with Chinese Presiden
 Fox News (Twitter/X)
 
 President Trump says he came up with a nickname, "Dumocrats," after talking about top Democratic leader Hakeem Jeffries. || @seanhannity
-</div>
-
-## FoxNewsTwitter — post 341757
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341757.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-FOX NEWS REPORT: President Trump and President Xi Jinping sat for an over two-hour meeting in Beijing for a discussion on key topics, including trade and Taiwan.
-
-Secretary of State Rubio says Washington's stance on Taiwan remains the same, @BillMelugin_ reports.
-</div>
-
-## FoxNewsTwitter — post 341756
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341756.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump says China’s leader was right about America’s decline under President Biden — but argues the U.S. has completely rebounded under his administration.
-
-In a lengthy post, Trump touted booming markets, record investment, the "ending" of DEI, and what he called the “strongest military on earth by far,” while predicting a stronger relationship with China moving forward.
-</div>
-
-## FoxNewsTwitter — post 341755
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341755.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341755.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-“People can’t feed themselves.”
-
-AOC ripped the Trump administration over spending on the National Mall reflecting pool and the planned White House ballroom, arguing that Americans are struggling to afford groceries, rent, and mortgages.
-
-She called the priorities “deeply out of touch” and “insulting” to everyday people.
-</div>
-
-## FoxNewsTwitter — post 341754
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341754.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341754.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump tells @seanhannity that Chinese President Xi Jinping offered to assist the U.S. in negotiating with Iran to reopen the Strait of Hormuz.
-
-Trump notes that China’s significant oil interests play a major role in its desire to keep the critical waterway open and stable.
-
-“President Xi would like to see a deal made. He would like to see a deal made. And he did offer, he said, ‘If I can be of any help at all, I would like to be of help.’”
-
-"He said 'If I could be of any help whatsoever, I would like to help.'"
-
-The full interview airs tonight at 9 p.m. ET on 'Hannity.'
-</div>
-
-## FoxNewsTwitter — post 341753
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341753.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341753.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-Bulldozers flatten hundreds of illegal mopeds in NYC.
-
-The NYPD took a dramatic step in its sweeping crackdown on vehicles increasingly linked to violent crime.
-
-Police Commissioner Jessica Tisch says many of the bikes are uninsured, carry fake or altered plates, and have become a growing public safety threat because criminals use their speed and anonymity to flee police.
-
-The stark warning comes after investigators linked illegal mopeds and scooters to multiple robberies and even the shooting death of a 7-month-old girl last month.
-
-Officials say the more than 200 crushed bikes represent only a small portion of the more than 5,700 illegal mopeds and scooters the NYPD seizes so far this year, nearly 10% more than at the same time last year.
-</div>
-
-## FoxNewsTwitter — post 341752
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341752.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341752.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-A wild police chase in Georgia ends when police perform a PIT maneuver, sending the fleeing U-Haul truck flying onto its side.
-
-Sheriff's deputies were forced to chase the U-Haul in and out of traffic.
-
-Authorities identified the driver as Damian Jones, who was reportedly wanted in other counties and accused of driving recklessly, hitting a truck, and nearly striking several vehicles during the pursuit.
-
-Investigators say drugs were found inside the vehicle, and Jones was taken into custody following the crash.
-
-No major injuries were reported.
-</div>
-
-## FoxNewsTwitter — post 341751
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: Vice President JD Vance squares off with a local reporter over the scale of corruption in Maine, warning that current fraud findings are just the "tip of the iceberg."
-
-REPORTER: "My question is, what else do you got? What else has your task force flagged that we should be concerned about? Because those amounts are a lot, 46 million, 1.7 million, but they don't really compare to California and Minnesota."
-
-VANCE: "Ladies and gentlemen, we've got biased reporters in all states. It's okay. Trust me, I can handle I can handle it... I suspect we are going to find hundreds of millions of more dollars every single month that we look in the state of Maine, because this is not a state that takes it seriously."
 </div>
 

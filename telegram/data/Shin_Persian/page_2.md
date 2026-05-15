@@ -1,8 +1,69 @@
 # آرشیو کانال Shin_Persian - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 14:48
+📅 آخرین بروزرسانی: 1405/02/25 19:13
 
 ---
+
+## Shin_Persian — post 5991
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Wed, 13 May 2026 17:01:27 UTC
+
+Prime Minister Benjamin Netanyahu visited the UAE during the Iran war, his office says.
+
+فارسی
+
+دفتر بنیامین نتانیاهو، نخست‌وزیر، اعلام کرد که وی در طول جنگ ایران از امارات متحده عربی بازدید کرده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5990
+
+<div align="center"><video src="telegram/content/Shin_Persian_5990.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Shin_Persian_5990.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+U.S. Central Command ✓ @CENTCOM Wed, 13 May 2026 15:19:24 UTC Four weeks ago, CENTCOM began implementing the blockade against ships entering and exiting Iran’s ports. As of today, American forces have redirected 67 commercial vessels, allowed 15 supporting…
+</div>
+
+## Shin_Persian — post 5989
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+U.S. Central Command ✓ @CENTCOM
+Wed, 13 May 2026 15:19:24 UTC
+
+Four weeks ago, CENTCOM began implementing the blockade against ships entering and exiting Iran’s ports. As of today, American forces have redirected 67 commercial vessels, allowed 15 supporting humanitarian aid to pass, and disabled 4 to ensure compliance.
+
+Earlier this week, CENTCOM forces ensured that 2 commercial vessels turned around to comply with the blockade after communicating via radio and firing warning shots from small arms, clearly demonstrating that U.S. enforcement remains in full effect.
+
+فارسی
+
+چهار هفته پیش، ستاد فرماندهی مرکزی ایالات متحده (سنتکام) اجرای محاصره علیه کشتی‌هایی که به بنادر ایران وارد و یا از آن خارج می‌شدند را آغاز کرد. تا به امروز، نیروهای آمریکایی مسیر ۶۷ شناور تجاری را تغییر داده، به ۱۵ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده و ۴ فروند را برای اطمینان از انطباق با مقررات از کار انداخته‌اند.
+
+در اوایل این هفته، نیروهای سنتکام اطمینان حاصل کردند که ۲ شناور تجاری پس از برقراری ارتباط رادیویی و شلیک تیرهای هشدار توسط سلاح‌های سبک، برای پایبندی به محاصره دور زده و بازگشتند؛ موضوعی که به وضوح نشان می‌دهد اجرای مقررات توسط ایالات متحده همچنان با قوت کامل در جریان است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Wed, 13 May 2026 13:40:21 UTC
+
+Blast sound in Shiraz
+Fars Province, #Iran
+
+فارسی
+
+صدای انفجار در شیراز
+استان فارس، #Iran
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 5987
 

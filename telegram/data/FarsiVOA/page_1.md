@@ -1,8 +1,26 @@
 # آرشیو کانال FarsiVOA - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 16:51
+📅 آخرین بروزرسانی: 1405/02/25 19:16
 
 ---
+
+## FarsiVOA — post 217821
+
+<div align="center"><img src="telegram/content/FarsiVOA_217821.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گفته فرماندهی مرکزی ایالات متحده، سنتکام، نیروهای آمریکایی در چارچوب اجرای محاصره دریایی علیه جمهوری اسلامی ایران تاکنون مسیر ۷۵ کشتی تجاری را تغییر داده و چهار شناور را از کار انداخته‌اند.
+
+سنتکام تصویر یک بالگرد سی‌هاوک که از عرشه ناوشکن «یو‌اس‌اس رافائل پرالتا» در دریای عرب به پرواز درآمده را منتشر کرده است.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217820
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس‌جمهوری آمریکا، که پس از یک سفر سه‌روزه پکن را به مقصد واشنگتن ترک کرد، از پیشرفت‌های تجاری میان دو کشور خبر داده است
+</div>
 
 ## FarsiVOA — post 217819
 
@@ -279,23 +297,5 @@ https://ir.voanews.com/a/8150366.html
 
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/8150358.html
-</div>
-
-## FarsiVOA — post 217801
-
-<div align="center"><video src="telegram/content/FarsiVOA_217801.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217801.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️گزارش فرهاد فلاحی، خبرنگار بخش فارسی صدای آمریکا، از تدابیر امنیتی در چین و محدودیت‌های رسانه‌ای
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217800
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️گفت‌و‌گو با شاهین نژاد درباره ابعاد سیاسی و اقتصادی سفر پرزیدنت ترامپ به چین
-@FarsiVOA
 </div>
 

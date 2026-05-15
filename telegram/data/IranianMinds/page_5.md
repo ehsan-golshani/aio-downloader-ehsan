@@ -1,8 +1,44 @@
 # آرشیو کانال IranianMinds - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/25 16:53
+📅 آخرین بروزرسانی: 1405/02/25 19:19
 
 ---
+
+## IranianMinds — post 20110
+
+<div align="center"><img src="telegram/content/IranianMinds_20110.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سازمان تجارت دریایی بریتانیا گزارش داد که یک حادثه در فاصله ۳۸ مایل دریایی شمال‌شرق فجیره در امارات رخ داده است.
+
+گزارش‌ها حاکی است که یک کشتی لنگر گرفته توسط افراد غیرمجاز مورد بازدید قرار گرفته و اکنون به سمت آب‌های سرزمینی ایران در حرکت است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20109
+
+<div align="center"><img src="telegram/content/IranianMinds_20109.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
+
+👍دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+re24
+🔔کانال دربی بت :
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
 
 ## IranianMinds — post 20107
 
@@ -236,32 +272,6 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 🔴 مهدی تاج رئیس فدراسیون فوتبال :
 
 معین قراره برای تیم ملی یه آهنگ بخونه !
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20088
-
-<div align="center"><img src="telegram/content/IranianMinds_20088.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴رئیس جمهور ترامپ آماده است عملیات پتک را علیه رژیم تروریستی ایران آغاز نماید.
-دولت او می‌گوید این اقدام، ساعت قانونی اختیارات جنگی را دوباره تنظیم می‌کند و ۶۰ روز فرصت عملیات رزمی پیش از دخالت کنگره می‌دهد.
-رژیم ایران دستپاچه در حال آماده‌سازی است، اما عملیات به احتمال زیاد بلا‌فاصله پس از سفر رسمی چین آغاز خواهد شد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20087
-
-<div align="center"><img src="telegram/content/IranianMinds_20087.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اکانت اسرائیل به فارسی:
-
-محمد عباسی و دخترش فاطمه در دی‌ماه دستگیر شدند.
-محمد را بدون ملاقات آخر، امروز صبح اعدام کردند.
-جمهوری اسلامی روی خون مردمش حکومت می‌کند.
 
 @IranianMinds
 </div>

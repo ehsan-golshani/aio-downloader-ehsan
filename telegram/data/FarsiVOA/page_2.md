@@ -1,8 +1,26 @@
 # آرشیو کانال FarsiVOA - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 16:51
+📅 آخرین بروزرسانی: 1405/02/25 19:16
 
 ---
+
+## FarsiVOA — post 217801
+
+<div align="center"><video src="telegram/content/FarsiVOA_217801.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217801.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گزارش فرهاد فلاحی، خبرنگار بخش فارسی صدای آمریکا، از تدابیر امنیتی در چین و محدودیت‌های رسانه‌ای
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217800
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گفت‌و‌گو با شاهین نژاد درباره ابعاد سیاسی و اقتصادی سفر پرزیدنت ترامپ به چین
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217799
 
@@ -184,25 +202,6 @@ https://ir.voanews.com/a/8150103.html
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️شک مقام‌های جمهوری اسلامی به یکدیگر شکاف در حکومت را عمیق‌تر کرد؛ جنگ تهدیدها و تهمت‌ها
 
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️نگرانی مسکو از گسترش تروریسم در افغانستان و پیامدهای آن برای ایران و دیگر کشورها
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺دونالد ترامپ: نابودی نظامی جمهوری اسلامی ادامه خواهد یافت
-
-◾️دونالد ترامپ، رئیس جمهوری آمریکا در پستی که در شکبه اجتماعی تروت‌سوشال منتشر کرد گفت نابودی نظامی جمهوری اسلامی ایران «ادامه» خواهد یافت.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8150091.html
 @FarsiVOA
 </div>
 

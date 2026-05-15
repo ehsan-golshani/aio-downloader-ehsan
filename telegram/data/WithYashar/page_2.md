@@ -1,8 +1,21 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 16:40
+📅 آخرین بروزرسانی: 1405/02/25 19:05
 
 ---
+
+## WithYashar — post 11273
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😂😂🙌🏾 @withyashar
+</div>
+
+## WithYashar — post 11272
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ در تروث : پژوهشگر چینی به CNN گفت که به نشست ترامپ و شی نمره «۹.۹۹ از ۱۰» می‌دهد.
+@withyashar
+</div>
 
 ## WithYashar — post 11271
 
@@ -160,17 +173,5 @@
 تأسیسات هسته‌ای ایران تحت نظارت مداوم ۹ دوربین، ۲۴ ساعته قرار دارند.
 هرگونه تحرک ایرانی در داخل تأسیسات هسته‌ای با واکنش مستقیم نظامی مواجه خواهد شد.
 @withyashar
-</div>
-
-## WithYashar — post 11253
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/boost/withyashar
-</div>
-
-## WithYashar — post 11252
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقا ما استیکر حامله میخوایم
 </div>
 

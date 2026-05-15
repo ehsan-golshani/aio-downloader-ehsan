@@ -1,8 +1,26 @@
 # آرشیو کانال WithYashar - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/25 16:40
+📅 آخرین بروزرسانی: 1405/02/25 19:05
 
 ---
+
+## WithYashar — post 11191
+
+<div align="center"><video src="telegram/content/WithYashar_11191.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11191.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ بعد از ۵۰ سال، اولین رئیس‌ جمهوری شد که به معبد آسمان چین رفت
+@withyashar
+</div>
+
+## WithYashar — post 11190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاخ سفید : ترامپ و شی توافق کردن که تنگه هرمز باید باز بمونه
+@withyashar
+</div>
 
 ## WithYashar — post 11189
 
@@ -150,22 +168,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانال N12: ترامپ داره به صدور دستور برای از سرگیری درگیری با ایران فکر می‌کنه
-@withyashar
-</div>
-
-## WithYashar — post 11171
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ائتلاف حاکم در اسرائیل پیشنهاد انحلال کنست در تدارک برای برگزاری انتخابات زودهنگام را ارائه کرد.
-@withyashar
-</div>
-
-## WithYashar — post 11170
-
-<div align="center"><img src="telegram/content/WithYashar_11170.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دارن تحلیل میکنن چیکار کنن 😂😅
 @withyashar
 </div>
 

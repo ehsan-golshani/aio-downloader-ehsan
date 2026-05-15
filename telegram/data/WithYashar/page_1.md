@@ -1,8 +1,22 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 16:40
+📅 آخرین بروزرسانی: 1405/02/25 19:05
 
 ---
+
+## WithYashar — post 11293
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارش خبرنگار همراه هیئت آمریکایی، پیش از سوار شدن به «ایرفورس وان»، کارکنان آمریکایی تمام وسایل و ههدایایی را که طرف چینی داده بود از جمله کارت‌ها، نشان‌ها، تلفن‌های موقت و اقلام هدیه جمع کردند و داخل سطل زباله انداختند و اجازه ندادند چیزی از چین وارد هواپیما شود.
+@withyashar
+</div>
+
+## WithYashar — post 11292
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزیر نیروهای مسلح فرانسه: ناو هواپیمابر «شارل دوگل» در دریای عرب مستقر شده و ماموریت آن «دفاعی» است.
+@withyashar
+</div>
 
 ## WithYashar — post 11291
 
@@ -169,19 +183,6 @@ Voice message
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبرنگار الجزیره:
 تهران به‌طور رسمی پاسخ واشنگتن به پیشنهاد خود را دریافت کرده و ایالات متحده تمامی شروط ایران رو رد کرده.
-@withyashar
-</div>
-
-## WithYashar — post 11273
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😂😂🙌🏾 @withyashar
-</div>
-
-## WithYashar — post 11272
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در تروث : پژوهشگر چینی به CNN گفت که به نشست ترامپ و شی نمره «۹.۹۹ از ۱۰» می‌دهد.
 @withyashar
 </div>
 

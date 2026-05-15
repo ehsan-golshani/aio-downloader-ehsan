@@ -1,8 +1,32 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/25 16:53
+📅 آخرین بروزرسانی: 1405/02/25 19:19
 
 ---
+
+## IranianMinds — post 20151
+
+<div align="center"><img src="telegram/content/IranianMinds_20151.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست خواهر جاویدنام سپهر ابراهیمی .
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20150
+
+<div align="center"><video src="telegram/content/IranianMinds_20150.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20150.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو کوبا هم‌ مردم ریختن بیرون دارن اعتراض میکنن
+
+مردم کوبا روزانه حدود ۲۳ تا ۲۲ ساعت برق ندارن تو‌ بعضی مناطق
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20149
 
@@ -206,38 +230,5 @@ ShirOKhorshid-2026.05.14.apk
 ما هر لحظه آماده حرکت علیه ایران هستیم
 
 @IranianMinds
-</div>
-
-## IranianMinds — post 20130
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وزیر خزانه‌داری آمریکا:
-طی سه روز گذشته هیچ بارگیری در تاسیسات نفتی ایران انجام نشده است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20129
-
-<div align="center"><img src="telegram/content/IranianMinds_20129.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
-
-👍دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-ge24
-🔔کانال دربی بت :
-🪙https://t.me/+aCbq7yy8QY80NzQ0
 </div>
 

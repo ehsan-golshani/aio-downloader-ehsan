@@ -1,8 +1,29 @@
 # آرشیو کانال mwarmonitor - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 16:40
+📅 آخرین بروزرسانی: 1405/02/25 19:06
 
 ---
+
+## mwarmonitor — post 9069
+
+<div align="center"><img src="telegram/content/mwarmonitor_9069.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇮🇳هند اعلام کرد که یک کشتی با پرچم هند روز چهارشنبه در سواحل عمان مورد حمله قرار گرفته است.
+🚢این کشتی پیدا نشده و احتمالاً با سامانه AIS خاموش در حال تردد بوده است. همچنین از چند هفته پیش یک ناو جنگی هندی برای حفاظت از کشتی‌های این کشور در دریای عمان مستقر است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9068
+
+<div align="center"><img src="telegram/content/mwarmonitor_9068.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️📡 هواپیمای P-8A پوزایدون نیروی دریایی US Navy در سواحل پاکستان فعال بوده و احتمالاً در حال پایش نفتکش‌های ایرانی لنگرگرفته در آن منطقه بوده است.
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9067
 
@@ -229,22 +250,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵شبکه NBC به نقل از داده‌های ناوبری: چندین کشتی باری و نفتکش مرتبط با چین طی ۲۴ ساعت گذشته از تنگه هرمز عبور کرده‌اند.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9049
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فایننشال‌تایمز: اریک پسر دونالد ترامپ قرار است رئیس‌جمهور آمریکا را در یک سفر رسمی به پکن همراهی کند؛ هم‌زمان، یک گروه مرتبط با خانواده ترامپ در حال بررسی یک توافق با یک شرکت چینی سازنده تراشه است که کنگره آمریکا هشدار داده با حزب کمونیست چین ارتباط دارد.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9048
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وال‌استریت ژورنال: مقامات کاخ سفید در حال بررسی طرحی هستند که بر اساس آن رئیس‌جمهور ترامپ به مناسبت جشن دویست‌وپنجاهمین سالگرد تولد این کشور، ۲۵۰ عفو صادر کند.
 
 @mwarmonitor
 </div>
