@@ -1,8 +1,89 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/25 09:25
+📅 آخرین بروزرسانی: 1405/02/25 12:17
 
 ---
+
+## Persian_Trend_Official — post 14131
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14131.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال هذیان گو اخبار سوریه، با محتوایی سمی و تخیلی ۶۰۰ میلیون از وزارت نفت به اسم تبلیغات !!! هزینه میگیره !
+
+ادعای خط انرژی در مورد دریافتی ۶۰۰ میلیون تومانی مالک کانال ارزشی، قلم به مزد و دروغ پرداز اخبار سوریه از پتروشیمی آریا
+
+در این کشور برای هر نوع چریدن و هدر دادن بیت المال پول کافی وجود دارد اما برای خرج های اصلی مملکت یا ساخت ارتشی توانمند دچار کسری بودجه ایم!
+
+https://farsnews.ir/Khate_energy/1778660394098111565/%D8%A7%D8%B2-%D8%A7%D8%AE%D8%A8%D8%A7%D8%B1-%D8%B3%D9%88%D8%B1%DB%8C%D9%87-%D8%AA%D8%A7-%D9%88%D8%B2%D8%A7%D8%B1%D8%AA-%D9%86%D9%81%D8%AA-%D9%88-%D9%BE%D8%AA%D8%B1%D9%88%D8%B4%DB%8C%D9%85%DB%8C-%D8%A2%D8%B1%DB%8C%D8%A7%D8%B3%D8%A7%D8%B3%D9%88%D9%84-%DA%86%D8%B1%D8%A7-%D8%A8%D9%87-%D8%AE%D8%B7-%D8%A7%D9%86%D8%B1%DA%98%DB%8C-%D8%AD%D9%85%D9%84%D9%87-%D9%85%DB%8C-%DA%A9%D9%86%D9%86%D8%AF
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14130
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14130.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، و سرگئی لاوروف، وزیر امور خارجه روسیه، در شهر دهلی نو (پایتخت هند) با یکدیگر دیدار و گفتگو کردند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14121
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14121.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14121.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وزیر دفاع اسرائیل، کاتز درباره ایران
+
+💢ماموریت ما کامل نشده است.
+
+💢ما برای احتمال اینکه ممکن است مجبور شویم دوباره اقدام کنیم - شاید حتی به زودی - آماده‌ایم.
+
+▪️اگر اهداف تأمین نشوند، دوباره اقدام خواهیم کرد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14120
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴مارکو روبیو:
+
+💢طرف چینی گفت که آنها موافق نظامی کردن تنگه هرمز یا سیستم عوارضی نیستند و این موضع ما است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14119
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14119.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14119.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢شی در ضیافت شام با ترامپ در پکن:
+
+«برای آینده روشن روابط چین و آمریکا و دوستی بین دو ملت، و برای سلامتی رئیس جمهور ترامپ و همه دوستان حاضر در جلسه دعا می‌ کنم.»
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14117
 
@@ -248,63 +329,6 @@
 پ.ن: دانش آموزان عزیز دعا کنید ماجرا مثل صدام عراق نشه که امتحانات‌تون یه 11 سالی‌ طول خواهد کشید. 🗿😂
 
 📝 Nick
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14102
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش صداوسیما از احسان افرشته و روایت عجیب از جاسوسی ! 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14101
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش صداوسیما از احسان افرشته و روایت عجیب از جاسوسی !
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14099
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ وضعیت از 57 تا امروز... 🗿
-
-(نسخه کم حجم توی کامنت ها)
-📝 Nick
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14098
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ وزیر انرژی و معادن کوبا اعلام کرد که کشور به طور کامل از دیزل و نفت کوره خالی شده و تولید برق به صورت کامل متوقف شده است، در حالی که ایالات متحده جزیره را محاصره کرده است.
-
-بسیاری از محله‌ها در پایتخت کوبا در حال حاضر با خاموشی‌هایی مواجه هستند که ۲۰ تا ۲۲ ساعت در روز طول می‌کشد.
-
-📝 Nick
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14093
-
-<div align="center"><img src="telegram/content/Persian_Trend_Official_14093.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باز مانده از رزمایش ضد هلی برن «قائد شهید» سپاه حضرت محمد رسول اللّه (ص) تهران بزرگ !!!
-
-درسته جنگ زمینی تخصص شماست، فقط متخصصین عزیز پوتین نداشتید ؟
 
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی

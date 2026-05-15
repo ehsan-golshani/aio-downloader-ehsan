@@ -1,8 +1,66 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 09:15
+📅 آخرین بروزرسانی: 1405/02/25 12:06
 
 ---
+
+## FoxNewsTwitter — post 341768
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341768.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341768.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Trump departed China aboard Air Force One, wrapping up his two-day summit with Chinese President Xi Jinping.
+
+A brief ceremony was held on the tarmac before his return flight to the U.S.
+
+Trump touted “fantastic trade deals” following his meetings and said the two leaders were aligned on Iran.
+</div>
+
+## FoxNewsTwitter — post 341767
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341767.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341767.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Trump gives a fist pump as he departs China after a series of crucial meetings with President Xi Jinping on the Iran war, trade tensions, technology, and Taiwan.
+
+Ahead of his departure, Trump met with Xi and expressed optimism about hosting him in the U.S. this September.
+
+“You're going to walk away hopefully very impressed, like I'm very impressed with China."
+</div>
+
+## FoxNewsTwitter — post 341766
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341766.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341766.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Trump exits the Beast to fanfare and pumps his fist during a departure ceremony at Beijing Capital International Airport.
+
+Ahead of his departure, Trump met with Chinese President Xi Jinping and expressed optimism about hosting him in the U.S. this September.
+
+“You're going to walk away hopefully very impressed, like I'm very impressed with China."
+</div>
+
+## FoxNewsTwitter — post 341765
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341765.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump departs Beijing after summit with President Xi https://twitter.com/i/broadcasts/1XxygmDlakEGM
+</div>
 
 ## FoxNewsTwitter — post 341764
 
@@ -226,67 +284,5 @@ Fox News (Twitter/X)
 JUST IN: Vice President JD Vance exposes a "shocking" lack of accountability at the Department of Justice, claiming million-dollar fraud cases were ignored by the Biden administration.
 
 "Let's say a person defrauded all of you for a million bucks. To many of our Department of Justice leaders under the Biden administration, they said that was too low level to actually go after. So, I mean, how many of you would like the federal government to hand you $1 million?"
-</div>
-
-## FoxNewsTwitter — post 341748
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341748.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341748.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: Vice President JD Vance defends America’s social safety net while warning that unchecked fraud is destroying the "spirit of generosity" that sustains it.
-
-"We don't want low income kids to not be able to afford a bite to eat. We want to make sure that if you're a poor child or a poor family, you get an opportunity to see a doctor, even if money is particularly tight."
-
-"But you know what destroys those programs and not just destroys those programs, but destroys the spirit of generosity that makes those programs possible? It's when local officials and state officials and federal officials, it's when they let the fraudsters take advantage of you instead of fighting for you."
-</div>
-
-## FoxNewsTwitter — post 341747
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341747.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341747.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-HAPPENING NOW: Vice President JD Vance blasts Maine’s "festering" fraud crisis, blaming Governor Janet Mills and former President Joe Biden for the state's decline.
-
-"Why did Maine go from a state that did not have a serious fraud problem, to one where I can honestly say it's one of the worst states in the union?"
-
-"Number one is Janet Mills, and number two is Joe Biden. And thankfully, thankfully, one of them has already been kicked to the curb and one is on her way out the door exactly as it should be."
-</div>
-
-## FoxNewsTwitter — post 341746
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341746.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341746.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: Vice President JD Vance exposes massive fraud rings involving hospice care and services for autistic children, alleging billions are being stolen from vulnerable Americans.
-
-"We have seen people go out there and say that they're providing services to autistic children, when in reality they maybe don't have any children at all, or they certainly don't have autistic children."
-
-"What happened to the autistic children and their families who actually need those services and need a competent government to ensure that they're doing the right thing?"
-</div>
-
-## FoxNewsTwitter — post 341745
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341745.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341745.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: Vice President JD Vance gets a chuckle from the crowd after a person yells about dead people voting while the VP was talking about fraud in the United States:
-
-"Unfortunately, they vote for Democrats. They don't vote for us my friends.”
 </div>
 

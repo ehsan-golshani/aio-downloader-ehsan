@@ -1,8 +1,70 @@
 # آرشیو کانال Dirty_Kids - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 03:18
+📅 آخرین بروزرسانی: 1405/02/25 12:21
 
 ---
+
+## Dirty_Kids — post 389464
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389464.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری دانشجو : شما فقط نحوه دست دادن رئیس‌جمهور چین با پرفسور رئیسی و ترامپ رو مقایسه کنی، متوجه قدرت ایران میشید... +کسخلیت و کونده‌پرویی اینا حدی نداره :))))) چین فروختتشون توافق کرده با امریکا استقبال بی نظیر کردن از ترامپ بعد رئیسی گوزو ۶ کلاسه‌رو…
+</div>
+
+## Dirty_Kids — post 389463
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389463.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389463.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری دانشجو :
+شما فقط نحوه دست دادن رئیس‌جمهور چین با پرفسور رئیسی و ترامپ رو مقایسه کنی، متوجه قدرت ایران میشید...
+
++کسخلیت و کونده‌پرویی اینا حدی نداره :)))))
+چین فروختتشون توافق کرده با امریکا
+استقبال بی نظیر کردن از ترامپ
+بعد رئیسی گوزو ۶ کلاسه‌رو همه میریدن بهش از پوتین بگیر تا شی دارن مقایسه میکنن
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389462
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389462.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسایی؛ نماینده‌ی مجلس:
+
+دولت قصد داره میزان سهمیه ماهانه بنزین ۱۵۰۰ تومنی و ۳۰۰۰ تومنی رو کاهش بده و قیمت بنزین ۵۰۰۰ تومنی رو هم به ۲۰۰۰۰ تومن برسونه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389458
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389458.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ده‌هزار تا عکس داره یکی از یکی زیباتر
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389456
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389456.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریدم=)))))))))
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389455
 
@@ -239,87 +301,5 @@ ShirOKhorshid-2026.05.14.apk
 
 
 @Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389437
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389437.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ تو چین یه جور داره رفتار میکنه که انگار اون میزبانه:
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389436
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این چه سمی بود دیدم 😂🔞
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389435
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389435.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقیقا وقتی فکر می‌کنی جمهوری اسلامی تپه نریده باقی نذاشته، همون لحظه یه تپه جدید می‌سازه و میره سرش میرینه.
-فقط مونده بود برن از امارات کشتی بدزدن فرار کنن، که اونم گویا حاصل شد.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ اپلیکیشن اندروید سایت جهانی دربی بت
-💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
-🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
-😀Telegram Channel👇
-https://t.me/+bcynkEgSW2dlYTc0
-</div>
-
-## Dirty_Kids — post 389433
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389433.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
-⛔
-
-
-👍دربی بت همون انتخاب  100%
-
-
-💎ویژگی های سایت جهانی Derby Bet:
-
-⬅️امکان شارژ امن با کارت بانکی
-
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-
-⬅️پر اپشن ترین سایت فعال در ایران
-
-⬅️تسویه حساب کمتر از 5 دقیقه
-
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید
-👉
-
-
-🔔کانال دربی بت :
-
-🪙https://t.me/+bcynkEgSW2dlYTc0
 </div>
 

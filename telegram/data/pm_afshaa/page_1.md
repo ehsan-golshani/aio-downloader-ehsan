@@ -1,8 +1,52 @@
 # آرشیو کانال pm_afshaa - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 09:15
+📅 آخرین بروزرسانی: 1405/02/25 12:07
 
 ---
+
+## pm_afshaa — post 90768
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ به فاکس‌ نیوز : من از الان دیگه آدم صبوری نیستم و صبر بیشتری به ایران نشان نخواهم داد
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90767
+
+<div align="center"><video src="telegram/content/pm_afshaa_90767.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/pm_afshaa_90767.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ رفت به شهر ممنوعه چین جایی که رهبرای خیلی کمی تو دنیا به اونجا رفتن و هر کسی رو راه نمیدن اونجا
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90766
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کانال 13 اسرائیل:اسرائیل انتظار دارد حمله احتمالی آمریکا در ایران از فردا با بازگشت ترامپ از چین آغاز شود
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90765
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ به فاکس نیوز:امیدوارم ایران در حال تماشا باشد. ما دقیقاً می‌دانیم چه چیزی را به نمایش گذاشته‌اند.
+
+می‌دانید، آنها کمی استراحت داشتند، بنابراین سعی می‌کنند چند چیز را جمع کنند. آنها چند موشک را از زیر زمین برداشته‌اند. همه آن‌ها در یک روز از بین خواهد رفت.
+
+هر کاری که در چهار هفته گذشته انجام داده‌اند، در یک روز از بین خواهد رفت
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90764
 
@@ -178,47 +222,6 @@ Link chanel : @lex_server
 🎙️آیا رئیس جمهور شی از ترامپ درخواست کرده بود که به تایوان سلاح نفروشه؟
 
 مارکو روبیو: خوب، این موضوع در گذشته مورد بحث قرار گرفته. اساساً در بحث امروز مطرح نشد. ما میدونیم که موضع آنها در این مورد چیست.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90748
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ: چین موافقت کرد 200 هواپیمای بوئینگ خریداری کنه.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90747
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴حمید رسایی، نماینده تهران:
-دولت قصد داره سهمیه بنزین هزار و ۵۰۰ تومنی و ۳ هزار تومنی رو کاهش بده و قیمت بنزین پنج هزار تومانی رو به ۱۵ تا ۲۰ هزار تومان افزایش بده.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90746
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عراقچی: برای مسائل مربوط به ایران راه حل نظامی وجود نداره و ما در مقابل تهدیدات محکم می‌ایستیم و سر فرود نمیاریم.
-
-اگر دوباره بخوان ما رو آزمایش کنند و وارد جنگ شوند، نتیجه‌ای جز شکستی که قبلا دیدن، نخواهد داشت.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90745
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎙️آیا درباره حمایت چین از ایران با رئیس جمهور چین صحبت کردید؟
-
-ترامپ: ما در مورد این موضوع صحبت کردیم. منظورم اینه که وقتی میگید «حمایت»، آنها با ما جنگ نمی‌کنن یا چیزی شبیه این. او گفت که تجهیزات نظامی ارائه نخواهد کرد، این یک بیانیه بزرگه. اما در عین حال گفت که آنها مقدار زیادی نفت خودشون رو از ایران میخرن و دوست دارن این کار رو ادامه بدن.
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

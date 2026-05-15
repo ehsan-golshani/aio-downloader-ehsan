@@ -1,8 +1,104 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 05:17
+📅 آخرین بروزرسانی: 1405/02/25 12:18
 
 ---
+
+## IranianMinds — post 20149
+
+<div align="center"><img src="telegram/content/IranianMinds_20149.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کان‌نیوز:
+
+اسرائیل معتقد است که ترامپ وقتی از چین برگرده، درباره حمله مجدد به ایران تصمیم‌گیری میکنه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20148
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خبرگزاری ایسنا : از الان دیگه باید با قیمت قطعی خودرو خداحافظی کنید؛ در طرح جدید ایران ‌خودرو و سایپا، خریداران باید نصف پول رو از اول بدن بدون اینکه حتی بفهمن قیمت نهایی زمان تحویل خودرو براشون چقدره ! @IranianMinds
+</div>
+
+## IranianMinds — post 20147
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## IranianMinds — post 20146
+
+<div align="center"><img src="telegram/content/IranianMinds_20146.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خبرگزاری ایسنا :
+
+از الان دیگه باید با قیمت قطعی خودرو خداحافظی کنید؛
+
+در طرح جدید ایران ‌خودرو و سایپا، خریداران باید نصف پول رو از اول بدن بدون اینکه حتی بفهمن قیمت نهایی زمان تحویل خودرو براشون چقدره !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20145
+
+<div align="center"><video src="telegram/content/IranianMinds_20145.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20145.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 کارشناس کانال ۱۴ اسرائیل:
+
+رژیم ایران در حال انجام تماس‌هایی به صورت مخفی و مستقیم با دولت ترامپ هست و به شدت احتیاج به پول داره.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20144
+
+<div align="center"><video src="telegram/content/IranianMinds_20144.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20144.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نتانیاهو:
+
+ما اورشلیم را برای همیشه تحت حاکمیت اسرائیل حفظ خواهیم کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 روبیو، وزیرخارجه آمریکا: ترامپ از رئیس جمهور چین کمکی نخواست و آمریکا به کمک چین نیازی نداره.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20141
+
+<div align="center"><img src="telegram/content/IranianMinds_20141.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+:( موضوع امیدوار بودن یا نبودن نیست. وقتی که قدرت تصمیم‌گیری در دست دیگران است، وقتی که ما نمی‌توانیم در تصمیم‌گیری آنها دخالت کنیم، تنها کاری که می‌توان انجام داد، تحمل کردن است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20140
+
+<div align="center"><img src="telegram/content/IranianMinds_20140.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گیر چه عقب مونده‌هایی افتادیم
+
+ننگ ۵۰۰ ساله روحانیت رو از تاریخ ایران پاک باید کنیم
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20139
 
@@ -143,123 +239,5 @@
 ge24
 🔔کانال دربی بت :
 🪙https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20128
-
-<div align="center"><img src="telegram/content/IranianMinds_20128.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کاخ سفید:
-
-هر دو کشور ( چین و آمریکا ) توافق کردند که ایران هرگز نمی‌تواند سلاح هسته‌ای داشته باشد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20127
-
-<div align="center"><img src="telegram/content/IranianMinds_20127.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لامین یامال بازیکن چپول بارسلونا که تو‌ جشن قهرمانی بارسا پرچم فلسطینو گرفته دستش @IranianMinds
-</div>
-
-## IranianMinds — post 20126
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ShirOKhorshid-2026.05.14.apk
-</div>
-
-## IranianMinds — post 20125
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ShirOKhorshid-2026.05.14.apk
-</div>
-
-## IranianMinds — post 20124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آموزش اتصال به اینترنت بین الملل:
-
-🔺 مهم: اگر این نسخه رو نصب کنید دیگه دردسر ستاپ کردن MITM و... ندارید!
-این نسخه حدودا یک ساعت پیش توسط برنامه‌نویس شیر و خورشید آپدیت شد و به راحتی می‌تونید طبق این آموزش بهش وصل بشید:
-1- وارد اپلیکیشن شیر و خورشید(آخرین نسخه که امروز منتشر شده) می‌شید
-2- وارد بخش Options میشید از نوار بالا
-3- روی More Options کلیک میکنید
-4- گزینه‌ی Connection Protocol رو قرار میدید روی CDN Fronting
-5- میرید و عادی کانکت میشید و به راحتی وصل میشه.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20123
-
-<div align="center"><img src="telegram/content/IranianMinds_20123.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پست کاخ سفید در ایکس:
-تاریخ در حرکت است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20122
-
-<div align="center"><img src="telegram/content/IranianMinds_20122.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ببین کی داره اینو میگه…
-
-دو روز ۱۸ و ۱۹ دی ۱۴۰۴، ۲۳۶ کودک رو کشتید.
-۵۵۵ بچه رو هم بازداشت کردید.
-
-آها یادم نبود کودکان غزه و فلسطین مال شماس.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20121
-
-<div align="center"><img src="telegram/content/IranianMinds_20121.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️اوتباند موجود⚠️
-
-🔋حداقل خرید 30GB
-
-♾حداکثر محدودیتی نداره
-
-50GB ➡️ 180
-
-100GB ➡️140
-
-200GB ➡️120
-
-+500GB ➡️100
-
-🧬 500 گیگ به بالا امکان تسویه روزانه نیز فراهم می باشد
-
-⬅️دارای لود بالانس و اپتایم 99/9% بدون قعطی
-⬅️تست موجود می باشد
-
-جهت خرید و استعلام قیمت🟡
-
-@xan_vpnn
-
-کانال:
-
-https://t.me/+qNjExGEJztE2OGI0
-</div>
-
-## IranianMinds — post 20120
-
-<div align="center"><img src="telegram/content/IranianMinds_20120.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بنر حامیان حکومت در تجمع دیشب تهران:
-سید مجید نقطه‌زن، امتحانا نزدیکه، یه جایی‌رو زود بزن.
-
-@IranianMinds
 </div>
 

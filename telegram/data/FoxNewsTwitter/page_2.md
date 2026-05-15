@@ -1,8 +1,70 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 09:15
+📅 آخرین بروزرسانی: 1405/02/25 12:06
 
 ---
+
+## FoxNewsTwitter — post 341748
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341748.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341748.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: Vice President JD Vance defends America’s social safety net while warning that unchecked fraud is destroying the "spirit of generosity" that sustains it.
+
+"We don't want low income kids to not be able to afford a bite to eat. We want to make sure that if you're a poor child or a poor family, you get an opportunity to see a doctor, even if money is particularly tight."
+
+"But you know what destroys those programs and not just destroys those programs, but destroys the spirit of generosity that makes those programs possible? It's when local officials and state officials and federal officials, it's when they let the fraudsters take advantage of you instead of fighting for you."
+</div>
+
+## FoxNewsTwitter — post 341747
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341747.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341747.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+HAPPENING NOW: Vice President JD Vance blasts Maine’s "festering" fraud crisis, blaming Governor Janet Mills and former President Joe Biden for the state's decline.
+
+"Why did Maine go from a state that did not have a serious fraud problem, to one where I can honestly say it's one of the worst states in the union?"
+
+"Number one is Janet Mills, and number two is Joe Biden. And thankfully, thankfully, one of them has already been kicked to the curb and one is on her way out the door exactly as it should be."
+</div>
+
+## FoxNewsTwitter — post 341746
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341746.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341746.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Vice President JD Vance exposes massive fraud rings involving hospice care and services for autistic children, alleging billions are being stolen from vulnerable Americans.
+
+"We have seen people go out there and say that they're providing services to autistic children, when in reality they maybe don't have any children at all, or they certainly don't have autistic children."
+
+"What happened to the autistic children and their families who actually need those services and need a competent government to ensure that they're doing the right thing?"
+</div>
+
+## FoxNewsTwitter — post 341745
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341745.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341745.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: Vice President JD Vance gets a chuckle from the crowd after a person yells about dead people voting while the VP was talking about fraud in the United States:
+
+"Unfortunately, they vote for Democrats. They don't vote for us my friends.”
+</div>
 
 ## FoxNewsTwitter — post 341744
 
@@ -216,51 +278,5 @@ The Army has recovered the remains of Spc. Mariyah Symone Collington, 19, the se
 The remains of another soldier, 1st Lt. Kendrick Lamont Key Jr., were recovered last week.
 
 Both soldiers were reported missing May 2 after participating in African Lion exercises and are believed to have fallen from a coastal cliff, ending a challenging multinational search effort.
-</div>
-
-## FoxNewsTwitter — post 341728
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌Fox News (Twitter/X)
-
-Read more:
-</div>
-
-## FoxNewsTwitter — post 341727
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341727.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-A New Hampshire woman claims Planet Fitness canceled her membership and called the police after she reported seeing a man in the women's locker room.
-
-The gym reportedly labeled her "transphobic" for raising safety concerns, highlighting the ongoing national debate over "inclusive" locker room policies.
-</div>
-
-## FoxNewsTwitter — post 341726
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341726.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341726.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-Among the suits and billion-dollar conversations during President Trump's high-stakes Chinese trip, one guest stood out.
-
-Elon Musk’s son was seen wandering through a massive hall in China with his father as major CEOs gathered for high-level meetings.
-</div>
-
-## FoxNewsTwitter — post 341725
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341725.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-Porn on taxpayer-funded tablets — that’s what some California death row inmates are reportedly watching.
-
-Over 90,000 devices were handed out as part of a multimillion-dollar program meant to connect prisoners with family and provide educational resources. Instead, reports say they’re also being used for explicit content and sexual conversations.
 </div>
 

@@ -1,8 +1,59 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 09:15
+📅 آخرین بروزرسانی: 1405/02/25 12:06
 
 ---
+
+## FoxNewsTwitter — post 341702
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341702.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Brand new details released about President Trump’s bilateral meeting with Chinese President Xi.
+
+The White House says China is interested in buying more American oil while also agreeing with the U.S. that Iran can never have a nuclear weapon.
+
+Meanwhile, the Chinese government says Trump was told that Taiwan is the most important issue on the table for the communist country — and warns the future of U.S.-China ties depends on how it’s handled.
+
+When it comes to Iran, President Trump says he doesn’t need Xi’s help with ending the conflict.
+
+U.S. CEOs are also making pitches for expanded business ties during the ongoing meeting.
+@aishahhasnie with the latest.
+</div>
+
+## FoxNewsTwitter — post 341701
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341701.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump and President Xi Jinping tour the Temple of Heaven after their meeting at the Great Hall of the People in Beijing.
+</div>
+
+## FoxNewsTwitter — post 341700
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Trump and President Xi visit Temple of Heaven after having "great" talks.
+
+"China is beautiful."
+</div>
+
+## FoxNewsTwitter — post 341699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump and Chinese President Xi Jinping visit Temple of Heaven https://twitter.com/i/broadcasts/1nxnRYlNzoLxO
+</div>
 
 ## FoxNewsTwitter — post 341698
 
@@ -208,69 +259,5 @@ WATCH LIVE: 38th annual candlelight vigil for fallen officers in Washington, DC 
 Fox News (Twitter/X)
 
 FOX NEWS REPORT: President Trump is in China and expected to talk trade and the Iran war with Chinese President Xi Jinping. @BillMelugin_ has the latest.
-</div>
-
-## FoxNewsTwitter — post 341682
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341682.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341682.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-EXCLUSIVE: Secretary of State Marco Rubio outlines the high-stakes push for China to confront Iran over its actions in the Persian Gulf in an exclusive sit-down with @seanhannity aboard Air Force One:
-
-“The Chinese have ships stuck in the Persian Gulf... A Chinese cargo got hit over the weekend. I'm sure Iran didn't do it deliberately but they did it, it happened. And so that's why these Chinese ships are stuck in there.”
-
-“It's a huge source of instability. It threatens to destabilize Asia more than any other part of the world because it's heavily reliant on the straits for energy.”
-
-“It’s in [China’s] interest to resolve this. We hope to convince them to play a more active role in getting Iran to walk away from what they're doing now and trying to do now in the Persian Gulf."
-</div>
-
-## FoxNewsTwitter — post 341681
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341681.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341681.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: Secretary of State Marco Rubio outlines the high-stakes push for China to confront Iran over its actions in the Persian Gulf in an exclusive sit-down with @seanhannity aboard Air Force One:
-
-“The Chinese have ships stuck in the Persian Gulf... A Chinese cargo got hit over the weekend. I'm sure Iran didn't do it deliberately but they did it, it happened. And so that's why these Chinese ships are stuck in there.”
-
-“It's a huge source of instability. It threatens to destabilize Asia more than any other part of the world because it's heavily reliant on the straits for energy.”
-
-“It’s in [China’s] interest to resolve this. We hope to convince them to play a more active role in getting Iran to walk away from what they're doing now and trying to do now in the Persian Gulf."
-</div>
-
-## FoxNewsTwitter — post 341680
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341680.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341680.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: Secretary of State Marco Rubio stresses the critical need for America to strategically navigate its complex relationship with China:
-
-@seanhannity : “You view China as our top geopolitical foe.”
-
-RUBIO: “Yeah, it’s both our top political challenge geopolitically and it’s also the most important relationship for us to manage.”
-
-“We're going to have interests of ours that are going to be in conflict with interests of theirs; to avoid wars and maintain peace and stability in the world, we're gonna have to manage those.”
-</div>
-
-## FoxNewsTwitter — post 341676
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341676.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: The White House shares brand new photos of President Trump's arrival in China for his landmark state visit, where he will meet with President Xi to discuss major foreign policy and trade issues.
 </div>
 

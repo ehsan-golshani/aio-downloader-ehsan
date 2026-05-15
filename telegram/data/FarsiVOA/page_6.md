@@ -1,8 +1,37 @@
 # آرشیو کانال FarsiVOA - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/25 09:24
+📅 آخرین بروزرسانی: 1405/02/25 12:15
 
 ---
+
+## FarsiVOA — post 217691
+
+<div align="center"><video src="telegram/content/FarsiVOA_217691.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217691.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گزارش خبرنگار اعزامی صدای آمریکا از سفر رئیس جمهوری آمریکا به چین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217690
+
+<div align="center"><video src="telegram/content/FarsiVOA_217690.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217690.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️سخنان آغازین دونالد ترامپ، رئیس جمهوری آمریکا در دیدار با رئیس جمهوری چین پس از مراسم استقبال رسمی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217689
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️آیا چین اراده و قدرت این را دارد که جمهوری اسلامی را وادار کند از ناامن‌سازی تنگه هرمز دست بر دارد؟
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217688
 
@@ -155,32 +184,6 @@ https://ir.voanews.com/a/8149657.html
 
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/8149655.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217671
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺نگاهی به دیدار‌های گذشته دونالد ترامپ با شی جین‌پینگ
-
-▪️سفر دونالد ترامپ، رئیس‌جمهوری آمریکا، به پکن و دیدارهای پیش‌روی او با شی جین‌پینگ، رئیس‌جمهوری چین، یکی از تیترهای مهم خبری روزهای اخیر در رسانه‌ها و جراید معتبر جهان در چند روز اخیر بوده است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149652.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217670
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️بررسی پوشش اخبار درگیری نظامی با جمهوری اسلامی در رسانه‌های غربی
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217669
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️حملە امارات و عربستان بە جمهوری اسلامی و سفر مخفیانە نخست وزیر اسرائیل بە امارات
 @FarsiVOA
 </div>
 

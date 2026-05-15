@@ -1,8 +1,66 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 09:25
+📅 آخرین بروزرسانی: 1405/02/25 12:17
 
 ---
+
+## Persian_Trend_Official — post 14156
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14156.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴اسرائیل در حال توزیع تورهای ضد پهپاد به نیروهای خود در جنوب لبنان برای مقابله با پهپادهای FPV حزب‌الله است.
+
+▪️تا کنون ۱۵۸٬۰۰۰ متر مربع نصب شده و ۱۸۸٬۰۰۰ متر مربع دیگر در سفارش است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14155
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://youtube.com/live/SFBV2nP6Gs4?feature=share
+</div>
+
+## Persian_Trend_Official — post 14154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا دقایقی دیگه لایو شروع میشه
+</div>
+
+## Persian_Trend_Official — post 14153
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❤️ اگر از مخاطبان پرشین ترند هستید و تلگرام پرمیوم دارید،
+با بوست کردن کانال کمک بزرگی به رشد و دیده‌شدن بیشتر پرشین ترند می‌کنید.
+این بوست‌ها باعث می‌شود امکانات بیشتری برای انتشار محتوا، استوری و قابلیت‌های ویژه کانال فعال شود و در شرایط فعلی، به ادامه پوشش سریع و تحلیل‌های روزانه کمک زیادی می‌کند.
+🙏 اگر مایل بودید، از طریق لینک زیر کانال را بوست کنید:
+https://t.me/boost/persian_trend_official
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14152
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14152.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💎 تراست vpn رو چندین بار معرفی کردم
+و بازخوردتون خیلی خوب بود
+
+✅ همین الان بهشون پیام بدین و سرورتون رو دریافت کنین تا با سرعت بالا و بدون لگ ویدئوهای اینستاگرام و یوتیوب رو ببینین.
+
+🔻 بهشون گفتم قیمتاشونم یه کاهش قیمت بدن
+
+به ایدی زیر پیام بدین 👇
+
+@trusstvpnn_admin
+@trusstvpnn_admin
+@trusstvpnn_admin
+</div>
 
 ## Persian_Trend_Official — post 14151
 
@@ -298,86 +356,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خدارو شکر دیگه کم کم هر ننه قمری فاز کوسه برداشته و میخواد به حساب دیگران رسیدگی کنه! جناب کریم شیره ای، شما اگر خیلی حساب و کتاب سرت میشه برو پول بساطت رو با ساقی محل حساب کن .
-</div>
-
-## Persian_Trend_Official — post 14131
-
-<div align="center"><img src="telegram/content/Persian_Trend_Official_14131.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال هذیان گو اخبار سوریه، با محتوایی سمی و تخیلی ۶۰۰ میلیون از وزارت نفت به اسم تبلیغات !!! هزینه میگیره !
-
-ادعای خط انرژی در مورد دریافتی ۶۰۰ میلیون تومانی مالک کانال ارزشی، قلم به مزد و دروغ پرداز اخبار سوریه از پتروشیمی آریا
-
-در این کشور برای هر نوع چریدن و هدر دادن بیت المال پول کافی وجود دارد اما برای خرج های اصلی مملکت یا ساخت ارتشی توانمند دچار کسری بودجه ایم!
-
-https://farsnews.ir/Khate_energy/1778660394098111565/%D8%A7%D8%B2-%D8%A7%D8%AE%D8%A8%D8%A7%D8%B1-%D8%B3%D9%88%D8%B1%DB%8C%D9%87-%D8%AA%D8%A7-%D9%88%D8%B2%D8%A7%D8%B1%D8%AA-%D9%86%D9%81%D8%AA-%D9%88-%D9%BE%D8%AA%D8%B1%D9%88%D8%B4%DB%8C%D9%85%DB%8C-%D8%A2%D8%B1%DB%8C%D8%A7%D8%B3%D8%A7%D8%B3%D9%88%D9%84-%DA%86%D8%B1%D8%A7-%D8%A8%D9%87-%D8%AE%D8%B7-%D8%A7%D9%86%D8%B1%DA%98%DB%8C-%D8%AD%D9%85%D9%84%D9%87-%D9%85%DB%8C-%DA%A9%D9%86%D9%86%D8%AF
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14130
-
-<div align="center"><img src="telegram/content/Persian_Trend_Official_14130.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، و سرگئی لاوروف، وزیر امور خارجه روسیه، در شهر دهلی نو (پایتخت هند) با یکدیگر دیدار و گفتگو کردند
-
-🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14121
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14121.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14121.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وزیر دفاع اسرائیل، کاتز درباره ایران
-
-💢ماموریت ما کامل نشده است.
-
-💢ما برای احتمال اینکه ممکن است مجبور شویم دوباره اقدام کنیم - شاید حتی به زودی - آماده‌ایم.
-
-▪️اگر اهداف تأمین نشوند، دوباره اقدام خواهیم کرد.
-
-🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14120
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴مارکو روبیو:
-
-💢طرف چینی گفت که آنها موافق نظامی کردن تنگه هرمز یا سیستم عوارضی نیستند و این موضع ما است.
-
-🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14119
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14119.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14119.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢شی در ضیافت شام با ترامپ در پکن:
-
-«برای آینده روشن روابط چین و آمریکا و دوستی بین دو ملت، و برای سلامتی رئیس جمهور ترامپ و همه دوستان حاضر در جلسه دعا می‌ کنم.»
-
-🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>
 

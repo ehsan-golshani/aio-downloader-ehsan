@@ -1,8 +1,23 @@
 # آرشیو کانال Shin_Persian - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 05:12
+📅 آخرین بروزرسانی: 1405/02/25 12:12
 
 ---
+
+## Shin_Persian — post 5983
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Tue, 12 May 2026 21:17:38 UTC
+
+Someone wrote “Tehran is having a wild orgasm” in Telegram 😭😭😭
+
+فارسی
+
+یک نفر در تلگرام نوشته «تهران دارد به ارگاسم وحشیانه می‌رسد» 😭😭😭
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 5982
 

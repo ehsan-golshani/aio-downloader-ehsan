@@ -1,8 +1,57 @@
 # آرشیو کانال pm_afshaa - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 09:15
+📅 آخرین بروزرسانی: 1405/02/25 12:07
 
 ---
+
+## pm_afshaa — post 90702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دفتر نخست وزیر اسرائیل:
+در بحبوحه جنگ و عملیات غرش شیر، نتانیاهو به امارات سفر کرد و با شیخ محمدبن زاید، رئیس امارات متحده عربی دیدار کرد.
+
+این سفر منجر به پیشرفتی تاریخی در روابط اسرائیل و امارات شد.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90701
+
+<div align="center"><video src="telegram/content/pm_afshaa_90701.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/pm_afshaa_90701.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکانت اسرائیل به فارسی:وقتی به زودی به اسرائیل سفر کنید، این منظره زیبا از پنجره هواپیما در انتظار شماست. به امید دیدار شما در تل‌آویو یا تهران
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90700
+
+<div align="center"><img src="telegram/content/pm_afshaa_90700.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عباس عراقچی:
+
+کویت در اقدامی آشکار برای ایجاد اختلاف، به طور غیرقانونی به یک قایق ایرانی حمله کرد و چهار شهروند رو در خلیج فارس بازداشت کرد. این اقدام غیرقانونی در نزدیکی جزیره‌ای رخ داد که آمریکا از آن برای حمله به ایران استفاده میکنه. ما خواستار آزادی فوری شهروندان خود هستیم و حق پاسخگویی رو برای خود محفوظ می‌داریم.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴هفتمین رأی‌گیری سنای آمریکا توسط دموکرات‌ها برای محدود کردن اختیارات جنگی ترامپ و پایان جنگ با جمهوری اسلامی بازهم شکست خورد.
+
+تعداد آرا فاصله نزدیک 50 به 49 داشت!
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90698
 

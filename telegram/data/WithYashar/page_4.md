@@ -1,8 +1,118 @@
 # آرشیو کانال WithYashar - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 01:50
+📅 آخرین بروزرسانی: 1405/02/25 12:04
 
 ---
+
+## WithYashar — post 11206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شی جین‌پینگ: چین و ایالات متحده هر دو از همکاری سود می‌برند و از تقابل زیان می‌بینند.
+
+دو کشور ما باید شریک باشند نه رقیب.
+@withyashar
+</div>
+
+## WithYashar — post 11205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ از رئیس‌جمهور چین برای سفر به ایالات متحده در ماه سپتامبر آینده دعوت کرد
+@withyashar
+</div>
+
+## WithYashar — post 11204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آکسیوس: یکی از گزینه‌های ترامپ پس از بازگشت از چین از سر گیری پروژه آزادی در تنگه هرمز است. گزینه دیگر ترامپ حمله به زیرساخت‌های ایرانه.
+@withyashar
+</div>
+
+## WithYashar — post 11203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق برنامه ای که قرار داده بودیم ترامپ و رییس‌جمهور چین برای یک مهمانی شام با یکدیگر دیدار کردند @withyashar
+</div>
+
+## WithYashar — post 11202
+
+<div align="center"><video src="telegram/content/WithYashar_11202.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11202.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برنامه های ترامپ با حاکم چین به این ترتیبه : مراسم استقبال تو تالار بزرگ خلق چهارشنبه رسیدن به پکن ، استقرار و استراحت پنج شنبه ۱۴ مه - ملاقات با شی - ضیافت دولتی با شی جمعه تاریخ ۱۵ مه - جلسه عکس با شی- چای با شی - ناهار با شی و حرکت از پکن به آمریکا، @withyashar
+</div>
+
+## WithYashar — post 11201
+
+## WithYashar — post 11200
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فارس: عبور کشتی‌های چینی از تنگۀ هرمز از شب گذشته اغاز شده
+@withyashar
+یک کشتی ژاپنی هم اجازه عبور گرفت
+</div>
+
+## WithYashar — post 11199
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاخ سفید اعلام کرد در دیدار ترامپ و شی جین‌پینگ، دو طرف بر باز ماندن تنگه هرمز و تقویت همکاری‌های اقتصادی توافق کردند. این توافق شامل افزایش سرمایه‌گذاری چین در صنایع آمریکا و گسترش دسترسی شرکت‌های آمریکایی به بازار چین است.
+
+ترامپ: مذاکرات پکن بسیار مثبت و سازنده بود
+@withyashar
+</div>
+
+## WithYashar — post 11198
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با رفیق اروپاییم نشستیم داریم ویدیو مسیج های شما رو نگاه میکنیم براش ترجمه میکنم که داری چی میگی، بعد یهو میگه اینجا چی گفت، خب من چجوری گربه گیر رو ترجمه کنم😂😂😂😂😂 عشقی سلطان یاشار❤️❤️
+</div>
+
+## WithYashar — post 11197
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با رفیق اروپاییم نشستیم داریم ویدیو مسیج های شما رو نگاه میکنیم براش ترجمه میکنم که داری چی میگی، بعد یهو میگه اینجا چی گفت، خب من چجوری گربه گیر رو ترجمه کنم😂😂😂😂😂
+عشقی سلطان یاشار❤️❤️
+</div>
+
+## WithYashar — post 11196
+
+<div align="center"><video src="telegram/content/WithYashar_11196.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11196.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## WithYashar — post 11195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اتاق جنگ با یاشار : جابجای‌های غول آسا دو شماره یک «AirForce1» هواپیمای ویژه ریاست جمهوری و «B1 »بمب افکن اسطورهی آمریکا و خبر ویژه از داخل ایران https://www.instagram.com/reel/DYQCr39RJ4i/?igsh=MThycjJiYWZmbnJ3dA== کارای اداریش رو انجام بدید تا بعدش بریم…
+</div>
+
+## WithYashar — post 11194
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آکسیوس به نقل از مقامات اسرائیلی:
+
+در پی احتمال تصمیم ترامپ برای از سرگیری جنگ، در اسرائیل حالت آماده‌باش حداکثری در طول تعطیلات آخر هفته برقرار خواهد شد.
+@withyashar
+</div>
+
+## WithYashar — post 11193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک مقام کاخ سفید به فاکس‌نیوز:
+
+رئیس‌جمهور چین علاقه‌مند است نفت بیشتری از آمریکا خریداری کند تا وابستگی کشورش به تنگه هرمز را کاهش دهد.
+@withyashar
+</div>
+
+## WithYashar — post 11192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جان بولتون: مذاکره با ایران برای یک توافق هسته‌ای هدر دادن اکسیژن است.
+
+این افراد دهه‌ها پیش تصمیم استراتژیکی برای دستیابی به سلاح‌های هسته‌ای گرفتند و در این ۴۷ سال هیچ مدرکی وجود ندارد که نشان دهد آن‌ها این هدف را رها کرده‌اند.
+@withyashar
+</div>
 
 ## WithYashar — post 11191
 
@@ -48,126 +158,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس داده ها , شرکت تتر مبلغ 344 میلیون دلار USDT مرتبط با بانک مرکزی ایران رو فریز کرده و دلیلش هم بخاطر دور زدن تحریم‌ها بوده که شرکت آرکهام کیف پول‌های مرتبط رو شناسایی کرده
-@withyashar
-</div>
-
-## WithYashar — post 11186
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسنیم: کیفرخواست زیباکلام و مدیرمسئول خبرگزاری آنا صادر شد ممنوعیت زیباکلام از انجام هرگونه فعالیت رسانه‌ای به مدت سه ماه صادر شده
-@withyashar
-</div>
-
-## WithYashar — post 11185
-
-<div align="center"><img src="telegram/content/WithYashar_11185.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقایقی پیش زمین‌لرزه‌ای بسیار شدید ۵ ریشتری در عمق ۸ کیلومتری بردسیر کرمان را لرزاند
-@withyashar
-</div>
-
-## WithYashar — post 11184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتانیاهو در دادگاه حظور پیدا کرد و گفت: «فیک نیوزها گفتند من به بیماری لاعلاجی مبتلا هستم - این یک صنعت دروغگویی تمام‌عیار است»
-@withyashar
-</div>
-
-## WithYashar — post 11183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاج : در جریان آهنگی که معین برای تیم ملی در جام جهنی ۲۰۲۶ می خواند هستیم @withyashar
-</div>
-
-## WithYashar — post 11182
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اتاق جنگ با شما : زمین لرزه خیلی شدید کرمان یک دقیقه پیش
-@withyashar
-</div>
-
-## WithYashar — post 11181
-
-<div align="center"><video src="telegram/content/WithYashar_11181.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11181.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصویربرداری عجیب یا اسکن ۳۶۰ ایلان ماسک از موقعیت با گوشی خودش
-@withyashar
-</div>
-
-## WithYashar — post 11180
-
-<div align="center"><video src="telegram/content/WithYashar_11180.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11180.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صحنه ای زیبا در چین که کودکان به ترامپ و شی خوشامد میگویند
-@withyashar
-</div>
-
-## WithYashar — post 11179
-
-<div align="center"><video src="telegram/content/WithYashar_11179.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11179.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرنگار: آقای رئیس‌جمهور، مذاکرات چطور بود؟
-
-ترامپ : عالی بود. چین زیباست.
-
-خبرنگار: دربارهٔ تایوان هم صحبت کردید؟
-
-ترامپ: (پاسخی نداد)
-@withyashar
-</div>
-
-## WithYashar — post 11178
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارکو روبیو تایید کرد چین و آمریکا به توافق رسیدن که ایران نباید تو تنگه عوارض بگیره از کشوری
-
-این «توافق» فعلاً در حد موضع مشترک سیاسی و دیپلماتیک گزارش شده، نه یک پیمان رسمی یا قطعنامه بین‌المللی.
-چین هنوز در بسیاری از موضوعات از ایران فاصله نگرفته و حتی در شورای امنیت بعضی قطعنامه‌های ضد ایران را وتو کرده است.
-دلیل حساسیت موضوع این است که حدود یک‌پنجم نفت جهان از تنگه هرمز عبور می‌کند و هرگونه عوارض یا محدودیت می‌تواند قیمت جهانی انرژی را به شدت تحت تأثیر قرار دهد
-@withyashar
-</div>
-
-## WithYashar — post 11177
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar سفر قاهره
-</div>
-
-## WithYashar — post 11176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قصه بگم ؟ شایدم بهترین شرحی ‌باشه که لازم دارید بشنوید …
-</div>
-
-## WithYashar — post 11175
-
-## WithYashar — post 11174
-
-<div align="center"><video src="telegram/content/WithYashar_11174.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11174.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-## WithYashar — post 11173
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درودی دوباره یاشار جان
-میشه سوال منو ج بدین چرا ترامپ وقتی وارد چین شد نیومد ریس جمهور استقبالش در صورتی که باید بیاد ؟
-</div>
-
-## WithYashar — post 11172
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال N12: ترامپ داره به صدور دستور برای از سرگیری درگیری با ایران فکر می‌کنه
 @withyashar
 </div>
 
