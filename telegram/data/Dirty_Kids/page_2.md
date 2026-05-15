@@ -1,8 +1,80 @@
 # آرشیو کانال Dirty_Kids - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 19:22
+📅 آخرین بروزرسانی: 1405/02/25 21:06
 
 ---
+
+## Dirty_Kids — post 389488
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389488.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجتبی خامنه‌ای به مناسبت روز بزرگداشت فردوسی، این پیام رو منتشر کرد:
+
+همین که یک تازی راهزن بیابانگرد رافضی به ارزش‌های زبان و ادبیات فارسی اعتراف می‌کند می‌تواند جالب باشد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389487
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389487.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاشیدم تو تار به تار سیبیلاتون.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389486
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389486.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت جهانی استارلینک مینی با تخفیف به زیر ۲۰۰دلار (۳۶میلیون تومن) رسیده و پایین‌تر هم میاد. سایز دیشش هم اندازه‌ی یه کاغذ A4 هس و براحتی همه جا مخفی میشه و با وضعیت ایران هیچ رقمه نمیشه جلوی موج قاچاقش رو گرفت.
+
+رویای آخوند برای کنترل بلند مدت اینترنت فقط یه توهمه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389485
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389485.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+⚫️با بالاترین کیفیت ممکن⚡️ 
+⚫️100 هزار تومان شارژ هدیه 🎁
+⚫️پایین ترین قیمت گیگی 250🌐 
+⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
+
+بادبان راهتو باز می‌کنه⛵️
+
+R25
+🛡@BadBan_VPN | کانال 
+🤖@BadBan_VPNBot | ربات 
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389484
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389484.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچ کودکی نباید اول قصه‌اش از کنار قبر پدرش شروع شود…
+در ایران اما این سرنوشت خیلی از کودکان است.
+#علیرضا_احمدی
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389483
 
@@ -178,62 +250,5 @@ A24
 
 
 @Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389468
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389468.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اره داداش، امریکا تایوان رو میده به چین و ایران رو ازش میگیره.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389467
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389467.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آخرین ورژن خفت و خواری بچه‌شیعه:
-رزمایش گذاشتن، هلی‌کوپتر نداشتن، بنرشو چاپ کردن گذاشتن اون وسط.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389466
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389466.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اصلی ترین سوالی که برای من پیش میاد که چرا تو همون ایران زیر کیر آخوند نمیخوابید ؟؟ چرا مهاجرت میکنید از راه دور برای آخوند دهنی میزنید ؟؟
-
-این جک و جنده آزادی‌رو دوست دارن ولی اعتقاد دارن ملت ایران لیاقت ندارن فقط برای خودشون خوبه
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389465
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389465.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389465.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هنوز که هنوزه این ویدئو از درگیری چندتا ایرانی تو جاده ساحلیِ چالوس تو پیج‌های خارجی داره دست به دست میشه و تو اکسپلوره؛
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389464
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389464.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری دانشجو : شما فقط نحوه دست دادن رئیس‌جمهور چین با پرفسور رئیسی و ترامپ رو مقایسه کنی، متوجه قدرت ایران میشید... +کسخلیت و کونده‌پرویی اینا حدی نداره :))))) چین فروختتشون توافق کرده با امریکا استقبال بی نظیر کردن از ترامپ بعد رئیسی گوزو ۶ کلاسه‌رو…
 </div>
 

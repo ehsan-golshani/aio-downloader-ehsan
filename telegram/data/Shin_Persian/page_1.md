@@ -1,8 +1,71 @@
 # آرشیو کانال Shin_Persian - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 19:13
+📅 آخرین بروزرسانی: 1405/02/25 20:58
 
 ---
+
+## Shin_Persian — post 6019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet: Emanuel (Mannie) Fabian ✓ @manniefabian Fri, 15 May 2026 17:18:34 UTC A senior Israeli security official tells reporters that there are "initial indications" that Izz al-Din al-Haddad was killed in the airstrike in Gaza City a short while…
+</div>
+
+## Shin_Persian — post 6018
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet:
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Fri, 15 May 2026 17:18:34 UTC
+
+A senior Israeli security official tells reporters that there are "initial indications" that Izz al-Din al-Haddad was killed in the airstrike in Gaza City a short while ago.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+یک مقام ارشد امنیتی اسرائیل به خبرنگاران می‌گوید که «نشانه های اولیه» وجود دارد که نشان می‌دهد عزالدین الحداد در حمله هوایی اندکی پیش در شهر غزه کشته شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6017
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 15 May 2026 17:04:22 UTC Gazans report a blitz airstrike on western Gaza, highly likely a targeted assassination. ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی ساکنان غزه از یک حمله هوایی برق‌آسا…
+</div>
+
+## Shin_Persian — post 6016
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 15 May 2026 17:04:22 UTC
+
+Gazans report a blitz airstrike on western Gaza, highly likely a targeted assassination.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+ساکنان غزه از یک حمله هوایی برق‌آسا به غرب غزه خبر می‌دهند که به احتمال بسیار زیاد یک ترور هدفمند است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Fri, 15 May 2026 17:04:22 UTC
+
+Gazans report a blitz airstrike on western Gaza, highly likely a targeted assassination.
+
+فارسی
+
+ساکنان غزه از یک حمله هوایی برق‌آسا به غرب غزه خبر می‌دهند که به احتمال بسیار زیاد یک ترور هدفمند بوده است.
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6014
 
@@ -269,99 +332,6 @@ https://github.com/shirokhorshid/shirokhorshid-android/releases/tag/v2026.05.14-
 I have also uploaded it to Telegram; if it is easier for you, you can get the update from there:
 
 https://t.me/+aF04HaDSxVI4ZGEx
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5996
-
-<div align="center"><img src="telegram/content/Shin_Persian_5996.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-UKMTO Operations Centre @UK_MTO
-Thu, 14 May 2026 07:00:22 UTC
-
-UKMTO WARNING 057-26
-
-Click here to view the full warning⤵️
-http://www.ukmto.org/-/media/ukmto/products/20260514-ukmto_057_26_warning_suspicious-activity.pdf?rev=67da24ed8b4f43389506d6abbb5fb841
-
-#MaritimeSecurity #MarSec
-
-فارسی
-
-هشدار UKMTO 057-26
-
-برای مشاهده متن کامل هشدار اینجا کلیک کنید⤵️
-http://www.ukmto.org/-/media/ukmto/products/20260514-ukmto_057_26_warning_suspicious-activity.pdf?rev=67da24ed8b4f43389506d6abbb5fb841
-
-#MaritimeSecurity #MarSec_
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5995
-
-<div align="center"><img src="telegram/content/Shin_Persian_5995.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-↩️ Quoted tweet: DefenceGeek 🇬🇧 ✓ @DefenceGeek Wed, 13 May 2026 19:49:28 UTC B-2 Spirit on a training flight from CONUS as part of a suspected STRATCOM exercise involving the E-6B flying out of Stuttgart ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.…
-</div>
-
-## Shin_Persian — post 5994
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-↩️ Quoted tweet:
-DefenceGeek 🇬🇧 ✓ @DefenceGeek
-Wed, 13 May 2026 19:49:28 UTC
-
-B-2 Spirit on a training flight from CONUS as part of a suspected STRATCOM exercise involving the E-6B flying out of Stuttgart
-
-↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
-
-فارسی
-
-بمب‌افکن بی‌-۲ اسپیریت (B-2 Spirit) در یک پرواز آموزشی از خاک اصلی ایالات متحده (CONUS) به عنوان بخشی از یک رزمایش احتمالی فرماندهی راهبردی ایالات متحده (STRATCOM) که شامل هواپیمای ای-۶بی (E-6B) در حال پرواز از اشتوتگارت است.
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5993
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📦 mhrv-rs v1.9.25 released
-
-• Install MITM CA into LibreWolf NSS stores (#1145, PR #1159)
-• **Fix Full mode "Google + most websites broken while Telegram works"
-
-Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
-
-👉 v1.9.25 — all files with SHA-256
-
-Channel:
-https://t.me/mhrv_rs
-or: https://t.me/+R1OyoHX2boA1ZDgx
-
-#v1925
-</div>
-
-## Shin_Persian — post 5992
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Shin ✓ @hey_itsmyturn
-Wed, 13 May 2026 19:31:31 UTC
-
-"Saudi warplanes struck militias in Iraq during war"
-- Reuters
-
-https://www.reuters.com/world/middle-east/saudi-warplanes-struck-militias-iraq-during-war-sources-say-2026-05-13/
-
-فارسی
-
-"جنگنده‌های سعودی طی جنگ شبه‌نظامیان را در عراق هدف قرار دادند"
-- رویترز
-
-https://www.reuters.com/world/middle-east/saudi-warplanes-struck-militias-iraq-during-war-sources-say-2026-05-13/
 
 𝕏 · @shin_persian
 </div>

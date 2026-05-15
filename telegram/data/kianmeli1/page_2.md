@@ -1,8 +1,27 @@
 # آرشیو کانال kianmeli1 - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 00:26
+📅 آخرین بروزرسانی: 1405/02/25 20:55
 
 ---
+
+## kianmeli1 — post 87392
+
+<div align="center"><video src="telegram/content/kianmeli1_87392.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87392.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدئویی پربازخورد در فضای مجازی از تشبیه فروشندگان vpn به خوک
+
+سپاه و ستاد اجرايي فروشندگان اصلي اينترنت پرو و وي پي ان هستند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87391
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴اینترنشنال: احسان افرشته «امان نامه» داشت اما اعدام شد قوه قضاییه جمهوری اسلامی خبر داد احسان افرشته، جوان ۳۳ ساله‌، را به اتهام همکاری با اسرائیل، اعدام کرده اما دو منبع گفتند او، پیش از بازگشت به ایران از ترکیه، به‌طور داوطلبانه خود را به وزارت اطلاعات…
+</div>
 
 ## kianmeli1 — post 87390
 

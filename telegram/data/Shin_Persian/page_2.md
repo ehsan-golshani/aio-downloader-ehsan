@@ -1,8 +1,101 @@
 # آرشیو کانال Shin_Persian - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 19:13
+📅 آخرین بروزرسانی: 1405/02/25 20:58
 
 ---
+
+## Shin_Persian — post 5996
+
+<div align="center"><img src="telegram/content/Shin_Persian_5996.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+UKMTO Operations Centre @UK_MTO
+Thu, 14 May 2026 07:00:22 UTC
+
+UKMTO WARNING 057-26
+
+Click here to view the full warning⤵️
+http://www.ukmto.org/-/media/ukmto/products/20260514-ukmto_057_26_warning_suspicious-activity.pdf?rev=67da24ed8b4f43389506d6abbb5fb841
+
+#MaritimeSecurity #MarSec
+
+فارسی
+
+هشدار UKMTO 057-26
+
+برای مشاهده متن کامل هشدار اینجا کلیک کنید⤵️
+http://www.ukmto.org/-/media/ukmto/products/20260514-ukmto_057_26_warning_suspicious-activity.pdf?rev=67da24ed8b4f43389506d6abbb5fb841
+
+#MaritimeSecurity #MarSec_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5995
+
+<div align="center"><img src="telegram/content/Shin_Persian_5995.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet: DefenceGeek 🇬🇧 ✓ @DefenceGeek Wed, 13 May 2026 19:49:28 UTC B-2 Spirit on a training flight from CONUS as part of a suspected STRATCOM exercise involving the E-6B flying out of Stuttgart ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.…
+</div>
+
+## Shin_Persian — post 5994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet:
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Wed, 13 May 2026 19:49:28 UTC
+
+B-2 Spirit on a training flight from CONUS as part of a suspected STRATCOM exercise involving the E-6B flying out of Stuttgart
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+بمب‌افکن بی‌-۲ اسپیریت (B-2 Spirit) در یک پرواز آموزشی از خاک اصلی ایالات متحده (CONUS) به عنوان بخشی از یک رزمایش احتمالی فرماندهی راهبردی ایالات متحده (STRATCOM) که شامل هواپیمای ای-۶بی (E-6B) در حال پرواز از اشتوتگارت است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5993
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📦 mhrv-rs v1.9.25 released
+
+• Install MITM CA into LibreWolf NSS stores (#1145, PR #1159)
+• **Fix Full mode "Google + most websites broken while Telegram works"
+
+Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
+
+👉 v1.9.25 — all files with SHA-256
+
+Channel:
+https://t.me/mhrv_rs
+or: https://t.me/+R1OyoHX2boA1ZDgx
+
+#v1925
+</div>
+
+## Shin_Persian — post 5992
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Wed, 13 May 2026 19:31:31 UTC
+
+"Saudi warplanes struck militias in Iraq during war"
+- Reuters
+
+https://www.reuters.com/world/middle-east/saudi-warplanes-struck-militias-iraq-during-war-sources-say-2026-05-13/
+
+فارسی
+
+"جنگنده‌های سعودی طی جنگ شبه‌نظامیان را در عراق هدف قرار دادند"
+- رویترز
+
+https://www.reuters.com/world/middle-east/saudi-warplanes-struck-militias-iraq-during-war-sources-say-2026-05-13/
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 5991
 
@@ -236,71 +329,5 @@ Quake in Tehran right now.
 هم‌اکنون زلزله در تهران.
 
 𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5976
-
-<div align="center"><img src="telegram/content/Shin_Persian_5976.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DefenceGeek 🇬🇧 ✓ @DefenceGeek Tue, 12 May 2026 19:21:43 UTC 40th Bomber Training Flight from Fairford #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- Rather helpfully, the solo B-1B "Lancer" bomber from RAF Fairford (EGVA) (which is flying the…
-</div>
-
-## Shin_Persian — post 5975
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DefenceGeek 🇬🇧 ✓ @DefenceGeek
-Tue, 12 May 2026 19:21:43 UTC
-
-40th Bomber Training Flight from Fairford #FreeIran‌
---- Operation EPIC FURY / Project FREEDOM ---
-
-Rather helpfully, the solo B-1B "Lancer" bomber from RAF Fairford (EGVA) (which is flying the 40th training mission from the base since the ceasefire began), has been broadcasting it's location for all to see!
-
-This route has been a fairly routine pattern for the training flights, and for many of the 62 bomber missions flown by B-1B and B-52H types during the war in Iran.
-
-B-1B "ZENER01" 86-0134 #AE6C05 "Thunderbird"
-
-@MATA_osint @ArmchairAdml @Andyyyyrrrr @jamjake01 @LHA2709 @vcdgf555
-
-فارسی
-
-چهلمین پرواز آموزشی بمب‌افکن از فیرفورد #FreeIran
---- عملیات خشم حماسی (EPIC FURY) / پروژه آزادی ---
-
-بمب‌افکن تک‌فروندی B-1B "لنسر" از پایگاه نیروی هوایی سلطنتی فیرفورد (EGVA) (که در حال انجام چهلمین ماموریت آموزشی از این پایگاه پس از آغاز آتش‌بس است)، به شکلی کاملاً مفید در حال مخابره موقعیت مکانی خود برای مشاهده همگان بوده است!
-
-این مسیر یک الگوی نسبتاً معمول برای پروازهای آموزشی و همچنین برای بسیاری از ۶۲ ماموریت بمب‌افکنی انجام شده توسط انواع B-1B و B-52H در طول جنگ در ایران بوده است.
-
-B-1B "ZENER01" 86-0134 #AE6C05 "Thunderbird"
-
-@MATA_osint @ArmchairAdml @Andyyyyrrrr @jamjake01 @LHA2709 @vcdgf555
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5974
-
-<div align="center"><video src="telegram/content/Shin_Persian_5974.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Shin_Persian_5974.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Rapid Response 47 ✓ @RapidResponse47
-Tue, 12 May 2026 18:01:20 UTC
-
-.@POTUS: "It's very simple: Iran cannot have a nuclear weapon... We don't play games. They're not going to have a nuclear weapon."
-
-فارسی
-
-.@POTUS: "بسیار ساده است: ایران نمی‌تواند سلاح هسته‌ای داشته باشد... ما بازی نمی‌کنیم. آن‌ها قرار نیست سلاح هسته‌ای داشته باشند."
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-↩️ Quoted tweet: DefenceGeek 🇬🇧 ✓ @DefenceGeek Tue, 12 May 2026 18:11:27 UTC @hey_itsmyturn Training flight lol ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی @hey_itsmyturn پرواز تمرینی خخخ 𝕏 · @shin_persian
 </div>
 

@@ -1,8 +1,138 @@
 # آرشیو کانال IranianMinds - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 19:19
+📅 آخرین بروزرسانی: 1405/02/25 21:04
 
 ---
+
+## IranianMinds — post 20141
+
+<div align="center"><img src="telegram/content/IranianMinds_20141.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+:( موضوع امیدوار بودن یا نبودن نیست. وقتی که قدرت تصمیم‌گیری در دست دیگران است، وقتی که ما نمی‌توانیم در تصمیم‌گیری آنها دخالت کنیم، تنها کاری که می‌توان انجام داد، تحمل کردن است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20140
+
+<div align="center"><img src="telegram/content/IranianMinds_20140.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گیر چه عقب مونده‌هایی افتادیم
+
+ننگ ۵۰۰ ساله روحانیت رو از تاریخ ایران پاک باید کنیم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20139
+
+<div align="center"><video src="telegram/content/IranianMinds_20139.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20139.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این هنرمند و کمدین آمریکایی، با طنز استندآپ، ۴۷ سال حکومت ننگین جمهوری اسلامی در ایران را به سخره می‌گیرد و به‌خوبی چهره فاسد و سرکوبگر این حکومت را افشا می‌کند. او همچنین از انقلاب و مبارزه مردم ایران برای آزادی حمایت می‌کند.
+درود بر آزادی‌خواهان سراسر جهان.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20138
+
+<div align="center"><img src="telegram/content/IranianMinds_20138.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴اکانت اسرائیل به فارسی:
+
+۳۰۰۰ سال پیش، حضرت داوود اورشلیم را به پایتختی خود برگزید.
+۵۹ سال پیش با آزادی بخش شرقی شهر، پایتخت یهودیان زیر پرچم اسرائیل دوباره یکپارچه گشت.
+این شهر قلب تپنده یهودیان و بخشی جدانشدنی از اسرائیل است.
+
+روز اورشلیم خجسته باد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20137
+
+<div align="center"><video src="telegram/content/IranianMinds_20137.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20137.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+
+شی مایل است شاهد انجام یک معامله باشد. او گفت: «اگر بتوانم کمکی داشته باشم، دوست دارم کمک کنم.»
+
+هر کسی که این مقدار نفت می‌خرد، دوست دارد تنگه هرمز را باز ببیند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سنتکام:
+
+امارات، بحرین، عربستان، کویت، اردن و اسرائیل در عملیات آمریکا شرکت کردند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20135
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴حمید رسایی:
+
+دولت می‌خواهد قیمت بنزین را تا ۲۰ هزار تومان افزایش بدهد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ به فاکس‌نیوز:
+
+رهبر چین پیشنهاد داده است که در موضوع ایران کمک کند و همچنین وعده داده که به ایران تجهیزات نظامی منتقل نکند. او می‌خواهد که تنگه هرمز باز بماند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20133
+
+<div align="center"><video src="telegram/content/IranianMinds_20133.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20133.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فرمانده سنتکام، دریاسالار برد کوپر:
+
+مذاکرات با ریسک بالا ادامه دارد.
+وظیفه ما این است که آماده باشیم و هستیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20132
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 شرکت هواپیمایی ایتالیایی ITA Airways بازگشت پروازهای خود به اسرائیل را تا اول جولای به تعویق انداخت
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فرمانده سنتکام :
+
+ما هر لحظه آماده حرکت علیه ایران هستیم
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20130
 
@@ -109,153 +239,5 @@ ShirOKhorshid-2026.05.14.apk
 آها یادم نبود کودکان غزه و فلسطین مال شماس.
 
 @IranianMinds
-</div>
-
-## IranianMinds — post 20121
-
-<div align="center"><img src="telegram/content/IranianMinds_20121.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️اوتباند موجود⚠️
-
-🔋حداقل خرید 30GB
-
-♾حداکثر محدودیتی نداره
-
-50GB ➡️ 180
-
-100GB ➡️140
-
-200GB ➡️120
-
-+500GB ➡️100
-
-🧬 500 گیگ به بالا امکان تسویه روزانه نیز فراهم می باشد
-
-⬅️دارای لود بالانس و اپتایم 99/9% بدون قعطی
-⬅️تست موجود می باشد
-
-جهت خرید و استعلام قیمت🟡
-
-@xan_vpnn
-
-کانال:
-
-https://t.me/+qNjExGEJztE2OGI0
-</div>
-
-## IranianMinds — post 20120
-
-<div align="center"><img src="telegram/content/IranianMinds_20120.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بنر حامیان حکومت در تجمع دیشب تهران:
-سید مجید نقطه‌زن، امتحانا نزدیکه، یه جایی‌رو زود بزن.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20119
-
-<div align="center"><img src="telegram/content/IranianMinds_20119.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایلان ماسک به همراه پسرش در نشست پکن شرکت کرد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20118
-
-<div align="center"><video src="telegram/content/IranianMinds_20118.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20118.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 صحبت‌های امروز اسکات بسنت، وزیر خزانه‌داری آمریکا راجب ایران و جمهوری‌اسلامی: تا اینجای امسال، رژیم ایران ۳۰ تا ۴۰ هزار نفر رو اعدام کرده (کُشته) و خیلی‌هاشون هم معترضای مسالمت‌آمیز بودن. خب با همچین رژیمی چطور باید برخورد کرد؟ از نظر اقتصادی خفه‌ش می‌کنیم و فکر می‌کنیم کار به جایی رسیده که سربازاشون حقوق نمی‌گیرن و نمی‌تونن از خارج هم سلاح و مهماتشون رو تأمین کنن. برای همین فکر می‌کنم دیگه دارن به آخر خط می‌رسن.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 یسرائیل کاتز، وزیر دفاع اسرائیل، درباره ایران: ماموریت ما کامل نشده؛ ما برای احتمال اینکه ممکنه مجبور شیم دوباره اقدام کنیم، شاید حتی «بزودی» آماده‌ایم. اگر اهدافمون تأمین نشن، دوباره اقدام خواهیم کرد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20116
-
-<div align="center"><img src="telegram/content/IranianMinds_20116.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 کاخ سفید پس از مذاکرات دوجانبه ایالات متحده و چین در پکن، پایتخت چین، در بیانیه‌ای اعلام کرد که دو هیئت در مورد مسائلی مانند دسترسی به بازار چین، سرمایه‌گذاری چین در صنایع ایالات متحده، مواد مخدر، به ویژه فنتانیل، «جریان آزاد» تجارت از طریق تنگه هرمز و سایر مسائل کلیدی گفتگو کردند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20115
-
-<div align="center"><img src="telegram/content/IranianMinds_20115.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💔
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20114
-
-<div align="center"><video src="telegram/content/IranianMinds_20114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وزیر دارایی اسرائیل:
-
-فکر می‌کنم در همین دوره، عملا داریم ایده تشکیل کشور فلسطین را کاملا از بین میبریم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20113
-
-<div align="center"><video src="telegram/content/IranianMinds_20113.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20113.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 جان بولتون:
-
-مذاکره برای توافق هسته ‌ای با ایران، هدر دادن وقته.
-
-این ‌ها دهه ‌ها پیش تصمیم راهبردی ‌شان را برای رسیدن به سلاح هسته‌ای گرفته‌اند.
-
-در این ۴۷ سال اخیر حتی یک مدرک هم وجود نداشته که نشان بدهد از این هدف ساخت سلاح هسته ای عقب کشیده‌ اند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20112
-
-<div align="center"><video src="telegram/content/IranianMinds_20112.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20112.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نتانیاهو:
-
-همون ‌طور که یه متفکری یه بار فکر کنم تو روسیه بود بهم گفت اسرائیل یه ابرقدرت کوچیکه، ولی بازم ابرقدرته.
-
-ما قراره به یه ابرقدرت بزرگ و جهانی تبدیل بشیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20111
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مهدی تاج رئیس فدراسیون فوتبال : معین قراره برای تیم ملی یه آهنگ بخونه ! @IranianMinds
 </div>
 

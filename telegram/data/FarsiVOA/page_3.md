@@ -1,8 +1,63 @@
 # آرشیو کانال FarsiVOA - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/25 19:16
+📅 آخرین بروزرسانی: 1405/02/25 21:01
 
 ---
+
+## FarsiVOA — post 217787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گفت‌وگو با حسین رئیسی درباره تداوم توقیف و مصادره اموال ایرانیان مخالف جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺دونالد ترامپ: هالیوود نمی‌تواند کسی مثل شی جین‌پینگ برای ایفای نقش او پیدا کند
+
+▪️دونالد ترامپ، رئیس‌جمهوری‌ آمریکا، در مصاحبه‌ای با شان هنیتی مجری فاکس‌نیوز، با تمجید از شی جین‌پینگ، رئیس‌جمهوری چین، او را رهبری «مورد احترام» توصیف کرد و گفت اگر هالیوود به‌دنبال بازیگری برای ایفای نقش رهبر چین باشد، «نمی‌تواند کسی مثل او پیدا کند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150329.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217782
+
+<div align="center"><img src="telegram/content/FarsiVOA_217782.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️حساب کاربری سازمان اطلاعات مرکزی آمریکا (سیا) شامگاه پنج‌شنبه تصاویری از سفر نادر جان رتکلیف، رئیس این سازمان، به کوبا را منتشر کرد. رتکلیف در این سفر پیام رئیس‌جمهوری ایالات متحده،‌ دونالد ترامپ را به مقامات کوبایی منتقل کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217781
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ماجرای تکذیب همکاری معین با تیم ملی فوتبال جمهوری اسلامی، تصویری کوچک از یک سازوکار بزرگ‌ است که در آن سپاه پاسداران گاه با استفاده از نام هنرمندان، پیش از وقوع هر اتفاقی، روایت مطلوب خود را می‌سازد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217780
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺سفر نادر رئیس سیا به کوبا و انتقال پیام رئیس‌جمهوری آمریکا
+
+▪️جان رتکلیف رئیس سازمان اطلاعات مرکزی آمریکا، سیا، روز پنج‌شنبه در سفری «سطح بالا» به کوبا، با مقام‌های ارشد وزارت کشور این کشور دیدار و گفت‌وگو کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150103.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️شک مقام‌های جمهوری اسلامی به یکدیگر شکاف در حکومت را عمیق‌تر کرد؛ جنگ تهدیدها و تهمت‌ها
+
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217778
 
@@ -142,57 +197,5 @@ https://ir.voanews.com/a/stock-index-developments-in-the-us-china-summit/8150046
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️نازیلا گلستان در برنامه تفسیر خبر: بازماندگان جمهوری اسلامی باید به سمت و سوی مردم برگردند
 @FarsiVOA
-</div>
-
-## FarsiVOA — post 217764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺هشدار دوباره وزارت خارجه آمریکا درباره سفر به کشورهای «پرخطر»؛ ایران هم در فهرست است
-
-◾️وزارت امور خارجه ایالات متحده آمریکا روز پنجشنبه ۲۴ اردیبهشت هشدارهای پیشین خود درباره سفر به کشورهای روسیه، کره‌شمالی، افغانستان، و جمهوری اسلامی ایران را تکرار کرد و این کشورها را برای شهروندان آمریکایی، «پرخطر» دانست.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/high-risk-countries-us-department-of-state-travel-warning/8150070.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217763
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت ترامپ: شی جین‌پینگ متعهد شده که به جمهوری اسلامی تجهیزات نظامی نفرستد
-</div>
-
-## FarsiVOA — post 217762
-
-<div align="center"><video src="telegram/content/FarsiVOA_217762.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217762.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داریوش سجادی در برنامه تفسیر خبر می‌گوید که فرصتی برای وساطت چین بین جمهوری اسلامی و آمریکا وجود ندارد
-</div>
-
-## FarsiVOA — post 217761
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش فریبا مودت درباره جزئیات روز نخست دیدار پرزیدنت ترامپ با رئیس جمهوری چین
-</div>
-
-## FarsiVOA — post 217760
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شکریا برادوست در برنامه تفسیر خبر: تمرکز بر ملی‌گرایی در چین افزایش یافته است
-</div>
-
-## FarsiVOA — post 217759
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺پرزیدنت ترامپ: رئیس جمهوری چین گفته که به رژیم ایران تجهیزات نظامی نخواهد داد
-
-◾️پرزیدنت ترامپ می‌گوید که شی جین‌پینگ، رئیس‌ جمهوری چین، متعهد شده است پس از مذاکرات سطح بالای دو رهبر، ارسال تجهیزات نظامی برای رژیم ایران را متوقف کند.
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/iran-us-trump-china-chi-weapon-hannity-/8150025.html?withmediaplayer=1
 </div>
 

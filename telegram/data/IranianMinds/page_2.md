@@ -1,8 +1,128 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 19:19
+📅 آخرین بروزرسانی: 1405/02/25 21:04
 
 ---
+
+## IranianMinds — post 20185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+پیشنهاد ایرانیا که برام رسید همون‌ جمله ی اول متنشونو که خوندم برام قابل قبول نبود و سریع ردش کردم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+ارتش ایران را نابود کردیم و شاید لازم باشد یک عملیات پاکسازی سبک دیگر‌ هم انجام دهیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+نیروی هوایی ایران را کاملا نابود کردیم و از شر رهبران ایرانی خلاص شدیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+ایران هرگز به سلاح هسته‌ای دست نخواهد یافت و تحت هیچ شرایطی فرصتی برای آن نخواهد داشت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20181
+
+<div align="center"><video src="telegram/content/IranianMinds_20181.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20181.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ درباره رهبر کره شمالی :
+
+من رابطه خیلی خوبی با کیم جونگ‌اون دارم.
+
+او به کشور ما احترام گذاشته است و من می‌خواهم همین احترام را ادامه دهد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20180
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+80 درصد از توان موشکی ایران نابود شده است
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20179
+
+<div align="center"><video src="telegram/content/IranianMinds_20179.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20179.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ در مورد توقف فعالیت هسته ای ایران:
+
+۲۰ سال کافی است. اما میزان تضمینی که از طرف آن‌ها داده می‌شود… باید واقعاً ۲۰ سال باشد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20178
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+در مورد تایوان هیچ تعهدی به رئیس جمهور چین ندادم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20177
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+رئیس‌ جمهور چین به من اطمینان داد که با داشتن سلاح هسته‌ای ایران مخالف است
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ به رویترز :
+
+من مانعی ندارم که ایران برنامه هسته‌ای خود را برای ۲۰ سال متوقف کند، اما این باید یک تعهد واقعی باشد!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20175
+
+<div align="center"><img src="telegram/content/IranianMinds_20175.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😂😂😂
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20174
 
@@ -115,139 +235,5 @@ re25
 امروز، ۶۰٪ از نوار غزه تحت کنترل ماست. ولی فردا باید ببینیم…
 
 @IranianMinds
-</div>
-
-## IranianMinds — post 20164
-
-<div align="center"><video src="telegram/content/IranianMinds_20164.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20164.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه عظمتی داره هواپیماش
-
-لحظه ی خروج هواپیمای ریاست جمهوری ایالات متحده از چین
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20163
-
-<div align="center"><img src="telegram/content/IranianMinds_20163.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ چین رو‌‌ ترک‌ کرد
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20162
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 تروث جدید ترامپ در مورد شی، رئیس‌جمهور چین:
-
-وقتی شی جین‌پینگ خیلی شیک و محترمانه از آمریکا به‌عنوان کشوری در حال افول یاد کرد، منظورش خسارت وحشتناکی بود که تو دوران جو خواب‌آلود بایدن و دولتش به کشورمون وارد شد؛ و تو این مورد، صددرصد حق با اون بود. کشور ما به خاطر مرزهای باز، مالیات‌های سنگین، ترویج ترنس‌ها برای همه، حضور مردها تو ورزش زنان، سیاست‌های DEI، قراردادهای تجاری افتضاح، افزایش جرم و جنایت و کلی چیز دیگه ضربه شدیدی خورد.
-
-اما شی جین‌پینگ منظورش اون پیشرفت فوق‌العاده‌ای نبود که آمریکا تو ۱۶ ماه درخشان دولت ترامپ به دنیا نشون داده. پیشرفتی که شامل رکورد تاریخی بازار بورس و صندوق‌های بازنشستگی 401K، پیروزی‌های نظامی، رابطه عالی با ونزوئلا، نابود کردن قدرت نظامی ایران (که ادامه هم داره!)، قوی‌ترین ارتش دنیا، تبدیل شدن دوباره آمریکا به ابرقدرت اقتصادی و سرمایه‌گذاری رکوردشکن ۱۸ تریلیون دلاری تو آمریکاست. همین‌طور بهترین بازار کار تاریخ آمریکا، با بیشترین تعداد افراد شاغل در تاریخ کشور، پایان دادن به سیاست‌های نابودکننده DEI و خیلی موفقیت‌های دیگه. در واقع، شی جین‌پینگ تو مدت کوتاهی بابت این همه موفقیت به من تبریک گفت.
-
-دو سال پیش، ما واقعاً کشوری در حال سقوط بودیم و من کاملاً با شی جین‌پینگ موافق بودم! ولی الان آمریکا داغ‌ترین و قدرتمندترین کشور دنیاست و امیدوارم رابطه‌مون با چین از همیشه قوی‌تر و بهتر بشه.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20161
-
-<div align="center"><video src="telegram/content/IranianMinds_20161.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20161.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
-
-😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
-
-توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
-
-کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
-
-کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
-ae24
-🎯همین حالا عضو شو و شروع کن👇
-https://t.me/+OS-QBvyDO4M2ZGY0
-https://t.me/+OS-QBvyDO4M2ZGY0
-</div>
-
-## IranianMinds — post 20160
-
-<div align="center"><img src="telegram/content/IranianMinds_20160.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 محمد قنطری، سرپرست جدید امور سوریه در واشنگتن دی‌سی.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20159
-
-<div align="center"><img src="telegram/content/IranianMinds_20159.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پست جدید ترامپ:
-
-ایالت 243ام.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20158
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-92.122.123.128 65.109.34.234 94.130.70.160 63.141.252.203 94.130.50.12 50.7.5.83 142.54.178.211 94.130.33.41 144.76.1.88 138.201.54.122 95.216.69.37 94.130.13.19 این ایپی هارو‌ هم تست کنید @IranianMinds
-</div>
-
-## IranianMinds — post 20157
-
-<div align="center"><img src="telegram/content/IranianMinds_20157.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ :
-
-وقتی رئیس‌جمهور شی به‌ طور محترمانه آمریکا را کشور در حال افول نامید، منظورش آسیب‌های عظیمی بود که طی چهار سال حکومت «جو خواب‌آلود» و دولت بایدن متحمل شدیم: مرزهای باز، مالیات‌های بالا، ورود ترنس‌ها به همه‌جا، مردان در ورزش‌های زنان، DEI، توافق‌های تجاری وحشتناک، جرم و جنایت گسترده و خیلی چیزهای دیگر!.
-
-دو سال پیش، ما واقعاً در حال افول بودیم، در این مورد با رئیس‌جمهور شی کاملاً موافقم! اما حالا آمریکا داغ‌ترین کشور جهان است و امیدوارم روابط ما با چین قوی‌تر و بهتر از همیشه باشد!
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی شما : اگر شیر و خورشید وصل نمیشه براتون، طبق راهنمای زیر عمل کنید. وارد بخش Options اپلیکیشن بشید، گزینه‌ی More Options رو انتخاب کنید و در قسمت CDN Edge IPs، آی‌پی زیر و در قسمت CDN SNI Hostname، نام دامنه زیر رو وارد کنید بعد OK رو بزنید. CDN…
-</div>
-
-## IranianMinds — post 20154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی شما :
-
-اگر شیر و خورشید وصل نمیشه براتون، طبق راهنمای زیر عمل کنید.
-
-وارد بخش Options اپلیکیشن بشید، گزینه‌ی More Options رو انتخاب کنید و در قسمت CDN Edge IPs، آی‌پی زیر و در قسمت CDN SNI Hostname، نام دامنه زیر رو وارد کنید بعد OK رو بزنید.
-
-CDN Edge IPs: 151.101.192.223
-CDN SNI Hostname: python.org
-
-سپس به صفحه ی اصلی برگردید و START رو بزنید
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب ویو ها بهتر شده
-بعضیاتون برگشتید
-
-امیدوارم بزودی همه برگردن
 </div>
 

@@ -1,8 +1,24 @@
 # آرشیو کانال mwarmonitor - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/25 19:06
+📅 آخرین بروزرسانی: 1405/02/25 20:51
 
 ---
+
+## mwarmonitor — post 9051
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📊زیاد داوود، اقتصاددان ارشد بلومبرگ، می‌گوید آینده عراق «تیره و تار» است و این کشور حدود پنج ماه ذخایر و حاشیه‌های مالی دارد، پیش از آنکه وارد «بحرانی عظیم/مادرِ همه بحران‌ها» شود — شفق
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9050
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شبکه NBC به نقل از داده‌های ناوبری: چندین کشتی باری و نفتکش مرتبط با چین طی ۲۴ ساعت گذشته از تنگه هرمز عبور کرده‌اند.
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9049
 
