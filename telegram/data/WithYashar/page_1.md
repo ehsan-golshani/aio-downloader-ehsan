@@ -1,8 +1,109 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 14:40
+📅 آخرین بروزرسانی: 1405/02/25 16:40
 
 ---
+
+## WithYashar — post 11291
+
+<div align="center"><video src="telegram/content/WithYashar_11291.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11291.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرنگار: دیروز از دریادار کوپر درباره حمله به مدرسه دخترانه(میناب)در روز اول جنگ سؤال شد.
+ترامپ: منظورتون همون حمله اولیه‌ست؟ اون موضوع هنوز تحت تحقیق قرار داره.
+خبرنگار: می‌تونید تأیید کنید که موشک آمریکایی بوده؟
+ترامپ: شما از کدوم رسانه‌ای هستید؟
+خبرنگار: بی‌بی‌سی.
+ترامپ: بی‌بی‌سی فیکه با من حرف نزن.
+@withyashar
+</div>
+
+## WithYashar — post 11290
+
+<div align="center"><video src="telegram/content/WithYashar_11290.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11290.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥲 @withyashar
+</div>
+
+## WithYashar — post 11289
+
+<div align="center"><video src="telegram/content/WithYashar_11289.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11289.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 25 اردیبهشت روز پاسداشت زبان فارسی و بزرگداشت فردوسیه
+@withyashar
+</div>
+
+## WithYashar — post 11288
+
+<div align="center"><video src="telegram/content/WithYashar_11288.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11288.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روانه شدن نفت در سواحل جزایر خلیج فارس جمهموری اسلامی داره نفتو تو دریا میریزه و جان موجودات دریایی و زیست بوم ها رو به خطر انداخته
+@withyashar
+</div>
+
+## WithYashar — post 11287
+
+<div align="center"><video src="telegram/content/WithYashar_11287.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11287.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارشناس صداسیما : نتانیاهو نه خسته شده نه عقب میخواد بکشه بنظرم واقعا مَرده واقعا مَرده و میخواد ایرانو
+از 100 درصد به 20 درصد برسونه
+
+همین الانم اماده ترین عنصر برای
+حمله به ایران؛ اسرائیله
+نتانیاهو نه کم آورده نه علائمی از خستگی داره نه پشیمانه
+@withyashar
+</div>
+
+## WithYashar — post 11286
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ به فاکس‌نیوز: ما می‌توانستیم پل‌ها و شبکه‌های برق ایران را نابود کنیم و می‌توانیم ظرف دو روز همه چیز را در آنجا از بین ببریم.
+@withyashar
+</div>
+
+## WithYashar — post 11285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ به فاکس‌نیوز : ما ارتش ایران را نابود کرده‌ایم و شاید باید یک پاکسازی سبک انجام دهیم.
+میتوانیم نیروگاه‌های ایران را تنها در دو روز از بین ببریم
+اگر ایران اورانیوم های غنی شده خودش رو تحویل نده وارد ایران میشیم
+@withyashar
+</div>
+
+## WithYashar — post 11284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Voice message
+</div>
+
+## WithYashar — post 11283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مارو به قاهره میبره؟
+خب پس بذار هرچی میخواد بگه
+</div>
+
+## WithYashar — post 11282
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ به فاکس‌نیوز:
+پیشنهاد ایرانیا که برام رسید همون‌ جمله ی اول متنشونو که خوندم برام قابل قبول نبود و سریع ردش کردم
+@withyashar
+</div>
 
 ## WithYashar — post 11281
 
@@ -82,78 +183,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترامپ در تروث : پژوهشگر چینی به CNN گفت که به نشست ترامپ و شی نمره «۹.۹۹ از ۱۰» می‌دهد.
 @withyashar
-</div>
-
-## WithYashar — post 11271
-
-<div align="center"><img src="telegram/content/WithYashar_11271.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد قنطاری، کاردار جدید سوریه در واشنگتن دی سی😬🍔
-@withyashar
-</div>
-
-## WithYashar — post 11270
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar part3
-</div>
-
-## WithYashar — post 11269
-
-<div align="center"><img src="telegram/content/WithYashar_11269.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😂😂🙌🏾 @withyashar
-</div>
-
-## WithYashar — post 11268
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم‌اکنون حمله سنگین جمهوری اسلامی به مقر گروه های مخالف در عراق
-@withyashar
-</div>
-
-## WithYashar — post 11267
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گزارش روزنامه «ساوت چاینا مورنینگ پست» و بازنشر آن توسط «بلومبرگ»، انتظار می‌رود «ولادیمیر پوتین» در حدود ۲۰ مه به «پکن» سفر کند؛ تنها حدود ۵ روز پس از دیدار «شی جین‌پینگ» و «دونالد ترامپ» در پکن.
-
-رسانه‌ها می‌گویند این سفر احتمالاً فقط یک روز طول می‌کشد و بیشتر در قالب یک دیدار کاری و هماهنگی سیاسی انجام می‌شود. همچنین برخلاف سفر ترامپ، ظاهراً خبری از تشریفات بزرگ، رژه رسمی یا استقبال بسیار گسترده نخواهد بود و این سفر در سطحی ساده‌تر و کم‌نمایش‌تر برگزار می‌شود
-@withyashar
-</div>
-
-## WithYashar — post 11266
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar part2
-</div>
-
-## WithYashar — post 11265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در تروث : «وقتی رئیس‌جمهور شی با بیانی بسیار سنجیده از ایالات متحده به‌عنوان کشوری که شاید در حال افول باشد یاد کرد، منظور او آسیب عظیمی بود که ما در چهار سال دوران جو بایدنِ خواب‌آلود و دولت بایدن متحمل شدیم؛ و در این مورد، او صددرصد درست می‌گفت. کشور…
-</div>
-
-## WithYashar — post 11264
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar part1
-</div>
-
-## WithYashar — post 11263
-
-<div align="center"><video src="telegram/content/WithYashar_11263.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11263.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar منتظر ری اکشننن
-</div>
-
-## WithYashar — post 11262
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظرت چیه؟قبل جام جهانی میزنع یا بعد؟
 </div>
 

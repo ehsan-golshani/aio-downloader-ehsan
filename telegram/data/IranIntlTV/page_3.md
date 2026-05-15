@@ -1,8 +1,180 @@
 # آرشیو کانال IranIntlTV - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/25 14:46
+📅 آخرین بروزرسانی: 1405/02/25 16:46
 
 ---
+
+## IranIntlTV — post 337275
+
+<div align="center"><img src="telegram/content/IranIntlTV_337275.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دفتر رسانه‌ای دولت ابوظبی روز جمعه اعلام کرد امارات متحده عربی ساخت یک خط لوله جدید نفت را برای دو برابر کردن ظرفیت صادراتی خود از طریق فجیره تا سال ۲۰۲۷ تسریع می‌کند؛ اقدامی که توان این کشور برای دور زدن تنگه هرمز را به طور چشمگیری افزایش می‌دهد.
+
+بر اساس اعلام این دفتر، شیخ خالد بن محمد بن زاید، ولیعهد ابوظبی، در نشست کمیته اجرایی به شرکت ملی نفت ابوظبی، ادنوک، دستور داد پروژه خط لوله غرب-شرق را با سرعت بیشتری پیش ببرد. این دفتر افزود این خط لوله در حال ساخت است و انتظار می‌رود در سال ۲۰۲۷ آغاز به کار کند. در این گزارش به جدول زمانی اولیه اجرای پروژه اشاره‌ای نشده است.
+
+خط لوله موجود نفت خام ابوظبی که با نام خط لوله حبشان-فجیره نیز شناخته می‌شود، توان انتقال روزانه تا ۱.۸ میلیون بشکه نفت را دارد و در شرایطی که این کشور در پی افزایش صادرات مستقیم از سواحل خلیج عمان است، نقشی حیاتی ایفا کرده است.
+https://iranintl.com/202605157635
+</div>
+
+## IranIntlTV — post 337274
+
+<div align="center"><img src="telegram/content/IranIntlTV_337274.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۱ اسرائیل به نقل از منابع آمریکایی و اسرائیلی گزارش داد اورشلیم در «پیامی روشن» به واشینگتن اعلام کرده خواهان ازسرگیری کارزار نظامی علیه جمهوری اسلامی است. هدف این حملات، وادار کردن جمهوری اسلامی به بازگشت به میز مذاکره و عقب‌نشینی در پرونده هسته‌ای عنوان شده است.
+
+بر اساس این گزارش، در رایزنی‌های اخیر گزینه انجام حملات محدود و هدفمند آمریکا علیه تاسیسات سوخت و انرژی در ایران مطرح شده است.
+
+کانال ۱۱ افزود اسرائیل برای چنین سناریویی در حال آماده‌سازی است؛ از جمله آمادگی برای واکنش احتمالی جمهوری اسلامی و ازسرگیری حملات موشکی به سوی اسرائیل.
+https://iranintl.com/202605155749
+</div>
+
+## IranIntlTV — post 337273
+
+<div align="center"><video src="telegram/content/IranIntlTV_337273.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337273.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ گفت شی جین‌پینگ در مورد جمهوری اسلامی با او هم‌نظر است و معتقد است تهران هرگز نباید به سلاح هسته‌ای دست یابد. از سوی دیگر، وزارت خارجه چین، خواستار راه‌حلی فوری برای پایان دادن به جنگ با جمهوری اسلامی شده است.
+
+توماج طاهباز، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337272
+
+<div align="center"><video src="telegram/content/IranIntlTV_337272.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337272.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال پیامی به ایران اینترنشنال با مقایسه قطع اینترنت در ایران و غزه گفت که در مورد غزه مواضع جهانی دیده شد. پیام این مخاطب با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337271
+
+<div align="center"><img src="telegram/content/IranIntlTV_337271.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، روز جمعه پس از سفری دو روزه سوار هواپیمای اختصاصی ریاست‌جمهوری آمریکا «ایر فورس وان» شد و پکن را ترک کرد. وانگ یی، وزیر امور خارجه چین، ترامپ را پیش از سوار شدن به هواپیما همراه با هیاتی دیپلماتیک بدرقه کرد.
+
+شی جین‌پینگ، رییس‌جمهوری چین، در سخنرانی خود در مراسم ضیافت رسمی به مناسبت سفر دونالد ترامپ، این سفر را «تاریخی» خواند و گفت: «دو شعار "احیای چین" و "عظمت را به آمریکا بازگردانیم" می‌توانند در کنار یکدیگر پیش بروند.»
+https://iranintl.com/202605150729
+</div>
+
+## IranIntlTV — post 337270
+
+<div align="center"><video src="telegram/content/IranIntlTV_337270.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337270.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در دومین روز نشست وزیران خارجه کشورهای عضو بریکس، خواستار اصلاح ساختار سازمان ملل و «نمایندگی عادلانه» همه مناطق جهان در شورای امنیت شد.
+
+جواد همدانی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337269
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک دانش‌آموز با ارسال پیامی به ایران اینترنشنال با روایت تاثیرات روحی کشتار معترضان در دی‌ماه و حمله به جمهوری اسلامی پس از آن می‌گوید وقتی صدای بمباران و انفجار نمی‌شنیدیم ناراحت می‌شدیم. صدای او با هوش مصنوعی تغییر یافته است.
+</div>
+
+## IranIntlTV — post 337268
+
+<div align="center"><video src="telegram/content/IranIntlTV_337268.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337268.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هوشنگ حسن‌یاری، کارشناس خاورمیانه و امور نظامی، گفت جمهوری اسلامی با بستن تنگه هرمز، خود را در یک تنگنای دیپلماتیک قرار داده و باعث شکل‌گیری ائتلافی بین‌المللی علیه خود شده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337267
+
+<div align="center"><video src="telegram/content/IranIntlTV_337267.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337267.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جاویدنامان انقلاب ملی ایرانیان
+«حمید مهدوی»، آتش‌نشان، شامگاه ۱۸ دی‌ماه در حالی که مشغول به امدادرسانی به مجروحان بود مورد اصابت مستقیم گلوله قرار گرفت. نامش در حافظه‌ این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337266
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎧نسخه صوتی اخبار بامدادی | جمعه ۲۵ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337265
+
+<div align="center"><video src="telegram/content/IranIntlTV_337265.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337265.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شهروندان چینی با نگاهی محتاطانه اما امیدوار، گفت‌وگوها میان ایالات متحده و چین را دنبال می‌کنند؛ گفت‌وگوهایی که به باور آن‌ها می‌تواند بر آینده اقتصاد و روابط جهانی تاثیرگذار باشد.
+
+گزارش راضیه دانش، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337264
+
+<div align="center"><video src="telegram/content/IranIntlTV_337264.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337264.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محسن جوادی، معاون امور فرهنگی وزارت فرهنگ و ارشاد اسلامی و رییس نمایشگاه بین‌المللی کتاب تهران، اعلام کرد این نمایشگاه کتاب به‌صورت مجازی برگزار خواهد شد.
+
+گفت‌وگو با تهمینه رستمی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337263
+
+<div align="center"><video src="telegram/content/IranIntlTV_337263.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337263.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نمایشگاهی دیجیتال در یونان با استفاده از فناوری تصویرسازی سه‌بعدی، بازدیدکنندگان را وارد جهان شخصی و هنری فریدا کالو کرده است. این نمایشگاه زندگی، درد و تخیل این نقاش مشهور مکزیکی را فراتر از بوم نقاشی روایت می‌کند.
+
+گزارش فرزیا ثابتی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337262
+
+<div align="center"><video src="telegram/content/IranIntlTV_337262.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337262.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۲۵ اردیبهشت در تقویم رسمی ایران به نام روز بزرگداشت ابوالقاسم فردوسی و پاسداشت زبان فارسی ثبت شده است. بر اساس آنچه فردوسی در شاهنامه آورده، سرودن این اثر در ۲۵ اسفند به پایان رسیده، اما به‌دلیل هم‌زمانی این تاریخ با تعطیلات نوروز، ۲۵ اردیبهشت به‌عنوان روز فردوسی در تقویم رسمی ثبت شده است.
+
+گفت‌وگو با شکوه میرزادگی، نویسنده و موسس بنیاد میراث پاسارگاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337261
+
+<div align="center"><img src="telegram/content/IranIntlTV_337261.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سنتکام، ستاد فرماندهی مرکزی آمریکا، تصویری از یک جنگنده اف-۱۶ نیروی هوایی آمریکا منتشر کرد و اعلام کرد این جنگنده برای پرواز شبانه از پایگاهی در خاورمیانه به پرواز درآمده است.
+
+سنتکام نوشت: «جنگنده‌های نیروی هوایی آمریکا به طور منظم در حمایت از امنیت منطقه‌ای، آسمان خاورمیانه را گشت‌زنی می‌کنند.»
+https://iranintl.com/202605159752
+</div>
 
 ## IranIntlTV — post 337260
 
@@ -67,226 +239,5 @@ https://iranintl.com/202605154928
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرخط خبرهای جمعه ۲۵ اردیبهشت
 @iranintltv
-</div>
-
-## IranIntlTV — post 337255
-
-<div align="center"><img src="telegram/content/IranIntlTV_337255.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شبکه کان اسرائیل گزارش داد دونالد ترامپ، رییس‌جمهوری آمریکا، پس از بازگشت از سفر به چین درباره ازسرگیری جنگ علیه جمهوری اسلامی یا تمدید محاصره تنگه هرمز تصمیم‌گیری خواهد کرد.
-به گفته منابع اسرائیلی، در روزهای اخیر رایزنی‌هایی میان مقام‌های ارشد ارتش اسرائیل و فرماندهی مرکزی ایالات متحده (سنتکام) انجام شده است. این منابع افزودند اسرائیل خواهان بازگشت به کارزار نظامی علیه جمهوری اسلامی است و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، چندین بار بر این موضع تاکید کرده است.
-هم‌زمان روزنامه هاآرتص نوشت هرچند نشانه‌ای از هشدار امنیتی غیرمعمول مشاهده نشده، اما احتمال ازسرگیری درگیری‌ها در روزهای آینده مطرح است.
-
-https://iranintl.com/202605159751
-</div>
-
-## IranIntlTV — post 337254
-
-<div align="center"><img src="telegram/content/IranIntlTV_337254.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت خارجه چین با اشاره به تنش‌های جاری میان جمهوری اسلامی و آمریکا، خواستار بازگشایی هرچه سریع‌تر کانال‌های گفت‌وگو و دستیابی فوری به «آتش‌بس جامع و پایدار» شد و تاکید کرد دستیابی سریع به یک راه‌حل سیاسی، به نفع تهران، واشینگتن و کشورهای منطقه است.
-https://iranintl.com/202605150200
-</div>
-
-## IranIntlTV — post 337253
-
-<div align="center"><img src="telegram/content/IranIntlTV_337253.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارکو روبیو، وزیر خارجه آمریکا، در گفت‌وگو با شبکه ان‌بی‌سی نیوز گفت تنگه هرمز حتما باز خواهد شد و قیمت انرژی هم کاهش خواهد یافت. او در عین حال تاکید کرد که تلاش جمهوری اسلامی در تحقق یک «ایران هسته‌ای» برایش بسیار گران تمام خواهد شد.
-روبیو همچنین هشدار داد که اگر حکومت ایران به سلاح هسته‌ای دست یابد، هیچ چیز مانع کنترل تنگه هرمز از سوی آن نخواهد بود و این وضعیت می‌تواند به بحرانی دائمی برای جهان تبدیل شود.
-
-https://iranintl.com/202605156991
-</div>
-
-## IranIntlTV — post 337252
-
-<div align="center"><img src="telegram/content/IranIntlTV_337252.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در مورد جمهوری اسلامی به فاکس‌نیوز گفت شی جین‌پینگ احتمالا توانایی تأثیرگذاری بر حکومت ایران را دارد. ترامپ رهبران ایران را که با آن‌ها مذاکره می‌شود «معقول» توصیف کرد، اما هشدار داد: «دیگر قرار نیست خیلی بیشتر صبر کنم. آن‌ها باید به توافق برسند.»
-ترامپ گفت اورانیوم غنی‌شده ایران می‌تواند «دفن و مهر و موم» شود، اما او ترجیح می‌دهد آمریکا آن را در اختیار بگیرد. ترامپ افزود گرفتن این اورانیوم «بیش از هر چیز جنبه روابط عمومی دارد.»
-
-https://iranintl.com/202605150652
-</div>
-
-## IranIntlTV — post 337251
-
-<div align="center"><img src="telegram/content/IranIntlTV_337251.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های آمریکایی از درگیری‌های فیزیکی در پشت صحنه دیدار ترامپ و شی در پکن خبر دادند. این تنش‌ها پس از آن رخ داد که مقام‌های چینی مانع ورود یک مامور سرویس مخفی آمریکا به منطقه حفاظت‌شده شدند و به خبرنگاران آمریکایی نیز اجازه ندادند به کاروان خودروهای ترامپ بپیوندند.
-خبرنگار فاکس نیوز گزارش داد ماموران سرویس مخفی آمریکا در جریان سفر ترامپ با پلیس چین وارد درگیری‌های فیزیکی شدید شدند. این درگیری‌ها پس از آن صورت گرفت که ماموران چینی تلاش کردند مانع ورود یک مامور آمریکایی همراه با سلاحش به محل اجلاس شوند.
-نیویورک‌پست نیز در گزارشی با تشریح این درگیری‌ها، نوشت خبرنگاران آمریکایی همچنین در نشست پکن با محدودیت‌های شدید روبه‌رو شدند و به سرویس‌های بهداشتی، امکانات ضبط خبر و بطری‌های آب دسترسی بسیار محدودی داشتند.
-
-https://iranintl.com/202605150526
-</div>
-
-## IranIntlTV — post 337250
-
-<div align="center"><img src="telegram/content/IranIntlTV_337250.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جمیسون گرر، نماینده تجاری آمریکا، جمعه در پکن به بلومبرگ گفت مقام‌های چینی در نشست سران آمریکا و چین به‌روشنی اعلام کردند که خواهان بازگشایی تنگه هرمز بدون محدودیت یا اخذ عوارض هستند و پکن به‌صورت عملگرایانه برای محدود کردن حمایت نظامی از ایران اقدام خواهد کرد.
-گرر گفت: «برای چین بسیار مهم است که تنگه هرمز باز باشد، هیچ عوارضی دریافت نشود و هیچ کنترل نظامی وجود نداشته باشد و این موضوع در نشست روشن بود. بنابراین از آن استقبال می‌کنیم.»
-او افزود: «در مورد نقش چین در قبال ایران، دیدگاه ما این است که چینی‌ها بسیار عملگرا رفتار می‌کنند و نمی‌خواهند در سوی نادرست این موضوع قرار بگیرند. آنها خواهان صلح در آن منطقه هستند. دونالد ترامپ نیز خواهان صلح در آن منطقه است. بنابراین اطمینان زیادی داریم که آنها هر کاری بتوانند انجام خواهند داد تا هرگونه حمایت مادی از ایران را محدود کنند.»
-
-https://iranintl.com/202605157555
-</div>
-
-## IranIntlTV — post 337249
-
-<div align="center"><video src="telegram/content/IranIntlTV_337249.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337249.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینترنت؛ رانت تازهٔ جمهوری اسلامی
-شرط دسترسی به اینترنت: انتشار تصاویر خامنه‌ای
-
-در حالی‌ که قطع و محدودیت اینترنت خسارت‌های سنگینی به زندگی و کسب‌وکار مردم وارد کرده، حکومت نه‌تنها محدودیت‌ها را کاهش نداده، بلکه با طرح‌هایی مانند «اینترنت پرو» و «سیم‌کارت سفید»، نگرانی‌ها دربارهٔ اینترنت طبقاتی را افزایش داده است.
-
-گزارش‌هایی منتشر شده که نشان می‌دهد برخی شهروندان، پس از انتقاد از حکومت یا فعالیت در شبکه‌های اجتماعی، با قطع سیم‌کارت و اینترنت مواجه شده‌اند و برای وصل دوباره، مجبور به ارائهٔ تعهد یا فعالیت حمایتی به نفع حکومت شده‌اند.
-
-جمهوری اسلامی اینترنت را به ابزاری برای کنترل سیاسی و سنجش وفاداری شهروندان تبدیل کرده است؛ وضعیتی که برای بسیاری از مردم فقط یک معنا دارد:
-هرجا اینترنت نیست، آزادی هم نیست.
-
-کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/9CC8wX4Bim0
-@iranintltv
-</div>
-
-## IranIntlTV — post 337240
-
-<div align="center"><img src="telegram/content/IranIntlTV_337240.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر کدام از این نام‌ها، روایت جوانی‌ست که می‌توانست زندگی کند، کار کند، عاشق شود و آینده‌ای بسازد؛ اما گلوله سرکوب مسیر زندگی‌شان را قطع کرد.
-جاویدنامان انقلاب ملی ایرانیان فقط نام‌های ثبت‌شده در یک فهرست نیستند؛ حافظه زخمی نسلی‌اند که بهای آزادی را با جان خود پرداخت.
-عرفان علیزاده، علی‌اصغر محمدی چمستان، مبین فیلی، علیرضا موسی‌نیا، محمدامین قبادی، علی زنگنه، امیررضا حسنوند و محمدرضا سعیدی؛
-نام‌هایی که از خیابان‌های ایران پاک نشدند و در حافظه جمعی این سرزمین باقی خواهند ماند.
-#جاویدنامان_انقلاب_ملی_ایرانیان
-</div>
-
-## IranIntlTV — post 337239
-
-<div align="center"><video src="telegram/content/IranIntlTV_337239.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337239.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مریم از پاریس: نگران حال فاطمه سپهری هستم و امیدوارم پوشش خبری بیشتری درباره ایشان داده شود
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/9CC8wX4Bim0
-@iranintltv
-</div>
-
-## IranIntlTV — post 337238
-
-<div align="center"><video src="telegram/content/IranIntlTV_337238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریا از لندن: با زور و اعتراف اجباری، زندانی بی‌گناه را به اعدام محکوم می‌کنند
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/9CC8wX4Bim0
-@iranintltv
-</div>
-
-## IranIntlTV — post 337237
-
-<div align="center"><video src="telegram/content/IranIntlTV_337237.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337237.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عسل از اصفهان: جنگ اوضاع را تغییر نداد؛ حالا خودمان باید تغییرش بدهیم
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/9CC8wX4Bim0
-@iranintltv
-</div>
-
-## IranIntlTV — post 337236
-
-<div align="center"><video src="telegram/content/IranIntlTV_337236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سهراب از تهران: «درود بر وی‌پی‌ان‌فروشِ حلال‌خور!»
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/9CC8wX4Bim0
-@iranintltv
-</div>
-
-## IranIntlTV — post 337235
-
-<div align="center"><video src="telegram/content/IranIntlTV_337235.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337235.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امیر از چالوس: حواستان به سلامت روانتان باشد؛ ایران با شهروندان افسرده آباد نمی‌شود
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/9CC8wX4Bim0
-@iranintltv
-</div>
-
-## IranIntlTV — post 337234
-
-<div align="center"><img src="telegram/content/IranIntlTV_337234.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تد باد، سناتور جمهوری‌خواه آمریکا، در حساب کاربری خود در ایکس نوشت جمهوری اسلامی بیش از ۴۷ سال به آمریکا و متحدانش حمله کرده و شهروندان آمریکایی را کشته است.
-تد باد افزود در حالی که روسای‌جمهوری پیشین این موضوع را به تعویق می‌انداختند، دونالد ترامپ، رییس‌جمهوری آمریکا، در حال انجام کاری است که آن‌ها حاضر به انجامش نبودند.
-او در عین حال تاکید کرد که آمریکا اکنون «در مسیری قرار گرفته که می‌تواند تهدید موشک‌های بالستیک و برنامه غنی‌سازی هسته‌ای جمهوری اسلامی را برای همیشه از بین ببرد.»
-
-https://iranintl.com/202605147923
-</div>
-
-## IranIntlTV — post 337233
-
-<div align="center"><img src="telegram/content/IranIntlTV_337233.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش‌ها حاکی است یک کشتی لنگر انداخته در نزدیکی بندر فجیره امارات متحده عربی توسط افراد ناشناس سوار شده و به سمت آب‌های ایران هدایت شده است.
-به گزارش رویترز، شرکت امنیت دریایی وندگارد گفته است این اقدام احتمالا از سوی نیروهای ایرانی انجام شده و پیش از آن نیز نهاد دریایی «یو‌کی‌ام‌تی‌او»از ورود افراد غیرمجاز به این کشتی خبر داده بود.
-هم‌زمان منابع دریایی از افزایش تحرکات در تنگه هرمز خبر داده‌اند. بر اساس گزارش‌ها، چندین کشتی از جمله نفتکش‌ها و کشتی‌های تجاری در روزهای اخیر با هماهنگی‌های محدود از این مسیر عبور کرده‌اند، در حالی که پیش‌تر تعداد عبور روزانه به شکل محسوسی کاهش یافته بود.
-همچنین گزارش شده است نیروهای سپاه پاسداران اعلام کرده‌اند شمار بیشتری از شناورها در روزهای اخیر از تنگه هرمز عبور کرده‌اند؛ موضوعی که نشان‌دهنده تغییر تدریجی در وضعیت عبور و مرور دریایی در این آبراه راهبردی است.
-
-https://iranintl.com/202605147292
 </div>
 

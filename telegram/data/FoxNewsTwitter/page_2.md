@@ -1,8 +1,38 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 12:06
+📅 آخرین بروزرسانی: 1405/02/25 16:41
 
 ---
+
+## FoxNewsTwitter — post 341750
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341750.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341750.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH: Vice President JD Vance jokes with the crowd after thanking citizen journalists for exposing fraud across the country like Nick Shirley and the 'Quality Learing Center':
+
+"When we really got wind of what was going on in Minneapolis, it was because somebody showed up at the 'Quality Learing Center.' We've got a guy over there- did you get a good education at the 'Quality Learing Center,' sir?"
+
+"He said he's a graduate with honors of the 'Quality Learing Center.' I congratulate you, but I don't think it's that hard if we're being honest."
+</div>
+
+## FoxNewsTwitter — post 341749
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341749.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341749.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST IN: Vice President JD Vance exposes a "shocking" lack of accountability at the Department of Justice, claiming million-dollar fraud cases were ignored by the Biden administration.
+
+"Let's say a person defrauded all of you for a million bucks. To many of our Department of Justice leaders under the Biden administration, they said that was too low level to actually go after. So, I mean, how many of you would like the federal government to hand you $1 million?"
+</div>
 
 ## FoxNewsTwitter — post 341748
 
@@ -250,33 +280,5 @@ WATCH LIVE: Linda McMahon faces House lawmakers on Trump's education agenda http
 Fox News (Twitter/X)
 
 WATCH LIVE: House Judiciary subcommittee holds hearing on Fairfax County's sanctuary policies https://twitter.com/i/broadcasts/1dGYljYZaLZKX
-</div>
-
-## FoxNewsTwitter — post 341730
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341730.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341730.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-A judge in Cook County, IL revealing that authorities have lost track of hundreds of individuals on ankle monitors currently awaiting trial - nearly 10% of the whole program.
-
-Officials warning the current system has serious flaws, citing cases where monitored individuals ignored violations and went on to commit violent crimes, @MikeTobinFox reports. | @SandraSmithFox @AmericaNewsroom
-</div>
-
-## FoxNewsTwitter — post 341729
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341729.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-The Army has recovered the remains of Spc. Mariyah Symone Collington, 19, the second U.S. soldier who went missing during an off-duty hike in Morocco after a military exercise.
-
-The remains of another soldier, 1st Lt. Kendrick Lamont Key Jr., were recovered last week.
-
-Both soldiers were reported missing May 2 after participating in African Lion exercises and are believed to have fallen from a coastal cliff, ending a challenging multinational search effort.
 </div>
 

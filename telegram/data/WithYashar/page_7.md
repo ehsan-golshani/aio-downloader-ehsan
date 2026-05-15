@@ -1,8 +1,82 @@
 # آرشیو کانال WithYashar - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/25 14:40
+📅 آخرین بروزرسانی: 1405/02/25 16:40
 
 ---
+
+## WithYashar — post 11169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوش‌چشم: ترامپ رفته چین التماس کنه تا میانجی بشه که ایران جنگ رو تموم کنه
+@withyashar
+</div>
+
+## WithYashar — post 11168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کامنتم زیر پست ترامپ
+
+https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
+بترکونینننن 💥🙌🏾حملههههه
+</div>
+
+## WithYashar — post 11167
+
+<div align="center"><video src="telegram/content/WithYashar_11167.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11167.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لحظه استقبال از دونالد ترامپ در پکن، چین
+@withyashar
+</div>
+
+## WithYashar — post 11166
+
+## WithYashar — post 11165
+
+## WithYashar — post 11164
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیام سد مجید موسی ، فرمانده نیروی هوافضای ۳پا تیم ملی رو هم بردن وسط میدون مثل میمونای سیرک @withyashar
+</div>
+
+## WithYashar — post 11163
+
+<div align="center"><video src="telegram/content/WithYashar_11163.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11163.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیام سد مجید موسی ، فرمانده نیروی هوافضای ۳پا
+تیم ملی رو هم بردن وسط میدون مثل میمونای سیرک
+@withyashar
+</div>
+
+## WithYashar — post 11162
+
+<div align="center"><video src="telegram/content/WithYashar_11162.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11162.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رقص امشب از گلشیفته 😅
+@withyashar
+</div>
+
+## WithYashar — post 11161
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاج : در جریان آهنگی که معین برای تیم ملی در جام جهنی ۲۰۲۶ می خواند هستیم
+@withyashar
+</div>
+
+## WithYashar — post 11160
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارش NBC که به داده‌های ناوبری استناد کرده است.چندین کشتی باری و نفتکش مرتبط با چین در ۲۴ ساعت گذشته از تنگه هرمز عبور کرده‌اند
+@withyashar
+</div>
 
 ## WithYashar — post 11159
 
@@ -93,17 +167,6 @@
 جمعه تاریخ ۱۵ مه
 - جلسه عکس با شی- چای با شی
 - ناهار با شی و حرکت از پکن به آمریکا،
-@withyashar
-</div>
-
-## WithYashar — post 11149
-
-<div align="center"><video src="telegram/content/WithYashar_11149.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11149.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لحظه ورود ترامپ به چین-پکن همراه ایلان ماسک و همراهان
 @withyashar
 </div>
 

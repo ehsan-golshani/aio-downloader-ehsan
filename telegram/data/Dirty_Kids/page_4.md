@@ -1,8 +1,113 @@
 # آرشیو کانال Dirty_Kids - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 14:56
+📅 آخرین بروزرسانی: 1405/02/25 16:56
 
 ---
+
+## Dirty_Kids — post 389427
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389427.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+⚫️با بالاترین کیفیت ممکن⚡️ 
+⚫️100 هزار تومان شارژ هدیه 🎁
+⚫️پایین ترین قیمت گیگی 250🌐 
+⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
+
+بادبان راهتو باز می‌کنه⛵️
+
+R24
+🛡@BadBan_VPN | کانال 
+🤖@BadBan_VPNBot | ربات 
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389426
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389426.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389425
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389425.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389425.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگ آمریکا و چین موقع دست دادن؛
+
+ترامپ به سمت شی رفت، دست دادن و بعد جفت طرف سعی داشتن دست‌ِ طرف مقابل رو به سمت خودشون بِکشن که این صحنه خلق شد:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389424
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389424.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لاشیا فهمیدن ما عرقو با دوغ میخوریم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389423
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389423.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عکس پروفایل معلمای ادبیات
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389422
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جدی پیک می تر از این جنده های حجابی تو دانشگاه وجود نداره، یارو سال اول کارشناسی کامپیوتره بعد استیکر زده رو لپ تاپش LEAVE ME ALONE IM CODING، بیا برو کیرم تو کدت شد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389421
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پلیس شریف دانمارک vs طرفداران تروریسم جهانی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389420
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389420.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مانوک خدابخشیان: "فعالیتی که برای براندازی پهلوی سوم وجود داره، برای براندازی رژیم وجود نداره. همه تلاش می‌کنند که این شاهزاده پهلوی به ایران برنگرده‌."
+روحت شاد عمومانوک
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389416
 
@@ -165,93 +270,6 @@ A23
 
 تنها سناتور شریف دموکرات John Fetterman از پنسیلوانیا بود که دوباره با جمهوری‌خواهان همراه شد.
 
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاش به کارکنان شعب لمیز ونک به پایین یاد بدین که وقتی یه آقای مسن میاد تو ازتون میپرسه «هویج بستنی» دارین نگین نه چیچیاتو میچیاتو و فولان داریم، عین آدم به بنده‌ خدای گرما زده توضیح بدید که چه محصول عادی و خنکی میتونه سفارش بده، چون این کار وظیفه منِ مشتری نیست.
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389401
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389401.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عمه جنده ام، گلشیفته
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389400
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتی به “بله” می گید سوپر اپلیکیشن، حس بقالی رو دارم که رو تابلوش زده هایپر مارکت!
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389399
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389399.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امانوئل تو زن داری؟
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389398
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رفته بودیم ماسال. به صاحب‌ ویلا گفتم اینجا محلیا چه‌جوری‌ند؟ به حجاب گیرن یا زنا راحت بتابن؟
-گفت: زنا هر جور دوست دارن بپوشن، اما مردا شلوارک نپوشن، اهالی حساسن به شلوارک:))))))
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389396
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389396.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صلواتی خونخوار حکم اعدام ‎#محمد_عباسی رو داد و جمهوری اسلامی امروز مخفیانه طناب دار رو دور گردنش انداخت.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389395
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389395.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی قمصری در کاخ الیزه در واکنش به رابطه «گلشیفته و مکرون»
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389394
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389394.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شما غلط کردی با صاحابت.
-از طرف مردم گه نخور.
 
 
 @Dirty_Kids 👻

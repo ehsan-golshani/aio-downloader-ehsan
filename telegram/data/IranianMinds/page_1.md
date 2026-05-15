@@ -1,8 +1,28 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 14:54
+📅 آخرین بروزرسانی: 1405/02/25 16:53
 
 ---
+
+## IranianMinds — post 20192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تهران‌تایمز:
+
+آمریکا پیشنهاد ۱۴ ماده‌ای جمهوری اسلامی برای پایان جنگ را رد کرده و بار دیگر بر مواضع خود، به ویژه درباره پرونده هسته‌ای تأکید کرده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عراقچی:
+
+اگر آنها بخواهند به جنگ بازگردند، این به خودشان بستگی دارد.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20190
 
@@ -192,28 +212,5 @@
 آمریکا با راه نظامی هرگز نمیتونه مارو شکست بده و به اهدافش برسه ، ولی اگه دیپلماسی رو امتحان میکرد شاید متفاوت بود
 
 @IranianMinds
-</div>
-
-## IranianMinds — post 20171
-
-<div align="center"><img src="telegram/content/IranianMinds_20171.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نیویورک پست:
-
-اف‌بی‌آی جایزه‌ای ۲۰۰ هزار دلاری برای دستگیری مونیکا ویت، مأمور سابق اطلاعات نیروی هوایی آمریکا که از سال ۲۰۱۹ متهم به جاسوسی برای ایران است، اعلام کرده است
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20170
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲#اپلیکیشن اندروید سایت جهانی دربی بت
-👍اسپانسر لیگ انگلیس👍
-🔥امکان شارژ امن از طریق کارت بانکی
-➖➖➖➖➖➖➖➖➖
-🪙همین حالا عضو شوید 👇
-https://t.me/+aCbq7yy8QY80NzQ0
 </div>
 

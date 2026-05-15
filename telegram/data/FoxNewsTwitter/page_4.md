@@ -1,8 +1,36 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 12:06
+📅 آخرین بروزرسانی: 1405/02/25 16:41
 
 ---
+
+## FoxNewsTwitter — post 341704
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341704.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341704.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+SPOTTED: Elon Musk poses for pictures with Apple's Tim Cook at the Chinese state banquet in Beijing.
+
+Musk and Cook are just two of the major American CEOs joining President Trump on his trip to China for his historic summit with President Xi.
+</div>
+
+## FoxNewsTwitter — post 341703
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341703.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: An American doctor who helped treat sick passengers during a hantavirus outbreak at sea is now being cleared to leave isolation after days of uncertainty.
+
+He was one of 16 Americans taken to Nebraska for monitoring, but the only one placed in a biocontainment unit after an inconclusive test result.
+
+Hospital officials say he’s now been cleared to leave that unit and will join the others in standard quarantine as 11 cases, including three deaths, are reported worldwide.
+</div>
 
 ## FoxNewsTwitter — post 341702
 
@@ -237,27 +265,5 @@ MURRAY: "That's what some far-right activists are saying. That they have an audi
 ZELDIN: "I have not had a conversation with anyone at the agency as far as abortions in water."
 
 "I don't even know what you're talking about."
-</div>
-
-## FoxNewsTwitter — post 341684
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341684.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: 38th annual candlelight vigil for fallen officers in Washington, DC https://twitter.com/i/broadcasts/1NGaraWVDYVJj
-</div>
-
-## FoxNewsTwitter — post 341683
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341683.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341683.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-FOX NEWS REPORT: President Trump is in China and expected to talk trade and the Iran war with Chinese President Xi Jinping. @BillMelugin_ has the latest.
 </div>
 

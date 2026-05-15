@@ -1,8 +1,131 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 14:56
+📅 آخرین بروزرسانی: 1405/02/25 16:56
 
 ---
+
+## Dirty_Kids — post 389495
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389495.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389495.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در ادامه‌ی مصاحبه‌ی جلو در توالتی ترامپ در راه بازگشت از چین:
+
+خبرنگار: آیا تونستید تایید کنید که اون موشک [که به مدرسه‌ی میناب اصابت کرد] آمریکایی بوده؟
+
+ترامپ: شما با کجا کار می‌کنید عزیزجان؟
+
+خبرنگار: بی‌بی‌سی.
+
+ترامپ: بی‌بی‌سی جعلی؟ تو گه بخور. منظورت همون جاکشاییه که با هوش مصنوعی دهن من حرف گذاشتند؟ همونا که از قول من بیانیه‌ای رو منتشر کردند که حالا خودشون اعتراف می‌کنن حقیقت نداشته؟ همون پوفیوزایی که کلمات وحشتناکی رو گذاشتن دهن من و بعد مجبور شدند اعتراف کنن که جعلی بوده؟
+همون دیوثایی که الان به خاطر ۵ میلیار...
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389494
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر از چندگاهی مچ خودمو درحال ریلز دیدن میگیرم. بی پروای فقیر
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389493
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران حتی تبریک تولدهامون‌ هم نفرینه
+ایشالله خودت ۱۲۰ ساله بشی بی‌شرف
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389492
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389492.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389492.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آنلاین شاپا باز شروع کردن...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389491
+
+<div align="center"><a href="telegram/content/derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+😀Telegram Channel👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389490
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389490.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
+
+👍دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+
+🔔کانال دربی بت :
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389489
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در مورد پروپوزال ایران:
+ترامپ: جمله اولش رو که خوندم انداختمش دور!
+خبرنگار: جمله اول چی بود؟
+ترامپ: یه‌ چیز غیرقال قبول! ما نمیخوایم ایران غنی سازی کنه!!
+خبرنگار: یعنی ۲۰ سال توقف غنی سازی کافی نیس؟
+ترامپ: ۲۰ سال کافیه ولی باید واقعی باشه و تضمین بدن!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389488
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389488.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجتبی خامنه‌ای به مناسبت روز بزرگداشت فردوسی، این پیام رو منتشر کرد:
+
+همین که یک تازی راهزن بیابانگرد رافضی به ارزش‌های زبان و ادبیات فارسی اعتراف می‌کند می‌تواند جالب باشد.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389487
 
@@ -147,104 +270,6 @@ A24
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قضیه السیسی اگه نمیدونی این ویدیو کمکت میکنه
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389475
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389475.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیفونیا با کانفیگ پولی در حال خوندن پستای اندرویدیا که با وپن شیر 🌞 وصل شدن:
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389474
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎙️خبرنگار : امیرعلی چرا اومدی تجمع؟
-🧑امیرعلی : به عشق رهبر
-
-🎙️خبرنگار : امیرعلی، مامان و بابات مجبورت کردن که بیای تجمعات؟
-
-🧑امیرعلی : آره
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389473
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389473.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کصمادرتون…
-نسلتون رو ✌🏽 بار گائیدم…
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389472
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389472.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو خیابون حل اشکال ریاضی میزارن بعد رتبه یک کنکور رو اعدام میکنن.
-اینجا، ایران جان..
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389471
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏تو آسانسور از دختره پرسیدم کدوم طبقه میری ؟
-گفت : فرقی نمیکنه.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389470
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389470.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ملانیا واقعا خوشتیپه
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389469
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389469.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389469.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چون دل‌تون برای سخنگوی اسکل الانبیا تنگ شده میدونم
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389468
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389468.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اره داداش، امریکا تایوان رو میده به چین و ایران رو ازش میگیره.
 
 
 @Dirty_Kids 👻

@@ -1,8 +1,81 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 14:40
+📅 آخرین بروزرسانی: 1405/02/25 16:40
 
 ---
+
+## WithYashar — post 11271
+
+<div align="center"><img src="telegram/content/WithYashar_11271.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمد قنطاری، کاردار جدید سوریه در واشنگتن دی سی😬🍔
+@withyashar
+</div>
+
+## WithYashar — post 11270
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@withyashar part3
+</div>
+
+## WithYashar — post 11269
+
+<div align="center"><img src="telegram/content/WithYashar_11269.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😂😂🙌🏾 @withyashar
+</div>
+
+## WithYashar — post 11268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم‌اکنون حمله سنگین جمهوری اسلامی به مقر گروه های مخالف در عراق
+@withyashar
+</div>
+
+## WithYashar — post 11267
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارش روزنامه «ساوت چاینا مورنینگ پست» و بازنشر آن توسط «بلومبرگ»، انتظار می‌رود «ولادیمیر پوتین» در حدود ۲۰ مه به «پکن» سفر کند؛ تنها حدود ۵ روز پس از دیدار «شی جین‌پینگ» و «دونالد ترامپ» در پکن.
+
+رسانه‌ها می‌گویند این سفر احتمالاً فقط یک روز طول می‌کشد و بیشتر در قالب یک دیدار کاری و هماهنگی سیاسی انجام می‌شود. همچنین برخلاف سفر ترامپ، ظاهراً خبری از تشریفات بزرگ، رژه رسمی یا استقبال بسیار گسترده نخواهد بود و این سفر در سطحی ساده‌تر و کم‌نمایش‌تر برگزار می‌شود
+@withyashar
+</div>
+
+## WithYashar — post 11266
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@withyashar part2
+</div>
+
+## WithYashar — post 11265
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ در تروث : «وقتی رئیس‌جمهور شی با بیانی بسیار سنجیده از ایالات متحده به‌عنوان کشوری که شاید در حال افول باشد یاد کرد، منظور او آسیب عظیمی بود که ما در چهار سال دوران جو بایدنِ خواب‌آلود و دولت بایدن متحمل شدیم؛ و در این مورد، او صددرصد درست می‌گفت. کشور…
+</div>
+
+## WithYashar — post 11264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@withyashar part1
+</div>
+
+## WithYashar — post 11263
+
+<div align="center"><video src="telegram/content/WithYashar_11263.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11263.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@withyashar منتظر ری اکشننن
+</div>
+
+## WithYashar — post 11262
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظرت چیه؟قبل جام جهانی میزنع یا بعد؟
+</div>
 
 ## WithYashar — post 11261
 
@@ -99,96 +172,5 @@ https://t.me/boost/withyashar
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آقا ما استیکر حامله میخوایم
-</div>
-
-## WithYashar — post 11251
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در تروث : «وقتی رئیس‌جمهور شی با بیانی بسیار سنجیده از ایالات متحده به‌عنوان کشوری که شاید در حال افول باشد یاد کرد، منظور او آسیب عظیمی بود که ما در چهار سال دوران جو بایدنِ خواب‌آلود و دولت بایدن متحمل شدیم؛ و در این مورد، او صددرصد درست می‌گفت.
-
-کشور ما با مرزهای باز، مالیات‌های سنگین، ترویج تغییر جنسیت برای همه، حضور مردان در ورزش زنان، سیاست‌های موسوم به تنوع و شمول، توافق‌های تجاری وحشتناک، جرم و جنایت گسترده و بسیاری مسائل دیگر، آسیب غیرقابل‌تصوری دید!
-@withyashar
-رئیس‌جمهور شی به هیچ‌وجه به رشد شگفت‌انگیزی اشاره نمی‌کرد که ایالات متحده در طول شانزده ماه فوق‌العاده دولت ترامپ به جهان نشان داده است؛ دورانی که شامل رکورد تاریخی بازار بورس و صندوق‌های بازنشستگی، پیروزی نظامی و روابط شکوفا با ونزوئلا، درهم‌کوبیدن نظامی ایران (ادامه دارد!)، قدرتمندترین ارتش جهان با اختلاف بسیار زیاد، تبدیل دوباره آمریکا به یک قدرت اقتصادی عظیم، جذب رکورد هجده تریلیون دلار سرمایه‌گذاری خارجی در آمریکا، بهترین بازار کار تاریخ ایالات متحده با بیشترین تعداد شاغلان تاریخ کشور، پایان دادن به سیاست‌های ویرانگر موسوم به تنوع و شمول و بسیاری موفقیت‌های دیگر بوده که فهرست کردن همه آنها ممکن نیست.
-
-در حقیقت، رئیس‌جمهور شی بابت این همه موفقیت بزرگ در چنین مدت کوتاهی به من تبریک گفت.
-
-دو سال پیش، ما واقعاً کشوری در حال افول بودیم. در این مورد کاملاً با رئیس‌جمهور شی موافقم! اما حالا ایالات متحده داغ‌ترین و پررونق‌ترین کشور جهان است و امیدوارم رابطه ما با چین از همیشه قوی‌تر و بهتر باشد!»
-@withyashar
-</div>
-
-## WithYashar — post 11250
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاکس نیوز : تو سفر ترامپ، بین مأموران سرویس مخفی آمریکا و پلیس چین، تنش ایجاد شده و درگیری لفظی و حتی فیزیکی هم پیش اومده.
-@withyashar
-</div>
-
-## WithYashar — post 11249
-
-<div align="center"><img src="telegram/content/WithYashar_11249.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کت کش ها در مراسم اربعین کتلت سرلشکر سیدعبدالرحیم موسوی در قم
-@withyashar
-</div>
-
-## WithYashar — post 11248
-
-<div align="center"><video src="telegram/content/WithYashar_11248.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11248.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏ترامپ به دلیل مرگ برادر بزرگترش که بر اثر نوشیدن الکل جانش را از دست داد ،مشروب نمیخوره ،ولی اینجا جرعه‌ای از آن را مینوشه و به نشانه احترام به رئیس جمهور شی جین پینگ
-‏ولی داشت بالا می‌آورد
-@withyashar
-</div>
-
-## WithYashar — post 11247
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گزارش‌های امروز، هرتزوگ رئیس جمهور اسرائیل حضور حضوری خود در نیویورک را لغو کرده و گفته به دلیل «شرایطی که مانع سفر شده» نمی‌تواند به آمریکا بیاید.
-اما این سفر یک سفر رسمی سیاسی به کاخ سفید نبود،بلکه مربوط به شرکت او در مراسم فارغ‌التحصیلی «Jewish Theological Seminary» در نیویورک بود.
-
-در عین حال، خبر جداگانه‌ای هم درباره سفر احتمالی بنیامین ناتانیاهو به آمریکا وجود داشت که دفتر او گفته بود هنوز برنامه قطعی‌ای برایش نهایی نشده است
-@withyashar
-</div>
-
-## WithYashar — post 11246
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گزارش فاکس نیوز : رئیس‌جمهور ترامپ و هیئت همراهش در طول سفر به چین از تلفن‌ها و لپ‌تاپ‌های جایگزین استفاده کردند به دلیل نگرانی‌هایی که داشتند مبنی بر اینکه مقامات چینی ممکن است از آن‌ها برای نصب نرم‌افزار جاسوسی استفاده کنند
-@withyashar
-</div>
-
-## WithYashar — post 11245
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همینجور این پیغام میاد دم همتون گرم مخصوصا عزیزی که یاد کرد از من🥹🙌🏾❤️‍🩹 میامممم میاممم
-</div>
-
-## WithYashar — post 11244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی اومد رو خط برنامه کامبیز تو اینترنشنال گفتش از همه مجریای اینترنشنال تشکر میکنم ، حتی یاشار وار روم توی تلگرام ک خیلیا اخبارا رو ازونجا دنبال میکنن دمتون گرم
-</div>
-
-## WithYashar — post 11242
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیده شده پهپاد شناسایی و صدای پدافند غرب تهران
-@withyashar
-</div>
-
-## WithYashar — post 11241
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اعتراضات کوبا شروع شد کشور در حال فروپاشی
-
-طبق گزارش‌ها، شبکه برق کوبا در بامداد امروز دچار فروپاشی شد و مناطق شرقی از جمله شهر مهم سانتیاگو دِ کوبا بدون برق ماندند. مردم به خیابان آمدند، قابلمه‌ها را به هم کوبیدند، زباله آتش زدند و شعار «برق را وصل کنید» سر دادند.
-دولت کوبا علت اصلی را تحریم‌ها و فشار آمریکا بر صادرات سوخت به کوبا می‌داند. رسانه‌هایی مانند رویترز و گاردین نوشته‌اند که پس از تهدیدهای جدید دولت ترامپ علیه کشورهایی که به کوبا سوخت می‌فرستند، ارسال نفت از ونزوئلا و مکزیک کاهش یافته و کوبا عملاً ذخیره سوختش را از دست داده است. وزیر انرژی کوبا گفته:
-«ما مطلقاً هیچ گازوئیل و هیچ نفت کوره‌ای نداریم.»
-در بعضی مناطق مردم تا ۲۰ یا حتی ۲۲ ساعت در روز برق ندارند. این وضعیت باعث خراب شدن مواد غذایی، اختلال در بیمارستان‌ها، حمل‌ونقل و حتی تعطیلی برخی خدمات عمومی شده است.
-@withyashar
 </div>
 

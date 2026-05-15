@@ -1,8 +1,28 @@
 # آرشیو کانال IranianMinds - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 14:54
+📅 آخرین بروزرسانی: 1405/02/25 16:53
 
 ---
+
+## IranianMinds — post 20128
+
+<div align="center"><img src="telegram/content/IranianMinds_20128.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کاخ سفید:
+
+هر دو کشور ( چین و آمریکا ) توافق کردند که ایران هرگز نمی‌تواند سلاح هسته‌ای داشته باشد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20127
+
+<div align="center"><img src="telegram/content/IranianMinds_20127.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لامین یامال بازیکن چپول بارسلونا که تو‌ جشن قهرمانی بارسا پرچم فلسطینو گرفته دستش @IranianMinds
+</div>
 
 ## IranianMinds — post 20126
 
@@ -240,27 +260,5 @@ https://t.me/+qNjExGEJztE2OGI0
 re24
 🔔کانال دربی بت :
 🪙https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20107
-
-<div align="center"><img src="telegram/content/IranianMinds_20107.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ و رئیس جمهور‌ چین در معبد بهشت پکن
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20105
-
-<div align="center"><img src="telegram/content/IranianMinds_20105.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مراد ویسی :
-
-قصد دارم لیستی از قاتلان مردم ایران در دی ماه تهیه کنم و هر شب اسم هاشون رو‌ در لایو بخونم.
-
-@IranianMinds
 </div>
 
