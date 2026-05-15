@@ -1,8 +1,95 @@
 # آرشیو کانال kianmeli1 - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 22:46
+📅 آخرین بروزرسانی: 1405/02/26 00:14
 
 ---
+
+## kianmeli1 — post 87423
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏🔴به گزارش فرانس ۲۴ مقام‌های آمریکایی محمد باقر سعد داوود الساعدی، شهروند عراقی را به اتهام طراحی دست‌کم ۱۸ حمله «تروریستی» در اروپا در واکنش به جنگ آمریکا علیه جمهوری اسلامی بازداشت و متهم کردند
+
+‏براساس این گزارش او متهم است در حملاتی از جمله آتش‌زدن یک بانک در آمستردام و حمله با چاقو به چند مرد یهودی در لندن نقش داشته، او ماه گذشته قصد حمله به یک کنیسه در نیویورک را داشته و تصاویر و نقشه‌هایی از مراکز یهودی در لس‌آنجلس و اسکاتسدیل آریزونا را در اختیار یک مامور مخفی قرار داده است.او همچنین به مشارکت در دو حمله اخیر در کانادا، شامل حمله به یک کنیسه و تیراندازی به کنسولگری آمریکا در تورنتو در ماه مارس، متهم شده است
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87422
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏🔴آلیس روفو، معاون وزیر نیروهای مسلح فرانسه اعلام کرد که «شارل دوگل» ناو هواپیمابر فرانسه برای مداخله در صورت تشکیل یک ماموریت «بی‌طرف» جهت بازگرداندن آزادی کشتیرانی در تنگه هرمز ‌مستقر شده است
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دقایقی پیش فرمانده حماس کشته شد ‏ نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏🔴روابط عمومی هیات کوهنوردی استان همدان اعلام کرد که پس از گذشت چهار ماه از مفقود شدن چهار کوهنورد در ارتفاعات الوند، پیکر چهارمین کوهنورد در روز جمعه ۲۵ اردیبهشت پیدا شد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏🔴مدیر جهاد کشاورزی کازرون اعلام کرد که در پی آتش‌سوزی در مزارع گندم روستای علی‌آباد دوتو در بخش مرکزی این شهرستان، ۲۰ هکتار از مزارع خسارت دید
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87418
+
+<div align="center"><img src="telegram/content/kianmeli1_87418.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سی ان‌ ان
+هکرهای ایرانی با سوءاستفاده از یک نقص جزئی: بدون رمز عبور، به مانیتورهای سوخت پمپ بنزین‌های ایالات متحده نفوذ کردند.
+
+آنها خوانش‌ها را جعل کردند اما نتوانستند به سطح واقعی سوخت دست بزنند.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87417
+
+<div align="center"><img src="telegram/content/kianmeli1_87417.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توئیت عجیب ترامپ
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87416
+
+<div align="center"><video src="telegram/content/kianmeli1_87416.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87416.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ اعلام کرد که یک دور دیگر از عملیات نظامی آمریکا در ایران در راه است:
+‏​
+‏ما از نظر نظامی در ایران تقریباً کار را تمام کردیم. حدود ۷۵٪ کار را. (البته) ما همه چیز را تمام نکردیم. برمی‌گردیم و آن را تکمیل می‌کنیم. حتی شاید بیشتر.
+‏​
+‏ممکن است مجبور شویم کمی کارِ پاکسازی انجام دهیم، چون یک آتش‌بسِ حدوداً یک‌ماهه داشتیم.
+‏​
+‏ما در حقیقت آتش‌بس را به درخواست کشورهای دیگر انجام دادیم.
+‏​
+‏من خودم چندان موافق آن نبودم، اما این کار را به عنوان لطفی به پاکستان انجام دادیم، آدم‌های فوق‌العاده‌ای هستند، فیلد مارشال و نخست‌وزیر.»
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87415
+
+<div align="center"><video src="telegram/content/kianmeli1_87415.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87415.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴۳۰ روز طول کشید تا جنازه عبدالرحیم موسوی، رئیس سابق ستاد کل نیروهای مسلح، پیدا شود
+https://t.me/kianmeli1
+</div>
 
 ## kianmeli1 — post 87414
 
@@ -115,91 +202,6 @@ https://t.me/kianmeli1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴ایران از همه کشورهای عضو بریکس می‌خواهد که جنگ آمریکا و اسرائیل علیه خود را محکوم کنند.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87402
-
-<div align="center"><img src="telegram/content/kianmeli1_87402.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴به گزارش خبرگزاری AXIOS، مقامات اسرائیلی می‌گویند که در طول این آخر هفته، اسرائیل در بالاترین سطح آمادگی قرار خواهد گرفت، زیرا این کشور منتظر تصمیم رئیس جمهور ترامپ در مورد از سرگیری جنگ علیه ایران است.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87401
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏🔴شی جین‌پینگ، رییس‌جمهوری چین، در ضیافت رسمی به افتخار ترامپ گفت که دو کشور باید شریک باشند، نه رقیب
-
-‏شی جین‌پینگ گفت که دو شعار «نوزایی چین» و «عظمت را دوباره به آمریکا بازگردانیم» می‌توانند در کنار یکدیگر پیش بروند
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87400
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بلومبرگ: ۴ روز است که از خارک بارگیری نفت نمی‌شود و اسکله‌های نفتی کاملاً خالی است
-
-صادرات نفت از جزیره خارک برای نخستین بار از آغاز جنگ، چند روز متوقف شد
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87399
-
-<div align="center"><video src="telegram/content/kianmeli1_87399.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87399.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ از شی دعوت کرد تا در 24 سپتامبر به آمریکا سفر کند.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87398
-
-<div align="center"><video src="telegram/content/kianmeli1_87398.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87398.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴صداوسیما
-
-از دیشب عبور ۳۰ کشتی از تنگه هرمز انجام پذیرفته است
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87397
-
-<div align="center"><img src="telegram/content/kianmeli1_87397.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴در پی انتشار گزارش‌هایی مبنی بر بلند شدن دود از منطقه صنایع نفتی فجیره، دفتر رسانه‌ای فجیره اعلام کرد که این دود به دلیل تعمیرات مداوم یک خط لوله است.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87396
-
-<div align="center"><img src="telegram/content/kianmeli1_87396.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴طبق اعلام مرکز عملیات تجارت دریایی بریتانیا (UKMTO)، حادثه‌ای در ۳۸ مایلی شمال شرقی فجیره، امارات متحده عربی رخ داده است که در آن یک کشتی توقیف و به آب‌های ایران منتقل شده است. این احتمالاً توقیف دیگری از یک کشتی توسط سپاه پاسداران انقلاب اسلامی است.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87395
-
-<div align="center"><img src="telegram/content/kianmeli1_87395.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کاخ سفید پس از مذاکرات دوجانبه ایالات متحده و چین در پکن، پایتخت چین، در بیانیه‌ای اعلام کرد که دو هیئت در مورد مسائلی مانند دسترسی به بازار چین، سرمایه‌گذاری چین در صنایع ایالات متحده، مواد مخدر، به ویژه فنتانیل، «جریان آزاد» تجارت از طریق تنگه هرمز و سایر مسائل کلیدی گفتگو کردند.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87394
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴آکسیوس : یکی از گزینه‌های ترامپ پس از بازگشت از چین از سر گیری پروژه آزادی در تنگه هرمز است.گزینه دیگر ترامپ حمله به زیرساخت‌های ایران است.
 https://t.me/kianmeli1
 </div>
 

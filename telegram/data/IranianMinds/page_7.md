@@ -1,8 +1,42 @@
 # آرشیو کانال IranianMinds - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/25 22:54
+📅 آخرین بروزرسانی: 1405/02/26 00:22
 
 ---
+
+## IranianMinds — post 20084
+
+<div align="center"><img src="telegram/content/IranianMinds_20084.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دیگه شد یه کسب درآمد داعم براشون و همه جا شروع کردن به فروش سیمکارت و اینترنت پرو !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20083
+
+<div align="center"><img src="telegram/content/IranianMinds_20083.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 عراقچی :
+
+در تلاشی آشکار برای ایجاد اختلاف، کویت به ‌صورت غیرقانونی به یک قایق ایرانی در خلیج فارس حمله کرده و ۴ نفر از شهروندان ما را بازداشت کرده است. این اقدام غیرقانونی در نزدیکی جزیره ‌ای رخ داده که آمریکا از آن برای حمله به ایران استفاده میکند.
+
+ما خواستار آزادی فوری شهروندان ‌مان هستیم و حق پاسخگویی را برای خود محفوظ می‌دانیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20082
+
+<div align="center"><img src="telegram/content/IranianMinds_20082.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 برای هفتمین بار هم تلاش برای محدود کردن اختیارات جنگی ترامپ در مجلس سنای آمریکا شکست خورد !
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20081
 

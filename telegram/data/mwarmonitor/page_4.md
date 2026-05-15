@@ -1,8 +1,28 @@
 # آرشیو کانال mwarmonitor - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 22:41
+📅 آخرین بروزرسانی: 1405/02/26 00:10
 
 ---
+
+## mwarmonitor — post 9082
+
+<div align="center"><img src="telegram/content/mwarmonitor_9082.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸دریادار برد کوپر، فرمانده فرماندهی مرکزی ایالات متحده (CENTCOM)، صبح امروز درباره وضعیت و آرایش عملیاتی سنتکام در کنگره شهادت خواهد داد. @mwarmonitor
+</div>
+
+## mwarmonitor — post 9081
+
+<div align="center"><img src="telegram/content/mwarmonitor_9081.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸کمک کنید تا در جریان درآمدی سپاه پاسداران انقلاب اسلامی (IRGC) اختلال ایجاد کنیم.
+
+🔸برای ما درباره این افراد اطلاعات/نکته ارسال کنید؛ کسانی که این شرکت تولیدکننده پهپاد را مدیریت می‌کنند.
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9080
 
@@ -245,26 +265,6 @@
 مقام چینی: متشکرم. ممنون. خیلی ممنون.
 خبرنگار (دوباره): آقای رئیس‌جمهور، آیا در مورد تایوان صحبت کردید؟
 مقام چینی: ممنون از مطبوعات. متشکرم. ممنون.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9061
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️خبر فوتبالی از نیویورک تایمز:
-
-🎙شکیرا، مدونا و گروه BTS اجرای نخستین نمایش بین دو نیمه را در فینال جام جهانی فوتبال بر عهده خواهند داشت.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9060
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🇨🇳مراسم رسمی استقبال از دونالد ترامپ با حضور شی جین‌پینگ در چین برگزار شد
-
-💠در این مراسم، رئیس‌جمهور چین با برگزاری تشریفات کامل دیپلماتیک از رئیس‌جمهور آمریکا استقبال کرد؛ رویدادی که در چارچوب سفر رسمی ترامپ به پکن و با هدف بررسی روابط دوجانبه، همکاری‌های اقتصادی و تحولات راهبردی بین دو کشور انجام خواهد گرفت.
 
 @mwarmonitor
 </div>
