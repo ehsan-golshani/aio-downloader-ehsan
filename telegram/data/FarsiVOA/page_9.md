@@ -1,8 +1,22 @@
 # آرشیو کانال FarsiVOA - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 01:26
+📅 آخرین بروزرسانی: 1405/02/26 02:01
 
 ---
+
+## FarsiVOA — post 217684
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️تحریم‌های مرتبط با جمهوری اسلامی علیه نهادهای چینی چه اثری دارد؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217683
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️نویسندگان زندانی، تصویر ترسناک جهان امروز
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217682
 
@@ -171,20 +185,6 @@ https://ir.voanews.com/a/8149643.html
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️در برنامه تفسیر خبر امروز، مهدی آقازمانی با کارشناسان مهمان، درباره سفر تاریخی پرزیدنت ترامپ به چین و موضوع ایران به عنوان یکی از محورهای گفتگوی رهبران دو کشور ، گفتگو می‌کند
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️ویدئوی گفت‌وگو با دو ملی‌پوش فوتبال ایران در تلویزیون حکومتی جمهوری اسلامی درباره وضعیت تحصیل و دانشگاه محل تحصیل‌شان، در شبکه‌های اجتماعی خبرساز شده و بار دیگر حاشیه‌های مربوط به ادعاهای تحصیلی برخی بازیکنان تیم ملی را به یاد کاربران آورده است.
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️علی جوانمردی: جایگاە چین در بحران ایران و احتمال توافق
 @FarsiVOA
 </div>
 

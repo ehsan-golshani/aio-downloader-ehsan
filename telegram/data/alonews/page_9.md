@@ -1,8 +1,50 @@
 # آرشیو کانال alonews - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 01:34
+📅 آخرین بروزرسانی: 1405/02/26 02:08
 
 ---
+
+## alonews — post 120048
+
+<div align="center"><img src="telegram/content/alonews_120048.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈یدیعوت آحارونوت: اسرائیل می‌خواد اگه درگیری با ایران دوباره شروع بشه،تمرکزش روی زدن زیرساخت‌ها و اهداف انرژی باشه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری/سفر هفته آینده رئیس جمهور اسرائیل به آمریکا به طور ناگهانی لغو شد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120046
+
+<div align="center"><img src="telegram/content/alonews_120046.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عجیب ترین توافق نامه ازدواج که توی دوران جنگ رقم خورد:
+
+[@AloTweet]
+</div>
+
+## alonews — post 120045
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعرفه سرویس های Vip ⭕️ ✅ 1 گیگابایت ⬅️ 235/000 تومان ✅ 3 گیگابایت ⬅️ 735/000 تومان استارلینک Vip 💫 🌟 ⭐️ 5 گیگابایت ⬅️ 1/150/000 تومان ⭐️ 10 گیگابایت ⬅️ 2/350/000 تومان ویژگی های سرویس های Vip : ❤️‍🔥 ✅    متصل در تمامی دستگاه و اپراتور ها ✅    مناسب استفاده…
+</div>
+
+## alonews — post 120044
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سنتکام: از آغاز محاصره دریایی بنادر ایران، 72 کشتی تجاری را منحرف و 4 کشتی را از کار انداختیم
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120043
 
@@ -146,59 +188,5 @@
 👈آژیرها در کریات شمونه و اطراف آن به دلیل شلیک یک رگبار راکتی حزب‌الله از لبنان به صدا درآمده‌اند
 
 ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120025
-
-<div align="center"><video src="telegram/content/alonews_120025.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120025.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نتانیاهو : در واقع، منطقه داره به بلوک اضافه می‌شه، ولی ما ورق رو برگردوندیم 🔴 رژیم وحشت تو ایران از همیشه ضعیف‌تر شده و دولت اسرائیل از همیشه قوی‌تره ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120024
-
-<div align="center"><video src="telegram/content/alonews_120024.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120024.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نتانیاهو : در واقع، منطقه داره به بلوک اضافه می‌شه، ولی ما ورق رو برگردوندیم
-
-🔴 رژیم وحشت تو ایران از همیشه ضعیف‌تر شده و دولت اسرائیل از همیشه قوی‌تره
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120023
-
-<div align="center"><img src="telegram/content/alonews_120023.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ارفعان نبیان ، جوان ۲۶ ساله اهل اصفهان، در جریان اعتراضات ضدحکومتی بازداشت شد.
-
-🔴خانواده‌اش بیش از دو ماه است که هیچ خبری از او ندارند، اجازه ملاقات به آنها داده نشده و او از حق دسترسی به وکیل محروم بوده است.
-
-🔴رژیم او را به اتهاماتی مانند محاربه (دشمنی با خدا) محکوم کرده که مجازات آن اعدام است.
-
-🔴گزارش‌ها حاکی از آن است که حکم اعدام او صادر شده و خطر اجرای آن با طناب دار بسیار جدی است
-
-✅@AloNews
-</div>
-
-## alonews — post 120022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈به گزارش Ynet، آیزاک هرتزوگ، رئیس‌جمهور اسرائیل سفر هفته آینده خود به نیویورک را به دلیل «شرایط مانع از این سفر در این زمان» لغو کرده است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خضریان، عضو کمیسیون امنیت ملی مجلس: ترامپ در جنگ گیر کرده است و با بلوف زدن به دنبال این است که عقب‌های سیاسی را در ایران فعال کند تا مردم را به سوی تسلیم سوق دهند ✅ @AloNews خبر جنگ
 </div>
 

@@ -1,8 +1,96 @@
 # آرشیو کانال IranianMinds - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 00:22
+📅 آخرین بروزرسانی: 1405/02/26 02:03
 
 ---
+
+## IranianMinds — post 20134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ به فاکس‌نیوز:
+
+رهبر چین پیشنهاد داده است که در موضوع ایران کمک کند و همچنین وعده داده که به ایران تجهیزات نظامی منتقل نکند. او می‌خواهد که تنگه هرمز باز بماند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20133
+
+<div align="center"><video src="telegram/content/IranianMinds_20133.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20133.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فرمانده سنتکام، دریاسالار برد کوپر:
+
+مذاکرات با ریسک بالا ادامه دارد.
+وظیفه ما این است که آماده باشیم و هستیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20132
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 شرکت هواپیمایی ایتالیایی ITA Airways بازگشت پروازهای خود به اسرائیل را تا اول جولای به تعویق انداخت
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فرمانده سنتکام :
+
+ما هر لحظه آماده حرکت علیه ایران هستیم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20130
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 وزیر خزانه‌داری آمریکا:
+طی سه روز گذشته هیچ بارگیری در تاسیسات نفتی ایران انجام نشده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20129
+
+<div align="center"><img src="telegram/content/IranianMinds_20129.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
+
+👍دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+ge24
+🔔کانال دربی بت :
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 20128
+
+<div align="center"><img src="telegram/content/IranianMinds_20128.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کاخ سفید:
+
+هر دو کشور ( چین و آمریکا ) توافق کردند که ایران هرگز نمی‌تواند سلاح هسته‌ای داشته باشد.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20127
 
@@ -156,106 +244,6 @@ https://t.me/+qNjExGEJztE2OGI0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💔
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20114
-
-<div align="center"><video src="telegram/content/IranianMinds_20114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وزیر دارایی اسرائیل:
-
-فکر می‌کنم در همین دوره، عملا داریم ایده تشکیل کشور فلسطین را کاملا از بین میبریم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20113
-
-<div align="center"><video src="telegram/content/IranianMinds_20113.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20113.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 جان بولتون:
-
-مذاکره برای توافق هسته ‌ای با ایران، هدر دادن وقته.
-
-این ‌ها دهه ‌ها پیش تصمیم راهبردی ‌شان را برای رسیدن به سلاح هسته‌ای گرفته‌اند.
-
-در این ۴۷ سال اخیر حتی یک مدرک هم وجود نداشته که نشان بدهد از این هدف ساخت سلاح هسته ای عقب کشیده‌ اند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20112
-
-<div align="center"><video src="telegram/content/IranianMinds_20112.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20112.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نتانیاهو:
-
-همون ‌طور که یه متفکری یه بار فکر کنم تو روسیه بود بهم گفت اسرائیل یه ابرقدرت کوچیکه، ولی بازم ابرقدرته.
-
-ما قراره به یه ابرقدرت بزرگ و جهانی تبدیل بشیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20111
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مهدی تاج رئیس فدراسیون فوتبال : معین قراره برای تیم ملی یه آهنگ بخونه ! @IranianMinds
-</div>
-
-## IranianMinds — post 20110
-
-<div align="center"><img src="telegram/content/IranianMinds_20110.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سازمان تجارت دریایی بریتانیا گزارش داد که یک حادثه در فاصله ۳۸ مایل دریایی شمال‌شرق فجیره در امارات رخ داده است.
-
-گزارش‌ها حاکی است که یک کشتی لنگر گرفته توسط افراد غیرمجاز مورد بازدید قرار گرفته و اکنون به سمت آب‌های سرزمینی ایران در حرکت است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20109
-
-<div align="center"><img src="telegram/content/IranianMinds_20109.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
-
-👍دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-re24
-🔔کانال دربی بت :
-🪙https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20107
-
-<div align="center"><img src="telegram/content/IranianMinds_20107.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ و رئیس جمهور‌ چین در معبد بهشت پکن
 
 @IranianMinds
 </div>

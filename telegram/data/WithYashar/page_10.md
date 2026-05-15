@@ -1,8 +1,35 @@
 # آرشیو کانال WithYashar - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/02/26 01:16
+📅 آخرین بروزرسانی: 1405/02/26 01:50
 
 ---
+
+## WithYashar — post 11174
+
+<div align="center"><video src="telegram/content/WithYashar_11174.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11174.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## WithYashar — post 11173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درودی دوباره یاشار جان
+میشه سوال منو ج بدین چرا ترامپ وقتی وارد چین شد نیومد ریس جمهور استقبالش در صورتی که باید بیاد ؟
+</div>
+
+## WithYashar — post 11172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال N12: ترامپ داره به صدور دستور برای از سرگیری درگیری با ایران فکر می‌کنه
+@withyashar
+</div>
+
+## WithYashar — post 11171
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ائتلاف حاکم در اسرائیل پیشنهاد انحلال کنست در تدارک برای برگزاری انتخابات زودهنگام را ارائه کرد.
+@withyashar
+</div>
 
 ## WithYashar — post 11170
 
@@ -127,39 +154,5 @@ https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 احسان افرشته، به اتهام جاسوسی و همکاری اطلاعاتی با موساد اعدام شد به گفته رژیم وی چند مرحله تماس از طریق پیام‌رسان‌ها داشته و در ادامه از طریق پست الکترونیک باهم در ارتباط بوده‌اند بیش از ۳۰۰ پیام بین آنها رد و بدل شده است. افرشته در ابتدا در پوشش راننده تاکسی…
-</div>
-
-## WithYashar — post 11154
-
-<div align="center"><video src="telegram/content/WithYashar_11154.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11154.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بی‌حرکت ایستادن کامل افسر چینی هنگام عبور هواپیمای رئیس جمهور آمریکا (ایر فورس وان) در چند متری او، توجه بسیاری از رسانه‌ها را به خود جلب کرد
-@withyashar
-</div>
-
-## WithYashar — post 11153
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک مقام ارشد کُرد در گفتگو با کانال۱۳ اسرائیل:
-در واقع خود پرزیدنت ترامپ مانع از طرح اقدام ما علیه حکومت ایران شد و اتهامات او در مورد ضبط سلاح های معترضین در ایران توسط کُردها، ناعادلانه و غیرمنطقی است
-@withyashar
-</div>
-
-## WithYashar — post 11152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اتاق جنگ با شما : گزارش از جنگنده های ناشناس پرواز در ارتفاع پایین در‌ ارومیه و انفجار در شیراز
-@withyashar
-</div>
-
-## WithYashar — post 11151
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایال زامیر ، رئیس ستاد ارتش اسرائیل:
-نبرد تمام نشده است، ارتش اسرائیل آماده از سرگیری نبرد در صورت نیاز از کرانه باختری تا تهران است
-@withyashar
 </div>
 

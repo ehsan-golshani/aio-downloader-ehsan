@@ -1,8 +1,60 @@
 # آرشیو کانال alonews - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 01:34
+📅 آخرین بروزرسانی: 1405/02/26 02:08
 
 ---
+
+## alonews — post 120254
+
+<div align="center"><video src="telegram/content/alonews_120254.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120254.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عضو کمیسیون انرژی مجلس: دولت به دنبال افزایش قیمت بنزین است؛ مجلس مخالف است و اجازه نخواهد داد!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120253
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رضا پهلوی: هرکسی که در ایست بازرسی کمک کند و یا برای نهادهای امنیتی خبرچینی کند و یا اموال مصادره شده معترضان را خرید و فروش کند؛ در فردای آزادی مجازات می شود
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120247
+
+<div align="center"><video src="telegram/content/alonews_120247.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120247.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈تصاویری از حملات به یکی از پایگاه هوای ایران طی جنگ که نشان دهنده انهدام تعدادی از هواگردها درون آشیانه و همچنین هواپیماهای فوکر نیروی دریایی بر روی زمین است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120245
+
+<div align="center"><video src="telegram/content/alonews_120245.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120245.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈محل ترور عزالدین حداد فرمانده گردان های القسام در شهر غزه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120244
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رضا سپهوند، عضو کمیسیون انرژی مجلس: یه دلیل بمباران جنگ، روزانه ۳۰ میلیون لیتر کمبود بنزین داریم و در کوتاه‌مدت هم امکان افزایش تولید وجود ندارد، راهی جز صرفه جویی نداریم
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120243
 
@@ -143,60 +195,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈حمله‌های امروزِ ارتش اسرائیل به جنوب لبنان
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رئیس ستاد کل ارتش اسرائیل هم به امارات سفر مخفیانه داشته
-
-🔴به گزارش خبرگزاری کان اسرائیل، ایال زمیر، رئیس ستاد کل ارتش اسرائیل، در طول جنگ ایران سفری مخفیانه به امارات متحده عربی داشت و در آنجا با محمد بن زاید آل نهیان، رئیس امارات متحده عربی، گفتگو کرد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈چین از پذیرش دعوت سفر شی به آمریکا خبر داد
-
-🔴وانگ یی، وزیر خارجه چین اعلام کرد که شی جین‌پینگ رئیس جمهوری چین، دعوت ترامپ برای دیدار از آمریکا را پذیرفته است.
-
-🔴این دیدار پاییز سال جاری انجام خواهد شد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120218
-
-<div align="center"><img src="telegram/content/alonews_120218.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رسایی:
-هر صحبت یا مذاکره‌ای باید با اجازه مجلس باشه
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120217
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فروش کانفیگ متصل پایدار با ساب و مورد تایید مجموعه الونیوز⬇️
-
-
-🔔@FastProxyMakerBot
-
-🔔@FastProxyMakerBot
-
-✔️با خیال راحت و بدون دغدغه خرید کنید
-</div>
-
-## alonews — post 120216
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈بلومبرگ: امارات به دنبال پاسخ هماهنگ به ایران بود، اما عربستان و قطر با آن همراهی نکردند
 
 ✅ @AloNews خبر جنگ
 </div>

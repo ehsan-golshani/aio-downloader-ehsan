@@ -1,8 +1,54 @@
 # آرشیو کانال alonews - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 01:34
+📅 آخرین بروزرسانی: 1405/02/26 02:08
 
 ---
+
+## alonews — post 120170
+
+<div align="center"><img src="telegram/content/alonews_120170.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ارتش اسرائیل دستور تخلیه به ساکنان: عین بعال، الخریب، الزراریه، عرب سلیم و عرب الجل (صیدا) در جنوب لبنان صادر کرده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: اگر 9 ماه پیش از بمب‌ افکن‌های B-2 استفاده نمی‌کردم، ایران اکنون می‌توانست به سلاح هسته‌ای دست یابد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: به رئیس جمهور چین گفتم در مورد پرونده تایوان صحبت نمی کنم
+
+🔴چینی ها عملیات جاسوسی انجام می دهند و ما نیز عملیات جاسوسی انجام می دهیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: میتوانیم نیروگاه‌های ایران را تنها در دو روز از بین ببریم
+
+🔴اگر ایران اورانیوم های غنی شده خودش رو تحویل نده وارد ایران میشیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: ما ارتش ایران را نابود کرده‌ایم و شاید باید یک پاکسازی سبک انجام دهیم.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120165
 
@@ -136,97 +182,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈دستگیری ۲۲۳ نفر از اتباع بیگانه غیرمجاز در زاهدان
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120118
-
-<div align="center"><video src="telegram/content/alonews_120118.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120118.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 فایننشال‌تایمز: اگر تا ماه آینده تنگهٔ هرمز باز نشود، به‌دلیل تخلیهٔ ذخایر استراتژیک شاهد موج گسترده‌تری از کمبودهای جهانی و افزایش قیمت‌ها در حوزهٔ انرژی خواهیم بود
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120117
-
-<div align="center"><video src="telegram/content/alonews_120117.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120117.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار الجزیره: تهران به‌طور رسمی پاسخ واشنگتن به پیشنهاد خود را دریافت کرده است و ایالات متحده تمامی شروط ایران را رد کرده است
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120116
-
-<div align="center"><video src="telegram/content/alonews_120116.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120116.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈امارات ظرفیت صادرات نفت بدون عبور از تنگه هرمز را دو برابر می‌کند
-
-
-
-🔴امارات متحده عربی اعلام کرد تا سال ۲۰۲۷ ظرفیت صادرات نفت خام خود بدون نیاز به عبور از تنگه هرمز را دو برابر خواهد کرد.
-
-
-🔴بر اساس گزارش‌ها: شرکت ملی نفت ابوظبی در حال ساخت خط لوله جدیدی به بندر فجیره در دریای عمان است
-
-
-🔴هدف این پروژه کاهش وابستگی به تنگه هرمز عنوان شده است
-
-
-🔴بسته‌شدن مسیر هرمز در جریان جنگ اخیر علیه ایران، بازارهای جهانی را دچار بحران کرده است.
-
-
-🔴امارات هم‌اکنون نیز یک خط لوله با ظرفیت روزانه ۱.۵ میلیون بشکه از میادین نفتی داخلی به بندر فجیره در اختیار دارد.
-
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120115
-
-<div align="center"><video src="telegram/content/alonews_120115.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120115.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عراقچی : مشکل اصلی اینه که آمریکا هر روز یه حرف می‌زنه و پیام‌های ضدونقیض می‌فرسته
-
-
-🔴در مورد ایران هیچ راه‌حل نظامی‌ای جواب نمی‌ده
-
-
-🔴 این همه مدت هی تهدید کردن، ولی نه نتیجه‌ای گرفتن نه از جنگی که راه انداختن چیزی گیرشون اومد
-
-
-🔴هرچی بیشتر تهدید کنن، بیشتر شکست می‌خورن.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120114
-
-<div align="center"><video src="telegram/content/alonews_120114.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120114.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈هواپیماهای باری نظامی آذربایجان از طریق حریم هوایی ترکیه به سمت تل آویو در حرکت هستند.
 
 
 ✅ @AloNews خبر جنگ

@@ -1,8 +1,108 @@
 # آرشیو کانال IranianMinds - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 00:22
+📅 آخرین بروزرسانی: 1405/02/26 02:03
 
 ---
+
+## IranianMinds — post 20114
+
+<div align="center"><video src="telegram/content/IranianMinds_20114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 وزیر دارایی اسرائیل:
+
+فکر می‌کنم در همین دوره، عملا داریم ایده تشکیل کشور فلسطین را کاملا از بین میبریم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20113
+
+<div align="center"><video src="telegram/content/IranianMinds_20113.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20113.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 جان بولتون:
+
+مذاکره برای توافق هسته ‌ای با ایران، هدر دادن وقته.
+
+این ‌ها دهه ‌ها پیش تصمیم راهبردی ‌شان را برای رسیدن به سلاح هسته‌ای گرفته‌اند.
+
+در این ۴۷ سال اخیر حتی یک مدرک هم وجود نداشته که نشان بدهد از این هدف ساخت سلاح هسته ای عقب کشیده‌ اند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20112
+
+<div align="center"><video src="telegram/content/IranianMinds_20112.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20112.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نتانیاهو:
+
+همون ‌طور که یه متفکری یه بار فکر کنم تو روسیه بود بهم گفت اسرائیل یه ابرقدرت کوچیکه، ولی بازم ابرقدرته.
+
+ما قراره به یه ابرقدرت بزرگ و جهانی تبدیل بشیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20111
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 مهدی تاج رئیس فدراسیون فوتبال : معین قراره برای تیم ملی یه آهنگ بخونه ! @IranianMinds
+</div>
+
+## IranianMinds — post 20110
+
+<div align="center"><img src="telegram/content/IranianMinds_20110.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سازمان تجارت دریایی بریتانیا گزارش داد که یک حادثه در فاصله ۳۸ مایل دریایی شمال‌شرق فجیره در امارات رخ داده است.
+
+گزارش‌ها حاکی است که یک کشتی لنگر گرفته توسط افراد غیرمجاز مورد بازدید قرار گرفته و اکنون به سمت آب‌های سرزمینی ایران در حرکت است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20109
+
+<div align="center"><img src="telegram/content/IranianMinds_20109.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
+
+👍دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+re24
+🔔کانال دربی بت :
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 20107
+
+<div align="center"><img src="telegram/content/IranianMinds_20107.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ و رئیس جمهور‌ چین در معبد بهشت پکن
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20105
 
@@ -184,86 +284,6 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 🔴 وزیر خارجه سوریه :
 
 میخوایم روابطمون با داداشیمون اسرائیل رو قوی تر کنیم و به حاکمیت هم احترام بزاریم
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20092
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 گوگل رسما اعلام کرد در جام جهانی اسپانسری تیم های ملی عراق و مراکش رو گرفته و تمامی هزینه های این تیم هارو‌ میده.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عراقچی :
-
-هرکسی بخواد با ما دشمنی کنه و با اسرائیل تبانی کنه بد پشیمون میشه
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20090
-
-<div align="center"><img src="telegram/content/IranianMinds_20090.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-املت هم‌ تو‌ این مملکت قسطی شد
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20089
-
-<div align="center"><video src="telegram/content/IranianMinds_20089.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20089.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مهدی تاج رئیس فدراسیون فوتبال :
-
-معین قراره برای تیم ملی یه آهنگ بخونه !
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20088
-
-<div align="center"><img src="telegram/content/IranianMinds_20088.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴رئیس جمهور ترامپ آماده است عملیات پتک را علیه رژیم تروریستی ایران آغاز نماید.
-دولت او می‌گوید این اقدام، ساعت قانونی اختیارات جنگی را دوباره تنظیم می‌کند و ۶۰ روز فرصت عملیات رزمی پیش از دخالت کنگره می‌دهد.
-رژیم ایران دستپاچه در حال آماده‌سازی است، اما عملیات به احتمال زیاد بلا‌فاصله پس از سفر رسمی چین آغاز خواهد شد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20087
-
-<div align="center"><img src="telegram/content/IranianMinds_20087.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اکانت اسرائیل به فارسی:
-
-محمد عباسی و دخترش فاطمه در دی‌ماه دستگیر شدند.
-محمد را بدون ملاقات آخر، امروز صبح اعدام کردند.
-جمهوری اسلامی روی خون مردمش حکومت می‌کند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴شهبازی، مجری صدا‌و‌سیما:
-
-بهترین کار نظام تو ۴۷ سال گذشته، ملی کردن اینترنت بود.
-
-ای حرومزاده ۱۰۰۰ پدر .
 
 @IranianMinds
 </div>

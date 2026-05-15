@@ -1,8 +1,100 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 00:22
+📅 آخرین بروزرسانی: 1405/02/26 02:03
 
 ---
+
+## IranianMinds — post 20219
+
+<div align="center"><video src="telegram/content/IranianMinds_20219.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20219.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباس یه بار فقط بگو بله مامان 😭
+
+🔴 جاوید نام عباس کشاورز ۳۹ ساله اهل روستای لفمجان لاهیجان پدر ارشا ۱۲ ساله …
+
+او در شب ۱۹ دی ۱۴۰۴ در جریان اعتراضات در شهر رشت، در محدوده میدان صیقلان، با شلیک مستقیم گلوله کشته شد.
+
+جاویدنامان فراموش نمیشوند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20218
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط کافیه مرغ از خیابون رد کنی و‌پولت چند برابر کنی💵👌
+</div>
+
+## IranianMinds — post 20217
+
+<div align="center"><video src="telegram/content/IranianMinds_20217.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20217.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
+ae25
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
+
+## IranianMinds — post 20216
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 کانال ۱۳ اسرائیل:
+
+برآوردها حاکی از آن است که ترامپ چراغ سبز برای حمله محدود به مواضع رژیم ملاها را خواهد داد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20215
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سازمان ملل: نگرانیم، چون ممکنه منطقه بازم دچار تنش و درگیری بشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20214
+
+<div align="center"><img src="telegram/content/IranianMinds_20214.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴جلد جدید مجله تایم:
+
+چگونه دیدار ترامپ و شی، یک نظم نوین جهانی را به نمایش گذاشت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20213
+
+<div align="center"><img src="telegram/content/IranianMinds_20213.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نیویورک تایمز :
+
+ترامپ پس از بازگشت از چین، در حالی که مشاوران ارشد و مقامات پنتاگون برنامه‌های احتمالی برای حملات مجدد به ایران در صورت شکست مذاکرات صلح را نهایی می‌کردند، وارد آمریکا شد.
+
+اگرچه ترامپ هنوز تصمیم نهایی نگرفته است، گزارش‌ها حاکی از آن است که مقامات آمریکایی و اسرائیلی برای حملاتی که ممکن است طی روزهای آینده آغاز شوند، آماده می‌شوند.
+
+برنامه‌ریزان نظامی درباره گسترش کمپین‌های بمباران و حتی مأموریت‌های عملیات ویژه برای هدف قرار دادن تأسیسات هسته‌ای زیرزمینی ایران بحث کرده‌اند!
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20212
 
@@ -164,92 +256,5 @@ https://iranopasmigirim.com/fa/transitional-justice
 ➖➖➖➖➖➖➖➖➖
 🪙همین حالا عضو شوید 👇
 https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20198
-
-<div align="center"><img src="telegram/content/IranianMinds_20198.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
-
-👍دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-ge25
-🔔کانال دربی بت :
-🪙https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20197
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کان‌نیوز:
-
-علاوه بر نخست‌وزیر نتانیاهو، ایال زامیر رئیس کل ارتش اسرائیل هم سفری مخفیانه به امارات داشته است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴موسوی‌فرد، امام جمعه اهواز:
-
-جمهوری اسلامی، آمریکا را در شرایطی قرار داده است که نه راه پس دارد و نه راه پیش.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20195
-
-<div align="center"><img src="telegram/content/IranianMinds_20195.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرنگار نیویورک‌‌پست:
-
-اعضای هیئت امریکایی همراه ترامپ، قبل از سوار شدن به ایر‌فورس‌وان و ترک چین، همه هدیه‌هایی که چینی‌ها بهشون داده بودند رو درون سطل زباله ریختند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20194
-
-<div align="center"><img src="telegram/content/IranianMinds_20194.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پست کاخ سفید در ایکس:
-حمایت از آلبوم دریک.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وزیر امور‌خارجه چین:
-
-ما خواستار بازگشایی هرچه سریعتر تنگه هرمز هستیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تهران‌تایمز:
-
-آمریکا پیشنهاد ۱۴ ماده‌ای جمهوری اسلامی برای پایان جنگ را رد کرده و بار دیگر بر مواضع خود، به ویژه درباره پرونده هسته‌ای تأکید کرده است.
-
-@IranianMinds
 </div>
 

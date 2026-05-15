@@ -1,8 +1,56 @@
 # آرشیو کانال alonews - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/02/26 01:34
+📅 آخرین بروزرسانی: 1405/02/26 02:08
 
 ---
+
+## alonews — post 119829
+
+<div align="center"><img src="telegram/content/alonews_119829.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خیلی شیک و‌ مجلسی روی شیشه دفاتر پیشخوان آگهی فروش اینترنت پرو میزنن که تلگرام هم روش بدون فیلتره.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119828
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مدیرعامل شهر فرودگاهی امام : روزانه بین ۳۵ تا ۴۰ پرواز از فرودگاه انجام می‌شود.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119827
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خوش‌چشم: ترامپ رفته چین التماس کنه تا میانجی بشه که ایران جنگ رو تموم کنه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119826
+
+<div align="center"><video src="telegram/content/alonews_119826.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119826.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈تمرینه بمب‌افکنِ " B-52 " و فرود به پایگاه فِرفورد بریتانیا
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119825
+
+<div align="center"><img src="telegram/content/alonews_119825.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈بابک زنجانی: در تاریخ ۲۸ خرداد، شبکه اجتماعی مای دات به‌صورت فراگیر برای عموم بازگشایی و طی مراسمی در برج میلاد رونمایی خواهد شد.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119824
 
@@ -148,43 +196,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈کاخ سفید در نظر دارد که رئیس‌جمهور ترامپ به مناسبت ۲۵۰امین سالگرد آمریکا، ۲۵۰ عفو صادر کند، احتمالاً در ۱۴ ژوئن یا ۴ ژوئیه، طبق گزارش WSJ
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119808
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جنیفر جیکوبز خبرنگار سی‌بی‌اس:
-جی‌دی ونس معاون رئیس‌جمهور امریکا به من گفت که امروز صبح با جرد کوشنر و استیو ویتکاف درباره ایران گفتگو کرده، همچنین با مقامات عرب.
-
-🔴او مدعی شد که پیشرفت‌ در حال حصول است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119807
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر خارجه کوبا: حمله آمریکا منجر به حمام خون خواهد شد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119806
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سوپراپلیکیشن ایتا اعلام کرد امکان ارسال فایل تا حجم ۲۰ مگابایت مجدداً برای همه کاربران فراهم شده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119805
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ادعای ونس، معاون رئیس‌جمهور آمریکا: ما درگیر یک فرایند دیپلماتیک فعال برای اطمینان از نداشتن سلاح هسته‌ای توسط ایران هستیم
-
-🔴رئیس‌جمهور گزینه‌های متعددی دیپلماتیک و نظامی پیش رو دارد.
 
 ✅ @AloNews خبر جنگ
 </div>

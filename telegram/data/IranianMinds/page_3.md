@@ -1,8 +1,80 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 00:22
+📅 آخرین بروزرسانی: 1405/02/26 02:03
 
 ---
+
+## IranianMinds — post 20178
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+در مورد تایوان هیچ تعهدی به رئیس جمهور چین ندادم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20177
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+رئیس‌ جمهور چین به من اطمینان داد که با داشتن سلاح هسته‌ای ایران مخالف است
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ به رویترز :
+
+من مانعی ندارم که ایران برنامه هسته‌ای خود را برای ۲۰ سال متوقف کند، اما این باید یک تعهد واقعی باشد!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20175
+
+<div align="center"><img src="telegram/content/IranianMinds_20175.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😂😂😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 عراقچی:
+
+موضوع اورانیوم غنی شده بسیار پیچیده است و ما با واشنگتن به تفاهم رسیدیم تا آن را به مرحله دیگری از مذاکرات موکول کنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 عراقچی :
+
+آمریکا با راه نظامی هرگز نمیتونه مارو شکست بده و به اهدافش برسه ، ولی اگه دیپلماسی رو امتحان میکرد شاید متفاوت بود
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20171
+
+<div align="center"><img src="telegram/content/IranianMinds_20171.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نیویورک پست:
+
+اف‌بی‌آی جایزه‌ای ۲۰۰ هزار دلاری برای دستگیری مونیکا ویت، مأمور سابق اطلاعات نیروی هوایی آمریکا که از سال ۲۰۱۹ متهم به جاسوسی برای ایران است، اعلام کرده است
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20170
 
@@ -171,87 +243,5 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 92.122.123.128 65.109.34.234 94.130.70.160 63.141.252.203 94.130.50.12 50.7.5.83 142.54.178.211 94.130.33.41 144.76.1.88 138.201.54.122 95.216.69.37 94.130.13.19 این ایپی هارو‌ هم تست کنید @IranianMinds
-</div>
-
-## IranianMinds — post 20157
-
-<div align="center"><img src="telegram/content/IranianMinds_20157.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ :
-
-وقتی رئیس‌جمهور شی به‌ طور محترمانه آمریکا را کشور در حال افول نامید، منظورش آسیب‌های عظیمی بود که طی چهار سال حکومت «جو خواب‌آلود» و دولت بایدن متحمل شدیم: مرزهای باز، مالیات‌های بالا، ورود ترنس‌ها به همه‌جا، مردان در ورزش‌های زنان، DEI، توافق‌های تجاری وحشتناک، جرم و جنایت گسترده و خیلی چیزهای دیگر!.
-
-دو سال پیش، ما واقعاً در حال افول بودیم، در این مورد با رئیس‌جمهور شی کاملاً موافقم! اما حالا آمریکا داغ‌ترین کشور جهان است و امیدوارم روابط ما با چین قوی‌تر و بهتر از همیشه باشد!
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی شما : اگر شیر و خورشید وصل نمیشه براتون، طبق راهنمای زیر عمل کنید. وارد بخش Options اپلیکیشن بشید، گزینه‌ی More Options رو انتخاب کنید و در قسمت CDN Edge IPs، آی‌پی زیر و در قسمت CDN SNI Hostname، نام دامنه زیر رو وارد کنید بعد OK رو بزنید. CDN…
-</div>
-
-## IranianMinds — post 20154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی شما :
-
-اگر شیر و خورشید وصل نمیشه براتون، طبق راهنمای زیر عمل کنید.
-
-وارد بخش Options اپلیکیشن بشید، گزینه‌ی More Options رو انتخاب کنید و در قسمت CDN Edge IPs، آی‌پی زیر و در قسمت CDN SNI Hostname، نام دامنه زیر رو وارد کنید بعد OK رو بزنید.
-
-CDN Edge IPs: 151.101.192.223
-CDN SNI Hostname: python.org
-
-سپس به صفحه ی اصلی برگردید و START رو بزنید
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب ویو ها بهتر شده
-بعضیاتون برگشتید
-
-امیدوارم بزودی همه برگردن
-</div>
-
-## IranianMinds — post 20151
-
-<div align="center"><img src="telegram/content/IranianMinds_20151.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست خواهر جاویدنام سپهر ابراهیمی .
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20150
-
-<div align="center"><video src="telegram/content/IranianMinds_20150.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20150.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو کوبا هم‌ مردم ریختن بیرون دارن اعتراض میکنن
-
-مردم کوبا روزانه حدود ۲۳ تا ۲۲ ساعت برق ندارن تو‌ بعضی مناطق
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20149
-
-<div align="center"><img src="telegram/content/IranianMinds_20149.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کان‌نیوز:
-
-اسرائیل معتقد است که ترامپ وقتی از چین برگرده، درباره حمله مجدد به ایران تصمیم‌گیری میکنه.
-
-@IranianMinds
 </div>
 

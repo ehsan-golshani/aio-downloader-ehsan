@@ -1,8 +1,32 @@
 # آرشیو کانال FarsiVOA - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 01:26
+📅 آخرین بروزرسانی: 1405/02/26 02:01
 
 ---
+
+## FarsiVOA — post 217819
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺ترامپ: با تعلیق ۲۰ ساله برنامه هسته‌ای ایران موافقم، «اگر یک تعهد واقعی باشد»
+
+▪️پرزیدنت ترامپ با غیرقابل قبول خواندن تازه‌ترین پیشنهاد رژیم ایران، اشاره کرد که تعلیق ۲۰ساله، به شرط این که واقعا ۲۰ سال تضمین شده باشد، کافی است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/8150374.html/?nocach=1
+</div>
+
+## FarsiVOA — post 217818
+
+<div align="center"><video src="telegram/content/FarsiVOA_217818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگنده‌های اف-۱۶ امارات متحده عربی، هواپیمای حامل نارندرا مودی، نخست‌وزیر هند، را هنگام عبور از حریم هوایی امارات اسکورت کردند.
+
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217817
 
@@ -272,28 +296,6 @@ https://ir.voanews.com/a/8150358.html
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️گفت‌و‌گو با شاهین نژاد درباره ابعاد سیاسی و اقتصادی سفر پرزیدنت ترامپ به چین
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217799
-
-<div align="center"><video src="telegram/content/FarsiVOA_217799.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217799.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️پیاده‌روی دونالد ترامپ و شی جین‌پینگ
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217798
-
-<div align="center"><video src="telegram/content/FarsiVOA_217798.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217798.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️دونالد ترامپ: آمریکا و چین خواهان بازشدن تنگه هرمز هستند
 @FarsiVOA
 </div>
 

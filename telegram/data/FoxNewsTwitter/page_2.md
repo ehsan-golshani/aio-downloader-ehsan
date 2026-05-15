@@ -1,8 +1,24 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 00:10
+📅 آخرین بروزرسانی: 1405/02/26 01:52
 
 ---
+
+## FoxNewsTwitter — post 341777
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341777.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+“Senior’s Day at Gold’s in Venice.”
+
+Health and Human Services Secretary Robert F. Kennedy Jr. and Hollywood icon Arnold Schwarzenegger showcase their longtime friendship during a workout session at Gold’s Gym Venice.
+
+This isn’t the first time the pair have worked out together, the former governor gave a look inside their friendship during an interview last year, saying, "We've worked out together and go gym and stuff like that, and I always was a big supporter of his."
+
+Schwarzenegger was previously married to Kennedy's cousin, journalist Maria Shriver, from 1986 until 2011.
+</div>
 
 ## FoxNewsTwitter — post 341773
 
@@ -250,25 +266,5 @@ Fox News (Twitter/X)
 AOC ripped the Trump administration over spending on the National Mall reflecting pool and the planned White House ballroom, arguing that Americans are struggling to afford groceries, rent, and mortgages.
 
 She called the priorities “deeply out of touch” and “insulting” to everyday people.
-</div>
-
-## FoxNewsTwitter — post 341754
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341754.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341754.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump tells @seanhannity that Chinese President Xi Jinping offered to assist the U.S. in negotiating with Iran to reopen the Strait of Hormuz.
-
-Trump notes that China’s significant oil interests play a major role in its desire to keep the critical waterway open and stable.
-
-“President Xi would like to see a deal made. He would like to see a deal made. And he did offer, he said, ‘If I can be of any help at all, I would like to be of help.’”
-
-"He said 'If I could be of any help whatsoever, I would like to help.'"
-
-The full interview airs tonight at 9 p.m. ET on 'Hannity.'
 </div>
 

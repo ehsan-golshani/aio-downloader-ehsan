@@ -1,8 +1,21 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 01:28
+📅 آخرین بروزرسانی: 1405/02/26 02:02
 
 ---
+
+## Persian_Trend_Official — post 14101
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش صداوسیما از احسان افرشته و روایت عجیب از جاسوسی !
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14099
 
@@ -356,11 +369,5 @@
 
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://youtube.com/live/xKXwDy6wYig?feature=share
 </div>
 

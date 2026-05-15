@@ -1,8 +1,22 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 00:10
+📅 آخرین بروزرسانی: 1405/02/26 01:52
 
 ---
+
+## FoxNewsTwitter — post 341734
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341734.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: Spencer Pratt is suddenly within single digits of L.A. Mayor Karen Bass, with new polling showing the former reality TV star and independent candidate gaining 12 points since March.
+
+The Emerson poll has Bass at 30%, Pratt at 22%, and socialist-linked Nithya Raman at 19%
+
+Pratt’s campaign is leaning hard into L.A.’s homelessness crisis, using sharp social media and attention-grabbing ads to turn a long-shot bid into a race people are now watching.
+</div>
 
 ## FoxNewsTwitter — post 341733
 
@@ -252,21 +266,5 @@ NOW: "This is a great honor. It was a fantastic day.
 "It really was a magnificent welcome like none other. And for so graciously hosting us on this very historic state visit."
 
 "This evening is another cherished opportunity to discuss among friends some of the things that we discussed today. All good for the United States and for China. And it was a great honor to be with you." – President Trump
-</div>
-
-## FoxNewsTwitter — post 341708
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341708.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341708.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Xi welcomes President Trump to at the Chinese state banquet in Beijing:
-
-"Honorable president Donald J. Trump. Ladies and gentlemen, it is a great pleasure to host the state banquet in honor of President Trump during his state visit to China."
-
-"On behalf of the Chinese government and people, I would like to extend a warm welcome to President Trump and the US delegation."
 </div>
 

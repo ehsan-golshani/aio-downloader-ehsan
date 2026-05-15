@@ -1,8 +1,24 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 00:10
+📅 آخرین بروزرسانی: 1405/02/26 01:52
 
 ---
+
+## FoxNewsTwitter — post 341708
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341708.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341708.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Xi welcomes President Trump to at the Chinese state banquet in Beijing:
+
+"Honorable president Donald J. Trump. Ladies and gentlemen, it is a great pleasure to host the state banquet in honor of President Trump during his state visit to China."
+
+"On behalf of the Chinese government and people, I would like to extend a warm welcome to President Trump and the US delegation."
+</div>
 
 ## FoxNewsTwitter — post 341707
 
@@ -243,19 +259,5 @@ Fox News (Twitter/X)
 "There is no economy in Cuba."
 
 Secretary Rubio says he doesn't believe the economic trajectory of Cuba can change under the current government.
-</div>
-
-## FoxNewsTwitter — post 341688
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341688.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341688.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: Secretary Rubio says stepping behind the White House press secretary podium wasn't "too bad," but he's not sure if he'd have fun if he had to do it every week.
-
-"Karoline is irreplaceable....We can't wait until Karoline gets back." |@seanhannity
 </div>
 

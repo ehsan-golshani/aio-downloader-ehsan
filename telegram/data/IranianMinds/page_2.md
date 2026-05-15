@@ -1,8 +1,95 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 00:22
+📅 آخرین بروزرسانی: 1405/02/26 02:03
 
 ---
+
+## IranianMinds — post 20198
+
+<div align="center"><img src="telegram/content/IranianMinds_20198.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
+
+👍دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+ge25
+🔔کانال دربی بت :
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 20197
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کان‌نیوز:
+
+علاوه بر نخست‌وزیر نتانیاهو، ایال زامیر رئیس کل ارتش اسرائیل هم سفری مخفیانه به امارات داشته است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴موسوی‌فرد، امام جمعه اهواز:
+
+جمهوری اسلامی، آمریکا را در شرایطی قرار داده است که نه راه پس دارد و نه راه پیش.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20195
+
+<div align="center"><img src="telegram/content/IranianMinds_20195.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرنگار نیویورک‌‌پست:
+
+اعضای هیئت امریکایی همراه ترامپ، قبل از سوار شدن به ایر‌فورس‌وان و ترک چین، همه هدیه‌هایی که چینی‌ها بهشون داده بودند رو درون سطل زباله ریختند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20194
+
+<div align="center"><img src="telegram/content/IranianMinds_20194.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست کاخ سفید در ایکس:
+حمایت از آلبوم دریک.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وزیر امور‌خارجه چین:
+
+ما خواستار بازگشایی هرچه سریعتر تنگه هرمز هستیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تهران‌تایمز:
+
+آمریکا پیشنهاد ۱۴ ماده‌ای جمهوری اسلامی برای پایان جنگ را رد کرده و بار دیگر بر مواضع خود، به ویژه درباره پرونده هسته‌ای تأکید کرده است.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20191
 
@@ -140,78 +227,6 @@
 🔴 ترامپ در مورد توقف فعالیت هسته ای ایران:
 
 ۲۰ سال کافی است. اما میزان تضمینی که از طرف آن‌ها داده می‌شود… باید واقعاً ۲۰ سال باشد
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20178
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-در مورد تایوان هیچ تعهدی به رئیس جمهور چین ندادم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20177
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-رئیس‌ جمهور چین به من اطمینان داد که با داشتن سلاح هسته‌ای ایران مخالف است
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ به رویترز :
-
-من مانعی ندارم که ایران برنامه هسته‌ای خود را برای ۲۰ سال متوقف کند، اما این باید یک تعهد واقعی باشد!
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20175
-
-<div align="center"><img src="telegram/content/IranianMinds_20175.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😂😂😂
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20174
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عراقچی:
-
-موضوع اورانیوم غنی شده بسیار پیچیده است و ما با واشنگتن به تفاهم رسیدیم تا آن را به مرحله دیگری از مذاکرات موکول کنیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20172
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عراقچی :
-
-آمریکا با راه نظامی هرگز نمیتونه مارو شکست بده و به اهدافش برسه ، ولی اگه دیپلماسی رو امتحان میکرد شاید متفاوت بود
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20171
-
-<div align="center"><img src="telegram/content/IranianMinds_20171.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نیویورک پست:
-
-اف‌بی‌آی جایزه‌ای ۲۰۰ هزار دلاری برای دستگیری مونیکا ویت، مأمور سابق اطلاعات نیروی هوایی آمریکا که از سال ۲۰۱۹ متهم به جاسوسی برای ایران است، اعلام کرده است
 
 @IranianMinds
 </div>

@@ -1,8 +1,44 @@
 # آرشیو کانال WithYashar - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 01:16
+📅 آخرین بروزرسانی: 1405/02/26 01:50
 
 ---
+
+## WithYashar — post 11235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ اعلام کرد که انتظار می‌رود پکن ۲۰۰ هواپیما از بوئینگ سفارش دهد.
+@withyashar
+</div>
+
+## WithYashar — post 11234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کان نیوز : مقامات ارشد ارتش اسرائیل و سنتکام هفته گذشته جلسه داشتن و منتظرن ببینن فردا ترامپ بعد اتمام سفرش چه تصمیمی میگیره
+@withyashar
+</div>
+
+## WithYashar — post 11233
+
+<div align="center"><video src="telegram/content/WithYashar_11233.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11233.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اتاق جنگ با یاشار ، شواهد نشان دهنده حمله غافلگیر کننده برای کتلت پزون است
+@withyashar
+</div>
+
+## WithYashar — post 11232
+
+<div align="center"><video src="telegram/content/WithYashar_11232.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11232.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در سال ۱۹۷۲، شهبانو فرح پهلوی به دعوت رسمی دولت چین به این کشور سفر کرد؛ سفری تاریخی و بی‌سابقه که در اوج جنگ سرد، نماد دیپلماسی بی‌طرفانه ایران بود
+@withyashar
+</div>
 
 ## WithYashar — post 11231
 
@@ -139,45 +175,6 @@ INDOPACOM، فرماندهی نظامی آمریکا برای منطقهٔ «ه�
 یه گوشی طلایی ۴۹۹ دلاری با برند ترامپه که
 چیپ اسنپدراگون سری ۷، رم ۱۲ گیگ، حافظه
 ۵۱۲ گیگ و دوربین سه‌گانه ۵۰ مگاپیکسلی دارهبه نظر میاد در اصل یه گوشی ساخت چین باشه که فقط مونتاژ نهاییشو تو آمریکا انجام دادن
-@withyashar
-</div>
-
-## WithYashar — post 11214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارکو روبیو : ترامپ موضوع ایران رو با چین مطرح کرد و این خیلی مهم بود
-
-طرف چینی گفت ما موافق نظامی‌کردن تنگه هرمز نیستیم
-با سیستم عوارض‌گیری هم مخالفیم، و این موضع ما هم هست
-@withyashar
-</div>
-
-## WithYashar — post 11213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر خزانه داری آمریکا:ایران رو انقدر تحت فشار اقتصادی قرار دادیم که توی پرداخت حقوق نیروهاشم به مشکل خورده. دارن نفسای آخرشونو میکشن
-@withyashar
-</div>
-
-## WithYashar — post 11212
-
-<div align="center"><video src="telegram/content/WithYashar_11212.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11212.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر دفاع اسرائیل، اسرائیل کاتز درباره ایران:
-
-ماموریت ما کامل نشده است.ما برای احتمال اینکه ممکن است مجبور شویم دوباره اقدام کنیم - شاید حتی به زودی - آماده‌ایم. اگر اهداف تأمین نشوند، دوباره اقدام خواهیم کرد.
-@withyashar
-</div>
-
-## WithYashar — post 11211
-
-<div align="center"><img src="telegram/content/WithYashar_11211.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلفی لی جون، بنیانگذار و مدیرعامل شیائومی با ایلان ماسک
 @withyashar
 </div>
 

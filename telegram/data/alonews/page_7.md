@@ -1,8 +1,99 @@
 # آرشیو کانال alonews - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 01:34
+📅 آخرین بروزرسانی: 1405/02/26 02:08
 
 ---
+
+## alonews — post 120118
+
+<div align="center"><video src="telegram/content/alonews_120118.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120118.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 فایننشال‌تایمز: اگر تا ماه آینده تنگهٔ هرمز باز نشود، به‌دلیل تخلیهٔ ذخایر استراتژیک شاهد موج گسترده‌تری از کمبودهای جهانی و افزایش قیمت‌ها در حوزهٔ انرژی خواهیم بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120117
+
+<div align="center"><video src="telegram/content/alonews_120117.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120117.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار الجزیره: تهران به‌طور رسمی پاسخ واشنگتن به پیشنهاد خود را دریافت کرده است و ایالات متحده تمامی شروط ایران را رد کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120116
+
+<div align="center"><video src="telegram/content/alonews_120116.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120116.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈امارات ظرفیت صادرات نفت بدون عبور از تنگه هرمز را دو برابر می‌کند
+
+
+
+🔴امارات متحده عربی اعلام کرد تا سال ۲۰۲۷ ظرفیت صادرات نفت خام خود بدون نیاز به عبور از تنگه هرمز را دو برابر خواهد کرد.
+
+
+🔴بر اساس گزارش‌ها: شرکت ملی نفت ابوظبی در حال ساخت خط لوله جدیدی به بندر فجیره در دریای عمان است
+
+
+🔴هدف این پروژه کاهش وابستگی به تنگه هرمز عنوان شده است
+
+
+🔴بسته‌شدن مسیر هرمز در جریان جنگ اخیر علیه ایران، بازارهای جهانی را دچار بحران کرده است.
+
+
+🔴امارات هم‌اکنون نیز یک خط لوله با ظرفیت روزانه ۱.۵ میلیون بشکه از میادین نفتی داخلی به بندر فجیره در اختیار دارد.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120115
+
+<div align="center"><video src="telegram/content/alonews_120115.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120115.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عراقچی : مشکل اصلی اینه که آمریکا هر روز یه حرف می‌زنه و پیام‌های ضدونقیض می‌فرسته
+
+
+🔴در مورد ایران هیچ راه‌حل نظامی‌ای جواب نمی‌ده
+
+
+🔴 این همه مدت هی تهدید کردن، ولی نه نتیجه‌ای گرفتن نه از جنگی که راه انداختن چیزی گیرشون اومد
+
+
+🔴هرچی بیشتر تهدید کنن، بیشتر شکست می‌خورن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120114
+
+<div align="center"><video src="telegram/content/alonews_120114.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120114.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈هواپیماهای باری نظامی آذربایجان از طریق حریم هوایی ترکیه به سمت تل آویو در حرکت هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120113
 
@@ -199,67 +290,6 @@
 👈دونالد ترامپ،در مصاحبه‌ای مدعی شد آنها (چینی‌ها) موافقت کرده‌اند که می‌خواهند از ایالات متحده نفت بخرند.
 
 🔴آنها قرار است به تگزاس بروند. ما قرار است کشتی‌های چینی را به تگزاس و لوئیزیانا و آلاسکا بفرستیم.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120068
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جدیدترین رای گیری برای محدود کردن اختیارات جنگی ترامپ در مجلس آمریکا ۲۱۲ رای مخالف و ۲۱۲ رای موافق آورد و بازم شکست خورد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120067
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 الجزیره از بزرگ‌ترین تبادل اسرا در جنگ یمن خبر داد، بیش از ۱۶۰۰ زندانی آزاد می‌شوند
-
-
-
-🔴 دولت مورد حمایت سازمان ملل در یمن و حوثی‌ها در توافقی که با میانجی‌گری سازمان ملل در اردن امضا شد، بر سر تبادل بیش از ۱۶۰۰ زندانی به توافق رسیدند؛ اقدامی که بزرگ‌ترین مبادله اسرا از زمان آغاز جنگ داخلی یمن در سال ۲۰۱۴ توصیف شده است.
-
-🔴 بر اساس این توافق، حوثی‌ها ۵۸۰ زندانی، از جمله ۷ شهروند سعودی و ۲۰ سودانی را آزاد می‌کنند و در مقابل، دولت یمن ۱۱۰۰ زندانی حوثی را تحویل خواهد داد. مقام‌های دو طرف می‌گویند مجموع افراد مشمول این توافق به حدود ۱۷۲۸ نفر می‌رسد.
-
-🔴 الجزیره گزارش داده دو طرف همچنین بر سر ادامه مذاکرات، بازدید متقابل از بازداشتگاه‌ ها و اجرای عملیات آزادی زندانیان با همکاری کمیته بین‌المللی صلیب سرخ توافق کرده‌اند
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120066
-
-<div align="center"><video src="telegram/content/alonews_120066.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120066.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ در مصاحبه با فاکس‌نیوز: افزایش قیمت بنزین، بهایی است که آمریکایی‌ها باید برای جلوگیری از دستیابی ایران به سلاح هسته‌ای بپردازند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120065
-
-<div align="center"><img src="telegram/content/alonews_120065.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیروهای دفاعی اسرائیل هشدار تخلیه برای چندین شهر در منطقه صور در جنوب لبنان صادر کرده‌اند و نسبت به حملات احتمالی اسرائیل هشدار داده‌اند.
-
-🔴 از ساکنان خواسته شده حداقل ۱ کیلومتر از مناطق مشخص شده فاصله بگیرند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار المیادین در پکن: بسیاری از اظهارات آمریکایی ها می گویند که ترامپ چین را متقاعد کرد که موضع خود را در قبال ایران تغییر دهد و این درست نیست.
-
-🔴موضع چین در قبال ایران روشن، ثابت است و تغییری نکرده است. دیروز به طور کامل از صحبت در این مورد خودداری کرد و هر آنچه خلاف آن شایعه می شود کذب محض است.
-
-🔴 چین صبح امروز تصمیم گرفت موضع خود را از طریق بیانیه کامل وزارت خارجه منتشر کند تا تمام حقیقت روشن شود
 
 ✅ @AloNews خبر جنگ
 </div>

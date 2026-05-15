@@ -1,8 +1,29 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 01:28
+📅 آخرین بروزرسانی: 1405/02/26 02:02
 
 ---
+
+## Persian_Trend_Official — post 14178
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ پکن را ترک کرد؛ پایان سفر رئیس‌جمهور آمریکا به چین
+
+💢دونالد ترامپ پس از پایان سفر خود به چین، سوار بر هواپیمای ریاست‌جمهوری آمریکا پکن را ترک کرد.
+
+در مراسم بدرقه:
+
+▪️ فرش قرمز برای رئیس‌جمهور آمریکا پهن شده بود
+▪️ حاضران پرچم‌های آمریکا و چین را در دست داشتند
+▪️ یک گروه موسیقی نظامی نیز در مراسم خداحافظی اجرا داشت
+
+💢سفر ترامپ به چین با دیدارهای مهم با شی جین‌پینگ و گفت‌وگو درباره موضوعاتی از جمله ایران، تایوان، تجارت و تنگه هرمز همراه بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14177
 
@@ -343,11 +364,5 @@ https://youtube.com/live/SFBV2nP6Gs4?feature=share
 
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://youtube.com/live/SFBV2nP6Gs4?feature=share
 </div>
 

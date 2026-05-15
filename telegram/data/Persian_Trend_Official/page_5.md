@@ -1,8 +1,21 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 01:28
+📅 آخرین بروزرسانی: 1405/02/26 02:02
 
 ---
+
+## Persian_Trend_Official — post 14130
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14130.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، و سرگئی لاوروف، وزیر امور خارجه روسیه، در شهر دهلی نو (پایتخت هند) با یکدیگر دیدار و گفتگو کردند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14121
 
@@ -308,18 +321,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گزارش صداوسیما از احسان افرشته و روایت عجیب از جاسوسی ! 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14101
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش صداوسیما از احسان افرشته و روایت عجیب از جاسوسی !
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>
 

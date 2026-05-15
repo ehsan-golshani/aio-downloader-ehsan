@@ -1,8 +1,30 @@
 # آرشیو کانال FarsiVOA - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 01:26
+📅 آخرین بروزرسانی: 1405/02/26 02:01
 
 ---
+
+## FarsiVOA — post 217799
+
+<div align="center"><video src="telegram/content/FarsiVOA_217799.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217799.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️پیاده‌روی دونالد ترامپ و شی جین‌پینگ
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217798
+
+<div align="center"><video src="telegram/content/FarsiVOA_217798.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217798.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️دونالد ترامپ: آمریکا و چین خواهان بازشدن تنگه هرمز هستند
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217797
 
@@ -181,30 +203,6 @@ https://ir.voanews.com/a/8150103.html
 
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/8150091.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217776
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺وزارت امور خارجه آمریکا: ماموریت امحا اورانیوم غنی‌شده ونزوئلا به‌طور کامل اجرا شد
-
-◾️وزارت امور خارجه آمریکا روز پنجشنبه ۲۴ اردیبهشت در بیانیه‌ای اعلام کرد، اورانیوم‌های غنی شده ونزوئلا با درجه خلوص بالا که اوایل ماه جاری میلادی از ونزوئلا به آمریکا منتقل شده بود، در تاسیسات «ساوانا ریور سایت» متعلق به وزارت انرژی آمریکا در کارولینای جنوبی، امحا شد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8150089.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217775
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺مارکو روبیو: واشنگتن از پکن برای حل بحران جمهوری اسلامی درخواست کمک نکرده است
-
-◾️مارکو روبیو، وزیر خارجه ایالات متحده، روز پنجشنبه ۲۴ اردیبهشت گفت دونالد ترامپ، رئیس جمهوری آمریکا، و شی جین‌پینگ، رئیس جمهوری چین، در دیدار خود در پکن درباره عملیات نظامی علیه جمهوری اسلامی، تنگه هرمز، و مسائل امنیتی خاورمیانه گفت‌وگو کرده‌اند، و هر دو طرف بر مخالفت با «نظامی‌سازی» تنگه هرمز تأکید کرده‌اند.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/marco-rubio-nbc-interview-china-iran-hormuz-strait/8150078.html
 @FarsiVOA
 </div>
 

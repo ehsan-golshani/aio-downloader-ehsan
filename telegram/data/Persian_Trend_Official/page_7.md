@@ -1,8 +1,14 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 01:28
+📅 آخرین بروزرسانی: 1405/02/26 02:02
 
 ---
+
+## Persian_Trend_Official — post 14074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://youtube.com/live/xKXwDy6wYig?feature=share
+</div>
 
 ## Persian_Trend_Official — post 14073
 

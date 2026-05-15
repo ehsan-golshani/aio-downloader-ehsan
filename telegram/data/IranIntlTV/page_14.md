@@ -1,8 +1,66 @@
 # آرشیو کانال IranIntlTV - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/02/26 01:22
+📅 آخرین بروزرسانی: 1405/02/26 01:56
 
 ---
+
+## IranIntlTV — post 337102
+
+<div align="center"><img src="telegram/content/IranIntlTV_337102.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریک اسکات، سناتور جمهوری‌خواه آمریکا، گفت شعار «مرگ بر آمریکا» از سوی جمهوری اسلامی باید جدی گرفته شود و آن را نه یک شعار سیاسی، بلکه «یک وعده» توصیف کرد.
+او در شبکه ایکس نوشت تهران نزدیک به نیم قرن این شعار را تکرار کرده و افزود: «وقتی دشمن به شما می‌گوید چه کسی است، باورش کنید. پیروزی برای آمریکا یک گزینه نیست، تنها گزینه است.»
+
+https://iranintl.com/202605145770
+</div>
+
+## IranIntlTV — post 337101
+
+<div align="center"><img src="telegram/content/IranIntlTV_337101.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شی جین‌پینگ در دیدار با ترامپ در پکن هشدار داد اگر مسئله تایوان به‌درستی مدیریت نشود، چین و آمریکا ممکن است وارد برخورد یا حتی درگیری شوند و روابط دو کشور به «وضعیتی بسیار خطرناک» کشیده شود.
+رییس‌جمهوری چین تایوان را مهم‌ترین موضوع در روابط پکن–واشینگتن خواند. چین این جزیره دموکراتیک را بخشی از قلمرو خود می‌داند، اما تایپه این ادعا را رد می‌کند. پکن همچنین با فروش سلاح آمریکا به تایوان مخالف است.
+
+https://iranintl.com/202605147049
+</div>
+
+## IranIntlTV — post 337100
+
+<div align="center"><video src="telegram/content/IranIntlTV_337100.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337100.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرخط خبرهای پنجشنبه ۲۴ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337099
+
+<div align="center"><img src="telegram/content/IranIntlTV_337099.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ در دیدار با شی‌جین پینگ در پکن این رویداد را «یکی بزرگ‌ترین نشست‌های تاریخ» خواند و گفت در این سفر هیئتی ۳۰ نفره از بزرگ‌ترین و بهترین بازرگانان جهان را به همراه خود آورده است.
+او گفت: «ما از ۳۰ نفر برتر جهان دعوت کردیم. تک‌تک آنها پاسخ مثبت دادند. من نفر دوم یا سوم هیچ شرکتی را نمی‌خواستم؛ فقط برترین‌ها را می‌خواستم. آنها امروز اینجا هستند تا به شما و به چین ادای احترام کنند و مشتاق تجارت و انجام کسب‌وکار هستند و این روند از طرف ما کاملا متقابل خواهد بود.»
+ترامپ گفت: «بسیار مشتاق گفت‌وگوی خود هستم. این گفت‌وگویی بزرگ است. برخی می‌گویند شاید این بزرگ‌ترین نشست تاریخ باشد. آنها هرگز چیزی شبیه به آن را به یاد نمی‌آورند.»
+
+
+https://iranintl.com/202605149590
+</div>
+
+## IranIntlTV — post 337098
+
+<div align="center"><img src="telegram/content/IranIntlTV_337098.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شی جین‌پینگ در دیدار با ترامپ در پکن ابراز امیدواری کرد سال ۲۰۲۶ سالی تاریخی و نقطه‌عطفی برای روابط چین و آمریکا باشد «تا گذشته را ادامه دهد و درها را به روی آینده بگشاید.»
+شی گفت همواره معتقد بوده است منافع مشترک میان چین و آمریکا بر اختلافات دو کشور ارجحیت دارد و موفقیت پکن و واشینگتن فرصتی برای یکدیگر است.
+شی ثبات روابط چین و آمریکا را برای جهان امر مثبتی دانست و گفت مشتاق است درباره مسائل مهم با ترامپ تبادل نظر کند.
+
+https://iranintl.com/202605141916
+</div>
 
 ## IranIntlTV — post 337097
 
@@ -212,77 +270,6 @@ https://youtu.be/HsShW7razys
 
 تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
 https://youtu.be/HsShW7razys
-@iranintltv
-</div>
-
-## IranIntlTV — post 337074
-
-<div align="center"><video src="telegram/content/IranIntlTV_337074.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337074.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احمد از انگلستان: مردم ایران صبرشان استراتژیک و تاریخی است و می‌دانند کی باید به آب بزنند
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/HsShW7razys
-@iranintltv
-</div>
-
-## IranIntlTV — post 337073
-
-<div align="center"><img src="telegram/content/IranIntlTV_337073.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک‌تایمز به نقل از مقام‌های آمریکایی گزارش داد شرکت‌های چینی با جمهوری اسلامی درباره فروش سلاح در حال گفت‌وگو بوده‌اند و قصد داشته‌اند این تسلیحات را از طریق کشورهای دیگر ارسال کنند تا منشا کمک نظامی پنهان بماند.
-مقام‌های آمریکایی گفتند دست‌کم یکی از کشورهای ثالث در آفریقا قرار دارد، اما مشخص نیست آیا محموله‌ای به آن کشور رسیده است یا نه.
-مقام‌هایی که در جریان این اطلاعات قرار گرفته‌اند، درباره اینکه آیا سلاح‌ها پیش‌تر به کشورهای ثالث ارسال شده‌اند یا نه، به جمع‌بندی‌های متفاوتی رسیده‌اند. با این حال، از زمان آغاز جنگ کنونی علیه جمهوری اسلامی، به نظر نمی‌رسد هیچ سلاح چینی در میدان نبرد علیه نیروهای آمریکایی یا اسرائیلی استفاده شده باشد.
-هنوز مشخص نیست چه تعداد سلاح منتقل شده یا مقام‌های چینی تا چه اندازه این فروش‌ها را تایید کرده‌اند.
-
-https://iranintl.com/202605134264
-</div>
-
-## IranIntlTV — post 337072
-
-<div align="center"><video src="telegram/content/IranIntlTV_337072.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337072.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دفتر نخست‌وزیری اسرائیل اعلام کرد بنیامین نتانیاهو در جریان جنگ علیه جمهوری اسلامی به‌صورت محرمانه به امارات سفر و با محمد بن زاید دیدار کرده است. رادیو ملی اسرائیل نیز گزارش داد این نخستین بار نیست که نتانیاهو به امارات رفته، اما برای نخستین‌بار است که این موضوع به‌صورت رسمی تایید می‌شود.
-
-گفت‌وگو با بن سبطی، پژوهشگر ایران و اسرائیل
-@iranintltv
-</div>
-
-## IranIntlTV — post 337071
-
-<div align="center"><video src="telegram/content/IranIntlTV_337071.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337071.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در پی موج جدید بیکاری در ایران در سایه جنگ، سرکوب و قطعی اینترنت، آمار رسمی از بیش از ۲۰۰ هزار متقاضی دریافت بیمه بیکاری خبر می‌دهد. مسعود پزشکیان پیش‌تر در واکنش به تورم و گرانی گفته بود کشور به‌شدت به صرفه‌جویی نیاز دارد.
-
-گفت‌وگو با جمشید اسدی، اقتصاددان
-@iranintltv
-</div>
-
-## IranIntlTV — post 337070
-
-<div align="center"><video src="telegram/content/IranIntlTV_337070.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337070.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش‌ها حاکی است در کمتر از یک ماه، دست‌کم ۱۲ هسته مرتبط با تهران در کویت، بحرین، امارات و قطر شناسایی و متلاشی شده‌اند.
-مقام‌های امنیتی این کشورها می‌گویند ده‌ها نفر به اتهام جاسوسی، پول‌شویی، طراحی ترور و همکاری با سپاه و حزب‌الله بازداشت شده‌اند.
-
-گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
 @iranintltv
 </div>
 

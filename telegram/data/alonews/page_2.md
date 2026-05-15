@@ -1,8 +1,69 @@
 # آرشیو کانال alonews - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 01:34
+📅 آخرین بروزرسانی: 1405/02/26 02:08
 
 ---
+
+## alonews — post 120274
+
+<div align="center"><video src="telegram/content/alonews_120274.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120274.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈برت بایر از فاکس: شما در حال انتظار برای تصویب میلیاردها دلار سلاح برای تایوان هستید. آیا این روند پیش می‌رود؟
+
+
+🔴ترامپ: خوب، هنوز آن را تصویب نکرده‌ام. خواهیم دید چه اتفاقی می‌افتد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120273
+
+<div align="center"><video src="telegram/content/alonews_120273.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120273.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سفیر ایالات متحده مایک والتز ادعا می‌کند که «نتیجه بزرگ» سفر ترامپ به چین، موافقت چین با عقب‌نشینی از ایران بوده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120272
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈امیر قطر و محمد بن سلمان، ولیعهد عربستان سعودی در یک گفت وگوی تلفنی درباره آخرین تحولات منطقه با یکدیگر گفتگو کردند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120271
+
+<div align="center"><video src="telegram/content/alonews_120271.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120271.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈۳۰ روز طول کشید تا جنازه عبدالرحیم موسوی، رئیس سابق ستاد کل نیروهای مسلح ایران، رو پیدا کنن
+
+🔴پسرش اینو به صداوسیما گفته
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120270
+
+<div align="center"><img src="telegram/content/alonews_120270.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈توییت جدید و عجیب ترامپ
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120269
 
@@ -172,58 +233,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈ایلان ماسک : برنامه "اینستاگرام" برای دختراست
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120254
-
-<div align="center"><video src="telegram/content/alonews_120254.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120254.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عضو کمیسیون انرژی مجلس: دولت به دنبال افزایش قیمت بنزین است؛ مجلس مخالف است و اجازه نخواهد داد!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120253
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رضا پهلوی: هرکسی که در ایست بازرسی کمک کند و یا برای نهادهای امنیتی خبرچینی کند و یا اموال مصادره شده معترضان را خرید و فروش کند؛ در فردای آزادی مجازات می شود
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120247
-
-<div align="center"><video src="telegram/content/alonews_120247.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120247.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تصاویری از حملات به یکی از پایگاه هوای ایران طی جنگ که نشان دهنده انهدام تعدادی از هواگردها درون آشیانه و همچنین هواپیماهای فوکر نیروی دریایی بر روی زمین است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120245
-
-<div align="center"><video src="telegram/content/alonews_120245.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120245.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈محل ترور عزالدین حداد فرمانده گردان های القسام در شهر غزه
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رضا سپهوند، عضو کمیسیون انرژی مجلس: یه دلیل بمباران جنگ، روزانه ۳۰ میلیون لیتر کمبود بنزین داریم و در کوتاه‌مدت هم امکان افزایش تولید وجود ندارد، راهی جز صرفه جویی نداریم
 
 ✅ @AloNews خبر جنگ
 </div>

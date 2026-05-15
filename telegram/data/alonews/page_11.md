@@ -1,8 +1,52 @@
 # آرشیو کانال alonews - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/02/26 01:34
+📅 آخرین بروزرسانی: 1405/02/26 02:08
 
 ---
+
+## alonews — post 119992
+
+<div align="center"><img src="telegram/content/alonews_119992.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 دیدار عراقچی و وزیر خارجه مصر در حاشیه نشست وزرای امور خارجه بریکس در دهلی‌نو
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119988
+
+<div align="center"><img src="telegram/content/alonews_119988.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ارتش اسرائیل شروع به توزیع توری‌های ضد پهپاد به نیروها در لبنان کرده است، به طوری که تقریباً ۱۵۸٬۰۰۰ متر مربع تاکنون توزیع شده و ۱۸۸٬۰۰۰ متر مربع دیگر در حال خرید است، طبق گزارش کانال ۱۵
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119987
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کانال 12 عبری: اسرائیل سطح هشدار خود را به بالاترین حد ممکن افزایش می‌دهد تا برای احتمال جنگی تازه با ایران پس از بازگشت ترامپ از چین آماده شود.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119986
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈واشنگتن پست: چین از جنگ آمریکا علیه ایران برای تقویت روابط با کشورهایی مانند تایلند، استرالیا و فیلیپین، با ارائه سوخت و فناوری سبز، استفاده می‌کند، آن هم در زمانی که به نظر می‌رسد دولت ترامپ علاقه کمتری به رهبری تلاش‌های بین‌المللی برای مقابله با بحران جهانی انرژی دارد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈روبیو، وزیر امور خارجه آمریکا : ترامپ از رئیس جمهور چین کمکی نخواست، آمریکا به کمک چین نیازی نداره
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119984
 
@@ -138,61 +182,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈مارکو روبیو: نیروهای مسلح اوکراین در حال حاضر قوی ترین و قدرتمندترین نیروهای مسلح در تمام اروپا هستند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119958
-
-<div align="center"><video src="telegram/content/alonews_119958.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119958.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈هانیتی از فاکس: آیا درباره حمایت چین از ایران با شی صحبت کردید؟
-
-🔴 ترامپ: او گفت که تجهیزات نظامی نخواهد داد. این یک بیانیه بزرگ است.
-
-🔴 اما در عین حال، گفت که آنها مقدار زیادی نفت از آنجا می‌خرند و دوست دارند این کار را ادامه دهند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119957
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈برد کوپر: فرماندهی مرکزی ایالات متحده در پاسخ مستقیم به تهدیدات جمهوری اسلامی ایران ایجاد شد.
-
-🔴طی ۴۷ سال، رژیم ایران منطقه را به وحشت انداخته و خصومت با آمریکا را به یکی از اصول اصلی حکومت خود تبدیل کرده است.
-
-🔴سوابق خصمانه و مرگبار آنها علیه آمریکا به خوبی مستند شده است.
-
-🔴در کمتر از ۴۰ روز، نیروهای سنتکام به اهداف نظامی خود دست یافتند. با نابودی ۹۰٪ از پایه صنعتی دفاعی ایران، این کشور برای سال‌ها قادر به بازسازی آن سلاح‌ها نخواهد بود.
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119956
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈برد کوپر: توانایی ایران به‌طور قابل توجهی ضعیف‌تر شده؛ اگه بخوام از تجربه خودم بگم، تو حدود صدبار عبور از تنگه هرمز معمولاً باید ۲۰ تا ۴۰ قایق تندرو می‌دیدی ولی این روزها فقط ۲ یا ۳ تا می‌بینیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119955
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈برد کوپر فرمانده سنتکام: توانمندی‌های موشکی، دریایی، پهپادی و صنعتی ایران ۹۰ درصد تضعیف شده است. او افزود که نیروی دریایی ایران تا یک نسل دیگر نیز به سطحی که پیش از جنگ در اختیار داشت باز نخواهد گشت.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119954
-
-<div align="center"><img src="telegram/content/alonews_119954.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈پزشکیان: از فداکاری و ایثار مردم سپاسگزارم، با همدیگه ایران رو میسازیم
 
 ✅ @AloNews خبر جنگ
 </div>

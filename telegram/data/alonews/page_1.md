@@ -1,8 +1,88 @@
 # آرشیو کانال alonews - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 01:34
+📅 آخرین بروزرسانی: 1405/02/26 02:08
 
 ---
+
+## alonews — post 120295
+
+<div align="center"><video src="telegram/content/alonews_120295.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120295.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ : ویتنام ۱۹ سال طول کشید، عراق حدود ۱۰ سال، کره ۷ سال، یکی دیگه ۱۴ سال، یکی ۱۲ سال، یکی هم ۹ سال
+- ما فقط دو ماه و نیم اونجا بودیم
+- چین هم این هفته سه تا نفتکش پر از نفت ایران رو برد، چون ما اجازه دادیم این اتفاق بیفته،شما اجازه دادید
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120294
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ به فاکس نیوز: چین جرات اقدام علیه تایوان را در دوران قدرت من نخواهد داشت‌‌
+
+🔴پکن از عدم نیاز واشنگتن به هیچ کمکی در پرونده ایران یا ایمن سازی ناوبری در تنگه هرمز خبر داد‌‌
+
+🔴چین برای تامین 40 درصد منابع نفتی خود به تنگه هرمز تکیه می کند‌‌
+
+🔴خب، به هر حال ما به یک راه‌حل خواهیم رسید. بنابراین یا این مسئله به‌صورت خشونت‌آمیز حل می‌شود یا بدون خشونت. و من خیلی ترجیح می‌دهم که بدون خشونت باشد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120293
+
+<div align="center"><img src="telegram/content/alonews_120293.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پک ۱۰عددی کاندوم با افزایش قیمت به ۴۸۰هزار تومان رسیده!
+
+🔴دولت باید به اینجور چیزا سوبسید بده تا همه بتونن استفاده کنن اما.....
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120292
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعرفه سرویس های Vip ⭕️ ✅ 1 گیگابایت ⬅️ 250/000 تومان ✅ 3 گیگابایت ⬅️ 750/000 تومان استارلینک Vip 💫 🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات) ⭐️ 5 گیگابایت ⬅️ 1/400/000 تومان ⭐️ 10 گیگابایت ⬅️ 2/800/000 تومان ویژگی های سرویس های Vip : ❤️‍🔥 ✅ متصل…
+</div>
+
+## alonews — post 120291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعرفه سرویس های Vip 
+⭕️
+
+
+✅ 1 گیگابایت 
+⬅️ 250/000 تومان
+✅ 3 گیگابایت ⬅️ 750/000 تومان
+
+استارلینک Vip 
+💫 
+🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات)
+
+
+⭐️ 5 گیگابایت 
+⬅️ 1/400/000 تومان
+⭐️ 10 گیگابایت ⬅️ 2/800/000 تومان
+
+ویژگی های سرویس های Vip : ❤️‍🔥
+✅ متصل در تمامی دستگاه و اپراتور ها
+✅ مناسب استفاده روزمره در تمامی برنامه ها
+✅ دارای ساب برای اطلاع لحظه ای باقیمانده
+✅ تک لینک بدون نیاز به بروزرسانی های متعدد
+ برای خرید از پشتیبانی به ایدی زیر پیام بدید.👇
+
+🔤 @expressuport
+
+خرید فوری از ربات.👇
+
+🔤 @vpn_express_sup_bot
+</div>
 
 ## alonews — post 120290
 
@@ -162,67 +242,6 @@
 
 🔴می‌خواهم تایوان آرام شود؛ می‌خواهم چین آرام شود.
 
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120274
-
-<div align="center"><video src="telegram/content/alonews_120274.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120274.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈برت بایر از فاکس: شما در حال انتظار برای تصویب میلیاردها دلار سلاح برای تایوان هستید. آیا این روند پیش می‌رود؟
-
-
-🔴ترامپ: خوب، هنوز آن را تصویب نکرده‌ام. خواهیم دید چه اتفاقی می‌افتد.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120273
-
-<div align="center"><video src="telegram/content/alonews_120273.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120273.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سفیر ایالات متحده مایک والتز ادعا می‌کند که «نتیجه بزرگ» سفر ترامپ به چین، موافقت چین با عقب‌نشینی از ایران بوده است
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120272
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈امیر قطر و محمد بن سلمان، ولیعهد عربستان سعودی در یک گفت وگوی تلفنی درباره آخرین تحولات منطقه با یکدیگر گفتگو کردند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120271
-
-<div align="center"><video src="telegram/content/alonews_120271.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120271.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈۳۰ روز طول کشید تا جنازه عبدالرحیم موسوی، رئیس سابق ستاد کل نیروهای مسلح ایران، رو پیدا کنن
-
-🔴پسرش اینو به صداوسیما گفته
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120270
-
-<div align="center"><img src="telegram/content/alonews_120270.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈توییت جدید و عجیب ترامپ
 
 ✅ @AloNews خبر جنگ
 </div>
