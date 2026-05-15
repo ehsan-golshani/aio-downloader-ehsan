@@ -1,8 +1,81 @@
 # آرشیو کانال Shin_Persian - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 12:12
+📅 آخرین بروزرسانی: 1405/02/25 14:48
 
 ---
+
+## Shin_Persian — post 5987
+
+<div align="center"><img src="telegram/content/Shin_Persian_5987.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+NetBlocks ✓ @netblocks
+Wed, 13 May 2026 07:50:00 UTC
+
+💸 #Iran's internet blackout is now past hour 1776, entering its 75th day. The digital censorship measure has led to profiteering and a decline in digital security as government-backed "pro" internet schemes and selective whitelisting result in surveillance, corruption and scams.
+
+فارسی
+
+💸 قطعی اینترنت #ایران اکنون از ساعت ۱۷۷۶ فراتر رفته و وارد هفتاد و پنجمین روز خود شده است. این اقدام در راستای سانسور دیجیتال منجر به سودجویی و کاهش امنیت دیجیتال شده است، چرا که طرح‌های اینترنت «طبقاتی» تحت حمایت دولت و لیست‌های سفید گزینشی، منجر به نظارت، فساد و کلاهبرداری شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5986
+
+<div align="center"><img src="telegram/content/Shin_Persian_5986.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DefenceGeek 🇬🇧 ✓ @DefenceGeek Wed, 13 May 2026 08:39:27 UTC Running Visible again - B-1 training flight! #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- Another B-1 training sortie launching this morning from RAF Fairford (EGVA) is pinging on…
+</div>
+
+## Shin_Persian — post 5985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Wed, 13 May 2026 08:39:27 UTC
+
+Running Visible again - B-1 training flight! #FreeIran‌
+--- Operation EPIC FURY / Project FREEDOM ---
+
+Another B-1 training sortie launching this morning from RAF Fairford (EGVA) is pinging on FR24/ADSB.
+
+B-1B "MISS40" 85-0060 #AE6BD1 "Doolittle Raiders"
+B-1B "MISS41" 86-0102 #AE6BEB "Bad Moon Rising" (visible)
+
+@MATA_osint @LHA2709 @Andyyyyrrrr @ArmchairAdml @jamjake01 @vcdgf555
+
+فارسی
+
+دوباره در حالت مرئی در حال اجرا - پرواز آموزشی B-1! #FreeIran‌
+--- عملیات خشم حماسی (EPIC FURY) / پروژه آزادی (Project FREEDOM) ---
+
+یک سورتی پرواز آموزشی دیگر از بمب‌افکن‌های B-1 که امروز صبح از پایگاه هوایی Fairford نیروی هوایی سلطنتی بریتانیا (EGVA) برخاسته است، در FR24/ADSB در حال سیگنال‌دهی است.
+
+B-1B "MISS40" 85-0060 #AE6BD1 "Doolittle Raiders"
+B-1B "MISS41" 86-0102 #AE6BEB "Bad Moon Rising" (مرئی)
+
+@MATA_osint @LHA2709 @Andyyyyrrrr @ArmchairAdml @jamjake01 @vcdgf555
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5984
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Wed, 13 May 2026 04:53:24 UTC
+
+Ehsan Afreshte has been executed by Islamic Regime today. Regime claims he was trained by Mossad in Nepal and sold intelligence to Israel.
+#Iran
+
+فارسی
+
+احسان افراشته امروز توسط رژیم اسلامی اعدام شد. رژیم مدعی است که او توسط موساد در نپال آموزش دیده و اطلاعات را به اسرائیل فروخته است.
+#Iran
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 5983
 

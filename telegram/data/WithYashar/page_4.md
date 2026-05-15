@@ -1,8 +1,135 @@
 # آرشیو کانال WithYashar - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/25 12:04
+📅 آخرین بروزرسانی: 1405/02/25 14:40
 
 ---
+
+## WithYashar — post 11220
+
+<div align="center"><video src="telegram/content/WithYashar_11220.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11220.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایلان ماسک و پسرش «اِکس اَش اِی-توئلو» «X Æ A-Xii» در پکن
+@withyashar
+</div>
+
+## WithYashar — post 11219
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرمانده سنت‌کام: ظرف کمتر از ۴۰ روز می‌توانیم به اهدافمان در ایران دست پیدا کنیم
+@withyashar
+</div>
+
+## WithYashar — post 11218
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتانیاهو، نخست‌وزیر، و گیدعون سعر، وزیر خارجه، به مقامات دستور داده‌اند تا مقدمات طرح شکایت افترا علیه نیویورک تایمز را آغاز کنند.
+این شکایت به دلیل انتشار یادداشتی از نیکلاس کریستوف که شامل اتهاماتی مبنی بر سوءاستفاده جنسی از فلسطینیان در زندان‌های اسرائیل بوده،
+مقاله کریستف با عنوان «سکوتی که تجاوز به فلسطینیان با آن روبرو می‌شود» روز دوشنبه ۱۱ مه در نیویورک‌تایمز منتشر شده بود.
+@withyashar
+</div>
+
+## WithYashar — post 11217
+
+<div align="center"><img src="telegram/content/WithYashar_11217.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+INDOPACOM، فرماندهی نظامی آمریکا برای منطقهٔ «هندو-پاسیفیک»ایندوپکام: تفنگداران دریایی ایالات متحده، واحد یازدهم اعزامی تفنگداران دریایی، در حال انجام تیراندازی رزمی بر روی ناو جنگی یو اس اس کامستاک (LSD 45) در اقیانوس هند هستند. واحد یازدهم اعزامی دریایی، که بر روی گروه آماده آبی-خاکی باکسر(USS BOXER) مستقر شده است، یک نیروی پایدار و قابل اعتماد رزمی است که به بازدارندگی و واکنش به بحران در منطقه عملیاتی ناوگان هفتم ایالات متحده کمک می‌کند.
+@withyashar
+یاشار: ساده بگم ناو باکسر وسط راه مونده داره تمرین میکنه و معلوم نیست کی بیاد !
+</div>
+
+## WithYashar — post 11215
+
+<div align="center"><video src="telegram/content/WithYashar_11215.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11215.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گوشیT1 "ترامپ موبایل" بعد از نزدیک
+یه سال تأخیر بالاخره داره عرضه میشه
+یه گوشی طلایی ۴۹۹ دلاری با برند ترامپه که
+چیپ اسنپدراگون سری ۷، رم ۱۲ گیگ، حافظه
+۵۱۲ گیگ و دوربین سه‌گانه ۵۰ مگاپیکسلی دارهبه نظر میاد در اصل یه گوشی ساخت چین باشه که فقط مونتاژ نهاییشو تو آمریکا انجام دادن
+@withyashar
+</div>
+
+## WithYashar — post 11214
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مارکو روبیو : ترامپ موضوع ایران رو با چین مطرح کرد و این خیلی مهم بود
+
+طرف چینی گفت ما موافق نظامی‌کردن تنگه هرمز نیستیم
+با سیستم عوارض‌گیری هم مخالفیم، و این موضع ما هم هست
+@withyashar
+</div>
+
+## WithYashar — post 11213
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزیر خزانه داری آمریکا:ایران رو انقدر تحت فشار اقتصادی قرار دادیم که توی پرداخت حقوق نیروهاشم به مشکل خورده. دارن نفسای آخرشونو میکشن
+@withyashar
+</div>
+
+## WithYashar — post 11212
+
+<div align="center"><video src="telegram/content/WithYashar_11212.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11212.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزیر دفاع اسرائیل، اسرائیل کاتز درباره ایران:
+
+ماموریت ما کامل نشده است.ما برای احتمال اینکه ممکن است مجبور شویم دوباره اقدام کنیم - شاید حتی به زودی - آماده‌ایم. اگر اهداف تأمین نشوند، دوباره اقدام خواهیم کرد.
+@withyashar
+</div>
+
+## WithYashar — post 11211
+
+<div align="center"><img src="telegram/content/WithYashar_11211.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلفی لی جون، بنیانگذار و مدیرعامل شیائومی با ایلان ماسک
+@withyashar
+</div>
+
+## WithYashar — post 11210
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الجزیره: چین با آمریکا در مورد ایران انعطاف دارد، اما در مورد تایوان نه
+
+مسئولان چینی پیام واضحی به ایالات متحده ارسال کرده‌اند:
+چین در بسیاری از مسائل مانند ایران، تجارت و فناوری آماده انعطاف و پذیرش اختلاف نظر است، اما در یک موضوع حساس، انعطاف‌پذیر نیست و آن تایوان است.
+@withyashar
+</div>
+
+## WithYashar — post 11209
+
+<div align="center"><video src="telegram/content/WithYashar_11209.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11209.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایلان لوله لول سر میز شمام 😂
+@withyashar
+</div>
+
+## WithYashar — post 11208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزیر خزانه‌داری آمریکا:
+تأسیسات اصلی بارگیری نفت ایران به مدت ۳ روز است از سرویس خارج شده است
+@withyashar
+</div>
+
+## WithYashar — post 11207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرنگار صداوسیما به نقل از نیروی دریایی سپاه: از شب گذشته تاکنون ۳۰ فروند کشتی از تنگه هرمز با مجوز ایران عبور کرده‌اند
+@withyashar
+</div>
 
 ## WithYashar — post 11206
 
@@ -51,113 +178,5 @@
 فارس: عبور کشتی‌های چینی از تنگۀ هرمز از شب گذشته اغاز شده
 @withyashar
 یک کشتی ژاپنی هم اجازه عبور گرفت
-</div>
-
-## WithYashar — post 11199
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاخ سفید اعلام کرد در دیدار ترامپ و شی جین‌پینگ، دو طرف بر باز ماندن تنگه هرمز و تقویت همکاری‌های اقتصادی توافق کردند. این توافق شامل افزایش سرمایه‌گذاری چین در صنایع آمریکا و گسترش دسترسی شرکت‌های آمریکایی به بازار چین است.
-
-ترامپ: مذاکرات پکن بسیار مثبت و سازنده بود
-@withyashar
-</div>
-
-## WithYashar — post 11198
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با رفیق اروپاییم نشستیم داریم ویدیو مسیج های شما رو نگاه میکنیم براش ترجمه میکنم که داری چی میگی، بعد یهو میگه اینجا چی گفت، خب من چجوری گربه گیر رو ترجمه کنم😂😂😂😂😂 عشقی سلطان یاشار❤️❤️
-</div>
-
-## WithYashar — post 11197
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با رفیق اروپاییم نشستیم داریم ویدیو مسیج های شما رو نگاه میکنیم براش ترجمه میکنم که داری چی میگی، بعد یهو میگه اینجا چی گفت، خب من چجوری گربه گیر رو ترجمه کنم😂😂😂😂😂
-عشقی سلطان یاشار❤️❤️
-</div>
-
-## WithYashar — post 11196
-
-<div align="center"><video src="telegram/content/WithYashar_11196.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11196.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-## WithYashar — post 11195
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اتاق جنگ با یاشار : جابجای‌های غول آسا دو شماره یک «AirForce1» هواپیمای ویژه ریاست جمهوری و «B1 »بمب افکن اسطورهی آمریکا و خبر ویژه از داخل ایران https://www.instagram.com/reel/DYQCr39RJ4i/?igsh=MThycjJiYWZmbnJ3dA== کارای اداریش رو انجام بدید تا بعدش بریم…
-</div>
-
-## WithYashar — post 11194
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آکسیوس به نقل از مقامات اسرائیلی:
-
-در پی احتمال تصمیم ترامپ برای از سرگیری جنگ، در اسرائیل حالت آماده‌باش حداکثری در طول تعطیلات آخر هفته برقرار خواهد شد.
-@withyashar
-</div>
-
-## WithYashar — post 11193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک مقام کاخ سفید به فاکس‌نیوز:
-
-رئیس‌جمهور چین علاقه‌مند است نفت بیشتری از آمریکا خریداری کند تا وابستگی کشورش به تنگه هرمز را کاهش دهد.
-@withyashar
-</div>
-
-## WithYashar — post 11192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جان بولتون: مذاکره با ایران برای یک توافق هسته‌ای هدر دادن اکسیژن است.
-
-این افراد دهه‌ها پیش تصمیم استراتژیکی برای دستیابی به سلاح‌های هسته‌ای گرفتند و در این ۴۷ سال هیچ مدرکی وجود ندارد که نشان دهد آن‌ها این هدف را رها کرده‌اند.
-@withyashar
-</div>
-
-## WithYashar — post 11191
-
-<div align="center"><video src="telegram/content/WithYashar_11191.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11191.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ بعد از ۵۰ سال، اولین رئیس‌ جمهوری شد که به معبد آسمان چین رفت
-@withyashar
-</div>
-
-## WithYashar — post 11190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاخ سفید : ترامپ و شی توافق کردن که تنگه هرمز باید باز بمونه
-@withyashar
-</div>
-
-## WithYashar — post 11189
-
-<div align="center"><video src="telegram/content/WithYashar_11189.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11189.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاکس نیوز با حیرت : داداش بزرگه نگات میکنه ، لبخند بزنید شما با دوربین ها رصد میشوید
-خبرنگار فاکس‌نیوز گزارش داد که خودروی آن‌ها در چین تنها دو دقیقه در محدوده «توقف ممنوع» پکن ایستاد و بلافاصله پیامک جریمه ۴۰ دلاری برای راننده صادر شد. به گفته او، در این کشور دوربین‌های نظارتی همه‌جا فعال هستند و تخلفات رانندگی در لحظه ثبت و اعمال می‌شود.
-@withyashar
-</div>
-
-## WithYashar — post 11188
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هند: حمله به یک کشتی ما در نزدیکی
-سواحل عمان غیرقابل قبول است
-
-یک کشتی هندی توسط افراد ناشناس دزدیده شده و به سمت ایران اسکورت میشود
-@withyashar
-</div>
-
-## WithYashar — post 11187
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس داده ها , شرکت تتر مبلغ 344 میلیون دلار USDT مرتبط با بانک مرکزی ایران رو فریز کرده و دلیلش هم بخاطر دور زدن تحریم‌ها بوده که شرکت آرکهام کیف پول‌های مرتبط رو شناسایی کرده
-@withyashar
 </div>
 
