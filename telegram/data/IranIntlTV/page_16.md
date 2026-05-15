@@ -1,8 +1,15 @@
 # آرشیو کانال IranIntlTV - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/02/26 01:56
+📅 آخرین بروزرسانی: 1405/02/26 02:20
 
 ---
+
+## IranIntlTV — post 337055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: سرنوشت جمهوری‌اسلامی، موضوع گفتگوهای ترامپ در چین
+@iranintlTV
+</div>
 
 ## IranIntlTV — post 337054
 

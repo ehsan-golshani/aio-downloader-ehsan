@@ -1,8 +1,71 @@
 # آرشیو کانال alonews - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 02:08
+📅 آخرین بروزرسانی: 1405/02/26 02:32
 
 ---
+
+## alonews — post 120103
+
+<div align="center"><video src="telegram/content/alonews_120103.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120103.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈نیویورک پست: اداره تحقیقات فدرال آمریکا (FBI) اعلام کرده است که برای پیدا کردن و دستگیری «مونیکا ویت» مأمور سابق اطلاعاتی نیروی هوایی ایالات متحده که به جاسوسی برای ایران متهم شده است، ۲۰۰ هزار دلار جایزه تعیین کرده است.
+
+
+🔴گفته شده اون از سال ۲۰۱۹ رسما به فعالیت جاسوسی برای ایران پرداخته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120102
+
+<div align="center"><video src="telegram/content/alonews_120102.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120102.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈لاوروف یک روزنامه‌نگار را از نشست خبری بیرون کرد!
+
+
+🔴به گزارش اسپوتنیک، این فرد دو بار با مکالمه تلفنی‌اش صحبت لاوروف را قطع کرد.
+
+
+🔴وزیر امور خارجه روسیه به زبان انگلیسی از روزنامه‌نگار خواست که محل کنفرانس را ترک کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120071
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رئیس پارلمان لبنان، نبیه بری: من بدبین هستم... من طرفدار مذاکرات مستقیم نیستم، اما فعلاً صحبت نخواهم کرد، و وقتی کارمان تمام شد، حرفی برای گفتن خواهم داشت
+
+🔴هر توافقی باید «چتر تضمین‌های سعودی-ایرانی-آمریکایی» را داشته باشد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120070
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار المیادین در پکن: بسیاری از اظهارات آمریکایی ها می گویند که ترامپ چین را متقاعد کرد که موضع خود را در قبال ایران تغییر دهد و این درست نیست
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120069
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈دونالد ترامپ،در مصاحبه‌ای مدعی شد آنها (چینی‌ها) موافقت کرده‌اند که می‌خواهند از ایالات متحده نفت بخرند.
+
+🔴آنها قرار است به تگزاس بروند. ما قرار است کشتی‌های چینی را به تگزاس و لوئیزیانا و آلاسکا بفرستیم.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120068
 
@@ -173,65 +236,5 @@
 ‼️
 
 @AloSport
-</div>
-
-## alonews — post 120053
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری/ترامپ:
-نابودی نظامی ایران ادامه خواهد یافت‌‌
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120052
-
-<div align="center"><img src="telegram/content/alonews_120052.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈توئیت جدید ترامپ:
-
-
-🔴وقتی رئیس‌جمهور شی به‌طرز بسیار ظریفی ایالات متحده را کشوری در حال افول نامید، احتمالاً منظورش آسیب عظیمی بود که ما در چهار سال دولت جو خواب‌آلود بایدن و دولت بایدن متحمل شدیم، و در این مورد او صد در صد درست می‌گفت. کشور ما به‌طور غیرقابل اندازه‌گیری از مرزهای باز، مالیات‌های بالا، تراجنسی بودن برای همه، مردان در ورزش زنان، DEI، توافقات تجاری وحشتناک، افزایش جرم و جنایت و خیلی چیزهای دیگر آسیب دیده است!
-
-🔴رئیس‌جمهور شی منظورش صعود شگفت‌انگیزی نبود که ایالات متحده در 16 ماه چشمگیر دولت ترامپ به جهان نشان داد، از جمله بازارهای سهام رکوردشکن و 401K، پیروزی نظامی و روابط شکوفا در ونزوئلا، شکست نظامی ایران (ادامه دارد!) — قوی‌ترین ارتش روی زمین، دوباره ابرقدرت اقتصادی با رکورد ۱۸ تریلیون دلار سرمایه‌گذاری شده در آمریکا توسط کشورهای دیگر، بهترین بازار کار در تاریخ آمریکا، با تعداد بیشتری از افراد شاغل نسبت به همیشه، پایان دادن به DEI که کشور را تخریب می‌کرد و بسیاری چیزهای دیگر که به‌راحتی نمی‌توان فهرست کرد. در واقع، رئیس‌جمهور شی مرا به خاطر این همه موفقیت بزرگ در مدت زمان کوتاه تبریک گفت.
-
-🔴دو سال پیش ما واقعاً کشوری در حال افول بودیم. در این مورد کاملاً با رئیس‌جمهور شی موافقم! اما اکنون ایالات متحده داغ‌ترین کشور جهان است و امیدوارم روابط ما با چین قوی‌تر و بهتر از همیشه شود!
-
-﻿
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120051
-
-<div align="center"><video src="telegram/content/alonews_120051.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120051.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فاکس نیوز :تو سفر ترامپ، بین مأموران سرویس مخفی آمریکا و پلیس چین، تنش ایجاد شده و درگیری لفظی و حتی فیزیکی هم پیش اومده
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120050
-
-<div align="center"><img src="telegram/content/alonews_120050.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عوستاد رائفی پور:
-آمریکایی‌ها متحد نیستن و بزودی تجزیه میشن
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120049
-
-<div align="center"><img src="telegram/content/alonews_120049.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تصویری وایرال شده از گلشیفته فراهانی و امانوئیل مکرون
-
-✅ @AloNews خبر جنگ
 </div>
 

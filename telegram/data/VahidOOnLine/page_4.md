@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 01:50
+📅 آخرین بروزرسانی: 1405/02/26 02:13
 
 ---
+
+## VahidOOnLine — post 240325
+
+<div align="center"><video src="telegram/content/VahidOOnLine_240325.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/VahidOOnLine_240325.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«جمهوری اسلامی قصد کشتن فاطمه سپهری را دارد»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 240324
 
@@ -301,23 +314,6 @@
 
 هر سه نفر با اتهام «آتش‌سوزی عمدی به قصد به خطر انداختن جان افراد» روبه‌رو هستند. مک‌گینس علاوه بر این، به «رانندگی خطرناک» حین تعقیب پلیس نیز متهم شده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240299
-
-<div align="center"><img src="telegram/content/VahidOOnLine_240299.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ترامپ: مخالفتی با تعلیق ۲۰ ساله غنی‌سازی اورانیوم ایران ندارم ولی باید تعهد واقعی باشد
-
-♦️دونالد ترامپ رئیس جمهوری ایالات متحده روز جمعه ۲۵ اردیبهشت و در زمان بازگشت از چین در هواپیمای ایرفورس وان به خبرنگاران گفت که مشکلی با تعلیق غنی‌سازی اورانیوم ایران به‌مدت ۲۰ سال ندارد اما این تعهد باید واقعی باشد.
-
-ترامپ پیشتر گفته بود ایران دیگر هرگز نباید غنی‌سازی اورانیوم داشته باشد.
-
-براساس گزارش‌های غیر رسمی مقام‌های جمهوری اسلامی بارها تاکید کرده‌اند که حداکثر غنی‌سازی ۵ ساله را می‌پذیرند. این در حالی است که اخیرا چند عضو مجلس شورای اسلامی گفته‌اند که تهران به‌هیچ وجه بحث تعلیق را نمی‌پذیرد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

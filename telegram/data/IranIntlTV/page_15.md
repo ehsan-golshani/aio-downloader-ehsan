@@ -1,8 +1,26 @@
 # آرشیو کانال IranIntlTV - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/02/26 01:56
+📅 آخرین بروزرسانی: 1405/02/26 02:20
 
 ---
+
+## IranIntlTV — post 337075
+
+<div align="center"><video src="telegram/content/IranIntlTV_337075.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337075.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرامرز از استکهلم: به ترامپ توجه نکنید؛ او در حال جنگ سرد است؛ما باید مسیر خودمان را برویم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337074
 
@@ -245,12 +263,5 @@ https://iranintl.com/202605138383
 
 همزمان رویترز به نقل از منابع امنیتی گزارش داد در این حمله پهپادی یک انبار سلاح و مهمات در داخل این اردوگاه هدف قرار گرفته است.
 https://iranintl.com/202605131072
-</div>
-
-## IranIntlTV — post 337055
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎧نسخه صوتی ۲۴ با فرداد فرحزاد: سرنوشت جمهوری‌اسلامی، موضوع گفتگوهای ترامپ در چین
-@iranintlTV
 </div>
 

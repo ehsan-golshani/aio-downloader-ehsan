@@ -1,8 +1,20 @@
 # آرشیو کانال IranIntlTV - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 01:56
+📅 آخرین بروزرسانی: 1405/02/26 02:20
 
 ---
+
+## IranIntlTV — post 337267
+
+<div align="center"><video src="telegram/content/IranIntlTV_337267.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337267.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جاویدنامان انقلاب ملی ایرانیان
+«حمید مهدوی»، آتش‌نشان، شامگاه ۱۸ دی‌ماه در حالی که مشغول به امدادرسانی به مجروحان بود مورد اصابت مستقیم گلوله قرار گرفت. نامش در حافظه‌ این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337266
 
@@ -244,23 +256,5 @@ https://youtu.be/9CC8wX4Bim0
 عرفان علیزاده، علی‌اصغر محمدی چمستان، مبین فیلی، علیرضا موسی‌نیا، محمدامین قبادی، علی زنگنه، امیررضا حسنوند و محمدرضا سعیدی؛
 نام‌هایی که از خیابان‌های ایران پاک نشدند و در حافظه جمعی این سرزمین باقی خواهند ماند.
 #جاویدنامان_انقلاب_ملی_ایرانیان
-</div>
-
-## IranIntlTV — post 337239
-
-<div align="center"><video src="telegram/content/IranIntlTV_337239.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337239.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مریم از پاریس: نگران حال فاطمه سپهری هستم و امیدوارم پوشش خبری بیشتری درباره ایشان داده شود
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/9CC8wX4Bim0
-@iranintltv
 </div>
 

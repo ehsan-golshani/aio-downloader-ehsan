@@ -1,8 +1,15 @@
 # آرشیو کانال IranIntlTV - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 01:56
+📅 آخرین بروزرسانی: 1405/02/26 02:20
 
 ---
+
+## IranIntlTV — post 337357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎧نسخه صوتی اخبار شبانگاهی | جمعه ۲۵ شهریور
+@iranintlTV
+</div>
 
 ## IranIntlTV — post 337356
 
@@ -256,15 +263,5 @@ https://iranintl.com/202605155975
 بر اساس این خبر، نمایشگاه کتاب تهران از روز شنبه، ۲۶ اردیبهشت و به صورت آنلاین آغاز خواهد شد.
 باوجود آتش‌بس میان جمهوری اسلامی و آمریکا، بسیاری از برنامه‌های عادی در ایران همچنان تعطیل بوده یا به‌صورت مجازی برگزار می‌شود.
 https://iranintl.com/202605157688
-</div>
-
-## IranIntlTV — post 337337
-
-<div align="center"><video src="telegram/content/IranIntlTV_337337.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337337.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال پیامی به ایران اینترنشنال درباره گرانی‌ها از افزایش شدید نوشیدنی‌های الکلی در ایران خبر داده و می‌گوید هر لیتر «عرق سگی» یک میلیون و ۵۰۰ هزار تومان شده است. پیام این مخاطب با هوش مصنوعی خوانده شده است.
 </div>
 

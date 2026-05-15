@@ -1,8 +1,18 @@
 # آرشیو کانال IranIntlTV - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 01:56
+📅 آخرین بروزرسانی: 1405/02/26 02:20
 
 ---
+
+## IranIntlTV — post 337337
+
+<div align="center"><video src="telegram/content/IranIntlTV_337337.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337337.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال پیامی به ایران اینترنشنال درباره گرانی‌ها از افزایش شدید نوشیدنی‌های الکلی در ایران خبر داده و می‌گوید هر لیتر «عرق سگی» یک میلیون و ۵۰۰ هزار تومان شده است. پیام این مخاطب با هوش مصنوعی خوانده شده است.
+</div>
 
 ## IranIntlTV — post 337336
 
@@ -242,15 +252,5 @@ https://iranintl.com/202605158703
 🔹در ایلام اوضاع خیلی خیلی خرابه. اگه در همه شهرها گرونی و کمبود خیلی چیزا هست اما این‌جا وضعیت در حد سونامی و انفجاره. کرایه خونه تو ایلام ۱۲۰ برابر شده. صاحبخونه ۱۰ روز بهم فرصت داده خونه رو خالی کنم اما جایی رو پیدا نمی‌کنم.
 
 🔹یک قوطی رنگ روغن اول اردیبهشت در مشهد ۴۰۰ هزار تومان بود امروز شده ۶۵۰ هزار تومان.
-</div>
-
-## IranIntlTV — post 337317
-
-<div align="center"><video src="telegram/content/IranIntlTV_337317.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337317.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند در پیامی به ایران اینترنشنال با اشاره به قطع روزانه برق در فردیس استان البرز خطاب به مخالفان حمله نظامی به جمهوری اسلامی می‌پرسد:‌ این بود زیرساخت‌ها؟» پیام این مخاطب با هوش مصنوعی خوانده شده است.
 </div>
 

@@ -1,8 +1,62 @@
 # آرشیو کانال alonews - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 02:08
+📅 آخرین بروزرسانی: 1405/02/26 02:32
 
 ---
+
+## alonews — post 120205
+
+<div align="center"><img src="telegram/content/alonews_120205.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 صدر اعظم آلمان: تماس خوبی با ترامپ داشتم!
+
+🔴ایران باید پای میز مذاکره بیاید و تنگه را باز کند، باید از دستیابی ایران به سلاح هسته‌ای جلوگیری شود
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رویترز: امارات هم مانند عربستان به دنبال احداث مسیر دور زدن تنگه هرمز است
+
+🔴امارات ساخت یک خط لوله نفت جدید را برای دو برابر کردن ظرفیت صادرات خود از طریق فجیره تسریع خواهد کرد تا توانایی‌اش را برای دور زدن تنگه هرمز به طور قابل توجهی گسترش دهد.
+
+🔴ولیعهد ابوظبی اعلام کرده که این خط لوله در حال ساخت است و انتظار می‌رود در سال ۲۰۲۷ عملیاتی شود
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120199
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر انرژی آمریکا: در صورت حصول توافق با ایران، آزادی دریانوردی می‌تواند با سرعت نسبی به تنگه هرمز بازگردد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120198
+
+<div align="center"><video src="telegram/content/alonews_120198.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120198.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈بازید رئیس ستاد کل ارتش اسرائیل ایال‌ ضمیر از مرز "اردن"
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120197
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈العربی الجدید: ایالات متحده شرایط سختی را بر نخست‌وزیر منتخب عراق، علی الزیدی، تحمیل می‌کند و خواستار خلع سلاح گروه‌های مسلح، انحلال شبه‌نظامیان مرتبط با ایران و پیگرد قانونی افراد دخیل در حملات به سفارت آمریکا است.
+
+🔴واشنگتن تهدید به تحریم کرده است اگر خواسته‌هایش برآورده نشود.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120196
 
@@ -171,72 +225,5 @@
 🔴ترامپ پاسخ داد: «من این را نمیگویم. در واقع فکر میکنم او مرد خوبی است.»
 
 ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120181
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار : خب آمریکا که شانسی نداشت. این همه بمبارون رو چرا تکرار می‌کنید؟ ۳۸ روز زدید، آخرشم تغییر سیاسی تو ایران اتفاق نیفتاد
-
-🔴ترامپ : نه، اتفاقاً ما یه پیروزی کامل نظامی داشتیم
-
-🔴 مشکل اینه که سیاسی‌بازایی مثل تو حقیقتو نمی‌نویسن
-
-🔴 ما کل نیروی دریایی‌شونو زدیم، نیروی هواییشونو نابود کردیم، پدافندشونو خوابوندیم، راداراشونو ترکوندیم
-
-🔴 همه فرمانده‌های رده اولشونو زدیم، بعد رده دوم و حتی کلی از رده سومی‌ها رو هم زدیم. الان کاملاً گیج و به‌هم‌ریخته‌ان
-
-🔴 این یه پیروزی کامل بود، جز توی رسانه‌هایی مثل نیویورک تایمز و CNN که حقیقتو نمی‌گن
-
-🔴حتی به نظرم چیزی که می‌نویسید یه جور خیانته
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120180
-
-<div align="center"><video src="telegram/content/alonews_120180.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120180.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار : در مورد ایران، دقیقاً قدم بعدی چیه؟ دوباره می‌خواید با تهدید بمبارون فشار بیارید؟ چقدر واقعیه؟
-
-🔴 ترامپ : نمی‌خوام بگم فلان ساعت و فلان روز بمبارون دوباره شروع میشه
-
-🔴 فقط اینو با اطمینان خیلی زیاد میگم
-
-🔴 ایران هیچ‌وقت به اون چیزی که می‌خواست نمی‌رسه و قرار هم نبود برسه
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120173
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عراقچی: موضوع مواد غنی‌شده ما مسئله‌ای بسیار پیچیده است و اکنون با آمریکایی‌ها به این نتیجه رسیده‌ایم که چون در این مورد خاص تقریباً به بن‌بست رسیده‌ایم، بهتر است بررسی آن را به مراحل بعدی مذاکرات موکول کنیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120172
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ به خبرنگار نیویورک تایمز:
-پوشش نیویورک تایمز برای جنگ ایران نشان دهنده خیانت بزرگ است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120171
-
-<div align="center"><video src="telegram/content/alonews_120171.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120171.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👸سفر رسمی علیاحضرت شهبانو فرح پهلوی، به چین سال ۱۳۵۱ انجام شده است. 
-🤔آن زمان، چین فقیر بود و ایران ثروتمند. 
-✅@AloNews
 </div>
 

@@ -1,8 +1,74 @@
 # آرشیو کانال alonews - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/26 02:08
+📅 آخرین بروزرسانی: 1405/02/26 02:32
 
 ---
+
+## alonews — post 119943
+
+<div align="center"><img src="telegram/content/alonews_119943.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزرای خارجه روسیه و ایران در دهلی‌نو دیدار کردند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119926
+
+<div align="center"><video src="telegram/content/alonews_119926.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119926.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رئیس جمهور چین شی جین پینگ:
+هم چین و هم ایالات متحده از همکاری سود می برند و از رویارویی شکست می خورند.
+
+
+🔴دو کشور ما باید شریک باشند نه رقیب.‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119925
+
+<div align="center"><video src="telegram/content/alonews_119925.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119925.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزارت امور خارجه هند اعلام کرد که یه کشتی با پرچم هند در سواحل عمان مورد حمله قرار گرفته.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119924
+
+<div align="center"><video src="telegram/content/alonews_119924.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119924.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈یسرائیل کاتز، وزیر دفاع اسرائیل درباره ایران: ماموریت ما کامل نشده؛ ما برای احتمال اینکه ممکنه مجبور شیم دوباره اقدام کنیم، شاید حتی «بزودی» آماده‌ایم. گر اهدافمون تأمین نشن، دوباره اقدام خواهیم کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119923
+
+<div align="center"><video src="telegram/content/alonews_119923.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119923.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ توی چین یه جوری رفتار میکنه انگار اون میزبانه و رئیس جمهور چین اومده آمریکا.
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119922
 
@@ -181,58 +247,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈رئیس جمهور چین: رنسانس چین و شعار «آمریکا را دوباره بزرگ کنیم» می‌توانند دست در دست هم پیش بروند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119907
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فارس: عبور کشتی‌های چینی از تنگه هرمز با هماهنگی ایران آغاز شد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119906
-
-<div align="center"><img src="telegram/content/alonews_119906.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈طی ۲۴ ساعت گذشته بزرگترین حملات پهپادی ثبت شده تا امروز از سوی روسیه علیه اوکراین با بیش از ۱۴۰۰ فروند پهپاد انتحاری ثبت شده است.
-
-🔴همچنین بیش از پنجاه تیر موشک نیز شلیک شده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈پاپ لئو افزایش هزینه‌های نظامی در اروپا به بالاترین سطح از پایان جنگ سرد را خیانت به دیپلماسی دانست و افزود که جهان در حال معلول شدن بر اثر جنگ‌ها است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119904
-
-<div align="center"><video src="telegram/content/alonews_119904.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119904.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سناتور گراهام درباره حمایت چین از ایران: اگر آنها تغییر کنند، چین پاداش خواهد گرفت.
-
-🔴اگر تغییر نکنند، مجازات خواهند شد!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119903
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈آکسیوس به نقل از مقامات آمریکایی: یکی از گزینه‌های ترامپ در مورد ایران پس از بازگشت از چین، از سرگیری عملیات آزادی در تنگه هرمز است
-
-🔴یکی دیگر از گزینه‌های ترامپ، راه‌اندازی یک کمپین بمباران جدید با تمرکز بر زیرساخت‌های ایران است
 
 ✅ @AloNews خبر جنگ
 </div>

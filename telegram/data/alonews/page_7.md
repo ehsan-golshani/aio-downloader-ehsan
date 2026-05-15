@@ -1,8 +1,49 @@
 # آرشیو کانال alonews - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 02:08
+📅 آخرین بروزرسانی: 1405/02/26 02:32
 
 ---
+
+## alonews — post 120155
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ درباره ایران: من با تعلیق برنامه هسته‌ای ایران به مدت ۲۰ سال مشکلی ندارم اما باید یک تعهد «واقعی» باشد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120154
+
+<div align="center"><video src="telegram/content/alonews_120154.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120154.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️یکی از صدها موشکی که برگشتن رو سر مردم و جمهوری اسلامی طبق روال همیشه با مظلوم نمایی انداختن گردن امریکا و اسرائیل
+
+
+🤔مدرسه میناب جای تحقیق و بررسی زیادی داره.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 120121
+
+## alonews — post 120120
+
+## alonews — post 120119
+
+<div align="center"><video src="telegram/content/alonews_120119.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120119.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈دستگیری ۲۲۳ نفر از اتباع بیگانه غیرمجاز در زاهدان
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120118
 
@@ -227,69 +268,6 @@
 
 🔴این سکوت، سوالات جدی را دربارهٔ این ایجاد می‌کند که آیا واقعاً صحبت‌های ترامپ به‌نقل از چینی‌ها در این‌ موارد درست است یا خیر.
 
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120103
-
-<div align="center"><video src="telegram/content/alonews_120103.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120103.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیویورک پست: اداره تحقیقات فدرال آمریکا (FBI) اعلام کرده است که برای پیدا کردن و دستگیری «مونیکا ویت» مأمور سابق اطلاعاتی نیروی هوایی ایالات متحده که به جاسوسی برای ایران متهم شده است، ۲۰۰ هزار دلار جایزه تعیین کرده است.
-
-
-🔴گفته شده اون از سال ۲۰۱۹ رسما به فعالیت جاسوسی برای ایران پرداخته است
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120102
-
-<div align="center"><video src="telegram/content/alonews_120102.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120102.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈لاوروف یک روزنامه‌نگار را از نشست خبری بیرون کرد!
-
-
-🔴به گزارش اسپوتنیک، این فرد دو بار با مکالمه تلفنی‌اش صحبت لاوروف را قطع کرد.
-
-
-🔴وزیر امور خارجه روسیه به زبان انگلیسی از روزنامه‌نگار خواست که محل کنفرانس را ترک کند
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120071
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رئیس پارلمان لبنان، نبیه بری: من بدبین هستم... من طرفدار مذاکرات مستقیم نیستم، اما فعلاً صحبت نخواهم کرد، و وقتی کارمان تمام شد، حرفی برای گفتن خواهم داشت
-
-🔴هر توافقی باید «چتر تضمین‌های سعودی-ایرانی-آمریکایی» را داشته باشد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120070
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار المیادین در پکن: بسیاری از اظهارات آمریکایی ها می گویند که ترامپ چین را متقاعد کرد که موضع خود را در قبال ایران تغییر دهد و این درست نیست
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120069
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دونالد ترامپ،در مصاحبه‌ای مدعی شد آنها (چینی‌ها) موافقت کرده‌اند که می‌خواهند از ایالات متحده نفت بخرند.
-
-🔴آنها قرار است به تگزاس بروند. ما قرار است کشتی‌های چینی را به تگزاس و لوئیزیانا و آلاسکا بفرستیم.
 
 ✅ @AloNews خبر جنگ
 </div>

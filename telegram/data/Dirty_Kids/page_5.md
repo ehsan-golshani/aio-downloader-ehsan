@@ -1,8 +1,126 @@
 # آرشیو کانال Dirty_Kids - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 01:31
+📅 آخرین بروزرسانی: 1405/02/26 02:29
 
 ---
+
+## Dirty_Kids — post 389445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎶 موزیک - کتلت تنگسیری
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389444
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389444.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389444.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موزیک ویدیو کتلت تنگسیری
+
+ارزش دانلود بالا، انرژی‌بخش و شاد
+
+حجمش رو تا جایی‌که میشد آوردم پایین
+موزیک خالیشم براتون پایین گذاشتم که حجمش خیلی کمتره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389443
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389443.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389443.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جو خونه مکرون
+بعد از قضیه گلشیفته
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389442
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389442.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389442.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مصاحبه‌ی بسیار مهمی از عموی خوبم اسکات بسنت وزیر خزانه‌داری آمریکا با شبکه‌ی CNBC که گزارش مختصری از وضعیت روافض هزارپدر می‌ده:
+
+
+«چیزی که ما شاهدش هستیم اینه که تأسیسات بارگیری نفت روافض که اصلی‌ترین تأسیسات بارگیری نفت‌شونه، مجموعه‌ایه به نام جزیره خارک.
+
+ما رصد کردیم و دیدیم که در سه روز گذشته هیچ بارگیری نفتی صورت نگرفته. ما معتقدیم که مخازن ذخیره‌ی نفت رژیم قحبه‌زاده پر شده.
+
+هیچ کشتی‌ای‌ از اونجا خارج نمی‌شه و هیچ کشتی‌‌ای وارد نمی‌شه، بنابراین رژیم پدرخراب رافضی نمی‌تونه نفتش رو روی آب [در تانکرها] ذخیره کنه.
+بنابراین رژیم هزارپدر شروع به متوقف کردن تولید نفت خواهد کرد.
+ما از طریق تصاویر ماهواره‌ای می‌بینیم که این اتفاق در حال رخ دادنه.
+
+اما مهم‌تر از همه‌ی این حرف‌ها اینه که این یک رژیم شیطانی مادرهزارتختخوابیه.
+روافض جنایتکار تا اینجای سال جاری ۳۰ یا ۴۰ هزار نفر رو کشتن و اعدام کردن ‌ که خیلی از این معترضان مسالمت‌جو بودن‌. پس، با چنین رژیم مادرخر...
+
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389441
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شی جین‌پینگ، رئیس‌جمهور چین در دیدار با ترامپ رئیس‌جمهور آمريکا:
+
+دو کشور ما باید شریک باشند، نه رقیب. مردم چین و ایالات متحده هر دو ملت‌های بزرگی هستند. تحقق احیای بزرگی ملت چین و عظمت دوباره آمریکا می‌تواند همزمان پیش برود. ما می‌توانیم به موفقیت یکدیگر کمک کنیم و رفاه کل جهان را ارتقا دهیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389437
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389437.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ تو چین یه جور داره رفتار میکنه که انگار اون میزبانه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389436
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این چه سمی بود دیدم 😂🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389435
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389435.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقیقا وقتی فکر می‌کنی جمهوری اسلامی تپه نریده باقی نذاشته، همون لحظه یه تپه جدید می‌سازه و میره سرش میرینه.
+فقط مونده بود برن از امارات کشتی بدزدن فرار کنن، که اونم گویا حاصل شد.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389434
 
@@ -183,112 +301,6 @@ R24
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جدی پیک می تر از این جنده های حجابی تو دانشگاه وجود نداره، یارو سال اول کارشناسی کامپیوتره بعد استیکر زده رو لپ تاپش LEAVE ME ALONE IM CODING، بیا برو کیرم تو کدت شد
 
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389421
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پلیس شریف دانمارک vs طرفداران تروریسم جهانی
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389420
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389420.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مانوک خدابخشیان: "فعالیتی که برای براندازی پهلوی سوم وجود داره، برای براندازی رژیم وجود نداره. همه تلاش می‌کنند که این شاهزاده پهلوی به ایران برنگرده‌."
-روحت شاد عمومانوک
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389416
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389416.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389416.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#تکمیلی
-یه پسره حدود 2 میلیون دلار هزینه کرده تا آلیس رزنبلوم | Alice Rosenblum دختر 19 ساله آمریکایی که مدل اونلی‌فنزه رو از نزدیک ببینه؛
-
-پسره تا رسید بهش گفت چاق‌تر از عکساتی و من روزی 3 بار باهات خودارضایی می‌کنم...
-
-تهشم فقط به دختره دست داد که آلیس چندشش شد و گفت اگه میشه بندازینش بیرون چون داره من رو می‌ترسونه!
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍 🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
-</div>
-
-## Dirty_Kids — post 389414
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389414.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍
-
-🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
-
-رایگان بهترین شرط هارو براتون میذاره
-حتی هزار تومن هم دریافت نمیکنه
-روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
-A23
-اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
-✅https://t.me/+4_ADqwB9e-QwYjlk
-✅https://t.me/+4_ADqwB9e-QwYjlk
-</div>
-
-## Dirty_Kids — post 389413
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389413.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#بخوابیم
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389412
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زینب موشک دوست🤣🤣🤣
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389411
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ انیمیشن‌های لگویی وارد فاز جدیدی شد!
-
-لگوی شاه عالیه فقط! 👏🤩
 
 
 @Dirty_Kids 👻

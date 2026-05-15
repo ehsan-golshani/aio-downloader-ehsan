@@ -1,8 +1,42 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 01:52
+📅 آخرین بروزرسانی: 1405/02/26 02:15
 
 ---
+
+## FoxNewsTwitter — post 341710
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341710.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341710.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump highlights the special relationship between the United States and China:
+
+“The American and Chinese people share much in common. We value hard work. We value courage and achievement. We love our families and we love our countries.”
+
+“Together, we have the chance to draw on these values, to create a future of greater prosperity, cooperation and happiness and peace for our children."
+</div>
+
+## FoxNewsTwitter — post 341709
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341709.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341709.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: "This is a great honor. It was a fantastic day.
+
+"I want to thank President Xi, my friend, for this magnificent welcome."
+
+"It really was a magnificent welcome like none other. And for so graciously hosting us on this very historic state visit."
+
+"This evening is another cherished opportunity to discuss among friends some of the things that we discussed today. All good for the United States and for China. And it was a great honor to be with you." – President Trump
+</div>
 
 ## FoxNewsTwitter — post 341708
 
@@ -233,31 +267,5 @@ BREAKING: Chinese President Xi Jinping shakes hands with Secretary Rubio, Secret
 Fox News (Twitter/X)
 
 BREAKING: President Trump meets Chinese President Xi Jinping at the Great Hall of People in Beijing.
-</div>
-
-## FoxNewsTwitter — post 341690
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341690.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341690.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: Chinese President Xi Jinping walks out for his meeting with President Trump.
-</div>
-
-## FoxNewsTwitter — post 341689
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341689.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341689.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-"There is no economy in Cuba."
-
-Secretary Rubio says he doesn't believe the economic trajectory of Cuba can change under the current government.
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 01:52
+📅 آخرین بروزرسانی: 1405/02/26 02:15
 
 ---
+
+## FoxNewsTwitter — post 341801
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341801.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump arrives in Washington after high-stakes China summit https://twitter.com/i/broadcasts/1wGWjazXOPAKQ
+</div>
+
+## FoxNewsTwitter — post 341800
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341800.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341800.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+Bruce Springsteen walked right past former New Jersey Gov. Chris Christie's outstretched hand during a concert at Brooklyn’s Barclays Center.
+
+Springsteen is seen greeting fans in the arena when Christie extends his hand — but the rock legend doesn't show him any love. Christie quickly pulls his hand back and keeps cheering.
+
+Springsteen has been a vocal critic of President Trump, especially during his latest tour.
+</div>
 
 ## FoxNewsTwitter — post 341799
 
@@ -247,29 +273,5 @@ The President dismissed critics who claim he underestimated the situation, notin
 "I didn't underestimate anything. We hit them unbelievably hard. Look, we left their bridges. We left their electricity capacity. We can knock that all out in two days. Two days. Everything. We left Kharg Island, other than I said, hit it except for the valves where the oil comes out."
 
 Watch the full interview at 6 p.m. ET on ‘Special Report”’
-</div>
-
-## FoxNewsTwitter — post 341779
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: Longtime Rep. Steve Cohen, D-Tenn., announces end to re-election bid
-</div>
-
-## FoxNewsTwitter — post 341778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌Fox News (Twitter/X)
-
-Who will win the Academy of Country Music Award for Female Artist of the Year?
-
-Our sponsor Kalshi’s prediction market reveals the current frontrunners:
-
-— Ella Langley: 85%
-— Lainey Wilson: 12%
-— Megan Moroney: 5%
-
-https://www.foxnews.com/entertainment/lainey-wilson-marries-duck-hodges-dream-tennessee-waterfall-cave-wedding
 </div>
 

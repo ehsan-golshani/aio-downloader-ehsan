@@ -1,8 +1,84 @@
 # آرشیو کانال alonews - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 02:08
+📅 آخرین بروزرسانی: 1405/02/26 02:32
 
 ---
+
+## alonews — post 120300
+
+<div align="center"><video src="telegram/content/alonews_120300.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120300.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رئیس جمهور ترامپ در مورد ایران:
+ما نه تا دوربین مختلف توی اون سایت داریم و دقت به قدری بالاست که ما می توانیم نام یک شخص را هم بخوانیم.
+
+🔴اگر اسمش محمد است ، بیشترشان محمد هستند ؛ شما می توانید حدود 50 درصد درست حدس بزنید.
+
+🔴هر کسي که به اون فضا نزديک بشه ، ما میفهمیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120299
+
+<div align="center"><video src="telegram/content/alonews_120299.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120299.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: گفتم گرد و غبار هسته ای را می گیریم ایران گفت: "شما می توانید آن را داشته باشید. اونا گفتن ، " ما نمیتونیم تحملش کنیم. ما توانایی مصرف آن را نداریم. گفتم: "چرا؟ اونا گفتن چون خيلي ضربه خورده"
+
+🔴برت بایر فاکس: چرا این کافی نیست اگر هدف شما این بود که آنها را عقب بیندازید ؟
+
+🔴ترامپ: از نظر روابط عمومی به اندازه کافی خوب نیست‌‌
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120298
+
+<div align="center"><video src="telegram/content/alonews_120298.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120298.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈برت بایر از فاکس: فکر می کنید ایران به زودی تسلیم خواهد شد ؟
+
+🔴ترامپ: بله ، من هیچ شکی ندارم.‌‌
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120297
+
+<div align="center"><video src="telegram/content/alonews_120297.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120297.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رئیس جمهور ترامپ در مورد ایران:
+ایران سالهاست که جهان را با تنگه هرمز نگه داشته است. اونا در گذشته تنگه رو بسته بودن اونا ازش به عنوان سلاح استفاده ميکنن اونا ازش به عنوان سلاح با من استفاده نميکنن
+
+🔴رئیس جمهور شی دیشب با لبخند گفت: "خب ، آنها تنگه را می بندند ، و بعد شما آنها را می بندید."‌‌
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120296
+
+<div align="center"><video src="telegram/content/alonews_120296.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120296.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈برت بایر از فاکس: آیا تاب آوری ایران را دست کم گرفتید ؟
+
+🔴ترامپ: چیزی را دست کم نگرفتم ما می توانیم پل ها و ظرفیت برق آنها را در دو روز از بین ببریم.‌‌
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120295
 
@@ -190,58 +266,6 @@
 
 
 🔴ما تمام کانال مانش را مین‌گذاری می‌کردیم.»
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈منابع عراقی از حملۀ پهپادی به مقر گروهک‌های تجزیه‌طلب در کردستان عراق خبر می‌دهند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120279
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فیلد مارشال ، محسن رضایی: قواعد نظم جدید جهان دیگه آمریکا محور نیست
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120277
-
-<div align="center"><video src="telegram/content/alonews_120277.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120277.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شهر صور تو "جنوب لبنان" بعد از حمله‌ی سنگین ارتش اسرائیل
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120276
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈واشنگتن پست : ایران واضح‌ترین بازنده دیدار ترامپ از پکن است، با مخالفت علنی پکن با اختلال در هرمز، تعهد به عدم ارسال تجهیزات نظامی به تهران و توافق بر اینکه تنگه «باید باز بماند.»
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120275
-
-<div align="center"><video src="telegram/content/alonews_120275.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120275.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ درباره تایوان: من به دنبال این نیستم که کسی مستقل شود. و می‌دانید، ما قرار است ۹۵۰۰ مایل سفر کنیم تا جنگی را انجام دهیم. من به دنبال آن نیستم.
-
-
-🔴می‌خواهم تایوان آرام شود؛ می‌خواهم چین آرام شود.
-
 
 ✅ @AloNews خبر جنگ
 </div>

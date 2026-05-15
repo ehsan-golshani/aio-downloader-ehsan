@@ -1,8 +1,23 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 01:50
+📅 آخرین بروزرسانی: 1405/02/26 02:14
 
 ---
+
+## WithYashar — post 11340
+
+<div align="center"><img src="telegram/content/WithYashar_11340.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صدا و سیما هم میدونه چی میشه داره آموزش کار با سلاح رو میده 😂 اینا رفتنین شک نکنید 👋🏾👋🏾
+@withyashar
+</div>
+
+## WithYashar — post 11339
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه امشب شب‌زیبایی‌نبود و امید نبود الان رد میدادم ! با این پیغام هایی که دایرکت میاد
+</div>
 
 ## WithYashar — post 11338
 
@@ -157,15 +172,6 @@ l وزارت خارجه آمریکا اعلام کرد آتش‌بس میان ل
 
 پاینده ایران،
 رضا پهلوی
-@withyashar
-</div>
-
-## WithYashar — post 11319
-
-## WithYashar — post 11318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سازمان سازمان مجاهدین خلق ایران (که در آمریکا با نام‌های MEK یا PMOI شناخته می‌شود) به‌صورت رسمی در تاریخ ۲۸ سپتامبر ۲۰۱۲ از فهرست «سازمان‌های تروریستی خارجی» وزارت خارجه آمریکا خارج شد. این تصمیم توسط وزارت خارجه دولت هیلاری کلینتون اعلام شد و همان روز اجرایی گردید
 @withyashar
 </div>
 

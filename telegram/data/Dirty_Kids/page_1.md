@@ -1,8 +1,117 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 01:31
+📅 آخرین بروزرسانی: 1405/02/26 02:29
 
 ---
+
+## Dirty_Kids — post 389538
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍 🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389537
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389537.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A25
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+✅https://t.me/+4_ADqwB9e-QwYjlk
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389536
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389536.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389535
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389535.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانو ناتالیا بیش از ۲۰ نفر از اعضای حماس رو به هلاکت رسونده تو غزه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389534
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389534.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389534.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عمو مانوک؛ اخلاق رضاشاه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389533
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389533.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاتو لیس بزن گه اضافه نخور 😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389532
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389532.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389532.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+املاکی در مصاحبه با Bret Baier مجری برنامه Special Report شبکه فاکس نیوز در خصوص خواری که رژیم کسمغز روافض در مذاکرات ازش گاییدن فرموده که:
+
+
+«ما واقعاً به نوعی از پایه‌های یک توافق رسیده بودیم. بدون سلاح هسته‌ای.
+
+اون‌هزارپدرای قحبه‌ قرار بود غبار هسته‌ای رو به ما تحویل بدن، همه چیو، هر چیزی که ما می‌خواستیم.
+
+و هر بار که توافقی می‌کنن، این پدرخرابا روز بعدش به جوری رفتار می‌کنن که انگار ما از اساس همچی گفتگویی نداشتیم، و این اتفاق حدود پنج بار رخ داده.
+
+یک مشکلی در این مادرقحبه‌های رافضی وجود داره، در واقع این حرومیا دیونه میوونه‌اند. [علاوه بر کسمغزی،خدعه‌زاده‌ان شیر خدا. اما خب دو بار گاییدی‌شون و فهمیدن اون ممه رو لولو خورد]
+
+و می‌دونید چیه؟ به همین دلیل، این جاکش‌پدرا‌ نباید سلاح هسته‌ای داشته باشن»
+
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389529
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389529.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این بانو که یکم حشری‌طور میزنه امروز حاشیه ساز بوده
+
+یه عده دفاع میکنن ازش
+یه عده هیت میدن
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389528
 
@@ -158,117 +267,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یعنی این فیلم The Odyssey که قراره بسازن مزخرف ترین فیلمی خواهد بود که تاحالا ساخته شده! نقش آشیل رو قراره یه زن تغییر جنسیت داده بازی کنه و نقش هلن رو قراره یه سیاه پوست لاغر.🥴 حتی به دول آشیل و رنگ پوست هلن هم رحم نگردن این چپهای کسخل @Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنیاد بین‌المللی رسانه‌های زنان (IWMF)، جایزه «شجاعت در خبرنگاری» رو داده به یک خبرنگار که اینترنت سفید داره.
-قشنگ داریم یه جوک رو زندگی می‌کنیم
-
-خواهران محمدی، خبرنگاران حوزه محور مقاومت، غزه و حومه.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389513
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389513.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389513.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سهمیه بندی حوری برای شهدا ! 🤣🤣🤣
-
-ارزش دانلود ۱۰/۱۰
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389512
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389512.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سنتکام رسماً تأیید کرد که حمله به مدرسه میناب توسط آمریکا صورت گرفته.
-
-❌ این خبر که تو فضای مجازی داره دست به دست میشه، فیکه؛ سنتکام تأیید نکرده و ترامپ هم امروز گفت که هنوز داریم بررسی می‌کنیم.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x ✖️  👍دارای مجوز رسمی Gambling Judge سوئد👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    3️⃣2️⃣ 🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
-</div>
-
-## Dirty_Kids — post 389510
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389510.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x ✖️
-
- 👍دارای مجوز رسمی Gambling Judge سوئد👍
-     
-💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
-💳تسویه حساب دلاری سریع
-💊بیمه شرط میکس
-⚠️فروش شرط
-🔔ویرایش شرط                    3️⃣2️⃣
-
-🎁20%هدیه واریز از طریق ارز و ووچر
-┅━━━━━━━━━━━
-🎁 10%برگشت باخت به صورت روزانه
-🎁 10%برگشت باخت به صورت هفتگی
-🎁10%برگشت باخت به صورت ماهانه
-💻ادرس ورود به سایت:
-https://bet120x.com/fa/?btag=971470
-➖➖➖➖➖
-   👈 آموزش واریز و برداشت دلاری👉
-
-🔪کانال اطلاع رسانی:👇
-✈️https://t.me/+1Wv5nGY_a54xNzlk
-</div>
-
-## Dirty_Kids — post 389505
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389505.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این شما و این منتخب ژانر از کِی فهمیدین کسخلید توی توییتر :))
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389504
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389504.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389504.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مبارزه بانو هایده در برابر معین به کمک مدل Seedance 2.0 در سرویس PolloAI!
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389503
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389503.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389503.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بحران زیست‌محیطی در خلیج فارس در پی نشت نفت از جزیره مارو
-
-
-@Dirty_Kids 👻
 </div>
 

@@ -1,8 +1,32 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 01:52
+📅 آخرین بروزرسانی: 1405/02/26 02:15
 
 ---
+
+## FoxNewsTwitter — post 341779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Longtime Rep. Steve Cohen, D-Tenn., announces end to re-election bid
+</div>
+
+## FoxNewsTwitter — post 341778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌Fox News (Twitter/X)
+
+Who will win the Academy of Country Music Award for Female Artist of the Year?
+
+Our sponsor Kalshi’s prediction market reveals the current frontrunners:
+
+— Ella Langley: 85%
+— Lainey Wilson: 12%
+— Megan Moroney: 5%
+
+https://www.foxnews.com/entertainment/lainey-wilson-marries-duck-hodges-dream-tennessee-waterfall-cave-wedding
+</div>
 
 ## FoxNewsTwitter — post 341777
 
@@ -238,33 +262,5 @@ Fox News (Twitter/X)
 FOX NEWS REPORT: President Trump and President Xi Jinping sat for an over two-hour meeting in Beijing for a discussion on key topics, including trade and Taiwan.
 
 Secretary of State Rubio says Washington's stance on Taiwan remains the same, @BillMelugin_ reports.
-</div>
-
-## FoxNewsTwitter — post 341756
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341756.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump says China’s leader was right about America’s decline under President Biden — but argues the U.S. has completely rebounded under his administration.
-
-In a lengthy post, Trump touted booming markets, record investment, the "ending" of DEI, and what he called the “strongest military on earth by far,” while predicting a stronger relationship with China moving forward.
-</div>
-
-## FoxNewsTwitter — post 341755
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341755.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341755.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-“People can’t feed themselves.”
-
-AOC ripped the Trump administration over spending on the National Mall reflecting pool and the planned White House ballroom, arguing that Americans are struggling to afford groceries, rent, and mortgages.
-
-She called the priorities “deeply out of touch” and “insulting” to everyday people.
 </div>
 

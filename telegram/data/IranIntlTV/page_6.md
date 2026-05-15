@@ -1,8 +1,19 @@
 # آرشیو کانال IranIntlTV - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 01:56
+📅 آخرین بروزرسانی: 1405/02/26 02:20
 
 ---
+
+## IranIntlTV — post 337296
+
+<div align="center"><video src="telegram/content/IranIntlTV_337296.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337296.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی‌حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال، گفت جمهوری اسلامی در طول ۴۰ روز عملیات نظامی آمریکا و اسرائیل در حال فروختن نفت بود. او افزود در صورت ازسرگیری این عملیات، ترکیب محاصره دریایی و اقدام نظامی می‌تواند برای جمهوری اسلامی مهلک باشد.
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337295
 
@@ -241,18 +252,6 @@ https://iranintl.com/202605150729
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هوشنگ حسن‌یاری، کارشناس خاورمیانه و امور نظامی، گفت جمهوری اسلامی با بستن تنگه هرمز، خود را در یک تنگنای دیپلماتیک قرار داده و باعث شکل‌گیری ائتلافی بین‌المللی علیه خود شده است.
-@iranintltv
-</div>
-
-## IranIntlTV — post 337267
-
-<div align="center"><video src="telegram/content/IranIntlTV_337267.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337267.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جاویدنامان انقلاب ملی ایرانیان
-«حمید مهدوی»، آتش‌نشان، شامگاه ۱۸ دی‌ماه در حالی که مشغول به امدادرسانی به مجروحان بود مورد اصابت مستقیم گلوله قرار گرفت. نامش در حافظه‌ این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
 @iranintltv
 </div>
 

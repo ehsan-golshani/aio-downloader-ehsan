@@ -1,8 +1,73 @@
 # آرشیو کانال alonews - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 02:08
+📅 آخرین بروزرسانی: 1405/02/26 02:32
 
 ---
+
+## alonews — post 120259
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار جنگ الونیوز AloNews pinned a photo
+</div>
+
+## alonews — post 120258
+
+<div align="center"><img src="telegram/content/alonews_120258.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزارت خارجه آمریکا : ونزوئلا 7340 کیلوگرم اورانیوم غنی‌شده‌‌‌ش رو به آمریکا منتقل کرد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120257
+
+<div align="center"><img src="telegram/content/alonews_120257.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کوروش وی پی ان 👑 ارائه بهترین کانفینگ های ایران
+
+👑👑👑 بدون ضریب 🤴
+👑👑👑 همراه با لینک ساب 🤴
+👑👑👑 پرسرعت 🤴
+👑👑👑 همراه با لینک ساب 🤴
+👑👑👑 ۵ سرور متفاوت 🤴
+👑👑👑 همیشه در حال اپدیت 🤴
+👑👑👑کانفینگ های رایگان 🤴
+
+
+🦁توجه کنید شاید یکی قیمتش ۱۵۰ ۲۰۰ باشه ولی هر قیمتی دلیل بر خوب بودن نیست بلکه ضریب دارن و یا سرور های کند دارن!🦁
+
+تنها چنلی که کانفینگ رایگان میزاره :
+👑 https://t.me/+nVsNnhQep1s5YTA0 👑
+👑 https://t.me/+nVsNnhQep1s5YTA0 👑
+
+👑👑👑خرید از طریق ربات :
+👑 @CyrusV2ray_bot
+👑 @CyrusV2ray_bot
+</div>
+
+## alonews — post 120256
+
+<div align="center"><video src="telegram/content/alonews_120256.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120256.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کاوه مدنی: وضعیت دردآور جزیره مارو (شیدور) ملقب به «مالدیو ایران»
+
+🔴نشت نفت به خلیج فارس پس از حمله به تأسیسات نفتی جزیره لاوان در فروردین ماه عامل این فاجعه بود.
+
+✅@AloNews
+</div>
+
+## alonews — post 120255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ایلان ماسک : برنامه "اینستاگرام" برای دختراست
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120254
 
@@ -144,57 +209,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈قیمت جهانی نفت به ۱۰۹ دلار برای هر بشکه رسیده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120230
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈علی واعظ عضو ارشد گروه بین‌المللی بحران به نشریه فایننشال تایمز: ایران با موافقت برای عبور نفتکش‌های چینی، به صورت پیش‌دستانه توانایی ترامپ برای چانه‌زنی با چین بر سر باز کردن تنگه را خنثی کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120229
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈منابع اسرائیلی و آمریکایی به کانال ۱۱ اسرائیل گفته‌اند این کشور در پیامی روشن به واشینگتن خواستار از سرگیری جنگ با تهران شده است.
-
-🔴براساس این گزارش، یکی از گزینه‌ها انجام حملات محدود و هدفمند علیه تاسیسات سوخت و انرژی ایران است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120228
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سفارت آمریکا در اسرائیل در حال بررسی صدور دستورالعمل برای خروج فوری شهروندان آمریکایی از تل‌آویو است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120223
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فرمانده سنتکام گزارش‌ها درباره باقی ماندن توان موشکی جمهوری اسلامی را رد کرد
-
-
-وال استریت ژورنال گزارش داد فرمانده سنتکام ادعاهای منتشرشده درباره باقی ماندن بخش بزرگی از موشک‌ها و پرتابگرهای جمهوری اسلامی را رد کرده است.
-
-پیشتر واشنگتن پست نوشته بود ایران هنوز حدود ۷۵ درصد پرتابگرهای متحرک و حدود ۷۰ درصد ذخایر موشکی پیش از جنگ را در اختیار دارد، اما فرمانده سنتکام این روایت را زیر سوال برده است.
-
-این تناقض مهم است، چون جنگ فقط با موشک و پهپاد ادامه ندارد، با عددسازی و تصویرسازی هم ادامه پیدا میکند. جمهوری اسلامی میخواهد نشان دهد هنوز دست بالا را دارد، اما واشنگتن تلاش میکند بگوید ستون تهدید موشکی تهران ضربه جدی خورده و دیگر مثل قبل قابل اتکا نیست.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120221
-
-<div align="center"><img src="telegram/content/alonews_120221.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈حمله‌های امروزِ ارتش اسرائیل به جنوب لبنان
 
 ✅ @AloNews خبر جنگ
 </div>

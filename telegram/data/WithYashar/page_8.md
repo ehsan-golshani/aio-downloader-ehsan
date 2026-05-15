@@ -1,8 +1,33 @@
 # آرشیو کانال WithYashar - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 01:50
+📅 آخرین بروزرسانی: 1405/02/26 02:14
 
 ---
+
+## WithYashar — post 11217
+
+<div align="center"><img src="telegram/content/WithYashar_11217.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+INDOPACOM، فرماندهی نظامی آمریکا برای منطقهٔ «هندو-پاسیفیک»ایندوپکام: تفنگداران دریایی ایالات متحده، واحد یازدهم اعزامی تفنگداران دریایی، در حال انجام تیراندازی رزمی بر روی ناو جنگی یو اس اس کامستاک (LSD 45) در اقیانوس هند هستند. واحد یازدهم اعزامی دریایی، که بر روی گروه آماده آبی-خاکی باکسر(USS BOXER) مستقر شده است، یک نیروی پایدار و قابل اعتماد رزمی است که به بازدارندگی و واکنش به بحران در منطقه عملیاتی ناوگان هفتم ایالات متحده کمک می‌کند.
+@withyashar
+یاشار: ساده بگم ناو باکسر وسط راه مونده داره تمرین میکنه و معلوم نیست کی بیاد !
+</div>
+
+## WithYashar — post 11215
+
+<div align="center"><video src="telegram/content/WithYashar_11215.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11215.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گوشیT1 "ترامپ موبایل" بعد از نزدیک
+یه سال تأخیر بالاخره داره عرضه میشه
+یه گوشی طلایی ۴۹۹ دلاری با برند ترامپه که
+چیپ اسنپدراگون سری ۷، رم ۱۲ گیگ، حافظه
+۵۱۲ گیگ و دوربین سه‌گانه ۵۰ مگاپیکسلی دارهبه نظر میاد در اصل یه گوشی ساخت چین باشه که فقط مونتاژ نهاییشو تو آمریکا انجام دادن
+@withyashar
+</div>
 
 ## WithYashar — post 11214
 
@@ -148,17 +173,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 با رفیق اروپاییم نشستیم داریم ویدیو مسیج های شما رو نگاه میکنیم براش ترجمه میکنم که داری چی میگی، بعد یهو میگه اینجا چی گفت، خب من چجوری گربه گیر رو ترجمه کنم😂😂😂😂😂
 عشقی سلطان یاشار❤️❤️
-</div>
-
-## WithYashar — post 11196
-
-<div align="center"><video src="telegram/content/WithYashar_11196.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11196.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-## WithYashar — post 11195
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اتاق جنگ با یاشار : جابجای‌های غول آسا دو شماره یک «AirForce1» هواپیمای ویژه ریاست جمهوری و «B1 »بمب افکن اسطورهی آمریکا و خبر ویژه از داخل ایران https://www.instagram.com/reel/DYQCr39RJ4i/?igsh=MThycjJiYWZmbnJ3dA== کارای اداریش رو انجام بدید تا بعدش بریم…
 </div>
 

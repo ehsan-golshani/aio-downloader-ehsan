@@ -1,8 +1,20 @@
 # آرشیو کانال ManotoTV - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 00:19
+📅 آخرین بروزرسانی: 1405/02/26 02:23
 
 ---
+
+## ManotoTV — post 105419
+
+<div align="center"><video src="telegram/content/ManotoTV_105419.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/ManotoTV_105419.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماسی از ایران:
+«می‌گفت وضعیت آموزش فاجعه شده…
+بچه‌هایی که حتی پایه‌ترین چیزها رو بلد نیستن.»
+</div>
 
 ## ManotoTV — post 105418
 

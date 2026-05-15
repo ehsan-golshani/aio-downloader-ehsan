@@ -1,8 +1,120 @@
 # آرشیو کانال Dirty_Kids - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 01:31
+📅 آخرین بروزرسانی: 1405/02/26 02:29
 
 ---
+
+## Dirty_Kids — post 389514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنیاد بین‌المللی رسانه‌های زنان (IWMF)، جایزه «شجاعت در خبرنگاری» رو داده به یک خبرنگار که اینترنت سفید داره.
+قشنگ داریم یه جوک رو زندگی می‌کنیم
+
+خواهران محمدی، خبرنگاران حوزه محور مقاومت، غزه و حومه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389513
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389513.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389513.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سهمیه بندی حوری برای شهدا ! 🤣🤣🤣
+
+ارزش دانلود ۱۰/۱۰
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389512
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389512.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سنتکام رسماً تأیید کرد که حمله به مدرسه میناب توسط آمریکا صورت گرفته.
+
+❌ این خبر که تو فضای مجازی داره دست به دست میشه، فیکه؛ سنتکام تأیید نکرده و ترامپ هم امروز گفت که هنوز داریم بررسی می‌کنیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✖️ سایت بین المللی bet120x ✖️  👍دارای مجوز رسمی Gambling Judge سوئد👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    3️⃣2️⃣ 🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
+</div>
+
+## Dirty_Kids — post 389510
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389510.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✖️ سایت بین المللی bet120x ✖️
+
+ 👍دارای مجوز رسمی Gambling Judge سوئد👍
+     
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+⚠️فروش شرط
+🔔ویرایش شرط                    3️⃣2️⃣
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+🎁 10%برگشت باخت به صورت روزانه
+🎁 10%برگشت باخت به صورت هفتگی
+🎁10%برگشت باخت به صورت ماهانه
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   👈 آموزش واریز و برداشت دلاری👉
+
+🔪کانال اطلاع رسانی:👇
+✈️https://t.me/+1Wv5nGY_a54xNzlk
+</div>
+
+## Dirty_Kids — post 389505
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389505.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این شما و این منتخب ژانر از کِی فهمیدین کسخلید توی توییتر :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389504
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389504.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389504.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مبارزه بانو هایده در برابر معین به کمک مدل Seedance 2.0 در سرویس PolloAI!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389503
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389503.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389503.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بحران زیست‌محیطی در خلیج فارس در پی نشت نفت از جزیره مارو
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389502
 
@@ -181,119 +293,5 @@ https://t.me/+bcynkEgSW2dlYTc0
 
 🔔کانال دربی بت :
 🪙https://t.me/+bcynkEgSW2dlYTc0
-</div>
-
-## Dirty_Kids — post 389489
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در مورد پروپوزال ایران:
-ترامپ: جمله اولش رو که خوندم انداختمش دور!
-خبرنگار: جمله اول چی بود؟
-ترامپ: یه‌ چیز غیرقال قبول! ما نمیخوایم ایران غنی سازی کنه!!
-خبرنگار: یعنی ۲۰ سال توقف غنی سازی کافی نیس؟
-ترامپ: ۲۰ سال کافیه ولی باید واقعی باشه و تضمین بدن!
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389488
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389488.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجتبی خامنه‌ای به مناسبت روز بزرگداشت فردوسی، این پیام رو منتشر کرد:
-
-همین که یک تازی راهزن بیابانگرد رافضی به ارزش‌های زبان و ادبیات فارسی اعتراف می‌کند می‌تواند جالب باشد.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389487
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389487.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاشیدم تو تار به تار سیبیلاتون.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389486
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389486.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت جهانی استارلینک مینی با تخفیف به زیر ۲۰۰دلار (۳۶میلیون تومن) رسیده و پایین‌تر هم میاد. سایز دیشش هم اندازه‌ی یه کاغذ A4 هس و براحتی همه جا مخفی میشه و با وضعیت ایران هیچ رقمه نمیشه جلوی موج قاچاقش رو گرفت.
-
-رویای آخوند برای کنترل بلند مدت اینترنت فقط یه توهمه.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389485
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389485.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
-
-⚫️با بالاترین کیفیت ممکن⚡️ 
-⚫️100 هزار تومان شارژ هدیه 🎁
-⚫️پایین ترین قیمت گیگی 250🌐 
-⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
-
-بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
-
-بادبان راهتو باز می‌کنه⛵️
-
-R25
-🛡@BadBan_VPN | کانال 
-🤖@BadBan_VPNBot | ربات 
-📞@BadBan_VPNSupport | پشتیبانی
-</div>
-
-## Dirty_Kids — post 389484
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389484.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیچ کودکی نباید اول قصه‌اش از کنار قبر پدرش شروع شود…
-در ایران اما این سرنوشت خیلی از کودکان است.
-#علیرضا_احمدی
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389483
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389483.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پستِ خواهرِ جاویدنام سپهر ابراهیمی نشون میده که سپهر هم یه پادشاهی خواه بود ❤️
-این انقلاب و پادشاهی خواها با خونشون به ثمر میرسونن.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389482
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389482.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زندگی تو ایران که استرس نداره بابا
-ممد ۲۰ ساله:
-
-
-@Dirty_Kids 👻
 </div>
 

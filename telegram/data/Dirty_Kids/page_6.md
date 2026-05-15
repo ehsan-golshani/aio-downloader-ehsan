@@ -1,8 +1,114 @@
 # آرشیو کانال Dirty_Kids - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 01:31
+📅 آخرین بروزرسانی: 1405/02/26 02:29
 
 ---
+
+## Dirty_Kids — post 389421
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پلیس شریف دانمارک vs طرفداران تروریسم جهانی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389420
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389420.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مانوک خدابخشیان: "فعالیتی که برای براندازی پهلوی سوم وجود داره، برای براندازی رژیم وجود نداره. همه تلاش می‌کنند که این شاهزاده پهلوی به ایران برنگرده‌."
+روحت شاد عمومانوک
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389416
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389416.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389416.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#تکمیلی
+یه پسره حدود 2 میلیون دلار هزینه کرده تا آلیس رزنبلوم | Alice Rosenblum دختر 19 ساله آمریکایی که مدل اونلی‌فنزه رو از نزدیک ببینه؛
+
+پسره تا رسید بهش گفت چاق‌تر از عکساتی و من روزی 3 بار باهات خودارضایی می‌کنم...
+
+تهشم فقط به دختره دست داد که آلیس چندشش شد و گفت اگه میشه بندازینش بیرون چون داره من رو می‌ترسونه!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍 🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389414
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389414.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A23
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+✅https://t.me/+4_ADqwB9e-QwYjlk
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389413
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389413.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389412
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زینب موشک دوست🤣🤣🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389411
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگ انیمیشن‌های لگویی وارد فاز جدیدی شد!
+
+لگوی شاه عالیه فقط! 👏🤩
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389410
 
@@ -148,134 +254,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صلواتی خونخوار حکم اعدام ‎#محمد_عباسی رو داد و جمهوری اسلامی امروز مخفیانه طناب دار رو دور گردنش انداخت.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389395
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389395.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی قمصری در کاخ الیزه در واکنش به رابطه «گلشیفته و مکرون»
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389394
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389394.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شما غلط کردی با صاحابت.
-از طرف مردم گه نخور.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خمینی وقتی با فشار دولت صدام، مجبور به تَرک عراق شد، به سمت کویت رفت.
-کویت او را راه نداد و آفتابه بدست در مرز عراق و کویت گرفتار شد.
-چرا فرانسه رو انتخاب کرد؟
-چون شهروندان ایرانی می‌توانستند بدون نیاز به ویزا تا "سه ماه" در فرانسه اقامت کنند.
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389392
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389392.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389392.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کپی برداری نوحه خوانی محمود کریمی از مدل اشعار برنامه های کودک تو سیرک شبانه حکومتی‌های حرامزاده؛
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389391
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بهمن محصص ۱۳ سال پیش گلشیفته رو اینجوری توصیف کرد...
-
-چقد فحش خورد اون روزا
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x 
-✖️  
-👍دارای مجوز رسمی Gambling Judge سوئد
-👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    
-3️⃣
-2️⃣ 
-🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
-</div>
-
-## Dirty_Kids — post 389389
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389389.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x 
-✖️
-
- 
-👍دارای مجوز رسمی Gambling Judge سوئد
-👍
-     
-💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
-💳تسویه حساب دلاری سریع
-💊بیمه شرط میکس
-⚠️فروش شرط
-🔔ویرایش شرط                    
-3️⃣
-2️⃣
-
-
-🎁20%هدیه واریز از طریق ارز و ووچر
-┅━━━━━━━━━━━
-
-🎁 10%برگشت باخت به صورت روزانه
-
-🎁 10%برگشت باخت به صورت هفتگی
-
-🎁10%برگشت باخت به صورت ماهانه
-💻ادرس ورود به سایت:
-https://bet120x.com/fa/?btag=971470
-➖➖➖➖➖
-   👈 آموزش واریز و برداشت دلاری
-👉
-
-🔪کانال اطلاع رسانی:👇
-✈️https://t.me/+1Wv5nGY_a54xNzlk
-</div>
-
-## Dirty_Kids — post 389388
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-و همچنان گلی در حال درخشیدنه
 
 
 @Dirty_Kids 👻

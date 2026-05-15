@@ -1,8 +1,14 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 02:02
+📅 آخرین بروزرسانی: 1405/02/26 02:25
 
 ---
+
+## Persian_Trend_Official — post 14102
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش صداوسیما از احسان افرشته و روایت عجیب از جاسوسی ! 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14101
 
@@ -350,22 +356,6 @@
 ویدئویی منتشر شده که نشان می‌دهد یک سرباز اوکراینی با استفاده از سلاح «آکا-۷۴» موفق می‌شود یک پهپاد انتحاری کواد را تنها لحظاتی پیش از برخورد منهدم کند.
 
 🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14075
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فایل صوتی لایو اول
-نسخه کم حجم - 6.71 مگابایت
-
-اتاق جنگ چهارشنبه 23 اردیبهشت | جمهوری اسلامی ناو امریکایی را تهدید به حمله کرد.
-
-فورمت mp3 همیشگی
-
-📝 Nick
 
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی

@@ -1,8 +1,75 @@
 # آرشیو کانال alonews - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 02:08
+📅 آخرین بروزرسانی: 1405/02/26 02:32
 
 ---
+
+## alonews — post 120181
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار : خب آمریکا که شانسی نداشت. این همه بمبارون رو چرا تکرار می‌کنید؟ ۳۸ روز زدید، آخرشم تغییر سیاسی تو ایران اتفاق نیفتاد
+
+🔴ترامپ : نه، اتفاقاً ما یه پیروزی کامل نظامی داشتیم
+
+🔴 مشکل اینه که سیاسی‌بازایی مثل تو حقیقتو نمی‌نویسن
+
+🔴 ما کل نیروی دریایی‌شونو زدیم، نیروی هواییشونو نابود کردیم، پدافندشونو خوابوندیم، راداراشونو ترکوندیم
+
+🔴 همه فرمانده‌های رده اولشونو زدیم، بعد رده دوم و حتی کلی از رده سومی‌ها رو هم زدیم. الان کاملاً گیج و به‌هم‌ریخته‌ان
+
+🔴 این یه پیروزی کامل بود، جز توی رسانه‌هایی مثل نیویورک تایمز و CNN که حقیقتو نمی‌گن
+
+🔴حتی به نظرم چیزی که می‌نویسید یه جور خیانته
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120180
+
+<div align="center"><video src="telegram/content/alonews_120180.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120180.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار : در مورد ایران، دقیقاً قدم بعدی چیه؟ دوباره می‌خواید با تهدید بمبارون فشار بیارید؟ چقدر واقعیه؟
+
+🔴 ترامپ : نمی‌خوام بگم فلان ساعت و فلان روز بمبارون دوباره شروع میشه
+
+🔴 فقط اینو با اطمینان خیلی زیاد میگم
+
+🔴 ایران هیچ‌وقت به اون چیزی که می‌خواست نمی‌رسه و قرار هم نبود برسه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عراقچی: موضوع مواد غنی‌شده ما مسئله‌ای بسیار پیچیده است و اکنون با آمریکایی‌ها به این نتیجه رسیده‌ایم که چون در این مورد خاص تقریباً به بن‌بست رسیده‌ایم، بهتر است بررسی آن را به مراحل بعدی مذاکرات موکول کنیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ به خبرنگار نیویورک تایمز:
+پوشش نیویورک تایمز برای جنگ ایران نشان دهنده خیانت بزرگ است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120171
+
+<div align="center"><video src="telegram/content/alonews_120171.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120171.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👸سفر رسمی علیاحضرت شهبانو فرح پهلوی، به چین سال ۱۳۵۱ انجام شده است. 
+🤔آن زمان، چین فقیر بود و ایران ثروتمند. 
+✅@AloNews
+</div>
 
 ## alonews — post 120170
 
@@ -142,47 +209,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈ترامپ: پل‌ها و سایت‌های برق ایران که می‌توانیم هدف قرار دهیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ درباره ایران: من با تعلیق برنامه هسته‌ای ایران به مدت ۲۰ سال مشکلی ندارم اما باید یک تعهد «واقعی» باشد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120154
-
-<div align="center"><video src="telegram/content/alonews_120154.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120154.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️یکی از صدها موشکی که برگشتن رو سر مردم و جمهوری اسلامی طبق روال همیشه با مظلوم نمایی انداختن گردن امریکا و اسرائیل
-
-
-🤔مدرسه میناب جای تحقیق و بررسی زیادی داره.
-
-
-✅@AloNews
-</div>
-
-## alonews — post 120121
-
-## alonews — post 120120
-
-## alonews — post 120119
-
-<div align="center"><video src="telegram/content/alonews_120119.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120119.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دستگیری ۲۲۳ نفر از اتباع بیگانه غیرمجاز در زاهدان
-
 
 ✅ @AloNews خبر جنگ
 </div>

@@ -1,8 +1,22 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 02:02
+📅 آخرین بروزرسانی: 1405/02/26 02:25
 
 ---
+
+## Persian_Trend_Official — post 14225
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14225.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14225.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شبتون بخیر ❤️🔥
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14224
 
@@ -250,18 +264,4 @@ https://youtube.com/live/MneL4ZkKs1A?feature=share
 </div>
 
 ## Persian_Trend_Official — post 14202
-
-## Persian_Trend_Official — post 14201
-
-<div align="center"><img src="telegram/content/Persian_Trend_Official_14201.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منابع آگاه روز جمعه به بلومبرگ گفتند، امارات متحده عربی تلاش کرد کشورهای همسایه خلیج فارس، از جمله عربستان سعودی و قطر، را متقاعد کند تا در جریان جنگ اخیر، واکنش نظامی هماهنگ به حملات موشکی، راکتی و پهپادی ایران داشته باشند، اما پاسخ آنها امارات را ناامید کرد !
-چرا؟
-امشب در لایو توضیح میدم ...
-
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
 

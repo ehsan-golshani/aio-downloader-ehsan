@@ -1,8 +1,36 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 01:52
+📅 آخرین بروزرسانی: 1405/02/26 02:15
 
 ---
+
+## FoxNewsTwitter — post 341756
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341756.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump says China’s leader was right about America’s decline under President Biden — but argues the U.S. has completely rebounded under his administration.
+
+In a lengthy post, Trump touted booming markets, record investment, the "ending" of DEI, and what he called the “strongest military on earth by far,” while predicting a stronger relationship with China moving forward.
+</div>
+
+## FoxNewsTwitter — post 341755
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341755.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341755.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+“People can’t feed themselves.”
+
+AOC ripped the Trump administration over spending on the National Mall reflecting pool and the planned White House ballroom, arguing that Americans are struggling to afford groceries, rent, and mortgages.
+
+She called the priorities “deeply out of touch” and “insulting” to everyday people.
+</div>
 
 ## FoxNewsTwitter — post 341754
 
@@ -280,27 +308,5 @@ Trump noted that while China continues to purchase Iranian oil, Xi expressed a s
 "He said he’s not going to give military equipment, that’s a big statement... But at the same time, he said you know they buy a lot of their oil there and they’d like to keep doing that. He’d like to see Hormuz straight opened."
 
 The full interview airs tonight at 9pm ET.
-</div>
-
-## FoxNewsTwitter — post 341736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: US Border Patrol Chief Mike Banks abruptly resigns, Fox News has learned
-</div>
-
-## FoxNewsTwitter — post 341735
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341735.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341735.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: Iran has reportedly seized a ship off the coast of the UAE, ramping up tensions in the region as disputes grow over alleged attacks and a denied Netanyahu visit.
-
-U.S. officials say talks with the Iranian regime have made some progress but remain uncertain, with Iran signaling it’s ready for either diplomacy or conflict, @TreyYingst reports.
 </div>
 

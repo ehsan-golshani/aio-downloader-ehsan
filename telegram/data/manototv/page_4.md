@@ -1,8 +1,19 @@
 # آرشیو کانال manototv - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 00:27
+📅 آخرین بروزرسانی: 1405/02/26 02:31
 
 ---
+
+## manototv — post 105441
+
+<div align="center"><video src="telegram/content/manototv_105441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معین، خواننده شهیر در صفحه اینستاگرام خود با انتشار متنی، شایعات مطرح شده در خصوص اجرا برای تیم فوتبال در جام جهانی را تکذیب کرد. معین در متن خود از جمله نوشته: «عشق من به مردم و سرزمینم همیشه واقعی بوده. اما صدای من زمانی معنا دارد که دل مردم آرام باشد و حال ایران خوب»
+روز گذشته اظهارات مهدی تاج، رئیس فدراسیون فوتبال جمهوری‌اسلامی به شایعاتی از این دست دامن زده بود.
+</div>
 
 ## manototv — post 105440
 
@@ -239,17 +250,5 @@
 او تاکید کرد هرگونه ادعا درباره سفرها یا توافق‌های اعلام‌نشده، تا زمانی که از سوی نهادهای رسمی امارات تایید نشود، بی‌اساس است.
 
 سخنگوی وزارت خارجه امارات همچنین از رسانه‌ها خواست در انتشار اخبار دقت کنند و از بازنشر اطلاعات تاییدنشده خودداری کنند.
-</div>
-
-## manototv — post 105419
-
-<div align="center"><video src="telegram/content/manototv_105419.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105419.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تماسی از ایران:
-«می‌گفت وضعیت آموزش فاجعه شده…
-بچه‌هایی که حتی پایه‌ترین چیزها رو بلد نیستن.»
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال IranIntlTV - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/02/26 01:56
+📅 آخرین بروزرسانی: 1405/02/26 02:20
 
 ---
+
+## IranIntlTV — post 337103
+
+<div align="center"><img src="telegram/content/IranIntlTV_337103.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کریس رایت، وزیر انرژی آمریکا، هشدار داد جمهوری اسلامی «در حدی ترسناک» به ساخت سلاح هسته‌ای نزدیک شده است و تنها چند هفته با غنی‌سازی یک تُن اورانیوم تا سطح تسلیحاتی فاصله دارد.
+رایت چهارشنبه شب در نشست کمیته نیروهای مسلح سنا گفت بخشی از ذخایر اورانیوم ایران تا ۶۰ درصد و مقدار زیادی نیز تا ۲۰ درصد غنی‌سازی شده است؛ در حالی که سطح حدود ۹۰ درصد برای سلاح هسته‌ای مناسب است. او تأکید کرد حتی پس از غنی‌سازی، مرحله «تسلیحاتی‌سازی» باقی می‌ماند اما ایران به این مرحله «بسیار نزدیک» شده است.
+وزیر انرژی آمریکا راهبرد «عاقلانه» را توقف کامل برنامه هسته‌ای ایران و جلوگیری از هرگونه غنی‌سازی در آینده دانست. دولت ترامپ بارها ذخایر اورانیوم غنی‌شده تهران را از دلایل اصلی اقدام نظامی اعلام کرده است.
+
+https://iranintl.com/202605144976
+</div>
 
 ## IranIntlTV — post 337102
 
@@ -253,23 +265,5 @@ https://youtu.be/HsShW7razys
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🎧نسخه صوتی سیاست با مراد ویسی: ایران کارت بازی دیگران
 @iranintlTV
-</div>
-
-## IranIntlTV — post 337075
-
-<div align="center"><video src="telegram/content/IranIntlTV_337075.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337075.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرامرز از استکهلم: به ترامپ توجه نکنید؛ او در حال جنگ سرد است؛ما باید مسیر خودمان را برویم
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/HsShW7razys
-@iranintltv
 </div>
 
