@@ -1,8 +1,26 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/25 03:04
+📅 آخرین بروزرسانی: 1405/02/25 05:06
 
 ---
+
+## FoxNewsTwitter — post 341668
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341668.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341668.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+VP VANCE: "So you're saying that we kicked off 800 fraudulent healthcare providers off of the Medicare system, and not a single one of them called the government and said, 'hey, you made a mistake?'"
+
+DR. OZ: "We've had a handful of calls. We're not sure they're legitimate yet, but it's less than 20 out of 800 and we're auditing them."
+
+VP VANCE:" Unbelievable... At least 780 are not even trying to claim that they're not fraudulent?"
+
+"Those are businesses that we were giving hundreds of millions, in some cases billions of dollars to, not to provide services, but to make a fraudster rich. It's just completely insane."
+</div>
 
 ## FoxNewsTwitter — post 341667
 

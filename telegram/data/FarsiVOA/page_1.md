@@ -1,8 +1,36 @@
 # آرشیو کانال FarsiVOA - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 03:13
+📅 آخرین بروزرسانی: 1405/02/25 05:15
 
 ---
+
+## FarsiVOA — post 217785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺دونالد ترامپ: هالیوود نمی‌تواند کسی مثل شی جین‌پینگ برای ایفای نقش او پیدا کند
+
+▪️دونالد ترامپ، رئیس‌جمهوری‌ آمریکا، در مصاحبه‌ای با شان هنیتی مجری فاکس‌نیوز، با تمجید از شی جین‌پینگ، رئیس‌جمهوری چین، او را رهبری «مورد احترام» توصیف کرد و گفت اگر هالیوود به‌دنبال بازیگری برای ایفای نقش رهبر چین باشد، «نمی‌تواند کسی مثل او پیدا کند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150329.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217782
+
+<div align="center"><img src="telegram/content/FarsiVOA_217782.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️حساب کاربری سازمان اطلاعات مرکزی آمریکا (سیا) شامگاه پنج‌شنبه تصاویری از سفر نادر جان رتکلیف، رئیس این سازمان، به کوبا را منتشر کرد. رتکلیف در این سفر پیام رئیس‌جمهوری ایالات متحده،‌ دونالد ترامپ را به مقامات کوبایی منتقل کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217781
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ماجرای تکذیب همکاری معین با تیم ملی فوتبال جمهوری اسلامی، تصویری کوچک از یک سازوکار بزرگ‌ است که در آن سپاه پاسداران گاه با استفاده از نام هنرمندان، پیش از وقوع هر اتفاقی، روایت مطلوب خود را می‌سازد.
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217780
 
@@ -174,27 +202,5 @@ https://ir.voanews.com/a/stock-index-developments-in-the-us-china-summit/8150046
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/high-risk-countries-us-department-of-state-travel-warning/8150070.html
 @FarsiVOA
-</div>
-
-## FarsiVOA — post 217763
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت ترامپ: شی جین‌پینگ متعهد شده که به جمهوری اسلامی تجهیزات نظامی نفرستد
-</div>
-
-## FarsiVOA — post 217762
-
-<div align="center"><video src="telegram/content/FarsiVOA_217762.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217762.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داریوش سجادی در برنامه تفسیر خبر می‌گوید که فرصتی برای وساطت چین بین جمهوری اسلامی و آمریکا وجود ندارد
-</div>
-
-## FarsiVOA — post 217761
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش فریبا مودت درباره جزئیات روز نخست دیدار پرزیدنت ترامپ با رئیس جمهوری چین
 </div>
 

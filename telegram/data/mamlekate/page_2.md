@@ -1,8 +1,19 @@
 # آرشیو کانال mamlekate - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/24 14:13
+📅 آخرین بروزرسانی: 1405/02/25 05:08
 
 ---
+
+## mamlekate — post 103505
+
+<div align="center"><img src="telegram/content/mamlekate_103505.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📞 شرح زندگی خامنه ای در تورات
+[تورات، کتاب اشعیا، باب ۱۴، آیه ۱۸ تا ۲۱]
+
+@mamlekate
+</div>
 
 ## mamlekate — post 103504
 

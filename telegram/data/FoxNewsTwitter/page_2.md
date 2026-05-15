@@ -1,8 +1,26 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 03:04
+📅 آخرین بروزرسانی: 1405/02/25 05:06
 
 ---
+
+## FoxNewsTwitter — post 341737
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341737.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341737.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump reveals to @seanhannity that Chinese President Xi Jinping has committed to withholding military equipment from Iran following their high-level discussions.
+
+Trump noted that while China continues to purchase Iranian oil, Xi expressed a strong desire to see the Strait of Hormuz remain open and free of interference.
+
+"He said he’s not going to give military equipment, that’s a big statement... But at the same time, he said you know they buy a lot of their oil there and they’d like to keep doing that. He’d like to see Hormuz straight opened."
+
+The full interview airs tonight at 9pm ET.
+</div>
 
 ## FoxNewsTwitter — post 341736
 
@@ -240,19 +258,5 @@ Fox News (Twitter/X)
 JUST IN: "From the beginning, our citizens have shared a deep sense of mutual respect.
 
 "Founding Father Benjamin Franklin published The Sayings of Confucius and his colonial newspaper and today sculpture. Recognizing that ancient Chinese sage is carved into the face of the United States Supreme Court very proudly." –President Trump
-</div>
-
-## FoxNewsTwitter — post 341711
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341711.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341711.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-RT @SpecialReport: 🚨WATCH: "Big Brother is watching."
-
-Our team with @BretBaier is on the ground in Beijing, and the level of surveillance is unlike anything we’ve seen. From 20+ cameras on a single street corner to instant fines sent straight to your phone, the CCP sees everything. They call it "safety"—but what’s the real cost of social scoring?
 </div>
 

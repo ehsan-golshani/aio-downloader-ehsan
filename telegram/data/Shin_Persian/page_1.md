@@ -1,8 +1,40 @@
 # آرشیو کانال Shin_Persian - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/25 01:16
+📅 آخرین بروزرسانی: 1405/02/25 05:12
 
 ---
+
+## Shin_Persian — post 6005
+
+<div align="center"><img src="telegram/content/Shin_Persian_6005.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+U.S. Central Command ✓ @CENTCOM
+Fri, 15 May 2026 00:38:22 UTC
+
+A U.S. Air Force F-16 takes off from a base in the Middle East for a night flight. Air Force fighter aircraft regularly patrol the skies over the Middle East in support of regional security.
+
+فارسی
+
+یک فروند اف-۱۶ نیروی هوایی ایالات متحده (USAF) برای یک پرواز شبانه از پایگاهی در خاورمیانه به هوا برمی‌خیزد. جنگنده‌های نیروی هوایی به طور منظم در حمایت از امنیت منطقه‌ای، در آسمان‌های خاورمیانه گشت‌زنی می‌کنند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6003
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Thu, 14 May 2026 23:41:52 UTC
+
+Jet activity over Mosul, #Iraq 🇮🇶
+
+فارسی
+
+فعالیت جنگنده‌ها برفراز موصل، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6002
 
@@ -319,36 +351,6 @@ Someone wrote “Tehran is having a wild orgasm” in Telegram 😭😭😭
 فارسی
 
 یک نفر در تلگرام نوشته «تهران دارد به ارگاسم وحشیانه می‌رسد» 😭😭😭
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5982
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Shin ✓ @hey_itsmyturn
-Tue, 12 May 2026 21:16:15 UTC
-
-And another aftershock rn
-
-فارسی
-
-و یک پس‌لرزه دیگر همین الان
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5981
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Shin ✓ @hey_itsmyturn
-Tue, 12 May 2026 21:06:37 UTC
-
-And we are back at “It’s HAARP” dumbfucks.
-
-فارسی
-
-و دوباره برگشتیم سر احمق‌هایی که می‌گویند «کار هارپ (HAARP) است».
 
 𝕏 · @shin_persian
 </div>

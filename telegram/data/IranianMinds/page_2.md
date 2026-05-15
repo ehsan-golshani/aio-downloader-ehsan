@@ -1,8 +1,37 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 03:15
+📅 آخرین بروزرسانی: 1405/02/25 05:17
 
 ---
+
+## IranianMinds — post 20139
+
+<div align="center"><video src="telegram/content/IranianMinds_20139.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20139.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این هنرمند و کمدین آمریکایی، با طنز استندآپ، ۴۷ سال حکومت ننگین جمهوری اسلامی در ایران را به سخره می‌گیرد و به‌خوبی چهره فاسد و سرکوبگر این حکومت را افشا می‌کند. او همچنین از انقلاب و مبارزه مردم ایران برای آزادی حمایت می‌کند.
+درود بر آزادی‌خواهان سراسر جهان.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20138
+
+<div align="center"><img src="telegram/content/IranianMinds_20138.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴اکانت اسرائیل به فارسی:
+
+۳۰۰۰ سال پیش، حضرت داوود اورشلیم را به پایتختی خود برگزید.
+۵۹ سال پیش با آزادی بخش شرقی شهر، پایتخت یهودیان زیر پرچم اسرائیل دوباره یکپارچه گشت.
+این شهر قلب تپنده یهودیان و بخشی جدانشدنی از اسرائیل است.
+
+روز اورشلیم خجسته باد.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20137
 
@@ -230,28 +259,6 @@ https://t.me/+qNjExGEJztE2OGI0
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴بنر حامیان حکومت در تجمع دیشب تهران:
 سید مجید نقطه‌زن، امتحانا نزدیکه، یه جایی‌رو زود بزن.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20119
-
-<div align="center"><img src="telegram/content/IranianMinds_20119.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایلان ماسک به همراه پسرش در نشست پکن شرکت کرد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20118
-
-<div align="center"><video src="telegram/content/IranianMinds_20118.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20118.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 صحبت‌های امروز اسکات بسنت، وزیر خزانه‌داری آمریکا راجب ایران و جمهوری‌اسلامی: تا اینجای امسال، رژیم ایران ۳۰ تا ۴۰ هزار نفر رو اعدام کرده (کُشته) و خیلی‌هاشون هم معترضای مسالمت‌آمیز بودن. خب با همچین رژیمی چطور باید برخورد کرد؟ از نظر اقتصادی خفه‌ش می‌کنیم و فکر می‌کنیم کار به جایی رسیده که سربازاشون حقوق نمی‌گیرن و نمی‌تونن از خارج هم سلاح و مهماتشون رو تأمین کنن. برای همین فکر می‌کنم دیگه دارن به آخر خط می‌رسن.
 
 @IranianMinds
 </div>

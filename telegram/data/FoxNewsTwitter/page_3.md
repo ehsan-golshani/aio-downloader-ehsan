@@ -1,8 +1,22 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/25 03:04
+📅 آخرین بروزرسانی: 1405/02/25 05:06
 
 ---
+
+## FoxNewsTwitter — post 341711
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341711.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341711.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+RT @SpecialReport: 🚨WATCH: "Big Brother is watching."
+
+Our team with @BretBaier is on the ground in Beijing, and the level of surveillance is unlike anything we’ve seen. From 20+ cameras on a single street corner to instant fines sent straight to your phone, the CCP sees everything. They call it "safety"—but what’s the real cost of social scoring?
+</div>
 
 ## FoxNewsTwitter — post 341710
 
@@ -255,17 +269,5 @@ BREAKING: President Trump receives a warm welcome at the Great Hall of People in
 Fox News (Twitter/X)
 
 BREAKING: Chinese President Xi Jinping shakes hands with Secretary Rubio, Secretary Bessent and more in China as he walks with President Trump.
-</div>
-
-## FoxNewsTwitter — post 341691
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341691.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341691.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: President Trump meets Chinese President Xi Jinping at the Great Hall of People in Beijing.
 </div>
 
