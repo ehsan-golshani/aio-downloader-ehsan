@@ -1,8 +1,39 @@
 # آرشیو کانال WithYashar - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/27 00:32
+📅 آخرین بروزرسانی: 1405/02/27 01:34
 
 ---
+
+## WithYashar — post 11305
+
+<div align="center"><video src="telegram/content/WithYashar_11305.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11305.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## WithYashar — post 11304
+
+## WithYashar — post 11303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۳ اسرائیل:
+
+سیستم امنیتی معتقد است که ترامپ با حمله‌ای محدود به ایران موافقت خواهد کرد.
+@withyashar
+</div>
+
+## WithYashar — post 11302
+
+## WithYashar — post 11301
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یاشار بیا مثل سیاه جامگان یا حسن صباح یه فرقه راه بنداز 😅
+</div>
+
+## WithYashar — post 11300
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخرش مجبور به همین کار میشیم🫤
+</div>
 
 ## WithYashar — post 11299
 
@@ -131,60 +162,6 @@
 ترامپ به فاکس‌نیوز : ما ارتش ایران را نابود کرده‌ایم و شاید باید یک پاکسازی سبک انجام دهیم.
 میتوانیم نیروگاه‌های ایران را تنها در دو روز از بین ببریم
 اگر ایران اورانیوم های غنی شده خودش رو تحویل نده وارد ایران میشیم
-@withyashar
-</div>
-
-## WithYashar — post 11284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Voice message
-</div>
-
-## WithYashar — post 11283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارو به قاهره میبره؟
-خب پس بذار هرچی میخواد بگه
-</div>
-
-## WithYashar — post 11282
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ به فاکس‌نیوز:
-پیشنهاد ایرانیا که برام رسید همون‌ جمله ی اول متنشونو که خوندم برام قابل قبول نبود و سریع ردش کردم
-@withyashar
-</div>
-
-## WithYashar — post 11281
-
-<div align="center"><video src="telegram/content/WithYashar_11281.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11281.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ وسط پرواز به فاکس نیوز اعلام کرد که ممکن است توقف ۲۰ سالهٔ فعالیت هسته‌ای ایران را بپذیرد.
-
-ترامپ:“بیست سال کافی است. اما میزان تضمینی که از طرف آن‌ها می‌گیریم… باید واقعاً یک بیست سالِ واقعی باشد.”»
-@withyashar
-</div>
-
-## WithYashar — post 11280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ وسط‌ پرواز به فاکس‌نیوز : «من دیگر خیلی بیشتر از این صبر نخواهم کرد. آنها باید توافق را امضا کنند.»
-«مواد هسته‌ای» ایران، ممکنه به چین یا آمریکا تحویل داده شه!
-@withyashar
-</div>
-
-## WithYashar — post 11279
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ وسط پرواز به فاکس نیوز :
-اما در نهایت فکر می‌کنم الان آخرین چیزی که دنیا نیاز دارد جنگ است، مخصوصاً جنگی که هزاران کیلومتر دورتر است.
-
-شی درباره مسائل مختلفی مثل ، حملات سایبری و جاسوسی صحبت کرد. گفت هم آن‌ها جاسوسی می‌کنند و هم ما. این یک واقعیت است و همه این کار را انجام می‌دهند، اما معمولاً درباره‌اش صحبت نمی‌شود.
-
-او گفت آمریکا در چین جاسوسی می‌کند. من گفتم ما هم همین کار را انجام می‌دهیم. این یک واقعیت است و مسئله‌ای است که همه طرف‌ها درگیر آن هستند
 @withyashar
 </div>
 

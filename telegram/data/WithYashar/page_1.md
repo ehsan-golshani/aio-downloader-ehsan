@@ -1,8 +1,62 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 00:32
+📅 آخرین بروزرسانی: 1405/02/27 01:34
 
 ---
+
+## WithYashar — post 11429
+
+<div align="center"><video src="telegram/content/WithYashar_11429.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11429.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ناو هواپیمابر جرالد فورد به خانه بازگشت
+@withyashar
+</div>
+
+## WithYashar — post 11428
+
+<div align="center"><video src="telegram/content/WithYashar_11428.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11428.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انفجار سنگین در بیت شمس و دیده شدن ابر قارچی گزارش شده که در کارخانه شرکت تومر رخ داد. این شرکت موتورهای موشک سنگین و سبک، از جمله موتورهای پیشران موشک‌های ارو ۲ و ارو ۳، موتور موشک هدف سیلور انکر، موتورهای ماهواره هورایزن و موتورهای موشک باراک ۸ و باراک ام‌ایکس را توسعه و تولید می‌کند.
+@withyashar
+</div>
+
+## WithYashar — post 11427
+
+## WithYashar — post 11426
+
+<div align="center"><video src="telegram/content/WithYashar_11426.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11426.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب بیداریم !
+@withyashar
+</div>
+
+## WithYashar — post 11424
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏ جیمی دیمون، مدیرعامل جی‌پی‌مورگان چیس، درباره ایران:
+
+‏آنها ۴۷ سال است که تجاوز، قتل و کشتار می‌کنند. دنیای غرب اجازه جنگ‌های نیابتی را داد.
+‏ما درس عبرت گرفتیم - باید سال‌ها پیش به سراغ سر مار می‌رفتیم.
+@withyashar
+</div>
+
+## WithYashar — post 11423
+
+<div align="center"><img src="telegram/content/WithYashar_11423.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمد امین صابرکار، دانش‌آموز ۱۷ ساله بسیجی بوشهری،‌ حین انجام تمرینات تیراندازی اشتباها با آتش خودی(فرندلی فایر😬) کشته شد
+@withyashar
+</div>
 
 ## WithYashar — post 11422
 
@@ -106,50 +160,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این ناو گروه در حال فرار هستن یا چی ؟
-</div>
-
-## WithYashar — post 11408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این ناو گروه در حال فرار هستن یا چی ؟
-</div>
-
-## WithYashar — post 11407
-
-<div align="center"><img src="telegram/content/WithYashar_11407.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ناوگروه آبراهام لینکلن با سه اسکورت با سرعت به سمت دریای عمان می‌ روند ، ۲۶ اردیبهشت. (مکان 260 کیلومتری چابهار)
-@withyashar
-</div>
-
-## WithYashar — post 11406
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شبکه 13 اسرائیل: هم اکنون ارزیابی‌ها در اسرائیل بر این است که جنگ با ایران در روز های آینده از سر گرفته خواهد شد.
-@withyashar
-</div>
-
-## WithYashar — post 11405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ: اگه به آمریکایی‌ها آسیب بزنید، یا در حال برنامه‌ریزی برای آسیب زدن به آمریکایی‌ها باشید، ما شما رو پیدا خواهیم کرد و خواهیم کشت.
-@withyashar
-</div>
-
-## WithYashar — post 11404
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در گفت‌وگوی تلفنی با شبکه فرانسوی «بی‌اف‌ام‌تی‌وی»:
-
-آینده مذاکرات نامشخص است اما اگر توافقی حاصل نشود ایران روزهای بسیار سختی در پیش خواهد داشت
-@withyashar
-</div>
-
-## WithYashar — post 11403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-العربیه: طبق گفته منابع آگاه پاکستانی، در بحث تنگه هرمز، پیشرفت‌هایی حاصل شده است
-@withyashar
 </div>
 

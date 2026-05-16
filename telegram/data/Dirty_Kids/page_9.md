@@ -1,8 +1,31 @@
 # آرشیو کانال Dirty_Kids - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/27 00:48
+📅 آخرین بروزرسانی: 1405/02/27 01:49
 
 ---
+
+## Dirty_Kids — post 389395
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389395.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی قمصری در کاخ الیزه در واکنش به رابطه «گلشیفته و مکرون»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389394
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389394.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شما غلط کردی با صاحابت.
+از طرف مردم گه نخور.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389393
 

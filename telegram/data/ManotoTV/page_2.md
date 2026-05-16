@@ -1,8 +1,18 @@
 # آرشیو کانال ManotoTV - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 00:43
+📅 آخرین بروزرسانی: 1405/02/27 01:44
 
 ---
+
+## ManotoTV — post 105520
+
+<div align="center"><video src="telegram/content/ManotoTV_105520.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/ManotoTV_105520.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرث استرالیا، تجمع ایرانیان، شنبه ۲۶ اردیبهشت
+</div>
 
 ## ManotoTV — post 105519
 
@@ -230,16 +240,5 @@
 بر اساس اعلام مقام‌های امارات، این پروژه ظرفیت صادرات نفت از مسیر فجیره را دو برابر می‌کند و قرار است تا سال ۲۰۲۷ به بهره‌برداری برسد.
 
 پس از جنگ آمریکا و اسرائیل با جمهوری اسلامی و افزایش تنش‌ها در تنگه هرمز، کشورهای خلیج فارس به دنبال مسیرهای جایگزین برای صادرات نفت و گاز هستند. حدود یک‌پنجم نفت جهان پیش‌تر از تنگه هرمز عبور می‌کرد.
-</div>
-
-## ManotoTV — post 105500
-
-<div align="center"><video src="telegram/content/ManotoTV_105500.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/ManotoTV_105500.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌
-وزارت خارجه آمریکا اعلام کرد آتش‌بس میان اسرائیل و لبنان برای ۴۵ روز دیگر تمدید شده تا فرصت بیشتری برای ادامه مذاکرات فراهم شود.
 </div>
 

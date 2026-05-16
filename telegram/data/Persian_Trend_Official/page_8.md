@@ -1,8 +1,37 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/27 00:45
+📅 آخرین بروزرسانی: 1405/02/27 01:45
 
 ---
+
+## Persian_Trend_Official — post 14113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 چین: آماده گسترش همکاری با آمریکا هستیم
+
+💢سخنگوی وزارت بازرگانی چین اعلام کرد پکن آماده همکاری با آمریکا برای گسترش فهرست همکاری‌های مشترک میان دو کشور است.
+
+💢بر اساس این اظهارات:
+
+▪️ معاون نخست‌وزیر چین و وزیر خزانه‌داری آمریکا روز چهارشنبه در کره جنوبی دیدار کردند
+▪️ مقام‌های دو کشور گفت‌وگوها را «صریح، عمیق و سازنده» توصیف کرده‌اند
+▪️ چین اعلام کرده همکاری‌ها باید بر پایه:
+
+برابری
+احترام متقابل
+و منافع مشترک
+
+پیش برود.
+
+💢پکن همچنین تأکید کرد دو طرف در تلاش هستند فهرست اختلافات را کاهش داده و روابط اقتصادی و تجاری سالم‌تری ایجاد کنند.
+
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14112
 
@@ -323,20 +352,6 @@
 
 ◾️ ترکیه و ارمنستان آماده‌سازی‌های لازم برای راه‌اندازی تجارت مستقیم را تا ۱۱ مه ۲۰۲۶ تکمیل کردند
 
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14086
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14086.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14086.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر ☕️
-
-📝 Nick
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>

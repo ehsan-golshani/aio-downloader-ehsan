@@ -1,8 +1,20 @@
 # آرشیو کانال FarsiVOA - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 00:43
+📅 آخرین بروزرسانی: 1405/02/27 01:44
 
 ---
+
+## FarsiVOA — post 217932
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺مهدی تاج با دبیرکل فیفا «در ترکیه» درباره حضور در «جام جهانی» گفت‌وگو کرد
+
+▪️بر اساس گزارش‌ها، مهدی تاج رئیس فدراسیون فوتبال جمهوری اسلامی با دبیرکل فیفا ماتیاس گرافستروم، در زمینه بررسی شرایط حضور تیم فوتبال ایران در جام‌جهانی در ترکیه گفت‌وگو کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150726.html
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217931
 
@@ -197,15 +209,5 @@ https://ir.voanews.com/a/8150694.html/?nocach=1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دوراهی دولت جدید عراق میان وعده مبارزه با فساد زیدی و فشار آمریکا برای قطع نفوذ جمهوری اسلامی
-</div>
-
-## FarsiVOA — post 217912
-
-<div align="center"><video src="telegram/content/FarsiVOA_217912.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217912.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های جمهوری اسلامی از وقوع آتش‌سوزی در یکی از انبارهای کارخانه تولید روغن موتور در مراغه، حدود ساعت ۱۰:۳۰ ‌روز شنبه، ۲۶ اردیبهشت ۱۴۰۵، خبر دادند و اعلام کردند آتش حدود ساعت ۱۸ به طور کامل مهار شد. به نقل از فرماندار مراغه علت آتش‌سوزی در دست بررسی اما این حادثه تلفات جانی نداشته است.
 </div>
 

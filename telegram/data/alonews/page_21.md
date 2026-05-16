@@ -1,8 +1,68 @@
 # آرشیو کانال alonews - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/02/27 00:51
+📅 آخرین بروزرسانی: 1405/02/27 01:52
 
 ---
+
+## alonews — post 119952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈منابع خبری می‌گویند کشتی باری هندی که روز گذشته به مقصد شارجه در حرکت بوده در تنگه هرمز هدف قرار گرفته و غرق شده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 فرمانده سنتکام، دریاسالار برد کوپر: امروز، حماس، حزب‌الله و حوثی‌ها همه از تأمین سلاح و حمایت‌های ایران قطع شده‌اند.
+
+🔴این نتیجه از پیش تعیین‌شده نبود و نه به شانس به دست آمده است. این حاصل ماه‌ها برنامه‌ریزی دقیق و بر پایه دهه‌ها تجربه است. این نتایج همچنین بدون هزینه به دست نیامده‌اند.
+
+🔴برد کوپر درباره ایران: مذاکرات حساس ادامه دارد.
+
+🔴کار ما آماده بودن است و ما آماده‌ایم.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119950
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فایننشال تایمز خبر داد: عربستان سعودی پیشنهاد یک پیمان عدم تعرض میان کشورهای خاورمیانه و ایران را مطرح کرده است.
+
+🔴 به گفته دیپلمات‌ها، این ایده بخشی از گفت‌وگوهای ریاض با متحدانش درباره نحوه مدیریت تنش‌های منطقه‌ای پس از پایان جنگ آمریکا و اسرائیل با ایران است.
+
+🔴دو دیپلمات غربی گفتند که ریاض برای این طرح، «فرآیند هلسینکی» در دهه ۱۹۷۰ را به‌عنوان الگویی بالقوه در نظر دارد؛ فرآیندی که در دوران جنگ سرد به کاهش تنش‌ها در اروپا کمک کرد.
+
+🔴آنها افزودند که پیمان عدم تعرض یکی از چندین ایده‌ای است که در حال بررسی است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر خزانه‌داری آمریکا: طی سه روز گذشته هیچ بارگیری در تاسیسات نفتی ایران انجام نشده است.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119948
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سی‌ان‌ان: ایران از چین خواسته تا برای پایان بن‌بست میانجیگری کند، در حالی که آمریکا از پکن می‌خواهد ایران را برای پذیرش شرایط خود تحت فشار قرار دهد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رادیوی ارتش اسرائیل: دور جدید مذاکرات میان لبنان و اسرائیل در واشنگتن آغاز شده است.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119946
 
@@ -186,79 +246,6 @@
 👈صداوسیما به‌نقل از نیروی دریایی سپاه:
 از شب گذشته تاکنون ۳۰ فروند کشتی از تنگۀ هرمز با مجوز ایران عبور کرده‌اند.
 
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119916
-
-<div align="center"><video src="telegram/content/alonews_119916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اسکات بسنت، وزیر خزانه‌داری آمریکا :
-
-- تا الان امسال سی و چهل هزار نفر رو اعدام کردن و خیلی‌هاشون هم معترضای مسالمت‌آمیز بودن
-- خب با همچین رژیمی چطور باید برخورد کرد؟
-- از نظر اقتصادی خفش می‌کنیم،و فکر می‌کنیم کار به جایی رسیده که سربازاشون حقوق نمی‌گیرن
-- نمی‌تونن از خارج هم سلاح و مهماتشون رو تأمین کنن
-- برای همین فکر می‌کنم دیگه دارن به آخر خط می‌رسن
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119915
-
-<div align="center"><img src="telegram/content/alonews_119915.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صدا و سیما: قراره محرم یه سریال کاملا جدید و خفن به اسم مختارنامه از شبکه آی فیلم پخش کنیم.
-
-[@AloTweet]
-</div>
-
-## alonews — post 119914
-
-<div align="center"><video src="telegram/content/alonews_119914.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119914.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شهبازی،مجری صداوسیما: بهترین کاری که جمهوری اسلامی تو 47 سال گذشته انجام داد ملی کردن اینترنت و دادن اينترنت به اهلش بود نه يه مشت مزدور داخلی!
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119913
-
-<div align="center"><video src="telegram/content/alonews_119913.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119913.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تصاویری از ایلان ماسک که در ضیافت شام پکن با حضور شی و ترامپ
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119912
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار صداوسیما به نقل از نیروی دریایی سپاه: از شب گذشته تاکنون ۳۰ فروند کشتی از تنگه هرمز با مجوز ایران عبور کرده‌اند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119911
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ : گفت‌وگوهاش با شی جین‌پینگ «سازنده» بوده و برای هر دو کشور مفید بود
-
-🔴 ترامپ به‌طور رسمی از شی جین‌پینگ دعوت کرد که در ۲۴ سپتامبر به آمریکا و کاخ سفید سفر کنه
 
 ✅ @AloNews خبر جنگ
 </div>

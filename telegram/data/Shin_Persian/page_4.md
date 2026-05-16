@@ -1,8 +1,64 @@
 # آرشیو کانال Shin_Persian - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/27 00:40
+📅 آخرین بروزرسانی: 1405/02/27 01:41
 
 ---
+
+## Shin_Persian — post 5977
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Tue, 12 May 2026 20:17:27 UTC
+
+Quake in Tehran right now.
+
+فارسی
+
+هم‌اکنون زلزله در تهران.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5976
+
+<div align="center"><img src="telegram/content/Shin_Persian_5976.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DefenceGeek 🇬🇧 ✓ @DefenceGeek Tue, 12 May 2026 19:21:43 UTC 40th Bomber Training Flight from Fairford #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- Rather helpfully, the solo B-1B "Lancer" bomber from RAF Fairford (EGVA) (which is flying the…
+</div>
+
+## Shin_Persian — post 5975
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Tue, 12 May 2026 19:21:43 UTC
+
+40th Bomber Training Flight from Fairford #FreeIran‌
+--- Operation EPIC FURY / Project FREEDOM ---
+
+Rather helpfully, the solo B-1B "Lancer" bomber from RAF Fairford (EGVA) (which is flying the 40th training mission from the base since the ceasefire began), has been broadcasting it's location for all to see!
+
+This route has been a fairly routine pattern for the training flights, and for many of the 62 bomber missions flown by B-1B and B-52H types during the war in Iran.
+
+B-1B "ZENER01" 86-0134 #AE6C05 "Thunderbird"
+
+@MATA_osint @ArmchairAdml @Andyyyyrrrr @jamjake01 @LHA2709 @vcdgf555
+
+فارسی
+
+چهلمین پرواز آموزشی بمب‌افکن از فیرفورد #FreeIran
+--- عملیات خشم حماسی (EPIC FURY) / پروژه آزادی ---
+
+بمب‌افکن تک‌فروندی B-1B "لنسر" از پایگاه نیروی هوایی سلطنتی فیرفورد (EGVA) (که در حال انجام چهلمین ماموریت آموزشی از این پایگاه پس از آغاز آتش‌بس است)، به شکلی کاملاً مفید در حال مخابره موقعیت مکانی خود برای مشاهده همگان بوده است!
+
+این مسیر یک الگوی نسبتاً معمول برای پروازهای آموزشی و همچنین برای بسیاری از ۶۲ ماموریت بمب‌افکنی انجام شده توسط انواع B-1B و B-52H در طول جنگ در ایران بوده است.
+
+B-1B "ZENER01" 86-0134 #AE6C05 "Thunderbird"
+
+@MATA_osint @ArmchairAdml @Andyyyyrrrr @jamjake01 @LHA2709 @vcdgf555
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 5974
 

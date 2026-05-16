@@ -1,8 +1,76 @@
 # آرشیو کانال alonews - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/27 00:51
+📅 آخرین بروزرسانی: 1405/02/27 01:52
 
 ---
+
+## alonews — post 120414
+
+<div align="center"><video src="telegram/content/alonews_120414.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120414.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈حمله‌ی‌ نیروی هوایی اسرائیل به المنصوری، جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120413
+
+<div align="center"><video src="telegram/content/alonews_120413.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120413.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈حماس تأیید کرد که عزالدین الحداد، فرماندهی از تیپ‌های عزالدین القسام، در حمله هوایی هدفمند اسرائیل شب گذشته در شهر غزه کشته شد.
+
+
+🔴گروه ادعا می‌کند علاوه بر همسر و دختر الحداد، چندین غیرنظامی دیگر نیز در این حمله کشته شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120411
+
+<div align="center"><video src="telegram/content/alonews_120411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر جنگ، پیت هگستث، دریانوردان گروه ضربت ناو هواپیمابر USS Gerald R. Ford را پس از بازگشت به پایگاه نیروی دریایی نورفولک از یک ماموریت تاریخی ۱۱ ماهه، خوش‌آمد گفت.
+
+🔴ویدیوی اول از USS Gerald R. Ford (CVN-78) است و ویدیوی دوم هگستث را در حال خطاب قرار دادن نیروها در USS Bainbridge (DDG-96) نشان می‌دهد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120408
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کرملین : پوتین با رئیس امارات متحده عربی درباره ایران گفتگو کرد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120407
+
+<div align="center"><img src="telegram/content/alonews_120407.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پست جدید ترامپ در تروث سوشال:
+بازی نداریم! ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیفته!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ویدیویی از ورود وزیر کشور پاکستان به ایران ✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120404
 
@@ -182,89 +250,6 @@ CH 📣 https://t.me/winstonservice
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈قطعی اینترنت وارد روز ۷۸ام شد
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120382
-
-<div align="center"><video src="telegram/content/alonews_120382.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120382.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ویدیو منتشرشده توسط ارتش آمریکا از عملیات کشتن ابوبلال المینوکی، نفر دوم داعش در نیجریه
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120381
-
-<div align="center"><video src="telegram/content/alonews_120381.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120381.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈از عجایب روزگار اینه تو مراسم بزرگداشت فردوسی نوحه پخش کردن
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120380
-
-<div align="center"><video src="telegram/content/alonews_120380.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120380.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شلیک رگباری در پخش مستقیم صداسیما
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120379
-
-<div align="center"><video src="telegram/content/alonews_120379.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120379.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اردوغان:
-مطالبات ما روشن است. ما اف-۳۵ ها را می‌خواهیم
-
-
-🔴همکاران ما به تماس‌های خود با همتایان آمریکایی‌شان ادامه می‌دهند و امیدواریم نتیجه مثبتی به دست آوریم.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120378
-
-<div align="center"><video src="telegram/content/alonews_120378.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120378.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈آخرین قیمت نفت ۱۰۹.۲۶ دلار
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120377
-
-<div align="center"><video src="telegram/content/alonews_120377.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120377.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری/شبکه ۱۲ اسرائیل :
-اسرائیل در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
 
 
 ✅ @AloNews خبر جنگ

@@ -1,8 +1,15 @@
 # آرشیو کانال FarsiVOA - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/27 00:43
+📅 آخرین بروزرسانی: 1405/02/27 01:44
 
 ---
+
+## FarsiVOA — post 217868
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️مراسم «انجمن قلم آمریکا» و اهدای «جایزه آزادی نوشتن باربی» به گلرخ ایرایی و علی اسداللهی
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217867
 
@@ -177,18 +184,6 @@ https://ir.voanews.com/a/extension-of-israel-lebanon-ceasefire-iran-regime-failu
 
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/senator-cotton-tom-visa-immigration-terrorist-congress-iran/8150453.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217847
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺تسریع پروژه احداث خط لوله نفتی «غرب به شرق» امارات برای دور زدن تنگه هرمز
-
-◾️دفتر رسانه‌ای دولت امارات متحده عربی در ابوظبی، روز جمعه ۲۵ اردیبهشت، اعلام کرد این کشور به منظور دو برابر کردن ظرفیت صادرات نفت خود از طریق فجیره، تا سال ۱۴۰۶، ساخت یک خط لوله جدید نفتی را شتاب می‌بخشد. این اقدام توانایی امارات را برای دور زدن تنگه هرمز به گونه‌ای چشمگیر افزایش می‌دهد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/iran-emirate-uae-oil-hormuz-opec/8150437.html
 @FarsiVOA
 </div>
 

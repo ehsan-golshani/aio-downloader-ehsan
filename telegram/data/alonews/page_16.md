@@ -1,8 +1,90 @@
 # آرشیو کانال alonews - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/02/27 00:51
+📅 آخرین بروزرسانی: 1405/02/27 01:52
 
 ---
+
+## alonews — post 120112
+
+<div align="center"><video src="telegram/content/alonews_120112.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120112.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈صدای چند انفجار در اربیل 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120111
+
+<div align="center"><video src="telegram/content/alonews_120111.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120111.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سخنگوی وزارت امور خارجه چین: درگیری بین ایران و ایالات متحده از همان ابتدا هرگز نباید رخ می‌داد و نیازی به ادامه آن نیست
+
+
+🔴یافتن راه‌حل در اسرع وقت به نفع ایالات متحده، ایران، کشورهای منطقه و جهان است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120110
+
+<div align="center"><video src="telegram/content/alonews_120110.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120110.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سازمان پخش اسرائیل: ایال زمیر، رئیس ستاد کل ارتش اسرائیل، در طول جنگ با ایران مخفیانه از امارات متحده عربی بازدید و با محمد بن زاید، دیدار کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120109
+
+<div align="center"><video src="telegram/content/alonews_120109.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120109.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سخنگوی صنعت آب: ناچار به مدیریت مصرف به روش‌های مختلف هستیم تا بتوانیم آب را تأمین کنیم، از جمله افت فشار آب
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120108
+
+<div align="center"><video src="telegram/content/alonews_120108.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120108.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈صدای چند انفجار در اربیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120107
+
+<div align="center"><video src="telegram/content/alonews_120107.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120107.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رسایی: جلسات مجلس به طرز بی‌سابقه‌ای تعطیل شده تا در مذاکرات دخالت نکنیم
+
+
+🔴 دبیر شورای عالی امنیت در نامه‌ای اعلام کردند مصلحت نیست جلسات مجلس برگزار شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120106
 
@@ -173,66 +255,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈رویترز: ترامپ مدعی شد «توافق‌های تجاری فوق‌العاده‌ای» با چین حاصل شده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120062
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: رئیس‌جمهور چین می‌خواهد شاهد توافق با ایران باشد و برای کمک به این کار اعلام آمادگی کرده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120061
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈قیمت جهانی نفت روز جمعه پس از آن افزایش یافت که دونالد ترامپ اعلام کرد چین پس از گفت‌وگوهای او با شی جین‌پینگ، با خرید نفت از آمریکا موافقت کرده است.
-
-🔴 با این حال، پکن تاکنون این ادعا را تأیید نکرده و به درخواست رسانه‌ها برای اظهار نظر نیز پاسخی نداده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120060
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ، به شبکه فاکس نیوز: مذاکره با ایران درباره کنار گذاشتن غبار هسته‌ای به دلیل تضاد در تصمیمات ایران، رفت و برگشت دارد
-
-🔴تأسیسات هسته‌ای ایران تحت نظارت مداوم ۹ دوربین، ۲۴ ساعته قرار دارند.
-🔴هرگونه تحرک ایرانی در داخل تأسیسات هسته‌ای با واکنش مستقیم نظامی مواجه خواهد شد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120059
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: توافق‌های تجاری فوق‌العاده‌ای با چین انجام شد
-
-🔴دونالد ترامپ، با اشاره به نتایج مثبت سفر خود اعلام کرد توافق‌های تجاری بسیار خوبی حاصل شده که برای هر دو کشور عالی است.
-🔴وی با ابراز احترام نسبت به شی جین‌پینگ، به سابقه آشنایی ۱۲ ساله و حل مشکلات پیچیده‌ای اشاره کرد که دیگران قادر به رفع آن‌ها نبودند. ترامپ این رابطه را بسیار قوی توصیف کرد و کارهای انجام شده را فوق‌العاده دانست.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120058
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مارکو روبیو: مردم کوبا باید بدانند که در حال حاضر ۱۰۰ میلیون دلار غذا و دارو برای آن‌ها موجود است و تنها دلیلی که این کمک‌ها به دستشان نمی‌رسد، رژیم کوبا است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120057
-
-<div align="center"><video src="telegram/content/alonews_120057.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120057.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اسرائیل در حملات بامداد امروز علیه حزب الله از سلاح فسفری استفاده کرد
 
 ✅ @AloNews خبر جنگ
 </div>

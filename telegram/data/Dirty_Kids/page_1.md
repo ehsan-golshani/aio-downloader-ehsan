@@ -1,8 +1,33 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 00:48
+📅 آخرین بروزرسانی: 1405/02/27 01:49
 
 ---
+
+## Dirty_Kids — post 389585
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏شاباش های دهه هفتاد هشتاد اینطوری بود که طرف میگفت حالا که دارم هزینه میکنم بذارم دهنش.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389581
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389581.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389581.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 تصاویر وایرال شده از یه خانم اهل انگلیس که خواستارِ اخراج مهاجرین از این کشوره.
+
++ ارزش دانلود: 195 از 100
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389580
 
@@ -259,39 +284,6 @@ G26
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 در اقدامی کاملا عادی تو اپلیکیشن ترب، محصولاتی با عنوانِ موش بی دندون (همون دول موشیِ خودمون) در ابعاد و رنگ های مختلف موجود شد.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389560
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389560.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتی یه مانکن حامله میشه!
-چجوری هیچ جاشون تپل نمیشه؟!!!!!
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389559
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389559.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389559.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارزش دانلود: صفر
-فقط برای اونایی که نت اضافی دارن
-
-این قشنگ مشخص از خود وزارت‌اطلاعات دستور میگیره
-برای اولین یکی پیدا شد از رضا گلزار ضعیفتر فیلم بازی میکنه :/ بابا یذره تف میزدی به چشات خیس بشه اقلا
-
-جیندا جنگ میندازی گردن مردم؟ جنگی که کل دنیا درگیرن سیاست ابرقدرت‌ها داره عوض میشه بخاطرش
-
-تا دیروز هرکی یه فیلم میگرفت میریختن تو خونش میگفتن جاسوس، الان دیدن کسی نمیتونه بره تو جزیره خودشون مستند میسازن میدن به این پرستو‌ها کصونه‌واویلا بازی دربیارن
 
 
 @Dirty_Kids 👻

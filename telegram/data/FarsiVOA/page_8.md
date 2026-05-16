@@ -1,8 +1,20 @@
 # آرشیو کانال FarsiVOA - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/27 00:43
+📅 آخرین بروزرسانی: 1405/02/27 01:44
 
 ---
+
+## FarsiVOA — post 217785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺دونالد ترامپ: هالیوود نمی‌تواند کسی مثل شی جین‌پینگ برای ایفای نقش او پیدا کند
+
+▪️دونالد ترامپ، رئیس‌جمهوری‌ آمریکا، در مصاحبه‌ای با شان هنیتی مجری فاکس‌نیوز، با تمجید از شی جین‌پینگ، رئیس‌جمهوری چین، او را رهبری «مورد احترام» توصیف کرد و گفت اگر هالیوود به‌دنبال بازیگری برای ایفای نقش رهبر چین باشد، «نمی‌تواند کسی مثل او پیدا کند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150329.html
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217782
 
@@ -190,11 +202,5 @@ https://ir.voanews.com/a/stock-index-developments-in-the-us-china-summit/8150046
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/high-risk-countries-us-department-of-state-travel-warning/8150070.html
 @FarsiVOA
-</div>
-
-## FarsiVOA — post 217763
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت ترامپ: شی جین‌پینگ متعهد شده که به جمهوری اسلامی تجهیزات نظامی نفرستد
 </div>
 

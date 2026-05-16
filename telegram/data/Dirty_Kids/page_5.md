@@ -1,8 +1,39 @@
 # آرشیو کانال Dirty_Kids - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/27 00:48
+📅 آخرین بروزرسانی: 1405/02/27 01:49
 
 ---
+
+## Dirty_Kids — post 389489
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در مورد پروپوزال ایران:
+ترامپ: جمله اولش رو که خوندم انداختمش دور!
+خبرنگار: جمله اول چی بود؟
+ترامپ: یه‌ چیز غیرقال قبول! ما نمیخوایم ایران غنی سازی کنه!!
+خبرنگار: یعنی ۲۰ سال توقف غنی سازی کافی نیس؟
+ترامپ: ۲۰ سال کافیه ولی باید واقعی باشه و تضمین بدن!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389488
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389488.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجتبی خامنه‌ای به مناسبت روز بزرگداشت فردوسی، این پیام رو منتشر کرد:
+
+همین که یک تازی راهزن بیابانگرد رافضی به ارزش‌های زبان و ادبیات فارسی اعتراف می‌کند می‌تواند جالب باشد.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389487
 
@@ -221,30 +252,6 @@ A24
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ملانیا واقعا خوشتیپه
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389469
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389469.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389469.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چون دل‌تون برای سخنگوی اسکل الانبیا تنگ شده میدونم
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389468
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389468.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اره داداش، امریکا تایوان رو میده به چین و ایران رو ازش میگیره.
 
 
 @Dirty_Kids 👻

@@ -1,8 +1,18 @@
 # آرشیو کانال pm_afshaa - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/27 00:34
+📅 آخرین بروزرسانی: 1405/02/27 01:36
 
 ---
+
+## pm_afshaa — post 90703
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دنیامالی، وزیر ورزش:
+تیم ملی به جام جهانی میره و بازیکنان سرود جمهوری اسلامی رو فریاد میزنن.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90702
 

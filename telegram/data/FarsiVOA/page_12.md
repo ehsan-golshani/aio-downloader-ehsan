@@ -1,8 +1,19 @@
 # آرشیو کانال FarsiVOA - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/27 00:43
+📅 آخرین بروزرسانی: 1405/02/27 01:44
 
 ---
+
+## FarsiVOA — post 217691
+
+<div align="center"><video src="telegram/content/FarsiVOA_217691.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217691.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گزارش خبرنگار اعزامی صدای آمریکا از سفر رئیس جمهوری آمریکا به چین
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217690
 
@@ -173,18 +184,6 @@ https://ir.voanews.com/a/8149657.html
 
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/8149655.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217671
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺نگاهی به دیدار‌های گذشته دونالد ترامپ با شی جین‌پینگ
-
-▪️سفر دونالد ترامپ، رئیس‌جمهوری آمریکا، به پکن و دیدارهای پیش‌روی او با شی جین‌پینگ، رئیس‌جمهوری چین، یکی از تیترهای مهم خبری روزهای اخیر در رسانه‌ها و جراید معتبر جهان در چند روز اخیر بوده است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149652.html
 @FarsiVOA
 </div>
 

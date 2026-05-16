@@ -1,8 +1,62 @@
 # آرشیو کانال alonews - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/27 00:51
+📅 آخرین بروزرسانی: 1405/02/27 01:52
 
 ---
+
+## alonews — post 120317
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کرملین: پوتین در تاریخ ۱۹ و ۲۰ مه به چین سفر خواهد کرد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رسانه‌های عراقی از شنیده‌شدن صدای انفجار در منطقه الکراده بغداد خبر دادند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120315
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پیام پزشکیان به رهبر کاتولیک‌های جهان: از موضع اخلاقی و منطقی شما در قبال تجاوزات نظامی اخیر به ایران قدردانی می‌کنم
+
+🔴حملات آمریکا و اسرائیل صرفاً علیه ایران نیست، بلکه علیه حاکمیت قانون و ارزش‌های انسانی است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120314
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوووری / منابع روسی: یک جنگنده سوخو-35 نیروی هوایی روسیه، یک جنگنده F-16 فایتینگ فالکون ناتو را سرنگون کرده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120305
+
+<div align="center"><img src="telegram/content/alonews_120305.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رئیس‌جمهور فنلاند: آمریکا از ناتو خارج نخواهد شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120304
+
+<div align="center"><img src="telegram/content/alonews_120304.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رئیس سازمان اداری و استخدامی: ساعت کاری جدید اداره‌ها از امروز اجرایی می‌شود و تا نیمه شهریور ادامه دارد
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120303
 
@@ -194,70 +248,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈مجریان بیسواد صدا و سیما برداشتن یه تصویر هوش مصنوعی رو گذاشتن و دارن تحلیلش میکنن!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120289
-
-<div align="center"><video src="telegram/content/alonews_120289.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120289.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مصاحبه‌گر : قبول دارید عامل گرانی‌ها محاصره آمریکا علیه ماست؟
-
-🔴حامی حکومت : نه، قبول ندارم!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120288
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیویورک تایمز: گزینه‌های ترامپ در ایران شامل نیروهای ویژه زمینی برای کنترل اورانیوم است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120287
-
-<div align="center"><video src="telegram/content/alonews_120287.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120287.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈گلایه مخاطب ایران اینترنشنال از قیمت نجومی عرق سگی
-
-🔴قبل جنگ لیتری ۲۵۰بود و با دوستام میخوردم اما الان لیتری ۱۵۰۰ و تنها میخورم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120286
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ادعای نیویورک‌تایمز: دو مقام خاورمیانه‌ای ادعا کردند که آمریکا و اسرائیل در حال آماده‌سازی گسترده برای احتمال ازسرگیری حملات علیه ایران هستند؛ آماده‌سازی‌ای که بزرگ‌ترین سطح از زمان آتش‌بس محسوب می‌شود؛ این حمله ممکن است از هفته آینده آغاز شود
-
-🔴مقام‌های نظامی آمریکا به‌طور غیررسمی می‌گویند پیروزی در حملات جدید بسیار دشوار است، زیرا ایران بخش زیادی از توان موشکی و زیرزمینی خود را بازیابی کرده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120285
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیویورک‌تایمز: ترامپ روز جمعه پس از بازگشت از چین، با تصمیم‌های مهمی درباره ایران مواجه شد؛ در حالی که نزدیک‌ترین مشاورانش طرح‌هایی برای ازسرگیری حملات نظامی در صورت تصمیم او برای شکستن بن‌بست از طریق فشار نظامی تهیه کرده‌اند
-
-🔴مشاوران رئیس جمهور آمریکا می‌گویند ترامپ هنوز درباره گام بعدی درباره ایران تصمیم نگرفته است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فارس: نمایندگان مجلس پیشنهاد افزایش ۵۰۰ هزار تا ۱ میلیون‌تومانی رقم کالابرگ را داده‌اند اما دولت گفته که تنها منابع افزایش ۲۵۰ هزارتومانی رقم کالابرگ را در اختیار دارد و سازمان برنامه هم اعلام کرده که پول نداریم!
 
 ✅ @AloNews خبر جنگ
 </div>

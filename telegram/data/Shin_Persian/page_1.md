@@ -1,8 +1,62 @@
 # آرشیو کانال Shin_Persian - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 00:40
+📅 آخرین بروزرسانی: 1405/02/27 01:41
 
 ---
+
+## Shin_Persian — post 6043
+
+<div align="center"><img src="telegram/content/Shin_Persian_6043.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Sat, 16 May 2026 21:25:20 UTC
+
+President Trump @POTUS:
+"https://x.com/lauraloomer/status/2055609922935496847?s=42"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+"https://x.com/lauraloomer/status/2055609922935496847?s=42"
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6042
+
+<div align="center"><img src="telegram/content/Shin_Persian_6042.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet: Laura Loomer ✓ @LauraLoomer Sat, 16 May 2026 11:22:51 UTC EXCLUSIVE: 🚨 Congressman Randy Fine @RepFine tells me he was approached by Cynthia West @Cyntaxed007 (Thomas Massie’s accuser) last year in Florida about Thomas Massie’s @RepThomasMassie…
+</div>
+
+## Shin_Persian — post 6041
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet:
+Laura Loomer ✓ @LauraLoomer
+Sat, 16 May 2026 11:22:51 UTC
+
+EXCLUSIVE:
+
+🚨 Congressman Randy Fine @RepFine tells me he was approached by Cynthia West @Cyntaxed007 (Thomas Massie’s accuser) last year in Florida about Thomas Massie’s @RepThomasMassie alleged financial ties to Iran. 🚨
+
+Rep. Randy Fine revealed to me that he met Thomas
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+اختصاصی:
+
+🚨 رندی فاین @RepFine، عضو کنگره، به من گفت که سال گذشته در فلوریدا، سینتیا وست @Cyntaxed007 (متهم‌کننده توماس ماسی) در مورد پیوندهای مالی ادعایی توماس ماسی @RepThomasMassie با ایران به او مراجعه کرده است. 🚨
+
+نماینده رندی فاین برای من فاش کرد که با توماس ملاقات کرده است...
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6040
 
@@ -336,51 +390,6 @@ Four assistants to Haddad were killed inside a vehicle as they attempted to esca
 فارسی
 
 چهار دستیار حداد در حالی که قصد داشتند با خودرویی از آپارتمانی که به عنوان مخفیگاه او استفاده می‌شد فرار کنند، کشته شدند.
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 6020
-
-<div align="center"><img src="telegram/content/Shin_Persian_6020.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Waleed Gadban ✓ @GadbanWaleed
-Fri, 15 May 2026 17:28:51 UTC
-
-در تصویر: ترور تروریست ارشد حماس.
-
-احمد وحیدی، داری نگاه می‌کنی؟
-
-English
-
-In the image: The assassination of a senior Hamas terrorist.
-
-Ahmad Vahidi, are you watching?
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 6019
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-↩️ Quoted tweet: Emanuel (Mannie) Fabian ✓ @manniefabian Fri, 15 May 2026 17:18:34 UTC A senior Israeli security official tells reporters that there are "initial indications" that Izz al-Din al-Haddad was killed in the airstrike in Gaza City a short while…
-</div>
-
-## Shin_Persian — post 6018
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-↩️ Quoted tweet:
-Emanuel (Mannie) Fabian ✓ @manniefabian
-Fri, 15 May 2026 17:18:34 UTC
-
-A senior Israeli security official tells reporters that there are "initial indications" that Izz al-Din al-Haddad was killed in the airstrike in Gaza City a short while ago.
-
-↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
-
-فارسی
-
-یک مقام ارشد امنیتی اسرائیل به خبرنگاران می‌گوید که «نشانه های اولیه» وجود دارد که نشان می‌دهد عزالدین الحداد در حمله هوایی اندکی پیش در شهر غزه کشته شده است.
 
 𝕏 · @shin_persian
 </div>

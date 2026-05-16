@@ -1,8 +1,19 @@
 # آرشیو کانال manototv - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 00:50
+📅 آخرین بروزرسانی: 1405/02/27 01:51
 
 ---
+
+## manototv — post 105500
+
+<div align="center"><video src="telegram/content/manototv_105500.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105500.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌
+وزارت خارجه آمریکا اعلام کرد آتش‌بس میان اسرائیل و لبنان برای ۴۵ روز دیگر تمدید شده تا فرصت بیشتری برای ادامه مذاکرات فراهم شود.
+</div>
 
 ## manototv — post 105499
 
@@ -275,15 +286,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 «انتقام خون بچه‌ها رو می‌گیریم»
-</div>
-
-## manototv — post 105480
-
-<div align="center"><video src="telegram/content/manototv_105480.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105480.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«صدای فاطمه سپهری باشیم»
 </div>
 

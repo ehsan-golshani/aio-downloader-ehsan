@@ -1,8 +1,90 @@
 # آرشیو کانال alonews - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/02/27 00:51
+📅 آخرین بروزرسانی: 1405/02/27 01:52
 
 ---
+
+## alonews — post 120190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈امارات و هند یه توافق بستن برای تأمین گاز مایع (LPG)
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120189
+
+<div align="center"><video src="telegram/content/alonews_120189.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120189.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈گزارشگر: اطمینان‌های سال ۱۹۸۲ که رئیس‌جمهور ریگان داده بود، می‌گفت ایالات متحده در مورد فروش تسلیحات به تایوان با چین مشورت نخواهد کرد.
+
+🔴ترامپ: فکر می‌کنم سال ۱۹۸۲ خیلی دور است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120188
+
+<div align="center"><video src="telegram/content/alonews_120188.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120188.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ درباره کوبا: آنها به کمک نیاز دارند. آنها واقعاً یک ملت — یا یک کشور — در حال افول هستند.
+
+🔴ما چیزهای زیادی برای صحبت درباره کوبا داریم، اما شاید امروز نه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120187
+
+<div align="center"><video src="telegram/content/alonews_120187.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120187.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار: آیا اصلاً درباره اوکراین با شی صحبت کردید؟ و آیا در این زمینه پیشرفتی حاصل شده است؟
+
+🔴ترامپ: بله، صحبت کردیم — خب، این موضوعی است که دوست داریم حل شود. تا دیشب اوضاع خوب به نظر می‌رسید، اما آنها دیشب ضربه بزرگی خوردند.
+
+🔴پس این اتفاق خواهد افتاد، اما حیف است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120186
+
+<div align="center"><video src="telegram/content/alonews_120186.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120186.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار: دیروز از دریاسالار کوپر درباره حمله به مدرسه دخترانه در اولین روز جنگ سوال شد.
+
+🔴ترامپ: شما درباره مورد اصلی صحبت می‌کنید — که در حال بررسی است.
+
+🔴خبرنگار: آیا می‌توانید تایید کنید که این موشک آمریکایی بود؟
+
+🔴ترامپ: شما با چه کسی هستید؟
+
+🔴خبرنگار: بی‌بی‌سی.
+
+🔴ترامپ: بی‌بی‌سی جعلی.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عراقچی: اگه به جنگ برگردن این تصمیم خودشونه، ولی نتیجه فرقی نمیکنه و بازم شکست میخورن
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120184
 
@@ -152,66 +234,6 @@
 👈ترامپ: وقتی به پیشنهاد ایران نگاه کردم، جمله اول را دوست نداشتم و قابل قبول نبود، بنابراین پیشنهاد را رد کردم
 
 🔴تحقیقات درباره هدف قرار دادن مدرسه در ایران در حال انجام است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120164
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: من به جایی رفتم که شی زندگی می کند، چیزی که به ندرت اتفاق می افتد.
-
-🔴خبرنگار: اونجا بودی؟
-
-🔴ترامپ: آره قشنگ بود.منظورم این است که مردم هرگز آن را ندیده اند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120163
-
-<div align="center"><video src="telegram/content/alonews_120163.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120163.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: رابطه بسیار خوبی با کیم جونگ اون دارم
-
-🔴دونالد ترامپ گفت با کیم جونگ اون، رهبر کره شمالی، «رابطه بسیار خوبی» دارد و او تا امروز نسبت به آمریکا محترمانه رفتار کرده است.
-
-🔴ترامپ اضافه کرد که میخواهد این احترام ادامه داشته باشد. این اظهارات در حالی مطرح میشود که پرونده کره شمالی دوباره به یکی از آزمون‌های مهم سیاست خارجی واشنگتن تبدیل شده، جایی که ترامپ مثل همیشه روی رابطه شخصی با رهبران سختگیر حساب باز میکند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120162
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: 80 درصد از توان موشکی ایران نابود شده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ : «مواد هسته‌ای» ایران، ممکنه به چین یا آمریکا تحویل داده شه!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: «من دیگر خیلی بیشتر از این صبر نخواهم کرد. آنها باید توافق را امضا کنند.»
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120159
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عراقچی: پس از اینکه ترامپ آخرین پیشنهاد ما را رد کرد، پیام‌هایی از آمریکا دریافت کردیم که تمایلش به ادامه گفت‌وگو است
 
 ✅ @AloNews خبر جنگ
 </div>

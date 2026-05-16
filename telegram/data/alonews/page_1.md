@@ -1,8 +1,75 @@
 # آرشیو کانال alonews - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 00:51
+📅 آخرین بروزرسانی: 1405/02/27 01:52
 
 ---
+
+## alonews — post 120502
+
+<div align="center"><img src="telegram/content/alonews_120502.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥💥اینترنت آزاد و رایگان
+
+🌐🚫تنها جایی که کانفیگ رایگان میزاره
+
+⬇️⬇️
+@NetAazaadBot
+@NetAazaadBot
+
+⚠️هر ساعت 100گیگ شارژ میشه، رباتو داشته باشید تا مطلع بشید
+</div>
+
+## alonews — post 120500
+
+<div align="center"><img src="telegram/content/alonews_120500.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈میخائیل اولیانوف، نماینده روسیه :
+کارشناسا میگن آمریکا و اسرائیل ممکنه به‌زودی دوباره به ایران حمله کنن
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120499
+
+<div align="center"><video src="telegram/content/alonews_120499.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120499.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈یادی کنیم از حضور غرور انگیز بیرانوند در دایرکت یک مدل معروف
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120498
+
+<div align="center"><img src="telegram/content/alonews_120498.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈بیرانوند : با صدای بلند و رسا کف آمریکا سرود جمهوری اسلامی ایران رو می‌خونم. مخالفا هم نمی‌تونن کاری بکنن
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120497
+
+<div align="center"><img src="telegram/content/alonews_120497.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈علم الهدی: تو آمریکا 9میلیون آمریکایی پرچم ایران رو دستشون گرفتن
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120496
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈شبکه GB News ادعا می‌کند که نخست‌وزیر کیر در حال آماده‌سازی جدول زمانی استعفا است
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120495
 
@@ -161,65 +228,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥 FLASH NET VPN 🔥 ⚠️ شرایط جنگی؟ نت ملی؟ فیلترینگ سنگین؟ 💪 ما هنوز پایدار و بدون قطعی کنار شماییم! 🚀 پینگ خفن 🌐 سرعت فوق‌العاده پایدار 😍 رضایت فراوان کاربران 🤖 ربات کاملاً خودکار 💸 نرخ‌ها پایین‌تر از همه جا 🇧🇬 تک لوکیشن بلغارستان ♾ بدون ضریب 🔗 دارای لینک…
-</div>
-
-## alonews — post 120478
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈العربیه به نقل از پاکستان: حضور وزیر کشور پاکستان در ایران یک روز دیگر ادامه خواهد یافت تا در مورد چشم‌انداز ازسرگیری مذاکرات گفت‌وگو شود ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120477
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈العربیه به نقل از پاکستان: حضور وزیر کشور پاکستان در ایران یک روز دیگر ادامه خواهد یافت تا در مورد چشم‌انداز ازسرگیری مذاکرات گفت‌وگو شود
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سی ان ان: ترامپ بدون پیشرفت در موضوع ایران از چین بازگشت و نسبت به مذاکرات متوقف شده بی‌صبرتر می‌شود،هم اکنون ترامپ در حال بررسی گزینه های نظامی بر علیه ایران است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈بلومبرگ: آمریکا معافیت فروش نفت روسیه را متوقف کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120474
-
-<div align="center"><img src="telegram/content/alonews_120474.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار فاکس نیوز: ترامپ درحال آماده‌شدن برای دور جدیدی از حملات نظامی به ایران است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120473
-
-<div align="center"><video src="telegram/content/alonews_120473.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120473.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 ترامپ: ایران در گذشته بارها تنگه هرمز را بسته است!
-
-🔴ترامپ : ایران سال‌هاست که با استفاده از تنگه هرمز، جهان را تحت فشار گذاشته است.
-
-🔴ایران از انسداد تنگه هرمز بارها و بارها بهره برداری کرده! (بارها تنگه را بسته است)
-
-🔴آنها در گذشته تنگه را بسته‌اند. از آن به عنوان یک سلاح استفاده کردند!
-
-🔴 اما الان نمی‌توانند از آن به عنوان سلاح علیه من استفاده ‌کنند.
-
-✅ @AloNews خبر جنگ
 </div>
 

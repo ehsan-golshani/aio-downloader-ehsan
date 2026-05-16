@@ -1,8 +1,53 @@
 # آرشیو کانال Shin_Persian - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 00:40
+📅 آخرین بروزرسانی: 1405/02/27 01:41
 
 ---
+
+## Shin_Persian — post 6020
+
+<div align="center"><img src="telegram/content/Shin_Persian_6020.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Waleed Gadban ✓ @GadbanWaleed
+Fri, 15 May 2026 17:28:51 UTC
+
+در تصویر: ترور تروریست ارشد حماس.
+
+احمد وحیدی، داری نگاه می‌کنی؟
+
+English
+
+In the image: The assassination of a senior Hamas terrorist.
+
+Ahmad Vahidi, are you watching?
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet: Emanuel (Mannie) Fabian ✓ @manniefabian Fri, 15 May 2026 17:18:34 UTC A senior Israeli security official tells reporters that there are "initial indications" that Izz al-Din al-Haddad was killed in the airstrike in Gaza City a short while…
+</div>
+
+## Shin_Persian — post 6018
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet:
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Fri, 15 May 2026 17:18:34 UTC
+
+A senior Israeli security official tells reporters that there are "initial indications" that Izz al-Din al-Haddad was killed in the airstrike in Gaza City a short while ago.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+یک مقام ارشد امنیتی اسرائیل به خبرنگاران می‌گوید که «نشانه های اولیه» وجود دارد که نشان می‌دهد عزالدین الحداد در حمله هوایی اندکی پیش در شهر غزه کشته شده است.
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6017
 
@@ -263,87 +308,5 @@ President Trump @POTUS:
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Samim ✓ @PawnToPromotion Thu, 14 May 2026 10:14:23 UTC آپدیت «خیلی مهم» برای کلاینت شیر و خورشید 2026.05.14: تنظیمات بیشتر برای CDN Domain Fronting: توجه کنید سایفون خودش دامین فرانتینگ انجام میده! ولی اون روش MitM که @patterniha پیدا کرد تنظیمات و جزییات…
-</div>
-
-## Shin_Persian — post 5997
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Samim ✓ @PawnToPromotion
-Thu, 14 May 2026 10:14:23 UTC
-
-آپدیت «خیلی مهم» برای کلاینت شیر و خورشید 2026.05.14:
-
-تنظیمات بیشتر برای CDN Domain Fronting: توجه کنید سایفون خودش دامین فرانتینگ انجام میده! ولی اون روش MitM که @patterniha پیدا کرد تنظیمات و جزییات دامین فرانتینگ متفاوتی داره. در این آپدیت٬ کلاینت شیر و خورشید کاری مشابه به چیزی که @patterniha ها معرفی کرد انجام میده با این تفاوت که این روش در هسته شیر و خورشید اضافه شده پس دیگه نیازی به xray و cert وکارای دیگه نیست.
-
-۱. آپدیت رو نصب کنید
-۲. پروتکل را روی یکی از حالت های Auto یا Direct یا CDN Fronting تنظیم کنید
-۳. کلاینت شیر و خورشید باید الان خودش به تنهایی وصل بشه براتون!
-
-قابلیت تنظیمات بیشتر برای SNI و IP هم وجود داره که فعلا بهش نیازی نیست و میتونید خالی بگذارید باشه. ولی برای آینده شاید به کار بیاد.
-
-میتونید از اینجا دانلود و نصب کنید و ممنون میشم اگه repost کنید که تعداد بیشتری ببینند:
-
-https://github.com/shirokhorshid/shirokhorshid-android/releases/tag/v2026.05.14-8a28d0c
-
-در تلگرام هم آپلود کردم اگر براتون راحت تر هست میتونید از اونجا آپدیت رو بگیرید:
-
-https://t.me/+aF04HaDSxVI4ZGEx
-
-English
-
-"Very Important" update for the Lion and Sun client 2026.05.14:
-
-More settings for CDN Domain Fronting: Note that Psiphon performs its own domain fronting! However, the MitM (Man-in-the-Middle) method discovered by @patterniha involves different domain fronting settings and details. In this update, the Lion and Sun client performs an action similar to what @patterniha introduced, with the difference that this method has been integrated into the Lion and Sun core, so there is no longer a need for Xray, certificates, or other manual tasks.
-
-1. Install the update.
-2. Set the protocol to one of the following modes: Auto, Direct, or CDN Fronting.
-3. The Lion and Sun client should now connect for you on its own!
-
-There are also additional configuration options for SNI (Server Name Indication) and IP, which are not currently needed and can be left blank. However, they may be useful in the future.
-
-You can download and install it from here, and I would appreciate it if you reposted so more people can see it:
-
-https://github.com/shirokhorshid/shirokhorshid-android/releases/tag/v2026.05.14-8a28d0c
-
-I have also uploaded it to Telegram; if it is easier for you, you can get the update from there:
-
-https://t.me/+aF04HaDSxVI4ZGEx
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5996
-
-<div align="center"><img src="telegram/content/Shin_Persian_5996.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-UKMTO Operations Centre @UK_MTO
-Thu, 14 May 2026 07:00:22 UTC
-
-UKMTO WARNING 057-26
-
-Click here to view the full warning⤵️
-http://www.ukmto.org/-/media/ukmto/products/20260514-ukmto_057_26_warning_suspicious-activity.pdf?rev=67da24ed8b4f43389506d6abbb5fb841
-
-#MaritimeSecurity #MarSec
-
-فارسی
-
-هشدار UKMTO 057-26
-
-برای مشاهده متن کامل هشدار اینجا کلیک کنید⤵️
-http://www.ukmto.org/-/media/ukmto/products/20260514-ukmto_057_26_warning_suspicious-activity.pdf?rev=67da24ed8b4f43389506d6abbb5fb841
-
-#MaritimeSecurity #MarSec_
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5995
-
-<div align="center"><img src="telegram/content/Shin_Persian_5995.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-↩️ Quoted tweet: DefenceGeek 🇬🇧 ✓ @DefenceGeek Wed, 13 May 2026 19:49:28 UTC B-2 Spirit on a training flight from CONUS as part of a suspected STRATCOM exercise involving the E-6B flying out of Stuttgart ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.…
 </div>
 

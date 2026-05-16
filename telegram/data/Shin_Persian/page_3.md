@@ -1,8 +1,90 @@
 # آرشیو کانال Shin_Persian - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 00:40
+📅 آخرین بروزرسانی: 1405/02/27 01:41
 
 ---
+
+## Shin_Persian — post 5997
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Samim ✓ @PawnToPromotion
+Thu, 14 May 2026 10:14:23 UTC
+
+آپدیت «خیلی مهم» برای کلاینت شیر و خورشید 2026.05.14:
+
+تنظیمات بیشتر برای CDN Domain Fronting: توجه کنید سایفون خودش دامین فرانتینگ انجام میده! ولی اون روش MitM که @patterniha پیدا کرد تنظیمات و جزییات دامین فرانتینگ متفاوتی داره. در این آپدیت٬ کلاینت شیر و خورشید کاری مشابه به چیزی که @patterniha ها معرفی کرد انجام میده با این تفاوت که این روش در هسته شیر و خورشید اضافه شده پس دیگه نیازی به xray و cert وکارای دیگه نیست.
+
+۱. آپدیت رو نصب کنید
+۲. پروتکل را روی یکی از حالت های Auto یا Direct یا CDN Fronting تنظیم کنید
+۳. کلاینت شیر و خورشید باید الان خودش به تنهایی وصل بشه براتون!
+
+قابلیت تنظیمات بیشتر برای SNI و IP هم وجود داره که فعلا بهش نیازی نیست و میتونید خالی بگذارید باشه. ولی برای آینده شاید به کار بیاد.
+
+میتونید از اینجا دانلود و نصب کنید و ممنون میشم اگه repost کنید که تعداد بیشتری ببینند:
+
+https://github.com/shirokhorshid/shirokhorshid-android/releases/tag/v2026.05.14-8a28d0c
+
+در تلگرام هم آپلود کردم اگر براتون راحت تر هست میتونید از اونجا آپدیت رو بگیرید:
+
+https://t.me/+aF04HaDSxVI4ZGEx
+
+English
+
+"Very Important" update for the Lion and Sun client 2026.05.14:
+
+More settings for CDN Domain Fronting: Note that Psiphon performs its own domain fronting! However, the MitM (Man-in-the-Middle) method discovered by @patterniha involves different domain fronting settings and details. In this update, the Lion and Sun client performs an action similar to what @patterniha introduced, with the difference that this method has been integrated into the Lion and Sun core, so there is no longer a need for Xray, certificates, or other manual tasks.
+
+1. Install the update.
+2. Set the protocol to one of the following modes: Auto, Direct, or CDN Fronting.
+3. The Lion and Sun client should now connect for you on its own!
+
+There are also additional configuration options for SNI (Server Name Indication) and IP, which are not currently needed and can be left blank. However, they may be useful in the future.
+
+You can download and install it from here, and I would appreciate it if you reposted so more people can see it:
+
+https://github.com/shirokhorshid/shirokhorshid-android/releases/tag/v2026.05.14-8a28d0c
+
+I have also uploaded it to Telegram; if it is easier for you, you can get the update from there:
+
+https://t.me/+aF04HaDSxVI4ZGEx
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5996
+
+<div align="center"><img src="telegram/content/Shin_Persian_5996.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+UKMTO Operations Centre @UK_MTO
+Thu, 14 May 2026 07:00:22 UTC
+
+UKMTO WARNING 057-26
+
+Click here to view the full warning⤵️
+http://www.ukmto.org/-/media/ukmto/products/20260514-ukmto_057_26_warning_suspicious-activity.pdf?rev=67da24ed8b4f43389506d6abbb5fb841
+
+#MaritimeSecurity #MarSec
+
+فارسی
+
+هشدار UKMTO 057-26
+
+برای مشاهده متن کامل هشدار اینجا کلیک کنید⤵️
+http://www.ukmto.org/-/media/ukmto/products/20260514-ukmto_057_26_warning_suspicious-activity.pdf?rev=67da24ed8b4f43389506d6abbb5fb841
+
+#MaritimeSecurity #MarSec_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5995
+
+<div align="center"><img src="telegram/content/Shin_Persian_5995.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet: DefenceGeek 🇬🇧 ✓ @DefenceGeek Wed, 13 May 2026 19:49:28 UTC B-2 Spirit on a training flight from CONUS as part of a suspected STRATCOM exercise involving the E-6B flying out of Stuttgart ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.…
+</div>
 
 ## Shin_Persian — post 5994
 
@@ -277,62 +359,6 @@ President Trump @POTUS:
 
 رئیس‌جمهور ترامپ @POTUS:
 «وقتی اخبار جعلی می‌گویند که دشمن ایرانی از نظر نظامی در برابر ما خوب عمل می‌کند، این در واقع خیانتی مجازی است، چرا که چنین ادعایی کذب و حتی مضحک است. آن‌ها در حال کمک و یاری رساندن به دشمن هستند! تمام کاری که این حرف‌ها انجام می‌دهد، دادن امید واهی به ایران است، در حالی که هیچ امیدی نباید وجود داشته باشد. این‌ها بزدلانی آمریکایی هستند که علیه کشورمان ریشه دوانده‌اند. ایران ۱۵۹ کشتی در نیروی دریایی خود داشت — اکنون تک‌تک آن کشتی‌ها در کف دریا آرام گرفته‌اند. آن‌ها دیگر نیروی دریایی ندارند، نیروی هوایی‌شان از بین رفته، تمام تکنولوژی‌شان نابود شده، "رهبرانشان" دیگر در میان ما نیستند و آن کشور یک فاجعه اقتصادی است. فقط بازنده‌ها، ناسپاس‌ها و احمق‌ها می‌توانند علیه آمریکا استدلال کنند! رئیس‌جمهور دونالد جی. ترامپ»
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5977
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Shin ✓ @hey_itsmyturn
-Tue, 12 May 2026 20:17:27 UTC
-
-Quake in Tehran right now.
-
-فارسی
-
-هم‌اکنون زلزله در تهران.
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5976
-
-<div align="center"><img src="telegram/content/Shin_Persian_5976.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DefenceGeek 🇬🇧 ✓ @DefenceGeek Tue, 12 May 2026 19:21:43 UTC 40th Bomber Training Flight from Fairford #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- Rather helpfully, the solo B-1B "Lancer" bomber from RAF Fairford (EGVA) (which is flying the…
-</div>
-
-## Shin_Persian — post 5975
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DefenceGeek 🇬🇧 ✓ @DefenceGeek
-Tue, 12 May 2026 19:21:43 UTC
-
-40th Bomber Training Flight from Fairford #FreeIran‌
---- Operation EPIC FURY / Project FREEDOM ---
-
-Rather helpfully, the solo B-1B "Lancer" bomber from RAF Fairford (EGVA) (which is flying the 40th training mission from the base since the ceasefire began), has been broadcasting it's location for all to see!
-
-This route has been a fairly routine pattern for the training flights, and for many of the 62 bomber missions flown by B-1B and B-52H types during the war in Iran.
-
-B-1B "ZENER01" 86-0134 #AE6C05 "Thunderbird"
-
-@MATA_osint @ArmchairAdml @Andyyyyrrrr @jamjake01 @LHA2709 @vcdgf555
-
-فارسی
-
-چهلمین پرواز آموزشی بمب‌افکن از فیرفورد #FreeIran
---- عملیات خشم حماسی (EPIC FURY) / پروژه آزادی ---
-
-بمب‌افکن تک‌فروندی B-1B "لنسر" از پایگاه نیروی هوایی سلطنتی فیرفورد (EGVA) (که در حال انجام چهلمین ماموریت آموزشی از این پایگاه پس از آغاز آتش‌بس است)، به شکلی کاملاً مفید در حال مخابره موقعیت مکانی خود برای مشاهده همگان بوده است!
-
-این مسیر یک الگوی نسبتاً معمول برای پروازهای آموزشی و همچنین برای بسیاری از ۶۲ ماموریت بمب‌افکنی انجام شده توسط انواع B-1B و B-52H در طول جنگ در ایران بوده است.
-
-B-1B "ZENER01" 86-0134 #AE6C05 "Thunderbird"
-
-@MATA_osint @ArmchairAdml @Andyyyyrrrr @jamjake01 @LHA2709 @vcdgf555
 
 𝕏 · @shin_persian
 </div>

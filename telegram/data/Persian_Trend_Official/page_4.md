@@ -1,8 +1,24 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/27 00:45
+📅 آخرین بروزرسانی: 1405/02/27 01:45
 
 ---
+
+## Persian_Trend_Official — post 14215
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14215.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14215.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇮🇷
+🇺🇸🇨🇳سفیر ایالات متحده مایک والتز ادعا می‌کند که «نتیجه بزرگ» سفر ترامپ به چین، موافقت چین با عقب‌نشینی از ایران بوده است
+
+👑:☆Phantom☆
+
+📮 persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14213
 
@@ -254,27 +270,6 @@ https://youtube.com/live/MneL4ZkKs1A?feature=share
 💢بهش گفتم ما یه عالمه کارها علیه شما میکنیم که اصلا خبر ندارین
 
 پ ن : نخود در دهن ترامپ خیس نمیخورد ...
-
-🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 صدراعظم آلمان: ایران باید فوراً به میز مذاکره بازگردد
-
-💢فریدریش مرتس، صدراعظم آلمان، اعلام کرد در مسیر بازگشت از چین با دونالد ترامپ گفت‌وگوی تلفنی داشته است.
-
-💢مرتس گفت:
-
-▪️ او و ترامپ توافق دارند ایران باید فوراً به مذاکرات بازگردد
-▪️ ایران نباید به سلاح هسته‌ای دست پیدا کند
-▪️ تهران باید تنگه هرمز را باز کند
-
-💢این اظهارات در حالی مطرح می‌شود که عباس عراقچی، وزیر خارجه ایران، پیش‌تر گفته بود تنگه هرمز برای کشورهای «دوست» باز است؛ مشروط به هماهنگی با مقام‌های ایرانی، اما این موضوع شامل کشورهای «دشمن» نمی‌شود.
 
 🫆:Tony
 

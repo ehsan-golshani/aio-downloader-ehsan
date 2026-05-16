@@ -1,8 +1,14 @@
 # آرشیو کانال FarsiVOA - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/02/27 00:43
+📅 آخرین بروزرسانی: 1405/02/27 01:44
 
 ---
+
+## FarsiVOA — post 217712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس جمهوری آمریکا، روز پنج‌شنبه طی سخنانی که در مهمانی شام رسمی که به افتخار او در پکن برگزار شده است، گفت که دو طرف «گفت‌وگوها و نشست‌های بسیار مثبت و سازنده‌ای» داشته‌اند. او رابطه آمریکا و چین را یکی از «سرنوشت‌سازترین روابط در تاریخ جهان» توصیف کرد.
+</div>
 
 ## FarsiVOA — post 217711
 
@@ -262,17 +268,6 @@ https://ir.voanews.com/a/8149914.html
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️چه توقعات اقتصادی می‌توان از سفر دونالد ترامپ به چین داشت؟ گفت‌وگو با نادر حبیبی
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217691
-
-<div align="center"><video src="telegram/content/FarsiVOA_217691.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217691.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️گزارش خبرنگار اعزامی صدای آمریکا از سفر رئیس جمهوری آمریکا به چین
 @FarsiVOA
 </div>
 

@@ -1,8 +1,68 @@
 # آرشیو کانال alonews - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 00:51
+📅 آخرین بروزرسانی: 1405/02/27 01:52
 
 ---
+
+## alonews — post 120478
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈العربیه به نقل از پاکستان: حضور وزیر کشور پاکستان در ایران یک روز دیگر ادامه خواهد یافت تا در مورد چشم‌انداز ازسرگیری مذاکرات گفت‌وگو شود ✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120477
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈العربیه به نقل از پاکستان: حضور وزیر کشور پاکستان در ایران یک روز دیگر ادامه خواهد یافت تا در مورد چشم‌انداز ازسرگیری مذاکرات گفت‌وگو شود
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سی ان ان: ترامپ بدون پیشرفت در موضوع ایران از چین بازگشت و نسبت به مذاکرات متوقف شده بی‌صبرتر می‌شود،هم اکنون ترامپ در حال بررسی گزینه های نظامی بر علیه ایران است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈بلومبرگ: آمریکا معافیت فروش نفت روسیه را متوقف کرد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120474
+
+<div align="center"><img src="telegram/content/alonews_120474.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار فاکس نیوز: ترامپ درحال آماده‌شدن برای دور جدیدی از حملات نظامی به ایران است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120473
+
+<div align="center"><video src="telegram/content/alonews_120473.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120473.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 ترامپ: ایران در گذشته بارها تنگه هرمز را بسته است!
+
+🔴ترامپ : ایران سال‌هاست که با استفاده از تنگه هرمز، جهان را تحت فشار گذاشته است.
+
+🔴ایران از انسداد تنگه هرمز بارها و بارها بهره برداری کرده! (بارها تنگه را بسته است)
+
+🔴آنها در گذشته تنگه را بسته‌اند. از آن به عنوان یک سلاح استفاده کردند!
+
+🔴 اما الان نمی‌توانند از آن به عنوان سلاح علیه من استفاده ‌کنند.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120472
 
@@ -171,69 +231,5 @@
 
 
 ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نتانیاهو : اگه آمریکا دوباره بخواد عملیات نظامی علیه ایران رو شروع کنه، اسرائیل آماده‌ست
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120457
-
-<div align="center"><video src="telegram/content/alonews_120457.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120457.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈پست جدید ترامپ درباره ایران در Truth Social
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120456
-
-<div align="center"><img src="telegram/content/alonews_120456.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تصویری از شهر بنت جبیل، قبل و بعد از حمله اسرائیل به این شهر
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120455
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈الجزیره: بیش از یک میلیون لبنانی توسط اسرائیل از خانه‌هایشان رانده شده‌اند
-
-🔴بیش از یک میلیون نفر در لبنان بر اثر حملات اسرائیل آواره شده‌اند، از جمله پناهندگان فلسطینی که دهه‌ها فقدان و آوارگی را تجربه می‌کنند.
-
-🔴بسیاری از خانواده‌ها همچنان بی‌خانمان هستند، زیرا محله‌های حومه جنوبی بیروت با ویرانی گسترده و ناامنی مداوم مواجه هستند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120454
-
-<div align="center"><img src="telegram/content/alonews_120454.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 ترامپ، بایدن رو مسخره کرده : چه تفاوت بزرگی!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120453
-
-<div align="center"><img src="telegram/content/alonews_120453.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بابک جهانبخش، خواننده: به تازگی از همسرم جدا شدم، من اونو از ۰ به ۱۰۰ رسوندم اما اون با ۲ تا بچه ولم کرد رفت. زنم فقط به چشم عابر بانک بهم نگاه میکرد و از من به عنوان پله موفقیت خودش استفاده کرد.
-
-نظرتون؟
-
-[@AloTweet]
 </div>
 

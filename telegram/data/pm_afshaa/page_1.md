@@ -1,8 +1,17 @@
 # آرشیو کانال pm_afshaa - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 00:34
+📅 آخرین بروزرسانی: 1405/02/27 01:36
 
 ---
+
+## pm_afshaa — post 90875
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیرانوند : با صدای بلند و رسا کف آمریکا سرود ملی رو می‌خونم. مخالفا هم نمی‌تونن کاری بکنن
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90874
 
@@ -199,16 +208,5 @@ conquestback
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴ایسنا: وزیر کشور پاکستان برای دیدار با مسئولان جمهوری اسلامی ساعاتی قبل به تهران سفر کرده. 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90850
-
-<div align="center"><img src="telegram/content/pm_afshaa_90850.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴استوری مشاور قالیباف همزمان با بالا گرفتن احتمال شروع مجدد جنگ :
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
 </div>
 

@@ -1,8 +1,50 @@
 # آرشیو کانال WithYashar - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/27 00:32
+📅 آخرین بروزرسانی: 1405/02/27 01:34
 
 ---
+
+## WithYashar — post 11202
+
+<div align="center"><video src="telegram/content/WithYashar_11202.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11202.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برنامه های ترامپ با حاکم چین به این ترتیبه : مراسم استقبال تو تالار بزرگ خلق چهارشنبه رسیدن به پکن ، استقرار و استراحت پنج شنبه ۱۴ مه - ملاقات با شی - ضیافت دولتی با شی جمعه تاریخ ۱۵ مه - جلسه عکس با شی- چای با شی - ناهار با شی و حرکت از پکن به آمریکا، @withyashar
+</div>
+
+## WithYashar — post 11201
+
+## WithYashar — post 11200
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فارس: عبور کشتی‌های چینی از تنگۀ هرمز از شب گذشته اغاز شده
+@withyashar
+یک کشتی ژاپنی هم اجازه عبور گرفت
+</div>
+
+## WithYashar — post 11199
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاخ سفید اعلام کرد در دیدار ترامپ و شی جین‌پینگ، دو طرف بر باز ماندن تنگه هرمز و تقویت همکاری‌های اقتصادی توافق کردند. این توافق شامل افزایش سرمایه‌گذاری چین در صنایع آمریکا و گسترش دسترسی شرکت‌های آمریکایی به بازار چین است.
+
+ترامپ: مذاکرات پکن بسیار مثبت و سازنده بود
+@withyashar
+</div>
+
+## WithYashar — post 11198
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با رفیق اروپاییم نشستیم داریم ویدیو مسیج های شما رو نگاه میکنیم براش ترجمه میکنم که داری چی میگی، بعد یهو میگه اینجا چی گفت، خب من چجوری گربه گیر رو ترجمه کنم😂😂😂😂😂 عشقی سلطان یاشار❤️❤️
+</div>
+
+## WithYashar — post 11197
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با رفیق اروپاییم نشستیم داریم ویدیو مسیج های شما رو نگاه میکنیم براش ترجمه میکنم که داری چی میگی، بعد یهو میگه اینجا چی گفت، خب من چجوری گربه گیر رو ترجمه کنم😂😂😂😂😂
+عشقی سلطان یاشار❤️❤️
+</div>
 
 ## WithYashar — post 11196
 
@@ -117,68 +159,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تاج : در جریان آهنگی که معین برای تیم ملی در جام جهنی ۲۰۲۶ می خواند هستیم @withyashar
-</div>
-
-## WithYashar — post 11182
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اتاق جنگ با شما : زمین لرزه خیلی شدید کرمان یک دقیقه پیش
-@withyashar
-</div>
-
-## WithYashar — post 11181
-
-<div align="center"><video src="telegram/content/WithYashar_11181.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11181.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصویربرداری عجیب یا اسکن ۳۶۰ ایلان ماسک از موقعیت با گوشی خودش
-@withyashar
-</div>
-
-## WithYashar — post 11180
-
-<div align="center"><video src="telegram/content/WithYashar_11180.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11180.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صحنه ای زیبا در چین که کودکان به ترامپ و شی خوشامد میگویند
-@withyashar
-</div>
-
-## WithYashar — post 11179
-
-<div align="center"><video src="telegram/content/WithYashar_11179.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11179.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرنگار: آقای رئیس‌جمهور، مذاکرات چطور بود؟
-
-ترامپ : عالی بود. چین زیباست.
-
-خبرنگار: دربارهٔ تایوان هم صحبت کردید؟
-
-ترامپ: (پاسخی نداد)
-@withyashar
-</div>
-
-## WithYashar — post 11178
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارکو روبیو تایید کرد چین و آمریکا به توافق رسیدن که ایران نباید تو تنگه عوارض بگیره از کشوری
-
-این «توافق» فعلاً در حد موضع مشترک سیاسی و دیپلماتیک گزارش شده، نه یک پیمان رسمی یا قطعنامه بین‌المللی.
-چین هنوز در بسیاری از موضوعات از ایران فاصله نگرفته و حتی در شورای امنیت بعضی قطعنامه‌های ضد ایران را وتو کرده است.
-دلیل حساسیت موضوع این است که حدود یک‌پنجم نفت جهان از تنگه هرمز عبور می‌کند و هرگونه عوارض یا محدودیت می‌تواند قیمت جهانی انرژی را به شدت تحت تأثیر قرار دهد
-@withyashar
-</div>
-
-## WithYashar — post 11177
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar سفر قاهره
 </div>
 

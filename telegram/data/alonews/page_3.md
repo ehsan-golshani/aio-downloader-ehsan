@@ -1,8 +1,72 @@
 # آرشیو کانال alonews - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 00:51
+📅 آخرین بروزرسانی: 1405/02/27 01:52
 
 ---
+
+## alonews — post 120458
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈نتانیاهو : اگه آمریکا دوباره بخواد عملیات نظامی علیه ایران رو شروع کنه، اسرائیل آماده‌ست
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120457
+
+<div align="center"><video src="telegram/content/alonews_120457.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120457.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پست جدید ترامپ درباره ایران در Truth Social
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120456
+
+<div align="center"><img src="telegram/content/alonews_120456.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈تصویری از شهر بنت جبیل، قبل و بعد از حمله اسرائیل به این شهر
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120455
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈الجزیره: بیش از یک میلیون لبنانی توسط اسرائیل از خانه‌هایشان رانده شده‌اند
+
+🔴بیش از یک میلیون نفر در لبنان بر اثر حملات اسرائیل آواره شده‌اند، از جمله پناهندگان فلسطینی که دهه‌ها فقدان و آوارگی را تجربه می‌کنند.
+
+🔴بسیاری از خانواده‌ها همچنان بی‌خانمان هستند، زیرا محله‌های حومه جنوبی بیروت با ویرانی گسترده و ناامنی مداوم مواجه هستند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120454
+
+<div align="center"><img src="telegram/content/alonews_120454.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 ترامپ، بایدن رو مسخره کرده : چه تفاوت بزرگی!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120453
+
+<div align="center"><img src="telegram/content/alonews_120453.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بابک جهانبخش، خواننده: به تازگی از همسرم جدا شدم، من اونو از ۰ به ۱۰۰ رسوندم اما اون با ۲ تا بچه ولم کرد رفت. زنم فقط به چشم عابر بانک بهم نگاه میکرد و از من به عنوان پله موفقیت خودش استفاده کرد.
+
+نظرتون؟
+
+[@AloTweet]
+</div>
 
 ## alonews — post 120452
 
@@ -152,69 +216,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈وضعیت جنوب لبنان دقایقی قبل ، پس از حملات اسرائیل
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120435
-
-<div align="center"><img src="telegram/content/alonews_120435.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نماینده دائم روسیه در سازمان‌های بین‌المللی مستقر در وین، موضع چین در قبال قطعنامه ضدایرانی بحرین و آمریکا در ارتباط با تنگه هرمز را تایید کرد و گفت «روسیه هم همین دیدگاه را دارد»
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈هیمتی رئیس بانک مرکزی: با قدرت، شتاب تورم را کنترل خواهیم کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120433
-
-<div align="center"><video src="telegram/content/alonews_120433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈امروز ایران یه نفتکش حامل ۴۵۰ هزار بشکه نفت رو به دلیل نقض قوانین جدید تو تنگه هرمز توقیف کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کامران یوسف خبرنگار رسانه پاکستانی اکسپرس نیوز: سفر اعلام‌نشده وزیر کشور پاکستان به تهران، بخشی از تلاش آخر برای حصول توافق بین ایران و آمریکا است.
-
-🔴نقوی از معتمدان نزدیک فیلد مارشال (فرمانده ارتش پاکستان) است و یک ماه پیش نیز او را در سفر سه‌روزه‌اش به ایران همراهی کرده بود.
-
-🔴با توجه به اینکه ترامپ پس از سفر پکن به واشنگتن بازگشته و در حال اندیشیدن به گام بعدی است، سفر وزیر کشور پاکستان حیاتی تلقی می‌شود.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120431
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شبکهٔ ۱۴ اسرائیل از شنیده‌شدن ۲ انفجار در الجلیل غربی خبر داد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120430
-
-<div align="center"><img src="telegram/content/alonews_120430.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تلگراف : مقامای ارشد دولت ترامپ از امارات خواستن تو جنگ علیه ایران بیشتر وارد عمل بشه..
-
-
-🔴حتی صحبت از حمله به جزایر ایرانی تو خلیج فارس هم شده!
 
 ✅ @AloNews خبر جنگ
 </div>

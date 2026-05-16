@@ -1,8 +1,60 @@
 # آرشیو کانال alonews - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/27 00:51
+📅 آخرین بروزرسانی: 1405/02/27 01:52
 
 ---
+
+## alonews — post 120214
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر امور خارجه چین: ما خواستار بازگشایی هرچه سریع‌تر تنگه هرمز هستیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120213
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر خارجه چین : شی جین پینگ پاییز آینده به آمریکا سفر میکنه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزارت نیروهای مسلح فرانسه: ناو هواپیمابر شارل دوگل در دریای عرب در ماموریتی احتمالی برای بازگرداندن ناوبری در تنگه هرمز است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120211
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر امور خارجه چین: ما ایالات متحده و ایران را تشویق می‌کنیم که به حل اختلافات و مناقشات خود از طریق گفتگو ادامه دهند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120210
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈شرکت‌های نفت دولتی هند قیمت بنزین و گازوئیل را بیش از ۳ درصد افزایش دادند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120209
+
+<div align="center"><video src="telegram/content/alonews_120209.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120209.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر انرژی آمریکا : قبل از اینکه تصمیم بگیریم برنامه هسته‌ای ایران رو خلع سلاح کنیم، قیمت نفت و گازوئیل تو کالیفرنیا رسماً ترکونده بود!
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120208
 
@@ -148,88 +200,6 @@
 👈پیش از سوار شدن به ایرفورس وان که از پکن حرکت می‌کرد، کل هیئت آمریکایی تمام اقلام دریافت شده از میزبانان چینی، از جمله هدایا و اقلام یادبود را دور انداختند و هیچ کالای ساخت چین اجازه ورود به هواپیما را نداشت.
 
 🔴 مقامات از آوردن دستگاه‌های شخصی در سفر خودداری کردند و در عوض در طول بازدید از تلفن‌های پاک استفاده کردند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈امارات و هند یه توافق بستن برای تأمین گاز مایع (LPG)
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120189
-
-<div align="center"><video src="telegram/content/alonews_120189.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120189.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈گزارشگر: اطمینان‌های سال ۱۹۸۲ که رئیس‌جمهور ریگان داده بود، می‌گفت ایالات متحده در مورد فروش تسلیحات به تایوان با چین مشورت نخواهد کرد.
-
-🔴ترامپ: فکر می‌کنم سال ۱۹۸۲ خیلی دور است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120188
-
-<div align="center"><video src="telegram/content/alonews_120188.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120188.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ درباره کوبا: آنها به کمک نیاز دارند. آنها واقعاً یک ملت — یا یک کشور — در حال افول هستند.
-
-🔴ما چیزهای زیادی برای صحبت درباره کوبا داریم، اما شاید امروز نه
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120187
-
-<div align="center"><video src="telegram/content/alonews_120187.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120187.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار: آیا اصلاً درباره اوکراین با شی صحبت کردید؟ و آیا در این زمینه پیشرفتی حاصل شده است؟
-
-🔴ترامپ: بله، صحبت کردیم — خب، این موضوعی است که دوست داریم حل شود. تا دیشب اوضاع خوب به نظر می‌رسید، اما آنها دیشب ضربه بزرگی خوردند.
-
-🔴پس این اتفاق خواهد افتاد، اما حیف است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120186
-
-<div align="center"><video src="telegram/content/alonews_120186.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120186.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار: دیروز از دریاسالار کوپر درباره حمله به مدرسه دخترانه در اولین روز جنگ سوال شد.
-
-🔴ترامپ: شما درباره مورد اصلی صحبت می‌کنید — که در حال بررسی است.
-
-🔴خبرنگار: آیا می‌توانید تایید کنید که این موشک آمریکایی بود؟
-
-🔴ترامپ: شما با چه کسی هستید؟
-
-🔴خبرنگار: بی‌بی‌سی.
-
-🔴ترامپ: بی‌بی‌سی جعلی.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120185
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عراقچی: اگه به جنگ برگردن این تصمیم خودشونه، ولی نتیجه فرقی نمیکنه و بازم شکست میخورن
 
 ✅ @AloNews خبر جنگ
 </div>
