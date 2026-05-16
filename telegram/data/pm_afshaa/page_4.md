@@ -1,8 +1,47 @@
 # آرشیو کانال pm_afshaa - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 20:14
+📅 آخرین بروزرسانی: 1405/02/26 21:17
 
 ---
+
+## pm_afshaa — post 90798
+
+<div align="center"><img src="telegram/content/pm_afshaa_90798.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀 آبان‌نت؛ سرعت بی‌مرز، بدون تاریخ انقضا!
+⚡دنبال کیفیتی می‌گردی که حجمت رو بی‌دلیل تموم نکنه؟
+💎 ویژگی‌های طلایی:
+• ✅ بدون محدودیت زمان و کاربر: تا آخرین کیلوبایت حجمت معتبره!
+• ✅ مصرف واقعی (۱ به ۱): بدون ضریب مصرف و دزدی حجم.
+• ✅ پینگ عالی: مخصوص گیمرهای حرفه‌ای و یوتیوب.
+• ☄️ تنوع سرویس: V2ray، OpenVPN،L2tp و Wireguard.
+💳 پرداخت راحت بصورت ریالی و ارزی
+💰 قیمت‌های ما را مقایسه کنید!
+برای استعلام قیمت استثنایی و مشاوره به آیدی زیر پیام دهید:
+🆔 @itsmammad10
+🔗 کانال اصلی ما:
+🆔 @AbanVpn10
+</div>
+
+## pm_afshaa — post 90797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وزیر خارجه چین:
+رئیس‌جمهور شی جین‌پینگ طبق دعوت ترامپ در پاییز به آمریکا سفر خواهد کرد
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴صدر اعظم آلمان: با ترامپ صحبت کردم؛ ایران نباید سلاح هسته‌ای داشته باشه.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90795
 
@@ -157,33 +196,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴ترامپ: ارتش ایران رو از بین بردیم و شاید باید یک عملیات پاکسازی سبک انجام دهیم.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴روبیو: اگر ایران فکر می‌کند ما برای رسیدن به توافق امتیازاتی می‌دهیم، سخت در اشتباه است
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دونالد ترامپ: نیروی هوایی ایران رو به طور کامل حذف کردیم و از شر رهبران ایران خلاص شدیم.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90776
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ: من از رئیس جمهور چین نخواستم که به ایران برای باز کردن تنگه هرمز فشار بیاورد.
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

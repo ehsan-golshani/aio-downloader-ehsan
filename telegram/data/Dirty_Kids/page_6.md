@@ -1,8 +1,163 @@
 # آرشیو کانال Dirty_Kids - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 19:24
+📅 آخرین بروزرسانی: 1405/02/26 21:31
 
 ---
+
+## Dirty_Kids — post 389455
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✖️ سایت بین المللی bet120x ✖️  
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    3️⃣2️⃣ 🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
+</div>
+
+## Dirty_Kids — post 389454
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389454.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✖️ سایت بین المللی bet120x ✖️
+
+ 
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍
+     
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+⚠️فروش شرط
+🔔ویرایش شرط                    3️⃣2️⃣
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+🎁 10%برگشت باخت به صورت روزانه
+🎁 10%برگشت باخت به صورت هفتگی
+🎁10%برگشت باخت به صورت ماهانه
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   👈 آموزش واریز و برداشت دلاری
+👉
+
+🔪کانال اطلاع رسانی:👇
+✈️https://t.me/+1Wv5nGY_a54xNzlk
+</div>
+
+## Dirty_Kids — post 389453
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389453.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گیر چه عقب مونده‌هایی افتادیم
+
+ننگ ۵۰۰ ساله روحانیت رو از تاریخ ایران پاک باید کنیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389452
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389452.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389452.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هنوز رد خونت روشه ...
+#پرهام_آقامحمدی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389451
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389451.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+⚫️با بالاترین کیفیت ممکن⚡️ 
+⚫️100 هزار تومان شارژ هدیه 🎁
+⚫️پایین ترین قیمت گیگی 250🌐 
+⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
+
+بادبان راهتو باز می‌کنه⛵️
+
+G24
+🛡@BadBan_VPN | کانال 
+🤖@BadBan_VPNBot | ربات 
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389450
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389450.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389450.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت دیشبِ خیابون فرشته تهران:
+دعوا سر دختر
+
+طهران الان قسمت بندی شده
+یه گوشه حی‌در حی‌در میکنن عرزشیا هپی بشن، یه گوشه پروپاگاندا، یجا برای بچه پولدارا و...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389449
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389449.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏از روزی که ‎#رضاشاه_کبیر سر از خاک بیرون آورد جمهوری اسهالی روی خوش ندید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## Dirty_Kids — post 389447
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مراد؛ ویروس هانتا 😂🤌⁩⁩
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقایقی قبل این اپلیکیشن بنام "شیر و خورشید" که نسخه تغییر یافته سایفون هستش تو تلگرام درحال وایرال شدنه و میگن خیلی خوب کار میکنه.
+
+مهم: اگر این نسخه رو نصب کنید دیگه دردسر ستاپ کردن MITM و... ندارید!
+این نسخه حدودا یک ساعت پیش توسط برنامه‌نویس شیر و خورشید آپدیت شد و به راحتی می‌تونید طبق این آموزش بهش وصل بشید:
+1- وارد اپلیکیشن شیر و خورشید(آخرین نسخه که امروز منتشر شده) می‌شید
+2- وارد بخش Options میشید از نوار بالا
+3- روی More Options کلیک میکنید
+4- گزینه‌ی Connection Protocol رو قرار میدید روی CDN Fronting
+5- میرید و عادی کانکت میشید و به راحتی وصل میشه.
+
++ من تست نکردم ولی دیدم میگن جوابه
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389445
 
@@ -166,143 +321,5 @@ https://t.me/+bcynkEgSW2dlYTc0
 🔔کانال دربی بت :
 
 🪙https://t.me/+bcynkEgSW2dlYTc0
-</div>
-
-## Dirty_Kids — post 389432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سختی زبان چینی همینقدر بگم که اگه یکم تن صداتو بالا پایین کنی معنی کلمه از توت‌فرنگی به خوارتو گاییدم تغییر می‌کنه.
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389431
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389431.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389431.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شراب چینی ایلان ماسکو کصخل کرده، هر کی میاد باهاش عکس بگیره شکلک در میاره 😂
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389430
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389430.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389430.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتی از عمو «مارک‌روبیو» حرف می‌زنیم، در واقع داریم از این تفاوت‌هاش با سایر موجودات عالم حرف می‌زنیم،
-
-شما ببین تنها کسیه که این‌طور کنجکاوانه و با شوق و ذوق به سقف تزئینات تالار بزرگ خلق کشور قرمدنگ چین نگاه می‌کنه و اشاره می‌کنه بقیه هم ببینن،
-
-چین قرمساقی که در سال ۲۰۲۰ دو بار عمو مارک روبیو رو که در اون زمان سناتور جمهوری‌خواه ایالت فلوریدا بود رو تحریم کرد، [ممنوعیت ورود خودش و خانواده‌اش به چین و هنگ‌کنگ و مسدود کردن دارایی‌های احتمالی در چین که البته عمو هیچ دارایی در چین نداشت]
-
-سر چی؟
-چون عموی آگاه و اندیشمندم، این محمدعلی‌فروغی زمانه‌ی آمریکایی‌ها، از چین قرمساق در قضیه‌ی سین‌کیانگ و اویغورها و هنگ‌کنگ‌انتقاد شدید کرده بود.
-﻿
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389428
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389428.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389428.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-و در این میان ایلان پیش‌فعال
-
-روی پله‌ها یک دور هم دور خودش چرخید و از اطراف فیلم گرفت!! :))))
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389427
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389427.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
-
-⚫️با بالاترین کیفیت ممکن⚡️ 
-⚫️100 هزار تومان شارژ هدیه 🎁
-⚫️پایین ترین قیمت گیگی 250🌐 
-⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
-
-بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
-
-بادبان راهتو باز می‌کنه⛵️
-
-R24
-🛡@BadBan_VPN | کانال 
-🤖@BadBan_VPNBot | ربات 
-📞@BadBan_VPNSupport | پشتیبانی
-</div>
-
-## Dirty_Kids — post 389426
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389426.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😂😂😂😂
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389425
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389425.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389425.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ آمریکا و چین موقع دست دادن؛
-
-ترامپ به سمت شی رفت، دست دادن و بعد جفت طرف سعی داشتن دست‌ِ طرف مقابل رو به سمت خودشون بِکشن که این صحنه خلق شد:
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389424
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389424.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لاشیا فهمیدن ما عرقو با دوغ میخوریم
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389423
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389423.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عکس پروفایل معلمای ادبیات
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389422
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جدی پیک می تر از این جنده های حجابی تو دانشگاه وجود نداره، یارو سال اول کارشناسی کامپیوتره بعد استیکر زده رو لپ تاپش LEAVE ME ALONE IM CODING، بیا برو کیرم تو کدت شد
-
-
-
-@Dirty_Kids 👻
 </div>
 

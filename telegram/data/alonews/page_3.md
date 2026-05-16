@@ -1,8 +1,120 @@
 # آرشیو کانال alonews - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 20:31
+📅 آخرین بروزرسانی: 1405/02/26 21:34
 
 ---
+
+## alonews — post 120408
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کرملین : پوتین با رئیس امارات متحده عربی درباره ایران گفتگو کرد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120407
+
+<div align="center"><img src="telegram/content/alonews_120407.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پست جدید ترامپ در تروث سوشال:
+بازی نداریم! ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیفته!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ویدیویی از ورود وزیر کشور پاکستان به ایران ✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120404
+
+<div align="center"><video src="telegram/content/alonews_120404.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120404.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈چند طرفدار فلسطین از برج ایفل بالا رفتند و پرچم فلسطین را از طبقه اول آن آویزان کردند.
+
+🔴شش نفر از این افراد توسط پلیس دستگیر شدند.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120403
+
+<div align="center"><img src="telegram/content/alonews_120403.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پاول دورف، مالک تلگرام: دبی دوباره شلوغ و پر ترافیک شده
+- از همین الان دلم برای آتش‌بازی‌های ایرانی تنگ شده، حداقل شهر رو از آدمای زودباور خالی می‌کردن
+- پدافند اماراتم زیر اون حجم آتیش خیلی خوب کار کرد
+- با مالیات صفر درصد، امنیتی بهتر از اروپاییایی داریم که نصف درآمدشونو مالیات میدن
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120402
+
+<div align="center"><img src="telegram/content/alonews_120402.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب موسی 😁
+فروش کانفیگ وی توری 🔐
+
+گیگی 195.000 تومان☄️
+گیگی 220.000 تومان ☄️
+
+🔥 سرعت موشکی
+💎 ( پنل مشاهده حجم در ربات )
+لوکیشن ترکیه
+
+برای خرید ربات رو استارت کنید
+
+BOT 📎 @WinstonMarket_bot
+
+PV ✉️ @mosadeveloper
+
+CH 📣 https://t.me/winstonservice
+</div>
+
+## alonews — post 120400
+
+<div align="center"><video src="telegram/content/alonews_120400.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120400.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ویدیویی از حملات به جنوب لبنان
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120399
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر نفت عراق: ۱۰ میلیون بشکه نفط در ماه گذشته از تنگه هرمز صادر کردیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120398
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ویدیویی از ورود وزیر کشور پاکستان به ایران
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120397
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈هم اکنون بمباران در جنوب لبنان
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120396
 
@@ -135,113 +247,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈شلیک رگباری در پخش مستقیم صداسیما
 
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120379
-
-<div align="center"><video src="telegram/content/alonews_120379.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120379.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اردوغان:
-مطالبات ما روشن است. ما اف-۳۵ ها را می‌خواهیم
-
-
-🔴همکاران ما به تماس‌های خود با همتایان آمریکایی‌شان ادامه می‌دهند و امیدواریم نتیجه مثبتی به دست آوریم.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120378
-
-<div align="center"><video src="telegram/content/alonews_120378.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120378.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈آخرین قیمت نفت ۱۰۹.۲۶ دلار
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120377
-
-<div align="center"><video src="telegram/content/alonews_120377.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120377.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری/شبکه ۱۲ اسرائیل :
-اسرائیل در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120376
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ توجه 
-⚠️
-
-بچه ها فیلترینگ خیلیی شدید شده همین الان که اینترنت دارین حتما جوین بشید و از کانفینگاش استفاده کنید که موقع قطعی خیلی به کارتون میاد
-⏬
-
-https://t.me/+WgqzouUHJ1U3OTY0
-https://t.me/+WgqzouUHJ1U3OTY0
-https://t.me/+WgqzouUHJ1U3OTY0
-</div>
-
-## alonews — post 120375
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جاده چالوس از فردا به مدت ۴روز مسدود می‌شود
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120374
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دقایقی پیش وزیر کشور پاکستان برای دیدار با مقامات ایرانی، در سفری از پیش اعلام نشده وارد تهران شد ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120373
-
-<div align="center"><img src="telegram/content/alonews_120373.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مخبر: این خویشتنداری همیشگی نیست
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 ارتش دفاعی اسرائیل اعلام کرده است که حملات به سایت‌های زیرساختی حزب‌الله در چندین منطقه در جنوب لبنان را آغاز کرده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120371
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دقایقی پیش وزیر کشور پاکستان برای دیدار با مقامات ایرانی، در سفری از پیش اعلام نشده وارد تهران شد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120370
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رئیس کمیسیون امنیت ملی مجلس :
-یه سیستم طراحی کردیم که رفت‌وآمد کشتی‌ها تو تنگه هرمز رو با یه مسیر مشخص کنترل کنیم و به‌زودی هم اعلامش می‌کنیم
 
 ✅ @AloNews خبر جنگ
 </div>

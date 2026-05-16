@@ -1,8 +1,44 @@
 # آرشیو کانال Shin_Persian - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 19:15
+📅 آخرین بروزرسانی: 1405/02/26 21:22
 
 ---
+
+## Shin_Persian — post 5989
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+U.S. Central Command ✓ @CENTCOM
+Wed, 13 May 2026 15:19:24 UTC
+
+Four weeks ago, CENTCOM began implementing the blockade against ships entering and exiting Iran’s ports. As of today, American forces have redirected 67 commercial vessels, allowed 15 supporting humanitarian aid to pass, and disabled 4 to ensure compliance.
+
+Earlier this week, CENTCOM forces ensured that 2 commercial vessels turned around to comply with the blockade after communicating via radio and firing warning shots from small arms, clearly demonstrating that U.S. enforcement remains in full effect.
+
+فارسی
+
+چهار هفته پیش، ستاد فرماندهی مرکزی ایالات متحده (سنتکام) اجرای محاصره علیه کشتی‌هایی که به بنادر ایران وارد و یا از آن خارج می‌شدند را آغاز کرد. تا به امروز، نیروهای آمریکایی مسیر ۶۷ شناور تجاری را تغییر داده، به ۱۵ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده و ۴ فروند را برای اطمینان از انطباق با مقررات از کار انداخته‌اند.
+
+در اوایل این هفته، نیروهای سنتکام اطمینان حاصل کردند که ۲ شناور تجاری پس از برقراری ارتباط رادیویی و شلیک تیرهای هشدار توسط سلاح‌های سبک، برای پایبندی به محاصره دور زده و بازگشتند؛ موضوعی که به وضوح نشان می‌دهد اجرای مقررات توسط ایالات متحده همچنان با قوت کامل در جریان است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Wed, 13 May 2026 13:40:21 UTC
+
+Blast sound in Shiraz
+Fars Province, #Iran
+
+فارسی
+
+صدای انفجار در شیراز
+استان فارس، #Iran
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 5987
 

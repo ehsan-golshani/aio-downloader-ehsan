@@ -1,8 +1,29 @@
 # آرشیو کانال IranianMinds - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 20:26
+📅 آخرین بروزرسانی: 1405/02/26 21:28
 
 ---
+
+## IranianMinds — post 20081
+
+<div align="center"><img src="telegram/content/IranianMinds_20081.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💙 خان وی‌پی‌ان
+⚡️ سرعت بالا
+🛡 پینگ و پایداری عالی
+🔐 مناسب تلگرام، اینستا، یوتیوب، گیم و استریم
+💸 قیمت اقتصادی با پلن‌های متنوع
+
+🎁 تست ۵۰ مگ فقط ۷۵ تومن
+
+🛎 کانال:
+
+https://t.me/+qNjExGEJztE2OGI0
+
+🤖 ربات خرید:
+@Xan_vpn_bot
+</div>
 
 ## IranianMinds — post 20080
 

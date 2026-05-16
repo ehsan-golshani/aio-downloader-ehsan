@@ -1,8 +1,42 @@
 # آرشیو کانال manototv - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 20:30
+📅 آخرین بروزرسانی: 1405/02/26 21:33
 
 ---
+
+## manototv — post 105512
+
+<div align="center"><video src="telegram/content/manototv_105512.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105512.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«تجمع ایرانیان در بریزبن استرالیا»
+</div>
+
+## manototv — post 105511
+
+<div align="center"><video src="telegram/content/manototv_105511.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105511.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کریس رایت، وزیر انرژی آمریکا گفته است انتظار دارد تنگه هرمز «حداکثر تا مقطعی در تابستان» بازگشایی شود.
+
+رایت همچنین گفت اگر ایران به «گروگان گرفتن اقتصاد جهان» ادامه دهد، ارتش آمریکا می‌تواند برای بازگشایی تنگه هرمز مداخله کند.
+</div>
+
+## manototv — post 105510
+
+<div align="center"><video src="telegram/content/manototv_105510.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105510.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در برنامه‌های شامگاه گذشته تلویزیون جمهوری اسلامی، بخش‌هایی با محور آموزش کار با سلاح پخش شد.
+
+در این برنامه‌ها، مجریان یا کارشناسان حاضر در استودیو، شیوه گرفتن و استفاده از سلاح را توضیح دادند. پخش چنین محتوایی از تلویزیون حکومتی در شرایطی صورت می‌گیرد که رسانه‌های وابسته به جمهوری اسلامی در هفته‌های اخیر بر ادبیات نظامی، آمادگی دفاعی و بسیج حامیان خود تاکید بیشتری داشته‌اند.
+</div>
 
 ## manototv — post 105509
 
@@ -237,56 +271,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 «شما هم به کمپین حمایت از خانم سپهری بپیوندید»
-</div>
-
-## manototv — post 105492
-
-<div align="center"><video src="telegram/content/manototv_105492.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105492.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌
-اسحاق دار، وزیر خارجه پاکستان، اعلام کرد ۲۰ شهروند ایرانی که در کشتی‌های توقیف‌شده آمریکا در آب‌های بین‌المللی حضور داشتند، از طریق پاکستان به تهران بازگردانده خواهند شد.
-
-دار گفت این افراد همراه با ۱۱ شهروند پاکستانی، از سنگاپور به بانکوک منتقل شدند و سپس با پرواز راهی اسلام‌آباد شدند. به گفته او، شهروندان ایرانی پس از ورود به پاکستان، برای انتقال به تهران همراهی خواهند شد.
-
-وزیر خارجه پاکستان از وزیر خارجه آمریکا برای «هماهنگی نزدیک» در این عملیات، و از وزیر خارجه جمهوری اسلامی بابت «اعتماد به پاکستان» در روند بازگرداندن شهروندان ایرانی قدردانی کرد.
-</div>
-
-## manototv — post 105491
-
-<div align="center"><video src="telegram/content/manototv_105491.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105491.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌
-وانگ یی، وزیر خارجه چین، گفت پکن معتقد است حل بحران تنگه هرمز در گرو دستیابی به «آتش‌بسی دائمی و جامع» میان آمریکا و جمهوری اسلامی است.
-
-به گزارش خبرگزاری شینهوا، وانگ یی گفت رئیس‌جمهور چین در گفت‌وگو با دونالد ترامپ تأکید کرده که «زور نمی‌تواند مشکلات را حل کند و گفت‌وگو تنها مسیر درست است.»
-
-وزیر خارجه چین افزود: «مذاکرات یک‌شبه به نتیجه نمی‌رسد، اما وقتی درِ گفت‌وگو باز شد، نباید دوباره بسته شود.»
-
-او همچنین گفت چین برای پیشبرد مذاکرات صلح تلاش کرده و به ایفای نقش خود برای پایان سریع درگیری‌ها و بازگشت ثبات به خاورمیانه ادامه خواهد داد.
-</div>
-
-## manototv — post 105490
-
-<div align="center"><video src="telegram/content/manototv_105490.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105490.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌
-کریس رایت، وزیر انرژی آمریکا، گفت به‌دلیل جنگ و تنش‌ها در خلیج فارس، چین احتمالاً خرید نفت از آمریکا را افزایش خواهد داد.
-
-او در گفت‌وگو با سی‌ان‌بی‌سی گفت: «فکر می‌کنم چین به خرید مقادیر بیشتری از نفت آمریکا ادامه خواهد داد.»
-
-رایت همچنین گفت جهان نیاز دارد تنگه هرمز دوباره به‌طور کامل باز شود و افزود: «تلاش ایران برای گروگان گرفتن جهان، موقتی است.»
-
-وزیر انرژی آمریکا در پاسخ به این پرسش که بازگشت شرایط به وضعیت عادی چقدر زمان می‌برد، گفت: «بخش زیادی از آن به ایران بستگی دارد.»
-
-او افزود: «به هر شکلی، برنامه هسته‌ای ایران پایان خواهد یافت و عبور آزادانه کشتی‌ها از تنگه هرمز برقرار خواهد شد. این می‌تواند در صورت توافق با ایران، نسبتاً سریع رخ دهد.»
 </div>
 

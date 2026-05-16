@@ -1,8 +1,25 @@
 # آرشیو کانال WithYashar - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 19:08
+📅 آخرین بروزرسانی: 1405/02/26 21:15
 
 ---
+
+## WithYashar — post 11303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۳ اسرائیل:
+
+سیستم امنیتی معتقد است که ترامپ با حمله‌ای محدود به ایران موافقت خواهد کرد.
+@withyashar
+</div>
+
+## WithYashar — post 11302
+
+## WithYashar — post 11301
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یاشار بیا مثل سیاه جامگان یا حسن صباح یه فرقه راه بنداز 😅
+</div>
 
 ## WithYashar — post 11300
 
@@ -151,34 +168,5 @@ Voice message
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مارو به قاهره میبره؟
 خب پس بذار هرچی میخواد بگه
-</div>
-
-## WithYashar — post 11282
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ به فاکس‌نیوز:
-پیشنهاد ایرانیا که برام رسید همون‌ جمله ی اول متنشونو که خوندم برام قابل قبول نبود و سریع ردش کردم
-@withyashar
-</div>
-
-## WithYashar — post 11281
-
-<div align="center"><video src="telegram/content/WithYashar_11281.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11281.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ وسط پرواز به فاکس نیوز اعلام کرد که ممکن است توقف ۲۰ سالهٔ فعالیت هسته‌ای ایران را بپذیرد.
-
-ترامپ:“بیست سال کافی است. اما میزان تضمینی که از طرف آن‌ها می‌گیریم… باید واقعاً یک بیست سالِ واقعی باشد.”»
-@withyashar
-</div>
-
-## WithYashar — post 11280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ وسط‌ پرواز به فاکس‌نیوز : «من دیگر خیلی بیشتر از این صبر نخواهم کرد. آنها باید توافق را امضا کنند.»
-«مواد هسته‌ای» ایران، ممکنه به چین یا آمریکا تحویل داده شه!
-@withyashar
 </div>
 

@@ -1,8 +1,130 @@
 # آرشیو کانال Dirty_Kids - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 19:24
+📅 آخرین بروزرسانی: 1405/02/26 21:31
 
 ---
+
+## Dirty_Kids — post 389407
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389407.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دوست دختر جدید پوبون (رپر) از روی یه پُل تو مکزیک افتاده پایین و گویا کمر و گردنش شکسته؛
+
+پوبون هم استوریش کرده و از مردم خواسته که پول دونیت کنن تا هزینه عملش دربیاد...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من دیگه اگه بگن قراره یه ابر بزرگ بیاد رو آسمون ایران ازش کیر بباره تعجب نمیکنم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389405
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389405.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389405.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مهدی تاج:
+معین قراره برای تیم ملی آهنگ بخونه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389404
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دموکرات‌های سنای آمریکا برای هفتمین‌بار کیر خوردن،
+
+طرح محدود کردن اختیارات جنگی شیر خدا برای پایان دادن به جنگ با روافض هزار پدر رو برای بار هفتم به رأی گذاشتن و به تعداد هفت روز هفته کیر خوردن،
+
+اما خب جای نگرانی داشت اندکی چون در عین حال خیلی ناپلئونی رأی نیاورد،
+
+رأی ۴۹ موافق در مقابل ۵۰ مخالف.
+
+موافقان محدود کردن اختیارات شیر جنگجوی خدا تقریباً همه‌ی دموکرات‌ها به علاوه‌ی سه سناتور قرمدنگ جمهوری‌خواه به نام‌های: Rand Paul ، Susan Collins ، Lisa Murkowski ،
+که این اولین باری بود که سناتور قرمساق جمهوری‌خواه Murkowski به نفع طرح رأی داد.
+
+تنها سناتور شریف دموکرات John Fetterman از پنسیلوانیا بود که دوباره با جمهوری‌خواهان همراه شد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389403
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش به کارکنان شعب لمیز ونک به پایین یاد بدین که وقتی یه آقای مسن میاد تو ازتون میپرسه «هویج بستنی» دارین نگین نه چیچیاتو میچیاتو و فولان داریم، عین آدم به بنده‌ خدای گرما زده توضیح بدید که چه محصول عادی و خنکی میتونه سفارش بده، چون این کار وظیفه منِ مشتری نیست.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389401
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389401.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عمه جنده ام، گلشیفته
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389400
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی به “بله” می گید سوپر اپلیکیشن، حس بقالی رو دارم که رو تابلوش زده هایپر مارکت!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389399
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389399.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امانوئل تو زن داری؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389398
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رفته بودیم ماسال. به صاحب‌ ویلا گفتم اینجا محلیا چه‌جوری‌ند؟ به حجاب گیرن یا زنا راحت بتابن؟
+گفت: زنا هر جور دوست دارن بپوشن، اما مردا شلوارک نپوشن، اهالی حساسن به شلوارک:))))))
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389396
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389396.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صلواتی خونخوار حکم اعدام ‎#محمد_عباسی رو داد و جمهوری اسلامی امروز مخفیانه طناب دار رو دور گردنش انداخت.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389395
 

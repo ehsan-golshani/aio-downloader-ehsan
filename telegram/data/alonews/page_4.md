@@ -1,8 +1,115 @@
 # آرشیو کانال alonews - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 20:31
+📅 آخرین بروزرسانی: 1405/02/26 21:34
 
 ---
+
+## alonews — post 120379
+
+<div align="center"><video src="telegram/content/alonews_120379.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120379.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈اردوغان:
+مطالبات ما روشن است. ما اف-۳۵ ها را می‌خواهیم
+
+
+🔴همکاران ما به تماس‌های خود با همتایان آمریکایی‌شان ادامه می‌دهند و امیدواریم نتیجه مثبتی به دست آوریم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120378
+
+<div align="center"><video src="telegram/content/alonews_120378.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120378.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈آخرین قیمت نفت ۱۰۹.۲۶ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120377
+
+<div align="center"><video src="telegram/content/alonews_120377.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120377.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری/شبکه ۱۲ اسرائیل :
+اسرائیل در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120376
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ توجه 
+⚠️
+
+بچه ها فیلترینگ خیلیی شدید شده همین الان که اینترنت دارین حتما جوین بشید و از کانفینگاش استفاده کنید که موقع قطعی خیلی به کارتون میاد
+⏬
+
+https://t.me/+WgqzouUHJ1U3OTY0
+https://t.me/+WgqzouUHJ1U3OTY0
+https://t.me/+WgqzouUHJ1U3OTY0
+</div>
+
+## alonews — post 120375
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈جاده چالوس از فردا به مدت ۴روز مسدود می‌شود
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120374
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈دقایقی پیش وزیر کشور پاکستان برای دیدار با مقامات ایرانی، در سفری از پیش اعلام نشده وارد تهران شد ✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120373
+
+<div align="center"><img src="telegram/content/alonews_120373.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مخبر: این خویشتنداری همیشگی نیست
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120372
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 ارتش دفاعی اسرائیل اعلام کرده است که حملات به سایت‌های زیرساختی حزب‌الله در چندین منطقه در جنوب لبنان را آغاز کرده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120371
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈دقایقی پیش وزیر کشور پاکستان برای دیدار با مقامات ایرانی، در سفری از پیش اعلام نشده وارد تهران شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120370
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رئیس کمیسیون امنیت ملی مجلس :
+یه سیستم طراحی کردیم که رفت‌وآمد کشتی‌ها تو تنگه هرمز رو با یه مسیر مشخص کنترل کنیم و به‌زودی هم اعلامش می‌کنیم
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120369
 
@@ -110,115 +217,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈سی‌ان‌ان: مشاوران ترامپ خواهان پایان فوری جنگ هستند؛ فشار اقتصادی رای‌دهندگان را نگران کرده
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120358
-
-<div align="center"><video src="telegram/content/alonews_120358.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120358.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مهاجرانی: نگاه دولت به اینترنت دسترسی برابر برای همه شهروندان است!
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120357
-
-<div align="center"><video src="telegram/content/alonews_120357.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120357.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت دفاع اسرائیل می‌خواد برد جنگنده‌های F-35I رو بیشتر کنه - DefNews
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120356
-
-<div align="center"><video src="telegram/content/alonews_120356.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120356.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جنگنده‌های جدید "MiG-29" سوریه رسماً رفتن تو عملیات و دارن برای دفاع از حریم هوایی سوریه پرواز می‌کنن
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120355
-
-<div align="center"><video src="telegram/content/alonews_120355.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120355.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈یک مقام ارشد اسرائیلی در گفتگو با کانال ۱۲ اسرائیل: تل‌آویو در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120354
-
-<div align="center"><video src="telegram/content/alonews_120354.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120354.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: ۵ بار با ایران نزدیک توافق شدم، ولی روز بعدش زدن زیرش
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120353
-
-<div align="center"><video src="telegram/content/alonews_120353.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120353.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈حدادی، عضو کمیسیون صنایع: گران شدن خودرو توجیه فنی ندارد/قیمت‌ها باید به قبل از جنگ بازگردد
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120351
-
-## alonews — post 120350
-
-## alonews — post 120349
-
-<div align="center"><video src="telegram/content/alonews_120349.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120349.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری / ارتش اسرائیل : عزالدین الحداد فرمانده گردان‌های القسام، همراه با محافظ‌هاش ترور شد 
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120348
-
-<div align="center"><video src="telegram/content/alonews_120348.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120348.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر جدید نفت عراق، باسم محمد، اعلام کرد که عراق در ماه آوریل/نیمان ۱۰ میلیون بشکه نفت خود را از طریق تنگه هرمز صادر کرده است.
-
-
-🔴وی توضیح داد که عراق قصد دارد با سازمان اوپک همکاری کند تا تولید و ظرفیت صادرات کشور را افزایش دهد و افزود که بغداد هدف دارد به ظرفیت تولید روزانه ۵ میلیون بشکه دست یابد.
 
 
 ✅ @AloNews خبر جنگ

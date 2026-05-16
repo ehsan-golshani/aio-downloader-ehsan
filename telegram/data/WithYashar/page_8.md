@@ -1,8 +1,38 @@
 # آرشیو کانال WithYashar - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 19:08
+📅 آخرین بروزرسانی: 1405/02/26 21:15
 
 ---
+
+## WithYashar — post 11262
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظرت چیه؟قبل جام جهانی میزنع یا بعد؟
+</div>
+
+## WithYashar — post 11261
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال 13 اسرائیل:اسرائیل انتظار دارد حمله احتمالی آمریکا در ایران از فردا با بازگشت ترامپ از چین آغاز شود
+@withyashar
+</div>
+
+## WithYashar — post 11260
+
+<div align="center"><video src="telegram/content/WithYashar_11260.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11260.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پایان سفر ترامپ به چین
+
+دونالد ترامپ، رئیس جمهور آمریکا، پکن را ترک کرد و سفر خود به جمهوری خلق چین را به پایان رساند.
+
+شی جین‌پینگ، رئیس‌جمهور چین در آخرین روز سفر رئیس جمهور ایالات متحده گفت که دونالد ترامپ به دنبال بازگرداندن عظمت آمریکا است و او نیز متعهد به هدایت مردم چین برای تحقق رستاخیز ملی است.
+
+شی جین‌پینگ همچنین تأکید کرده است که چین و آمریکا می‌توانند از طریق تقویت همکاری‌ها، روند توسعه و پیشرفت خود را تسریع کنند.
+@withyashar
+</div>
 
 ## WithYashar — post 11259
 
@@ -154,42 +184,5 @@ https://t.me/boost/withyashar
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دیده شده پهپاد شناسایی و صدای پدافند غرب تهران
 @withyashar
-</div>
-
-## WithYashar — post 11241
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اعتراضات کوبا شروع شد کشور در حال فروپاشی
-
-طبق گزارش‌ها، شبکه برق کوبا در بامداد امروز دچار فروپاشی شد و مناطق شرقی از جمله شهر مهم سانتیاگو دِ کوبا بدون برق ماندند. مردم به خیابان آمدند، قابلمه‌ها را به هم کوبیدند، زباله آتش زدند و شعار «برق را وصل کنید» سر دادند.
-دولت کوبا علت اصلی را تحریم‌ها و فشار آمریکا بر صادرات سوخت به کوبا می‌داند. رسانه‌هایی مانند رویترز و گاردین نوشته‌اند که پس از تهدیدهای جدید دولت ترامپ علیه کشورهایی که به کوبا سوخت می‌فرستند، ارسال نفت از ونزوئلا و مکزیک کاهش یافته و کوبا عملاً ذخیره سوختش را از دست داده است. وزیر انرژی کوبا گفته:
-«ما مطلقاً هیچ گازوئیل و هیچ نفت کوره‌ای نداریم.»
-در بعضی مناطق مردم تا ۲۰ یا حتی ۲۲ ساعت در روز برق ندارند. این وضعیت باعث خراب شدن مواد غذایی، اختلال در بیمارستان‌ها، حمل‌ونقل و حتی تعطیلی برخی خدمات عمومی شده است.
-@withyashar
-</div>
-
-## WithYashar — post 11240
-
-<div align="center"><video src="telegram/content/WithYashar_11240.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11240.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیروزی بزرگ برای‌ ترامپ ، فاکس نیوز تایید کرد رئیس جمهور چین، شی جین پینگ دستور داد در مورد ایران، «هر چیزی که ترامپ نیاز دارد» را به آمریکا بدهید.
-
-از ‌آمریکا سویای بیشتری بخرید.
-
-نفت بیشتری از آمریکا بخرید.
-
-از آمریکا گاز مایع طبیعی بیشتری بخرید.
-
-۲۰۰ جت بوئینگ ۷۳۷ مکس بخرید.
-@withyashar
-</div>
-
-## WithYashar — post 11239
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر خوب 😍
 </div>
 

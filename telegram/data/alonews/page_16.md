@@ -1,8 +1,106 @@
 # آرشیو کانال alonews - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/02/26 20:31
+📅 آخرین بروزرسانی: 1405/02/26 21:34
 
 ---
+
+## alonews — post 120039
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈العربی الجدید: حمله انتحاری، پایگاه نظامی ارتش در منطقه باجور در شمال غربی پاکستان را هدف قرار داد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120038
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈میدل ایست : ارتش دفاعی اسرائیل از فردا که ترامپ چین رو ترک می‌کنه، به بالاترین حالت آماده‌باش وارد میشه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120037
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈طبق گزارش بی‌بی‌سی، شناوری که ایران امروز توقیف کرد، «هوی چوان» نام دارد.
+هوی چوان یکی از چندین کشتی شبح نظامی چین است که پکن از آن‌ها برای پشتیبانی از ارتش‌ها و شبه‌نظامیان در سراسر جهان استفاده می‌کند.
+
+🔴این شناور توسط پیمانکاران نظامی خصوصی چین برای کمک به اسکورت کشتی‌های تجاری در دریای عرب و دور زدن دزدی دریایی، حوثی‌ها و سومالی به کار گرفته می‌شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120036
+
+<div align="center"><img src="telegram/content/alonews_120036.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈بدل شاه فقید در تهران رویت شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈اعتراضات در کوبا آغاز شده
+این اعتراضات در حالی آغاز شد که دولت کوبا برق مناطق شرقی این کشور را به طور نامحدود قطع کرد.
+
+🔴دولت اعلام کرد که "مطلقاً سوختی باقی نمانده است" و وضعیت اکنون "بحرانی" است.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120034
+
+<div align="center"><video src="telegram/content/alonews_120034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈لیندسی گراهام، سناتور مطرح آمریکایی با آشغال نامیدن متحدان چین از جمله ایران و روسیه، از این کشور برای باز کردن تنگه هرمز درخواست کمک کرد!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120033
+
+<div align="center"><img src="telegram/content/alonews_120033.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رسایی:
+قالیباف بدون هیچ دلیلی مجلس رو بسته
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120031
+
+<div align="center"><img src="telegram/content/alonews_120031.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسرائیل کاتز، وزیر دفاع اسرائیل:
+لامین یامال تصمیم گرفت با این حرکتش علیه اسرائیل یه جو بزرگ درست کنه و به تنش‌ها دامن بزنه.
+کسایی که از این مدل رفتارها حمایت می‌کنن باید از خودشون بپرسن آیا این کار انسانی و اخلاقیه یا نه!؟
+من به عنوان وزیر دفاع اسرائیل مقابل توهین به اسرائیل و مردم یهودی سکوت نمی‌کنم.
+از باشگاه بارسلونا میخوام از این حواشی فاصله بگیره و اجازه هیچ‌گونه حمایتی از تروریسم رو نده
+@AloSport
+</div>
+
+## alonews — post 120030
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار جنگ الونیوز AloNews pinned «تعرفه سرویس های Vip ⭕️ ✅ 1 گیگابایت ⬅️ 235/000 تومان ✅ 3 گیگابایت ⬅️ 735/000 تومان استارلینک Vip 💫 🌟 ⭐️ 5 گیگابایت ⬅️ 1/150/000 تومان ⭐️ 10 گیگابایت ⬅️ 2/350/000 تومان ویژگی های سرویس های Vip : ❤️‍🔥 ✅    متصل در تمامی دستگاه و اپراتور ها ✅    مناسب استفاده…»
+</div>
+
+## alonews — post 120029
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈زمین‌لرزه‌ای به بزرگی ۳.۵ ریشتر ساعت ۲۲:۲۹:۴۸ شامگاه پنجشنبه ۲۴ اردیبهشت حوالی قلعه قاضی در استان هرمزگان به وقوع پیوست
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120026
 
@@ -103,131 +201,5 @@
 🤔«مردی که ۵۰سال از زمان خودش جلوتر بود»
 
 ✅@AloNews
-</div>
-
-## alonews — post 120016
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شبکه فاکس نیوز از استعفای فرمانده کل گشت مرزی آمریکا خبر داد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شبکه ۱۲ اسرائیل اشاره دارد که تکذیب سفر نتانیاهو از سوی مسئولان اماراتی‌ ناشی از ترس است؛ زیرا ابوظبی می‌ترسد به عنوان یک طرف در محور ضد ایران، ظاهر شود.
-
-🔴امارات در تلاش است است که سطح حضور خود را در مورد روابط با اسرائیل نسبتا پایین نگه دارد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ظهوریان، نماینده مجلس: بخش انرژی کشور ۱۴ میلیارد دلار خسارت دیده است
-
-🔴۸ میلیارد دلار بخش گاز آسیب دیده است
-
-🔴ظرفیت تولید گاز کاهش پیدا کرده
-
-🔴پخش پتروشیمی ۶ میلیارد دلار آسیب دیده است
-
-🔴بخش فولاد ۲.۷ میلیارد دلار آسیب دیده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120013
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نتانیاهو: اورشلیم را تحت حاکمیت اسرائیل برای همیشه حفظ خواهیم کرد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120012
-
-<div align="center"><video src="telegram/content/alonews_120012.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120012.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 نتانیاهو: دشمنان ما به دنبال نابودی همه ما هستند. همه ما.
-
-🔴 آنها بین راست و چپ، سکولار و مذهبی، یهودی و عرب تفاوتی قائل نمی‌شوند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120011
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تعرفه سرویس های Vip ⭕️
-
-✅ 1 گیگابایت ⬅️ 235/000 تومان
-✅ 3 گیگابایت ⬅️ 735/000 تومان
-
-استارلینک Vip 💫 🌟
-
-⭐️ 5 گیگابایت ⬅️ 1/150/000 تومان
-⭐️ 10 گیگابایت ⬅️ 2/350/000 تومان
-
-ویژگی های سرویس های Vip : ❤️‍🔥
-✅    متصل در تمامی دستگاه و اپراتور ها
-✅    مناسب استفاده روزمره در تمامی برنامه ها
-✅    دارای ساب برای اطلاع لحظه ای باقیمانده
-✅    تک لینک بدون نیاز به بروزرسانی های متعدد
-✉️ پشتیبانی و خرید:
-🔤 @safevpn_secureSupport
-🤖 خرید فوری از ربات:
-🔤 @SafeVPNXBot
-📢کانال اطلاع رسانی:
-🔤 @safevpn_suportt
-😍کانال رضایت :
-🔤 @safevpn_feedback
-
-╚═════════════════════════╝
-</div>
-
-## alonews — post 120010
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرگزاری ایسنا : با قیمت قطعی خودرو باید خداحافظی کنید،چون تو جدیدترین طرح فروش ایران‌خودرو و سایپا،خریداران باید نیمی از مبلغ خودرو رو امروز بپردازن بدون اینکه بدونن در زمان تحویل چه قیمتی در انتظارشونه!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120009
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اسرائیل معتقد است که رئیس‌جمهور ترامپ پس از بازگشت از سفر به چین تصمیم خواهد گرفت که آیا عملیات نظامی علیه ایران را از سر بگیرد یا خیر، طبق گزارش کان نیوز.
-
-🔴 مقامات ارشد ارتش اسرائیل و فرماندهی مرکزی آمریکا (CENTCOM) در هفته گذشته درباره احتمال از سرگیری عملیات علیه ایران گفتگو کرده‌اند. بحث‌ها شامل امکان حملات هدفمند آمریکا به زیرساخت‌های سوخت و انرژی ایران بود که هدف آن فشار آوردن به تهران برای بازگشت به مذاکرات و مجبور کردن به امتیازدهی در برنامه هسته‌ای‌اش است.
-
-🔴 اسرائیل به واشنگتن اعلام کرده است که از از سرگیری عملیات نظامی علیه ایران حمایت می‌کند و معتقد است عملیات «شیر غران» خیلی زود پایان یافته است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120008
-
-<div align="center"><video src="telegram/content/alonews_120008.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120008.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈پست جدید کاخ سفید تو ایکس : بازگشت قدرت آمریکا به صحنه جهانی🇺🇸🇨🇳
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120007
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عراقچی: دنیا فهمید دیگر نباید سر به سر مردم ایران بگذارد
-
-✅ @AloNews خبر جنگ
 </div>
 

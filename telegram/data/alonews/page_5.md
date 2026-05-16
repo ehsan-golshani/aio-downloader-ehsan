@@ -1,8 +1,117 @@
 # آرشیو کانال alonews - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 20:31
+📅 آخرین بروزرسانی: 1405/02/26 21:34
 
 ---
+
+## alonews — post 120358
+
+<div align="center"><video src="telegram/content/alonews_120358.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120358.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مهاجرانی: نگاه دولت به اینترنت دسترسی برابر برای همه شهروندان است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120357
+
+<div align="center"><video src="telegram/content/alonews_120357.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120357.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزارت دفاع اسرائیل می‌خواد برد جنگنده‌های F-35I رو بیشتر کنه - DefNews
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120356
+
+<div align="center"><video src="telegram/content/alonews_120356.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120356.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈جنگنده‌های جدید "MiG-29" سوریه رسماً رفتن تو عملیات و دارن برای دفاع از حریم هوایی سوریه پرواز می‌کنن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120355
+
+<div align="center"><video src="telegram/content/alonews_120355.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120355.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈یک مقام ارشد اسرائیلی در گفتگو با کانال ۱۲ اسرائیل: تل‌آویو در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120354
+
+<div align="center"><video src="telegram/content/alonews_120354.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120354.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: ۵ بار با ایران نزدیک توافق شدم، ولی روز بعدش زدن زیرش
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120353
+
+<div align="center"><video src="telegram/content/alonews_120353.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120353.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈حدادی، عضو کمیسیون صنایع: گران شدن خودرو توجیه فنی ندارد/قیمت‌ها باید به قبل از جنگ بازگردد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120351
+
+## alonews — post 120350
+
+## alonews — post 120349
+
+<div align="center"><video src="telegram/content/alonews_120349.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120349.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری / ارتش اسرائیل : عزالدین الحداد فرمانده گردان‌های القسام، همراه با محافظ‌هاش ترور شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120348
+
+<div align="center"><video src="telegram/content/alonews_120348.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120348.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر جدید نفت عراق، باسم محمد، اعلام کرد که عراق در ماه آوریل/نیمان ۱۰ میلیون بشکه نفت خود را از طریق تنگه هرمز صادر کرده است.
+
+
+🔴وی توضیح داد که عراق قصد دارد با سازمان اوپک همکاری کند تا تولید و ظرفیت صادرات کشور را افزایش دهد و افزود که بغداد هدف دارد به ظرفیت تولید روزانه ۵ میلیون بشکه دست یابد.
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120347
 
@@ -145,145 +254,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اخبار جنگ الونیوز AloNews pinned a photo
-</div>
-
-## alonews — post 120336
-
-<div align="center"><video src="telegram/content/alonews_120336.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120336.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دوستان این تبلیغاتی که پائین کانال نمایش داده میشه کلاهبرداری هست و توسط خود تلگرام انجام میشه و از دست ما خارجه
-
-
-🔴به هیچ عنوان اعتماد نکنید چون سرمایتون میره
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120335
-
-<div align="center"><video src="telegram/content/alonews_120335.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120335.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 انفجار ناشی از امحای مهمات در دزفول
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120334
-
-<div align="center"><img src="telegram/content/alonews_120334.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت استثنایی گیگی 
-2️⃣
-2️⃣
-2️⃣
-
-تحویل زیر یک دقیقه
-✅
-دارای لینک سابسکریشن جهت دیدن حجم و کنترل مصرف
-✅
-بدون قطعی 
-✅
-بدون محدودیت کاربر و زمان
-✅
-جمینایو چت جی بی تی و... کامل اوکیه با سرورامون
-✅
-
-🏪پشتیبانی کامل
-✅
-شروع فعالیت از سال 2022 
-✅
-پرداخت ریالی
-✅
-
-ضریب و این چیزا ندارن و تا آخرین مگابایت برای پشتیبانیش درختمتیم
-🥂
-
-
-⭐️ @Napsternetiran_bot
-〰️〰️〰️〰️〰️〰️〰️
-
-
-🔶 @Napsternetvirani
-</div>
-
-## alonews — post 120333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ارگان رسانه ای وابسته به سپاه نوشت: وزارت اقتصاد طرح مدیریت تنگه هرمز از طریق بیمه را پیگیری می‌کند تا امکان مدیریت بر تنگه در پساجنگ مطابق حقوق بین‌الملل فراهم شود و برای ایران آورده اقتصادی نیز داشته باش
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120332
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈الجزیره: برق کوبا پس از خاموشی گسترده دوباره وصل شد، اما بحران انرژی همچنان ادامه دارد
-
-
-🔴برق در سراسر کوبا روز جمعه پس از خاموشی‌های گسترده دوباره برقرار شد، اما بحران انرژی این کشور با کاهش شدید ذخایر نفتی همچنان ادامه دارد.
-
-🔴شرکت ملی برق کوبا اعلام کرد که پس از قطعی برق در ۷ استان از ۱۵ استان، «سیستم برق ملی دوباره برقرار شده است»، با این حال قطعی‌های برنامه‌ریزی‌شده ادامه دارد و نیروگاه‌های قدیمی هنوز در دست تعمیر هستند.
-
-🔴 وزیر انرژی، روز چهارشنبه اعلام کرد که ذخایر نفت کشور «تمام شده است». کمبود انرژی خشم عمومی را برانگیخته و شهروندان هاوانا با کوبیدن قابلمه و ماهیتابه اعتراض خود را نشان دادند.
-
-🔴کوبا کاهش انرژی را ناشی از تحریم‌های آمریکا می‌داند
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120331
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈آسوشیتدپرس: بازگشت ناو هواپیمابر جرالد فورد به پایگاه پس از ۱۱ ماه مأموریت
-
-🔴وزارت جنگ آمریکا اعلام کرد پیت هگست، وزیر جنگ، روز شنبه در پایگاه دریایی نورفولک در ویرجینیا از ناو هواپیمابر جرالد فورد و ۴۵۰۰ ملوان آن پس از ۱۱ ماه مأموریت استقبال می‌کند.
-
-🔴این ناو ۳۲۶ روز در دریا بوده که طولانی‌ترین استقرار یک ناو هواپیمابر آمریکایی در ۵۰ سال گذشته و سومین رکورد از زمان جنگ ویتنام است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کپیتال اکونومیست: قیمت نفت به ۱۵۰ دلار در هر بشکه خواهد رسید
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120329
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیروی هوایی اوکراین اعلام کرد: 269 پهپاد از 294 پهپاد پرتاب شده توسط ارتش روسیه را شب گذشته سرنگون کرده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیویورک تایمز گزارش می‌دهد که نیروهای نظامی آمریکا "در حال آماده‌سازی برای دور دیگری از حملات هستند... این بار با شدت بیشتر. این حملات ممکن است از روز دوشنبه آغاز شود. اهداف نظامی بیشتری از ایران در نظر گرفته شده است که شامل زیرساخت‌ها نیز می‌شود."
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120325
-
-<div align="center"><img src="telegram/content/alonews_120325.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شب گذشته در بسیاری از برنامه های صداوسیما، مجریان با تفنگ حاضر شدند!
-
-✅ @AloNews خبر جنگ
 </div>
 

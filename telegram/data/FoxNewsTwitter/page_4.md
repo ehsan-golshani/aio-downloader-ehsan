@@ -1,8 +1,56 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 20:13
+📅 آخرین بروزرسانی: 1405/02/26 21:16
 
 ---
+
+## FoxNewsTwitter — post 341756
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341756.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump says China’s leader was right about America’s decline under President Biden — but argues the U.S. has completely rebounded under his administration.
+
+In a lengthy post, Trump touted booming markets, record investment, the "ending" of DEI, and what he called the “strongest military on earth by far,” while predicting a stronger relationship with China moving forward.
+</div>
+
+## FoxNewsTwitter — post 341755
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341755.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341755.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+“People can’t feed themselves.”
+
+AOC ripped the Trump administration over spending on the National Mall reflecting pool and the planned White House ballroom, arguing that Americans are struggling to afford groceries, rent, and mortgages.
+
+She called the priorities “deeply out of touch” and “insulting” to everyday people.
+</div>
+
+## FoxNewsTwitter — post 341754
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341754.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341754.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump tells @seanhannity that Chinese President Xi Jinping offered to assist the U.S. in negotiating with Iran to reopen the Strait of Hormuz.
+
+Trump notes that China’s significant oil interests play a major role in its desire to keep the critical waterway open and stable.
+
+“President Xi would like to see a deal made. He would like to see a deal made. And he did offer, he said, ‘If I can be of any help at all, I would like to be of help.’”
+
+"He said 'If I could be of any help whatsoever, I would like to help.'"
+
+The full interview airs tonight at 9 p.m. ET on 'Hannity.'
+</div>
 
 ## FoxNewsTwitter — post 341753
 
@@ -260,41 +308,5 @@ Trump noted that while China continues to purchase Iranian oil, Xi expressed a s
 "He said he’s not going to give military equipment, that’s a big statement... But at the same time, he said you know they buy a lot of their oil there and they’d like to keep doing that. He’d like to see Hormuz straight opened."
 
 The full interview airs tonight at 9pm ET.
-</div>
-
-## FoxNewsTwitter — post 341736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: US Border Patrol Chief Mike Banks abruptly resigns, Fox News has learned
-</div>
-
-## FoxNewsTwitter — post 341735
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341735.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341735.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: Iran has reportedly seized a ship off the coast of the UAE, ramping up tensions in the region as disputes grow over alleged attacks and a denied Netanyahu visit.
-
-U.S. officials say talks with the Iranian regime have made some progress but remain uncertain, with Iran signaling it’s ready for either diplomacy or conflict, @TreyYingst reports.
-</div>
-
-## FoxNewsTwitter — post 341734
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341734.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: Spencer Pratt is suddenly within single digits of L.A. Mayor Karen Bass, with new polling showing the former reality TV star and independent candidate gaining 12 points since March.
-
-The Emerson poll has Bass at 30%, Pratt at 22%, and socialist-linked Nithya Raman at 19%
-
-Pratt’s campaign is leaning hard into L.A.’s homelessness crisis, using sharp social media and attention-grabbing ads to turn a long-shot bid into a race people are now watching.
 </div>
 

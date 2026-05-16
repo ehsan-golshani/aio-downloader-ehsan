@@ -1,8 +1,94 @@
 # آرشیو کانال IranIntlTV - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/26 20:18
+📅 آخرین بروزرسانی: 1405/02/26 21:21
 
 ---
+
+## IranIntlTV — post 337271
+
+<div align="center"><img src="telegram/content/IranIntlTV_337271.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، روز جمعه پس از سفری دو روزه سوار هواپیمای اختصاصی ریاست‌جمهوری آمریکا «ایر فورس وان» شد و پکن را ترک کرد. وانگ یی، وزیر امور خارجه چین، ترامپ را پیش از سوار شدن به هواپیما همراه با هیاتی دیپلماتیک بدرقه کرد.
+
+شی جین‌پینگ، رییس‌جمهوری چین، در سخنرانی خود در مراسم ضیافت رسمی به مناسبت سفر دونالد ترامپ، این سفر را «تاریخی» خواند و گفت: «دو شعار "احیای چین" و "عظمت را به آمریکا بازگردانیم" می‌توانند در کنار یکدیگر پیش بروند.»
+https://iranintl.com/202605150729
+</div>
+
+## IranIntlTV — post 337270
+
+<div align="center"><video src="telegram/content/IranIntlTV_337270.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337270.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در دومین روز نشست وزیران خارجه کشورهای عضو بریکس، خواستار اصلاح ساختار سازمان ملل و «نمایندگی عادلانه» همه مناطق جهان در شورای امنیت شد.
+
+جواد همدانی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337269
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک دانش‌آموز با ارسال پیامی به ایران اینترنشنال با روایت تاثیرات روحی کشتار معترضان در دی‌ماه و حمله به جمهوری اسلامی پس از آن می‌گوید وقتی صدای بمباران و انفجار نمی‌شنیدیم ناراحت می‌شدیم. صدای او با هوش مصنوعی تغییر یافته است.
+</div>
+
+## IranIntlTV — post 337268
+
+<div align="center"><video src="telegram/content/IranIntlTV_337268.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337268.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هوشنگ حسن‌یاری، کارشناس خاورمیانه و امور نظامی، گفت جمهوری اسلامی با بستن تنگه هرمز، خود را در یک تنگنای دیپلماتیک قرار داده و باعث شکل‌گیری ائتلافی بین‌المللی علیه خود شده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337267
+
+<div align="center"><video src="telegram/content/IranIntlTV_337267.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337267.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جاویدنامان انقلاب ملی ایرانیان
+«حمید مهدوی»، آتش‌نشان، شامگاه ۱۸ دی‌ماه در حالی که مشغول به امدادرسانی به مجروحان بود مورد اصابت مستقیم گلوله قرار گرفت. نامش در حافظه‌ این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337266
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎧نسخه صوتی اخبار بامدادی | جمعه ۲۵ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337265
+
+<div align="center"><video src="telegram/content/IranIntlTV_337265.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337265.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شهروندان چینی با نگاهی محتاطانه اما امیدوار، گفت‌وگوها میان ایالات متحده و چین را دنبال می‌کنند؛ گفت‌وگوهایی که به باور آن‌ها می‌تواند بر آینده اقتصاد و روابط جهانی تاثیرگذار باشد.
+
+گزارش راضیه دانش، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337264
+
+<div align="center"><video src="telegram/content/IranIntlTV_337264.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337264.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محسن جوادی، معاون امور فرهنگی وزارت فرهنگ و ارشاد اسلامی و رییس نمایشگاه بین‌المللی کتاب تهران، اعلام کرد این نمایشگاه کتاب به‌صورت مجازی برگزار خواهد شد.
+
+گفت‌وگو با تهمینه رستمی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337263
 
@@ -147,141 +233,5 @@ https://iranintl.com/202605156991
 ترامپ گفت اورانیوم غنی‌شده ایران می‌تواند «دفن و مهر و موم» شود، اما او ترجیح می‌دهد آمریکا آن را در اختیار بگیرد. ترامپ افزود گرفتن این اورانیوم «بیش از هر چیز جنبه روابط عمومی دارد.»
 
 https://iranintl.com/202605150652
-</div>
-
-## IranIntlTV — post 337251
-
-<div align="center"><img src="telegram/content/IranIntlTV_337251.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های آمریکایی از درگیری‌های فیزیکی در پشت صحنه دیدار ترامپ و شی در پکن خبر دادند. این تنش‌ها پس از آن رخ داد که مقام‌های چینی مانع ورود یک مامور سرویس مخفی آمریکا به منطقه حفاظت‌شده شدند و به خبرنگاران آمریکایی نیز اجازه ندادند به کاروان خودروهای ترامپ بپیوندند.
-خبرنگار فاکس نیوز گزارش داد ماموران سرویس مخفی آمریکا در جریان سفر ترامپ با پلیس چین وارد درگیری‌های فیزیکی شدید شدند. این درگیری‌ها پس از آن صورت گرفت که ماموران چینی تلاش کردند مانع ورود یک مامور آمریکایی همراه با سلاحش به محل اجلاس شوند.
-نیویورک‌پست نیز در گزارشی با تشریح این درگیری‌ها، نوشت خبرنگاران آمریکایی همچنین در نشست پکن با محدودیت‌های شدید روبه‌رو شدند و به سرویس‌های بهداشتی، امکانات ضبط خبر و بطری‌های آب دسترسی بسیار محدودی داشتند.
-
-https://iranintl.com/202605150526
-</div>
-
-## IranIntlTV — post 337250
-
-<div align="center"><img src="telegram/content/IranIntlTV_337250.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جمیسون گرر، نماینده تجاری آمریکا، جمعه در پکن به بلومبرگ گفت مقام‌های چینی در نشست سران آمریکا و چین به‌روشنی اعلام کردند که خواهان بازگشایی تنگه هرمز بدون محدودیت یا اخذ عوارض هستند و پکن به‌صورت عملگرایانه برای محدود کردن حمایت نظامی از ایران اقدام خواهد کرد.
-گرر گفت: «برای چین بسیار مهم است که تنگه هرمز باز باشد، هیچ عوارضی دریافت نشود و هیچ کنترل نظامی وجود نداشته باشد و این موضوع در نشست روشن بود. بنابراین از آن استقبال می‌کنیم.»
-او افزود: «در مورد نقش چین در قبال ایران، دیدگاه ما این است که چینی‌ها بسیار عملگرا رفتار می‌کنند و نمی‌خواهند در سوی نادرست این موضوع قرار بگیرند. آنها خواهان صلح در آن منطقه هستند. دونالد ترامپ نیز خواهان صلح در آن منطقه است. بنابراین اطمینان زیادی داریم که آنها هر کاری بتوانند انجام خواهند داد تا هرگونه حمایت مادی از ایران را محدود کنند.»
-
-https://iranintl.com/202605157555
-</div>
-
-## IranIntlTV — post 337249
-
-<div align="center"><video src="telegram/content/IranIntlTV_337249.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337249.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینترنت؛ رانت تازهٔ جمهوری اسلامی
-شرط دسترسی به اینترنت: انتشار تصاویر خامنه‌ای
-
-در حالی‌ که قطع و محدودیت اینترنت خسارت‌های سنگینی به زندگی و کسب‌وکار مردم وارد کرده، حکومت نه‌تنها محدودیت‌ها را کاهش نداده، بلکه با طرح‌هایی مانند «اینترنت پرو» و «سیم‌کارت سفید»، نگرانی‌ها دربارهٔ اینترنت طبقاتی را افزایش داده است.
-
-گزارش‌هایی منتشر شده که نشان می‌دهد برخی شهروندان، پس از انتقاد از حکومت یا فعالیت در شبکه‌های اجتماعی، با قطع سیم‌کارت و اینترنت مواجه شده‌اند و برای وصل دوباره، مجبور به ارائهٔ تعهد یا فعالیت حمایتی به نفع حکومت شده‌اند.
-
-جمهوری اسلامی اینترنت را به ابزاری برای کنترل سیاسی و سنجش وفاداری شهروندان تبدیل کرده است؛ وضعیتی که برای بسیاری از مردم فقط یک معنا دارد:
-هرجا اینترنت نیست، آزادی هم نیست.
-
-کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/9CC8wX4Bim0
-@iranintltv
-</div>
-
-## IranIntlTV — post 337240
-
-<div align="center"><img src="telegram/content/IranIntlTV_337240.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر کدام از این نام‌ها، روایت جوانی‌ست که می‌توانست زندگی کند، کار کند، عاشق شود و آینده‌ای بسازد؛ اما گلوله سرکوب مسیر زندگی‌شان را قطع کرد.
-جاویدنامان انقلاب ملی ایرانیان فقط نام‌های ثبت‌شده در یک فهرست نیستند؛ حافظه زخمی نسلی‌اند که بهای آزادی را با جان خود پرداخت.
-عرفان علیزاده، علی‌اصغر محمدی چمستان، مبین فیلی، علیرضا موسی‌نیا، محمدامین قبادی، علی زنگنه، امیررضا حسنوند و محمدرضا سعیدی؛
-نام‌هایی که از خیابان‌های ایران پاک نشدند و در حافظه جمعی این سرزمین باقی خواهند ماند.
-#جاویدنامان_انقلاب_ملی_ایرانیان
-</div>
-
-## IranIntlTV — post 337239
-
-<div align="center"><video src="telegram/content/IranIntlTV_337239.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337239.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مریم از پاریس: نگران حال فاطمه سپهری هستم و امیدوارم پوشش خبری بیشتری درباره ایشان داده شود
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/9CC8wX4Bim0
-@iranintltv
-</div>
-
-## IranIntlTV — post 337238
-
-<div align="center"><video src="telegram/content/IranIntlTV_337238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریا از لندن: با زور و اعتراف اجباری، زندانی بی‌گناه را به اعدام محکوم می‌کنند
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/9CC8wX4Bim0
-@iranintltv
-</div>
-
-## IranIntlTV — post 337237
-
-<div align="center"><video src="telegram/content/IranIntlTV_337237.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337237.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عسل از اصفهان: جنگ اوضاع را تغییر نداد؛ حالا خودمان باید تغییرش بدهیم
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/9CC8wX4Bim0
-@iranintltv
-</div>
-
-## IranIntlTV — post 337236
-
-<div align="center"><video src="telegram/content/IranIntlTV_337236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سهراب از تهران: «درود بر وی‌پی‌ان‌فروشِ حلال‌خور!»
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/9CC8wX4Bim0
-@iranintltv
 </div>
 

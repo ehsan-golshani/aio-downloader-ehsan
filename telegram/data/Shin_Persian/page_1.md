@@ -1,8 +1,42 @@
 # آرشیو کانال Shin_Persian - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 19:15
+📅 آخرین بروزرسانی: 1405/02/26 21:22
 
 ---
+
+## Shin_Persian — post 6034
+
+<div align="center"><img src="telegram/content/Shin_Persian_6034.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin @hey_itsmyturn
+Sat, 16 May 2026 17:43:45 UTC
+
+Published image from the targeted vehicle.
+Western Gaza
+
+فارسی
+
+تصویر منتشر شده از خودروی هدف قرار گرفته.
+غرب غزه
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6033
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Sat, 16 May 2026 17:12:10 UTC
+
+A vehicle was just targeted by [IAF] UAV in Nassr Street, Western Gaza
+
+فارسی
+
+یک خودرو لحظاتی پیش توسط پهپاد [نیروی هوایی اسرائیل] در خیابان نصر، غرب غزه مورد هدف قرار گرفت.
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6032
 
@@ -320,43 +354,5 @@ Fri, 15 May 2026 14:28:16 UTC
 .@POTUS می‌گوید که با رئیس‌جمهور شی در مورد تایوان و ایران گفتگو کرده است: «او نمی‌خواهد شاهد جنگی برای استقلال باشد... من در این مورد نظری ندادم... درباره ایران، موضوع بسیار جالب است. او با قدرت احساس می‌کند که آنها نباید سلاح هسته‌ای داشته باشند... و او می‌خواهد که آنها تنگه را باز کنند.»
 
 𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 6012
-
-<div align="center"><video src="telegram/content/Shin_Persian_6012.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Shin_Persian_6012.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Rapid Response 47 ✓ @RapidResponse47
-Fri, 15 May 2026 14:22:14 UTC
-
-.@POTUS on Iran's latest proposal: "I looked at it, and if I don't like the first sentence, I just throw it away... if they have any nuclear of any form, I don't read the rest of their letter."
-
-فارسی
-
-.@POTUS درباره آخرین پیشنهاد ایران: «نگاهی به آن انداختم، و اگر از جمله اول خوشم نیاید، فقط آن را دور می‌اندازم... اگر آن‌ها هر شکلی از [توانمندی] هسته‌ای داشته باشند، بقیه نامه‌شان را نمی‌خوانم.»
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 6011
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📦 mhrv-rs v1.9.26 released
-
-• Optimize Full mode Apps Script by batching Edge-DNS cache lookups (PR #958)
-• The safe fallback behavior is preserved
-
-Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
-
-👉 v1.9.26 — all files with SHA-256
-
-Channel:
-https://t.me/mhrv_rs
-or: https://t.me/+R1OyoHX2boA1ZDgx
-
-#v1926
 </div>
 

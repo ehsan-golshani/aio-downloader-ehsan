@@ -1,8 +1,60 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 20:13
+📅 آخرین بروزرسانی: 1405/02/26 21:16
 
 ---
+
+## FoxNewsTwitter — post 341667
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341667.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341667.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST IN: Vice President JD Vance rips the Biden administration’s failure to prevent medical identity theft after a California psychotherapist was stripped of her benefits.
+
+Vance highlights the doctor's case — 40 years in the medical field only to have her Medicare "turned off" because a fraudster exploited the system.
+
+"A fraudster had stolen her identity and signed her up for healthcare services that she didn't need, and so she had been turned off of the healthcare services that she did need."
+
+“This happens way too much in the United States of America. And it happens because until recently, we did not have a government or an administration that actually took the fraud program and took anti-fraud prevention seriously."
+</div>
+
+## FoxNewsTwitter — post 341666
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341666.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341666.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: VP Vance calls out officials in Hawaii for refusing to crack down on Medicaid fraud in the state:
+
+"Guess how many convictions or indictments has Hawaii had over the last few years in its Medicaid fraud program? The answer is zero."
+
+"Not a single indictment, not a single conviction, because the administrators of the Hawaii program just don't take it seriously. They don't think that fraud is a big enough problem."
+</div>
+
+## FoxNewsTwitter — post 341665
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341665.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341665.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST IN: Vice President JD Vance reveals how fraudulent healthcare providers are taking advantage of patients and exploiting the American taxpayer:
+
+"You have people who've been prescribed medications that they don't even need.
+
+“Sometimes they've had drugs put into their bodies that they don't need because fraudsters have actually encouraged false prescriptions and false administration to medications.”
+
+“It's a defrauding of the American taxpayer, but it's a violation of the trust that should exist between every American and the people who prescribe the medications."
+</div>
 
 ## FoxNewsTwitter — post 341664
 

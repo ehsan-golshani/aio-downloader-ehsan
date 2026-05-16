@@ -1,8 +1,18 @@
 # آرشیو کانال IranianMinds - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 20:26
+📅 آخرین بروزرسانی: 1405/02/26 21:28
 
 ---
+
+## IranianMinds — post 20188
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+اگر ۹ ماه پیش از بمب‌های B-2 استفاده نکرده بودم، ایران اکنون قادر به دستیابی به سلاح هسته‌ای بود.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20187
 
@@ -217,16 +227,6 @@ re25
 🔴 ترامپ :
 
 نابودی نظامی ایران ادامه خواهد داشت
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20167
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ به فاکس‌ نیوز :
-
-من از الان دیگه آدم صبوری نیستم و صبر بیشتری به ایران نشان نخواهم داد!
 
 @IranianMinds
 </div>

@@ -1,8 +1,109 @@
 # آرشیو کانال alonews - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/02/26 20:31
+📅 آخرین بروزرسانی: 1405/02/26 21:34
 
 ---
+
+## alonews — post 119913
+
+<div align="center"><video src="telegram/content/alonews_119913.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119913.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈تصاویری از ایلان ماسک که در ضیافت شام پکن با حضور شی و ترامپ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار صداوسیما به نقل از نیروی دریایی سپاه: از شب گذشته تاکنون ۳۰ فروند کشتی از تنگه هرمز با مجوز ایران عبور کرده‌اند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ : گفت‌وگوهاش با شی جین‌پینگ «سازنده» بوده و برای هر دو کشور مفید بود
+
+🔴 ترامپ به‌طور رسمی از شی جین‌پینگ دعوت کرد که در ۲۴ سپتامبر به آمریکا و کاخ سفید سفر کنه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈شی جین‌پینگ دوباره تأکید کرد که کشورهای ما باید به جای رقیب، شریک باشن
+
+🔴به آینده روشن روابط چین و آمریکا
+
+🔴به دوستی میان مردم دو کشور، و به سلامتی رئیس‌جمهور ترامپ و همه دوستان ی پیک عرق میخورم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119909
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پاکستان: آتش‌بس برقرار است و ما با طرفین مذاکرات در ارتباط هستیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رئیس جمهور چین: رنسانس چین و شعار «آمریکا را دوباره بزرگ کنیم» می‌توانند دست در دست هم پیش بروند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119907
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فارس: عبور کشتی‌های چینی از تنگه هرمز با هماهنگی ایران آغاز شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119906
+
+<div align="center"><img src="telegram/content/alonews_119906.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈طی ۲۴ ساعت گذشته بزرگترین حملات پهپادی ثبت شده تا امروز از سوی روسیه علیه اوکراین با بیش از ۱۴۰۰ فروند پهپاد انتحاری ثبت شده است.
+
+🔴همچنین بیش از پنجاه تیر موشک نیز شلیک شده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119905
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پاپ لئو افزایش هزینه‌های نظامی در اروپا به بالاترین سطح از پایان جنگ سرد را خیانت به دیپلماسی دانست و افزود که جهان در حال معلول شدن بر اثر جنگ‌ها است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119904
+
+<div align="center"><video src="telegram/content/alonews_119904.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119904.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سناتور گراهام درباره حمایت چین از ایران: اگر آنها تغییر کنند، چین پاداش خواهد گرفت.
+
+🔴اگر تغییر نکنند، مجازات خواهند شد!
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119903
 
@@ -103,97 +204,5 @@
 👈بلومبرگ: ۴ روز است که از خارک بارگیری نفت نمی‌شود و اسکله‌های نفتی کاملاً خالی است
 
 ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119893
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈آکسیوس به نقل از مقامات اسرائیلی: ما در انتظار تصمیم ترامپ برای از سرگیری جنگ، سطح هشدار را در آخر هفته به بالاترین حد خود افزایش خواهیم داد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119879
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈بلومبرگ با استناد به داده‌های کشتیرانی: از روز یکشنبه تاکنون ۹ نفتکش نفت و گاز از تنگه هرمز عبور کرده‌اند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119878
-
-<div align="center"><video src="telegram/content/alonews_119878.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119878.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وایرال شدن تصاویری از فیلم‌برداری ایلان ماسک در سفر چین
-‌
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119876
-
-<div align="center"><img src="telegram/content/alonews_119876.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محسن مسلمان که حسابی تو تجمعات حامیان حکومت فعال بود، به کادرفنی تیم امید پرسپولیس پیوست.
-@AloSport
-</div>
-
-## alonews — post 119875
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دقایقی پیش زمین‌لرزه‌ای ۵ ریشتری در عمق ۸ کیلومتری بردسیر کرمان را لرزاند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119874
-
-<div align="center"><img src="telegram/content/alonews_119874.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فواد ایزدی، تحلیلگر ارشد صدا و سیما: ترامپ رفته چین تا التماس کنه که ایران ولش کنه و انقدر نزنیمش
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119873
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت خارجه چین: پکن و واشنگتن بر سر جهت‌گیری جدید روابط توافق کردند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119872
-
-<div align="center"><img src="telegram/content/alonews_119872.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت امور خارجه هند اعلام کرد که یک کشتی با پرچم هند در سواحل عمان دیروز مورد حمله قرار گرفت، این حادثه را «غیرقابل قبول» دانست و نگرانی خود را از هدف قرار گرفتن مداوم کشتی‌های تجاری و دریانوردان غیرنظامی ابراز کرد.
-
-🔴 دهلی نو تأیید کرد که همه اعضای خدمه هندی حاضر در کشتی در امنیت هستند و از مقامات عمانی برای انجام عملیات نجات تشکر کرد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تسنیم: کیفرخواست زیباکلام و مدیرمسئول خبرگزاری آنا صادر شد ممنوعیت زیباکلام از انجام هرگونه فعالیت رسانه‌ای به مدت سه ماه صادر شده
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119870
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جهت رزرو تبلیغات vpn در کانال #الونیوز به کانال زیر مراجعه کنید👇
-
-📃https://t.me/ads_alonews
-📃https://t.me/ads_alonews
 </div>
 

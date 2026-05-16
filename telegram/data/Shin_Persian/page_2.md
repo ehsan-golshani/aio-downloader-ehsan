@@ -1,8 +1,46 @@
 # آرشیو کانال Shin_Persian - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 19:15
+📅 آخرین بروزرسانی: 1405/02/26 21:22
 
 ---
+
+## Shin_Persian — post 6012
+
+<div align="center"><video src="telegram/content/Shin_Persian_6012.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Shin_Persian_6012.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Rapid Response 47 ✓ @RapidResponse47
+Fri, 15 May 2026 14:22:14 UTC
+
+.@POTUS on Iran's latest proposal: "I looked at it, and if I don't like the first sentence, I just throw it away... if they have any nuclear of any form, I don't read the rest of their letter."
+
+فارسی
+
+.@POTUS درباره آخرین پیشنهاد ایران: «نگاهی به آن انداختم، و اگر از جمله اول خوشم نیاید، فقط آن را دور می‌اندازم... اگر آن‌ها هر شکلی از [توانمندی] هسته‌ای داشته باشند، بقیه نامه‌شان را نمی‌خوانم.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6011
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📦 mhrv-rs v1.9.26 released
+
+• Optimize Full mode Apps Script by batching Edge-DNS cache lookups (PR #958)
+• The safe fallback behavior is preserved
+
+Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
+
+👉 v1.9.26 — all files with SHA-256
+
+Channel:
+https://t.me/mhrv_rs
+or: https://t.me/+R1OyoHX2boA1ZDgx
+
+#v1926
+</div>
 
 ## Shin_Persian — post 6010
 
@@ -326,41 +364,5 @@ Prime Minister Benjamin Netanyahu visited the UAE during the Iran war, his offic
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 U.S. Central Command ✓ @CENTCOM Wed, 13 May 2026 15:19:24 UTC Four weeks ago, CENTCOM began implementing the blockade against ships entering and exiting Iran’s ports. As of today, American forces have redirected 67 commercial vessels, allowed 15 supporting…
-</div>
-
-## Shin_Persian — post 5989
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-U.S. Central Command ✓ @CENTCOM
-Wed, 13 May 2026 15:19:24 UTC
-
-Four weeks ago, CENTCOM began implementing the blockade against ships entering and exiting Iran’s ports. As of today, American forces have redirected 67 commercial vessels, allowed 15 supporting humanitarian aid to pass, and disabled 4 to ensure compliance.
-
-Earlier this week, CENTCOM forces ensured that 2 commercial vessels turned around to comply with the blockade after communicating via radio and firing warning shots from small arms, clearly demonstrating that U.S. enforcement remains in full effect.
-
-فارسی
-
-چهار هفته پیش، ستاد فرماندهی مرکزی ایالات متحده (سنتکام) اجرای محاصره علیه کشتی‌هایی که به بنادر ایران وارد و یا از آن خارج می‌شدند را آغاز کرد. تا به امروز، نیروهای آمریکایی مسیر ۶۷ شناور تجاری را تغییر داده، به ۱۵ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده و ۴ فروند را برای اطمینان از انطباق با مقررات از کار انداخته‌اند.
-
-در اوایل این هفته، نیروهای سنتکام اطمینان حاصل کردند که ۲ شناور تجاری پس از برقراری ارتباط رادیویی و شلیک تیرهای هشدار توسط سلاح‌های سبک، برای پایبندی به محاصره دور زده و بازگشتند؛ موضوعی که به وضوح نشان می‌دهد اجرای مقررات توسط ایالات متحده همچنان با قوت کامل در جریان است.
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5988
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Shin ✓ @hey_itsmyturn
-Wed, 13 May 2026 13:40:21 UTC
-
-Blast sound in Shiraz
-Fars Province, #Iran
-
-فارسی
-
-صدای انفجار در شیراز
-استان فارس، #Iran
-
-𝕏 · @shin_persian
 </div>
 

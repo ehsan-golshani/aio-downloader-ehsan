@@ -1,8 +1,44 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 20:13
+📅 آخرین بروزرسانی: 1405/02/26 21:16
 
 ---
+
+## FoxNewsTwitter — post 341824
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌Fox News (Twitter/X)
+
+BREAKING NEWS: A car reportedly drove into a crowd in the northern Italian city of Modena on Saturday, injuring several people. The vehicle slammed into a store window, and its driver allegedly stabbed a passerby who tried to intervene, according to local Italian media.
+
+https://www.foxnews.com/world/several-injured-after-car-plows-italy-crowd-driver-stabs-passerby-report
+</div>
+
+## FoxNewsTwitter — post 341823
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341823.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341823.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+A massive landspout tears through wildfire-scorched land in New Mexico as crews battle a blaze that burned 23,000 acres.
+
+Dubbed the “Devil’s Dust Devil,” the towering vortex spun across the charred landscape as authorities warn of thunderstorms that could bring further wildfire threats to the area.
+</div>
+
+## FoxNewsTwitter — post 341819
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341819.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+The USS Gerald R. Ford returned home after a record-setting deployment of more than 300 days that included operations in the war against Iran and the capture of Venezuelan leader Nicolás Maduro.
+
+The carrier set the record for the longest post-Vietnam War deployment by a U.S. aircraft carrier after departing Naval Station Norfolk last June.
+</div>
 
 ## FoxNewsTwitter — post 341818
 
@@ -227,41 +263,5 @@ Trump has said that he and Chinese President Xi Jinping largely agreed Iran must
 Fox News (Twitter/X)
 
 BREAKING: The U.S. Supreme Court has denied Virginia's attempt to get its state supreme court's decision tossing out controversial election map overturned. The state's Democratic leaders had redrawn congressional maps, giving their party 10 out of 11 seats.
-</div>
-
-## FoxNewsTwitter — post 341801
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341801.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: President Trump arrives in Washington after high-stakes China summit https://twitter.com/i/broadcasts/1wGWjazXOPAKQ
-</div>
-
-## FoxNewsTwitter — post 341800
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341800.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341800.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-Bruce Springsteen walked right past former New Jersey Gov. Chris Christie's outstretched hand during a concert at Brooklyn’s Barclays Center.
-
-Springsteen is seen greeting fans in the arena when Christie extends his hand — but the rock legend doesn't show him any love. Christie quickly pulls his hand back and keeps cheering.
-
-Springsteen has been a vocal critic of President Trump, especially during his latest tour.
-</div>
-
-## FoxNewsTwitter — post 341799
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341799.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: SpaceX CRS-34 resupply mission launches from Cape Canaveral (Courtesy: SpaceX) https://twitter.com/i/broadcasts/1nGnRYkMkydGO
 </div>
 

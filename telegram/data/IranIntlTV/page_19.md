@@ -1,8 +1,103 @@
 # آرشیو کانال IranIntlTV - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/02/26 20:18
+📅 آخرین بروزرسانی: 1405/02/26 21:21
 
 ---
+
+## IranIntlTV — post 337112
+
+<div align="center"><img src="telegram/content/IranIntlTV_337112.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حسین شریعتمداری، نماینده رهبر جمهوری اسلامی در روزنامه کیهان، در یادداشتی با اشاره به جدایی بحرین از ایران، خواستار اقدام جمهوری اسلامی برای بازپس‌گیری فوری این کشور شد.
+
+او نوشت: «آیا در این واقعیت که بحرین کماکان بخشی از سرزمین ایران است، کمترین تردیدی هست؟ اگر تردیدی نیست که نیست، چرا برای بازپس‌گیری آن اقدامی نمی‌شود؟»
+
+شریعتمداری در ادامه افزود: «انتظار آن است و انتظاری شایسته و بایسته نیز هست که جمهوری اسلامی، سازوکار قانونی بازپس‌گیری بحرین را در دستور کار فوری خود قرار دهد.»
+
+او همچنین نوشت: «چرا باید بخشی از سرزمین ایران اسلامی نه فقط در اختیار بیگانگان باشد، بلکه به پایگاه آمریکا و اسرائیل تبدیل شود؟»
+https://iranintl.com/202605149606
+</div>
+
+## IranIntlTV — post 337111
+
+<div align="center"><video src="telegram/content/IranIntlTV_337111.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337111.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شهرام خلدی، پژوهش‌گر تاریخ خاورمیانه و روابط بین‌الملل، گفت سفر ترامپ به پکن فرصت مناسبی است تا رییس‌جمهوری چین از بحران ایران به‌عنوان یک کارت برنده برای دستیابی به اهداف اقتصادی بزرگ‌تر و اعمال فشار بر ایالات متحده استفاده کند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337110
+
+<div align="center"><video src="telegram/content/IranIntlTV_337110.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337110.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میزان، رسانه قوه قضاییه جمهوری اسلامی، گزارش داد حکم اعدام محمد عباسی، شهروند ۵۵ ساله و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، چهارشنبه به اتهام «محاربه» اجرا شد. بر اساس گزارش نهادهای حقوق بشری، اعترافات مربوط به اتهام «قتل یکی از سرهنگ‌های نیروی انتظامی» در اعتراضات ملارد، تحت شکنجه و با تهدید به تعرض به دختر او گرفته شده بود.
+
+گفت‌وگو با پگاه بنی‌هاشمی، پژوهش‌گر ارشد حقوق
+@iranintltv
+</div>
+
+## IranIntlTV — post 337109
+
+<div align="center"><video src="telegram/content/IranIntlTV_337109.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337109.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری ایالات متحده، با ابراز خرسندی از سفر به چین و ادای احترام به اقدامات شی جین‌پینگ گفت واشینگتن و پکن همواره چالش‌ها و اختلافات خود را در سریع‌ترین زمان و با حسن نیت حل کرده‌اند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337103
+
+<div align="center"><img src="telegram/content/IranIntlTV_337103.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کریس رایت، وزیر انرژی آمریکا، هشدار داد جمهوری اسلامی «در حدی ترسناک» به ساخت سلاح هسته‌ای نزدیک شده است و تنها چند هفته با غنی‌سازی یک تُن اورانیوم تا سطح تسلیحاتی فاصله دارد.
+رایت چهارشنبه شب در نشست کمیته نیروهای مسلح سنا گفت بخشی از ذخایر اورانیوم ایران تا ۶۰ درصد و مقدار زیادی نیز تا ۲۰ درصد غنی‌سازی شده است؛ در حالی که سطح حدود ۹۰ درصد برای سلاح هسته‌ای مناسب است. او تأکید کرد حتی پس از غنی‌سازی، مرحله «تسلیحاتی‌سازی» باقی می‌ماند اما ایران به این مرحله «بسیار نزدیک» شده است.
+وزیر انرژی آمریکا راهبرد «عاقلانه» را توقف کامل برنامه هسته‌ای ایران و جلوگیری از هرگونه غنی‌سازی در آینده دانست. دولت ترامپ بارها ذخایر اورانیوم غنی‌شده تهران را از دلایل اصلی اقدام نظامی اعلام کرده است.
+
+https://iranintl.com/202605144976
+</div>
+
+## IranIntlTV — post 337102
+
+<div align="center"><img src="telegram/content/IranIntlTV_337102.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریک اسکات، سناتور جمهوری‌خواه آمریکا، گفت شعار «مرگ بر آمریکا» از سوی جمهوری اسلامی باید جدی گرفته شود و آن را نه یک شعار سیاسی، بلکه «یک وعده» توصیف کرد.
+او در شبکه ایکس نوشت تهران نزدیک به نیم قرن این شعار را تکرار کرده و افزود: «وقتی دشمن به شما می‌گوید چه کسی است، باورش کنید. پیروزی برای آمریکا یک گزینه نیست، تنها گزینه است.»
+
+https://iranintl.com/202605145770
+</div>
+
+## IranIntlTV — post 337101
+
+<div align="center"><img src="telegram/content/IranIntlTV_337101.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شی جین‌پینگ در دیدار با ترامپ در پکن هشدار داد اگر مسئله تایوان به‌درستی مدیریت نشود، چین و آمریکا ممکن است وارد برخورد یا حتی درگیری شوند و روابط دو کشور به «وضعیتی بسیار خطرناک» کشیده شود.
+رییس‌جمهوری چین تایوان را مهم‌ترین موضوع در روابط پکن–واشینگتن خواند. چین این جزیره دموکراتیک را بخشی از قلمرو خود می‌داند، اما تایپه این ادعا را رد می‌کند. پکن همچنین با فروش سلاح آمریکا به تایوان مخالف است.
+
+https://iranintl.com/202605147049
+</div>
+
+## IranIntlTV — post 337100
+
+<div align="center"><video src="telegram/content/IranIntlTV_337100.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337100.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرخط خبرهای پنجشنبه ۲۴ اردیبهشت
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337099
 
@@ -158,129 +253,6 @@ https://iranintl.com/202605145471
 
 تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
 https://youtu.be/HsShW7razys
-@iranintltv
-</div>
-
-## IranIntlTV — post 337079
-
-<div align="center"><video src="telegram/content/IranIntlTV_337079.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337079.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد از آلمان: کسی که پول دارو ندارد، آب ندارد، برق ندارد، او هم اعدامی جمهوری اسلامی است
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/HsShW7razys
-@iranintltv
-</div>
-
-## IranIntlTV — post 337078
-
-<div align="center"><video src="telegram/content/IranIntlTV_337078.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337078.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حمید از بندرعباس: می‌روم خرید، ولی فقط می‌توانم به اندازهٔ جیبم خرید کنم، نه نیازم
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/HsShW7razys
-@iranintltv
-</div>
-
-## IranIntlTV — post 337077
-
-<div align="center"><video src="telegram/content/IranIntlTV_337077.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337077.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فریبرز از خوزستان: مردمی که اینترنت ندارند، چه کار کنند؟ ایرانی‌های خارج از کشور کمک کنند
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/HsShW7razys
-@iranintltv
-</div>
-
-## IranIntlTV — post 337076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎧نسخه صوتی سیاست با مراد ویسی: ایران کارت بازی دیگران
-@iranintlTV
-</div>
-
-## IranIntlTV — post 337075
-
-<div align="center"><video src="telegram/content/IranIntlTV_337075.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337075.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرامرز از استکهلم: به ترامپ توجه نکنید؛ او در حال جنگ سرد است؛ما باید مسیر خودمان را برویم
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/HsShW7razys
-@iranintltv
-</div>
-
-## IranIntlTV — post 337074
-
-<div align="center"><video src="telegram/content/IranIntlTV_337074.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337074.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احمد از انگلستان: مردم ایران صبرشان استراتژیک و تاریخی است و می‌دانند کی باید به آب بزنند
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/HsShW7razys
-@iranintltv
-</div>
-
-## IranIntlTV — post 337073
-
-<div align="center"><img src="telegram/content/IranIntlTV_337073.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک‌تایمز به نقل از مقام‌های آمریکایی گزارش داد شرکت‌های چینی با جمهوری اسلامی درباره فروش سلاح در حال گفت‌وگو بوده‌اند و قصد داشته‌اند این تسلیحات را از طریق کشورهای دیگر ارسال کنند تا منشا کمک نظامی پنهان بماند.
-مقام‌های آمریکایی گفتند دست‌کم یکی از کشورهای ثالث در آفریقا قرار دارد، اما مشخص نیست آیا محموله‌ای به آن کشور رسیده است یا نه.
-مقام‌هایی که در جریان این اطلاعات قرار گرفته‌اند، درباره اینکه آیا سلاح‌ها پیش‌تر به کشورهای ثالث ارسال شده‌اند یا نه، به جمع‌بندی‌های متفاوتی رسیده‌اند. با این حال، از زمان آغاز جنگ کنونی علیه جمهوری اسلامی، به نظر نمی‌رسد هیچ سلاح چینی در میدان نبرد علیه نیروهای آمریکایی یا اسرائیلی استفاده شده باشد.
-هنوز مشخص نیست چه تعداد سلاح منتقل شده یا مقام‌های چینی تا چه اندازه این فروش‌ها را تایید کرده‌اند.
-
-https://iranintl.com/202605134264
-</div>
-
-## IranIntlTV — post 337072
-
-<div align="center"><video src="telegram/content/IranIntlTV_337072.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337072.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دفتر نخست‌وزیری اسرائیل اعلام کرد بنیامین نتانیاهو در جریان جنگ علیه جمهوری اسلامی به‌صورت محرمانه به امارات سفر و با محمد بن زاید دیدار کرده است. رادیو ملی اسرائیل نیز گزارش داد این نخستین بار نیست که نتانیاهو به امارات رفته، اما برای نخستین‌بار است که این موضوع به‌صورت رسمی تایید می‌شود.
-
-گفت‌وگو با بن سبطی، پژوهشگر ایران و اسرائیل
 @iranintltv
 </div>
 

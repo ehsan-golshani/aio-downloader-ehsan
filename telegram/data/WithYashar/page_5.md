@@ -1,8 +1,28 @@
 # آرشیو کانال WithYashar - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 19:08
+📅 آخرین بروزرسانی: 1405/02/26 21:15
 
 ---
+
+## WithYashar — post 11323
+
+## WithYashar — post 11322
+
+<div align="center"><img src="telegram/content/WithYashar_11322.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت جهانی استارلینک مینی با تخفیف به زیر ۲۰۰دلار (۳۶میلیون تومن) رسیده و پایین‌تر هم میاد. سایز دیشش هم اندازه‌ی یه کاغذ آ۴ هست!
+
+واقعیت اینکه شاید الان بشه جلوی اتصال به اینترنت رو گرفت ولی تا چند سال آینده عملا غیرممکن میشه!
+@withyashar
+</div>
+
+## WithYashar — post 11321
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هادی چوپان، در یک مسابقه استعدادیابی که از صدا و سیمای رژیم پخش می‌شود، گفت: «ما با زحمت و هزار دردسر به قله رسیدیم، نباید بازیچه دلقکان مجازی شویم.»
+@withyashar
+</div>
 
 ## WithYashar — post 11320
 
@@ -96,21 +116,4 @@
 <div align="center"><a href="telegram/content/WithYashar_11305.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 ## WithYashar — post 11304
-
-## WithYashar — post 11303
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال ۱۳ اسرائیل:
-
-سیستم امنیتی معتقد است که ترامپ با حمله‌ای محدود به ایران موافقت خواهد کرد.
-@withyashar
-</div>
-
-## WithYashar — post 11302
-
-## WithYashar — post 11301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یاشار بیا مثل سیاه جامگان یا حسن صباح یه فرقه راه بنداز 😅
-</div>
 

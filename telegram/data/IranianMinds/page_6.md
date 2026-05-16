@@ -1,8 +1,22 @@
 # آرشیو کانال IranianMinds - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 20:26
+📅 آخرین بروزرسانی: 1405/02/26 21:28
 
 ---
+
+## IranianMinds — post 20145
+
+<div align="center"><video src="telegram/content/IranianMinds_20145.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20145.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 کارشناس کانال ۱۴ اسرائیل:
+
+رژیم ایران در حال انجام تماس‌هایی به صورت مخفی و مستقیم با دولت ترامپ هست و به شدت احتیاج به پول داره.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20144
 
@@ -219,21 +233,5 @@ ShirOKhorshid-2026.05.14.apk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ShirOKhorshid-2026.05.14.apk
-</div>
-
-## IranianMinds — post 20124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آموزش اتصال به اینترنت بین الملل:
-
-🔺 مهم: اگر این نسخه رو نصب کنید دیگه دردسر ستاپ کردن MITM و... ندارید!
-این نسخه حدودا یک ساعت پیش توسط برنامه‌نویس شیر و خورشید آپدیت شد و به راحتی می‌تونید طبق این آموزش بهش وصل بشید:
-1- وارد اپلیکیشن شیر و خورشید(آخرین نسخه که امروز منتشر شده) می‌شید
-2- وارد بخش Options میشید از نوار بالا
-3- روی More Options کلیک میکنید
-4- گزینه‌ی Connection Protocol رو قرار میدید روی CDN Fronting
-5- میرید و عادی کانکت میشید و به راحتی وصل میشه.
-
-@IranianMinds
 </div>
 

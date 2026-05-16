@@ -1,8 +1,16 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 20:26
+📅 آخرین بروزرسانی: 1405/02/26 21:28
 
 ---
+
+## IranianMinds — post 20254
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴زمین‌لرزه‌ای به قدرت ۴.۵ ریشتر، دقایقی پیش، گلوگاه در استان مازندران را لرراند.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20253
 
@@ -220,16 +228,6 @@ G26
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴۱۹ روز قبل از سقوط رژیم جنایتکار قذافی، به دست مجریان تلویزیون اسلحه داده بودند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20231
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کانال ۱۲ اسرائیل:
-
-جنگ سوم با ایران نزدیک است.
 
 @IranianMinds
 </div>

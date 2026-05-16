@@ -1,8 +1,39 @@
 # آرشیو کانال manototv - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 20:30
+📅 آخرین بروزرسانی: 1405/02/26 21:33
 
 ---
+
+## manototv — post 105532
+
+<div align="center"><video src="telegram/content/manototv_105532.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105532.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌
+تامی رابینسون ، فعال ملی‌گرای بریتانیایی، تصویر شاهزاده رضا پهلوی را هنگام سخنرانی در تجمع لندن بالا برد ـ گزارشگر
+</div>
+
+## manototv — post 105531
+
+<div align="center"><video src="telegram/content/manototv_105531.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105531.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اشتوتگارت، تجمع در حمایت از مردم ایران، ۲۶ اردیبهشت
+</div>
+
+## manototv — post 105530
+
+<div align="center"><video src="telegram/content/manototv_105530.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105530.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مالمو سوئد، راهپیمایی ایرانیان، ۲۶ اردیبهشت
+</div>
 
 ## manototv — post 105529
 
@@ -179,39 +210,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 «تجمع ایرانیان در سیدنی استرالیا»
-</div>
-
-## manototv — post 105512
-
-<div align="center"><video src="telegram/content/manototv_105512.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105512.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«تجمع ایرانیان در بریزبن استرالیا»
-</div>
-
-## manototv — post 105511
-
-<div align="center"><video src="telegram/content/manototv_105511.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105511.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کریس رایت، وزیر انرژی آمریکا گفته است انتظار دارد تنگه هرمز «حداکثر تا مقطعی در تابستان» بازگشایی شود.
-
-رایت همچنین گفت اگر ایران به «گروگان گرفتن اقتصاد جهان» ادامه دهد، ارتش آمریکا می‌تواند برای بازگشایی تنگه هرمز مداخله کند.
-</div>
-
-## manototv — post 105510
-
-<div align="center"><video src="telegram/content/manototv_105510.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105510.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در برنامه‌های شامگاه گذشته تلویزیون جمهوری اسلامی، بخش‌هایی با محور آموزش کار با سلاح پخش شد.
-
-در این برنامه‌ها، مجریان یا کارشناسان حاضر در استودیو، شیوه گرفتن و استفاده از سلاح را توضیح دادند. پخش چنین محتوایی از تلویزیون حکومتی در شرایطی صورت می‌گیرد که رسانه‌های وابسته به جمهوری اسلامی در هفته‌های اخیر بر ادبیات نظامی، آمادگی دفاعی و بسیج حامیان خود تاکید بیشتری داشته‌اند.
 </div>
 

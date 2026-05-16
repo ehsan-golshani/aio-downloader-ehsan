@@ -1,8 +1,18 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 20:26
+📅 آخرین بروزرسانی: 1405/02/26 21:28
 
 ---
+
+## IranianMinds — post 20231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کانال ۱۲ اسرائیل:
+
+جنگ سوم با ایران نزدیک است.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20230
 
@@ -249,15 +259,5 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 @Dayaconfigbot
 
 هر گیگ فقط 225 هزارتومان با تضمین عودت وجه!
-</div>
-
-## IranianMinds — post 20208
-
-<div align="center"><img src="telegram/content/IranianMinds_20208.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شباهتو
-
-@IranianMinds
 </div>
 

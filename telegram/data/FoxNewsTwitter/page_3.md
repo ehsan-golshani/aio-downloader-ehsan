@@ -1,8 +1,48 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 20:13
+📅 آخرین بروزرسانی: 1405/02/26 21:16
 
 ---
+
+## FoxNewsTwitter — post 341779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Longtime Rep. Steve Cohen, D-Tenn., announces end to re-election bid
+</div>
+
+## FoxNewsTwitter — post 341778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌Fox News (Twitter/X)
+
+Who will win the Academy of Country Music Award for Female Artist of the Year?
+
+Our sponsor Kalshi’s prediction market reveals the current frontrunners:
+
+— Ella Langley: 85%
+— Lainey Wilson: 12%
+— Megan Moroney: 5%
+
+https://www.foxnews.com/entertainment/lainey-wilson-marries-duck-hodges-dream-tennessee-waterfall-cave-wedding
+</div>
+
+## FoxNewsTwitter — post 341777
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341777.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+“Senior’s Day at Gold’s in Venice.”
+
+Health and Human Services Secretary Robert F. Kennedy Jr. and Hollywood icon Arnold Schwarzenegger showcase their longtime friendship during a workout session at Gold’s Gym Venice.
+
+This isn’t the first time the pair have worked out together, the former governor gave a look inside their friendship during an interview last year, saying, "We've worked out together and go gym and stuff like that, and I always was a big supporter of his."
+
+Schwarzenegger was previously married to Kennedy's cousin, journalist Maria Shriver, from 1986 until 2011.
+</div>
 
 ## FoxNewsTwitter — post 341773
 
@@ -222,53 +262,5 @@ Fox News (Twitter/X)
 FOX NEWS REPORT: President Trump and President Xi Jinping sat for an over two-hour meeting in Beijing for a discussion on key topics, including trade and Taiwan.
 
 Secretary of State Rubio says Washington's stance on Taiwan remains the same, @BillMelugin_ reports.
-</div>
-
-## FoxNewsTwitter — post 341756
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341756.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump says China’s leader was right about America’s decline under President Biden — but argues the U.S. has completely rebounded under his administration.
-
-In a lengthy post, Trump touted booming markets, record investment, the "ending" of DEI, and what he called the “strongest military on earth by far,” while predicting a stronger relationship with China moving forward.
-</div>
-
-## FoxNewsTwitter — post 341755
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341755.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341755.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-“People can’t feed themselves.”
-
-AOC ripped the Trump administration over spending on the National Mall reflecting pool and the planned White House ballroom, arguing that Americans are struggling to afford groceries, rent, and mortgages.
-
-She called the priorities “deeply out of touch” and “insulting” to everyday people.
-</div>
-
-## FoxNewsTwitter — post 341754
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341754.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341754.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump tells @seanhannity that Chinese President Xi Jinping offered to assist the U.S. in negotiating with Iran to reopen the Strait of Hormuz.
-
-Trump notes that China’s significant oil interests play a major role in its desire to keep the critical waterway open and stable.
-
-“President Xi would like to see a deal made. He would like to see a deal made. And he did offer, he said, ‘If I can be of any help at all, I would like to be of help.’”
-
-"He said 'If I could be of any help whatsoever, I would like to help.'"
-
-The full interview airs tonight at 9 p.m. ET on 'Hannity.'
 </div>
 
