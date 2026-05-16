@@ -1,8 +1,80 @@
 # آرشیو کانال Shin_Persian - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 14:22
+📅 آخرین بروزرسانی: 1405/02/26 18:07
 
 ---
+
+## Shin_Persian — post 6009
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Fri, 15 May 2026 09:32:18 UTC
+
+Tanker In-Flight Emergency #FreeIran‌
+--- Operation EPIC FURY / Project FREEDOM ---
+
+One of the KC-46A "Pegasus" tanker from Tel Aviv Ben Gurion (LLBG) airport is declaring an in-flight emergency and squawking 7700. KC-46s from this base are usually "YETI" callsigns
+
+KC-46A "YETI??" 18-46054 #AE5FA1
+
+@MATA_osint
+
+فارسی
+
+وضعیت اضطراری سوخت‌رسان در حین پرواز #FreeIran‌
+--- عملیات خشم حماسی / پروژه آزادی ---
+
+یکی از هواپیماهای سوخت‌رسان KC-46A «پگاسوس» از فرودگاه بن گوریون تل‌آویو (LLBG) وضعیت اضطراری در حین پرواز اعلام کرده و کد ۷۷۰۰ (squawk 7700) را مخابره می‌کند. سوخت‌رسان‌های KC-46 این پایگاه معمولاً با شناسه رادیویی «YETI» فعالیت می‌کنند.
+
+KC-46A "YETI??" 18-46054 #AE5FA1
+
+@MATA_osint
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6008
+
+<div align="center"><img src="telegram/content/Shin_Persian_6008.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DefenceGeek 🇬🇧 ✓ @DefenceGeek Fri, 15 May 2026 08:02:32 UTC The Tanker Shuffle Continues #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- As has been the case on most days during the ceasefire, the US tanker fleet (numbering over 220 aircraft)…
+</div>
+
+## Shin_Persian — post 6007
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Fri, 15 May 2026 08:02:32 UTC
+
+The Tanker Shuffle Continues #FreeIran‌
+--- Operation EPIC FURY / Project FREEDOM ---
+
+As has been the case on most days during the ceasefire, the US tanker fleet (numbering over 220 aircraft) across Europe and CENTCOM continues to shuffle around, with harder worked airframes being rotated out and replaced. So far today:
+
+KC-135R "RCH736" 57-1486 #AE041D (EGUN -> LLBG)
+KC-135R "?" 61-0300 #AE0689 (LLBG -> EDDS)
+KC-135R "RCH314" 62-3521 #AE0485 (LFOA -> EDDS -> ?)
+KC-135T "RCH559" 59-1471 #AE07A5 (CONUS -> EDDS)
+
+@MATA_osint
+
+فارسی
+
+جابه‌جایی تانکرهای سوخت‌رسان ادامه دارد #FreeIran‌
+--- عملیات خشم حماسی (Operation EPIC FURY) / پروژه آزادی (Project FREEDOM) ---
+
+همانطور که در اکثر روزهای آتش‌بس صادق بوده است، ناوگان تانکرهای ایالات متحده (با بیش از ۲۲۰ هواپیما) در سراسر اروپا و سنتکام (ستاد فرماندهی مرکزی ایالات متحده - CENTCOM) به جابه‌جایی‌های خود ادامه می‌دهند و بدنه‌های پروازی که فشار کاری بیشتری داشته‌اند، از چرخه خارج و جایگزین می‌شوند. موارد ثبت شده تا این لحظه از امروز:
+
+KC-135R "RCH736" 57-1486 #AE041D (فرودگاه ای‌جی‌یو‌ان -> فرودگاه بن گوریون)
+KC-135R "?" 61-0300 #AE0689 (فرودگاه بن گوریون -> فرودگاه اشتوتگارت)
+KC-135R "RCH314" 62-3521 #AE0485 (پایگاه هوایی اورو -> فرودگاه اشتوتگارت -> ?)
+KC-135T "RCH559" 59-1471 #AE07A5 (ایالات متحده -> فرودگاه اشتوتگارت)
+
+@MATA_osint
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6006
 
@@ -297,62 +369,6 @@ Wed, 13 May 2026 07:50:00 UTC
 فارسی
 
 💸 قطعی اینترنت #ایران اکنون از ساعت ۱۷۷۶ فراتر رفته و وارد هفتاد و پنجمین روز خود شده است. این اقدام در راستای سانسور دیجیتال منجر به سودجویی و کاهش امنیت دیجیتال شده است، چرا که طرح‌های اینترنت «طبقاتی» تحت حمایت دولت و لیست‌های سفید گزینشی، منجر به نظارت، فساد و کلاهبرداری شده است.
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5986
-
-<div align="center"><img src="telegram/content/Shin_Persian_5986.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DefenceGeek 🇬🇧 ✓ @DefenceGeek Wed, 13 May 2026 08:39:27 UTC Running Visible again - B-1 training flight! #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- Another B-1 training sortie launching this morning from RAF Fairford (EGVA) is pinging on…
-</div>
-
-## Shin_Persian — post 5985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DefenceGeek 🇬🇧 ✓ @DefenceGeek
-Wed, 13 May 2026 08:39:27 UTC
-
-Running Visible again - B-1 training flight! #FreeIran‌
---- Operation EPIC FURY / Project FREEDOM ---
-
-Another B-1 training sortie launching this morning from RAF Fairford (EGVA) is pinging on FR24/ADSB.
-
-B-1B "MISS40" 85-0060 #AE6BD1 "Doolittle Raiders"
-B-1B "MISS41" 86-0102 #AE6BEB "Bad Moon Rising" (visible)
-
-@MATA_osint @LHA2709 @Andyyyyrrrr @ArmchairAdml @jamjake01 @vcdgf555
-
-فارسی
-
-دوباره در حالت مرئی در حال اجرا - پرواز آموزشی B-1! #FreeIran‌
---- عملیات خشم حماسی (EPIC FURY) / پروژه آزادی (Project FREEDOM) ---
-
-یک سورتی پرواز آموزشی دیگر از بمب‌افکن‌های B-1 که امروز صبح از پایگاه هوایی Fairford نیروی هوایی سلطنتی بریتانیا (EGVA) برخاسته است، در FR24/ADSB در حال سیگنال‌دهی است.
-
-B-1B "MISS40" 85-0060 #AE6BD1 "Doolittle Raiders"
-B-1B "MISS41" 86-0102 #AE6BEB "Bad Moon Rising" (مرئی)
-
-@MATA_osint @LHA2709 @Andyyyyrrrr @ArmchairAdml @jamjake01 @vcdgf555
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5984
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Shin ✓ @hey_itsmyturn
-Wed, 13 May 2026 04:53:24 UTC
-
-Ehsan Afreshte has been executed by Islamic Regime today. Regime claims he was trained by Mossad in Nepal and sold intelligence to Israel.
-#Iran
-
-فارسی
-
-احسان افراشته امروز توسط رژیم اسلامی اعدام شد. رژیم مدعی است که او توسط موساد در نپال آموزش دیده و اطلاعات را به اسرائیل فروخته است.
-#Iran
 
 𝕏 · @shin_persian
 </div>

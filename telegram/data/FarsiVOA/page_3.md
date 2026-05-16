@@ -1,8 +1,68 @@
 # آرشیو کانال FarsiVOA - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 16:31
+📅 آخرین بروزرسانی: 1405/02/26 18:11
 
 ---
+
+## FarsiVOA — post 217855
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️پیام واشنگتن به زیدی: شراکت، مشروط به مهار گروه‌های وابسته به جمهوری اسلامی و نابودی تروریسم است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217854
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺واکنش نماینده آمریکا در سازمان ملل به ویدیوی آلودگی نفتی در سواحل ایران؛ جمهوری اسلامی «به محیط زیست نیز حمله می‌کند»
+
+◾️مایک والتز، نماینده آمریکا در سازمان ملل متحد، روز جمعه ویدیویی را که گفته می‌شود مربوط به آلودگی نفتی در سواحل ایران در خلیج فارس است، بازنشر کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150486.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217853
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️الهه و الناز محمدی، برنده جایزه «شجاعت در روزنامه‌نگاری» شدند؛ گفت‌و‌گو با سجاد شهرابی، گوینده رادیو و فعال حوزه رسانه، درباره اهمیت این جایزه برای تداوم فعالیت خبرنگاران مستقل در داخل ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217852
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️بی‌اعتنایی جمهوری اسلامی به مصائب ایرانیان؛ وقتی مردم تاوان ماجراجویی‌های رژیم را می‌پردازند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217851
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺تمدید آتش‌بس اسرائیل و لبنان؛ شکست کارزار رژیم ایران برای تخریب مذاکرات
+
+◾️با برگزاری دور دوم گفت‌وگوهای اسرائیل و لبنان در واشنگتن در روز جمعه ۲۵ اردیبهشت، تلاش‌های رژیم ایران و گروه نیابتی لبنانی آن، حزب‌الله، ناکام ماند و آتش‌بس میان اسرائیل و لبنان به مدت ۴۵ روز تمدید شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/extension-of-israel-lebanon-ceasefire-iran-regime-failure-campaign-undermine-talks/8150445.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️توقف تجارت دریایی جمهوری اسلامی؛ روابط اسرائیل با امارات زیر سایه تهدیدهای رژیم ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217849
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشی از مایکل لیپین، ‌خبرنگار صدای آمریکا، از پکن درباره سفر تاریخی دونالد ترامپ، رئیس جمهوری آمریکا، به چین.
+
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217848
 
@@ -115,59 +175,5 @@ https://ir.voanews.com/a/iran-israel-hezbollah-lebanon-washington/8150375.html
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بررسی جزئیات درگیری لفظی نمایندگان جمهوری اسلامی و امارات در کنفرانس بریکس در گفت‌و‌گو با موسی شریفی، خبرنگار شبکه العربیه و تحلیل‌گر امور جهان عرب
-</div>
-
-## FarsiVOA — post 217835
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت ترامپ: در حال بررسی لغو تحریم‌ها علیه شرکت‌های چینی خریدار نفت ایران هستم
-</div>
-
-## FarsiVOA — post 217834
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارشی از مایکل لیپین، ‌خبرنگار صدای آمریکا، از پکن درباره سفر تاریخی دونالد ترامپ، رئیس جمهوری آمریکا، به چین.
-
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217833
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گفت‌و‌گو با رضا طالبی، روزنامه‌نگار و تحلیلگر سیاسی، درباره توافق‌های واشنگتن و پکن درباره جمهوری اسلامی در سفر رئیس جمهوری آمریکا به چین
-</div>
-
-## FarsiVOA — post 217832
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارتش اسرائیل اعلام کرد نیروهای لشکر ۱۴۶ در یک هفته گذشته حدود ۶۰ عضو حزب‌الله را در جنوب لبنان کشته‌اند.
-
-به گفته ارتش اسرائیل، صدها زیرساخت مرتبط با حزب‌الله، از جمله انبارهای تسلیحاتی و تجهیزات نظامی، در این عملیات هدف قرار گرفته است.
-
-ارتش اسرائیل می‌گوید این عملیات با هدف رفع تهدیدها علیه شهروندان اسرائیل ادامه دارد.
-
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217831
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی جوانمردی: دورە تقویت تغییر در ایران بدون حملە نظامی
-</div>
-
-## FarsiVOA — post 217830
-
-<div align="center"><video src="telegram/content/FarsiVOA_217830.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217830.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام تیری فرمو، مدیر انسیتو لومیر و دبیر هنری جشنواره فیلم کن، به مردم ایران - اختصاصی صدای آمریکا
-</div>
-
-## FarsiVOA — post 217829
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اصغر فرهادی در نشست خبری فیلم «داستان‌های موازی» در جشنواره کن، کشته شدن غیرنظامیان در جنگ و همچنین کشته شدن معترضان در خیابان‌ها در دی را «بسیار دردناک» و فراموش‌نشدنی توصیف کرد.
 </div>
 

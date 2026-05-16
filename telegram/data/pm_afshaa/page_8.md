@@ -1,8 +1,30 @@
 # آرشیو کانال pm_afshaa - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 16:23
+📅 آخرین بروزرسانی: 1405/02/26 18:02
 
 ---
+
+## pm_afshaa — post 90703
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دنیامالی، وزیر ورزش:
+تیم ملی به جام جهانی میره و بازیکنان سرود جمهوری اسلامی رو فریاد میزنن.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دفتر نخست وزیر اسرائیل:
+در بحبوحه جنگ و عملیات غرش شیر، نتانیاهو به امارات سفر کرد و با شیخ محمدبن زاید، رئیس امارات متحده عربی دیدار کرد.
+
+این سفر منجر به پیشرفتی تاریخی در روابط اسرائیل و امارات شد.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90701
 

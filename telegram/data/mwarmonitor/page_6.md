@@ -1,8 +1,52 @@
 # آرشیو کانال mwarmonitor - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 16:21
+📅 آخرین بروزرسانی: 1405/02/26 18:00
 
 ---
+
+## mwarmonitor — post 9055
+
+<div align="center"><video src="telegram/content/mwarmonitor_9055.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/mwarmonitor_9055.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️مأموریت WENCH11 (بمب‌افکن رادارگریز B-2A Spirit) 🔸پس از سوخت‌گیری هوایی با پرواز DEED41 (تانکر KC-135 Stratotanker) بر فراز نوا اسکوشیا شرق کانادا، روی مسیر سوخت‌رسانی AR20NE، در باند VHF با Gander Radio در ارتباط بوده است. @mwarmonitor
+</div>
+
+## mwarmonitor — post 9054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸کوین وارش با رأی ۵۴ موافق در برابر ۴۵ مخالف توسط سنای آمریکا به عنوان رئیس فدرال رزرو تأیید شد. سناتور جان فترمن تنها دموکراتی بود که به این تأیید رأی مثبت داد.
+
+🔸کوین وارش یک اقتصاددان آمریکایی است که قبلاً عضو هیئت‌مدیره فدرال رزرو هم بوده و بیشتر به دیدگاه‌های نسبتاً محافظه‌کارانه در سیاست پولی مثل سخت‌گیری در کنترل تورم و تمایل به نرخ بهره بالاتر در بعضی شرایط شناخته می‌شود.
+
+🔹 او از چهره‌هایی است که معمولاً به جریان‌های اقتصادی نزدیک به جمهوری‌خواهان یا اقتصاد بازار آزاد نسبت داده می‌شود، هرچند نقش رسمی حزبی ندارد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9053
+
+<div align="center"><img src="telegram/content/mwarmonitor_9053.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸کشتی USNS Henry J. Kaiser (T-AO-187) متعلق به نیروی دریایی آمریکا و یک ناوشکن آمریکایی امروز در دریای عرب در مختصات زیر مشاهده شده‌اند:
+
+📍22.7488, 61.2222 و 22.0751, 61.5995
+
+🚢نفتکش گروه ضربتی ناو هواپیمابر ۳ (CSG-3) در حال انجام عملیات سوخت‌رسانی در دریا (Replenishment-at-sea) بوده و ناوشکن نیز در حال انجام عملیات دفاع چندبُعدی و مأموریت‌های امنیت دریایی است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴رویترز: چندین منبع آگاه گفتند در جریان جنگ ایران، جنگنده‌های سعودی اهدافی مرتبط با شبه‌نظامیان قدرتمند شیعه مورد حمایت تهران در عراق را بمباران کردند. همچنین حملات تلافی‌جویانه‌ای نیز از کویت به سمت عراق انجام شده است.
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9051
 

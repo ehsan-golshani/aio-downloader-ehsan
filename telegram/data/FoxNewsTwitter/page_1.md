@@ -1,8 +1,58 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 16:22
+📅 آخرین بروزرسانی: 1405/02/26 18:01
 
 ---
+
+## FoxNewsTwitter — post 341815
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341815.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341815.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+RT @SatAmericaFNC: 🚨EXCLUSIVE: @KayleighMcEnany presents a whistleblower report alleging that some Medicaid fraud proceeds in Minnesota may have been siphoned overseas to designated terrorist organizations.
+
+@VP @JDVance responds, “We will IMMEDIATELY take that to the team because that should be a COUNTERTERRORISM investigation.”⬇️
+</div>
+
+## FoxNewsTwitter — post 341814
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌Fox News (Twitter/X)
+
+BREAKING NEWS: Trump unloaded on Sen. Bill Cassidy ahead of Louisiana’s GOP primary election, calling him a “disloyal disaster” and a “sleazebag,” while urging voters to support Julia Letlow.
+
+https://www.foxnews.com/politics/trump-blasts-sen-bill-cassidy-disloyal-disaster-pushes-challenger-julia-letlow-louisiana-gop-primary
+</div>
+
+## FoxNewsTwitter — post 341813
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341813.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+Today, the nation honors the brave men and women of the United States Armed Forces, recognizing their courage, sacrifice, and unwavering commitment to defending America.
+
+"As we celebrate 250 glorious years of American independence this year, we acknowledge that our precious freedom, enjoyed and embraced by generation after generation, has been secured for all citizens by the providence and grace of Almighty God and the service and sacrifice of every member of our military," a White House statement reads.
+</div>
+
+## FoxNewsTwitter — post 341812
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341812.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341812.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: U.S. Africa Command releases video of the airstrike that targeted and eliminated ISIS fighters in Nigeria, including ISIS second-in-command Abu-Bilal al-Minuki.
+
+President Trump called the “meticulously planned and very complex mission” a complete success.
+</div>
 
 ## FoxNewsTwitter — post 341811
 
@@ -219,63 +269,5 @@ Watch the full interview at 6 p.m. ET on @SpecialReport
 Fox News (Twitter/X)
 
 RT @TheStoryFNC: EXCLUSIVE: @DAGToddBlanche responds as feds charge Iraqi national with plotting to ‘terrorize’ Americans and Jews in retaliation for military action against Iran
-</div>
-
-## FoxNewsTwitter — post 341795
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌Fox News (Twitter/X)
-
-Read more:
-</div>
-
-## FoxNewsTwitter — post 341792
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341792.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: An Iraqi national and senior member of a U.S.-designated terror organization was arrested and brought to New York to face trial on federal terrorism charges.
-
-Mohammad Baqer Saad Dawood al-Saadi is accused of coordinating nearly 20 terror attacks in Europe and plotting additional attacks on U.S. soil.
-
-The suspect is accused of directing strikes on behalf of Iran-backed Islamist group Ashab al-Yamin since March.
-
-The FBI said it took action after learning that al-Saadi was planning to expand Ashab al-Yamin’s operations to the U.S., allegedly directing individuals to coordinate American terror attacks against synagogues and other Jewish institutions across the country.
-</div>
-
-## FoxNewsTwitter — post 341791
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341791.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341791.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-A hero cop in Tennessee kicks down the door of a burning apartment building to rescue a mom and her two children from a blazing inferno – carrying out the four-year-old daughter in his arms.
-
-Newly released Ring camera footage shows the officer during the daring rescue.
-
-According to the Chattanooga Police Department, Officer Rogers rushed into the second-floor home after neighbors reported that people were trapped inside.
-
-No injuries were reported, and the fire was brought under control within 20 minutes as the family now raises money for relocation costs through a GoFundMe campaign.
-</div>
-
-## FoxNewsTwitter — post 341790
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341790.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341790.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH: Vice President JD Vance delivers a powerful tribute at the 45th Annual National Peace Officers' Memorial Service on Capitol Hill, honoring the "selflessness" of fallen heroes.
-
-Addressing the families and colleagues of the fallen, Vance characterized the life of a peace officer as one defined by an unwavering sense of duty.
-
-"We gather this afternoon to honor men and women who heard the exact same call, men and women whose selflessness led them toward danger when others fled. People who said, send me, not send somebody else, but send me. People whom service was a way of life, not a burden."
 </div>
 

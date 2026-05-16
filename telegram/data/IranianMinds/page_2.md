@@ -1,8 +1,129 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 16:34
+📅 آخرین بروزرسانی: 1405/02/26 18:14
 
 ---
+
+## IranianMinds — post 20224
+
+<div align="center"><img src="telegram/content/IranianMinds_20224.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش یه روزی بیاد که تنها دغدغه و اخبارای مهم مام این چیزا باشه:)
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20223
+
+<div align="center"><img src="telegram/content/IranianMinds_20223.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۱۸ و ۱۹ دی ، میلیونها ایرانی بند کفششون رو بستند که ایرانو از بند جمهوری اسلامی آزاد کنند. بیش از پنجاه هزار نفرشون دیگه برنگشتند. ما تا روز دادخواهی، به زندگی عادی برنخواهیم گشت.
+آخرین عکس از جاویدنام محسن جبارزاده
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20222
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ در گفت‌وگو با فاکس‌نیوز:
+
+می‌دونم مردم آمریکا فشار اقتصادی رو تحمل می‌کنن، اما باید جلوی این گروهِ واقعا دیوانه(جمهوری اسلامی) رو بگیریم.
+
+جمهوری اسلامی از نظر نظامی «شدیدا ضربه خورده» و «دیگه نه نیروی دریایی دارن، نه نیروی هوایی؛ همه‌چیزشون نابود شده.»
+
+هر بار توافق می‌کنن، فرداش انگار نه انگار همچین حرفی زده شده. واقعا دیوانه‌ان و به همین خاطر نمی‌تونن سلاح هسته‌ای داشته باشن.
+
+آمریکا عمدا بعضی زیرساخت‌های ایران رو هدف نگرفته، اما «اگر بخواهیم، می‌توانیم ظرف دو روز همه‌چیز رو نابود کنیم.»
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20221
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طبق برخی گزارشات
+
+مهدی طارمی، شجاع خلیل زاده، دانیال اسماعیلی فر و احسان حاج صفی
+
+به علت گذراندن خدمت سربازی در سپاه ویزا براشون صادر نشد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20220
+
+<div align="center"><img src="telegram/content/IranianMinds_20220.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+
+امشب به دستور من، نیروهای شجاع آمریکایی و نیروهای مسلح نیجریه یک ماموریت با برنامه ریزی دقیق و بسیار پیچیده را برای از بین بردن فعال ترین تروریست جهان از میدان نبرد، بدون نقص اجرا کردند.
+
+ابوبلال المنوکی، دومین فرمانده داعش در سطح جهان، فکر می‌کرد که می‌تواند در آفریقا مخفی شود، اما او نمی‌دانست که ما منابعی داریم که ما را در جریان کارهای او قرار می‌دهند. او دیگر مردم آفریقا را به وحشت نخواهد انداخت، یا به برنامه ریزی عملیات برای هدف قرار دادن آمریکایی ها کمک نخواهد کرد.
+
+با برکناری او، عملیات جهانی داعش تا حد زیادی کاهش یافته است. با تشکر از دولت نیجریه برای مشارکت شما در این عملیات. خدا برکت آمریکا را بدهد!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20219
+
+<div align="center"><video src="telegram/content/IranianMinds_20219.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20219.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباس یه بار فقط بگو بله مامان 😭
+
+🔴 جاوید نام عباس کشاورز ۳۹ ساله اهل روستای لفمجان لاهیجان پدر ارشا ۱۲ ساله …
+
+او در شب ۱۹ دی ۱۴۰۴ در جریان اعتراضات در شهر رشت، در محدوده میدان صیقلان، با شلیک مستقیم گلوله کشته شد.
+
+جاویدنامان فراموش نمیشوند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20218
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط کافیه مرغ از خیابون رد کنی و‌پولت چند برابر کنی💵👌
+</div>
+
+## IranianMinds — post 20217
+
+<div align="center"><video src="telegram/content/IranianMinds_20217.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20217.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
+ae25
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
+
+## IranianMinds — post 20216
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 کانال ۱۳ اسرائیل:
+
+برآوردها حاکی از آن است که ترامپ چراغ سبز برای حمله محدود به مواضع رژیم ملاها را خواهد داد
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20215
 
@@ -146,114 +267,6 @@ https://iranopasmigirim.com/fa/transitional-justice
 🔴 امام جمعه کرج:
 
 بر اساس توصیه قرآن باید تا پایان «فتنه»، جنگ رو ادامه بدیم؛ مجازات اسرائیل، محو کردن کامل اونه.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قرارداد تبلیغاتی ۱ ماهه میبندم
-غیر اخلاقی چیزی نمیزارم
-دزدی و سیگنال ارز دیجیتال و این چیزا نمیزارم
-خواستید پیام بزارید
-اگر فیلترشکن میفروشید باید مدارک رضایت فروش بدید خیال راحتی باشه
-
-«بازدهی تضمینی»
-@AmirrPower
-</div>
-
-## IranianMinds — post 20202
-
-<div align="center"><img src="telegram/content/IranianMinds_20202.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ چند دقیقه پیش از آلاسکا به سمت واشنگتن پرواز کرد. پس از توقف برای سوخت‌گیری در انکوریج
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 طبق گزارش خبرنگاران آمریکایی، پیش از سوار شدن به «ایرفورس وان»، سرویس مخفی آمریکا تمام وسایل و هدایایی را که طرف چینی داده بود از جمله کارت‌ها، نشان‌ها، تلفن‌های موقت و اقلام هدیه جمع کردند و داخل سطل زباله انداختند و اجازه ندادند چیزی از چین وارد هواپیما شود.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20200
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 یک مقام وزارت خارجه آمریکا به الجزیره گفت فضای دومین روز مذاکرات میان لبنان و اسرائیل بسیار مثبت بوده و روند گفت‌وگوها فراتر از انتظارها پیش رفته است.
-
-این دومین روز از سومین دور مذاکرات میان اسرائیل و لبنان با میانجی‌گری ایالات متحده بود.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20199
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲#اپلیکیشن اندروید سایت جهانی دربی بت
-👍اسپانسر لیگ انگلیس👍
-🔥امکان شارژ امن از طریق کارت بانکی
-➖➖➖➖➖➖➖➖➖
-🪙همین حالا عضو شوید 👇
-https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20198
-
-<div align="center"><img src="telegram/content/IranianMinds_20198.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
-
-👍دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-ge25
-🔔کانال دربی بت :
-🪙https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20197
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کان‌نیوز:
-
-علاوه بر نخست‌وزیر نتانیاهو، ایال زامیر رئیس کل ارتش اسرائیل هم سفری مخفیانه به امارات داشته است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴موسوی‌فرد، امام جمعه اهواز:
-
-جمهوری اسلامی، آمریکا را در شرایطی قرار داده است که نه راه پس دارد و نه راه پیش.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20195
-
-<div align="center"><img src="telegram/content/IranianMinds_20195.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرنگار نیویورک‌‌پست:
-
-اعضای هیئت امریکایی همراه ترامپ، قبل از سوار شدن به ایر‌فورس‌وان و ترک چین، همه هدیه‌هایی که چینی‌ها بهشون داده بودند رو درون سطل زباله ریختند.
 
 @IranianMinds
 </div>

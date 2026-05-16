@@ -1,8 +1,34 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 16:32
+📅 آخرین بروزرسانی: 1405/02/26 18:12
 
 ---
+
+## Persian_Trend_Official — post 14216
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14216.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14216.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سی‌ان‌ان: هکرهای جمهوری اسلامی سامانه پمپ‌بنزین‌های آمریکا را هدف قرار دادند
+
+🔹شبکه سی‌ان‌ان مدعی شد هکرهای وابسته به جمهوری اسلامی موفق شده‌اند سامانه‌های خوانش مخازن سوخت در چند ایالت آمریکا را هک کنند.
+
+💢بر اساس این گزارش:
+
+▪️ حملات چندین جایگاه سوخت در ایالت‌های مختلف آمریکا را هدف قرار داده است
+
+▪️ سامانه‌های مرتبط با مدیریت و پایش مخازن سوخت دچار اختلال شده‌اند
+
+▪️ جزئیاتی درباره میزان خسارت یا اختلال گسترده منتشر نشده است
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14215
 
@@ -249,29 +275,6 @@ https://youtube.com/live/MneL4ZkKs1A?feature=share
 پ.ن: صداش رو در نیارید که الان دلار 1,800,000 ریال هست. 🤫🗿
 
 📝 Nick
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14192
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14192.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14192.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ در پاسخ به گفتگو در مورد حملات سایبری با شی جین پینگ پاسخ داد :
-
-💢آره، بهش گفتم . اونم شروع کرد درباره کارایی که ما تو چین کردیم حرف زد
-
-💢خب میدونی ، هرکاری اونا بکنن ماهم میکنیم . ماهم ازشون جاسوسی میکنیم .
-
-💢بهش گفتم ما یه عالمه کارها علیه شما میکنیم که اصلا خبر ندارین
-
-پ ن : نخود در دهن ترامپ خیس نمیخورد ...
-
-🫆:Tony
 
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی

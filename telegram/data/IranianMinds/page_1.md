@@ -1,8 +1,108 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 16:34
+📅 آخرین بروزرسانی: 1405/02/26 18:14
 
 ---
+
+## IranianMinds — post 20249
+
+<div align="center"><video src="telegram/content/IranianMinds_20249.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20249.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دفتر ریاست جمهوری تایوان: در مورد موضوع فروش تسلیحات که توجه خارجی را به خود جلب کرده است، کاملاً مشخص است که چین همچنان به تشدید تهدیدات نظامی ادامه می‌دهد. این تنها منبع ناامنی در تنگه تایوان و منطقه هند و اقیانوس آرام است و همچنین به همین دلیل است که کشورهای اطراف زنجیره جزایر اول به طور فعال با ایالات متحده برای تقویت دفاع همکاری می‌کنند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20248
+
+<div align="center"><video src="telegram/content/IranianMinds_20248.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20248.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دفتر ریاست جمهوری تایوان: از رئیس جمهور ترامپ به خاطر حمایت مستمرش از امنیت تنگه تایوان از زمان اولین دوره ریاست جمهوری‌اش تشکر می‌کنیم. ما همکاری تایوان و ایالات متحده را بیشتر تعمیق خواهیم کرد و از طریق قدرت، صلح را برقرار خواهیم کرد و اطمینان حاصل خواهیم کرد که امنیت و ثبات تنگه تایوان تهدید یا تضعیف نشود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20247
+
+<div align="center"><img src="telegram/content/IranianMinds_20247.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ (فقط ۲۲۵ هزار تومن)🥺
+
+
+🌱 قیمت اقتصادی + پشتیبانی حرفه‌ای
+
+🚀 سریع و پایدار، بدون قطعی
+🦋پشتیبانی واقعی، همیشه در دسترس
+
+ربات ما🌴
+📩 @dayaconfigbot
+
+کانال ما🌳
+📩 @dayavpn
+</div>
+
+## IranianMinds — post 20245
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 منبع پاکستانی به الحدث: ما از آمریکا و ایران می‌خوایم برای جلوگیری از جنگ انعطاف بیشتری از خودشون نشون بدن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20244
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ارتش اسرائیل هامر ایاد محمد آلماتوک و خالد محمد سالم گودا، دو تروریست سازمان تروریستی حماس را که در 7 اکتبر به خاک اسرائیل حمله کردند و توطئه های تروریستی را علیه نیروهای ما ترویج کردند، کشتند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20243
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ارتش اسرائیل اعلام کرد نیروی هوایی این کشور با هدایت لشکر ۹۱، دو عضو حزب‌الله رو در ساختمانی در جنوب لبنان هدف قرار دادن. بعد از حمله انفجارهای ثانویه دیده شد که نشون‌دهنده وجود سلاح داخل سازه بود. علاوه بر این، سربازان اسرائیلی یک انبار تسلیحات حزب‌الله…
+</div>
+
+## IranianMinds — post 20242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ارتش اسرائیل اعلام کرد نیروی هوایی این کشور با هدایت لشکر ۹۱، دو عضو حزب‌الله رو در ساختمانی در جنوب لبنان هدف قرار دادن. بعد از حمله انفجارهای ثانویه دیده شد که نشون‌دهنده وجود سلاح داخل سازه بود.
+
+علاوه بر این، سربازان اسرائیلی یک انبار تسلیحات حزب‌الله شامل کلاهک، جلیقه، کلاه ایمنی و تجهیزات دیگه رو در جنوب لبنان کشف کردن.
+
+ارتش اسرائیل گفته به عملیات علیه تهدیدات ادامه میده
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20241
+
+<div align="center"><img src="telegram/content/IranianMinds_20241.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴محمد‌امین صابرکار، ۱۶ ساله، در جریان آموزش‌های نظامی، در بخش بردخون شهرستان دیر بر اثر شلیک خودی کشته شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20238
+
+<div align="center"><video src="telegram/content/IranianMinds_20238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدئویی که ارتش آمریکا از عملیات ترور ابوبلال المینوکی نفر دوم داعش در نیجریه، منتشر کرد.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20237
 
@@ -133,127 +233,6 @@ r26
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بعضیا انگار‌ تو یه ایران دیگه زندگی‌ میکنن
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20224
-
-<div align="center"><img src="telegram/content/IranianMinds_20224.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاش یه روزی بیاد که تنها دغدغه و اخبارای مهم مام این چیزا باشه:)
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20223
-
-<div align="center"><img src="telegram/content/IranianMinds_20223.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۱۸ و ۱۹ دی ، میلیونها ایرانی بند کفششون رو بستند که ایرانو از بند جمهوری اسلامی آزاد کنند. بیش از پنجاه هزار نفرشون دیگه برنگشتند. ما تا روز دادخواهی، به زندگی عادی برنخواهیم گشت.
-آخرین عکس از جاویدنام محسن جبارزاده
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20222
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ در گفت‌وگو با فاکس‌نیوز:
-
-می‌دونم مردم آمریکا فشار اقتصادی رو تحمل می‌کنن، اما باید جلوی این گروهِ واقعا دیوانه(جمهوری اسلامی) رو بگیریم.
-
-جمهوری اسلامی از نظر نظامی «شدیدا ضربه خورده» و «دیگه نه نیروی دریایی دارن، نه نیروی هوایی؛ همه‌چیزشون نابود شده.»
-
-هر بار توافق می‌کنن، فرداش انگار نه انگار همچین حرفی زده شده. واقعا دیوانه‌ان و به همین خاطر نمی‌تونن سلاح هسته‌ای داشته باشن.
-
-آمریکا عمدا بعضی زیرساخت‌های ایران رو هدف نگرفته، اما «اگر بخواهیم، می‌توانیم ظرف دو روز همه‌چیز رو نابود کنیم.»
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 طبق برخی گزارشات
-
-مهدی طارمی، شجاع خلیل زاده، دانیال اسماعیلی فر و احسان حاج صفی
-
-به علت گذراندن خدمت سربازی در سپاه ویزا براشون صادر نشد
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20220
-
-<div align="center"><img src="telegram/content/IranianMinds_20220.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ:
-
-امشب به دستور من، نیروهای شجاع آمریکایی و نیروهای مسلح نیجریه یک ماموریت با برنامه ریزی دقیق و بسیار پیچیده را برای از بین بردن فعال ترین تروریست جهان از میدان نبرد، بدون نقص اجرا کردند.
-
-ابوبلال المنوکی، دومین فرمانده داعش در سطح جهان، فکر می‌کرد که می‌تواند در آفریقا مخفی شود، اما او نمی‌دانست که ما منابعی داریم که ما را در جریان کارهای او قرار می‌دهند. او دیگر مردم آفریقا را به وحشت نخواهد انداخت، یا به برنامه ریزی عملیات برای هدف قرار دادن آمریکایی ها کمک نخواهد کرد.
-
-با برکناری او، عملیات جهانی داعش تا حد زیادی کاهش یافته است. با تشکر از دولت نیجریه برای مشارکت شما در این عملیات. خدا برکت آمریکا را بدهد!
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20219
-
-<div align="center"><video src="telegram/content/IranianMinds_20219.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20219.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس یه بار فقط بگو بله مامان 😭
-
-🔴 جاوید نام عباس کشاورز ۳۹ ساله اهل روستای لفمجان لاهیجان پدر ارشا ۱۲ ساله …
-
-او در شب ۱۹ دی ۱۴۰۴ در جریان اعتراضات در شهر رشت، در محدوده میدان صیقلان، با شلیک مستقیم گلوله کشته شد.
-
-جاویدنامان فراموش نمیشوند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20218
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط کافیه مرغ از خیابون رد کنی و‌پولت چند برابر کنی💵👌
-</div>
-
-## IranianMinds — post 20217
-
-<div align="center"><video src="telegram/content/IranianMinds_20217.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20217.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
-
-😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
-
-توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
-
-کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
-
-کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
-ae25
-🎯همین حالا عضو شو و شروع کن👇
-https://t.me/+OS-QBvyDO4M2ZGY0
-https://t.me/+OS-QBvyDO4M2ZGY0
-</div>
-
-## IranianMinds — post 20216
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 کانال ۱۳ اسرائیل:
-
-برآوردها حاکی از آن است که ترامپ چراغ سبز برای حمله محدود به مواضع رژیم ملاها را خواهد داد
 
 @IranianMinds
 </div>

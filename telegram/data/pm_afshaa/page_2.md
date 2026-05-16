@@ -1,8 +1,22 @@
 # آرشیو کانال pm_afshaa - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 16:23
+📅 آخرین بروزرسانی: 1405/02/26 18:02
 
 ---
+
+## pm_afshaa — post 90830
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز از دنده چپ پا شدم میخام همه رو فحش بدم کیرم تو ناموس سپاهی و بسیجی خار مادر همتونو با هم گاییدم با اون رهبر چلاق مقواییتون
+</div>
+
+## pm_afshaa — post 90829
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز از دنده چپ پا شدم میخام همه رو فحش بدم
+
+کیرم تو ناموس سپاهی و بسیجی خار مادر همتونو با هم گاییدم با اون رهبر چلاق مقواییتون
+</div>
 
 ## pm_afshaa — post 90828
 
@@ -221,33 +235,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴سپهوند، عضو کمیسیون انرژی مجلس:
 روزانه 30 میلیون لیتر کمبود بنزین داریم و چون در کوتاه‌مدت امکان افزایش تولید وجود نداره، باید مدیریت مصرف سوخت رو جدی گرفت.
-
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90810
-
-<div align="center"><video src="telegram/content/pm_afshaa_90810.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/pm_afshaa_90810.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کانال 12 به نقل از مقام ارشد اسرائیلی
-اسرائیل خودش رو برای احتمال ازسرگیری قریب‌الوقوع جنگ با جمهوری اسلامی آماده میکنه. آمریکا به این نتیجه رسیده که مذاکرات با تهران به بن‌بست رسیده.
-
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90809
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴آخرین رهبران تروریست باقی مانده از ستاد کل شاخه نظامی رضوان و حماس محمد عوده، رئیس اداره اطلاعات، و عماد آکل، رئیس ستاد جبهه داخلی توسط جنگنده های اسراییل به هلاکت رسیدن
 
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom

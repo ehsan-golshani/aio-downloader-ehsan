@@ -1,8 +1,66 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 16:22
+📅 آخرین بروزرسانی: 1405/02/26 18:01
 
 ---
+
+## FoxNewsTwitter — post 341795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌Fox News (Twitter/X)
+
+Read more:
+</div>
+
+## FoxNewsTwitter — post 341792
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341792.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: An Iraqi national and senior member of a U.S.-designated terror organization was arrested and brought to New York to face trial on federal terrorism charges.
+
+Mohammad Baqer Saad Dawood al-Saadi is accused of coordinating nearly 20 terror attacks in Europe and plotting additional attacks on U.S. soil.
+
+The suspect is accused of directing strikes on behalf of Iran-backed Islamist group Ashab al-Yamin since March.
+
+The FBI said it took action after learning that al-Saadi was planning to expand Ashab al-Yamin’s operations to the U.S., allegedly directing individuals to coordinate American terror attacks against synagogues and other Jewish institutions across the country.
+</div>
+
+## FoxNewsTwitter — post 341791
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341791.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341791.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+A hero cop in Tennessee kicks down the door of a burning apartment building to rescue a mom and her two children from a blazing inferno – carrying out the four-year-old daughter in his arms.
+
+Newly released Ring camera footage shows the officer during the daring rescue.
+
+According to the Chattanooga Police Department, Officer Rogers rushed into the second-floor home after neighbors reported that people were trapped inside.
+
+No injuries were reported, and the fire was brought under control within 20 minutes as the family now raises money for relocation costs through a GoFundMe campaign.
+</div>
+
+## FoxNewsTwitter — post 341790
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341790.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341790.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH: Vice President JD Vance delivers a powerful tribute at the 45th Annual National Peace Officers' Memorial Service on Capitol Hill, honoring the "selflessness" of fallen heroes.
+
+Addressing the families and colleagues of the fallen, Vance characterized the life of a peace officer as one defined by an unwavering sense of duty.
+
+"We gather this afternoon to honor men and women who heard the exact same call, men and women whose selflessness led them toward danger when others fled. People who said, send me, not send somebody else, but send me. People whom service was a way of life, not a burden."
+</div>
 
 ## FoxNewsTwitter — post 341789
 
@@ -217,65 +275,5 @@ Fox News (Twitter/X)
 WATCH: Country music star Eric Church describes the creative process behind his extremely personal UNC commencement speech, revealing he turned to his guitar after months of writer's block:
 
 "Finally, one night, in a fit of frustration, I picked up my guitar just to kind of just to get away from the frustrating part of trying to write the speech. And as I was strumming the guitar, it just dawned on me. I hit all six strings and I thought, you know, hey, what what if I could make a speech out of these?" | @foxandfriends @ainsleyearhardt
-</div>
-
-## FoxNewsTwitter — post 341770
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341770.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341770.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump unleashes on Democratic Senate candidate James Talarico, labeling the Texas politician "pathetic" and "bad news" for the Lone Star State.
-
-"I think the Democrats have a weird, a weird candidate. I mean, this guy is bad news.”
-</div>
-
-## FoxNewsTwitter — post 341769
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump clashes with a reporter on Air Force One during a feisty exchange about the U.S. military action in Iran as well as the regime's current capabilities:
-
-"I had a total military victory. But the fake news guys like you write incorrectly. You're a fake guy. And guys like you write about it incorrectly. We had a total military victory. We knocked out their entire navy. We knocked out their entire Air force."
-</div>
-
-## FoxNewsTwitter — post 341768
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341768.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341768.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump departed China aboard Air Force One, wrapping up his two-day summit with Chinese President Xi Jinping.
-
-A brief ceremony was held on the tarmac before his return flight to the U.S.
-
-Trump touted “fantastic trade deals” following his meetings and said the two leaders were aligned on Iran.
-</div>
-
-## FoxNewsTwitter — post 341767
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341767.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341767.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump gives a fist pump as he departs China after a series of crucial meetings with President Xi Jinping on the Iran war, trade tensions, technology, and Taiwan.
-
-Ahead of his departure, Trump met with Xi and expressed optimism about hosting him in the U.S. this September.
-
-“You're going to walk away hopefully very impressed, like I'm very impressed with China."
 </div>
 

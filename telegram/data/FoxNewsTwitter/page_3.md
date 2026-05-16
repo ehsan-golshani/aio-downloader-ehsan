@@ -1,8 +1,68 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 16:22
+📅 آخرین بروزرسانی: 1405/02/26 18:01
 
 ---
+
+## FoxNewsTwitter — post 341770
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341770.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341770.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump unleashes on Democratic Senate candidate James Talarico, labeling the Texas politician "pathetic" and "bad news" for the Lone Star State.
+
+"I think the Democrats have a weird, a weird candidate. I mean, this guy is bad news.”
+</div>
+
+## FoxNewsTwitter — post 341769
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump clashes with a reporter on Air Force One during a feisty exchange about the U.S. military action in Iran as well as the regime's current capabilities:
+
+"I had a total military victory. But the fake news guys like you write incorrectly. You're a fake guy. And guys like you write about it incorrectly. We had a total military victory. We knocked out their entire navy. We knocked out their entire Air force."
+</div>
+
+## FoxNewsTwitter — post 341768
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341768.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341768.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Trump departed China aboard Air Force One, wrapping up his two-day summit with Chinese President Xi Jinping.
+
+A brief ceremony was held on the tarmac before his return flight to the U.S.
+
+Trump touted “fantastic trade deals” following his meetings and said the two leaders were aligned on Iran.
+</div>
+
+## FoxNewsTwitter — post 341767
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341767.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341767.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Trump gives a fist pump as he departs China after a series of crucial meetings with President Xi Jinping on the Iran war, trade tensions, technology, and Taiwan.
+
+Ahead of his departure, Trump met with Xi and expressed optimism about hosting him in the U.S. this September.
+
+“You're going to walk away hopefully very impressed, like I'm very impressed with China."
+</div>
 
 ## FoxNewsTwitter — post 341766
 
@@ -222,67 +282,5 @@ NEW: Vice President JD Vance squares off with a local reporter over the scale of
 REPORTER: "My question is, what else do you got? What else has your task force flagged that we should be concerned about? Because those amounts are a lot, 46 million, 1.7 million, but they don't really compare to California and Minnesota."
 
 VANCE: "Ladies and gentlemen, we've got biased reporters in all states. It's okay. Trust me, I can handle I can handle it... I suspect we are going to find hundreds of millions of more dollars every single month that we look in the state of Maine, because this is not a state that takes it seriously."
-</div>
-
-## FoxNewsTwitter — post 341750
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341750.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341750.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH: Vice President JD Vance jokes with the crowd after thanking citizen journalists for exposing fraud across the country like Nick Shirley and the 'Quality Learing Center':
-
-"When we really got wind of what was going on in Minneapolis, it was because somebody showed up at the 'Quality Learing Center.' We've got a guy over there- did you get a good education at the 'Quality Learing Center,' sir?"
-
-"He said he's a graduate with honors of the 'Quality Learing Center.' I congratulate you, but I don't think it's that hard if we're being honest."
-</div>
-
-## FoxNewsTwitter — post 341749
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341749.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341749.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-JUST IN: Vice President JD Vance exposes a "shocking" lack of accountability at the Department of Justice, claiming million-dollar fraud cases were ignored by the Biden administration.
-
-"Let's say a person defrauded all of you for a million bucks. To many of our Department of Justice leaders under the Biden administration, they said that was too low level to actually go after. So, I mean, how many of you would like the federal government to hand you $1 million?"
-</div>
-
-## FoxNewsTwitter — post 341748
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341748.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341748.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: Vice President JD Vance defends America’s social safety net while warning that unchecked fraud is destroying the "spirit of generosity" that sustains it.
-
-"We don't want low income kids to not be able to afford a bite to eat. We want to make sure that if you're a poor child or a poor family, you get an opportunity to see a doctor, even if money is particularly tight."
-
-"But you know what destroys those programs and not just destroys those programs, but destroys the spirit of generosity that makes those programs possible? It's when local officials and state officials and federal officials, it's when they let the fraudsters take advantage of you instead of fighting for you."
-</div>
-
-## FoxNewsTwitter — post 341747
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341747.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341747.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-HAPPENING NOW: Vice President JD Vance blasts Maine’s "festering" fraud crisis, blaming Governor Janet Mills and former President Joe Biden for the state's decline.
-
-"Why did Maine go from a state that did not have a serious fraud problem, to one where I can honestly say it's one of the worst states in the union?"
-
-"Number one is Janet Mills, and number two is Joe Biden. And thankfully, thankfully, one of them has already been kicked to the curb and one is on her way out the door exactly as it should be."
 </div>
 

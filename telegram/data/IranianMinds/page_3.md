@@ -1,8 +1,116 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 16:34
+📅 آخرین بروزرسانی: 1405/02/26 18:14
 
 ---
+
+## IranianMinds — post 20203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قرارداد تبلیغاتی ۱ ماهه میبندم
+غیر اخلاقی چیزی نمیزارم
+دزدی و سیگنال ارز دیجیتال و این چیزا نمیزارم
+خواستید پیام بزارید
+اگر فیلترشکن میفروشید باید مدارک رضایت فروش بدید خیال راحتی باشه
+
+«بازدهی تضمینی»
+@AmirrPower
+</div>
+
+## IranianMinds — post 20202
+
+<div align="center"><img src="telegram/content/IranianMinds_20202.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ چند دقیقه پیش از آلاسکا به سمت واشنگتن پرواز کرد. پس از توقف برای سوخت‌گیری در انکوریج
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20201
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طبق گزارش خبرنگاران آمریکایی، پیش از سوار شدن به «ایرفورس وان»، سرویس مخفی آمریکا تمام وسایل و هدایایی را که طرف چینی داده بود از جمله کارت‌ها، نشان‌ها، تلفن‌های موقت و اقلام هدیه جمع کردند و داخل سطل زباله انداختند و اجازه ندادند چیزی از چین وارد هواپیما شود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20200
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یک مقام وزارت خارجه آمریکا به الجزیره گفت فضای دومین روز مذاکرات میان لبنان و اسرائیل بسیار مثبت بوده و روند گفت‌وگوها فراتر از انتظارها پیش رفته است.
+
+این دومین روز از سومین دور مذاکرات میان اسرائیل و لبنان با میانجی‌گری ایالات متحده بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20199
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+👍اسپانسر لیگ انگلیس👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 20198
+
+<div align="center"><img src="telegram/content/IranianMinds_20198.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
+
+👍دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+ge25
+🔔کانال دربی بت :
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 20197
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کان‌نیوز:
+
+علاوه بر نخست‌وزیر نتانیاهو، ایال زامیر رئیس کل ارتش اسرائیل هم سفری مخفیانه به امارات داشته است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴موسوی‌فرد، امام جمعه اهواز:
+
+جمهوری اسلامی، آمریکا را در شرایطی قرار داده است که نه راه پس دارد و نه راه پیش.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20195
+
+<div align="center"><img src="telegram/content/IranianMinds_20195.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرنگار نیویورک‌‌پست:
+
+اعضای هیئت امریکایی همراه ترامپ، قبل از سوار شدن به ایر‌فورس‌وان و ترک چین، همه هدیه‌هایی که چینی‌ها بهشون داده بودند رو درون سطل زباله ریختند.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20194
 
@@ -111,106 +219,6 @@
 🔴 ترامپ:
 
 ارتش ایران را نابود کردیم و شاید لازم باشد یک عملیات پاکسازی سبک دیگر‌ هم انجام دهیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-نیروی هوایی ایران را کاملا نابود کردیم و از شر رهبران ایرانی خلاص شدیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20182
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-ایران هرگز به سلاح هسته‌ای دست نخواهد یافت و تحت هیچ شرایطی فرصتی برای آن نخواهد داشت.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20181
-
-<div align="center"><video src="telegram/content/IranianMinds_20181.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20181.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ درباره رهبر کره شمالی :
-
-من رابطه خیلی خوبی با کیم جونگ‌اون دارم.
-
-او به کشور ما احترام گذاشته است و من می‌خواهم همین احترام را ادامه دهد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20180
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-80 درصد از توان موشکی ایران نابود شده است
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20179
-
-<div align="center"><video src="telegram/content/IranianMinds_20179.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20179.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ در مورد توقف فعالیت هسته ای ایران:
-
-۲۰ سال کافی است. اما میزان تضمینی که از طرف آن‌ها داده می‌شود… باید واقعاً ۲۰ سال باشد
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20178
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-در مورد تایوان هیچ تعهدی به رئیس جمهور چین ندادم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20177
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-رئیس‌ جمهور چین به من اطمینان داد که با داشتن سلاح هسته‌ای ایران مخالف است
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ به رویترز :
-
-من مانعی ندارم که ایران برنامه هسته‌ای خود را برای ۲۰ سال متوقف کند، اما این باید یک تعهد واقعی باشد!
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20175
-
-<div align="center"><img src="telegram/content/IranianMinds_20175.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😂😂😂
 
 @IranianMinds
 </div>

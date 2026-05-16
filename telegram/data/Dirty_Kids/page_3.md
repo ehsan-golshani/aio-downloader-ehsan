@@ -1,8 +1,43 @@
 # آرشیو کانال Dirty_Kids - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 16:36
+📅 آخرین بروزرسانی: 1405/02/26 18:16
 
 ---
+
+## Dirty_Kids — post 389511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✖️ سایت بین المللی bet120x ✖️  👍دارای مجوز رسمی Gambling Judge سوئد👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    3️⃣2️⃣ 🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
+</div>
+
+## Dirty_Kids — post 389510
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389510.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✖️ سایت بین المللی bet120x ✖️
+
+ 👍دارای مجوز رسمی Gambling Judge سوئد👍
+     
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+⚠️فروش شرط
+🔔ویرایش شرط                    3️⃣2️⃣
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+🎁 10%برگشت باخت به صورت روزانه
+🎁 10%برگشت باخت به صورت هفتگی
+🎁10%برگشت باخت به صورت ماهانه
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   👈 آموزش واریز و برداشت دلاری👉
+
+🔪کانال اطلاع رسانی:👇
+✈️https://t.me/+1Wv5nGY_a54xNzlk
+</div>
 
 ## Dirty_Kids — post 389505
 
@@ -260,40 +295,5 @@ https://t.me/+bcynkEgSW2dlYTc0
 
 
 @Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389486
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389486.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت جهانی استارلینک مینی با تخفیف به زیر ۲۰۰دلار (۳۶میلیون تومن) رسیده و پایین‌تر هم میاد. سایز دیشش هم اندازه‌ی یه کاغذ A4 هس و براحتی همه جا مخفی میشه و با وضعیت ایران هیچ رقمه نمیشه جلوی موج قاچاقش رو گرفت.
-
-رویای آخوند برای کنترل بلند مدت اینترنت فقط یه توهمه.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389485
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389485.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
-
-⚫️با بالاترین کیفیت ممکن⚡️ 
-⚫️100 هزار تومان شارژ هدیه 🎁
-⚫️پایین ترین قیمت گیگی 250🌐 
-⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
-
-بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
-
-بادبان راهتو باز می‌کنه⛵️
-
-R25
-🛡@BadBan_VPN | کانال 
-🤖@BadBan_VPNBot | ربات 
-📞@BadBan_VPNSupport | پشتیبانی
 </div>
 

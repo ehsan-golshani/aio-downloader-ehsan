@@ -1,8 +1,32 @@
 # آرشیو کانال Dirty_Kids - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 16:36
+📅 آخرین بروزرسانی: 1405/02/26 18:16
 
 ---
+
+## Dirty_Kids — post 389415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍 🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389414
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389414.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A23
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+✅https://t.me/+4_ADqwB9e-QwYjlk
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
 
 ## Dirty_Kids — post 389413
 
@@ -223,34 +247,6 @@
 چرا فرانسه رو انتخاب کرد؟
 چون شهروندان ایرانی می‌توانستند بدون نیاز به ویزا تا "سه ماه" در فرانسه اقامت کنند.
 
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389392
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389392.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389392.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کپی برداری نوحه خوانی محمود کریمی از مدل اشعار برنامه های کودک تو سیرک شبانه حکومتی‌های حرامزاده؛
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389391
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بهمن محصص ۱۳ سال پیش گلشیفته رو اینجوری توصیف کرد...
-
-چقد فحش خورد اون روزا
 
 
 @Dirty_Kids 👻

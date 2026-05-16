@@ -1,8 +1,31 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 16:32
+📅 آخرین بروزرسانی: 1405/02/26 18:12
 
 ---
+
+## Persian_Trend_Official — post 14192
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14192.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14192.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ در پاسخ به گفتگو در مورد حملات سایبری با شی جین پینگ پاسخ داد :
+
+💢آره، بهش گفتم . اونم شروع کرد درباره کارایی که ما تو چین کردیم حرف زد
+
+💢خب میدونی ، هرکاری اونا بکنن ماهم میکنیم . ماهم ازشون جاسوسی میکنیم .
+
+💢بهش گفتم ما یه عالمه کارها علیه شما میکنیم که اصلا خبر ندارین
+
+پ ن : نخود در دهن ترامپ خیس نمیخورد ...
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14191
 
@@ -312,23 +335,6 @@
 💢اسماعیل بقایی
 
 «کسی که در خفا خیانت کند، در برابر افکار عمومی رسوا خواهد شد»
-
-🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14171
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14171.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14171.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢خلاقیت و نوآوری با کمترین هزینه را از اوکراین بخواهید ❗️
-
-💢اپراتورای پهپاد اوکراینی با یه پهپاد FPV که روی آن تفنگ ساچمه زن بستن، دارن پهپادهای FPV روسی رو می‌زنن
 
 🫆:Tony
 
