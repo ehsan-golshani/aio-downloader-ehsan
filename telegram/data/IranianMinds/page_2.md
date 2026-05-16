@@ -1,8 +1,42 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 14:28
+📅 آخرین بروزرسانی: 1405/02/26 15:26
 
 ---
+
+## IranianMinds — post 20213
+
+<div align="center"><img src="telegram/content/IranianMinds_20213.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نیویورک تایمز :
+
+ترامپ پس از بازگشت از چین، در حالی که مشاوران ارشد و مقامات پنتاگون برنامه‌های احتمالی برای حملات مجدد به ایران در صورت شکست مذاکرات صلح را نهایی می‌کردند، وارد آمریکا شد.
+
+اگرچه ترامپ هنوز تصمیم نهایی نگرفته است، گزارش‌ها حاکی از آن است که مقامات آمریکایی و اسرائیلی برای حملاتی که ممکن است طی روزهای آینده آغاز شوند، آماده می‌شوند.
+
+برنامه‌ریزان نظامی درباره گسترش کمپین‌های بمباران و حتی مأموریت‌های عملیات ویژه برای هدف قرار دادن تأسیسات هسته‌ای زیرزمینی ایران بحث کرده‌اند!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ به آمریکا رسید.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20211
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرزند عبدالرحیم موسوی، رییس ستاد کل نیروهای مسلح جمهوری اسلامی:
+
+جنازه پدرم ۳۰ روز زیر آوار حملات مونده بود.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20210
 
@@ -221,36 +255,6 @@ ge25
 🔴وزیر امور‌خارجه چین:
 
 ما خواستار بازگشایی هرچه سریعتر تنگه هرمز هستیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تهران‌تایمز:
-
-آمریکا پیشنهاد ۱۴ ماده‌ای جمهوری اسلامی برای پایان جنگ را رد کرده و بار دیگر بر مواضع خود، به ویژه درباره پرونده هسته‌ای تأکید کرده است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عراقچی:
-
-اگر آنها بخواهند به جنگ بازگردند، این به خودشان بستگی دارد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-تنها کشورهایی که قادر به خارج کردن غبار هسته‌ای از ایران هستند، آمریکا و چین هستند.
 
 @IranianMinds
 </div>

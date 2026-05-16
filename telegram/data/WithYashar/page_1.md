@@ -1,8 +1,41 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 14:15
+📅 آخرین بروزرسانی: 1405/02/26 15:13
 
 ---
+
+## WithYashar — post 11389
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۲ اسرائیل مدعی شد: ترامپ بزودی با اعضای کابینه خود جلسه اضطراری برای پایان دادن به اوضاع ایران برگزار میکند.
+@withyashar
+</div>
+
+## WithYashar — post 11388
+
+<div align="center"><video src="telegram/content/WithYashar_11388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظر کلی رسانه ها اینه که ۷۲ ساعت طلایی پیشه رو داریم 😬
+@withyashar
+</div>
+
+## WithYashar — post 11387
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شبکه فاکس نیوز: ارتش آمریکا درحال آماده شدن برای دور جدیدی از درگیری های نظامی در ایران است
+@withyashar
+</div>
+
+## WithYashar — post 11386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایال زمیر، رئیس ستاد کل نیروهای مسلح اسرائیل اعلام کرد کشته‌شدن عزالدین الحداد، فرمانده‌ شاخه ‌نظامی «حماس» یک گام مهم و موفقیتی بزرگ در عرصه عملیاتی است.
+او افزود اسرائیل «با جدیت» به‌ تعقیب و هدف قرار دادن سایر رهبران و فرماندهان حماس ادامه خواهد داد.
+@withyashar
+</div>
 
 ## WithYashar — post 11385
 
@@ -131,44 +164,4 @@
 </div>
 
 ## WithYashar — post 11370
-
-## WithYashar — post 11369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar
-</div>
-
-## WithYashar — post 11368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک تایمز از قول مقامات نظامی آمریکا:
-
-اگر جزیره خارگ تصرف شود ، نیروهای زمینی برای حفظ آن لازم خواهند بود.
-
-@withyashar
-</div>
-
-## WithYashar — post 11367
-
-<div align="center"><video src="telegram/content/WithYashar_11367.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11367.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنها چیزی که می‌توانم بگویم این است که این یک موفقیت بزرگ بود.»
-
-رئیس جمهور ترامپ پس از سفر به چین به کاخ سفید بازگشت و به خبرنگاران گفت: «ما به توافق‌های بزرگی رسیدیم» و این دیدار را یک لحظه تاریخی خواند.
-
-سپس او به اتفاقات بیشتری در آینده اشاره کرد: «اتفاقات زیادی افتاده است و شما درباره آنها خواهید شنید.»
-@withyashar
-</div>
-
-## WithYashar — post 11366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ: افزایش قیمت‌ بنزین مرتبط با جنگ ایران «درد کوتاه‌مدت» است که بسیار کمتر از چیزی است که مردم انتظار داشتن.
-
-وقتی به کسی میگید که باید کمی بیشتر برای بنزین در یک دوره بسیار کوتاه بپردازید، چون میخوایم جلوی تهدید تکه‌تکه شدن توسط یک دیوانه، یک فرد دیوانه رو بگیریم، و آنها دیوانه هستن با استفاده از سلاح‌های هسته‌ای، همه میگن که این خوب است.
-@withyashar
-</div>
 

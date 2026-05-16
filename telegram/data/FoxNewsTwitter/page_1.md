@@ -1,8 +1,26 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 08:34
+📅 آخرین بروزرسانی: 1405/02/26 15:14
 
 ---
+
+## FoxNewsTwitter — post 341808
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341808.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341808.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+Bodycam video captures the terrifying moment officials say a Florida deputy was attacked almost instantly after arriving on-scene.
+
+Marion County Sheriff's Office Deputy Robert Fitch had just stopped to investigate a suspicious-person call on a residential street in Ocala, Florida on May 13. After exiting his vehicle, a man lunges at him and Fitch falls to the ground.
+
+Fitch was stabbed several times in his bulletproof vest, suffering minor injuries, before the man fled into the woods, officials say.
+
+The suspect, Heriberto Medina Marquez, was apprehended a short time later and reportedly faces charges of attempted murder of a law enforcement officer.
+</div>
 
 ## FoxNewsTwitter — post 341807
 
@@ -254,16 +272,5 @@ Pirro vows to prosecute parents who fail to supervise their children, threatenin
 Fox News (Twitter/X)
 
 WATCH LIVE: VP Vance speaks at National Peace Officers’ Memorial Service https://twitter.com/i/broadcasts/1OxwblyqbYWJB
-</div>
-
-## FoxNewsTwitter — post 341786
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341786.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: FBI provides update after alleged TdA leader made first courtroom appearance
-https://twitter.com/i/broadcasts/1RKjpznvoldJw
 </div>
 

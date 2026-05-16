@@ -1,8 +1,39 @@
 # آرشیو کانال WithYashar - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/02/26 14:15
+📅 آخرین بروزرسانی: 1405/02/26 15:13
 
 ---
+
+## WithYashar — post 11184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتانیاهو در دادگاه حظور پیدا کرد و گفت: «فیک نیوزها گفتند من به بیماری لاعلاجی مبتلا هستم - این یک صنعت دروغگویی تمام‌عیار است»
+@withyashar
+</div>
+
+## WithYashar — post 11183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاج : در جریان آهنگی که معین برای تیم ملی در جام جهنی ۲۰۲۶ می خواند هستیم @withyashar
+</div>
+
+## WithYashar — post 11182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اتاق جنگ با شما : زمین لرزه خیلی شدید کرمان یک دقیقه پیش
+@withyashar
+</div>
+
+## WithYashar — post 11181
+
+<div align="center"><video src="telegram/content/WithYashar_11181.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11181.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تصویربرداری عجیب یا اسکن ۳۶۰ ایلان ماسک از موقعیت با گوشی خودش
+@withyashar
+</div>
 
 ## WithYashar — post 11180
 
@@ -123,40 +154,4 @@ https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
 ## WithYashar — post 11166
 
 ## WithYashar — post 11165
-
-## WithYashar — post 11164
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام سد مجید موسی ، فرمانده نیروی هوافضای ۳پا تیم ملی رو هم بردن وسط میدون مثل میمونای سیرک @withyashar
-</div>
-
-## WithYashar — post 11163
-
-<div align="center"><video src="telegram/content/WithYashar_11163.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11163.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام سد مجید موسی ، فرمانده نیروی هوافضای ۳پا
-تیم ملی رو هم بردن وسط میدون مثل میمونای سیرک
-@withyashar
-</div>
-
-## WithYashar — post 11162
-
-<div align="center"><video src="telegram/content/WithYashar_11162.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11162.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رقص امشب از گلشیفته 😅
-@withyashar
-</div>
-
-## WithYashar — post 11161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاج : در جریان آهنگی که معین برای تیم ملی در جام جهنی ۲۰۲۶ می خواند هستیم
-@withyashar
-</div>
 

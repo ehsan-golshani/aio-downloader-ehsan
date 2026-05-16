@@ -1,8 +1,103 @@
 # آرشیو کانال alonews - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 14:33
+📅 آخرین بروزرسانی: 1405/02/26 15:32
 
 ---
+
+## alonews — post 120375
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈جاده چالوس از فردا به مدت ۴روز مسدود می‌شود
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120374
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈دقایقی پیش وزیر کشور پاکستان برای دیدار با مقامات ایرانی، در سفری از پیش اعلام نشده وارد تهران شد ✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120373
+
+<div align="center"><img src="telegram/content/alonews_120373.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مخبر: این خویشتنداری همیشگی نیست
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120372
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 ارتش دفاعی اسرائیل اعلام کرده است که حملات به سایت‌های زیرساختی حزب‌الله در چندین منطقه در جنوب لبنان را آغاز کرده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120371
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈دقایقی پیش وزیر کشور پاکستان برای دیدار با مقامات ایرانی، در سفری از پیش اعلام نشده وارد تهران شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120370
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رئیس کمیسیون امنیت ملی مجلس :
+یه سیستم طراحی کردیم که رفت‌وآمد کشتی‌ها تو تنگه هرمز رو با یه مسیر مشخص کنترل کنیم و به‌زودی هم اعلامش می‌کنیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈به گزارش کانال ۱۲ اسرائیل : ترامپ بزودی با اعضای کابینه خود جلسه اضطراری برای پایان دادن به اوضاع ایران برگزار میکند ، حمله و تقابل سوم قریب الوقوع و بسیار نزدیک است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈الجزیره: وزیر انرژی امارات می‌گوید خروج از اوپک یک «انتخاب استراتژیک مستقل» است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120367
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈از دقایقی قبل سوپراپلیکیشن بله با اختلال مواجه شده و کار نمی کنه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120366
+
+<div align="center"><img src="telegram/content/alonews_120366.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فارس مدعی شد: یک نفتکش غول‌پیکر چینی که از تنگهٔ هرمز عبور کرده بود، خارج از خط محاصرهٔ آمریکا رویت شد.
+
+🔴این نفتکش پیش از آغاز مذاکرات رئیس‌جمهور چین و ترامپ درحال عبور از مسیر تعیین‌شدهٔ ایران در تنگهٔ هرمز در کنار جزیرهٔ لارک دیده شده بود.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120365
+
+<div align="center"><img src="telegram/content/alonews_120365.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ناو شارل دوگل فرانسه، خروجی خلیج عدن - ورودی دریای عرب دیده شده
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120364
 
@@ -116,131 +211,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈یک مقام ارشد اسرائیلی در گفتگو با کانال ۱۲ اسرائیل: تل‌آویو در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120354
-
-<div align="center"><video src="telegram/content/alonews_120354.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120354.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: ۵ بار با ایران نزدیک توافق شدم، ولی روز بعدش زدن زیرش
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120353
-
-<div align="center"><video src="telegram/content/alonews_120353.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120353.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈حدادی، عضو کمیسیون صنایع: گران شدن خودرو توجیه فنی ندارد/قیمت‌ها باید به قبل از جنگ بازگردد
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120351
-
-## alonews — post 120350
-
-## alonews — post 120349
-
-<div align="center"><video src="telegram/content/alonews_120349.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120349.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری / ارتش اسرائیل : عزالدین الحداد فرمانده گردان‌های القسام، همراه با محافظ‌هاش ترور شد 
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120348
-
-<div align="center"><video src="telegram/content/alonews_120348.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120348.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر جدید نفت عراق، باسم محمد، اعلام کرد که عراق در ماه آوریل/نیمان ۱۰ میلیون بشکه نفت خود را از طریق تنگه هرمز صادر کرده است.
-
-
-🔴وی توضیح داد که عراق قصد دارد با سازمان اوپک همکاری کند تا تولید و ظرفیت صادرات کشور را افزایش دهد و افزود که بغداد هدف دارد به ظرفیت تولید روزانه ۵ میلیون بشکه دست یابد.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120347
-
-<div align="center"><video src="telegram/content/alonews_120347.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120347.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سنتکام به نیویورک تایمز : کشتی‌های ایرانی رو با ماهواره و چند روش دیگه ردیابی می‌کنیم
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120346
-
-<div align="center"><video src="telegram/content/alonews_120346.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120346.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈منابع پاکستانی: سومین کشتی گاز مایع قطر با عبور از تنگه هرمز در کراچی پهلو گرفت
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120345
-
-<div align="center"><video src="telegram/content/alonews_120345.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120345.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈قطارهای چین به ایران سه برابر شد
-
-
-🔴با وجود محاصره دریایی آمریکا، قطارهای باری چین به ایران از هفته‌ای یک بار به هر سه تا چهار روز یکبار رسیده‌ است
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120344
-
-<div align="center"><video src="telegram/content/alonews_120344.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120344.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سخنگوی وزارت کشور: از نمایندگان مجلس توقع داریم در اظهارنظرهای خود در موضوعات مختلف بیشتر دقت کنند؛ انسجام ملی باید حفظ شود
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120343
-
-<div align="center"><video src="telegram/content/alonews_120343.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120343.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: نام افرادی را که در نزدیکی اورانیوم های غنی‌شده ایران هستند، می‌دانیم. پنجاه درصدشان اسمشان محمد است!
 
 
 ✅ @AloNews خبر جنگ

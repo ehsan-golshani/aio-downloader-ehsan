@@ -1,8 +1,26 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 08:34
+📅 آخرین بروزرسانی: 1405/02/26 15:14
 
 ---
+
+## FoxNewsTwitter — post 341674
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341674.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341674.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST IN: Vice President JD Vance defends the fraud task force for its efforts to prioritize American citizens:
+
+"We're a generous country. We're a generous people. I love that about this country.”
+
+“But part of that generosity is that it extends to our fellow Americans. We cannot give Medicare and Medicaid benefits to everybody all over the world.”
+
+“It's going to bankrupt those programs. They ought to belong to Americans first."
+</div>
 
 ## FoxNewsTwitter — post 341673
 

@@ -1,8 +1,22 @@
 # آرشیو کانال DW_Farsi - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 14:26
+📅 آخرین بروزرسانی: 1405/02/26 15:24
 
 ---
+
+## DW_Farsi — post 124667
+
+<div align="center"><video src="telegram/content/DW_Farsi_124667.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/DW_Farsi_124667.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎥 صد روز در انزوا؛ آزمایش انسان برای سفر به مریخ
+
+شش داوطلب در پروژه "سولیس ۱۰۰" صد روز را در انزوای کامل سپری می‌کنند تا دانشمندان تاثیرات روانی و جسمی سفرهای طولانی فضایی را بررسی کنند؛ آزمایشی که می‌تواند به آمادگی بشر برای ماموریت‌های آینده به مریخ کمک کند.
+#dwscience #dwhealth
+@dw_farsi
+</div>
 
 ## DW_Farsi — post 124666
 

@@ -1,8 +1,40 @@
 # آرشیو کانال DEJradio - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 14:18
+📅 آخرین بروزرسانی: 1405/02/26 15:16
 
 ---
+
+## DEJradio — post 4666
+
+<div align="center"><img src="telegram/content/DEJradio_4666.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺📢 اسکات بسنت وزیرخزانه‌داری آمریکا:
+رژیم ایران دستمزد سربازایش را هم نمی‌تواند پرداخت کند
+
+‏اسکات بسنت وزیرخزانه‌داری آمریکا
+در مصاحبه با سی‌ان‌بی‌سی درباره جمهوری اسلامی گفت، فقط تا اینجای امسال، آن‌ها سی تا چهل هزار تن را اعدام کرده‌اند؛ خیلی از آن‌ها هم معترضان مسالمت‌آمیز بوده‌اند. خب، با چنین رژیمی چطور باید برخورد کرد؟
+
+او افزود: باید از نظر اقتصادی حکومت ایران را تحت فشار گذاشت و ما معتقدیم به جایی رسیده‌اند که حتی دستمزد سربازهایشان هم پرداخت نمی‌شود.
+دیگر نمی‌توانند ذخایر تسلیحاتی‌شان را از خارج تأمین کنند. بنابراین فکر می‌کنم در آخرین نفس‌هایشان هستند.
+
+#نیروهای_مسلح #جنگ
+@DEJradio
+</div>
+
+## DEJradio — post 4665
+
+<div align="center"><video src="telegram/content/DEJradio_4665.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/DEJradio_4665.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🔸 خبر ۲۱
+آدینه ۲۵ اردیبهشت ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
 
 ## DEJradio — post 4664
 
@@ -319,35 +351,6 @@ https://iranopasmigirim.com/fa/transitional-justice
 *پژمان گلچین، پژوهشگر فلسفه
 
 #چپ #جریان_ملی
-@DEJradio
-</div>
-
-## DEJradio — post 4642
-
-<div align="center"><img src="telegram/content/DEJradio_4642.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺📷 تفنگداران آمریکایی راپل از هلی‌کوپتر روی عرشه ناو «یو‌ا‍س‌اس تریبپولی» را تمرین کردند
-
-تفنگداران دریایی ایالات متحده از یگان ۳۱ تفنگداران دریایی، تمرین فرود روی عرشه کشتی کردند. براساس گزارش سنتکام این نیروها از یک بالگرد MH-60S Sea Hawk روی عرشه ناو «یو‌ا‍س‌اس تریبپولی» تمرین راپل کردند.
-تریپولی یکی از بیش از ۲۰ ناو جنگی است که از محاصره ایالات متحده علیه ایران پشتیبانی می‌کند. از زمان آغاز این محاصره، نیروهای سنتکام ۷۲ کشتی تجاری را تغییر مسیر داده و ۴ کشتی را از کار انداخته‌اند.
-
-#جنگ #محاصره_دریایی
-@DEJradio
-</div>
-
-## DEJradio — post 4641
-
-<div align="center"><video src="telegram/content/DEJradio_4641.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/DEJradio_4641.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨📢 "چیزی برای خوردن نداریم، فرزندان ما گرسنه‌اند
-
-پیام شهروندان به مقامات حکومت: "چیزی برای خوردن نداریم، فرزندان ما گرسنه‌اند"
-
-#تورم #ایران
 @DEJradio
 </div>
 

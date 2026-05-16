@@ -1,8 +1,24 @@
 # آرشیو کانال WithYashar - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 14:15
+📅 آخرین بروزرسانی: 1405/02/26 15:13
 
 ---
+
+## WithYashar — post 11307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امریکا زمانی حمله میکنه که کسی منتظر نیس.
+</div>
+
+## WithYashar — post 11306
+
+## WithYashar — post 11305
+
+<div align="center"><video src="telegram/content/WithYashar_11305.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11305.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## WithYashar — post 11304
 
 ## WithYashar — post 11303
 
@@ -139,34 +155,5 @@
 حمله به ایران؛ اسرائیله
 نتانیاهو نه کم آورده نه علائمی از خستگی داره نه پشیمانه
 @withyashar
-</div>
-
-## WithYashar — post 11286
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ به فاکس‌نیوز: ما می‌توانستیم پل‌ها و شبکه‌های برق ایران را نابود کنیم و می‌توانیم ظرف دو روز همه چیز را در آنجا از بین ببریم.
-@withyashar
-</div>
-
-## WithYashar — post 11285
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ به فاکس‌نیوز : ما ارتش ایران را نابود کرده‌ایم و شاید باید یک پاکسازی سبک انجام دهیم.
-میتوانیم نیروگاه‌های ایران را تنها در دو روز از بین ببریم
-اگر ایران اورانیوم های غنی شده خودش رو تحویل نده وارد ایران میشیم
-@withyashar
-</div>
-
-## WithYashar — post 11284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Voice message
-</div>
-
-## WithYashar — post 11283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارو به قاهره میبره؟
-خب پس بذار هرچی میخواد بگه
 </div>
 

@@ -1,8 +1,27 @@
 # آرشیو کانال mwarmonitor - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 14:15
+📅 آخرین بروزرسانی: 1405/02/26 15:14
 
 ---
+
+## mwarmonitor — post 9047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری: بنیامین نتانیاهو به‌طور محرمانه به امارات متحده عربی سفر کرده و در جریان عملیات «شیر غران» علیه ایران با محمد بن زاید دیدار کرده است. i24 news
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9046
+
+<div align="center"><img src="telegram/content/mwarmonitor_9046.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️مأموریت WENCH11 (بمب‌افکن رادارگریز B-2A Spirit)
+🔸پس از سوخت‌گیری هوایی با پرواز DEED41 (تانکر KC-135 Stratotanker) بر فراز نوا اسکوشیا شرق کانادا، روی مسیر سوخت‌رسانی AR20NE، در باند VHF با Gander Radio در ارتباط بوده است.
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9045
 

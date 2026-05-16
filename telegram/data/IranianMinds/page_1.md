@@ -1,8 +1,40 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 14:28
+📅 آخرین بروزرسانی: 1405/02/26 15:26
 
 ---
+
+## IranianMinds — post 20235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴نیویورک‌تایمز:
+
+آمریکا و اسرائیل احتمالأ هفته آینده به ایران حمله خواهند کرد.
+
+بعضی از رسانه‌ها هم احتمال حمله را تا ۲۴ ساعت آینده تخمین می‌زنند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴جسی واترز، مجری فاکس‌نیوز:
+
+ترامپ در حال آماده شدن برای دور جدیدی از حملات به ایران است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20233
+
+<div align="center"><img src="telegram/content/IranianMinds_20233.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴استوری مشاور قالیباف😂
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20232
 
@@ -221,40 +253,6 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 🔴جلد جدید مجله تایم:
 
 چگونه دیدار ترامپ و شی، یک نظم نوین جهانی را به نمایش گذاشت.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20213
-
-<div align="center"><img src="telegram/content/IranianMinds_20213.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نیویورک تایمز :
-
-ترامپ پس از بازگشت از چین، در حالی که مشاوران ارشد و مقامات پنتاگون برنامه‌های احتمالی برای حملات مجدد به ایران در صورت شکست مذاکرات صلح را نهایی می‌کردند، وارد آمریکا شد.
-
-اگرچه ترامپ هنوز تصمیم نهایی نگرفته است، گزارش‌ها حاکی از آن است که مقامات آمریکایی و اسرائیلی برای حملاتی که ممکن است طی روزهای آینده آغاز شوند، آماده می‌شوند.
-
-برنامه‌ریزان نظامی درباره گسترش کمپین‌های بمباران و حتی مأموریت‌های عملیات ویژه برای هدف قرار دادن تأسیسات هسته‌ای زیرزمینی ایران بحث کرده‌اند!
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ به آمریکا رسید.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20211
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرزند عبدالرحیم موسوی، رییس ستاد کل نیروهای مسلح جمهوری اسلامی:
-
-جنازه پدرم ۳۰ روز زیر آوار حملات مونده بود.
 
 @IranianMinds
 </div>

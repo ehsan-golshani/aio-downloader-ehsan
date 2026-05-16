@@ -1,8 +1,74 @@
 # آرشیو کانال pm_afshaa - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 14:17
+📅 آخرین بروزرسانی: 1405/02/26 15:15
 
 ---
+
+## pm_afshaa — post 90718
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴مدیر سرویس اطلاعات خارجی روسیه:
+هیچ نشانه‌ای از پایان درگیری نظامی بر سر ایران وجود نداره و نمیشه موج جدیدی از تشدید تنش رو رد کرد.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴مقامات اسرائیلی به آکسیوس:
+ما در طول تعطیلات آخر هفته، وضعیت آماده‌باش رو به بالاترین سطح میبریم؛ چون احتمال میدیم ترامپ تصمیم بگیره جنگ رو از سر بگیره.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90716
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴آکسیوس به نقل از مقامات آمریکایی:
+محاصره‌ آمریکا بدجوری داره به ایران فشار میاره و ممکنه مجبورشون کنه که بدون نیاز به درگیری نظامی، تسلیم بشن.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90715
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کاخ سفید: روسای جمهور آمریکا و چین درباره تقویت همکاری اقتصادی گفت‌وگو کردن
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90714
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سازمان تجارت دریایی بریتانیا اعلام کرد: قایق های تندرو سپاه یک کشتی را که خارج از تنگه هرمز لنگر انداخته بود را تهدید به هدف قرار دادن و سپس توقیف کردند و اکنون در حال بردن آن به سوی بنادر ایران هستن
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90713
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کاخ سفید : ترامپ و شی توافق کردن که تنگه هرمز باید باز بمونه
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴رویترز: آمریکا و چین توافق کردن هیچ کشوری نباید عوارض از تنگه هرمز بگیره
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90711
 
@@ -138,81 +204,6 @@
 🔴هفتمین رأی‌گیری سنای آمریکا توسط دموکرات‌ها برای محدود کردن اختیارات جنگی ترامپ و پایان جنگ با جمهوری اسلامی بازهم شکست خورد.
 
 تعداد آرا فاصله نزدیک 50 به 49 داشت!
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90698
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سنتکام: از آغاز محاصره دریایی 67 کشتی مجبور به تغییر مسیر شدن.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90697
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خواسته‌های احتمالی ترامپ از چین سر ایران چیه؟
-
-1- کمک چین به ایران متوقف بشه حالا میخواد نظامی باشه یا اطلاعاتی و...
-
-2- چین رو متقاعد کنه که نفت خودش رو از کشور های دیگه‌ای بجز ایران تامین کنه و نذاره تنگه هرمز بشه محلی برای کسب درآمد ایران.
-
-3- به چین بگه ایندفعه دیگه قطعنامه برعلیه ایران رو تو جلسه شورای حکام وتو نکنن و بذارن رای بیاره تا اجماع جهانی برعلیه ایران شکل بگیره سر تنگه هرمز.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90696
-
-<div align="center"><img src="telegram/content/pm_afshaa_90696.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سنتکام با انتشار تصویری، از گشت‌زنی جنگنده پنهان‌کار F-35A آمریکا بر فراز آب‌های نزدیک تنگه هرمز خبر داد.
-
-به گفته سنتکام، این جنگنده توان حمل تا 18 هزار پوند مهمات رو در سرعت مافوق صوت داره.
-
-💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احسان افرشته امروز صبح توسط جمهوری تروریستی اسلامی اعدام شد 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پولیتیکو به نقل از یک مقام ارشد کاخ سفید: چین پیش از دیدار ترامپ به ایران فشار آورده تا با امریکا به توافق برسه
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90693
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴رئیس ستاد ارتش اسرائیل:
-جنگ با ایران پایان نیافته و برای از سرگیری جنگ در هوشیاری کامل قرار داریم. از یهودا و سامره تا تهران برای دفاع و حمله آماده‌ایم.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90692
-
-<div align="center"><img src="telegram/content/pm_afshaa_90692.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴مجله مادام فیگارو به نقل از فلوریان تاردیف، روزنامه‌نگار فرانسوی: سیلی بریژیت مکرون به همسرش در هواپیما پس از آن رخ داده که اون پیام‌های صمیمانه امانوئل مکرون با گلشیفته فراهانی رو دیده بود.
-
-به گفته تاردیف، مکرون برای چند ماه رابطه‌ای افلاطونی با این گلشیفته فراهانی داشته و در پیام‌هاش جملاتی مثل «به نظرم بسیار زیبا هستید» نوشته بود.
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

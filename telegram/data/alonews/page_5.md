@@ -1,8 +1,137 @@
 # آرشیو کانال alonews - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 14:33
+📅 آخرین بروزرسانی: 1405/02/26 15:32
 
 ---
+
+## alonews — post 120282
+
+<div align="center"><img src="telegram/content/alonews_120282.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مقامات آمریکایی مشکوک هستند که هکرهای مرتبط با ایران ممکن است پشت یک سری نفوذهای سایبری باشند که سیستم‌های نظارت بر سوخت در پمپ‌بنزین‌ها در چندین ایالت را هدف قرار داده‌اند، طبق گزارش CNN
+
+🔴هکرها از سیستم‌های اندازه‌گیری خودکار مخازن که به اینترنت متصل بودند بدون حفاظت رمز عبور سوء استفاده کردند و این امکان را برایشان فراهم کرد تا خوانش‌های نمایش داده شده سوخت را دستکاری کنند — هرچند نه سطح واقعی سوخت.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120281
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ژان-لوک ملانشون، نامزد ریاست‌جمهوری فرانسه، درباره ایران و تنگه هرمز: «وقتی کشوری از خود دفاع می‌کند، از تمام ابزارهای دفاعی خود استفاده می‌کند.
+
+
+🔴ما هم همین کار را میکردیم.
+
+
+🔴ما تمام کانال مانش را مین‌گذاری می‌کردیم.»
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈منابع عراقی از حملۀ پهپادی به مقر گروهک‌های تجزیه‌طلب در کردستان عراق خبر می‌دهند.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120279
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فیلد مارشال ، محسن رضایی: قواعد نظم جدید جهان دیگه آمریکا محور نیست
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120277
+
+<div align="center"><video src="telegram/content/alonews_120277.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120277.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈شهر صور تو "جنوب لبنان" بعد از حمله‌ی سنگین ارتش اسرائیل
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120276
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈واشنگتن پست : ایران واضح‌ترین بازنده دیدار ترامپ از پکن است، با مخالفت علنی پکن با اختلال در هرمز، تعهد به عدم ارسال تجهیزات نظامی به تهران و توافق بر اینکه تنگه «باید باز بماند.»
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120275
+
+<div align="center"><video src="telegram/content/alonews_120275.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120275.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ درباره تایوان: من به دنبال این نیستم که کسی مستقل شود. و می‌دانید، ما قرار است ۹۵۰۰ مایل سفر کنیم تا جنگی را انجام دهیم. من به دنبال آن نیستم.
+
+
+🔴می‌خواهم تایوان آرام شود؛ می‌خواهم چین آرام شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120274
+
+<div align="center"><video src="telegram/content/alonews_120274.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120274.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈برت بایر از فاکس: شما در حال انتظار برای تصویب میلیاردها دلار سلاح برای تایوان هستید. آیا این روند پیش می‌رود؟
+
+
+🔴ترامپ: خوب، هنوز آن را تصویب نکرده‌ام. خواهیم دید چه اتفاقی می‌افتد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120273
+
+<div align="center"><video src="telegram/content/alonews_120273.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120273.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سفیر ایالات متحده مایک والتز ادعا می‌کند که «نتیجه بزرگ» سفر ترامپ به چین، موافقت چین با عقب‌نشینی از ایران بوده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120272
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈امیر قطر و محمد بن سلمان، ولیعهد عربستان سعودی در یک گفت وگوی تلفنی درباره آخرین تحولات منطقه با یکدیگر گفتگو کردند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120271
+
+<div align="center"><video src="telegram/content/alonews_120271.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120271.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈۳۰ روز طول کشید تا جنازه عبدالرحیم موسوی، رئیس سابق ستاد کل نیروهای مسلح ایران، رو پیدا کنن
+
+🔴پسرش اینو به صداوسیما گفته
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120270
 
@@ -99,133 +228,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈 توییت جدید و عجیب دونالد ترامپ:
 کشور ایران ایالت ۲۴۳اُم آمریکا است!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120261
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اوگاندا و جمهوری دموکراتیک کنگو هر دو اعلام کردند که شیوع جدید ابولا در کشورهایشان در جریان است.
-
-🔴۶۶ مورد مرگ ثبت شده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120260
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت امور خارجه آمریکا: آتش‌بس بین اسرائیل و لبنان به مدت ۴۵ روز تمدید می‌شود تا امکان ادامه روند مذاکرات فراهم شود
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جنگ الونیوز AloNews pinned a photo
-</div>
-
-## alonews — post 120258
-
-<div align="center"><img src="telegram/content/alonews_120258.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت خارجه آمریکا : ونزوئلا 7340 کیلوگرم اورانیوم غنی‌شده‌‌‌ش رو به آمریکا منتقل کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120257
-
-<div align="center"><img src="telegram/content/alonews_120257.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کوروش وی پی ان 👑 ارائه بهترین کانفینگ های ایران
-
-👑👑👑 بدون ضریب 🤴
-👑👑👑 همراه با لینک ساب 🤴
-👑👑👑 پرسرعت 🤴
-👑👑👑 همراه با لینک ساب 🤴
-👑👑👑 ۵ سرور متفاوت 🤴
-👑👑👑 همیشه در حال اپدیت 🤴
-👑👑👑کانفینگ های رایگان 🤴
-
-
-🦁توجه کنید شاید یکی قیمتش ۱۵۰ ۲۰۰ باشه ولی هر قیمتی دلیل بر خوب بودن نیست بلکه ضریب دارن و یا سرور های کند دارن!🦁
-
-تنها چنلی که کانفینگ رایگان میزاره :
-👑 https://t.me/+nVsNnhQep1s5YTA0 👑
-👑 https://t.me/+nVsNnhQep1s5YTA0 👑
-
-👑👑👑خرید از طریق ربات :
-👑 @CyrusV2ray_bot
-👑 @CyrusV2ray_bot
-</div>
-
-## alonews — post 120256
-
-<div align="center"><video src="telegram/content/alonews_120256.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120256.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کاوه مدنی: وضعیت دردآور جزیره مارو (شیدور) ملقب به «مالدیو ایران»
-
-🔴نشت نفت به خلیج فارس پس از حمله به تأسیسات نفتی جزیره لاوان در فروردین ماه عامل این فاجعه بود.
-
-✅@AloNews
-</div>
-
-## alonews — post 120255
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ایلان ماسک : برنامه "اینستاگرام" برای دختراست
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120254
-
-<div align="center"><video src="telegram/content/alonews_120254.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120254.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عضو کمیسیون انرژی مجلس: دولت به دنبال افزایش قیمت بنزین است؛ مجلس مخالف است و اجازه نخواهد داد!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120253
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رضا پهلوی: هرکسی که در ایست بازرسی کمک کند و یا برای نهادهای امنیتی خبرچینی کند و یا اموال مصادره شده معترضان را خرید و فروش کند؛ در فردای آزادی مجازات می شود
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120247
-
-<div align="center"><video src="telegram/content/alonews_120247.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120247.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تصاویری از حملات به یکی از پایگاه هوای ایران طی جنگ که نشان دهنده انهدام تعدادی از هواگردها درون آشیانه و همچنین هواپیماهای فوکر نیروی دریایی بر روی زمین است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120245
-
-<div align="center"><video src="telegram/content/alonews_120245.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120245.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈محل ترور عزالدین حداد فرمانده گردان های القسام در شهر غزه
 
 ✅ @AloNews خبر جنگ
 </div>

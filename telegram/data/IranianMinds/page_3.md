@@ -1,8 +1,38 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 14:28
+📅 آخرین بروزرسانی: 1405/02/26 15:26
 
 ---
+
+## IranianMinds — post 20192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تهران‌تایمز:
+
+آمریکا پیشنهاد ۱۴ ماده‌ای جمهوری اسلامی برای پایان جنگ را رد کرده و بار دیگر بر مواضع خود، به ویژه درباره پرونده هسته‌ای تأکید کرده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عراقچی:
+
+اگر آنها بخواهند به جنگ بازگردند، این به خودشان بستگی دارد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+تنها کشورهایی که قادر به خارج کردن غبار هسته‌ای از ایران هستند، آمریکا و چین هستند.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20189
 
@@ -182,52 +212,5 @@
 آمریکا با راه نظامی هرگز نمیتونه مارو شکست بده و به اهدافش برسه ، ولی اگه دیپلماسی رو امتحان میکرد شاید متفاوت بود
 
 @IranianMinds
-</div>
-
-## IranianMinds — post 20171
-
-<div align="center"><img src="telegram/content/IranianMinds_20171.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نیویورک پست:
-
-اف‌بی‌آی جایزه‌ای ۲۰۰ هزار دلاری برای دستگیری مونیکا ویت، مأمور سابق اطلاعات نیروی هوایی آمریکا که از سال ۲۰۱۹ متهم به جاسوسی برای ایران است، اعلام کرده است
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20170
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲#اپلیکیشن اندروید سایت جهانی دربی بت
-👍اسپانسر لیگ انگلیس👍
-🔥امکان شارژ امن از طریق کارت بانکی
-➖➖➖➖➖➖➖➖➖
-🪙همین حالا عضو شوید 👇
-https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20169
-
-<div align="center"><img src="telegram/content/IranianMinds_20169.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
-
-👍دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-re25
-🔔کانال دربی بت :
-🪙https://t.me/+aCbq7yy8QY80NzQ0
 </div>
 

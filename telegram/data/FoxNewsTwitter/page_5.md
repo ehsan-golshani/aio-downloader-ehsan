@@ -1,8 +1,16 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 08:34
+📅 آخرین بروزرسانی: 1405/02/26 15:14
 
 ---
+
+## FoxNewsTwitter — post 341720
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341720.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+</div>
 
 ## FoxNewsTwitter — post 341716
 
@@ -265,15 +273,5 @@ Fox News (Twitter/X)
 NOW: President Trump calls Chinese President Xi Jinping a "great leader."
 
 "Sometimes people don't like me saying it, but I say it anyway, because it's true — I always say the truth."
-</div>
-
-## FoxNewsTwitter — post 341697
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341697.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump expressed high hopes for U.S.-China relations at the Great Hall of the People, telling President Xi Jinping it is an honor to be his friend and predicting the partnership will be stronger than ever before.
 </div>
 

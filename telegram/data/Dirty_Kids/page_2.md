@@ -1,8 +1,88 @@
 # آرشیو کانال Dirty_Kids - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 14:30
+📅 آخرین بروزرسانی: 1405/02/26 15:29
 
 ---
+
+## Dirty_Kids — post 389529
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389529.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این بانو که یکم حشری‌طور میزنه امروز حاشیه ساز بوده
+
+یه عده دفاع میکنن ازش
+یه عده هیت میدن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389528
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389528.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طبق گفته دو مقام خاورمیانه‌ای، آمریکا و اسرائیل دارن آماده‌سازی خیلی گسترده‌ای انجام می‌دن. (بزرگ‌ترین سطح از وقتی که آتش‌بس برقرار شده)
+
+این آماده‌سازی‌ها انقدر جدیه که ممکنه از هفته آینده دوباره حملات شروع بشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389526
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389526.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389526.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز یکی تو فضای مجازی با هوش مصنوعی یه عکس از ترامپ و ایلان ماسک زیر پرچم داس و چکشِ کمونیست ساخت؛
+
+بعد تو صداوسیما، خانعلی زاده (کارشناس روابط خارجی و همراه تیم مذاکره کننده تو سفر به پاکستان) خیلی جدی تحلیل کرد که این عکس خروجی سفر ترامپه و این یعنی آمریکا همیشه زیرخوابِ چینه...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389525
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389525.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تراپی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389524
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389524.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389524.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوب شد به حرف این 👆 گوش ندادن، اگه گوش میدادن الان موشعلی و فرمانده‌هاشو زنده بودن
+
+ولی بجاش رفتن به حرف رافئی‌پور و خوش‌چشم گوش دادن همشون کتلت شدن:)))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389522
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نوشته خرید حلقه ی نقره برای ازدواج رو نرمالایز کنید
+
+کشوری که نمیتونی یه حلقه طلا توش بخری، چرا باید توش ازدواج کنی؟!
+
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389521
 
@@ -188,93 +268,6 @@ https://bet120x.com/fa/?btag=971470
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مبارزه بانو هایده در برابر معین به کمک مدل Seedance 2.0 در سرویس PolloAI!
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389503
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389503.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389503.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بحران زیست‌محیطی در خلیج فارس در پی نشت نفت از جزیره مارو
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389502
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389502.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
-
-⚫️با بالاترین کیفیت ممکن⚡️ 
-⚫️100 هزار تومان شارژ هدیه 🎁
-⚫️پایین ترین قیمت گیگی 250🌐 
-⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
-
-بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
-
-بادبان راهتو باز می‌کنه⛵️
-
-G25
-🛡@BadBan_VPN | کانال 
-🤖@BadBan_VPNBot | ربات 
-📞@BadBan_VPNSupport | پشتیبانی
-</div>
-
-## Dirty_Kids — post 389501
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نمیدونم کیه این پسره و چه برنامه‌ای هست ولی داره درست میگه، این اقلیت ۵درصدی رافضی ولایت‌به‌باسن برای اینکه بمونن راضین همرو بکشن
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389500
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389500.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یعنی این فیلم The Odyssey که قراره بسازن مزخرف ترین فیلمی خواهد بود که تاحالا ساخته شده!
-نقش آشیل رو قراره یه زن تغییر جنسیت داده بازی کنه و نقش هلن رو قراره یه سیاه پوست لاغر.🥴
-حتی به دول آشیل و رنگ پوست هلن هم رحم نگردن این چپهای کسخل
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389498
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389498.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از پدرهای پویان مختاری هم پیدا شد
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389497
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389497.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389497.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کلا تو یه لیگ دیگه‌ست :)))
-
-ترامپ در پاسخ به این سؤال که آیا درباره حملات سایبری علیه آمریکا با شی جین‌پینگ حرف زده یا نه:
-
-'آره، بهش گفتم. اونم شروع کرد درباره کارایی که ما تو چین کردیم حرف زدن.
-خب می‌دونی، هر کاری اونا بکنن ما هم می‌کنیم. ما هم حسابی ازشون جاسوسی می‌کنیم.
-بهش گفتم ما یه عالمه کارها علیه شما می‌کنیم که اصلاً خبر ندارین.'
 
 
 @Dirty_Kids 👻

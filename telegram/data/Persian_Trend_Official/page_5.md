@@ -1,8 +1,33 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 14:27
+📅 آخرین بروزرسانی: 1405/02/26 15:25
 
 ---
+
+## Persian_Trend_Official — post 14143
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14143.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 مشاهده سامانه پدافندی چینی در دست سرباز اوکراینی
+
+💢تصاویری منتشر شده که یک سرباز اوکراینی را در حال استفاده از سامانه پدافند هوایی دوش‌پرتاب «اف‌ان-۱۶» ساخت چین نشان می‌دهد.
+
+▪️ «اف‌ان-۱۶» یک موشک دوش‌پرتاب کوتاه‌برد ضداهداف هوایی است
+
+▪️ این سامانه برای مقابله با:
+
+بالگردها
+پهپادها
+و هواگردهای کم‌ارتفاع طراحی شده است.
+
+نحوه رسیدن این سامانه چینی به نیروهای اوکراینی مشخص نیست و تاکنون توضیح رسمی درباره آن منتشر نشده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14142
 
@@ -362,21 +387,6 @@ https://farsnews.ir/Khate_energy/1778660394098111565/%D8%A7%D8%B2-%D8%A7%D8%AE%D
 
 ▪️ آنچه اکنون در منطقه رخ می‌دهد، ناشی از محاصره و اقدامات آمریکا است
 
-
-🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14111
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14111.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14111.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیویی از انفجار شناور کلاس سلیمانی نیرو دریایی سپاه در جنگ اخیر
 
 🫆:Tony
 

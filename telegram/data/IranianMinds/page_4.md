@@ -1,8 +1,55 @@
 # آرشیو کانال IranianMinds - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 14:28
+📅 آخرین بروزرسانی: 1405/02/26 15:26
 
 ---
+
+## IranianMinds — post 20171
+
+<div align="center"><img src="telegram/content/IranianMinds_20171.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نیویورک پست:
+
+اف‌بی‌آی جایزه‌ای ۲۰۰ هزار دلاری برای دستگیری مونیکا ویت، مأمور سابق اطلاعات نیروی هوایی آمریکا که از سال ۲۰۱۹ متهم به جاسوسی برای ایران است، اعلام کرده است
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20170
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+👍اسپانسر لیگ انگلیس👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 20169
+
+<div align="center"><img src="telegram/content/IranianMinds_20169.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
+
+👍دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+re25
+🔔کانال دربی بت :
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
 
 ## IranianMinds — post 20168
 
@@ -206,29 +253,5 @@ CDN SNI Hostname: python.org
 مردم کوبا روزانه حدود ۲۳ تا ۲۲ ساعت برق ندارن تو‌ بعضی مناطق
 
 @IranianMinds
-</div>
-
-## IranianMinds — post 20149
-
-<div align="center"><img src="telegram/content/IranianMinds_20149.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کان‌نیوز:
-
-اسرائیل معتقد است که ترامپ وقتی از چین برگرده، درباره حمله مجدد به ایران تصمیم‌گیری میکنه.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20148
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 خبرگزاری ایسنا : از الان دیگه باید با قیمت قطعی خودرو خداحافظی کنید؛ در طرح جدید ایران ‌خودرو و سایپا، خریداران باید نصف پول رو از اول بدن بدون اینکه حتی بفهمن قیمت نهایی زمان تحویل خودرو براشون چقدره ! @IranianMinds
-</div>
-
-## IranianMinds — post 20147
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ShirOKhorshid-2026.05.14.apk
 </div>
 

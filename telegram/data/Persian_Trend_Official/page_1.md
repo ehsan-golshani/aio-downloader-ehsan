@@ -1,8 +1,16 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 14:27
+📅 آخرین بروزرسانی: 1405/02/26 15:25
 
 ---
+
+## Persian_Trend_Official — post 14236
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://castbox.fm/vi/945846191
+
+لطفا چک کنید ببنید دسترسی دارید ؟
+</div>
 
 ## Persian_Trend_Official — post 14235
 
@@ -335,11 +343,5 @@ https://castbox.fm/channel/%D9%BE%D8%B1%D8%B4%DB%8C%D9%86-%D8%AA%D8%B1%D9%86%D8%
 
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://youtube.com/live/MneL4ZkKs1A?feature=share
 </div>
 

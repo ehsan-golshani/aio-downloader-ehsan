@@ -1,8 +1,37 @@
 # آرشیو کانال WithYashar - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 14:15
+📅 آخرین بروزرسانی: 1405/02/26 15:13
 
 ---
+
+## WithYashar — post 11286
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ به فاکس‌نیوز: ما می‌توانستیم پل‌ها و شبکه‌های برق ایران را نابود کنیم و می‌توانیم ظرف دو روز همه چیز را در آنجا از بین ببریم.
+@withyashar
+</div>
+
+## WithYashar — post 11285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ به فاکس‌نیوز : ما ارتش ایران را نابود کرده‌ایم و شاید باید یک پاکسازی سبک انجام دهیم.
+میتوانیم نیروگاه‌های ایران را تنها در دو روز از بین ببریم
+اگر ایران اورانیوم های غنی شده خودش رو تحویل نده وارد ایران میشیم
+@withyashar
+</div>
+
+## WithYashar — post 11284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Voice message
+</div>
+
+## WithYashar — post 11283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مارو به قاهره میبره؟
+خب پس بذار هرچی میخواد بگه
+</div>
 
 ## WithYashar — post 11282
 
@@ -129,33 +158,5 @@
 
 رسانه‌ها می‌گویند این سفر احتمالاً فقط یک روز طول می‌کشد و بیشتر در قالب یک دیدار کاری و هماهنگی سیاسی انجام می‌شود. همچنین برخلاف سفر ترامپ، ظاهراً خبری از تشریفات بزرگ، رژه رسمی یا استقبال بسیار گسترده نخواهد بود و این سفر در سطحی ساده‌تر و کم‌نمایش‌تر برگزار می‌شود
 @withyashar
-</div>
-
-## WithYashar — post 11266
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar part2
-</div>
-
-## WithYashar — post 11265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در تروث : «وقتی رئیس‌جمهور شی با بیانی بسیار سنجیده از ایالات متحده به‌عنوان کشوری که شاید در حال افول باشد یاد کرد، منظور او آسیب عظیمی بود که ما در چهار سال دوران جو بایدنِ خواب‌آلود و دولت بایدن متحمل شدیم؛ و در این مورد، او صددرصد درست می‌گفت. کشور…
-</div>
-
-## WithYashar — post 11264
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar part1
-</div>
-
-## WithYashar — post 11263
-
-<div align="center"><video src="telegram/content/WithYashar_11263.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11263.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar منتظر ری اکشننن
 </div>
 

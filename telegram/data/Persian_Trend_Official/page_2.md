@@ -1,8 +1,14 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 14:27
+📅 آخرین بروزرسانی: 1405/02/26 15:25
 
 ---
+
+## Persian_Trend_Official — post 14212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://youtube.com/live/MneL4ZkKs1A?feature=share
+</div>
 
 ## Persian_Trend_Official — post 14211
 
@@ -276,11 +282,5 @@ https://youtube.com/live/MneL4ZkKs1A?feature=share
 
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14189
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ مدعی شد: رئیس جمهور چین به من اطمینان داد که با داشتن سلاح هسته‌ای توسط ایران مخالف است. 🔹من از رئیس جمهور چین چیزی در رابطه با ایران نخواستم. 🔹من از رئیس جمهور چین نخواستم که به ایران برای باز کردن تنگه هرمز فشار بیاورد. 🔹ظرف چند روز آینده در مورد…
 </div>
 

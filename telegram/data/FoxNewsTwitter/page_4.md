@@ -1,8 +1,20 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 08:34
+📅 آخرین بروزرسانی: 1405/02/26 15:14
 
 ---
+
+## FoxNewsTwitter — post 341743
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+"So when you make campaign statements, those aren't true? You're not being honest with your voters? ...What you said to the voters is not real. Doesn't count."
+
+Rep. Jim Jordan hammers Fairfax County Commonwealth's Attorney Stephen Descano over the removal of campaign promises from his website about taking “immigration consequences” into account while handling cases.
+
+Jordan blasts the prosecutor after an illegal immigrant with a lengthy criminal history was released by police and allegedly killed a man in his home a day later.
+</div>
 
 ## FoxNewsTwitter — post 341742
 
@@ -252,13 +264,5 @@ The People's Forum, tied to Shanghai-based Marxist mogul Neville Roy Singham's n
 Lawmakers say the group's funding raises "significant concerns" about "foreign influence or control."
 
 Story by @AsraNomani & @M_Dorgan
-</div>
-
-## FoxNewsTwitter — post 341720
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341720.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
 </div>
 

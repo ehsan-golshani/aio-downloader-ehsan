@@ -1,8 +1,40 @@
 # آرشیو کانال IranianMinds - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 14:28
+📅 آخرین بروزرسانی: 1405/02/26 15:26
 
 ---
+
+## IranianMinds — post 20107
+
+<div align="center"><img src="telegram/content/IranianMinds_20107.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ و رئیس جمهور‌ چین در معبد بهشت پکن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20105
+
+<div align="center"><img src="telegram/content/IranianMinds_20105.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 مراد ویسی :
+
+قصد دارم لیستی از قاتلان مردم ایران در دی ماه تهیه کنم و هر شب اسم هاشون رو‌ در لایو بخونم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20104
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 الجزیره :
+
+مذاکرات و صحبتای ترامپ و رئیس جمهور چین در تالار پکن پایان یافت
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20103
 
@@ -230,42 +262,6 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 محمد عباسی و دخترش فاطمه در دی‌ماه دستگیر شدند.
 محمد را بدون ملاقات آخر، امروز صبح اعدام کردند.
 جمهوری اسلامی روی خون مردمش حکومت می‌کند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴شهبازی، مجری صدا‌و‌سیما:
-
-بهترین کار نظام تو ۴۷ سال گذشته، ملی کردن اینترنت بود.
-
-ای حرومزاده ۱۰۰۰ پدر .
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20084
-
-<div align="center"><img src="telegram/content/IranianMinds_20084.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دیگه شد یه کسب درآمد داعم براشون و همه جا شروع کردن به فروش سیمکارت و اینترنت پرو !
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20083
-
-<div align="center"><img src="telegram/content/IranianMinds_20083.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عراقچی :
-
-در تلاشی آشکار برای ایجاد اختلاف، کویت به ‌صورت غیرقانونی به یک قایق ایرانی در خلیج فارس حمله کرده و ۴ نفر از شهروندان ما را بازداشت کرده است. این اقدام غیرقانونی در نزدیکی جزیره ‌ای رخ داده که آمریکا از آن برای حمله به ایران استفاده میکند.
-
-ما خواستار آزادی فوری شهروندان ‌مان هستیم و حق پاسخگویی را برای خود محفوظ می‌دانیم.
 
 @IranianMinds
 </div>
