@@ -1,8 +1,35 @@
 # آرشیو کانال FarsiVOA - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 02:01
+📅 آخرین بروزرسانی: 1405/02/26 03:25
 
 ---
+
+## FarsiVOA — post 217779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️شک مقام‌های جمهوری اسلامی به یکدیگر شکاف در حکومت را عمیق‌تر کرد؛ جنگ تهدیدها و تهمت‌ها
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️نگرانی مسکو از گسترش تروریسم در افغانستان و پیامدهای آن برای ایران و دیگر کشورها
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217777
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺دونالد ترامپ: نابودی نظامی جمهوری اسلامی ادامه خواهد یافت
+
+◾️دونالد ترامپ، رئیس جمهوری آمریکا در پستی که در شکبه اجتماعی تروت‌سوشال منتشر کرد گفت نابودی نظامی جمهوری اسلامی ایران «ادامه» خواهد یافت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150091.html
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217776
 
@@ -163,41 +190,5 @@ https://ir.voanews.com/a/high-risk-countries-us-department-of-state-travel-warni
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شکریا برادوست در برنامه تفسیر خبر: تمرکز بر ملی‌گرایی در چین افزایش یافته است
-</div>
-
-## FarsiVOA — post 217759
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺پرزیدنت ترامپ: رئیس جمهوری چین گفته که به رژیم ایران تجهیزات نظامی نخواهد داد
-
-◾️پرزیدنت ترامپ می‌گوید که شی جین‌پینگ، رئیس‌ جمهوری چین، متعهد شده است پس از مذاکرات سطح بالای دو رهبر، ارسال تجهیزات نظامی برای رژیم ایران را متوقف کند.
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/iran-us-trump-china-chi-weapon-hannity-/8150025.html?withmediaplayer=1
-</div>
-
-## FarsiVOA — post 217758
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺علی فالح الزیدی نخست‌وزیر جدید عراق شد
-
-▪️پارلمان عراق روز پنجشنبه ۲۴ اردیبهشت، به دولت جدید این کشور به ریاست علی فالح الزیدی و ۱۴ وزیر کابینه او رای اعتماد داد.
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/iraq-new-prime-minister-ali-alfateh-alzeidi-iran/8150045.html/?nocach=1
-</div>
-
-## FarsiVOA — post 217757
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺تعیین پاداش ۱۵ میلیون دلاری برای اطلاعات درباره شبکه‌‌های مالی سپاه پاسداران
-
-◾️وزارت امور خارجه ایالات متحده آمریکا روز پنجشنبه ۲۴ اردیبهشت، با انتشار بیانیه‌ای اعلام کرد که در چارچوب برنامه «پاداش برای عدالت» این وزارتخانه «۱۵ میلیون دلار پاداش برای اطلاعات درباره شبکه‌‌های مالی سپاه پاسداران در نظر گرفته شده است.»
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/million-bounty-iran-irgc-award/8150041.html?withmediaplayer=1
 </div>
 

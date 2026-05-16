@@ -1,8 +1,55 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 02:14
+📅 آخرین بروزرسانی: 1405/02/26 03:15
 
 ---
+
+## WithYashar — post 11366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ: افزایش قیمت‌ بنزین مرتبط با جنگ ایران «درد کوتاه‌مدت» است که بسیار کمتر از چیزی است که مردم انتظار داشتن.
+
+وقتی به کسی میگید که باید کمی بیشتر برای بنزین در یک دوره بسیار کوتاه بپردازید، چون میخوایم جلوی تهدید تکه‌تکه شدن توسط یک دیوانه، یک فرد دیوانه رو بگیریم، و آنها دیوانه هستن با استفاده از سلاح‌های هسته‌ای، همه میگن که این خوب است.
+@withyashar
+</div>
+
+## WithYashar — post 11365
+
+## WithYashar — post 11364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صادق هدایت میگه دیگه
+میگه اگه کارت با سر و کله زدن با ادماس میفهمی چه ملت شریف زبون نفهمی داریم
+</div>
+
+## WithYashar — post 11363
+
+<div align="center"><video src="telegram/content/WithYashar_11363.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11363.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اف‌بی‌آی ترامپ یک توطئه تروریستی بزرگ را که قرار بود توسط یک فرمانده شبه‌نظامی تحت حمایت ایران در خاک ایالات متحده، کانادا و اروپا انجام شود، خنثی کرده است.
+محمد السعدی - رهبر کتائب حزب‌الله اسلام‌گرا - بیش از ۲۰ حمله را برنامه‌ریزی کرده بود. هدف او اماکن یهودی، از جمله یکی در نیویورک بود.
+جان‌های بیشتری نجات یافت
+«بنابراین او به اینجا آورده شد و امروز زودتر در دادگاه حاضر شد.»
+می خواهم در مورد این عملیات محتاط باشم تا کسی را به خطر نیندازم، اما همین کافی است که بگویم این تلاشی بود که نه تنها اف‌بی‌آی، بلکه شرکای اجرای قانون ما در خارج از کشور را نیز شامل می‌شد.
+@withyashar
+</div>
+
+## WithYashar — post 11361
+
+<div align="center"><video src="telegram/content/WithYashar_11361.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11361.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ: ما ۹ تا دوربین مختلف در فضا روی سایت هسته ای ایران داریم
+
+می‌تونیم اسم طرف رو هم بخونیم
+مثلاً اگه اسمش محمد باشه، ‌که خب بیشترشون محمدن، تقریباً می‌تونیم حدس بزنیم که حدود ۵۰٪ اطلاعاتش درست در میاد
+@withyashar
+</div>
 
 ## WithYashar — post 11360
 
@@ -88,35 +135,4 @@
 ## WithYashar — post 11347
 
 ## WithYashar — post 11346
-
-## WithYashar — post 11345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک‌تایمز به نقل از ۲ مقام امنیتی:
-
-آمریکا و اسرائیل در حال آماده‌سازی گسترده برای احتمال ازسرگیری حملات علیه جمهوری اسلامی هستند،
-
-این حمله ممکن است از هفته آینده آغاز شود
-@withyashar
-</div>
-
-## WithYashar — post 11344
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه مسیج درست اگه تو دایرکت دیدی به من بگو ! انگار‌من کشیش کلیسام ! یا کلانتر محل !
-</div>
-
-## WithYashar — post 11343
-
-## WithYashar — post 11342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب حمله‌ست؟
-</div>
-
-## WithYashar — post 11341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب حمله‌ست؟
-</div>
 

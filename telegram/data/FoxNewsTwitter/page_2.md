@@ -1,8 +1,60 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 02:15
+📅 آخرین بروزرسانی: 1405/02/26 03:16
 
 ---
+
+## FoxNewsTwitter — post 341783
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌Fox News (Twitter/X)
+
+https://www.foxnews.com/politics/longtime-democratic-rep-steve-cohen-announces-end-re-election-bid
+</div>
+
+## FoxNewsTwitter — post 341782
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341782.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341782.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH: The FIFA World Cup is less than a month away, and the FBI says it’s training officers to use electronic defense capabilities that can intercept drones over stadiums.
+
+Fox News got behind-the-scenes access to the FBI’s Redstone facility in Huntsville, where agents demonstrated how they jam and hijack suspicious drones to redirect them away from sensitive sites.
+
+@foymeetsworld reports the latest on the ground in Alabama. | @GillianHTurner @AmericaNewsroom
+</div>
+
+## FoxNewsTwitter — post 341781
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341781.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: U.S. Attorney Jeanine Pirro unveils safety plans for America 250 events https://twitter.com/i/broadcasts/1PKqrEmdrknGb
+</div>
+
+## FoxNewsTwitter — post 341780
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341780.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341780.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump defends the timeline of America’s conflict with Iran and highlights the devastating impact of U.S. strikes during an exclusive interview with @BretBaier.
+
+The President dismissed critics who claim he underestimated the situation, noting that the U.S. has maintained significant restraint by leaving critical infrastructure like electricity and Kharg Island oil valves intact despite having the capability to "knock that all out in two days."
+
+"I didn't underestimate anything. We hit them unbelievably hard. Look, we left their bridges. We left their electricity capacity. We can knock that all out in two days. Two days. Everything. We left Kharg Island, other than I said, hit it except for the valves where the oil comes out."
+
+Watch the full interview at 6 p.m. ET on ‘Special Report”’
+</div>
 
 ## FoxNewsTwitter — post 341779
 
@@ -216,51 +268,5 @@ NOW: President Trump says he and Chinese President Xi "feel very similar on Iran
 Fox News (Twitter/X)
 
 NOW: President Trump says he and Chinese President Xi agree they do not want Iran to obtain a nuclear weapon and want the Strait of Hormuz to remain open.
-</div>
-
-## FoxNewsTwitter — post 341760
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341760.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-MOMENTS AGO: President Trump meets with President Xi Jinping in China https://twitter.com/i/broadcasts/1RJjpznjbDVKw
-</div>
-
-## FoxNewsTwitter — post 341759
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341759.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341759.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump arrives at Zhongnanhai Garden to meet with Chinese President Xi.
-</div>
-
-## FoxNewsTwitter — post 341758
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-President Trump says he came up with a nickname, "Dumocrats," after talking about top Democratic leader Hakeem Jeffries. || @seanhannity
-</div>
-
-## FoxNewsTwitter — post 341757
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341757.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-FOX NEWS REPORT: President Trump and President Xi Jinping sat for an over two-hour meeting in Beijing for a discussion on key topics, including trade and Taiwan.
-
-Secretary of State Rubio says Washington's stance on Taiwan remains the same, @BillMelugin_ reports.
 </div>
 

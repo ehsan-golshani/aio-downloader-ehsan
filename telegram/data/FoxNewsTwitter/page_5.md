@@ -1,8 +1,66 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 02:15
+📅 آخرین بروزرسانی: 1405/02/26 03:16
 
 ---
+
+## FoxNewsTwitter — post 341714
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341714.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341714.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: President Trump gives a toast to President Xi and invites him to the White House for an official visit in September:
+
+"Thank you again, President Xi, for this beautiful welcome... It is my honor to extend an invitation to you and Madam Peng to visit us at the White House, September 24th, and we look forward to it."
+
+"I now like to raise a glass and propose a toast to the rich and enduring ties between the American and Chinese people. It's a very special relationship, and I want to thank you again. This has been an amazing period of time. Thank you, President Xi."
+</div>
+
+## FoxNewsTwitter — post 341713
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341713.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341713.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+HAPPENING NOW: "The relationship between the American and Chinese people goes all the way back to America's founding. The first American consul to China, Samuel Shaw, arrived on the first American trading ship to reach these shores in 1784."
+
+"Two and a half centuries later, that first connection has grown into one of the most consequential relationships in world history." - President Trump
+</div>
+
+## FoxNewsTwitter — post 341712
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341712.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341712.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST IN: "From the beginning, our citizens have shared a deep sense of mutual respect.
+
+"Founding Father Benjamin Franklin published The Sayings of Confucius and his colonial newspaper and today sculpture. Recognizing that ancient Chinese sage is carved into the face of the United States Supreme Court very proudly." –President Trump
+</div>
+
+## FoxNewsTwitter — post 341711
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341711.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341711.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+RT @SpecialReport: 🚨WATCH: "Big Brother is watching."
+
+Our team with @BretBaier is on the ground in Beijing, and the level of surveillance is unlike anything we’ve seen. From 20+ cameras on a single street corner to instant fines sent straight to your phone, the CCP sees everything. They call it "safety"—but what’s the real cost of social scoring?
+</div>
 
 ## FoxNewsTwitter — post 341710
 
@@ -219,53 +277,5 @@ NOW: President Trump says "it's an honor" after meeting Chinese President Xi Jin
 Fox News (Twitter/X)
 
 NOW: President Trump thanks Chinese President Xi Jinping for welcoming him to Beijing, saying he was particularly impressed with the crowd of cheering children during the welcome ceremony.
-</div>
-
-## FoxNewsTwitter — post 341694
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341694.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341694.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump watches a ceremony with Chinese President Xi Jinping after arriving at the Great Hall of People in Beijing.
-</div>
-
-## FoxNewsTwitter — post 341693
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341693.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341693.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: President Trump receives a warm welcome at the Great Hall of People in Beijing for his meeting with President Xi Jinping.
-</div>
-
-## FoxNewsTwitter — post 341692
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: Chinese President Xi Jinping shakes hands with Secretary Rubio, Secretary Bessent and more in China as he walks with President Trump.
-</div>
-
-## FoxNewsTwitter — post 341691
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341691.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341691.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: President Trump meets Chinese President Xi Jinping at the Great Hall of People in Beijing.
 </div>
 

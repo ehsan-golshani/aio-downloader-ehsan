@@ -1,8 +1,70 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 02:15
+📅 آخرین بروزرسانی: 1405/02/26 03:16
 
 ---
+
+## FoxNewsTwitter — post 341671
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341671.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Senate confirms Kevin Warsh as Federal Reserve Chair in a 54–45 vote.
+
+Warsh replaces Jerome Powell, who will stay on the board as a Fed governor, despite repeated criticism from President Trump, who has been pushing the Fed to cut rates and accused Powell of making decisions "too late."
+
+Democrat John Fetterman was the only member of his party to join Republicans as the lone vote from his party to back Trump’s pick.
+</div>
+
+## FoxNewsTwitter — post 341670
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341670.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341670.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Vice President JD Vance shuts down talk of a "joint ticket" with Secretary of State Marco Rubio, insisting he is focused solely on the job the American people already elected him to do:
+
+"There are a few topics that I want to talk about less than what office I'm going to run for years down the road when I'm having a good time and trying to do good work in the job that the American people already elected me to do.”
+
+“I've answered this question, probably in any number of ways, I love Marco. I think he's a great secretary of state. He's become a very, very dear friend. But I think both of us are very much focused on accomplishing the American people's business right now.”
+</div>
+
+## FoxNewsTwitter — post 341669
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341669.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341669.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: "We believe that at least half of the hospices in the entire area around Los Angeles are fraudulent."
+
+"Today we announce 800 of those hospices have been suspended. 800 hospices that last year charged the federal taxpayer $1.4 billion will no longer be paid." - CMS Administrator Dr. Mehmet Oz
+</div>
+
+## FoxNewsTwitter — post 341668
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341668.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341668.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+VP VANCE: "So you're saying that we kicked off 800 fraudulent healthcare providers off of the Medicare system, and not a single one of them called the government and said, 'hey, you made a mistake?'"
+
+DR. OZ: "We've had a handful of calls. We're not sure they're legitimate yet, but it's less than 20 out of 800 and we're auditing them."
+
+VP VANCE:" Unbelievable... At least 780 are not even trying to claim that they're not fraudulent?"
+
+"Those are businesses that we were giving hundreds of millions, in some cases billions of dollars to, not to provide services, but to make a fraudster rich. It's just completely insane."
+</div>
 
 ## FoxNewsTwitter — post 341667
 

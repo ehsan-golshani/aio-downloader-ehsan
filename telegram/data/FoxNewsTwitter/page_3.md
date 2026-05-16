@@ -1,8 +1,54 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 02:15
+📅 آخرین بروزرسانی: 1405/02/26 03:16
 
 ---
+
+## FoxNewsTwitter — post 341760
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341760.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+MOMENTS AGO: President Trump meets with President Xi Jinping in China https://twitter.com/i/broadcasts/1RJjpznjbDVKw
+</div>
+
+## FoxNewsTwitter — post 341759
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341759.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341759.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Trump arrives at Zhongnanhai Garden to meet with Chinese President Xi.
+</div>
+
+## FoxNewsTwitter — post 341758
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+President Trump says he came up with a nickname, "Dumocrats," after talking about top Democratic leader Hakeem Jeffries. || @seanhannity
+</div>
+
+## FoxNewsTwitter — post 341757
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341757.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: President Trump and President Xi Jinping sat for an over two-hour meeting in Beijing for a discussion on key topics, including trade and Taiwan.
+
+Secretary of State Rubio says Washington's stance on Taiwan remains the same, @BillMelugin_ reports.
+</div>
 
 ## FoxNewsTwitter — post 341756
 
@@ -246,67 +292,5 @@ Fox News (Twitter/X)
 Eric Church returned to his alma mater, UNC Chapel Hill, and gave graduates a message bigger than music:
 
 The country star told graduates that faith is the “low E” of life: the foundation every chord rests on, especially when the world gets overwhelming.
-</div>
-
-## FoxNewsTwitter — post 341740
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341740.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341740.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-FIRST ON FOX: Buster Murdaugh was spotted Thursday on the porch of his South Carolina home, one day after the South Carolina Supreme Court ruled that misconduct by a court official tainted his father, Alex Murdaugh’s, 2023 trial.
-
-The ruling overturned Alex Murdaugh’s murder conviction, which had sent him to prison for life.
-
-Despite the legal win Wednesday, Murdaugh will not be walking free - he remains behind bars serving lengthy sentences for a string of financial crimes that cemented his fall from power.
-
-Murdaugh was sentenced to 27 years in state prison after pleading guilty to 22 financial crimes. He also got 40 years in federal prison for fraud-related charges, which he is serving at the same time. | @FoxTrueCrime @FoxUSNews
-</div>
-
-## FoxNewsTwitter — post 341739
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌Fox News (Twitter/X)
-
-https://www.foxnews.com/politics/us-border-patrol-chief-mike-banks-abruptly-resigns-fox-news-learns
-</div>
-
-## FoxNewsTwitter — post 341738
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341738.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341738.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-FIRST ON FOX: Buster Murdaugh was spotted Thursday on the porch of his South Carolina home, one day after the South Carolina Supreme Court ruled that misconduct by a court official tainted his father, Alex Murdaugh’s, 2023 trial.
-
-The ruling overturned Alex Murdaugh’s murder conviction, which had sent him to prison for life.
-
-Despite the legal win Wednesday, Murdaugh will not be walking free - he remains behind bars serving lengthy sentences for a string of financial crimes that cemented his fall from power.
-
-Murdaugh was sentenced to 27 years in state prison after pleading guilty to 22 financial crimes. He also got 40 years in federal prison for fraud-related charges, which he is serving at the same time.
-</div>
-
-## FoxNewsTwitter — post 341737
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341737.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341737.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump reveals to @seanhannity that Chinese President Xi Jinping has committed to withholding military equipment from Iran following their high-level discussions.
-
-Trump noted that while China continues to purchase Iranian oil, Xi expressed a strong desire to see the Strait of Hormuz remain open and free of interference.
-
-"He said he’s not going to give military equipment, that’s a big statement... But at the same time, he said you know they buy a lot of their oil there and they’d like to keep doing that. He’d like to see Hormuz straight opened."
-
-The full interview airs tonight at 9pm ET.
 </div>
 

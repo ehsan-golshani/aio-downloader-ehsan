@@ -1,8 +1,70 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 02:15
+📅 آخرین بروزرسانی: 1405/02/26 03:16
 
 ---
+
+## FoxNewsTwitter — post 341740
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341740.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341740.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+FIRST ON FOX: Buster Murdaugh was spotted Thursday on the porch of his South Carolina home, one day after the South Carolina Supreme Court ruled that misconduct by a court official tainted his father, Alex Murdaugh’s, 2023 trial.
+
+The ruling overturned Alex Murdaugh’s murder conviction, which had sent him to prison for life.
+
+Despite the legal win Wednesday, Murdaugh will not be walking free - he remains behind bars serving lengthy sentences for a string of financial crimes that cemented his fall from power.
+
+Murdaugh was sentenced to 27 years in state prison after pleading guilty to 22 financial crimes. He also got 40 years in federal prison for fraud-related charges, which he is serving at the same time. | @FoxTrueCrime @FoxUSNews
+</div>
+
+## FoxNewsTwitter — post 341739
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌Fox News (Twitter/X)
+
+https://www.foxnews.com/politics/us-border-patrol-chief-mike-banks-abruptly-resigns-fox-news-learns
+</div>
+
+## FoxNewsTwitter — post 341738
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341738.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341738.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+FIRST ON FOX: Buster Murdaugh was spotted Thursday on the porch of his South Carolina home, one day after the South Carolina Supreme Court ruled that misconduct by a court official tainted his father, Alex Murdaugh’s, 2023 trial.
+
+The ruling overturned Alex Murdaugh’s murder conviction, which had sent him to prison for life.
+
+Despite the legal win Wednesday, Murdaugh will not be walking free - he remains behind bars serving lengthy sentences for a string of financial crimes that cemented his fall from power.
+
+Murdaugh was sentenced to 27 years in state prison after pleading guilty to 22 financial crimes. He also got 40 years in federal prison for fraud-related charges, which he is serving at the same time.
+</div>
+
+## FoxNewsTwitter — post 341737
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341737.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341737.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: President Trump reveals to @seanhannity that Chinese President Xi Jinping has committed to withholding military equipment from Iran following their high-level discussions.
+
+Trump noted that while China continues to purchase Iranian oil, Xi expressed a strong desire to see the Strait of Hormuz remain open and free of interference.
+
+"He said he’s not going to give military equipment, that’s a big statement... But at the same time, he said you know they buy a lot of their oil there and they’d like to keep doing that. He’d like to see Hormuz straight opened."
+
+The full interview airs tonight at 9pm ET.
+</div>
 
 ## FoxNewsTwitter — post 341736
 
@@ -196,63 +258,5 @@ The setting emphasizes ceremony and continuity between the two nations against a
 Fox News (Twitter/X)
 
 WATCH: @BretBaier goes inside a Beijing convenience store to test out their new humanoid robot worker. It's moving a little slow for now, but with 50 different locations already active, China is making a massive play for AI dominance. | @SpecialReport
-</div>
-
-## FoxNewsTwitter — post 341714
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341714.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341714.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: President Trump gives a toast to President Xi and invites him to the White House for an official visit in September:
-
-"Thank you again, President Xi, for this beautiful welcome... It is my honor to extend an invitation to you and Madam Peng to visit us at the White House, September 24th, and we look forward to it."
-
-"I now like to raise a glass and propose a toast to the rich and enduring ties between the American and Chinese people. It's a very special relationship, and I want to thank you again. This has been an amazing period of time. Thank you, President Xi."
-</div>
-
-## FoxNewsTwitter — post 341713
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341713.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341713.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-HAPPENING NOW: "The relationship between the American and Chinese people goes all the way back to America's founding. The first American consul to China, Samuel Shaw, arrived on the first American trading ship to reach these shores in 1784."
-
-"Two and a half centuries later, that first connection has grown into one of the most consequential relationships in world history." - President Trump
-</div>
-
-## FoxNewsTwitter — post 341712
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341712.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341712.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-JUST IN: "From the beginning, our citizens have shared a deep sense of mutual respect.
-
-"Founding Father Benjamin Franklin published The Sayings of Confucius and his colonial newspaper and today sculpture. Recognizing that ancient Chinese sage is carved into the face of the United States Supreme Court very proudly." –President Trump
-</div>
-
-## FoxNewsTwitter — post 341711
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341711.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341711.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-RT @SpecialReport: 🚨WATCH: "Big Brother is watching."
-
-Our team with @BretBaier is on the ground in Beijing, and the level of surveillance is unlike anything we’ve seen. From 20+ cameras on a single street corner to instant fines sent straight to your phone, the CCP sees everything. They call it "safety"—but what’s the real cost of social scoring?
 </div>
 

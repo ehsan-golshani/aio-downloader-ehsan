@@ -1,8 +1,35 @@
 # آرشیو کانال FarsiVOA - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 02:01
+📅 آخرین بروزرسانی: 1405/02/26 03:25
 
 ---
+
+## FarsiVOA — post 217687
+
+<div align="center"><video src="telegram/content/FarsiVOA_217687.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217687.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ادامه خاموشی اینترنت و اعدام‌ها درایران؛ واکنش کاربران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️مراسم استقبال رسمی از دونالد ترامپ رئیس جمهوری آمریکا، در چین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217685
+
+<div align="center"><img src="telegram/content/FarsiVOA_217685.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا روز پنج‌شنبه به وقت پکن مورد استقبال رسمی شی جین‌پینگ، رئیس جمهوری چین قرار گرفت. آقای ترامپ در راس یک هئیت عالی‌رتبه سیاسی و اقتصادی وارد چین شده است. انتظار می‌رود که مسئله تنگه هرمز یکی از مسائل مورد گفت‌وگو در این سفر باشد.
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217684
 
@@ -159,32 +186,6 @@ https://ir.voanews.com/a/8149652.html
 
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/reuters-saudi-arabia-kuwait-attacked-iraq-iranian-militias/8149641.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️وام «ارزان» و کلان شرکت خودروسازی سایپا از مردم
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217666
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺جی‌دی‌ ونس در مورد در مذاکرات با جمهوری اسلامی: فکر می‌کنم پیشرفت‌هایی حاصل شده است
-
-▪️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز چهارشنبه در گفت‌وگو با خبرنگاران گفت که در مذاکرات با جمهوری اسلامی پیشرفت‌هایی حاصل شده است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149643.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️در برنامه تفسیر خبر امروز، مهدی آقازمانی با کارشناسان مهمان، درباره سفر تاریخی پرزیدنت ترامپ به چین و موضوع ایران به عنوان یکی از محورهای گفتگوی رهبران دو کشور ، گفتگو می‌کند
 @FarsiVOA
 </div>
 

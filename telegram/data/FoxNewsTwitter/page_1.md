@@ -1,8 +1,58 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 02:15
+📅 آخرین بروزرسانی: 1405/02/26 03:16
 
 ---
+
+## FoxNewsTwitter — post 341805
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341805.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341805.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: “All I can say is, that was a great success.”
+
+President Trump returned to the White House after his trip to China, telling reporters “we made great deals” and calling the visit a historic moment.
+
+Then he teased more to come: “A lot of things have happened and you’ll be hearing about them.”
+</div>
+
+## FoxNewsTwitter — post 341804
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341804.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: Alexandria Ocasio-Cortez and Chris Rabb hold rally in Philadelphia https://twitter.com/i/broadcasts/1vJpPrAbMmDJE
+</div>
+
+## FoxNewsTwitter — post 341803
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341803.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341803.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: President Trump is now back in the U.S.
+
+The president waved and pumped his fist as he stepped off Air Force One at Joint Base Andrews on Friday evening following his multi-day trip to China.
+
+Trump has said that he and Chinese President Xi Jinping largely agreed Iran must not have a nuclear weapon and that the Strait of Hormuz should be reopened.
+</div>
+
+## FoxNewsTwitter — post 341802
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: The U.S. Supreme Court has denied Virginia's attempt to get its state supreme court's decision tossing out controversial election map overturned. The state's Democratic leaders had redrawn congressional maps, giving their party 10 out of 11 seats.
+</div>
 
 ## FoxNewsTwitter — post 341801
 
@@ -221,57 +271,5 @@ Cardinal Dolan delivers a heartfelt message to the New York faithful during a go
 The Cardinal reflected on nearly two decades of service, calling the people of New York his "family" and offering a humble assessment of his many years in the church.
 
 "After 17 happy years, you're my family, you're my friends, and I love you, and I thank you. I thank you so much... Without Jesus, I could've done nothing. Without you, none of the meager accomplishments you so graciously pointed out could've ever happened."
-</div>
-
-## FoxNewsTwitter — post 341783
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌Fox News (Twitter/X)
-
-https://www.foxnews.com/politics/longtime-democratic-rep-steve-cohen-announces-end-re-election-bid
-</div>
-
-## FoxNewsTwitter — post 341782
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341782.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341782.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH: The FIFA World Cup is less than a month away, and the FBI says it’s training officers to use electronic defense capabilities that can intercept drones over stadiums.
-
-Fox News got behind-the-scenes access to the FBI’s Redstone facility in Huntsville, where agents demonstrated how they jam and hijack suspicious drones to redirect them away from sensitive sites.
-
-@foymeetsworld reports the latest on the ground in Alabama. | @GillianHTurner @AmericaNewsroom
-</div>
-
-## FoxNewsTwitter — post 341781
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341781.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: U.S. Attorney Jeanine Pirro unveils safety plans for America 250 events https://twitter.com/i/broadcasts/1PKqrEmdrknGb
-</div>
-
-## FoxNewsTwitter — post 341780
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341780.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341780.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump defends the timeline of America’s conflict with Iran and highlights the devastating impact of U.S. strikes during an exclusive interview with @BretBaier.
-
-The President dismissed critics who claim he underestimated the situation, noting that the U.S. has maintained significant restraint by leaving critical infrastructure like electricity and Kharg Island oil valves intact despite having the capability to "knock that all out in two days."
-
-"I didn't underestimate anything. We hit them unbelievably hard. Look, we left their bridges. We left their electricity capacity. We can knock that all out in two days. Two days. Everything. We left Kharg Island, other than I said, hit it except for the valves where the oil comes out."
-
-Watch the full interview at 6 p.m. ET on ‘Special Report”’
 </div>
 

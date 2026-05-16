@@ -1,8 +1,43 @@
 # آرشیو کانال IranIntlTV - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/02/26 02:20
+📅 آخرین بروزرسانی: 1405/02/26 03:21
 
 ---
+
+## IranIntlTV — post 337111
+
+<div align="center"><video src="telegram/content/IranIntlTV_337111.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337111.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شهرام خلدی، پژوهش‌گر تاریخ خاورمیانه و روابط بین‌الملل، گفت سفر ترامپ به پکن فرصت مناسبی است تا رییس‌جمهوری چین از بحران ایران به‌عنوان یک کارت برنده برای دستیابی به اهداف اقتصادی بزرگ‌تر و اعمال فشار بر ایالات متحده استفاده کند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337110
+
+<div align="center"><video src="telegram/content/IranIntlTV_337110.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337110.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میزان، رسانه قوه قضاییه جمهوری اسلامی، گزارش داد حکم اعدام محمد عباسی، شهروند ۵۵ ساله و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، چهارشنبه به اتهام «محاربه» اجرا شد. بر اساس گزارش نهادهای حقوق بشری، اعترافات مربوط به اتهام «قتل یکی از سرهنگ‌های نیروی انتظامی» در اعتراضات ملارد، تحت شکنجه و با تهدید به تعرض به دختر او گرفته شده بود.
+
+گفت‌وگو با پگاه بنی‌هاشمی، پژوهش‌گر ارشد حقوق
+@iranintltv
+</div>
+
+## IranIntlTV — post 337109
+
+<div align="center"><video src="telegram/content/IranIntlTV_337109.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337109.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری ایالات متحده، با ابراز خرسندی از سفر به چین و ادای احترام به اقدامات شی جین‌پینگ گفت واشینگتن و پکن همواره چالش‌ها و اختلافات خود را در سریع‌ترین زمان و با حسن نیت حل کرده‌اند.
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337103
 
@@ -222,48 +257,5 @@ https://youtu.be/HsShW7razys
 تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
 https://youtu.be/HsShW7razys
 @iranintltv
-</div>
-
-## IranIntlTV — post 337078
-
-<div align="center"><video src="telegram/content/IranIntlTV_337078.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337078.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حمید از بندرعباس: می‌روم خرید، ولی فقط می‌توانم به اندازهٔ جیبم خرید کنم، نه نیازم
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/HsShW7razys
-@iranintltv
-</div>
-
-## IranIntlTV — post 337077
-
-<div align="center"><video src="telegram/content/IranIntlTV_337077.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337077.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فریبرز از خوزستان: مردمی که اینترنت ندارند، چه کار کنند؟ ایرانی‌های خارج از کشور کمک کنند
-
-«یک ایران صدای شما را می‌شنود»
-دوشنبه تا پنجشنبه ۱۱ شب تهران
-از تلویزیون ایران اینترنشنال
-
-تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
-https://youtu.be/HsShW7razys
-@iranintltv
-</div>
-
-## IranIntlTV — post 337076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎧نسخه صوتی سیاست با مراد ویسی: ایران کارت بازی دیگران
-@iranintlTV
 </div>
 
