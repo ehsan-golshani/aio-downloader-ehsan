@@ -1,8 +1,32 @@
 # آرشیو کانال WithYashar - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 23:25
+📅 آخرین بروزرسانی: 1405/02/27 00:32
 
 ---
+
+## WithYashar — post 11381
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نشست آینده تکنولوژی در ایران، با حضور و سخنرانی شاهزاده رضا پهلوی امشب ۸:۳۰ به وقت تهران ۱۰ صبح به وقت غرب آمریکا سانفرانسیسکو
+@withyashar
+</div>
+
+## WithYashar — post 11380
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سنتکام به نیویورک تایمز : کشتی‌های ایرانی رو با ماهواره و چند روش دیگه ردیابی می‌کنیم
+@withyashar
+</div>
+
+## WithYashar — post 11379
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آسوشیتدپرس: بازگشت ناو هواپیمابر جرالد فورد به پایگاه پس از ۱۱ ماه مأموریت
+
+وزارت‌جنگ آمریکا اعلام کرد پیت هگست، وزیر جنگ، روز شنبه در پایگاه دریایی نورفولک در ویرجینیا از ناو هواپیمابر جرالد فورد و ۴۵۰۰ ملوان آن پس از ۱۱ ماه مأموریت استقبال می‌کند.
+این ناو ۳۲۶ روز در دریا بوده که طولانی‌ترین استقرار یک ناو هواپیمابر آمریکایی در ۵۰ سال گذشته و سومین رکورد از زمان جنگ ویتنام است.
+@withyashar
+</div>
 
 ## WithYashar — post 11378
 
@@ -144,32 +168,5 @@
 می‌تونیم اسم طرف رو هم بخونیم
 مثلاً اگه اسمش محمد باشه، ‌که خب بیشترشون محمدن، تقریباً می‌تونیم حدس بزنیم که حدود ۵۰٪ اطلاعاتش درست در میاد
 @withyashar
-</div>
-
-## WithYashar — post 11360
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ : ویتنام ۱۹ سال طول کشید، عراق حدود ۱۰ سال، کره ۷ سال، یکی دیگه ۱۴ سال، یکی ۱۲ سال، یکی هم ۹ سال
-- ما فقط دو ماه و نیم اونجا بودیم
-- چین هم این هفته سه تا نفتکش پر از نفت ایران رو برد، چون ما اجازه دادیم این اتفاق بیفته،شما اجازه دادید
-@withyashar
-</div>
-
-## WithYashar — post 11359
-
-<div align="center"><video src="telegram/content/WithYashar_11359.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11359.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجریان صداوسیما برداشتن یه تصویر هوش مصنوعی رو گذاشتن و دارن تحلیلش میکنن!
-😂😂
-@withyashar
-</div>
-
-## WithYashar — post 11358
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط حال من رو فروشنده های بازار که با مردم سر و کله میززند و جماعت زبون نفهم و میبینند درک میکنند
 </div>
 

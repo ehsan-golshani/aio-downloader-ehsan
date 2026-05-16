@@ -1,8 +1,40 @@
 # آرشیو کانال mwarmonitor - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 23:25
+📅 آخرین بروزرسانی: 1405/02/27 00:33
 
 ---
+
+## mwarmonitor — post 9178
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ساکنان نزدیک منطقه بیت‌شمش در اسرائیل از یک انفجار شدید و آتش‌سوزی بزرگی خبر دادند که از فاصله دور قابل مشاهده بود. 🔸شبکه Kan News اسرائیل بعداً اعلام کرد که این حادثه یک انفجار کنترل‌شده بوده که داخل یک کارخانه غیرنظامی انجام شده است. هیچ آسیب یا مجروحیتی…
+</div>
+
+## mwarmonitor — post 9177
+
+<div align="center"><video src="telegram/content/mwarmonitor_9177.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/mwarmonitor_9177.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ساکنان نزدیک منطقه بیت‌شمش در اسرائیل از یک انفجار شدید و آتش‌سوزی بزرگی خبر دادند که از فاصله دور قابل مشاهده بود.
+
+🔸شبکه Kan News اسرائیل بعداً اعلام کرد که این حادثه یک انفجار کنترل‌شده بوده که داخل یک کارخانه غیرنظامی انجام شده است. هیچ آسیب یا مجروحیتی گزارش نشده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9176
+
+<div align="center"><img src="telegram/content/mwarmonitor_9176.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ در سوشال تروث
+
+«این آرامشِ پیش از طوفان بود»
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9175
 
@@ -200,46 +232,6 @@
 🇵🇰🇮🇷سفر از پیش‌اعلام‌نشده وزیر کشور پاکستان به تهران، بیش از آنکه یک رایزنی سنتی باشد، یک آفند دیپلماتیک پیشگیرانه است. در عرف بین‌الملل، حضور فیزیکی یک مقام ارشد از کشوری غیردرگیر در پایتختِ هدف، به عنوان یک ضربه‌گیر امنیتی عمل می‌کند؛ چرا که واشنگتن برای اجتناب از تصاعد بحران و درگیر کردن پای اسلام‌آباد، دست به اقدام نظامی ناگهانی نخواهد زد.
 
 🔸این تحرک در کوتاه‌مدت به شدت تأثیرگذار است و عملاً زمان حیاتی برای تنش‌زدایی یا بازدارندگی موقت ایجاد می‌کند. با این حال، کارآمدی بلندمدت آن بستگی به این دارد که تهران و اسلام‌آباد از این فرصتِ تنفس و «سپر دیپلماتیک» برای تغییر محاسبات واشنگتن بهره ببرند، یا اینکه این سفر تنها یک مسکن موقت برای به تعویق انداختن بحران باشد.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9157
-
-<div align="center"><video src="telegram/content/mwarmonitor_9157.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/mwarmonitor_9157.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸با ورود وزیر جنگ آمریکا، پیت هگست، به نورفولک، ویرجینیا، ناو هواپیمابر «یو‌اس‌اس جرالد آر. فورد» پس از یک استقرار بیش از ۳۰۰ روزه به پایگاه خانگی خود بازگشت. این ناو و شناورهای همراه آن در طول این مدت در عملیات‌های رزمی در دو فرماندهی رزمی (COCOM) شامل SOUTHCOM و CENTCOM شرکت داشتند.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9156
-
-<div align="center"><img src="telegram/content/mwarmonitor_9156.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️من همین حالا یک ناو هواپیمابر کلاس نیمیتز (احتمالاً USS George H. W. Bush یا USS Abraham Lincoln) را در تصاویر ماهواره‌ای Sentinel-2 مربوط به 16/05/2026 پیدا کردم.
-
-🔸این ناو با سرعت به سمت شمال دریای عمان در حال حرکت است.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9155
-
-<div align="center"><img src="telegram/content/mwarmonitor_9155.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️🇺🇸نیروی هوایی آمریکا (USAF) – جنگ ایران ۲۰۲۶ | ۱۶ مه
-
-✈️تعداد پروازهای ورودی هواپیماهای ترابری C-17 به منطقه فرماندهی مرکزی آمریکا (CENTCOM) و پایگاه‌های مرتبط به دست‌کم 1,320 پرواز رسیده و 10 پرواز دیگر نیز در حال انجام است.
-
-✈️8 مورد از این پروازهای جدید از پایگاه هوایی Pope Army Airfield آمریکا انجام شده‌اند و مقصد مشخصی برای آن‌ها قابل شناسایی نیست.
-
-✈️حداقل 6 پرواز جدید نیز به‌نظر می‌رسد حرکت‌های خروجی از CENTCOM به سمت پایگاه‌هایی در خاک آمریکا (CONUS) باشند؛ همان پایگاه‌هایی که بیشتر پروازها از آن‌ها آغاز شده‌اند.
 
 @mwarmonitor
 </div>

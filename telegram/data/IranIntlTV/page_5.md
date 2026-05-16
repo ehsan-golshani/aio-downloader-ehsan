@@ -1,8 +1,91 @@
 # آرشیو کانال IranIntlTV - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 23:31
+📅 آخرین بروزرسانی: 1405/02/27 00:39
 
 ---
+
+## IranIntlTV — post 337445
+
+<div align="center"><video src="telegram/content/IranIntlTV_337445.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337445.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مخاطبان ایران اینترنشنال طی روزهای اخیر با ارسال پیام‌هایی درباره سلامت و جان نرگس محمدی، زندانی سیاسی، ابراز نگرانی کرده و از ایرانیان خواستند در خارج از کشور صدای او باشند. پیام مخاطبان با هوش مصنوعی بازخوانی شده است.
+</div>
+
+## IranIntlTV — post 337444
+
+<div align="center"><video src="telegram/content/IranIntlTV_337444.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337444.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنا بر گزارش کانال۱۲ اسرائیل، رییس‌جمهور آمریکا قرار است ظرف ۲۴ ساعت آینده نشستی ویژه با مشاورانش برگزار کند تا تصمیم نهایی درباره جمهوری اسلامی را اتخاذ کند.
+
+گفت‌وگو با منشه امیر، کارشناس امور خاورمیانه
+@iranintltv
+</div>
+
+## IranIntlTV — post 337443
+
+<div align="center"><img src="telegram/content/IranIntlTV_337443.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمد مخبر، مشاور رهبر جمهوری اسلامی، با انتشار مطلبی در ایکس با هشتگ کویت و امارات نوشت: «ایران سال‌ها به چشم دوست و برادر به آنها نگاه کرد، ولی آنها با پیش‌فروش استقلال خود، حتی خاک و خانه‌هایشان را در اختیار دشمنان فلسطین و ایران قرار دادند.»
+
+او تهدید کرد: «پاسخ جمهوری اسلامی به سنگرهای استیجاری سنتکام در جنگ اخیر تمام‌عیار نبود، اما قطعا این خویشتن‌داری همیشگی نیست.»
+https://iranintl.com/202605169610
+</div>
+
+## IranIntlTV — post 337442
+
+<div align="center"><img src="telegram/content/IranIntlTV_337442.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی کل نیروی دفاعی بحرین اعلام کرد که تمامی سلاح‌ها و یگان‌های این نیرو در بالاترین سطح آمادگی و آماده‌باش دفاعی برای مواجه با حمله احتمالی جمهوری اسلامی قرار دارند. بحرین همچنین از شهروندانش خواست با توجه به پیامدهای این حمله، از نزدیک شدن یا دست زدن به هرگونه شیء ناشناس یا مشکوک که ممکن است از بقایای این حمله باشد، خودداری کنند.
+
+در بیانیه این فرماندهی آمده است که نیروهای آن از آمادگی رزمی پیشرفته و هوشیاری بالا در انجام وظیفه ملی خود برای دفاع از کشور و حفاظت از دستاوردهای آن برخوردارند.
+https://iranintl.com/202605161969
+</div>
+
+## IranIntlTV — post 337441
+
+<div align="center"><video src="telegram/content/IranIntlTV_337441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند ویدیویی به ایران اینترنشنال فرستاده که بحران در دسترسی به بنزین و تشکیل صف‌های طولانی در بندرعباس در روز شنبه ۲۶ اردیبهشت‌ماه را نشان می‌دهد.
+</div>
+
+## IranIntlTV — post 337440
+
+<div align="center"><img src="telegram/content/IranIntlTV_337440.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشاهدات شما از بحران کمبود و گرانی سوخت در استان‌های مختلف ایران چیست؟
+
+
+روی لینک زیر کلیک کنید و پیام‌های خود از طریق مدیا‌بات برای ما بفرستید.
+
+https://t.me/intlmedia_bot
+
+پیام‌های شما به صورت زیر‌نویس در تلویزیون و همچنین در بخش‌های مختلف‌ خبری منتشر خواهد شد
+</div>
+
+## IranIntlTV — post 337439
+
+<div align="center"><video src="telegram/content/IranIntlTV_337439.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337439.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، گفت با تعلیق ۲۰ ساله غنی‌سازی اورانیوم در ایران موافق است، مشروط بر اینکه در این مدت، برنامه هسته‌ای جمهوری اسلامی به‌طور کامل پاکسازی شود.
+
+گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337438
 
@@ -163,95 +246,5 @@ https://iranintl.com/202605169641
 
 اشکان صفایی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
 @iranintltv
-</div>
-
-## IranIntlTV — post 337423
-
-<div align="center"><img src="telegram/content/IranIntlTV_337423.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کرملین در بیانیه‌ای اعلام کرد ولادیمیر پوتین، رییس‌جمهوری روسیه، به‌زودی راهی چین خواهد شد و در روزهای سه‌شنبه و چهارشنبه، ۲۹ و ۳۰ اردیبهشت، با مقام‎‌های این کشور دیدار خواهد کرد.
-
-بر اساس این بیانیه، پوتین و شی جین‌پینگ، رییس‌جمهوری چین، قرار است درباره «روابط دوجانبه» و «مسائل کلیدی بین‌المللی و منطقه‌ای» گفت‌وگو کنند.
-
-پوتین در حالی به چین سفر خواهد کرد که دونالد ترامپ، رییس‌جمهوری آمریکا، سفر دوروزه خود به پکن را ۲۵ اردیبهشت به پایان رساند.
-https://iranintl.com/202605160617
-</div>
-
-## IranIntlTV — post 337422
-
-<div align="center"><video src="telegram/content/IranIntlTV_337422.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337422.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻در فاصله یک ماه تا شروع جام جهانی، تیم ملی فوتبال در پی انزوای سیاسی جمهوری اسلامی نتوانست با حریفان تدارکاتی مناسب دیدار کند و درباره بازی‌های تدارکاتی تناقض‌گویی در صحبت‌های مدیران فدراسیون فوتبال جمهوری اسلامی دیده می‌شود.
-
-🔹توضیحات رها پوربخش، ایران‌اینترنشنال در برنامه هت‌تریک
-
-🔹تماشای نشخه کامل هت‌تریک؛👇
-https://youtu.be/v5Exyf8Nyes
-
-@iranintltvsport
-</div>
-
-## IranIntlTV — post 337421
-
-<div align="center"><img src="telegram/content/IranIntlTV_337421.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسعود پزشکیان، رییس دولت جمهوری اسلامی، در پیامی به پاپ لئو، رهبر کاتولیک‌های جهان، از آنچه «موضع اخلاقی و منطقی» او در قبال جنگ ایران خواند، قدردانی کرد.
-
-در این پیام آمده است: «حملات آمریکا و اسرائیل صرفا علیه ایران نیست، بلکه علیه حاکمیت قانون و ارزش‌های انسانی است.»
-
-پزشکیان افزود جمهوری اسلامی «در چارچوب دفاع مشروع، اهداف و منافع متجاوزین را مورد هدف قرار داد».
-
-او همچنین خواستار واکنش «مسئولانه» جامعه جهانی به «اقدامات غیرقانونی» ایالات متحده شد.
-https://iranintl.com/202605167385
-</div>
-
-## IranIntlTV — post 337420
-
-<div align="center"><video src="telegram/content/IranIntlTV_337420.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337420.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال پیامی از تهران به ایران‌اینترنشنال می‌گوید: «انسولین نوراپید دانه‌ای ۹۰۰ هزار تومان شده و قرص مُداسین هم کلا پیدا نمی‌شود. داروخانه می‌گوید از داروهای گیاهی استفاده کنید. لعنت بر جمهوری اسلامی که ما را به این روز انداخته و نیم قرن ما به عقب برگردانده.»
-</div>
-
-## IranIntlTV — post 337419
-
-<div align="center"><video src="telegram/content/IranIntlTV_337419.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337419.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیل‌گر سیاسی، گفت احتمال حمله به زیرساخت‌های انرژی و بنادر ایران برای افزایش فشار بر جمهوری اسلامی بسیار بالاست. او تاکید کرد احتمال گسترش جنگ در شرایط کنونی بسیار جدی است.
-@iranintltv
-</div>
-
-## IranIntlTV — post 337418
-
-<div align="center"><video src="telegram/content/IranIntlTV_337418.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337418.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جاویدنامان انقلاب ملی ایرانیان
-«سورنا گلگون» در شهر شهسوار (تنکابن) از پشت هدف گلوله نیروهای سرکوب جمهوری اسلامی قرار گرفت و با اصابت گلوگه به قلبش کشته شد. نامش در حافظه‌ این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
-@iranintltv
-</div>
-
-## IranIntlTV — post 337417
-
-<div align="center"><video src="telegram/content/IranIntlTV_337417.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337417.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻محمد تقوی، ایران اینترنشنال در برنامه هت‌تریک درباره خواندن ترانه تیم ملی از سوی پرواز همای گفت: «همان‌طور که در ورزش می‌‎بینیم آدم‌ها سقوط اخلاقی می‌کنند، این شخص هم سقوط کرد. این افراد هسته‌های پنهانی هستند که حکومت آنها را برای چنین روزهایی آماده کرده و از آنها استفاده می‌کند.»
-
-@iranintltvsport
 </div>
 

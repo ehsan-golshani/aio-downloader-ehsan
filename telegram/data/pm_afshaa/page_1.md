@@ -1,8 +1,87 @@
 # آرشیو کانال pm_afshaa - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 23:27
+📅 آخرین بروزرسانی: 1405/02/27 00:34
 
 ---
+
+## pm_afshaa — post 90874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دیلی میل بریتانیا: کیر استارمر به نزدیکانش گفته است که قصد دارد از سمت نخست‌وزیری کناره‌گیری کند و جدول زمانی منظمی برای ترک این سمت تعیین کند
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90873
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴نیویورک تایمز به نقل از مقامات نظامی آمریکا: اگر جزیره خارک تصرف شود، نیروهای زمینی برای حفظ آن لازم خواهند بود
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90872
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور اختصاصی NPV / V2RayNG 📶 ✅مناسب: یوتیوب | اینستاگرام | تلگرام | گیم | وب‌گردی ✅ اتصال سریع روی همه اپراتورها ✅بدون افت سرعت حتی در ساعات شلوغ ➕ ویژگی‌ها: ⚡️ بدون ضریب ⚡️ ساب لینک اختصاصی ⚡️بدون قطعی واقعی ⚡️ آیپی ثابت (ترکیه 🇹🇷 | آلمان🇩🇪…
+</div>
+
+## pm_afshaa — post 90871
+
+<div align="center"><img src="telegram/content/pm_afshaa_90871.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور اختصاصی NPV / V2RayNG 📶
+
+✅مناسب: یوتیوب | اینستاگرام | تلگرام | گیم | وب‌گردی
+✅ اتصال سریع روی همه اپراتورها
+✅بدون افت سرعت حتی در ساعات شلوغ
+
+➕ ویژگی‌ها:
+⚡️ بدون ضریب
+⚡️ ساب لینک اختصاصی
+⚡️بدون قطعی واقعی
+⚡️ آیپی ثابت (ترکیه 🇹🇷 | آلمان🇩🇪 | آمریکا🇺🇸 | هلند🇳🇱 | انگلستان🏴)
+⚡️تست رایگان قبل خرید
+
+✔️ تضمین کیفیت + پشتیبانی 24 ساعته
+
+💰 تک لوکیشن: 160 تومان / هر گیگ (با کد تخفیف)
+🌍 مولتی لوکیشن: 200 تومان / هر گیگ (با کد تخفیف)
+
+
+🎁 کد تخفیف :
+
+conquestback
+
+
+👇 همین الان بخر / تست بگیر:
+@ConQuestVPN_bot
+</div>
+
+## pm_afshaa — post 90870
+
+<div align="center"><img src="telegram/content/pm_afshaa_90870.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاخ سفید پیامی تهدیدآمیز از ترامپ با عنوان «شوخی نداریم» همراه با تصویری از حضور او در اتاق جنگ منتشر کرد
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90868
+
+<div align="center"><img src="telegram/content/pm_afshaa_90868.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید ترامپ ارامش قبل از طوفان
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90863
 
@@ -128,64 +207,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴استوری مشاور قالیباف همزمان با بالا گرفتن احتمال شروع مجدد جنگ :
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90849
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴الحدث به نقل از منابع پاکستانی:
-اسلام آباد به دنبال ادامه روند میانجیگری با جدییت است. اسلام آباد به دنبال متقاعد کردن تهران و واشنگتن به انعطاف پذیری در مذاکراته
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90848
-
-<div align="center"><img src="telegram/content/pm_afshaa_90848.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجری‌های صداوسیما در چند برنامه زنده، با اسلحه کلاشینکف حضور پیدا کردن : 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90847
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کانال 12 اسرائیل: اسرائیل در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90846
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ایسنا: وزیر کشور پاکستان برای دیدار با مسئولان جمهوری اسلامی ساعاتی قبل به تهران سفر کرده.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90845
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کانال 12 اسرائیل: برآورد اسرائیل نشون میده تصمیم برای اقدام نظامی بسیار زود گرفته میشه. ترامپ طی 24 ساعت آینده جلسه‌ای با تیم نزدیک خود برای تصمیم‌گیری نهایی درباره ایران برگزار خواهد کرد.
-
-به گفته یک مقام ارشد اسرائیلی، ازسرگیری درگیری نزدیکه و اسرائیل خودش رو برای چند روز تا چند هفته جنگ آماده میکنه.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90844
-
-<div align="center"><img src="telegram/content/pm_afshaa_90844.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجری‌های صداوسیما در چند برنامه زنده، با اسلحه کلاشینکف حضور پیدا کردن :
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

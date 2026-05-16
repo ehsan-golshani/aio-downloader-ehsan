@@ -1,8 +1,29 @@
 # آرشیو کانال WithYashar - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/26 23:25
+📅 آخرین بروزرسانی: 1405/02/27 00:32
 
 ---
+
+## WithYashar — post 11196
+
+<div align="center"><video src="telegram/content/WithYashar_11196.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11196.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## WithYashar — post 11195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اتاق جنگ با یاشار : جابجای‌های غول آسا دو شماره یک «AirForce1» هواپیمای ویژه ریاست جمهوری و «B1 »بمب افکن اسطورهی آمریکا و خبر ویژه از داخل ایران https://www.instagram.com/reel/DYQCr39RJ4i/?igsh=MThycjJiYWZmbnJ3dA== کارای اداریش رو انجام بدید تا بعدش بریم…
+</div>
+
+## WithYashar — post 11194
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آکسیوس به نقل از مقامات اسرائیلی:
+
+در پی احتمال تصمیم ترامپ برای از سرگیری جنگ، در اسرائیل حالت آماده‌باش حداکثری در طول تعطیلات آخر هفته برقرار خواهد شد.
+@withyashar
+</div>
 
 ## WithYashar — post 11193
 
@@ -160,18 +181,4 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @withyashar سفر قاهره
 </div>
-
-## WithYashar — post 11176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قصه بگم ؟ شایدم بهترین شرحی ‌باشه که لازم دارید بشنوید …
-</div>
-
-## WithYashar — post 11175
-
-## WithYashar — post 11174
-
-<div align="center"><video src="telegram/content/WithYashar_11174.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11174.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 

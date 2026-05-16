@@ -1,8 +1,30 @@
 # آرشیو کانال Dirty_Kids - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 23:40
+📅 آخرین بروزرسانی: 1405/02/27 00:48
 
 ---
+
+## Dirty_Kids — post 389536
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389536.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389535
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389535.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانو ناتالیا بیش از ۲۰ نفر از اعضای حماس رو به هلاکت رسونده تو غزه
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389534
 
@@ -248,24 +270,5 @@
 
 
 @Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389512
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389512.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سنتکام رسماً تأیید کرد که حمله به مدرسه میناب توسط آمریکا صورت گرفته.
-
-❌ این خبر که تو فضای مجازی داره دست به دست میشه، فیکه؛ سنتکام تأیید نکرده و ترامپ هم امروز گفت که هنوز داریم بررسی می‌کنیم.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x ✖️  👍دارای مجوز رسمی Gambling Judge سوئد👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    3️⃣2️⃣ 🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
 </div>
 

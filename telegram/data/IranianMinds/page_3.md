@@ -1,8 +1,54 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 23:38
+📅 آخرین بروزرسانی: 1405/02/27 00:46
 
 ---
+
+## IranianMinds — post 20216
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 کانال ۱۳ اسرائیل:
+
+برآوردها حاکی از آن است که ترامپ چراغ سبز برای حمله محدود به مواضع رژیم ملاها را خواهد داد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20215
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سازمان ملل: نگرانیم، چون ممکنه منطقه بازم دچار تنش و درگیری بشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20214
+
+<div align="center"><img src="telegram/content/IranianMinds_20214.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴جلد جدید مجله تایم:
+
+چگونه دیدار ترامپ و شی، یک نظم نوین جهانی را به نمایش گذاشت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20213
+
+<div align="center"><img src="telegram/content/IranianMinds_20213.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نیویورک تایمز :
+
+ترامپ پس از بازگشت از چین، در حالی که مشاوران ارشد و مقامات پنتاگون برنامه‌های احتمالی برای حملات مجدد به ایران در صورت شکست مذاکرات صلح را نهایی می‌کردند، وارد آمریکا شد.
+
+اگرچه ترامپ هنوز تصمیم نهایی نگرفته است، گزارش‌ها حاکی از آن است که مقامات آمریکایی و اسرائیلی برای حملاتی که ممکن است طی روزهای آینده آغاز شوند، آماده می‌شوند.
+
+برنامه‌ریزان نظامی درباره گسترش کمپین‌های بمباران و حتی مأموریت‌های عملیات ویژه برای هدف قرار دادن تأسیسات هسته‌ای زیرزمینی ایران بحث کرده‌اند!
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20212
 
@@ -206,49 +252,6 @@ ge25
 🔴موسوی‌فرد، امام جمعه اهواز:
 
 جمهوری اسلامی، آمریکا را در شرایطی قرار داده است که نه راه پس دارد و نه راه پیش.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20195
-
-<div align="center"><img src="telegram/content/IranianMinds_20195.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرنگار نیویورک‌‌پست:
-
-اعضای هیئت امریکایی همراه ترامپ، قبل از سوار شدن به ایر‌فورس‌وان و ترک چین، همه هدیه‌هایی که چینی‌ها بهشون داده بودند رو درون سطل زباله ریختند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20194
-
-<div align="center"><img src="telegram/content/IranianMinds_20194.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پست کاخ سفید در ایکس:
-حمایت از آلبوم دریک.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وزیر امور‌خارجه چین:
-
-ما خواستار بازگشایی هرچه سریعتر تنگه هرمز هستیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تهران‌تایمز:
-
-آمریکا پیشنهاد ۱۴ ماده‌ای جمهوری اسلامی برای پایان جنگ را رد کرده و بار دیگر بر مواضع خود، به ویژه درباره پرونده هسته‌ای تأکید کرده است.
 
 @IranianMinds
 </div>

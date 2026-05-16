@@ -1,8 +1,34 @@
 # آرشیو کانال Dirty_Kids - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 23:40
+📅 آخرین بروزرسانی: 1405/02/27 00:48
 
 ---
+
+## Dirty_Kids — post 389393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خمینی وقتی با فشار دولت صدام، مجبور به تَرک عراق شد، به سمت کویت رفت.
+کویت او را راه نداد و آفتابه بدست در مرز عراق و کویت گرفتار شد.
+چرا فرانسه رو انتخاب کرد؟
+چون شهروندان ایرانی می‌توانستند بدون نیاز به ویزا تا "سه ماه" در فرانسه اقامت کنند.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389392
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389392.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389392.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کپی برداری نوحه خوانی محمود کریمی از مدل اشعار برنامه های کودک تو سیرک شبانه حکومتی‌های حرامزاده؛
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389391
 

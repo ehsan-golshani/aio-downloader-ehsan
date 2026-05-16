@@ -1,8 +1,37 @@
 # آرشیو کانال Dirty_Kids - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 23:40
+📅 آخرین بروزرسانی: 1405/02/27 00:48
 
 ---
+
+## Dirty_Kids — post 389558
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389558.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389558.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مداح‌: وقت نبرده بابا، به ترامپ بیناموس بگو، بچه کونه بابا
+
+مجری اسلحه میکشه مداح فحش رکیک میده، چه دست و پایی میزنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389557
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389557.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389557.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اطلاعات داره کم‌کم رو می‌شه. به خامنه‌ای گفته بودند جنگ نمی‌شه از لونه بیا بیرون که یک دفعه با یه تق... به هلاکت می‌رسه
+گوش کنید حتما
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389556
 
@@ -244,27 +273,5 @@ A25
 اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
 ✅https://t.me/+4_ADqwB9e-QwYjlk
 ✅https://t.me/+4_ADqwB9e-QwYjlk
-</div>
-
-## Dirty_Kids — post 389536
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389536.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#بخوابیم
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389535
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389535.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بانو ناتالیا بیش از ۲۰ نفر از اعضای حماس رو به هلاکت رسونده تو غزه
-
-
-@Dirty_Kids 👻
 </div>
 

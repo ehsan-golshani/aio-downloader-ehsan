@@ -1,8 +1,139 @@
 # آرشیو کانال alonews - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/02/26 23:43
+📅 آخرین بروزرسانی: 1405/02/27 00:51
 
 ---
+
+## alonews — post 119837
+
+<div align="center"><video src="telegram/content/alonews_119837.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119837.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈جریمه سنگین دوربین‌های نظارتی چین برای مجری فاکس‌نیوز / برت بایر:
+
+🔴”به معنای واقعی کلمه همه جا دوربین وجود دارد.آنها همه چیز را می‌بینند... راننده ما به مدت ۲ دقیقه غیرقانونی پارک کرده و ۴۰ دلار جریمه شده است!"
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119836
+
+<div align="center"><video src="telegram/content/alonews_119836.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119836.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈معین: مهدی تاج الکی میگه، من قرار نیست هیچ آهنگی واسه تیم فوتبال تو جام جهانی بخونم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119835
+
+<div align="center"><img src="telegram/content/alonews_119835.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈طبق گزارش رویترز، ایالات متحده و چین توافق کردند که هیچ کشوری نباید اجازه داشته باشد عوارض حمل و نقل در تنگه هرمز را دریافت کند.
+
+🔴وزیر امور خارجه چین، وانگ یی، و وزیر امور خارجه ایالات متحده، مارکو روبیو، این موضوع را در تماس تلفنی آوریل مورد بحث قرار دادند.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ارتش اسرائیل: مدتی پیش حزب‌الله لبنان از جنوب این کشور با پهپاد و چندین موشک ضدتانک بهمون حمله کرد که هیچکس آسیبی ندید.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119833
+
+<div align="center"><video src="telegram/content/alonews_119833.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119833.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاج: احتمالا معین موزیک رسمی تیم‌ملی رو بخونه!
+
+@AloSport
+</div>
+
+## alonews — post 119832
+
+<div align="center"><img src="telegram/content/alonews_119832.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈گویا "نصرالله معین" قراره واسه تیم ملی فوتبال به مناسبت حضور تو جام جهانی 2026، آهنگ بخونه!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119831
+
+<div align="center"><video src="telegram/content/alonews_119831.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119831.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مارکو روبیو : کشتی‌های چین توی خلیج فارس گیر افتادن یه کشتی باری چینی هم آخر هفته آسیب دیده
+- مطمئنم ایران عمداً این کار رو نکرده، ولی به هر حال اتفاق افتاده،واسه همین این کشتی‌های چینی اونجا گیر کردن
+- این وضعیت خیلی بی‌ثبات‌کننده‌ست،حتی بیشتر از هر جای دیگه دنیا می‌تونه آسیا رو به هم بریزه، چون انرژی‌شون خیلی به این تنگه‌ها وابسته‌ست
+- این به نفع خود چینه که این مسئله رو حل کنه
+- ما امیدواریم بتونیم قانع‌شون کنیم نقش فعال‌تری بازی کنن تا ایران رو وادار کنن از کاری که الان تو خلیج فارس داره انجام می‌ده عقب‌نشینی کنه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119830
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کانال N12: ترامپ داره به صدور دستور برای از سرگیری درگیری با ایران فکر می‌کنه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119829
+
+<div align="center"><img src="telegram/content/alonews_119829.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خیلی شیک و‌ مجلسی روی شیشه دفاتر پیشخوان آگهی فروش اینترنت پرو میزنن که تلگرام هم روش بدون فیلتره.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119828
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مدیرعامل شهر فرودگاهی امام : روزانه بین ۳۵ تا ۴۰ پرواز از فرودگاه انجام می‌شود.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119827
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خوش‌چشم: ترامپ رفته چین التماس کنه تا میانجی بشه که ایران جنگ رو تموم کنه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119826
+
+<div align="center"><video src="telegram/content/alonews_119826.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119826.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈تمرینه بمب‌افکنِ " B-52 " و فرود به پایگاه فِرفورد بریتانیا
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119825
 
@@ -90,111 +221,6 @@
 👈کوین وارش با رأی ۵۴ به ۴۵ سنا ایالات متحده به عنوان رئیس فدرال رزرو تأیید شد.
 
 🔴 جان فترمن تنها دموکراتی بود که از این تأیید حمایت کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119816
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر امور خارجه سوریه: دمشق خواهان دستیابی به توافقی امنیتی با اسرائیل است که بر پایه احترام متقابل به حاکمیت دو طرف و حفظ ثبات منطقه شکل بگیرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119815
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار سی‌بی‌اس مدعی شد: پیشرفت‌هایی در مذاکرات با ایران دیده می‌شود
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119814
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کانال ۱۲ اسرائیل: امارات و اسرائیل به دنبال علنی‌تر کردن روابط خود هستند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119813
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈منابع عراقی از شنیده‌شدن صدای چندین انفجار در اربیل عراق خبر می‌دهند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119812
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شبکه العربی: حزب لیکود درخواست انحلال کنست (پارلمان) اسرائیل و برگزاری انتخابات زودهنگام را ارائه داده است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کیر استارمر ، نخست‌وزیر انگلیس در نخستین جلسه مجلس عوام پس از بازگشایی پارلمان، بار دیگر ورود شتاب‌زده به جنگ علیه ایران را خلاف منافع کشورش دانست
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119810
-
-<div align="center"><img src="telegram/content/alonews_119810.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 چین رئیس‌جمهور ترامپ را با حضور معاون رئیس‌جمهور رده‌بالا اما عمدتاً تشریفاتی، هان ژنگ، در پکن به گرمی پذیرایی کرد؛ انتخابی که طبق گزارش نیویورک تایمز، نشان‌دهنده مبادله نمادگرایی به جای ماهیت توسط پکن است.
-
-🔴 ترامپ سه‌شنبه شب با استقبال یک ارکستر نظامی، گارد افتخاری و صدها جوان در حال پرچم‌زنی وارد شد — نمایشی که برای تحت تأثیر قرار دادن رئیس‌جمهوری که به جایگاه حساس است طراحی شده، در حالی که چین زمان می‌خرد تا از بازگشت به تشدید اقتصادی اجتناب کند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119809
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کاخ سفید در نظر دارد که رئیس‌جمهور ترامپ به مناسبت ۲۵۰امین سالگرد آمریکا، ۲۵۰ عفو صادر کند، احتمالاً در ۱۴ ژوئن یا ۴ ژوئیه، طبق گزارش WSJ
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119808
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جنیفر جیکوبز خبرنگار سی‌بی‌اس:
-جی‌دی ونس معاون رئیس‌جمهور امریکا به من گفت که امروز صبح با جرد کوشنر و استیو ویتکاف درباره ایران گفتگو کرده، همچنین با مقامات عرب.
-
-🔴او مدعی شد که پیشرفت‌ در حال حصول است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119807
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر خارجه کوبا: حمله آمریکا منجر به حمام خون خواهد شد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119806
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سوپراپلیکیشن ایتا اعلام کرد امکان ارسال فایل تا حجم ۲۰ مگابایت مجدداً برای همه کاربران فراهم شده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119805
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ادعای ونس، معاون رئیس‌جمهور آمریکا: ما درگیر یک فرایند دیپلماتیک فعال برای اطمینان از نداشتن سلاح هسته‌ای توسط ایران هستیم
-
-🔴رئیس‌جمهور گزینه‌های متعددی دیپلماتیک و نظامی پیش رو دارد.
 
 ✅ @AloNews خبر جنگ
 </div>

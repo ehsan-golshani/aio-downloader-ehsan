@@ -1,8 +1,19 @@
 # آرشیو کانال WithYashar - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 23:25
+📅 آخرین بروزرسانی: 1405/02/27 00:32
 
 ---
+
+## WithYashar — post 11319
+
+## WithYashar — post 11318
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان سازمان مجاهدین خلق ایران (که در آمریکا با نام‌های MEK یا PMOI شناخته می‌شود) به‌صورت رسمی در تاریخ ۲۸ سپتامبر ۲۰۱۲ از فهرست «سازمان‌های تروریستی خارجی» وزارت خارجه آمریکا خارج شد. این تصمیم توسط وزارت خارجه دولت هیلاری کلینتون اعلام شد و همان روز اجرایی گردید
+@withyashar
+</div>
+
+## WithYashar — post 11317
 
 ## WithYashar — post 11316
 
@@ -80,24 +91,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اخرش مجبور به همین کار میشیم🫤
-</div>
-
-## WithYashar — post 11299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یاشار خودت یه فراخوان بده بزنیم کارو تموم کنیم 😂🤦‍♂‌ دیگه نمیکشیم
-</div>
-
-## WithYashar — post 11297
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیداریم مثل پلنگ 😾💪🏾
-</div>
-
-## WithYashar — post 11296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود فرمانده یاشار
-فرمانده نظری برای امشب تا وقتی بازار های مالی باز میشه داری ؟
 </div>
 

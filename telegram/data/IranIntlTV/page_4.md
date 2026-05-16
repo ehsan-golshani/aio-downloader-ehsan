@@ -1,8 +1,97 @@
 # آرشیو کانال IranIntlTV - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 23:31
+📅 آخرین بروزرسانی: 1405/02/27 00:39
 
 ---
+
+## IranIntlTV — post 337471
+
+<div align="center"><video src="telegram/content/IranIntlTV_337471.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337471.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیمای جمهوری اسلامی روز جمعه برنامه‌ای پخش کرد که در آن یک نظامی به مجری استفاده از سلاح گرم را آموزش می‌داد. این برنامه در شبکه‌های اجتماعی موجی از واکنش‌ها را به همراه داشت. مجری در این برنامه به پرچم امارات متحده عربی شلیک کرد.
+جزییات بیشتر با محسن مهیمنی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337470
+
+<div align="center"><video src="telegram/content/IranIntlTV_337470.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337470.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانیان فنلاند روز شنبه در حمایت از انقلاب ملی علیه جمهوری اسلامی در هلسینکی تجمع کردند و شعار «تغییر رژیم» سر دادند.
+</div>
+
+## IranIntlTV — post 337469
+
+<div align="center"><video src="telegram/content/IranIntlTV_337469.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337469.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از شرکت‌کنندگان در تجمع استکهلم در گفت‌وگو با مهران عباسیان، خبرنگار ایران‌اینترنشنال، گفت: «ما پشت مردم داخل کشور هستیم و تا روز آزادی ایران به خیابان‌ها می‌آییم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337468
+
+<div align="center"><video src="telegram/content/IranIntlTV_337468.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337468.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانیان مقیم کره جنوبی و ژاپن بار دیگر در پاسخ به فراخوان حمایت از انقلاب ملی و در راستای جلب توجه دولت سئول و توکیو به نقض گسترده حقوق بشر و اعدام‌‌ها توسط جمهوری اسلامی تجمع کردند.
+
+گزارش توماج طاهباز، خبرنگار ایران‌اینترنشنال، از پیام شرکت‌کنندگان در این تجمع‌ها
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 337467
+
+<div align="center"><img src="telegram/content/IranIntlTV_337467.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻فدراسیون جهانی فوتبال، فیفا، نام راب دیپرینک، داور هلندی حاضر در فهرست داوران جام جهانی ۲۰۲۶، را پس از بازداشت او توسط پلیس متروپولیتن بریتانیا در ماه گذشته میلادی، از فهرست رسمی داوران این رقابت‌ها حذف کرد.
+
+🔹به نوشته سایت اتلتیک، دیپرینک که به‌عنوان داور VAR برای جام جهانی آمریکا، کانادا و مکزیک امسال انتخاب شده بود، پس از مطرح شدن اتهام تعرض جنسی به یک پسر نوجوان در لندن بازداشت شده بود.
+
+🔹با این حال، دیپرینک اعلام کرده که پلیس متروپولیتن پرونده را مختومه کرده و هیچ اتهامی علیه او مطرح نخواهد شد. سخنگوی پلیس متروپولیتن نیز به اتلتیک گفته که شواهد و مدارک به اندازه کافی علیه او وجود نداشته است و در نتیجه «اقدام بیشتری انجام نخواهد شد».
+
+🔹فیفا در بیانیه‌ای به اتلتیک اعلام کرد: «فیفا تأیید می‌کند که راب دیپرینک از فهرست داوران جام جهانی حذف شده است.»
+
+🔹در بیانیه‌ای از سوی فدراسیون فوتبال هلند (KNVB)، از این داور حمایت شده است.
+
+🔹با وجود مختومه شدن پرونده، منابع آگاه به اتلتیک گفته‌اند انتظار می‌رود فیفا ویلی دلاژو، داور فرانسوی، را جایگزین دیپرینک کند.
+
+🔹گزارش کامل را در سایت بخوانید
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337466
+
+<div align="center"><video src="telegram/content/IranIntlTV_337466.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337466.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در پیامی به ایران اینترنشنال درباره بحران سوخت می‌گوید که در مشهد بعد از مراجعه به چند جایگاه نهایتا بعد از یک ساعت انتظار توانست با کارت سه‌هزار تومانی ۱۵ لیتر بزنین بزند. پیام مخاطب با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337465
+
+<div align="center"><video src="telegram/content/IranIntlTV_337465.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337465.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مهتاب قلی‌زاده، روزنامه‌نگار اقتصادی، درباره تورم بهای خوراکی‌ها در ایران گفت نرخ ارز تاثیر شدیدی بر قیمت مواد غذایی دارد. او افزود: «برخلاف تصویری از خودکفایی که سال‌ها برای آن تبلیغ شده، ساختار تولید مواد غذایی در ایران به‌طور کامل داخلی نیست.»
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337464
 
@@ -150,89 +239,6 @@ https://iranintl.com/202605162346
 این بخش از برنامه در حالی پخش شد که روابط تهران و ابوظبی در هفته‌های اخیر با تنش‌هایی همراه بوده است.
 
 صدا و سیمای جمهوری اسلامی جمعه چند برنامه پخش کرد که در آنها مجریان در بخش‌های استودیویی با در دست داشتن تفنگ ظاهر شدند و اعلام کردند در حال یادگیری کار با سلاح‌های سبک هستند و در صورت لزوم به جنگ خواهند پیوست.
-@iranintltv
-</div>
-
-## IranIntlTV — post 337445
-
-<div align="center"><video src="telegram/content/IranIntlTV_337445.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337445.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مخاطبان ایران اینترنشنال طی روزهای اخیر با ارسال پیام‌هایی درباره سلامت و جان نرگس محمدی، زندانی سیاسی، ابراز نگرانی کرده و از ایرانیان خواستند در خارج از کشور صدای او باشند. پیام مخاطبان با هوش مصنوعی بازخوانی شده است.
-</div>
-
-## IranIntlTV — post 337444
-
-<div align="center"><video src="telegram/content/IranIntlTV_337444.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337444.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنا بر گزارش کانال۱۲ اسرائیل، رییس‌جمهور آمریکا قرار است ظرف ۲۴ ساعت آینده نشستی ویژه با مشاورانش برگزار کند تا تصمیم نهایی درباره جمهوری اسلامی را اتخاذ کند.
-
-گفت‌وگو با منشه امیر، کارشناس امور خاورمیانه
-@iranintltv
-</div>
-
-## IranIntlTV — post 337443
-
-<div align="center"><img src="telegram/content/IranIntlTV_337443.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد مخبر، مشاور رهبر جمهوری اسلامی، با انتشار مطلبی در ایکس با هشتگ کویت و امارات نوشت: «ایران سال‌ها به چشم دوست و برادر به آنها نگاه کرد، ولی آنها با پیش‌فروش استقلال خود، حتی خاک و خانه‌هایشان را در اختیار دشمنان فلسطین و ایران قرار دادند.»
-
-او تهدید کرد: «پاسخ جمهوری اسلامی به سنگرهای استیجاری سنتکام در جنگ اخیر تمام‌عیار نبود، اما قطعا این خویشتن‌داری همیشگی نیست.»
-https://iranintl.com/202605169610
-</div>
-
-## IranIntlTV — post 337442
-
-<div align="center"><img src="telegram/content/IranIntlTV_337442.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندهی کل نیروی دفاعی بحرین اعلام کرد که تمامی سلاح‌ها و یگان‌های این نیرو در بالاترین سطح آمادگی و آماده‌باش دفاعی برای مواجه با حمله احتمالی جمهوری اسلامی قرار دارند. بحرین همچنین از شهروندانش خواست با توجه به پیامدهای این حمله، از نزدیک شدن یا دست زدن به هرگونه شیء ناشناس یا مشکوک که ممکن است از بقایای این حمله باشد، خودداری کنند.
-
-در بیانیه این فرماندهی آمده است که نیروهای آن از آمادگی رزمی پیشرفته و هوشیاری بالا در انجام وظیفه ملی خود برای دفاع از کشور و حفاظت از دستاوردهای آن برخوردارند.
-https://iranintl.com/202605161969
-</div>
-
-## IranIntlTV — post 337441
-
-<div align="center"><video src="telegram/content/IranIntlTV_337441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند ویدیویی به ایران اینترنشنال فرستاده که بحران در دسترسی به بنزین و تشکیل صف‌های طولانی در بندرعباس در روز شنبه ۲۶ اردیبهشت‌ماه را نشان می‌دهد.
-</div>
-
-## IranIntlTV — post 337440
-
-<div align="center"><img src="telegram/content/IranIntlTV_337440.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشاهدات شما از بحران کمبود و گرانی سوخت در استان‌های مختلف ایران چیست؟
-
-
-روی لینک زیر کلیک کنید و پیام‌های خود از طریق مدیا‌بات برای ما بفرستید.
-
-https://t.me/intlmedia_bot
-
-پیام‌های شما به صورت زیر‌نویس در تلویزیون و همچنین در بخش‌های مختلف‌ خبری منتشر خواهد شد
-</div>
-
-## IranIntlTV — post 337439
-
-<div align="center"><video src="telegram/content/IranIntlTV_337439.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337439.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، گفت با تعلیق ۲۰ ساله غنی‌سازی اورانیوم در ایران موافق است، مشروط بر اینکه در این مدت، برنامه هسته‌ای جمهوری اسلامی به‌طور کامل پاکسازی شود.
-
-گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
 @iranintltv
 </div>
 

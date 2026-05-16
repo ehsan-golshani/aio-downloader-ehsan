@@ -1,8 +1,22 @@
 # آرشیو کانال WithYashar - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/26 23:25
+📅 آخرین بروزرسانی: 1405/02/27 00:32
 
 ---
+
+## WithYashar — post 11176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قصه بگم ؟ شایدم بهترین شرحی ‌باشه که لازم دارید بشنوید …
+</div>
+
+## WithYashar — post 11175
+
+## WithYashar — post 11174
+
+<div align="center"><video src="telegram/content/WithYashar_11174.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11174.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 ## WithYashar — post 11173
 
@@ -134,30 +148,6 @@ https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 همراهان ترامپ در چین
-@withyashar
-</div>
-
-## WithYashar — post 11156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سد عباس چپقچی وارد هند شد
-@withyashar
-</div>
-
-## WithYashar — post 11155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احسان افرشته، به اتهام جاسوسی و همکاری اطلاعاتی با موساد اعدام شد به گفته رژیم وی چند مرحله تماس از طریق پیام‌رسان‌ها داشته و در ادامه از طریق پست الکترونیک باهم در ارتباط بوده‌اند بیش از ۳۰۰ پیام بین آنها رد و بدل شده است. افرشته در ابتدا در پوشش راننده تاکسی…
-</div>
-
-## WithYashar — post 11154
-
-<div align="center"><video src="telegram/content/WithYashar_11154.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11154.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بی‌حرکت ایستادن کامل افسر چینی هنگام عبور هواپیمای رئیس جمهور آمریکا (ایر فورس وان) در چند متری او، توجه بسیاری از رسانه‌ها را به خود جلب کرد
 @withyashar
 </div>
 

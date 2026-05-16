@@ -1,8 +1,58 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 23:38
+📅 آخرین بروزرسانی: 1405/02/27 00:46
 
 ---
+
+## IranianMinds — post 20261
+
+<div align="center"><video src="telegram/content/IranianMinds_20261.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20261.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 علیرضا بیرانوند :
+
+سرود جمهوری اسلامی رو با صدای بلند میخونم و مخالفا هم هیچ کاری نمیتونن بکنن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20260
+
+<div align="center"><img src="telegram/content/IranianMinds_20260.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 کاخ سفید :
+
+هیچ بازی ای در کار نیست ، اگر به آمریکایی ها آسیبی برسانید یا برنامه ای برای این کار داشته باشید ما شمارو پیدا میکنیم و میکشیم !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20259
+
+<div align="center"><img src="telegram/content/IranianMinds_20259.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست ترامپ در تروث‌سوشال:
+
+این آرامش قبل از طوفان بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20258
+
+<div align="center"><video src="telegram/content/IranianMinds_20258.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20258.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دونالد ترامپ در تروث‌سوشال یک انیمیشنی را منتشر کرد که در آن به ناو آمریکایی دستور شلیک به هدفی که پرچم جمهوری اسلامی را دارد داده و می‌گوید در فهرست اهدافمان، آتش.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20257
 
@@ -185,51 +235,6 @@ G26
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴محمد‌امین صابرکار، ۱۶ ساله، در جریان آموزش‌های نظامی، در بخش بردخون شهرستان دیر بر اثر شلیک خودی کشته شد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20238
-
-<div align="center"><video src="telegram/content/IranianMinds_20238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدئویی که ارتش آمریکا از عملیات ترور ابوبلال المینوکی نفر دوم داعش در نیجریه، منتشر کرد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20237
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ایرنا:
-
-سید محسن نقوی وزیر کشور پاکستان برای دیدار با مسؤولان جمهوری اسلامی، ساعاتی قبل وارد تهران شد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20236
-
-<div align="center"><img src="telegram/content/IranianMinds_20236.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 آخرین قیمت نفت:
-۱۰۹.۲۶ دلار
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20235
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نیویورک‌تایمز:
-
-آمریکا و اسرائیل احتمالأ هفته آینده به ایران حمله خواهند کرد.
-
-بعضی از رسانه‌ها هم احتمال حمله را تا ۲۴ ساعت آینده تخمین می‌زنند.
 
 @IranianMinds
 </div>

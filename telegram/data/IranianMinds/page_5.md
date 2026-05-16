@@ -1,8 +1,50 @@
 # آرشیو کانال IranianMinds - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 23:38
+📅 آخرین بروزرسانی: 1405/02/27 00:46
 
 ---
+
+## IranianMinds — post 20175
+
+<div align="center"><img src="telegram/content/IranianMinds_20175.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😂😂😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 عراقچی:
+
+موضوع اورانیوم غنی شده بسیار پیچیده است و ما با واشنگتن به تفاهم رسیدیم تا آن را به مرحله دیگری از مذاکرات موکول کنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 عراقچی :
+
+آمریکا با راه نظامی هرگز نمیتونه مارو شکست بده و به اهدافش برسه ، ولی اگه دیپلماسی رو امتحان میکرد شاید متفاوت بود
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20171
+
+<div align="center"><img src="telegram/content/IranianMinds_20171.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نیویورک پست:
+
+اف‌بی‌آی جایزه‌ای ۲۰۰ هزار دلاری برای دستگیری مونیکا ویت، مأمور سابق اطلاعات نیروی هوایی آمریکا که از سال ۲۰۱۹ متهم به جاسوسی برای ایران است، اعلام کرده است
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20170
 
@@ -206,51 +248,6 @@ CDN Edge IPs: 151.101.192.223
 CDN SNI Hostname: python.org
 
 سپس به صفحه ی اصلی برگردید و START رو بزنید
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب ویو ها بهتر شده
-بعضیاتون برگشتید
-
-امیدوارم بزودی همه برگردن
-</div>
-
-## IranianMinds — post 20151
-
-<div align="center"><img src="telegram/content/IranianMinds_20151.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست خواهر جاویدنام سپهر ابراهیمی .
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20150
-
-<div align="center"><video src="telegram/content/IranianMinds_20150.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20150.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو کوبا هم‌ مردم ریختن بیرون دارن اعتراض میکنن
-
-مردم کوبا روزانه حدود ۲۳ تا ۲۲ ساعت برق ندارن تو‌ بعضی مناطق
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20149
-
-<div align="center"><img src="telegram/content/IranianMinds_20149.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کان‌نیوز:
-
-اسرائیل معتقد است که ترامپ وقتی از چین برگرده، درباره حمله مجدد به ایران تصمیم‌گیری میکنه.
 
 @IranianMinds
 </div>

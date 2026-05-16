@@ -1,8 +1,53 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 23:38
+📅 آخرین بروزرسانی: 1405/02/27 00:46
 
 ---
+
+## IranianMinds — post 20238
+
+<div align="center"><video src="telegram/content/IranianMinds_20238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدئویی که ارتش آمریکا از عملیات ترور ابوبلال المینوکی نفر دوم داعش در نیجریه، منتشر کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20237
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ایرنا:
+
+سید محسن نقوی وزیر کشور پاکستان برای دیدار با مسؤولان جمهوری اسلامی، ساعاتی قبل وارد تهران شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20236
+
+<div align="center"><img src="telegram/content/IranianMinds_20236.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 آخرین قیمت نفت:
+۱۰۹.۲۶ دلار
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴نیویورک‌تایمز:
+
+آمریکا و اسرائیل احتمالأ هفته آینده به ایران حمله خواهند کرد.
+
+بعضی از رسانه‌ها هم احتمال حمله را تا ۲۴ ساعت آینده تخمین می‌زنند.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20234
 
@@ -213,51 +258,5 @@ ae25
 🎯همین حالا عضو شو و شروع کن👇
 https://t.me/+OS-QBvyDO4M2ZGY0
 https://t.me/+OS-QBvyDO4M2ZGY0
-</div>
-
-## IranianMinds — post 20216
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 کانال ۱۳ اسرائیل:
-
-برآوردها حاکی از آن است که ترامپ چراغ سبز برای حمله محدود به مواضع رژیم ملاها را خواهد داد
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20215
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سازمان ملل: نگرانیم، چون ممکنه منطقه بازم دچار تنش و درگیری بشه
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20214
-
-<div align="center"><img src="telegram/content/IranianMinds_20214.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴جلد جدید مجله تایم:
-
-چگونه دیدار ترامپ و شی، یک نظم نوین جهانی را به نمایش گذاشت.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20213
-
-<div align="center"><img src="telegram/content/IranianMinds_20213.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نیویورک تایمز :
-
-ترامپ پس از بازگشت از چین، در حالی که مشاوران ارشد و مقامات پنتاگون برنامه‌های احتمالی برای حملات مجدد به ایران در صورت شکست مذاکرات صلح را نهایی می‌کردند، وارد آمریکا شد.
-
-اگرچه ترامپ هنوز تصمیم نهایی نگرفته است، گزارش‌ها حاکی از آن است که مقامات آمریکایی و اسرائیلی برای حملاتی که ممکن است طی روزهای آینده آغاز شوند، آماده می‌شوند.
-
-برنامه‌ریزان نظامی درباره گسترش کمپین‌های بمباران و حتی مأموریت‌های عملیات ویژه برای هدف قرار دادن تأسیسات هسته‌ای زیرزمینی ایران بحث کرده‌اند!
-
-@IranianMinds
 </div>
 

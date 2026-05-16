@@ -1,8 +1,32 @@
 # آرشیو کانال Dirty_Kids - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 23:40
+📅 آخرین بروزرسانی: 1405/02/27 00:48
 
 ---
+
+## Dirty_Kids — post 389416
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389416.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389416.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#تکمیلی
+یه پسره حدود 2 میلیون دلار هزینه کرده تا آلیس رزنبلوم | Alice Rosenblum دختر 19 ساله آمریکایی که مدل اونلی‌فنزه رو از نزدیک ببینه؛
+
+پسره تا رسید بهش گفت چاق‌تر از عکساتی و من روزی 3 بار باهات خودارضایی می‌کنم...
+
+تهشم فقط به دختره دست داد که آلیس چندشش شد و گفت اگه میشه بندازینش بیرون چون داره من رو می‌ترسونه!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍 🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
 
 ## Dirty_Kids — post 389414
 
@@ -228,32 +252,6 @@ A23
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شما غلط کردی با صاحابت.
 از طرف مردم گه نخور.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خمینی وقتی با فشار دولت صدام، مجبور به تَرک عراق شد، به سمت کویت رفت.
-کویت او را راه نداد و آفتابه بدست در مرز عراق و کویت گرفتار شد.
-چرا فرانسه رو انتخاب کرد؟
-چون شهروندان ایرانی می‌توانستند بدون نیاز به ویزا تا "سه ماه" در فرانسه اقامت کنند.
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389392
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389392.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389392.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کپی برداری نوحه خوانی محمود کریمی از مدل اشعار برنامه های کودک تو سیرک شبانه حکومتی‌های حرامزاده؛
 
 
 @Dirty_Kids 👻

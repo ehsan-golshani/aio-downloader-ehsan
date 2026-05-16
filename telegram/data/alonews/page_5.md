@@ -1,8 +1,162 @@
 # آرشیو کانال alonews - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 23:43
+📅 آخرین بروزرسانی: 1405/02/27 00:51
 
 ---
+
+## alonews — post 120404
+
+<div align="center"><video src="telegram/content/alonews_120404.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120404.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈چند طرفدار فلسطین از برج ایفل بالا رفتند و پرچم فلسطین را از طبقه اول آن آویزان کردند.
+
+🔴شش نفر از این افراد توسط پلیس دستگیر شدند.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120403
+
+<div align="center"><img src="telegram/content/alonews_120403.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پاول دورف، مالک تلگرام: دبی دوباره شلوغ و پر ترافیک شده
+- از همین الان دلم برای آتش‌بازی‌های ایرانی تنگ شده، حداقل شهر رو از آدمای زودباور خالی می‌کردن
+- پدافند اماراتم زیر اون حجم آتیش خیلی خوب کار کرد
+- با مالیات صفر درصد، امنیتی بهتر از اروپاییایی داریم که نصف درآمدشونو مالیات میدن
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120402
+
+<div align="center"><img src="telegram/content/alonews_120402.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب موسی 😁
+فروش کانفیگ وی توری 🔐
+
+گیگی 195.000 تومان☄️
+گیگی 220.000 تومان ☄️
+
+🔥 سرعت موشکی
+💎 ( پنل مشاهده حجم در ربات )
+لوکیشن ترکیه
+
+برای خرید ربات رو استارت کنید
+
+BOT 📎 @WinstonMarket_bot
+
+PV ✉️ @mosadeveloper
+
+CH 📣 https://t.me/winstonservice
+</div>
+
+## alonews — post 120400
+
+<div align="center"><video src="telegram/content/alonews_120400.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120400.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ویدیویی از حملات به جنوب لبنان
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120399
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر نفت عراق: ۱۰ میلیون بشکه نفط در ماه گذشته از تنگه هرمز صادر کردیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120398
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ویدیویی از ورود وزیر کشور پاکستان به ایران
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120397
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈هم اکنون بمباران در جنوب لبنان
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120396
+
+<div align="center"><img src="telegram/content/alonews_120396.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آدرنالین خالص
+🔥
+
+💥سلتیک در آخرین بازی فصل مقابل هارت به برتری ۳بر۱ رسید و قهرمان اسکاتلند شد
+
+🚫هارت رقیب مستقیم سلتیک بود و با یک تساوی هم میتونست قهرمان بشه اما با گل دقیقه ۸۹ مائدا قافیه رو باخت
+
+@AloSport
+</div>
+
+## alonews — post 120395
+
+<div align="center"><video src="telegram/content/alonews_120395.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120395.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️به گواهی تاریخی هاشمی رفسنجانی، خون کودکان میناب و تمام قربانیان جنگ ایران و آمریکا به گردن علی خامنه‌ای است.
+
+
+🔴هاشمی رفسنجانی: «نظرم آن بود که باید مسائل با آمریکا را حل کنیم. با آقای خامنه‌ای یکی دو ساعت بحث کردیم، ولی به نتیجه نرسیدیم.
+
+
+🔴من گفتم: ما حرف دیگری به شما نمی‌توانیم بزنیم، فقط مساله‌ی ما هست و خدا؛ بالاخره روز قیامت از ما می‌پرسند این همه ضرری که این طرف (به مردم ایران) هست، اگر این‌ها را شما به عهده می‌گیرید من دیگر حرفی ندارم.»
+
+
+🔴علی خامنه‌ای گفت: «بله جواب خدا با من».
+
+✅@AloNews
+</div>
+
+## alonews — post 120393
+
+<div align="center"><img src="telegram/content/alonews_120393.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈حمله‌ی‌ نیروی هوایی اسرائیل به المنصوری، جنوب لبنان
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فرماندهی مرکزی ایالات متحده:
+تا امروز، ۷۸ کشتی تجاری تغییر مسیر داده‌اند و ۴ کشتی غیرفعال شده‌اند تا اطمینان حاصل شود که قوانین محاصره رعایت می‌شوند.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120391
+
+<div align="center"><video src="telegram/content/alonews_120391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عارف: ما از حق حاکمیت خود در تنگه هرمز گذشته بودیم و اجازه دادیم از تنگه‌ای که متعلق به ایران است تجهیزات نظامی که قرار بود علیه ما استفاده کنند، عبور دهند؛ دیگر این کار را نمی‌کنیم
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120384
 
@@ -112,115 +266,6 @@
 🔴فوری/شبکه ۱۲ اسرائیل :
 اسرائیل در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
 
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120376
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ توجه 
-⚠️
-
-بچه ها فیلترینگ خیلیی شدید شده همین الان که اینترنت دارین حتما جوین بشید و از کانفینگاش استفاده کنید که موقع قطعی خیلی به کارتون میاد
-⏬
-
-https://t.me/+WgqzouUHJ1U3OTY0
-https://t.me/+WgqzouUHJ1U3OTY0
-https://t.me/+WgqzouUHJ1U3OTY0
-</div>
-
-## alonews — post 120375
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جاده چالوس از فردا به مدت ۴روز مسدود می‌شود
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120374
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دقایقی پیش وزیر کشور پاکستان برای دیدار با مقامات ایرانی، در سفری از پیش اعلام نشده وارد تهران شد ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120373
-
-<div align="center"><img src="telegram/content/alonews_120373.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مخبر: این خویشتنداری همیشگی نیست
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 ارتش دفاعی اسرائیل اعلام کرده است که حملات به سایت‌های زیرساختی حزب‌الله در چندین منطقه در جنوب لبنان را آغاز کرده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120371
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دقایقی پیش وزیر کشور پاکستان برای دیدار با مقامات ایرانی، در سفری از پیش اعلام نشده وارد تهران شد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120370
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رئیس کمیسیون امنیت ملی مجلس :
-یه سیستم طراحی کردیم که رفت‌وآمد کشتی‌ها تو تنگه هرمز رو با یه مسیر مشخص کنترل کنیم و به‌زودی هم اعلامش می‌کنیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈به گزارش کانال ۱۲ اسرائیل : ترامپ بزودی با اعضای کابینه خود جلسه اضطراری برای پایان دادن به اوضاع ایران برگزار میکند ، حمله و تقابل سوم قریب الوقوع و بسیار نزدیک است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈الجزیره: وزیر انرژی امارات می‌گوید خروج از اوپک یک «انتخاب استراتژیک مستقل» است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120367
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈از دقایقی قبل سوپراپلیکیشن بله با اختلال مواجه شده و کار نمی کنه
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120366
-
-<div align="center"><img src="telegram/content/alonews_120366.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فارس مدعی شد: یک نفتکش غول‌پیکر چینی که از تنگهٔ هرمز عبور کرده بود، خارج از خط محاصرهٔ آمریکا رویت شد.
-
-🔴این نفتکش پیش از آغاز مذاکرات رئیس‌جمهور چین و ترامپ درحال عبور از مسیر تعیین‌شدهٔ ایران در تنگهٔ هرمز در کنار جزیرهٔ لارک دیده شده بود.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120365
-
-<div align="center"><img src="telegram/content/alonews_120365.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ناو شارل دوگل فرانسه، خروجی خلیج عدن - ورودی دریای عرب دیده شده
 
 ✅ @AloNews خبر جنگ
 </div>

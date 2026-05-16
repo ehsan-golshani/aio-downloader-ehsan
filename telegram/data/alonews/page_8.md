@@ -1,8 +1,132 @@
 # آرشیو کانال alonews - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 23:43
+📅 آخرین بروزرسانی: 1405/02/27 00:51
 
 ---
+
+## alonews — post 120333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ارگان رسانه ای وابسته به سپاه نوشت: وزارت اقتصاد طرح مدیریت تنگه هرمز از طریق بیمه را پیگیری می‌کند تا امکان مدیریت بر تنگه در پساجنگ مطابق حقوق بین‌الملل فراهم شود و برای ایران آورده اقتصادی نیز داشته باش
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120332
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈الجزیره: برق کوبا پس از خاموشی گسترده دوباره وصل شد، اما بحران انرژی همچنان ادامه دارد
+
+
+🔴برق در سراسر کوبا روز جمعه پس از خاموشی‌های گسترده دوباره برقرار شد، اما بحران انرژی این کشور با کاهش شدید ذخایر نفتی همچنان ادامه دارد.
+
+🔴شرکت ملی برق کوبا اعلام کرد که پس از قطعی برق در ۷ استان از ۱۵ استان، «سیستم برق ملی دوباره برقرار شده است»، با این حال قطعی‌های برنامه‌ریزی‌شده ادامه دارد و نیروگاه‌های قدیمی هنوز در دست تعمیر هستند.
+
+🔴 وزیر انرژی، روز چهارشنبه اعلام کرد که ذخایر نفت کشور «تمام شده است». کمبود انرژی خشم عمومی را برانگیخته و شهروندان هاوانا با کوبیدن قابلمه و ماهیتابه اعتراض خود را نشان دادند.
+
+🔴کوبا کاهش انرژی را ناشی از تحریم‌های آمریکا می‌داند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120331
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈آسوشیتدپرس: بازگشت ناو هواپیمابر جرالد فورد به پایگاه پس از ۱۱ ماه مأموریت
+
+🔴وزارت جنگ آمریکا اعلام کرد پیت هگست، وزیر جنگ، روز شنبه در پایگاه دریایی نورفولک در ویرجینیا از ناو هواپیمابر جرالد فورد و ۴۵۰۰ ملوان آن پس از ۱۱ ماه مأموریت استقبال می‌کند.
+
+🔴این ناو ۳۲۶ روز در دریا بوده که طولانی‌ترین استقرار یک ناو هواپیمابر آمریکایی در ۵۰ سال گذشته و سومین رکورد از زمان جنگ ویتنام است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120330
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کپیتال اکونومیست: قیمت نفت به ۱۵۰ دلار در هر بشکه خواهد رسید
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120329
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈نیروی هوایی اوکراین اعلام کرد: 269 پهپاد از 294 پهپاد پرتاب شده توسط ارتش روسیه را شب گذشته سرنگون کرده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈نیویورک تایمز گزارش می‌دهد که نیروهای نظامی آمریکا "در حال آماده‌سازی برای دور دیگری از حملات هستند... این بار با شدت بیشتر. این حملات ممکن است از روز دوشنبه آغاز شود. اهداف نظامی بیشتری از ایران در نظر گرفته شده است که شامل زیرساخت‌ها نیز می‌شود."
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120325
+
+<div align="center"><img src="telegram/content/alonews_120325.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈شب گذشته در بسیاری از برنامه های صداوسیما، مجریان با تفنگ حاضر شدند!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120324
+
+<div align="center"><video src="telegram/content/alonews_120324.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120324.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مارکو روبیو: چین کاری را انجام می‌دهد که من اگر رهبر چینی بودم انجام می‌دادم. آن‌ها تلاش می‌کنند در تمام این صنایع کلیدی آینده بر جهان مسلط شوند.
+
+🔴 شاید ما از آن خوشمان نیاید، اما این همان کاری است که آن‌ها انجام خواهند داد زیرا به نفع بهترین منافع خود عمل می‌کنند. ما نیز باید به نفع بهترین منافع خود عمل کنیم.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120323
+
+<div align="center"><video src="telegram/content/alonews_120323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈روبیو: اگر جی دی ونس کاندیدای ریاست جمهوری شود، اولین نفری هستم که از او حمایت می کنم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120322
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈روزنامه عبری هاآرتص: چهار ماه از ایجاد «شورای صلح» برای نوار غزه می‌گذرد؛ تاکنون طرح ترامپ اجرا نشده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120321
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: نفت ونزوئلا ما را ثروتمند کرد!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120320
+
+<div align="center"><img src="telegram/content/alonews_120320.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈استوری مشاور قالیباف در اینستاگرام
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120319
 
@@ -78,153 +202,5 @@
 👈رئیس سازمان اداری و استخدامی: ساعت کاری جدید اداره‌ها از امروز اجرایی می‌شود و تا نیمه شهریور ادامه دارد
 
 ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120303
-
-<div align="center"><img src="telegram/content/alonews_120303.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈روزنامه دیلی تلگراف گزارش داد، احتمال آن که کر استارمر نخست وزیر انگلیس از سمت خود به نقل شهردار منچستر کناره گیری کند وجود دارد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120302
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 دونالد ترامپ، مدعی شد در جریان یک عملیات مشترک میان نیروهای آمریکایی و نیجریه‌ای، «ابوبلال المنوکی»، مرد شماره دو  داعش را از پای درآوردیم.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سفیر چین در سازمان ملل، از پیش‌نویس قطعنامه پیشنهادی آمریکا و بحرین دربارۀ تنگه هرمز انتقاد و تاکید کرد که محتوا و زمان آن مناسب نیست و تصویب آن کمک‌کننده نخواهد بود
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120300
-
-<div align="center"><video src="telegram/content/alonews_120300.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120300.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رئیس جمهور ترامپ در مورد ایران:
-ما نه تا دوربین مختلف توی اون سایت داریم و دقت به قدری بالاست که ما می توانیم نام یک شخص را هم بخوانیم.
-
-🔴اگر اسمش محمد است ، بیشترشان محمد هستند ؛ شما می توانید حدود 50 درصد درست حدس بزنید.
-
-🔴هر کسي که به اون فضا نزديک بشه ، ما میفهمیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120299
-
-<div align="center"><video src="telegram/content/alonews_120299.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120299.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: گفتم گرد و غبار هسته ای را می گیریم ایران گفت: "شما می توانید آن را داشته باشید. اونا گفتن ، " ما نمیتونیم تحملش کنیم. ما توانایی مصرف آن را نداریم. گفتم: "چرا؟ اونا گفتن چون خيلي ضربه خورده"
-
-🔴برت بایر فاکس: چرا این کافی نیست اگر هدف شما این بود که آنها را عقب بیندازید ؟
-
-🔴ترامپ: از نظر روابط عمومی به اندازه کافی خوب نیست‌‌
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120298
-
-<div align="center"><video src="telegram/content/alonews_120298.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120298.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈برت بایر از فاکس: فکر می کنید ایران به زودی تسلیم خواهد شد ؟
-
-🔴ترامپ: بله ، من هیچ شکی ندارم.‌‌
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120297
-
-<div align="center"><video src="telegram/content/alonews_120297.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120297.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رئیس جمهور ترامپ در مورد ایران:
-ایران سالهاست که جهان را با تنگه هرمز نگه داشته است. اونا در گذشته تنگه رو بسته بودن اونا ازش به عنوان سلاح استفاده ميکنن اونا ازش به عنوان سلاح با من استفاده نميکنن
-
-🔴رئیس جمهور شی دیشب با لبخند گفت: "خب ، آنها تنگه را می بندند ، و بعد شما آنها را می بندید."‌‌
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120296
-
-<div align="center"><video src="telegram/content/alonews_120296.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120296.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈برت بایر از فاکس: آیا تاب آوری ایران را دست کم گرفتید ؟
-
-🔴ترامپ: چیزی را دست کم نگرفتم ما می توانیم پل ها و ظرفیت برق آنها را در دو روز از بین ببریم.‌‌
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120295
-
-<div align="center"><video src="telegram/content/alonews_120295.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120295.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ : ویتنام ۱۹ سال طول کشید، عراق حدود ۱۰ سال، کره ۷ سال، یکی دیگه ۱۴ سال، یکی ۱۲ سال، یکی هم ۹ سال
-- ما فقط دو ماه و نیم اونجا بودیم
-- چین هم این هفته سه تا نفتکش پر از نفت ایران رو برد، چون ما اجازه دادیم این اتفاق بیفته،شما اجازه دادید
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ به فاکس نیوز: چین جرات اقدام علیه تایوان را در دوران قدرت من نخواهد داشت‌‌
-
-🔴پکن از عدم نیاز واشنگتن به هیچ کمکی در پرونده ایران یا ایمن سازی ناوبری در تنگه هرمز خبر داد‌‌
-
-🔴چین برای تامین 40 درصد منابع نفتی خود به تنگه هرمز تکیه می کند‌‌
-
-🔴خب، به هر حال ما به یک راه‌حل خواهیم رسید. بنابراین یا این مسئله به‌صورت خشونت‌آمیز حل می‌شود یا بدون خشونت. و من خیلی ترجیح می‌دهم که بدون خشونت باشد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120293
-
-<div align="center"><img src="telegram/content/alonews_120293.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈پک ۱۰عددی کاندوم با افزایش قیمت به ۴۸۰هزار تومان رسیده!
-
-🔴دولت باید به اینجور چیزا سوبسید بده تا همه بتونن استفاده کنن اما.....
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120292
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تعرفه سرویس های Vip ⭕️ ✅ 1 گیگابایت ⬅️ 250/000 تومان ✅ 3 گیگابایت ⬅️ 750/000 تومان استارلینک Vip 💫 🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات) ⭐️ 5 گیگابایت ⬅️ 1/400/000 تومان ⭐️ 10 گیگابایت ⬅️ 2/800/000 تومان ویژگی های سرویس های Vip : ❤️‍🔥 ✅ متصل…
 </div>
 

@@ -1,8 +1,40 @@
 # آرشیو کانال kianmeli1 - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 14:20
+📅 آخرین بروزرسانی: 1405/02/27 00:38
 
 ---
+
+## kianmeli1 — post 87438
+
+<div align="center"><video src="telegram/content/kianmeli1_87438.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87438.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ناصر رفیعی، سخنران مذهبی دفتر علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، به نقل از غلامعلی حداد عادل، پدرزن مجتبی خامنه‌ای، گفت اعضای خانواده علی خامنه‌ای پیش از عملیات مرگبار نهم اسفند در مجتمع رهبری باقی ماندند، زیرا مقامات «اطمینان داده بودند» که با نزدیک شدن توافق در مذاکرات، هیچ اقدام نظامی صورت نخواهد گرفت.
+رفیعی در این فایل صوتی به نقل از حداد عادل می‌گوید که این اتفاق به‌ این دلیل افتاد که شرایط عادی در بیت بود و «خامنه‌ای خود را در معرض قرار داده بود.»
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87437
+
+<div align="center"><img src="telegram/content/kianmeli1_87437.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرنگار فاکس نیوز: ترامپ درحال آماده‌شدن برای دور جدیدی از حملات نظامی به ایران است
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87436
+
+<div align="center"><img src="telegram/content/kianmeli1_87436.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ در سوشال تروث
+
+«این آرامشِ پیش از طوفان بود»
+https://t.me/kianmeli1
+</div>
 
 ## kianmeli1 — post 87435
 
@@ -156,35 +188,6 @@ https://t.me/kianmeli1
 ‏ما در حقیقت آتش‌بس را به درخواست کشورهای دیگر انجام دادیم.
 ‏​
 ‏من خودم چندان موافق آن نبودم، اما این کار را به عنوان لطفی به پاکستان انجام دادیم، آدم‌های فوق‌العاده‌ای هستند، فیلد مارشال و نخست‌وزیر.»
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87415
-
-<div align="center"><video src="telegram/content/kianmeli1_87415.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87415.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴۳۰ روز طول کشید تا جنازه عبدالرحیم موسوی، رئیس سابق ستاد کل نیروهای مسلح، پیدا شود
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87414
-
-<div align="center"><video src="telegram/content/kianmeli1_87414.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87414.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تصاویری از پایان سفر پرزیدنت ترامپ به چین
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴شبکه 13 اسرائیل: ساختار امنیتی [در اسرائیل] بر این ارزیابی است که ترامپ با انجام حمله‌ای محدود به ایران موافقت خواهد کرد.
 https://t.me/kianmeli1
 </div>
 

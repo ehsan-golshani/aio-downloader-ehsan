@@ -1,8 +1,24 @@
 # آرشیو کانال FarsiVOA - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 23:35
+📅 آخرین بروزرسانی: 1405/02/27 00:43
 
 ---
+
+## FarsiVOA — post 217867
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️توافق آمریکا و چین درباره تنگه هرمز چه پیامدی برای حکومت ایران دارد؟ گفت‌وگو با ابراهیم روشندل
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217866
+
+<div align="center"><img src="telegram/content/FarsiVOA_217866.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️سی‌ان‌ان به نقل از «منابع مطلع» نوشت که مقامات آمریکایی احتمال می‌دهند هکرهای جمهوری اسلامی با مجموعه‌ای از نفوذها به سامانه‌های پایش میزان سوخت مخازن پمپ‌بنزین در چند ایالت ارتباط دارند. این گزارش می‌گوید این نفوذها خسارت فیزیکی یا حادثه‌ای ایجاد نکرده‌اند، اما به‌طور بالقوه این امکان را ایجاد می‌کند که نشت سوخت را در صورت نفوذ بیشتر، پنهان کند و این مسئله باعث نگرانی است.
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217865
 
@@ -174,24 +190,5 @@ https://ir.voanews.com/a/senator-cotton-tom-visa-immigration-terrorist-congress-
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/iran-emirate-uae-oil-hormuz-opec/8150437.html
 @FarsiVOA
-</div>
-
-## FarsiVOA — post 217846
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️گفت‌وگو با عسل عباسی، عضو پیشین کمیته حمایت از روزنامه‌نگاران، در باره جایزه شجاعت برای خواهران محمدی و جایزه انجمن قلم برای دو نویسنده ایرانی گلرخ ایرایی و علی اسداللهی
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217845
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ارتش اسرائیل: در یک هفته ۶۰ تروریست حزب‌الله کشته شدند
-
-◾️ارتش اسرائیل می‌گوید در طول یک هفته حدود ۶۰ تروریست حزب‌الله کشته شدند و عملیات اسرائیل در جنوب لبنان ادامه دارد.
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/iran-israel-hezbollah-lebanon-washington/8150375.html
 </div>
 

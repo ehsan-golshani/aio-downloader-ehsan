@@ -1,8 +1,153 @@
 # آرشیو کانال alonews - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 23:43
+📅 آخرین بروزرسانی: 1405/02/27 00:51
 
 ---
+
+## alonews — post 120472
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈یه پهپاد حزب‌الله مستقیم به خودروی ارتش اسرائیل خورد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 FLASH NET VPN 🔥 ⚠️ شرایط جنگی؟ نت ملی؟ فیلترینگ سنگین؟ 💪 ما هنوز پایدار و بدون قطعی کنار شماییم! 🚀 پینگ خفن 🌐 سرعت فوق‌العاده پایدار 😍 رضایت فراوان کاربران 🤖 ربات کاملاً خودکار 💸 نرخ‌ها پایین‌تر از همه جا 🇧🇬 تک لوکیشن بلغارستان ♾ بدون ضریب 🔗 دارای لینک…
+</div>
+
+## alonews — post 120470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 FLASH NET VPN 🔥
+⚠️ شرایط جنگی؟ نت ملی؟ فیلترینگ سنگین؟
+💪 ما هنوز پایدار و بدون قطعی کنار شماییم!
+
+🚀 پینگ خفن
+🌐 سرعت فوق‌العاده پایدار
+😍 رضایت فراوان کاربران
+🤖 ربات کاملاً خودکار
+💸 نرخ‌ها پایین‌تر از همه جا
+
+🇧🇬 تک لوکیشن بلغارستان
+♾ بدون ضریب
+🔗 دارای لینک ساب اختصاصی
+
+━━━━━━━━━━━━━━━
+📦 ۵ گیگ ➜  650,000 تومان ✅ 
+📦 ۱۰ گیگ ➜  990,000 تومان ✅
+📦 ۵۰ گیگ ➜  4,500,000 تومان ✅
+━━━━━━━━━━━━━━
+
+
+🛒 خرید فوری از ربات 👇
+@Flashnetofferbot
+
+
+کانالشون:
+@flashnnet
+
+
+⚡️ FLASH NET | همیشه آنلاین، همیشه پایدار 
+⚡️
+</div>
+
+## alonews — post 120469
+
+<div align="center"><video src="telegram/content/alonews_120469.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120469.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رسول جلیلی، عضو شورای عالی فضای مجازی،چهره نزدیک به جلیلی: اینستاگرام مثل اف۳۵، اف۲۲ و ای۱۰ آمریکا است، مثل آن اژدری است که به ناو دنا شلیک شد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120468
+
+<div align="center"><img src="telegram/content/alonews_120468.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قالیباف: جهان در آستانهٔ نظمی نوین قرار دارد.
+
+🔴چنان‌که رئیس‌جمهور شی گفت: «تحولی که در یک قرن دیده نشده، در سراسر جهان با شتاب در حال پیشروی است»، و من تأکید می‌کنم که مقاومت ۷۰ روزهٔ ملت ایران این تحول را شتاب بخشیده است.
+
+🔴آینده از آنِ جنوب جهانی است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120467
+
+<div align="center"><img src="telegram/content/alonews_120467.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سایت بیمه ایرانی تنگه هرمز راه‌اندازی شد
+
+🔴سایت «هرمز سیف» (Hormuz Safe) ارائه بیمه به محموله‌های دریایی عبوری از تنگه هرمز را شروع کرد.
+
+🔴بر این اساس، بیمه‌نامه‌هایی سریع و با قابلیت تایید رمزنگاری شده برای محموله‌هایی که از خلیج فارس، تنگه هرمز و آبراه‌های اطراف آن عبور می‌کنند، ارائه می‌شود و پرداخت‌ها با بیت‌کوین، تسویه خواهد شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120466
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کوثری، عضو‌ کمیسیون امنیت ملی مجلس: دشمن باید بداند، ما در خشکی و دریا امکاناتی داریم که هنوز به کار‌گرفته نشده و در صورت نیاز استفاده می‌شود
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120465
+
+<div align="center"><img src="telegram/content/alonews_120465.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈بورل، مقام ارشد سابق اتحادیه اروپا:
+ناتوانی اتحادیه اروپا در دستیابی به مواضع مشترک در مورد مسائل ژئوپلیتیکی، جایگاه جهانی آن را تضعیف کرده است.
+
+🔴اتحادیه اروپا در شکل فعلی خود قادر به پاسخگویی به واقعیت‌های ژئوپلیتیکی پرشتاب امروزی نیست
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120464
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 سی‌ان‌ان به نقل از سخنگوی کاخ سفید: رئیس جمهور فقط توافقی را می‌پذیرد که از امنیت ملی ما محافظت کند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رهبر حماس: ما هیچوقت تسلیم دشمن نمیشیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120462
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سفارت پاکستان در ایران: گفت‌وگوهای سطح بالا بین تهران و اسلام‌آباد درباره «تلاش‌های میانجی‌گرانه» در جریان است.
+
+🔴 وزیر کشور پاکستان به تهران در چارچوب تلاش‌ها برای «تسهیل گفت‌وگو» صورت می‌گیرد
+
+🔴وزیر کشور ایران از تلاش‌های ژنرال عاصم منیر برای «حل مناقشه موجود» تمجید کرد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120461
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢فوری/گزارش‌ها از پرواز جنگنده‌های اسرائیلی به مقصد نامعلوم 🚨 @AkhbareFouri
+</div>
 
 ## alonews — post 120460
 
@@ -90,134 +235,5 @@
 نظرتون؟
 
 [@AloTweet]
-</div>
-
-## alonews — post 120452
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شبکه ۱۳ اسرائیل : تو اسرائیل یه سری برآوردا هست که میگن احتمال داره جنگ با ایران به‌زودی دوباره شروع بشه
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120451
-
-<div align="center"><img src="telegram/content/alonews_120451.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟 اشتراک v2ray استارلینک
-
-🗯گیگی 150,000 تومان
-🔗لینک ساب برا چک کردن مصرف و حجمتون
-🔥سرعت و کیفیت بالا
-✅ پشتیبانی دائم
-
-📱جهت خرید پیام بدین : @v2safeBot
-</div>
-
-## alonews — post 120447
-
-<div align="center"><img src="telegram/content/alonews_120447.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈یک حمله هوایی اسرائیل به تازگی خودرویی را در غرب شهر غزه هدف قرار داد که منجر به کشته شدن حداقل ۳ فلسطینی و زخمی شدن چندین نفر دیگر شد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120446
-
-<div align="center"><img src="telegram/content/alonews_120446.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈قیمت مرغ
-
-🔴 اردیبهشت ۴۰۴ کیلویی ۸۵ هزار
-
-🔴اردیبهشت ۴۰۵ کیلویی ۳۸۰ هزار
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120445
-
-<div align="center"><video src="telegram/content/alonews_120445.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120445.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ارتش آمریکا به کشتیِ که داشت مواد جابجا میکرد با تیر هشدار داد و توقیف کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈زمین‌لرزه ای به بزرگی ۴.۵ ریشتر دقایقی پیش گلوگاه در استان مازندران را لرزاند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دونالد ترامپ، رئیس‌جمهور آمریکا در گفت‌وگوی تلفنی با شبکه فرانسوی «بی‌اف‌ام‌تی‌وی» آینده مذاکرات با ایران را نامشخص توصیف کرد.
-
-🔴او هشدار داد که در صورت شکست مذاکرات، ایران با پیامدهای سنگینی روبه‌رو خواهد شد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120442
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار سی‌ان‌ان، کیتلان کالینز، می‌گوید: «ترامپ ظاهراً نمی‌خوابد.
-
-🔴«یک منبع یک بار به من گفت هیچوقت کسی دوست ندارد در یک سفر طولانی مثلاً به آسیا در هواپیمای رئیس جمهور باشد… ترامپ همیشه بیدار است و حرف می‌زند، و اگر کارکنانش خواب باشند، می‌فرستد بیدارشان کنند چون می‌خواهد با آنها صحبت کند.»
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120441
-
-<div align="center"><video src="telegram/content/alonews_120441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 ارتش دفاعی اسرائیل اعلام کرده است که در طول آخر هفته حملاتی به حدود ۱۰۰ هدف حزب‌الله در جنوب لبنان انجام داده است.
-
-🔴 این اهداف شامل موقعیت‌های نظارتی، محل‌های ذخیره سلاح و سایر زیرساخت‌هایی بود که ادعا می‌شود توسط حزب‌الله استفاده می‌شوند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120440
-
-<div align="center"><video src="telegram/content/alonews_120440.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120440.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈امروز بمب افکن B-52 تو پایگاه هوایی فِرفورد تمرین‌‌های خودشو انجام داد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120439
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈معاریو: ترامپ در آستانه چراغ سبز به اسرائیل برای ازسرگیری حملات است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120438
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کاخ سفید : همه گزینه ها در مورد ایران تو اختیار ترامپه
-
-✅ @AloNews خبر جنگ
 </div>
 

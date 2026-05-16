@@ -1,8 +1,146 @@
 # آرشیو کانال alonews - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 23:43
+📅 آخرین بروزرسانی: 1405/02/27 00:51
 
 ---
+
+## alonews — post 120355
+
+<div align="center"><video src="telegram/content/alonews_120355.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120355.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈یک مقام ارشد اسرائیلی در گفتگو با کانال ۱۲ اسرائیل: تل‌آویو در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120354
+
+<div align="center"><video src="telegram/content/alonews_120354.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120354.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: ۵ بار با ایران نزدیک توافق شدم، ولی روز بعدش زدن زیرش
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120353
+
+<div align="center"><video src="telegram/content/alonews_120353.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120353.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈حدادی، عضو کمیسیون صنایع: گران شدن خودرو توجیه فنی ندارد/قیمت‌ها باید به قبل از جنگ بازگردد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120351
+
+## alonews — post 120350
+
+## alonews — post 120349
+
+<div align="center"><video src="telegram/content/alonews_120349.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120349.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری / ارتش اسرائیل : عزالدین الحداد فرمانده گردان‌های القسام، همراه با محافظ‌هاش ترور شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120348
+
+<div align="center"><video src="telegram/content/alonews_120348.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120348.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر جدید نفت عراق، باسم محمد، اعلام کرد که عراق در ماه آوریل/نیمان ۱۰ میلیون بشکه نفت خود را از طریق تنگه هرمز صادر کرده است.
+
+
+🔴وی توضیح داد که عراق قصد دارد با سازمان اوپک همکاری کند تا تولید و ظرفیت صادرات کشور را افزایش دهد و افزود که بغداد هدف دارد به ظرفیت تولید روزانه ۵ میلیون بشکه دست یابد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120347
+
+<div align="center"><video src="telegram/content/alonews_120347.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120347.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سنتکام به نیویورک تایمز : کشتی‌های ایرانی رو با ماهواره و چند روش دیگه ردیابی می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120346
+
+<div align="center"><video src="telegram/content/alonews_120346.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120346.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈منابع پاکستانی: سومین کشتی گاز مایع قطر با عبور از تنگه هرمز در کراچی پهلو گرفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120345
+
+<div align="center"><video src="telegram/content/alonews_120345.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120345.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قطارهای چین به ایران سه برابر شد
+
+
+🔴با وجود محاصره دریایی آمریکا، قطارهای باری چین به ایران از هفته‌ای یک بار به هر سه تا چهار روز یکبار رسیده‌ است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120344
+
+<div align="center"><video src="telegram/content/alonews_120344.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120344.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سخنگوی وزارت کشور: از نمایندگان مجلس توقع داریم در اظهارنظرهای خود در موضوعات مختلف بیشتر دقت کنند؛ انسجام ملی باید حفظ شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120343
+
+<div align="center"><video src="telegram/content/alonews_120343.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120343.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: نام افرادی را که در نزدیکی اورانیوم های غنی‌شده ایران هستند، می‌دانیم. پنجاه درصدشان اسمشان محمد است!
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120342
 
@@ -145,129 +283,5 @@
 
 
 🔶 @Napsternetvirani
-</div>
-
-## alonews — post 120333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ارگان رسانه ای وابسته به سپاه نوشت: وزارت اقتصاد طرح مدیریت تنگه هرمز از طریق بیمه را پیگیری می‌کند تا امکان مدیریت بر تنگه در پساجنگ مطابق حقوق بین‌الملل فراهم شود و برای ایران آورده اقتصادی نیز داشته باش
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120332
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈الجزیره: برق کوبا پس از خاموشی گسترده دوباره وصل شد، اما بحران انرژی همچنان ادامه دارد
-
-
-🔴برق در سراسر کوبا روز جمعه پس از خاموشی‌های گسترده دوباره برقرار شد، اما بحران انرژی این کشور با کاهش شدید ذخایر نفتی همچنان ادامه دارد.
-
-🔴شرکت ملی برق کوبا اعلام کرد که پس از قطعی برق در ۷ استان از ۱۵ استان، «سیستم برق ملی دوباره برقرار شده است»، با این حال قطعی‌های برنامه‌ریزی‌شده ادامه دارد و نیروگاه‌های قدیمی هنوز در دست تعمیر هستند.
-
-🔴 وزیر انرژی، روز چهارشنبه اعلام کرد که ذخایر نفت کشور «تمام شده است». کمبود انرژی خشم عمومی را برانگیخته و شهروندان هاوانا با کوبیدن قابلمه و ماهیتابه اعتراض خود را نشان دادند.
-
-🔴کوبا کاهش انرژی را ناشی از تحریم‌های آمریکا می‌داند
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120331
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈آسوشیتدپرس: بازگشت ناو هواپیمابر جرالد فورد به پایگاه پس از ۱۱ ماه مأموریت
-
-🔴وزارت جنگ آمریکا اعلام کرد پیت هگست، وزیر جنگ، روز شنبه در پایگاه دریایی نورفولک در ویرجینیا از ناو هواپیمابر جرالد فورد و ۴۵۰۰ ملوان آن پس از ۱۱ ماه مأموریت استقبال می‌کند.
-
-🔴این ناو ۳۲۶ روز در دریا بوده که طولانی‌ترین استقرار یک ناو هواپیمابر آمریکایی در ۵۰ سال گذشته و سومین رکورد از زمان جنگ ویتنام است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کپیتال اکونومیست: قیمت نفت به ۱۵۰ دلار در هر بشکه خواهد رسید
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120329
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیروی هوایی اوکراین اعلام کرد: 269 پهپاد از 294 پهپاد پرتاب شده توسط ارتش روسیه را شب گذشته سرنگون کرده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیویورک تایمز گزارش می‌دهد که نیروهای نظامی آمریکا "در حال آماده‌سازی برای دور دیگری از حملات هستند... این بار با شدت بیشتر. این حملات ممکن است از روز دوشنبه آغاز شود. اهداف نظامی بیشتری از ایران در نظر گرفته شده است که شامل زیرساخت‌ها نیز می‌شود."
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120325
-
-<div align="center"><img src="telegram/content/alonews_120325.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شب گذشته در بسیاری از برنامه های صداوسیما، مجریان با تفنگ حاضر شدند!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120324
-
-<div align="center"><video src="telegram/content/alonews_120324.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120324.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مارکو روبیو: چین کاری را انجام می‌دهد که من اگر رهبر چینی بودم انجام می‌دادم. آن‌ها تلاش می‌کنند در تمام این صنایع کلیدی آینده بر جهان مسلط شوند.
-
-🔴 شاید ما از آن خوشمان نیاید، اما این همان کاری است که آن‌ها انجام خواهند داد زیرا به نفع بهترین منافع خود عمل می‌کنند. ما نیز باید به نفع بهترین منافع خود عمل کنیم.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120323
-
-<div align="center"><video src="telegram/content/alonews_120323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈روبیو: اگر جی دی ونس کاندیدای ریاست جمهوری شود، اولین نفری هستم که از او حمایت می کنم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120322
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈روزنامه عبری هاآرتص: چهار ماه از ایجاد «شورای صلح» برای نوار غزه می‌گذرد؛ تاکنون طرح ترامپ اجرا نشده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120321
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: نفت ونزوئلا ما را ثروتمند کرد!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120320
-
-<div align="center"><img src="telegram/content/alonews_120320.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈استوری مشاور قالیباف در اینستاگرام
-
-✅ @AloNews خبر جنگ
 </div>
 

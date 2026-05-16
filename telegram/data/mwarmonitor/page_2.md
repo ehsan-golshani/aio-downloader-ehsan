@@ -1,8 +1,48 @@
 # آرشیو کانال mwarmonitor - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 23:25
+📅 آخرین بروزرسانی: 1405/02/27 00:33
 
 ---
+
+## mwarmonitor — post 9157
+
+<div align="center"><video src="telegram/content/mwarmonitor_9157.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/mwarmonitor_9157.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸با ورود وزیر جنگ آمریکا، پیت هگست، به نورفولک، ویرجینیا، ناو هواپیمابر «یو‌اس‌اس جرالد آر. فورد» پس از یک استقرار بیش از ۳۰۰ روزه به پایگاه خانگی خود بازگشت. این ناو و شناورهای همراه آن در طول این مدت در عملیات‌های رزمی در دو فرماندهی رزمی (COCOM) شامل SOUTHCOM و CENTCOM شرکت داشتند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9156
+
+<div align="center"><img src="telegram/content/mwarmonitor_9156.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️من همین حالا یک ناو هواپیمابر کلاس نیمیتز (احتمالاً USS George H. W. Bush یا USS Abraham Lincoln) را در تصاویر ماهواره‌ای Sentinel-2 مربوط به 16/05/2026 پیدا کردم.
+
+🔸این ناو با سرعت به سمت شمال دریای عمان در حال حرکت است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9155
+
+<div align="center"><img src="telegram/content/mwarmonitor_9155.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️🇺🇸نیروی هوایی آمریکا (USAF) – جنگ ایران ۲۰۲۶ | ۱۶ مه
+
+✈️تعداد پروازهای ورودی هواپیماهای ترابری C-17 به منطقه فرماندهی مرکزی آمریکا (CENTCOM) و پایگاه‌های مرتبط به دست‌کم 1,320 پرواز رسیده و 10 پرواز دیگر نیز در حال انجام است.
+
+✈️8 مورد از این پروازهای جدید از پایگاه هوایی Pope Army Airfield آمریکا انجام شده‌اند و مقصد مشخصی برای آن‌ها قابل شناسایی نیست.
+
+✈️حداقل 6 پرواز جدید نیز به‌نظر می‌رسد حرکت‌های خروجی از CENTCOM به سمت پایگاه‌هایی در خاک آمریکا (CONUS) باشند؛ همان پایگاه‌هایی که بیشتر پروازها از آن‌ها آغاز شده‌اند.
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9154
 
@@ -206,40 +246,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇮🇱اسرائیل اعلام کرد که در نوار غزه یک حمله انجام داده که هدف آن عزالدین الحداد، رئیس شاخه نظامی حماس بوده است. اسرائیل او را یکی از طراحان حمله ۷ اکتبر معرفی کرده است. 🇮🇱بنیامین نتانیاهو، نخست‌وزیر، و اسرائیل کاتس، وزیر دفاع، اعلام کردند که اسرائیل «به اقدامات…
-</div>
-
-## mwarmonitor — post 9137
-
-<div align="center"><img src="telegram/content/mwarmonitor_9137.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇮🇱اسرائیل اعلام کرد که در نوار غزه یک حمله انجام داده که هدف آن عزالدین الحداد، رئیس شاخه نظامی حماس بوده است. اسرائیل او را یکی از طراحان حمله ۷ اکتبر معرفی کرده است.
-
-🇮🇱بنیامین نتانیاهو، نخست‌وزیر، و اسرائیل کاتس، وزیر دفاع، اعلام کردند که اسرائیل «به اقدامات خود علیه همه افراد دخیل ادامه خواهد داد».
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9136
-
-<div align="center"><img src="telegram/content/mwarmonitor_9136.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ هم‌اکنون یک فروند هواپیمای Boeing E-3B Sentry در حال گشت زنی برفراز خلیج فارس
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9135
-
-<div align="center"><img src="telegram/content/mwarmonitor_9135.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇦🇪به همین دلیل است که امارات متحده عربی با شدت به‌دنبال توسعه خط لوله حبشان است.
-🔹صادرات این کشور از ابوظبی و الرویس تقریباً به صفر نزدیک شده است.
-❗️در بیش از ۳۰ روز گذشته تعداد بسیار کمی نفتکش در این بنادر پهلو گرفته‌اند.
-🔸در نتیجه، برای جلوگیری از آسیب‌های ناشی از توقف تولید (shut-in)، امارات ناچار شده در چندین ایستگاه پمپاژ نفت و گاز به‌طور گسترده اقدام به سوزاندن گاز (فلرینگ) کند.
-
-@mwarmonitor
 </div>
 

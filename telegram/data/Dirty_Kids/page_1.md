@@ -1,8 +1,41 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 23:40
+📅 آخرین بروزرسانی: 1405/02/27 00:48
 
 ---
+
+## Dirty_Kids — post 389580
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیرانوند گفته: سرود حکومت را با صدای بلند میخونم… مردم مخالف جمهوری اسلامی در ورزشگاه هم هیچ کاری نمیتونن بکنن!
+
+داداشام و خواهرام در امریکا
+مدیونید بزارید آب‌خوش از گلوشون پایین بره... از دم فرودگاه تا هتل، شب قبل بازی جلوی هتل و داخل استادیوم، همه بلیطا هم بخرید تا صادراتیاشون نخرن، دیگه هرکاری در توانتون بکنید خارشونو بگایید
+﻿
+#فوتبالیست_سپاهی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389579
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389579.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید ترامپ تو تروث سوشال کنار یه فرمانده نظامی و خطاب به ایران :
+
+این تازه آرامش قبلِ طوفان بود.
+
+مجموع گزارش‌ها، اخبار رسمی، نقل‌وانتقالات نظامی و مصاحبه‌های ترامپ و نتانیاهو در هفته گذشته، نشان می‌دهد هر لحظه باید منتظر آغاز دور جدید حملات به جمهوری اسلامی بود؛ حملاتی که می‌تواند این‌بار با پیاده کردن سربازان آمریکایی در خاک ایران نیز همراه باشد.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389578
 
@@ -259,35 +292,6 @@ G26
 جیندا جنگ میندازی گردن مردم؟ جنگی که کل دنیا درگیرن سیاست ابرقدرت‌ها داره عوض میشه بخاطرش
 
 تا دیروز هرکی یه فیلم میگرفت میریختن تو خونش میگفتن جاسوس، الان دیدن کسی نمیتونه بره تو جزیره خودشون مستند میسازن میدن به این پرستو‌ها کصونه‌واویلا بازی دربیارن
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389558
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389558.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389558.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مداح‌: وقت نبرده بابا، به ترامپ بیناموس بگو، بچه کونه بابا
-
-مجری اسلحه میکشه مداح فحش رکیک میده، چه دست و پایی میزنن
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389557
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389557.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389557.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اطلاعات داره کم‌کم رو می‌شه. به خامنه‌ای گفته بودند جنگ نمی‌شه از لونه بیا بیرون که یک دفعه با یه تق... به هلاکت می‌رسه
-گوش کنید حتما
 
 
 @Dirty_Kids 👻

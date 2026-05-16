@@ -1,8 +1,22 @@
 # آرشیو کانال FarsiVOA - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/26 23:35
+📅 آخرین بروزرسانی: 1405/02/27 00:43
 
 ---
+
+## FarsiVOA — post 217670
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️بررسی پوشش اخبار درگیری نظامی با جمهوری اسلامی در رسانه‌های غربی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217669
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️حملە امارات و عربستان بە جمهوری اسلامی و سفر مخفیانە نخست وزیر اسرائیل بە امارات
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217668
 
@@ -169,27 +183,5 @@ https://ir.voanews.com/a/evin-prison-women-prisoners-political-prisoners-iran-de
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امیر سلطانی در برنامه تفسیر خبر: ما دوباره نیاز به ملی کردن نفت ایران داریم
-</div>
-
-## FarsiVOA — post 217650
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اشکان خسروپور، پژوهشگر سیاست‌گذاری اینترنت، می‌گوید بر اساس سند راهبردی جمهوری اسلامی، مدیریت اینترنت اساساً خارج از کنترل دولت‌ها است و ایجاد «ستاد ویژه» به ریاست محمدرضا عارف، معاون مسعود پزشکیان، صرفا جنبه نمایشی دارد.
-</div>
-
-## FarsiVOA — post 217649
-
-<div align="center"><video src="telegram/content/FarsiVOA_217649.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217649.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارتش اسرائیل تصاویری از هدف‌گیری نیروها و مواضع حزب‌الله در جنوب لبنان منتشر کرده است.
-
-این ارتش اعلام کرد از ابتدای درگیری‌ها، «بیش از ۴۰۰ تروریست از جمله اعضای یگان «رضوان» را به هلاکت رسانده و بیش از ۱۰۰۰ سلاح» متعلق به حزب‌الله را شناسایی کرده‌اند.
-
-بنابر بیانیه ارتش اسرائیل نیروهای واحد جمع‌آوری اطلاعات «شَحَف» (۸۶۹) بیش از ۱۲۰ تروریست را شناسایی و حذف کرده و ده‌ها زیرساخت تروریستی، از جمله مقرهای سازمان تروریستی حزب‌الله را نابود کرده‌اند.
-
-این ویدیو بی‌صدا است.
 </div>
 

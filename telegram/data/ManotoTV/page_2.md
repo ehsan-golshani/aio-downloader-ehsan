@@ -1,8 +1,38 @@
 # آرشیو کانال ManotoTV - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 23:34
+📅 آخرین بروزرسانی: 1405/02/27 00:43
 
 ---
+
+## ManotoTV — post 105519
+
+<div align="center"><video src="telegram/content/ManotoTV_105519.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/ManotoTV_105519.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوسلدورف آلمان، تجمع ایرانیان، شنبه ۲۶ اردیبهشت
+</div>
+
+## ManotoTV — post 105518
+
+<div align="center"><video src="telegram/content/ManotoTV_105518.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/ManotoTV_105518.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ملبورن، تجمع ایرانیان، ۲۶ اردیبهشت
+</div>
+
+## ManotoTV — post 105517
+
+<div align="center"><video src="telegram/content/ManotoTV_105517.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/ManotoTV_105517.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هامبورگ، راهپیمایی ایرانیان و حمایت از زندانیان سیاسی، ۲۶ اردیبهشت
+</div>
 
 ## ManotoTV — post 105516
 
@@ -211,61 +241,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ‌
 وزارت خارجه آمریکا اعلام کرد آتش‌بس میان اسرائیل و لبنان برای ۴۵ روز دیگر تمدید شده تا فرصت بیشتری برای ادامه مذاکرات فراهم شود.
-</div>
-
-## ManotoTV — post 105499
-
-<div align="center"><video src="telegram/content/ManotoTV_105499.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/ManotoTV_105499.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌
-شاهزاده رضا پهلوی در پیامی ویدیویی خطاب به ملت ایران، درباره همکاری با ساختارهای سرکوبگر جمهوری اسلامی هشدار داد و گفت افرادی که در داخل و خارج کشور آگاهانه در سرکوب معترضان، مصادره اموال شهروندان و همکاری با نهادهای حکومتی نقش داشته باشند، در آینده با «مسئولیت کیفری» روبه‌رو خواهند شد.
-
-او اعلام کرد «کمیته تدوین مقررات عدالت انتقالی ایران» در نخستین نظر مشورتی خود، همکاری با نهادهای سرکوب جمهوری اسلامی را «یاری‌رسانی به جنایت علیه بشریت» دانسته است.
-
-شاهزاده رضا پهلوی تاکید کرد مشارکت در خبرچینی، ایست‌های بازرسی، استفاده از کودکان در سرکوب و خرید و فروش اموال مصادره‌شده معترضان، می‌تواند موجب پیگرد و پاسخگویی قضایی شود.
-
-او همچنین هشدار داد در ایران آزاد، «هیچ جنایتکاری از پاسخ‌گویی در برابر قانون در امان نخواهد بود.»
-</div>
-
-## ManotoTV — post 105498
-
-<div align="center"><video src="telegram/content/ManotoTV_105498.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/ManotoTV_105498.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌
-اسرائیل اعلام کرد در حمله‌ای هوایی، عزالدین الحداد، ارشدترین فرمانده گروه تروریستی حماس در نوار غزه را هدف قرار داده است.
-
-هنوز گزارشی از وضعیت او منتشر نشده و حماس هم واکنشی نشان نداده است.
-
-الحداد در فهرست افراد تحت تعقیب اسرائیل قرار دارد و از سوی اسرائیل به عنوان یکی از «طراحان» حمله تروریستی هفت اکتبر معرفی شده است.
-</div>
-
-## ManotoTV — post 105497
-
-<div align="center"><video src="telegram/content/ManotoTV_105497.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/ManotoTV_105497.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اداره تحقیقات فدرال آمریکا، اف‌بی‌آی، اعلام کرد برای اطلاعاتی که به بازداشت و محکومیت مونیکا ویت، افسر و مأمور سابق ضدجاسوسی ارتش آمریکا متهم به جاسوسی برای جمهوری اسلامی، منجر شود ۲۰۰ هزار دلار جایزه تعیین کرده است.
-
-دفتر اف‌بی‌آی در واشنگتن اعلام کرد مونیکا ویت با وجود صدور کیفرخواست در سال ۲۰۱۹ همچنان متواری است.
-
-او به اتهام جاسوسی و انتقال اطلاعات مرتبط با دفاع ملی آمریکا به ایران تحت پیگرد قرار دارد.
-
-ویت بین سال‌های ۱۹۹۷ تا ۲۰۰۸ در نیروی هوایی آمریکا و دفتر تحقیقات ویژه این نیرو فعالیت می‌کرد و سپس تا سال ۲۰۱۰ به‌عنوان پیمانکار با دولت آمریکا همکاری داشت.
-
-اف‌بی‌آی اعلام کرد او در دوران فعالیت خود به اطلاعات فوق‌محرمانه، از جمله هویت واقعی مأموران مخفی جامعه اطلاعاتی آمریکا، دسترسی داشته است.
-
-بر اساس این بیانیه، ویت در سال ۲۰۱۳ به ایران پناهنده شد و سپس اطلاعات حساسی را در اختیار جمهوری اسلامی قرار داد که برنامه‌های محرمانه آمریکا و امنیت کارکنان آمریکایی را به خطر انداخت.
-
-سی‌ان‌ان پیش‌تر گزارش داده بود مقام‌های آمریکایی معتقدند جمهوری اسلامی او را جذب کرده و ویت پس از فرار به ایران، هویت یک مأمور اطلاعاتی آمریکا و جزئیات یک برنامه فوق‌محرمانه اطلاعاتی را افشا کرده است.
-
-کیفرخواست این پرونده همچنین نام چهار شهروند ایرانی را در ارتباط با اتهام‌هایی از جمله توطئه، تلاش برای هک رایانه‌ای و سرقت هویت ذکر کرده است.
 </div>
 

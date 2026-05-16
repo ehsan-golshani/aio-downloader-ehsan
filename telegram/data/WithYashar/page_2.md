@@ -1,8 +1,38 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 23:25
+📅 آخرین بروزرسانی: 1405/02/27 00:32
 
 ---
+
+## WithYashar — post 11402
+
+<div align="center"><video src="telegram/content/WithYashar_11402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوئل نهایی ، وضعیت الان!
+@withyashar
+</div>
+
+## WithYashar — post 11401
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی ها اومدن که خبر مرگ بابای سپاهیشون رو زودتر تو چنلت ببینن
+اخه از رسانه های دیگه ۱ ساعت حداقل جلوتری ستون😂🔥
+</div>
+
+## WithYashar — post 11400
+
+<div align="center"><img src="telegram/content/WithYashar_11400.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید ترامپ :
+
+شوخی نداریم!!!
+ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیفته!
+@withyashar
+</div>
 
 ## WithYashar — post 11399
 
@@ -137,30 +167,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترامپ: 5 بار با ایران نزدیک توافق شدم، ولی روز بعدش زدن زیرش
-@withyashar
-</div>
-
-## WithYashar — post 11381
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نشست آینده تکنولوژی در ایران، با حضور و سخنرانی شاهزاده رضا پهلوی امشب ۸:۳۰ به وقت تهران ۱۰ صبح به وقت غرب آمریکا سانفرانسیسکو
-@withyashar
-</div>
-
-## WithYashar — post 11380
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سنتکام به نیویورک تایمز : کشتی‌های ایرانی رو با ماهواره و چند روش دیگه ردیابی می‌کنیم
-@withyashar
-</div>
-
-## WithYashar — post 11379
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آسوشیتدپرس: بازگشت ناو هواپیمابر جرالد فورد به پایگاه پس از ۱۱ ماه مأموریت
-
-وزارت‌جنگ آمریکا اعلام کرد پیت هگست، وزیر جنگ، روز شنبه در پایگاه دریایی نورفولک در ویرجینیا از ناو هواپیمابر جرالد فورد و ۴۵۰۰ ملوان آن پس از ۱۱ ماه مأموریت استقبال می‌کند.
-این ناو ۳۲۶ روز در دریا بوده که طولانی‌ترین استقرار یک ناو هواپیمابر آمریکایی در ۵۰ سال گذشته و سومین رکورد از زمان جنگ ویتنام است.
 @withyashar
 </div>
 

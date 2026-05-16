@@ -1,8 +1,47 @@
 # آرشیو کانال ManotoTV - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 23:34
+📅 آخرین بروزرسانی: 1405/02/27 00:43
 
 ---
+
+## ManotoTV — post 105416
+
+<div align="center"><video src="telegram/content/ManotoTV_105416.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/ManotoTV_105416.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماسی از ایران:
+درد دلی با چاشنی کمی شوخی
+از واقعیتی تلخ از زندگی روزمره مردم
+</div>
+
+## ManotoTV — post 105415
+
+<div align="center"><video src="telegram/content/ManotoTV_105415.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/ManotoTV_105415.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌
+جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در اظهاراتی درباره برنامه هسته‌ای جمهوری اسلامی گفت با موضع دونالد ترامپ موافق است که جمهوری اسلامی نباید به سلاح هسته‌ای دست پیدا کند.
+
+ونس گفت دولت آمریکا در حال حاضر درگیر یک روند «فعال دیپلماتیک» برای اطمینان از عدم دستیابی جمهوری اسلامی به سلاح هسته‌ای است، اما در عین حال تاکید کرد ترامپ گزینه‌های مختلفی، از جمله گزینه‌های دیپلماتیک و نظامی، در اختیار دارد.
+
+معاون رئیس‌جمهوری آمریکا افزود اولویت اصلی ترامپ، حفاظت از مردم آمریکا و همچنین امنیت جهان در برابر تهدید ناشی از دستیابی جمهوری اسلامی به سلاح هسته‌ای است.
+</div>
+
+## ManotoTV — post 105414
+
+<div align="center"><video src="telegram/content/ManotoTV_105414.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/ManotoTV_105414.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واتس‌اپ قابلیت جدیدی به نام «حالت ناشناس» برای چت با هوش مصنوعی متا معرفی کرده که در آن، گفتگوها ذخیره یا قابل مشاهده نخواهند بود؛ حتی برای خود شرکت متا.
+واتس‌اپ می‌گوید این قابلیت برای گفتگو درباره موضوعات حساسی مثل سلامت، روابط و مسائل مالی طراحی شده است.
+با این حال، کارشناسان هشدار داده‌اند حذف کامل تاریخچه چت‌ها می‌تواند در صورت بروز آسیب یا سوءاستفاده، پیگیری مسئولیت را دشوار کند.
+</div>
 
 ## ManotoTV — post 105413
 

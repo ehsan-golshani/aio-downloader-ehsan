@@ -1,8 +1,72 @@
 # آرشیو کانال Shin_Persian - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 21:22
+📅 آخرین بروزرسانی: 1405/02/27 00:40
 
 ---
+
+## Shin_Persian — post 6017
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 15 May 2026 17:04:22 UTC Gazans report a blitz airstrike on western Gaza, highly likely a targeted assassination. ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی ساکنان غزه از یک حمله هوایی برق‌آسا…
+</div>
+
+## Shin_Persian — post 6016
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 15 May 2026 17:04:22 UTC
+
+Gazans report a blitz airstrike on western Gaza, highly likely a targeted assassination.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+ساکنان غزه از یک حمله هوایی برق‌آسا به غرب غزه خبر می‌دهند که به احتمال بسیار زیاد یک ترور هدفمند است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Fri, 15 May 2026 17:04:22 UTC
+
+Gazans report a blitz airstrike on western Gaza, highly likely a targeted assassination.
+
+فارسی
+
+ساکنان غزه از یک حمله هوایی برق‌آسا به غرب غزه خبر می‌دهند که به احتمال بسیار زیاد یک ترور هدفمند بوده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6014
+
+<div align="center"><video src="telegram/content/Shin_Persian_6014.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Shin_Persian_6014.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Rapid Response 47 ✓ @RapidResponse47 Fri, 15 May 2026 14:28:16 UTC .@POTUS says he discussed Taiwan and Iran with President Xi: "He does not want to see a fight for independence... I didn’t make a comment on it... on Iran, it’s very interesting. He feels…
+</div>
+
+## Shin_Persian — post 6013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Rapid Response 47 ✓ @RapidResponse47
+Fri, 15 May 2026 14:28:16 UTC
+
+.@POTUS says he discussed Taiwan and Iran with President Xi: "He does not want to see a fight for independence... I didn’t make a comment on it... on Iran, it’s very interesting. He feels strongly they can’t have a nuclear weapon... and he wants them to open up the strait."
+
+فارسی
+
+.@POTUS می‌گوید که با رئیس‌جمهور شی در مورد تایوان و ایران گفتگو کرده است: «او نمی‌خواهد شاهد جنگی برای استقلال باشد... من در این مورد نظری ندادم... درباره ایران، موضوع بسیار جالب است. او با قدرت احساس می‌کند که آنها نباید سلاح هسته‌ای داشته باشند... و او می‌خواهد که آنها تنگه را باز کنند.»
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6012
 
@@ -281,88 +345,5 @@ http://www.ukmto.org/-/media/ukmto/products/20260514-ukmto_057_26_warning_suspic
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ↩️ Quoted tweet: DefenceGeek 🇬🇧 ✓ @DefenceGeek Wed, 13 May 2026 19:49:28 UTC B-2 Spirit on a training flight from CONUS as part of a suspected STRATCOM exercise involving the E-6B flying out of Stuttgart ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.…
-</div>
-
-## Shin_Persian — post 5994
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-↩️ Quoted tweet:
-DefenceGeek 🇬🇧 ✓ @DefenceGeek
-Wed, 13 May 2026 19:49:28 UTC
-
-B-2 Spirit on a training flight from CONUS as part of a suspected STRATCOM exercise involving the E-6B flying out of Stuttgart
-
-↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
-
-فارسی
-
-بمب‌افکن بی‌-۲ اسپیریت (B-2 Spirit) در یک پرواز آموزشی از خاک اصلی ایالات متحده (CONUS) به عنوان بخشی از یک رزمایش احتمالی فرماندهی راهبردی ایالات متحده (STRATCOM) که شامل هواپیمای ای-۶بی (E-6B) در حال پرواز از اشتوتگارت است.
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5993
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📦 mhrv-rs v1.9.25 released
-
-• Install MITM CA into LibreWolf NSS stores (#1145, PR #1159)
-• **Fix Full mode "Google + most websites broken while Telegram works"
-
-Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
-
-👉 v1.9.25 — all files with SHA-256
-
-Channel:
-https://t.me/mhrv_rs
-or: https://t.me/+R1OyoHX2boA1ZDgx
-
-#v1925
-</div>
-
-## Shin_Persian — post 5992
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Shin ✓ @hey_itsmyturn
-Wed, 13 May 2026 19:31:31 UTC
-
-"Saudi warplanes struck militias in Iraq during war"
-- Reuters
-
-https://www.reuters.com/world/middle-east/saudi-warplanes-struck-militias-iraq-during-war-sources-say-2026-05-13/
-
-فارسی
-
-"جنگنده‌های سعودی طی جنگ شبه‌نظامیان را در عراق هدف قرار دادند"
-- رویترز
-
-https://www.reuters.com/world/middle-east/saudi-warplanes-struck-militias-iraq-during-war-sources-say-2026-05-13/
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5991
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Emanuel (Mannie) Fabian ✓ @manniefabian
-Wed, 13 May 2026 17:01:27 UTC
-
-Prime Minister Benjamin Netanyahu visited the UAE during the Iran war, his office says.
-
-فارسی
-
-دفتر بنیامین نتانیاهو، نخست‌وزیر، اعلام کرد که وی در طول جنگ ایران از امارات متحده عربی بازدید کرده است.
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5990
-
-<div align="center"><video src="telegram/content/Shin_Persian_5990.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Shin_Persian_5990.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-U.S. Central Command ✓ @CENTCOM Wed, 13 May 2026 15:19:24 UTC Four weeks ago, CENTCOM began implementing the blockade against ships entering and exiting Iran’s ports. As of today, American forces have redirected 67 commercial vessels, allowed 15 supporting…
 </div>
 

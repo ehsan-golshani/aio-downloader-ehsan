@@ -1,8 +1,66 @@
 # آرشیو کانال pm_afshaa - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 23:27
+📅 آخرین بروزرسانی: 1405/02/27 00:34
 
 ---
+
+## pm_afshaa — post 90849
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴الحدث به نقل از منابع پاکستانی:
+اسلام آباد به دنبال ادامه روند میانجیگری با جدییت است. اسلام آباد به دنبال متقاعد کردن تهران و واشنگتن به انعطاف پذیری در مذاکراته
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90848
+
+<div align="center"><img src="telegram/content/pm_afshaa_90848.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجری‌های صداوسیما در چند برنامه زنده، با اسلحه کلاشینکف حضور پیدا کردن : 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90847
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کانال 12 اسرائیل: اسرائیل در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90846
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ایسنا: وزیر کشور پاکستان برای دیدار با مسئولان جمهوری اسلامی ساعاتی قبل به تهران سفر کرده.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90845
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کانال 12 اسرائیل: برآورد اسرائیل نشون میده تصمیم برای اقدام نظامی بسیار زود گرفته میشه. ترامپ طی 24 ساعت آینده جلسه‌ای با تیم نزدیک خود برای تصمیم‌گیری نهایی درباره ایران برگزار خواهد کرد.
+
+به گفته یک مقام ارشد اسرائیلی، ازسرگیری درگیری نزدیکه و اسرائیل خودش رو برای چند روز تا چند هفته جنگ آماده میکنه.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90844
+
+<div align="center"><img src="telegram/content/pm_afshaa_90844.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجری‌های صداوسیما در چند برنامه زنده، با اسلحه کلاشینکف حضور پیدا کردن :
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90843
 
@@ -147,60 +205,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز از دنده چپ پا شدم میخام همه رو فحش بدم کیرم تو ناموس سپاهی و بسیجی خار مادر همتونو با هم گاییدم با اون رهبر چلاق مقواییتون
-</div>
-
-## pm_afshaa — post 90829
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز از دنده چپ پا شدم میخام همه رو فحش بدم
-
-کیرم تو ناموس سپاهی و بسیجی خار مادر همتونو با هم گاییدم با اون رهبر چلاق مقواییتون
-</div>
-
-## pm_afshaa — post 90828
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سازمان ملل: نگرانیم، چون ممکنه منطقه بازم دچار تنش و درگیری بشه 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90827
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سازمان ملل: نگرانیم، چون ممکنه منطقه بازم دچار تنش و درگیری بشه
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90826
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینایی که تو اپای ایرانی به اسم ما فعالیت میکنن به زودی یه کپی رایت میزنم دهن همتونو میگام خسارت بد نام کردنم رو هم ازتون میگیرم کونتونو پاره میکنم
-</div>
-
-## pm_afshaa — post 90825
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ: افزایش قیمت‌ بنزین مرتبط با جنگ ایران «درد کوتاه‌مدت» است که بسیار کمتر از چیزی است که مردم انتظار داشتن.
-
-وقتی به کسی میگید که باید کمی بیشتر برای بنزین در یک دوره بسیار کوتاه بپردازید، چون میخوایم جلوی تهدید تکه‌تکه شدن توسط یک دیوانه، یک فرد دیوانه رو بگیریم، و آنها دیوانه هستن با استفاده از سلاح‌های هسته‌ای، همه میگن که این خوب است.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90824
-
-<div align="center"><video src="telegram/content/pm_afshaa_90824.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/pm_afshaa_90824.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دونالد ترامپ: ما بر روی سایت‌های هسته‌ای ایران 9 تا دوربین در فضا داریم. ما نام یک شخص رو میخونیم، اگه اسمش محمد باشه که اکثر آنها محمد هستن، شما میتونید حدود 50 درصد درست حدس بزنید.
-
-خلاصه اینکه، هر کسی که به آنجا نزدیک میشه، ما یک تگ داریم.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
 </div>
 

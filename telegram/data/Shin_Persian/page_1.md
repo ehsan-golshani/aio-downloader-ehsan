@@ -1,8 +1,101 @@
 # آرشیو کانال Shin_Persian - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 21:22
+📅 آخرین بروزرسانی: 1405/02/27 00:40
 
 ---
+
+## Shin_Persian — post 6040
+
+<div align="center"><img src="telegram/content/Shin_Persian_6040.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Sat, 16 May 2026 20:23:35 UTC
+
+POTUS on his Truth:
+
+فارسی
+
+رئیس‌جمهور ایالات متحده (POTUS) در حساب تروث سوشال خود:
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6039
+
+<div align="center"><img src="telegram/content/Shin_Persian_6039.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔁 Quoting above tweet: DefenceGeek 🇬🇧 ✓ @DefenceGeek Sat, 16 May 2026 20:14:02 UTC Along with the 2x RAF P-8A "Poseidon" maritime patrol aircraft noted by @ArmchairAdml, the US Navy has had 3x P-8A operating in the North Atlantic today I first noted 2…
+</div>
+
+## Shin_Persian — post 6038
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔁 Quoting above tweet:
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Sat, 16 May 2026 20:14:02 UTC
+
+Along with the 2x RAF P-8A "Poseidon" maritime patrol aircraft noted by @ArmchairAdml, the US Navy has had 3x P-8A operating in the North Atlantic today
+
+I first noted 2 depart Lajes earlier, then with a friend departed Iceland in the last 2hrs!
+
+They've found a submarine...
+
+فارسی
+
+در کنار ۲ فروند هواپیمای گشت دریایی P-8A "Poseidon" متعلق به نیروی هوایی سلطنتی بریتانیا (RAF) که توسط @ArmchairAdml به آن‌ها اشاره شد، نیروی دریایی ایالات متحده نیز امروز ۳ فروند P-8A در شمال اقیانوس اطلس در حال عملیات داشته است.
+
+من ابتدا خروج ۲ فروند را پیش‌تر از «لاژس» ثبت کردم و پس از آن، یک فروند دیگر در ۲ ساعت گذشته از ایسلند خارج شد!
+
+آن‌ها یک زیردریایی پیدا کرده‌اند...
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6036
+
+<div align="center"><video src="telegram/content/Shin_Persian_6036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Shin_Persian_6036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet: Armchair Admiral 🇬🇧 ✓ @ArmchairAdml Sat, 16 May 2026 19:59:34 UTC #RAF Royal Air Force Boeing Poseidon MRA.1 2x #43C91E ZP807 - RAFAIR 7046 #43C91A ZP803 - RAFAIR 7042 RAFAIR 7046 departed RAF Lossiemouth this evening for a North Atlantic…
+</div>
+
+## Shin_Persian — post 6035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet:
+Armchair Admiral 🇬🇧 ✓ @ArmchairAdml
+Sat, 16 May 2026 19:59:34 UTC
+
+#RAF Royal Air Force
+
+Boeing Poseidon MRA.1 2x
+#43C91E ZP807 - RAFAIR 7046
+#43C91A ZP803 - RAFAIR 7042
+
+RAFAIR 7046 departed RAF Lossiemouth this evening for a North Atlantic patrol. RAFAIR 7042 is already on station and operating over the Atlantic.
+
+@MATA_osint @flightradar24
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+#RAF نیروی هوایی سلطنتی بریتانیا
+
+بوئینگ پوزایدون MRA.1 ۲ فروند
+#43C91E ZP807 - RAFAIR 7046
+#43C91A ZP803 - RAFAIR 7042
+
+پرواز RAFAIR 7046 عصر امروز پایگاه هوایی لوسی‌موث (RAF Lossiemouth) را برای گشت‌زنی در شمال اقیانوس اطلس ترک کرد. پرواز RAFAIR 7042 از قبل در منطقه مستقر شده و بر فراز اقیانوس اطلس در حال عملیات است.
+
+@MATA_osint @flightradar24_
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6034
 
@@ -288,70 +381,6 @@ A senior Israeli security official tells reporters that there are "initial indic
 فارسی
 
 یک مقام ارشد امنیتی اسرائیل به خبرنگاران می‌گوید که «نشانه های اولیه» وجود دارد که نشان می‌دهد عزالدین الحداد در حمله هوایی اندکی پیش در شهر غزه کشته شده است.
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 6017
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 15 May 2026 17:04:22 UTC Gazans report a blitz airstrike on western Gaza, highly likely a targeted assassination. ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی ساکنان غزه از یک حمله هوایی برق‌آسا…
-</div>
-
-## Shin_Persian — post 6016
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-↩️ Quoted tweet:
-Shin ✓ @hey_itsmyturn
-Fri, 15 May 2026 17:04:22 UTC
-
-Gazans report a blitz airstrike on western Gaza, highly likely a targeted assassination.
-
-↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
-
-فارسی
-
-ساکنان غزه از یک حمله هوایی برق‌آسا به غرب غزه خبر می‌دهند که به احتمال بسیار زیاد یک ترور هدفمند است.
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 6015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Shin ✓ @hey_itsmyturn
-Fri, 15 May 2026 17:04:22 UTC
-
-Gazans report a blitz airstrike on western Gaza, highly likely a targeted assassination.
-
-فارسی
-
-ساکنان غزه از یک حمله هوایی برق‌آسا به غرب غزه خبر می‌دهند که به احتمال بسیار زیاد یک ترور هدفمند بوده است.
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 6014
-
-<div align="center"><video src="telegram/content/Shin_Persian_6014.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Shin_Persian_6014.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Rapid Response 47 ✓ @RapidResponse47 Fri, 15 May 2026 14:28:16 UTC .@POTUS says he discussed Taiwan and Iran with President Xi: "He does not want to see a fight for independence... I didn’t make a comment on it... on Iran, it’s very interesting. He feels…
-</div>
-
-## Shin_Persian — post 6013
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Rapid Response 47 ✓ @RapidResponse47
-Fri, 15 May 2026 14:28:16 UTC
-
-.@POTUS says he discussed Taiwan and Iran with President Xi: "He does not want to see a fight for independence... I didn’t make a comment on it... on Iran, it’s very interesting. He feels strongly they can’t have a nuclear weapon... and he wants them to open up the strait."
-
-فارسی
-
-.@POTUS می‌گوید که با رئیس‌جمهور شی در مورد تایوان و ایران گفتگو کرده است: «او نمی‌خواهد شاهد جنگی برای استقلال باشد... من در این مورد نظری ندادم... درباره ایران، موضوع بسیار جالب است. او با قدرت احساس می‌کند که آنها نباید سلاح هسته‌ای داشته باشند... و او می‌خواهد که آنها تنگه را باز کنند.»
 
 𝕏 · @shin_persian
 </div>

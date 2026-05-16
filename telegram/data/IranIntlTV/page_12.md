@@ -1,8 +1,94 @@
 # آرشیو کانال IranIntlTV - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/26 23:31
+📅 آخرین بروزرسانی: 1405/02/27 00:39
 
 ---
+
+## IranIntlTV — post 337303
+
+<div align="center"><img src="telegram/content/IranIntlTV_337303.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در یک نشست خبری در حاشیه اجلاس بریکس گفت جمهوری اسلامی در تلاش است آتش‌بس، «اگرچه بسیار ناپایدار است»، حفظ شود و به دیپلماسی فرصت داده شود.
+
+او افزود: «به آمریکایی‌ها اعتماد نداریم و فقط در صورتی به مذاکرات علاقه‌مندیم که طرف مقابل جدی باشد.»
+
+وزیر خارجه جمهوری اسلامی، در ادامه اظهاراتش گفت مذاکرات کنونی با آمریکا «از نبود اعتماد رنج می‌برد».
+
+او همچنین گفت همه کشتی‌ها می‌توانند از تنگه هرمز عبور کنند، «به‌جز آن‌هایی که با ما در جنگ هستند».
+https://iranintl.com/202605155857
+</div>
+
+## IranIntlTV — post 337302
+
+<div align="center"><video src="telegram/content/IranIntlTV_337302.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337302.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرخط خبرهای جمعه ۲۵ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337301
+
+<div align="center"><video src="telegram/content/IranIntlTV_337301.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337301.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از مخاطبان ایران‌اینترنشنال که از بندرعباس پیام فرستاده، می‌گوید قیمت کالاها به‌شدت افزایش یافته و صف‌های طولانی در جایگاه‌های سوخت، زندگی روزمره مردم را مختل کرده است. او می‌گوید این شرایط در شهری رخ می‌دهد که قطب تجارت، صنعت و نفت و گاز ایران به شمار می‌رود. این پیام با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337300
+
+<div align="center"><img src="telegram/content/IranIntlTV_337300.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی، امارات متحده عربی را به همکاری با آمریکا و اسرائیل در حملات علیه جمهوری اسلامی متهم کرد و گفت تهران در چارچوب «حق دفاع مشروع» به پایگاه‌ها و تاسیسات مورد استفاده آمریکا در امارات حمله کرده است.
+https://iranintl.com/202605156930
+</div>
+
+## IranIntlTV — post 337299
+
+<div align="center"><img src="telegram/content/IranIntlTV_337299.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اصغر فرهادی در پاسخ به خبرنگار ایران‌اینترنشنال، کشته شدن معترضان «بی‌گناه» در جریان انقلاب ملی ایرانیان را محکوم کرد و گفت مخالفت با کشته شدن بی‌گناهان و غیرنظامیان در جنگ به معنی موافقت با کشته شدن معترضان نیست.
+
+فرهادی در نشست خبری فیلم «داستان‌های موازی» در جشنواره کن گفت: «ماه‌های گذشته و اواخر دورانی که مشغول ساختن این فیلم بودم، دو اتفاق بسیار دردناک در کشورم رخ داد.»
+
+این کارگردان ایرانی گفت: «هر دو بسیار دردناک است و هیچ‌گاه فراموش نخواهد شد. مخالفت با کشته شدن بی‌گناهان و غیرنظامیان به معنی موافقت با کشته شدن گروهی دیگر در خیابان‌ها نیست.»
+
+فرهادی ادامه داد: «همدلی با کشته‌شدگان در خیابان‌ها نیز به معنی همدلی نکردن با کسانی که در جنگ کشته شدند نیست. به نظرم کشته شدن هر انسانی یک جنایت است؛ چه در جنگ، چه در اعدام و چه کشتن معترضان.»
+
+او در پایان گفت بسیار دردناک است که در قرن حاضر با وجود این همه پیشرفت، همچنان شاهد کشته شدن انسان‌های بی‌گناه هستیم.
+https://iranintl.com/202605152301
+</div>
+
+## IranIntlTV — post 337297
+
+<div align="center"><img src="telegram/content/IranIntlTV_337297.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امیر حاتمی، فرمانده‌ کل ارتش جمهوری اسلامی، گفت: «این قدرت ایمان است که می‌تواند دشمن را چنان دچار آشفتگی کند که حتی به‌اشتباه، هواپیماهای خودی را هدف قرار دهد.»
+
+او گفت آنچه موجب اطمینان ما به پیروزی و توانمندی می‌شود، ایمان و اعتقاد است؛ ما هر سال در دهه محرم، شاهد یک مانور عظیم ایمانی هستیم. قدرت اصلی ما نیز همین قدرت ایمانی است.
+
+او افزود: «این قدرت ایمانی است که می‌تواند یک جنگنده اف-۵ را به فراز مواضع نیروهای آمریکایی در کویت برساند، در حالی‌ که آن‌ها از پیشرفته‌ترین سامانه‌های پدافندی زمین‌پایه و هوایی برخوردارند.»
+https://iranintl.com/202605153296
+</div>
+
+## IranIntlTV — post 337296
+
+<div align="center"><video src="telegram/content/IranIntlTV_337296.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337296.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی‌حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال، گفت جمهوری اسلامی در طول ۴۰ روز عملیات نظامی آمریکا و اسرائیل در حال فروختن نفت بود. او افزود در صورت ازسرگیری این عملیات، ترکیب محاصره دریایی و اقدام نظامی می‌تواند برای جمهوری اسلامی مهلک باشد.
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337295
 
@@ -178,81 +264,5 @@ https://iranintl.com/202605157635
 
 کانال ۱۱ افزود اسرائیل برای چنین سناریویی در حال آماده‌سازی است؛ از جمله آمادگی برای واکنش احتمالی جمهوری اسلامی و ازسرگیری حملات موشکی به سوی اسرائیل.
 https://iranintl.com/202605155749
-</div>
-
-## IranIntlTV — post 337273
-
-<div align="center"><video src="telegram/content/IranIntlTV_337273.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337273.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ گفت شی جین‌پینگ در مورد جمهوری اسلامی با او هم‌نظر است و معتقد است تهران هرگز نباید به سلاح هسته‌ای دست یابد. از سوی دیگر، وزارت خارجه چین، خواستار راه‌حلی فوری برای پایان دادن به جنگ با جمهوری اسلامی شده است.
-
-توماج طاهباز، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
-@iranintltv
-</div>
-
-## IranIntlTV — post 337272
-
-<div align="center"><video src="telegram/content/IranIntlTV_337272.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337272.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال پیامی به ایران اینترنشنال با مقایسه قطع اینترنت در ایران و غزه گفت که در مورد غزه مواضع جهانی دیده شد. پیام این مخاطب با هوش مصنوعی خوانده شده است.
-</div>
-
-## IranIntlTV — post 337271
-
-<div align="center"><img src="telegram/content/IranIntlTV_337271.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، روز جمعه پس از سفری دو روزه سوار هواپیمای اختصاصی ریاست‌جمهوری آمریکا «ایر فورس وان» شد و پکن را ترک کرد. وانگ یی، وزیر امور خارجه چین، ترامپ را پیش از سوار شدن به هواپیما همراه با هیاتی دیپلماتیک بدرقه کرد.
-
-شی جین‌پینگ، رییس‌جمهوری چین، در سخنرانی خود در مراسم ضیافت رسمی به مناسبت سفر دونالد ترامپ، این سفر را «تاریخی» خواند و گفت: «دو شعار "احیای چین" و "عظمت را به آمریکا بازگردانیم" می‌توانند در کنار یکدیگر پیش بروند.»
-https://iranintl.com/202605150729
-</div>
-
-## IranIntlTV — post 337270
-
-<div align="center"><video src="telegram/content/IranIntlTV_337270.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337270.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس عراقچی، وزیر خارجه جمهوری اسلامی، در دومین روز نشست وزیران خارجه کشورهای عضو بریکس، خواستار اصلاح ساختار سازمان ملل و «نمایندگی عادلانه» همه مناطق جهان در شورای امنیت شد.
-
-جواد همدانی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
-@iranintltv
-</div>
-
-## IranIntlTV — post 337269
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک دانش‌آموز با ارسال پیامی به ایران اینترنشنال با روایت تاثیرات روحی کشتار معترضان در دی‌ماه و حمله به جمهوری اسلامی پس از آن می‌گوید وقتی صدای بمباران و انفجار نمی‌شنیدیم ناراحت می‌شدیم. صدای او با هوش مصنوعی تغییر یافته است.
-</div>
-
-## IranIntlTV — post 337268
-
-<div align="center"><video src="telegram/content/IranIntlTV_337268.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337268.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هوشنگ حسن‌یاری، کارشناس خاورمیانه و امور نظامی، گفت جمهوری اسلامی با بستن تنگه هرمز، خود را در یک تنگنای دیپلماتیک قرار داده و باعث شکل‌گیری ائتلافی بین‌المللی علیه خود شده است.
-@iranintltv
-</div>
-
-## IranIntlTV — post 337267
-
-<div align="center"><video src="telegram/content/IranIntlTV_337267.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337267.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جاویدنامان انقلاب ملی ایرانیان
-«حمید مهدوی»، آتش‌نشان، شامگاه ۱۸ دی‌ماه در حالی که مشغول به امدادرسانی به مجروحان بود مورد اصابت مستقیم گلوله قرار گرفت. نامش در حافظه‌ این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
-@iranintltv
 </div>
 

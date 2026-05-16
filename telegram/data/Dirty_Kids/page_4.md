@@ -1,8 +1,27 @@
 # آرشیو کانال Dirty_Kids - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 23:40
+📅 آخرین بروزرسانی: 1405/02/27 00:48
 
 ---
+
+## Dirty_Kids — post 389512
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389512.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سنتکام رسماً تأیید کرد که حمله به مدرسه میناب توسط آمریکا صورت گرفته.
+
+❌ این خبر که تو فضای مجازی داره دست به دست میشه، فیکه؛ سنتکام تأیید نکرده و ترامپ هم امروز گفت که هنوز داریم بررسی می‌کنیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✖️ سایت بین المللی bet120x ✖️  👍دارای مجوز رسمی Gambling Judge سوئد👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    3️⃣2️⃣ 🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
+</div>
 
 ## Dirty_Kids — post 389510
 
@@ -275,30 +294,6 @@ https://t.me/+bcynkEgSW2dlYTc0
 مجتبی خامنه‌ای به مناسبت روز بزرگداشت فردوسی، این پیام رو منتشر کرد:
 
 همین که یک تازی راهزن بیابانگرد رافضی به ارزش‌های زبان و ادبیات فارسی اعتراف می‌کند می‌تواند جالب باشد.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389487
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389487.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاشیدم تو تار به تار سیبیلاتون.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389486
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389486.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت جهانی استارلینک مینی با تخفیف به زیر ۲۰۰دلار (۳۶میلیون تومن) رسیده و پایین‌تر هم میاد. سایز دیشش هم اندازه‌ی یه کاغذ A4 هس و براحتی همه جا مخفی میشه و با وضعیت ایران هیچ رقمه نمیشه جلوی موج قاچاقش رو گرفت.
-
-رویای آخوند برای کنترل بلند مدت اینترنت فقط یه توهمه.
 
 
 @Dirty_Kids 👻

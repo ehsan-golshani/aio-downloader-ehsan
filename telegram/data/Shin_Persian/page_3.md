@@ -1,8 +1,91 @@
 # آرشیو کانال Shin_Persian - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 21:22
+📅 آخرین بروزرسانی: 1405/02/27 00:40
 
 ---
+
+## Shin_Persian — post 5994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet:
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Wed, 13 May 2026 19:49:28 UTC
+
+B-2 Spirit on a training flight from CONUS as part of a suspected STRATCOM exercise involving the E-6B flying out of Stuttgart
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+بمب‌افکن بی‌-۲ اسپیریت (B-2 Spirit) در یک پرواز آموزشی از خاک اصلی ایالات متحده (CONUS) به عنوان بخشی از یک رزمایش احتمالی فرماندهی راهبردی ایالات متحده (STRATCOM) که شامل هواپیمای ای-۶بی (E-6B) در حال پرواز از اشتوتگارت است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5993
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📦 mhrv-rs v1.9.25 released
+
+• Install MITM CA into LibreWolf NSS stores (#1145, PR #1159)
+• **Fix Full mode "Google + most websites broken while Telegram works"
+
+Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
+
+👉 v1.9.25 — all files with SHA-256
+
+Channel:
+https://t.me/mhrv_rs
+or: https://t.me/+R1OyoHX2boA1ZDgx
+
+#v1925
+</div>
+
+## Shin_Persian — post 5992
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Wed, 13 May 2026 19:31:31 UTC
+
+"Saudi warplanes struck militias in Iraq during war"
+- Reuters
+
+https://www.reuters.com/world/middle-east/saudi-warplanes-struck-militias-iraq-during-war-sources-say-2026-05-13/
+
+فارسی
+
+"جنگنده‌های سعودی طی جنگ شبه‌نظامیان را در عراق هدف قرار دادند"
+- رویترز
+
+https://www.reuters.com/world/middle-east/saudi-warplanes-struck-militias-iraq-during-war-sources-say-2026-05-13/
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5991
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Wed, 13 May 2026 17:01:27 UTC
+
+Prime Minister Benjamin Netanyahu visited the UAE during the Iran war, his office says.
+
+فارسی
+
+دفتر بنیامین نتانیاهو، نخست‌وزیر، اعلام کرد که وی در طول جنگ ایران از امارات متحده عربی بازدید کرده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5990
+
+<div align="center"><video src="telegram/content/Shin_Persian_5990.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Shin_Persian_5990.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+U.S. Central Command ✓ @CENTCOM Wed, 13 May 2026 15:19:24 UTC Four weeks ago, CENTCOM began implementing the blockade against ships entering and exiting Iran’s ports. As of today, American forces have redirected 67 commercial vessels, allowed 15 supporting…
+</div>
 
 ## Shin_Persian — post 5989
 
@@ -252,30 +335,5 @@ B-1B "ZENER01" 86-0134 #AE6C05 "Thunderbird"
 @MATA_osint @ArmchairAdml @Andyyyyrrrr @jamjake01 @LHA2709 @vcdgf555
 
 𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5974
-
-<div align="center"><video src="telegram/content/Shin_Persian_5974.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Shin_Persian_5974.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Rapid Response 47 ✓ @RapidResponse47
-Tue, 12 May 2026 18:01:20 UTC
-
-.@POTUS: "It's very simple: Iran cannot have a nuclear weapon... We don't play games. They're not going to have a nuclear weapon."
-
-فارسی
-
-.@POTUS: "بسیار ساده است: ایران نمی‌تواند سلاح هسته‌ای داشته باشد... ما بازی نمی‌کنیم. آن‌ها قرار نیست سلاح هسته‌ای داشته باشند."
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-↩️ Quoted tweet: DefenceGeek 🇬🇧 ✓ @DefenceGeek Tue, 12 May 2026 18:11:27 UTC @hey_itsmyturn Training flight lol ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی @hey_itsmyturn پرواز تمرینی خخخ 𝕏 · @shin_persian
 </div>
 

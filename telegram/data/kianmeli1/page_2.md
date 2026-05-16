@@ -1,8 +1,37 @@
 # آرشیو کانال kianmeli1 - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 14:20
+📅 آخرین بروزرسانی: 1405/02/27 00:38
 
 ---
+
+## kianmeli1 — post 87415
+
+<div align="center"><video src="telegram/content/kianmeli1_87415.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87415.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴۳۰ روز طول کشید تا جنازه عبدالرحیم موسوی، رئیس سابق ستاد کل نیروهای مسلح، پیدا شود
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87414
+
+<div align="center"><video src="telegram/content/kianmeli1_87414.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87414.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تصاویری از پایان سفر پرزیدنت ترامپ به چین
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴شبکه 13 اسرائیل: ساختار امنیتی [در اسرائیل] بر این ارزیابی است که ترامپ با انجام حمله‌ای محدود به ایران موافقت خواهد کرد.
+https://t.me/kianmeli1
+</div>
 
 ## kianmeli1 — post 87412
 
@@ -175,40 +204,6 @@ https://t.me/kianmeli1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴کاخ سفید پس از مذاکرات دوجانبه ایالات متحده و چین در پکن، پایتخت چین، در بیانیه‌ای اعلام کرد که دو هیئت در مورد مسائلی مانند دسترسی به بازار چین، سرمایه‌گذاری چین در صنایع ایالات متحده، مواد مخدر، به ویژه فنتانیل، «جریان آزاد» تجارت از طریق تنگه هرمز و سایر مسائل کلیدی گفتگو کردند.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87394
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴آکسیوس : یکی از گزینه‌های ترامپ پس از بازگشت از چین از سر گیری پروژه آزادی در تنگه هرمز است.گزینه دیگر ترامپ حمله به زیرساخت‌های ایران است.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87393
-
-<div align="center"><video src="telegram/content/kianmeli1_87393.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87393.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴جان بولتون: مذاکره بر سر توافق هسته‌ای با ایران اتلاف اکسیژن است.
-
-این افراد دهه‌ها پیش تصمیمی استراتژیک برای دستیابی به سلاح‌های هسته‌ای گرفتند.
-در ۴۷ سال گذشته حتی یک مدرک هم وجود ندارد که نشان دهد آنها از این هدف دست کشیده‌اند
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87392
-
-<div align="center"><video src="telegram/content/kianmeli1_87392.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87392.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدئویی پربازخورد در فضای مجازی از تشبیه فروشندگان vpn به خوک
-
-سپاه و ستاد اجرايي فروشندگان اصلي اينترنت پرو و وي پي ان هستند
 https://t.me/kianmeli1
 </div>
 

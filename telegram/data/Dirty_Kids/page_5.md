@@ -1,8 +1,32 @@
 # آرشیو کانال Dirty_Kids - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 23:40
+📅 آخرین بروزرسانی: 1405/02/27 00:48
 
 ---
+
+## Dirty_Kids — post 389487
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389487.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاشیدم تو تار به تار سیبیلاتون.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389486
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389486.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت جهانی استارلینک مینی با تخفیف به زیر ۲۰۰دلار (۳۶میلیون تومن) رسیده و پایین‌تر هم میاد. سایز دیشش هم اندازه‌ی یه کاغذ A4 هس و براحتی همه جا مخفی میشه و با وضعیت ایران هیچ رقمه نمیشه جلوی موج قاچاقش رو گرفت.
+
+رویای آخوند برای کنترل بلند مدت اینترنت فقط یه توهمه.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389485
 
@@ -221,31 +245,6 @@ A24
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اره داداش، امریکا تایوان رو میده به چین و ایران رو ازش میگیره.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389467
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389467.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آخرین ورژن خفت و خواری بچه‌شیعه:
-رزمایش گذاشتن، هلی‌کوپتر نداشتن، بنرشو چاپ کردن گذاشتن اون وسط.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389466
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389466.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اصلی ترین سوالی که برای من پیش میاد که چرا تو همون ایران زیر کیر آخوند نمیخوابید ؟؟ چرا مهاجرت میکنید از راه دور برای آخوند دهنی میزنید ؟؟
-
-این جک و جنده آزادی‌رو دوست دارن ولی اعتقاد دارن ملت ایران لیاقت ندارن فقط برای خودشون خوبه
 
 
 @Dirty_Kids 👻

@@ -1,8 +1,36 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 23:25
+📅 آخرین بروزرسانی: 1405/02/27 00:32
 
 ---
+
+## WithYashar — post 11422
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@withyashar فرهنگ ما همیشه غالب میشه
+</div>
+
+## WithYashar — post 11421
+
+<div align="center"><video src="telegram/content/WithYashar_11421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گوش جان میسپریم به فریدون عزیز تا من موتورم رو گرم کنم ویس بزارم
+@withyashar
+</div>
+
+## WithYashar — post 11420
+
+<div align="center"><img src="telegram/content/WithYashar_11420.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ در تروث : آرامش فبل از طوفان
+
+قایق تندرو با پرچم جمهوری اسلامی دیده میشود …
+@withyashar
+</div>
 
 ## WithYashar — post 11419
 
@@ -122,36 +150,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 العربیه: طبق گفته منابع آگاه پاکستانی، در بحث تنگه هرمز، پیشرفت‌هایی حاصل شده است
-@withyashar
-</div>
-
-## WithYashar — post 11402
-
-<div align="center"><video src="telegram/content/WithYashar_11402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوئل نهایی ، وضعیت الان!
-@withyashar
-</div>
-
-## WithYashar — post 11401
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عرزشی ها اومدن که خبر مرگ بابای سپاهیشون رو زودتر تو چنلت ببینن
-اخه از رسانه های دیگه ۱ ساعت حداقل جلوتری ستون😂🔥
-</div>
-
-## WithYashar — post 11400
-
-<div align="center"><img src="telegram/content/WithYashar_11400.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید ترامپ :
-
-شوخی نداریم!!!
-ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیفته!
 @withyashar
 </div>
 
