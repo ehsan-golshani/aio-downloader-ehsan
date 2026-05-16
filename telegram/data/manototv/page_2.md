@@ -1,8 +1,91 @@
 # آرشیو کانال manototv - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 19:26
+📅 آخرین بروزرسانی: 1405/02/26 20:30
 
 ---
+
+## manototv — post 105509
+
+<div align="center"><video src="telegram/content/manototv_105509.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105509.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌
+«دریک»، رپر، خواننده و بازیگر کانادایی، در یکی از قطعه‌های تازه خود با نام «Don’t Worry» به دختری ایرانی اشاره کرده که فارسی حرف می‌زند. این قطعه در آلبوم تازه او منتشر شده است. در متن ترانه نیز بندی آمده که در آن زن مورد اشاره خود را ایرانی معرفی می‌کند که فارسی حرف می‌‌زند.
+
+دریک با نام کامل «آبری دریک گراهام» زاده تورنتو است و پیش از ورود جدی به موسیقی، با بازی در مجموعه تلویزیونی نوجوانانه «دگراسی، نسل بعدی» شناخته شد. او سپس به یکی از چهره‌های اصلی موسیقی هیپ‌هاپ و پاپ معاصر تبدیل شد و سبک ترکیبی او میان رپ‌خوانی و خوانندگی، جایگاه گسترده‌ای در بازار جهانی موسیقی برایش به همراه آورد.
+</div>
+
+## manototv — post 105508
+
+<div align="center"><video src="telegram/content/manototv_105508.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105508.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروه ناظر اینترنتی نت‌بلاکس اعلام کرد خاموشی دیجیتال در ایران اکنون وارد دوازدهمین هفته و هفتادوهشتمین روز خود شده است.
+نت‌بلاکس می‌گوید این قطع اینترنت که یک کشور ۹۰ میلیونی را برای مدتی بی‌سابقه تا حد زیادی از دسترسی به اینترنت جهانی محروم کرده، همچنان در حال تضعیف حقوق بشر، اقتصاد و آزادی‌های اساسی در ایران است.
+</div>
+
+## manototv — post 105507
+
+<div align="center"><video src="telegram/content/manototv_105507.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105507.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌های عراقی گزارش دادند صدای انفجارهایی که روز شنبه در بغداد، پایتخت عراق شنیده شد، ناشی از شلیک گلوله‌های توپخانه به مناسبت تشکیل دولت جدید بوده است.
+یک منبع امنیتی به خبرگزاری فرانسه گفت این شلیک‌ها همزمان با آغاز به کار دولت به ریاست نخست‌وزیر جدید عراق، علی الزیدی، انجام شده است.
+پیش‌تر برخی رسانه‌ها از شنیده شدن چند انفجار در مرکز بغداد خبر دادند.
+</div>
+
+## manototv — post 105506
+
+<div align="center"><video src="telegram/content/manototv_105506.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105506.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارتش اسرائیل اعلام کرد در پی فعال شدن هشدار نفوذ پهپاد در منطقه میرون، یک هدف هوایی مشکوک شناسایی شده است.
+ارتش اسرائیل همچنین اعلام کرد جزئیات این رویداد در حال بررسی است و این حادثه بدون تلفات پایان یافته اس
+</div>
+
+## manototv — post 105505
+
+<div align="center"><video src="telegram/content/manototv_105505.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105505.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌های اسرائیلی گزارش داده‌اند با بازگشت دونالد ترامپ، رئیس‌جمهوری آمریکا، از سفر چین، کاخ سفید به مرحله‌ای تعیین‌کننده در پرونده ایران نزدیک شده و احتمال تصمیم‌گیری درباره اقدام نظامی در روزهای آینده افزایش یافته است.
+کانال ۱۲ اسرائیل گزارش داد در اسرائیل برآورد می‌شود دونالد ترامپ طی ۲۴ ساعت آینده درباره اقدام نظامی علیه جمهوری اسلامی تصمیم‌گیری کند. این شبکه به نقل از یک مقام ارشد اسرائیلی گزارش داد «ازسرگیری درگیری‌ها نزدیک است» و اسرائیل خود را برای «روزها تا هفته‌ها درگیری» آماده می‌کند.
+بر اساس این گزارش، مقام‌های اسرائیلی معتقدند آمریکا به این جمع‌بندی رسیده که مذاکرات با ایران به سمت پیشرفت جدی حرکت نمی‌کند و انتظار می‌رود تصویر روشن‌تری از تصمیم واشنگتن طی ساعات آینده مشخص شود.
+</div>
+
+## manototv — post 105504
+
+<div align="center"><video src="telegram/content/manototv_105504.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105504.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در تروث سوشیال اعلام کرد نیروهای آمریکایی و ارتش نیجریه در عملیاتی مشترک، «ابوبلال المنوکی» از فرماندهان ارشد داعش را کشته‌اند.
+ترامپ گفت این عملیات به دستور او و با برنامه‌ریزی دقیق انجام شده و «ابوبلال المنوکی» که به گفته او نفر دوم داعش در سطح جهانی بوده، در آفریقا مخفی شده بود.
+او افزود با کشته شدن این فرمانده داعش، توان عملیاتی جهانی این گروه به‌شدت تضعیف شده است.
+</div>
+
+## manototv — post 105503
+
+<div align="center"><video src="telegram/content/manototv_105503.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105503.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شبکه سی‌ان‌ان به نقل از چند منبع گزارش داده هکرهای مظنون به ارتباط با ایران موفق شده‌اند به سامانه‌های پایش مخازن سوخت در آمریکا نفوذ کنند و نمایشگر میزان سوخت را تغییر دهند.
+بر اساس این گزارش، سامانه‌های «اندازه‌گیری خودکار مخازن» بدون رمز عبور و متصل به اینترنت بوده‌اند. منابع آگاه می‌گویند هکرها توانسته‌اند ارقام نمایش‌داده‌شده را دستکاری کنند، اما امکان تغییر واقعی میزان سوخت در مخازن را نداشته‌اند و هیچ خسارت فیزیکی گزارش نشده است.
+سی‌ان‌ان همچنین گزارش داده این حملات تنها به سامانه‌های سوخت محدود نبوده و زیرساخت‌های نظامی و شبکه‌های آب آمریکا را نیز هدف قرار گرفته‌اند.
+</div>
 
 ## manototv — post 105502
 
@@ -205,99 +288,5 @@
 وزیر انرژی آمریکا در پاسخ به این پرسش که بازگشت شرایط به وضعیت عادی چقدر زمان می‌برد، گفت: «بخش زیادی از آن به ایران بستگی دارد.»
 
 او افزود: «به هر شکلی، برنامه هسته‌ای ایران پایان خواهد یافت و عبور آزادانه کشتی‌ها از تنگه هرمز برقرار خواهد شد. این می‌تواند در صورت توافق با ایران، نسبتاً سریع رخ دهد.»
-</div>
-
-## manototv — post 105489
-
-<div align="center"><video src="telegram/content/manototv_105489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس عراقچی، وزیر خارجه جمهوری اسلامی، با انتشار تصویری از دیدار با سابرامانیام جایشانکار، وزیر خارجه هند، در شبکه اِکس نوشت: «ایران همواره وظیفه تاریخی خود به‌عنوان حافظ امنیت در تنگه هرمز» را انجام خواهد داد.
-
-عراقچی افزود در گفت‌وگویی «سازنده» با همتای هندی خود، درباره تحولات منطقه گفت‌وگو کرده و مدعی شد جمهوری اسلامی «شریکی قابل اعتماد برای همه کشورهای دوست» است و این کشورها می‌توانند به امنیت تجارت و کشتیرانی اعتماد کنند.
-</div>
-
-## manototv — post 105488
-
-<div align="center"><video src="telegram/content/manototv_105488.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105488.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سازمان اطلاعات مرکزی آمریکا با انتشار تصاویری از هاوانا، حضور جان رتکلیف، رئیس این سازمان، در پایتخت کوبا را تایید کرد.
-
-بر اساس گزارش فوربس مکزیک، رتکلیف در جریان این سفر با مقام‌های ارشد دولت کوبا دیدار کرد. این رسانه نوشت گفت‌وگوها درباره همکاری‌های اطلاعاتی، امنیت منطقه‌ای و وضعیت اقتصادی کوبا انجام شده است.
-
-به نوشته فوربس مکزیک، رئیس سیا برای گفت‌وگوهای مستقیم با مقام‌های وزارت کشور کوبا و مسئولان نهادهای اطلاعاتی این کشور به هاوانا رفت. این گزارش، دیدار رتکلیف با مقام‌های کوبایی را نشستی کم‌سابقه در سطح بالا میان دو کشور توصیف کرده است.
-
-در این گزارش آمده است که در جریان این سفر، رتکلیف با رائول رودریگز کاسترو، نوه رائول کاسترو و مشاور امنیتی، و همچنین لازارو آلوارز کاساس، وزیر کشور کوبا، دیدار کرد.
-</div>
-
-## manototv — post 105487
-
-<div align="center"><video src="telegram/content/manototv_105487.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105487.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«جمهوری اسلامی قصد کشتن فاطمه سپهری را دارد»
-</div>
-
-## manototv — post 105486
-
-<div align="center"><video src="telegram/content/manototv_105486.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105486.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«صدای بانو سپهری باشیم»
-</div>
-
-## manototv — post 105485
-
-<div align="center"><video src="telegram/content/manototv_105485.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105485.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ در پاسخ به پرسشی درباره حمله به یک مدرسه دخترانه در روز نخست جنگ گفت این موضوع «در دست بررسی» است.
-
-خبرنگاری از ترامپ پرسید که سنتکام روز گذشته درباره حمله به مدرسه دخترانه در روز اول جنگ مورد پرسش قرار گرفته بود. ترامپ در پاسخ گفت: «این در دست بررسی است.» او افزود چند موضوع دیگر نیز در دست بررسی قرار دارد، اما تاکید کرد که این مورد هم جزو پرونده‌های در حال بررسی است.
-
-در ادامه، خبرنگار پرسید آیا امکان دریافت اطلاعات بیشتر درباره این موضوع وجود دارد و اشاره کرد که این حمله با یک واحد موشکی آمریکایی مرتبط بوده است.
-
-ترامپ در پاسخ وارد موضوع بی‌بی‌سی شد و این رسانه را به جعل گفته‌هایش متهم کرد. او گفت بی‌بی‌سی «حرف‌های بدی» در دهان او گذاشته و بعد ناچار شده بپذیرد که آن گفته‌ها درست نبوده است.
-</div>
-
-## manototv — post 105484
-
-<div align="center"><video src="telegram/content/manototv_105484.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105484.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت خارجه آمریکا اعلام کرد این کشور در عملیاتی محرمانه، حدود ۱۳ و نیم کیلوگرم اورانیوم غنی‌شده را از یک رآکتور تحقیقاتی تعطیل‌شده در ونزوئلا خارج کرده است.
-
-بر اساس اعلام وزارت خارجه آمریکا، این عملیات به رهبری واشینگتن و با همکاری شرکای بین‌المللی انجام شد و هدف آن کاهش خطر سوءاستفاده از مواد هسته‌ای و تقویت امنیت هسته‌ای عنوان شده است.
-
-اداره ملی امنیت هسته‌ای آمریکا، وابسته به وزارت انرژی، نیز اعلام کرده است همه اورانیوم غنی‌شده باقی‌مانده از یک رآکتور تحقیقاتی قدیمی در ونزوئلا خارج شده است. این نهاد گفت این عملیات در چند ماه انجام شد، در حالی که در شرایط عادی ممکن بود سال‌ها طول بکشد.
-</div>
-
-## manototv — post 105483
-
-<div align="center"><video src="telegram/content/manototv_105483.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105483.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ در پاسخ به پرسشی درباره پیشنهاد اخیر جمهوری اسلامی گفت این پیشنهاد را بررسی کرده، اما به گفته او، اگر از جمله نخست یک متن خوشش نیاید، بقیه آن را کنار می‌گذارد.
-
-ترامپ در پاسخ به این پرسش که جمله نخست چه بوده است، آن را «غیرقابل قبول» توصیف کرد و گفت مسئله اصلی از نگاه او این است که ایران نباید «هیچ شکل» از برنامه هسته‌ای داشته باشد.
-
-در ادامه، خبرنگار از ترامپ پرسید آیا دوره ۲۰ ساله برای او کافی نیست. ترامپ پاسخ داد که «۲۰ سال کافی است»، اما به گفته او، سطح تضمین‌هایی که جمهوری اسلامی ارائه می‌دهد اهمیت دارد.
-
-ترامپ گفت که اگر قرار است توافقی ۲۰ ساله مطرح باشد، باید «۲۰ سال واقعی» باشد و نباید به گفته او، توافقی مبهم یا ظاهری باشد.
 </div>
 

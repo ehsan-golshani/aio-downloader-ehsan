@@ -1,8 +1,24 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 19:09
+📅 آخرین بروزرسانی: 1405/02/26 20:13
 
 ---
+
+## FoxNewsTwitter — post 341664
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341664.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341664.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Vice President JD Vance announces the federal government is deferring over a billion dollars in Medicaid reimbursements to California, citing a failure by the state to combat systemic fraud.
+
+"We're announcing that the federal government is deferring $1.3 billion in Medicaid reimbursements from the state of California.”
+
+“And the simple reason is because the state of California has not taken fraud very seriously."
+</div>
 
 ## FoxNewsTwitter — post 341663
 

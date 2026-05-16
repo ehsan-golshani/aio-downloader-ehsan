@@ -1,8 +1,16 @@
 # آرشیو کانال mwarmonitor - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 18:00
+📅 آخرین بروزرسانی: 1405/02/26 20:13
 
 ---
+
+## mwarmonitor — post 9098
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فیننشال تایمز: عربستان سعودی در جریان گفت‌وگوها با متحدانش درباره مدیریت تنش‌های منطقه‌ای پس از پایان جنگ در ایران، ایده‌ی یک پیمان «عدم تجاوز» میان کشورهای خاورمیانه و ایران را مطرح کرده است.
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9097
 
@@ -206,16 +214,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇺🇸وزارت بازرگانی ایالات متحده آمریکا فروش تراشه‌های هوش مصنوعی H200 شرکت انویدیا را به ۱۰ شرکت چینی، در قالب مجوزهایی که برای هر مشتری تا سقف ۷۵ هزار تراشه را اجازه می‌دهد، تأیید کرده است. با وجود این تأییدها، تاکنون هیچ محموله‌ای ارسال نشده است.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9077
-
-<div align="center"><img src="telegram/content/mwarmonitor_9077.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸دریادار برد کوپر، فرمانده فرماندهی مرکزی ایالات متحده (CENTCOM)، صبح امروز درباره وضعیت و آرایش عملیاتی سنتکام در کنگره شهادت خواهد داد.
 
 @mwarmonitor
 </div>

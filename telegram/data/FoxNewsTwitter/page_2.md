@@ -1,8 +1,20 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 19:09
+📅 آخرین بروزرسانی: 1405/02/26 20:13
 
 ---
+
+## FoxNewsTwitter — post 341798
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341798.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341798.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+🍷Cheers to savings! Take $25 OFF any order on the Fox News Wine Shop. Use code CHEERS25 at checkout. bit.ly/4ueKKkV
+</div>
 
 ## FoxNewsTwitter — post 341797
 
@@ -265,17 +277,5 @@ Health and Human Services Secretary Robert F. Kennedy Jr. and Hollywood icon Arn
 This isn’t the first time the pair have worked out together, the former governor gave a look inside their friendship during an interview last year, saying, "We've worked out together and go gym and stuff like that, and I always was a big supporter of his."
 
 Schwarzenegger was previously married to Kennedy's cousin, journalist Maria Shriver, from 1986 until 2011.
-</div>
-
-## FoxNewsTwitter — post 341773
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341773.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-DHS Secretary Markwayne Mullin joined ICE officers on the ground in Virginia during an early morning operation that resulted in the arrest of a repeat criminal illegal alien previously removed multiple times from the United States.
-
-Mullin said the suspect’s record included drug possession and DUI charges while slamming Governor Spanberger’s sanctuary policies for making Virginia “a magnet for criminal illegal aliens.”
 </div>
 

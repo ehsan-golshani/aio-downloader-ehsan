@@ -1,8 +1,48 @@
 # آرشیو کانال IranianMinds - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 19:21
+📅 آخرین بروزرسانی: 1405/02/26 20:26
 
 ---
+
+## IranianMinds — post 20166
+
+<div align="center"><img src="telegram/content/IranianMinds_20166.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ :
+
+من و رئیس جمهور چین درباره ایران صحبت کردیم. احساساتمان بسیار شبیه هم است. ما می‌خواهیم تنگه‌ هرمز باز باشد و هدف ما یکیه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20165
+
+<div align="center"><video src="telegram/content/IranianMinds_20165.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20165.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نتانیاهو:
+
+امروز، ۶۰٪ از نوار غزه تحت کنترل ماست. ولی فردا باید ببینیم…
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20164
+
+<div align="center"><video src="telegram/content/IranianMinds_20164.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20164.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه عظمتی داره هواپیماش
+
+لحظه ی خروج هواپیمای ریاست جمهوری ایالات متحده از چین
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20163
 
@@ -196,38 +236,6 @@ ShirOKhorshid-2026.05.14.apk
 🔴 کارشناس کانال ۱۴ اسرائیل:
 
 رژیم ایران در حال انجام تماس‌هایی به صورت مخفی و مستقیم با دولت ترامپ هست و به شدت احتیاج به پول داره.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20144
-
-<div align="center"><video src="telegram/content/IranianMinds_20144.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20144.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نتانیاهو:
-
-ما اورشلیم را برای همیشه تحت حاکمیت اسرائیل حفظ خواهیم کرد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 روبیو، وزیرخارجه آمریکا: ترامپ از رئیس جمهور چین کمکی نخواست و آمریکا به کمک چین نیازی نداره.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20141
-
-<div align="center"><img src="telegram/content/IranianMinds_20141.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-:( موضوع امیدوار بودن یا نبودن نیست. وقتی که قدرت تصمیم‌گیری در دست دیگران است، وقتی که ما نمی‌توانیم در تصمیم‌گیری آنها دخالت کنیم، تنها کاری که می‌توان انجام داد، تحمل کردن است.
 
 @IranianMinds
 </div>

@@ -1,8 +1,18 @@
 # آرشیو کانال mwarmonitor - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 18:00
+📅 آخرین بروزرسانی: 1405/02/26 20:13
 
 ---
+
+## mwarmonitor — post 9141
+
+<div align="center"><img src="telegram/content/mwarmonitor_9141.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛰تصاویر ماهواره‌ای Landsat-8 وضعیت ترمینال‌های جزیره خارگ امروز: خالی. هیچ نفتکشی برای بارگیری نفت خام وجود ندارد .
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9140
 
@@ -222,11 +232,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔸ترامپ: سلام به همگی. خب، ما اقامت بسیار خوبی داشتیم، دوران فوق‌العاده‌ای بود. رئیس‌جمهور شی (جین‌پینگ) آدم بی‌نظیریه. ما روی معاملات تجاری خیلی خوبی توافق کردیم، از جمله بیش از ۲۰۰ هواپیما از بوئینگ با وعده خرید تا ۷۵۰ هواپیما، که اگر ۲۰۰ تای اول رو به خوبی…
-</div>
-
-## mwarmonitor — post 9118
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸رئیس جمهور ترامپ در حال صحبت با مطبوعات در هواپیمای ایر فورس وان در مسیر انکوریج، آلاسکا، ۱۵ مه ۲۰۲۶ @mwarmonitor
 </div>
 

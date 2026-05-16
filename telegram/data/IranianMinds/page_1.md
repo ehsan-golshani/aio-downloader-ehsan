@@ -1,8 +1,53 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 19:21
+📅 آخرین بروزرسانی: 1405/02/26 20:26
 
 ---
+
+## IranianMinds — post 20253
+
+<div align="center"><img src="telegram/content/IranianMinds_20253.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌سیم کارت سفید‌ها
+
+نزدیک به هشتاد روز است که حکومت ایران اینترنت را قطع کرده و تنها بسته ای محدود، کنترل شده و بسیار گران قیمت با عنوان «اینترنت پرو» را در اختیار گروههای خاص قرار میدهد. در کنار استفاده کنندگان اینترنت پرو، دارندگان «سیم کارتهای سفید» نیز از دسترسی ویژه برخوردارند.
+عمده بهره‌مندان از این امتیازها، وابستگان حکومت و حامیان آن هستند که با استفاده از این، امکان تصویری عادی بزک شده و گمراه کننده از وضعیت امروز ایران به جهان مخابره میکنند. تصویری که در آن نشانی از فقر گسترده، سرکوب سیستماتیک، گرانی کمرشکن و موج روزانه اعدامهای سیاسی دیده نمی‌شود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20252
+
+<div align="center"><img src="telegram/content/IranianMinds_20252.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎉 ۵۰۰٬۰۰۰ تومان رایگان-بونوس ویژه ثبت‌نام
+🔥 با هر ثبت نام ۵۰۰ هزار تومن جایزه بگیرید
+⬅️ شرط‌بندی کنید و بونوس را به موجودی واقعی تبدیل کنید
+🔥 وقتشه بازی رو یه جور دیگه ببینی
+⚽️  پوشش کامل مسابقات ورزشی 
+📊  پیش‌بینی با بهترین ضرایب 
+⚡️  تجربه سریع و حرفه‌ای
+
+😀 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن 
+
+😀 کانال تلگرام: 
+🔴 @winro_io  
+
+😀 هدیه خود را با ثبت نام در سایت دریافت کنید: 
+🔴 Winro.io
+G26
+سایت اصلی در روزهای آینده بازگشایی خواهد شد ✅
+</div>
+
+## IranianMinds — post 20251
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 تلگراف: مقامات ارشد دولت ترامپ از امارات خواستن به شکل جدی‌تری وارد جنگ با ایران شه.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20250
 
@@ -187,55 +232,5 @@
 جنگ سوم با ایران نزدیک است.
 
 @IranianMinds
-</div>
-
-## IranianMinds — post 20230
-
-<div align="center"><video src="telegram/content/IranianMinds_20230.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20230.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وسط پخش زنده میاد یادشون‌ میده چطوری شلیک کنن
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20228
-
-<div align="center"><video src="telegram/content/IranianMinds_20228.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20228.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 تروریستارو
-
-صداوسیما اومده اسلحه داده دست تمام مجریاش که بیان تو پخش زنده رجز‌ بخونن و تهدید کنن
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20227
-
-<div align="center"><img src="telegram/content/IranianMinds_20227.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎉 ۵۰۰٬۰۰۰ تومان رایگان-بونوس ویژه ثبت‌نام
-🔥 با هر ثبت نام ۵۰۰ هزار تومن جایزه بگیرید
-⬅️ شرط‌بندی کنید و بونوس را به موجودی واقعی تبدیل کنید
-🔥 وقتشه بازی رو یه جور دیگه ببینی
-⚽️  پوشش کامل مسابقات ورزشی 
-📊  پیش‌بینی با بهترین ضرایب 
-⚡️  تجربه سریع و حرفه‌ای
-
-😀 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن 
-
-😀 کانال تلگرام: 
-🔴 @winro_io  
-
-😀 هدیه خود را با ثبت نام در سایت دریافت کنید: 
-🔴 Winro.io
-r26
-سایت اصلی در روزهای آینده بازگشایی خواهد شد ✅
 </div>
 

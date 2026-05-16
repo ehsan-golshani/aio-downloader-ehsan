@@ -1,8 +1,24 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 19:09
+📅 آخرین بروزرسانی: 1405/02/26 20:13
 
 ---
+
+## FoxNewsTwitter — post 341733
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341733.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341733.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Alex Murdaugh’s lead attorney Jim Griffin reveals his client's shock and relief following the South Carolina Supreme Court’s decision to overturn his murder convictions.
+
+Griffin says while Murdaugh remains “skeptical” after years of courtroom losses, he's thrilled by the latest revelation.
+
+“I can tell you he is very relieved that he has gotten the label of convicted murderer of his wife and son off of him, and we plan to keep it off of him." | @LawrenceBJones3 @foxandfriends
+</div>
 
 ## FoxNewsTwitter — post 341732
 
@@ -252,17 +268,5 @@ NOW: President Xi welcomes President Trump to at the Chinese state banquet in Be
 "Honorable president Donald J. Trump. Ladies and gentlemen, it is a great pleasure to host the state banquet in honor of President Trump during his state visit to China."
 
 "On behalf of the Chinese government and people, I would like to extend a warm welcome to President Trump and the US delegation."
-</div>
-
-## FoxNewsTwitter — post 341707
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341707.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341707.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump and President Xi arrive at the welcome state banquet in China, taking their seats as the event gets underway.
 </div>
 

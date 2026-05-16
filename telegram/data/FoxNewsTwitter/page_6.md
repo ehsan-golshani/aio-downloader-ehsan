@@ -1,8 +1,20 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 19:09
+📅 آخرین بروزرسانی: 1405/02/26 20:13
 
 ---
+
+## FoxNewsTwitter — post 341707
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341707.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341707.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Trump and President Xi arrive at the welcome state banquet in China, taking their seats as the event gets underway.
+</div>
 
 ## FoxNewsTwitter — post 341706
 
@@ -245,15 +257,5 @@ Fox News (Twitter/X)
 NEW: Secretary Rubio says stepping behind the White House press secretary podium wasn't "too bad," but he's not sure if he'd have fun if he had to do it every week.
 
 "Karoline is irreplaceable....We can't wait until Karoline gets back." |@seanhannity
-</div>
-
-## FoxNewsTwitter — post 341687
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341687.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: President Trump and President Xi Jinping meet for bilateral talks https://twitter.com/i/broadcasts/1nJOLEBAamlxR
 </div>
 

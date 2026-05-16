@@ -1,8 +1,87 @@
 # آرشیو کانال IranIntlTV - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 19:14
+📅 آخرین بروزرسانی: 1405/02/26 20:18
 
 ---
+
+## IranIntlTV — post 337333
+
+<div align="center"><img src="telegram/content/IranIntlTV_337333.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امارات متحده عربی اعلام کرد که اظهارات جمهوری اسلامی و تلاش‌هایش برای توجیه حملات علیه امارات متحده عربی را نمی‌پذیرد و تاکید کرد فشارهای تهران تاثیری بر مواضع ابوظبی نخواهد داشت.
+
+پیش‌تر عباس عراقچی، وزیر خارجه جمهوری اسلامی گفته بود: «اماراتی‌ها اجازه دادند از سرزمین‌شان برای شلیک توپخانه و تجهیزات علیه ما استفاده شود.»
+https://iranintl.com/202605151790
+</div>
+
+## IranIntlTV — post 337332
+
+<div align="center"><img src="telegram/content/IranIntlTV_337332.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدنبی موسوی‌فرد، امام جمعه اهواز گفت: «در حال حاضر جمهوری اسلامی شرایطی برای آمریکا ایجاد کرده که نه راه پس دارد و نه راه پیش؛ دشمن باید بداند جمهوری اسلامی کاری کرده است که هیچ راه‌حل نظامی نمی‌تواند از عزت و اقتدار دفاعی و نظامی ما بکاهد.»
+
+او ادامه داد: «نیروهای مسلح و بسیج نیز مانند گذشته، آمادگی کامل و کوبنده‌ای برای برخورد قاطع با هرگونه تجاوز دشمن را دارند.»
+https://iranintl.com/202605158432
+</div>
+
+## IranIntlTV — post 337331
+
+<div align="center"><video src="telegram/content/IranIntlTV_337331.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337331.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در پیام ارسالی خود به ایران اینترنشنال با اشاره به افزایش شدید قیمت داروها گفت که هزینه گچ گرفتن پای شکسته‌اش ۹ میلیون تومان شده است. پیام این مخاطب با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337330
+
+<div align="center"><img src="telegram/content/IranIntlTV_337330.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رییس‌کل دادگستری خراسان جنوبی اعلام کرد یک وکیل دادگستری در بیرجند در جریان اختلاف خانوادگی جان باخته است.
+
+او گفت این وکیل زن پس از آن‌که همسرش با خودرو او را زیر گرفت، جان خود را از دست داد و پرونده این حادثه برای رسیدگی ویژه در دستگاه قضایی در حال بررسی است.
+
+به گفته این مقام قضایی، متهم خود را به قوه قضاییه معرفی کرده است.
+https://iranintl.com/202605153493
+</div>
+
+## IranIntlTV — post 337329
+
+<div align="center"><video src="telegram/content/IranIntlTV_337329.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337329.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ پس از دیدار با رییس‌جمهوری چین گفت پکن و واشینگتن توافق دارند که ایران هرگز نباید به سلاح هسته‌ای دست پیدا کند و تنگه هرمز باید باز بماند. او همچنین تاکید کرد دو کشور مسائلی را حل‌وفصل کرده‌اند که دیگران قادر به حل آن نبودند.
+جزییات بیشتر با مریم رحمتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337328
+
+<div align="center"><img src="telegram/content/IranIntlTV_337328.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سنتکام اعلام کرد از زمان آغاز محاصره دریایی بنادر و سواحل جنوب ایران، ۷۵ کشتی تجاری مجبور به تغییر مسیر شده‌اند و چهار کشتی نیز در پی حمله نیروهای آمریکا از کار افتاده‌اند.
+
+پیش از این، سنتکام با انتشار تصویری از گشت‌زنی یک جنگنده پنهان‌کار اف-۳۵-ای نیروی هوایی بر فراز آب‌های منطقه‌ای نزدیک تنگه هرمز خبر داد.
+https://iranintl.com/202605150606
+</div>
+
+## IranIntlTV — post 337327
+
+<div align="center"><img src="telegram/content/IranIntlTV_337327.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجتبی خامنه‌ای در پیامی منتسب به او به مناسبت روز پاسداشت زبان فارسی و بزرگداشت فردوسی، زبان فارسی را یکی از پایه‌های هویت ایرانیان توصیف کرد و گفت تقویت این زبان می‌تواند به گسترش «تمدن ایرانی‌اسلامی» کمک کند.
+او همچنین با اشاره به شاهنامه، از آن به‌عنوان اثری برای حفظ هویت، استقلال و ایستادگی ایرانیان یاد کرد.
+در بخشی از این پیام نوشته شده: «داستانهای اسطوره‌ای فردوسی، واقعیت زندگی و شخصیت قهرمانانه‌ آنان بوده و مفاهیم انسان‌ساز، سلحشورانه، و قرآنی شاهنامه، همه‌ اقوام و اقشار ایران را در حفظ هویت، اصالت و استقلال خود و مبارزه با ضحاک‌وشان متجاوز، همدل و همراه و همساز می کند.»
+https://iranintl.com/202605152075
+</div>
 
 ## IranIntlTV — post 337326
 
@@ -171,94 +250,5 @@ https://iranintl.com/202605153243
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شبکه کان اسرائیل گزارش داد ایال زمیر، رییس ستاد کل ارتش اسرائیل، در جریان جنگ علیه جمهوری اسلامی، به امارات متحده عربی سفر کرد. بر اساس این گزارش، زمیر در این سفر با مقام‌های اماراتی، از جمله محمد بن زاید آل نهیان، رییس این کشور، دیدار و گفت‌وگو کرده است.
 https://iranintl.com/202605157769
-</div>
-
-## IranIntlTV — post 337313
-
-<div align="center"><img src="telegram/content/IranIntlTV_337313.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻علی تاجرنیا، رییس هیات مدیره باشگاه استقلال، در جمع خبرنگاران درباره معرفی این تیم به کنفدراسیون فوتبال آسیا به‌عنوان نماینده فوتبال ایران در لیگ نخبگان گفت: «اگر بقیه ناراحت نشوند، می‌گوییم استقلال فصل آینده نماینده ایران در لیگ نخبگان است.»
-
-🔹او در ادامه درباره پیشنهاد برگزاری تورنمنت چندجانبه میان تیم‌های بالای جدول برای انتخاب قهرمان و نمایندگان آسیا گفت: «به هیچ عنوان زیر بار تورنمنت چندجانبه نمی‌رویم، در آن شرکت نمی‌کنیم و از فدراسیون فوتبال می‌خواهم هرچه زودتر نماینده‌های آسیایی را اعلام کند.»
-
-🔹تاجرنیا درباره آخرین وضعیت پنجره نقل‌وانتقالاتی استقلال نیز گفت: «استقلال با بیشتر بازیکنان خود قرارداد دوساله دارد و قرارداد بخشی از بازیکنانی که قرارداد یک‌ساله دارند نیز تمدید می‌شود. پنجره باشگاه به‌زودی باز خواهد شد.»
-
-🔹او افزود: «آن‌هایی که خود را دلسوز استقلال می‌دانند، بهتر است اجازه دهند صاحبان و تصمیم‌گیران باشگاه این دلسوزی را بیشتر نشان دهند.»
-
-@iranintltvsport
-</div>
-
-## IranIntlTV — post 337312
-
-<div align="center"><video src="telegram/content/IranIntlTV_337312.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337312.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس گزارش‌های منتشرشده توسط ایران اینترنشنال، ماموران حکومتی مانع برگزاری مراسم زادروز بهار شاه‌مهری بر مزار او شدند.
-
-طبق این گزارش، خانواده بهار در روز تولدش قصد داشتند بر سر مزار او مراسم یادبود برگزار کنند، اما اجازه حضور و تجمع در محل خاکسپاری به آن‌ها داده نشد. در نتیجه، خانواده ناچار شدند مراسم را در خانه و در اتاق شخصی او برگزار کنند.
-
-بر اساس این گزارش، افرادی ناشناس همچنین عکس بهار را که کنار مزارش قرار داشت، شکسته‌اند.
-</div>
-
-## IranIntlTV — post 337311
-
-<div align="center"><video src="telegram/content/IranIntlTV_337311.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337311.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام‌های شهروندان به ایران‌اینترنشنال حاکی است نیروهای انتظامی جمهوری اسلامی، هفته‌ها پس از برقراری آتش‌بس، همچنان خارج از مقرهای نظامی مستقر هستند. برخی از گزارش‌های مردمی از استقرار این نیروها در اصفهان و کرمانشاه، در مکان‌هایی از جمله قبرستان‌ها و بیابان‌ها خبر می‌دهند.
-
-گفت‌وگو با محسن مهیمنی، خبرنگار ایران‌اینترنشنال
-@iranintltv
-</div>
-
-## IranIntlTV — post 337310
-
-<div align="center"><video src="telegram/content/IranIntlTV_337310.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337310.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسیدگی به پرونده متهمان حمله با کوکتل مولوتوف به پارکینگ ساختمان مجاور دفتر ایران اینترنشنال در لندن، در دادگاه اولد بیلی آغاز شد. سه متهم این پرونده با اتهام پرتاب مواد آتش‌زا و به خطر انداختن جان مردم محاکمه می‌شوند.
-تاج‌الدین سروش، عضو تحریریه ایران‌اینترنشال، گزارش می‌دهد
-@iranintltv
-</div>
-
-## IranIntlTV — post 337309
-
-<div align="center"><video src="telegram/content/IranIntlTV_337309.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337309.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برد کوپر، فرمانده ستاد فرماندهی مرکزی ایالات متحده، سنتکام، تایید کرد تخریب یک مدرسه در ایران که مقام‌های جمهوری اسلامی مدعی کشته شدن ۱۷۵ نفر در آن هستند، ممکن است بر اثر اصابت یک بمب آمریکایی رخ داده باشد. او گفت این حادثه همچنان در دست بررسی است و ارتش آمریکا مسئولیت آن را نپذیرفته است.
-جزییات بیشتر با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
-@iranintltv
-</div>
-
-## IranIntlTV — post 337308
-
-<div align="center"><video src="telegram/content/IranIntlTV_337308.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337308.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عصر ۲۶ فروردین به پارکینگی در مجاورت دفتر ایران‌اینترنشنال در شمال لندن با دو کوکتل مولوتوف حمله شد. دادگاه اولد‌بِیلی لندن اعلام کرد رسیدگی به پرونده سه متهم این حمله آغاز شده است. اویسین مک‌گینس ۲۱ ساله، ناتان دان ۱۹ ساله و یک پسر ۱۶ ساله به اتهام پرتاب مواد آتش‌زا و به خطر انداختن جان مردم در این دادگاه محاکمه می‌شوند.
-@iranintltv
-</div>
-
-## IranIntlTV — post 337307
-
-<div align="center"><video src="telegram/content/IranIntlTV_337307.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337307.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارتش تایوان روز چهارشنبه ۱۳ مه در شهرستان کینمن یک رزمایش با آتش واقعی برگزار کرد که در آن سناریوی دفاع در برابر تلاش نیروهای دشمن برای پیاده‌سازی در این جزیره شبیه‌سازی شد. به گزارش یوت دیلی نیوز، رسانه وابسته به وزارت دفاع تایوان، این رزمایش در نزدیکی فرودگاه کینمن برگزار شد و شامل استفاده از موشک‌های جاولین، هویتزرها، تانک‌های M60A3 و نفربرهای زرهی CM21 بود.
-@iranintltv
 </div>
 

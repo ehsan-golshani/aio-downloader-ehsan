@@ -1,8 +1,20 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 19:09
+📅 آخرین بروزرسانی: 1405/02/26 20:13
 
 ---
+
+## FoxNewsTwitter — post 341773
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341773.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+DHS Secretary Markwayne Mullin joined ICE officers on the ground in Virginia during an early morning operation that resulted in the arrest of a repeat criminal illegal alien previously removed multiple times from the United States.
+
+Mullin said the suspect’s record included drug possession and DUI charges while slamming Governor Spanberger’s sanctuary policies for making Virginia “a magnet for criminal illegal aliens.”
+</div>
 
 ## FoxNewsTwitter — post 341772
 
@@ -258,25 +270,5 @@ Trump notes that China’s significant oil interests play a major role in its de
 "He said 'If I could be of any help whatsoever, I would like to help.'"
 
 The full interview airs tonight at 9 p.m. ET on 'Hannity.'
-</div>
-
-## FoxNewsTwitter — post 341753
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341753.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341753.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-Bulldozers flatten hundreds of illegal mopeds in NYC.
-
-The NYPD took a dramatic step in its sweeping crackdown on vehicles increasingly linked to violent crime.
-
-Police Commissioner Jessica Tisch says many of the bikes are uninsured, carry fake or altered plates, and have become a growing public safety threat because criminals use their speed and anonymity to flee police.
-
-The stark warning comes after investigators linked illegal mopeds and scooters to multiple robberies and even the shooting death of a 7-month-old girl last month.
-
-Officials say the more than 200 crushed bikes represent only a small portion of the more than 5,700 illegal mopeds and scooters the NYPD seizes so far this year, nearly 10% more than at the same time last year.
 </div>
 

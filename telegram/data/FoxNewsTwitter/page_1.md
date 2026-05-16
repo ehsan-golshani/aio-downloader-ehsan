@@ -1,8 +1,16 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 19:09
+📅 آخرین بروزرسانی: 1405/02/26 20:13
 
 ---
+
+## FoxNewsTwitter — post 341818
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: Secretary Pete Hegseth greets families of Navy sailors aboard the guided-missile destroyer USS Bainbridge as the ship returns home following its deployment in support of Operation Epic Fury.
+</div>
 
 ## FoxNewsTwitter — post 341817
 
@@ -255,17 +263,5 @@ Springsteen has been a vocal critic of President Trump, especially during his la
 Fox News (Twitter/X)
 
 WATCH LIVE: SpaceX CRS-34 resupply mission launches from Cape Canaveral (Courtesy: SpaceX) https://twitter.com/i/broadcasts/1nGnRYkMkydGO
-</div>
-
-## FoxNewsTwitter — post 341798
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341798.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341798.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-🍷Cheers to savings! Take $25 OFF any order on the Fox News Wine Shop. Use code CHEERS25 at checkout. bit.ly/4ueKKkV
 </div>
 

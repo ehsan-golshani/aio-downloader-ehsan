@@ -1,8 +1,28 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 19:09
+📅 آخرین بروزرسانی: 1405/02/26 20:13
 
 ---
+
+## FoxNewsTwitter — post 341753
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341753.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341753.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+Bulldozers flatten hundreds of illegal mopeds in NYC.
+
+The NYPD took a dramatic step in its sweeping crackdown on vehicles increasingly linked to violent crime.
+
+Police Commissioner Jessica Tisch says many of the bikes are uninsured, carry fake or altered plates, and have become a growing public safety threat because criminals use their speed and anonymity to flee police.
+
+The stark warning comes after investigators linked illegal mopeds and scooters to multiple robberies and even the shooting death of a 7-month-old girl last month.
+
+Officials say the more than 200 crushed bikes represent only a small portion of the more than 5,700 illegal mopeds and scooters the NYPD seizes so far this year, nearly 10% more than at the same time last year.
+</div>
 
 ## FoxNewsTwitter — post 341752
 
@@ -276,21 +296,5 @@ NEW: Spencer Pratt is suddenly within single digits of L.A. Mayor Karen Bass, wi
 The Emerson poll has Bass at 30%, Pratt at 22%, and socialist-linked Nithya Raman at 19%
 
 Pratt’s campaign is leaning hard into L.A.’s homelessness crisis, using sharp social media and attention-grabbing ads to turn a long-shot bid into a race people are now watching.
-</div>
-
-## FoxNewsTwitter — post 341733
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341733.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341733.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: Alex Murdaugh’s lead attorney Jim Griffin reveals his client's shock and relief following the South Carolina Supreme Court’s decision to overturn his murder convictions.
-
-Griffin says while Murdaugh remains “skeptical” after years of courtroom losses, he's thrilled by the latest revelation.
-
-“I can tell you he is very relieved that he has gotten the label of convicted murderer of his wife and son off of him, and we plan to keep it off of him." | @LawrenceBJones3 @foxandfriends
 </div>
 

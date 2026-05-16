@@ -1,8 +1,38 @@
 # آرشیو کانال IranianMinds - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 19:21
+📅 آخرین بروزرسانی: 1405/02/26 20:26
 
 ---
+
+## IranianMinds — post 20187
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+رئیس ‌جمهور چین با عدم دستیابی ایران به سلاح هسته‌ای موافق است و می‌خواهد ایران تنگه هرمز را باز کند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20186
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+تحقیقات درباره هدف قرار گرفتن مدرسه‌ای در ایران ( مدرسه میناب ) در جریان است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+پیشنهاد ایرانیا که برام رسید همون‌ جمله ی اول متنشونو که خوندم برام قابل قبول نبود و سریع ردش کردم
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20184
 
@@ -197,46 +227,6 @@ re25
 🔴 ترامپ به فاکس‌ نیوز :
 
 من از الان دیگه آدم صبوری نیستم و صبر بیشتری به ایران نشان نخواهم داد!
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20166
-
-<div align="center"><img src="telegram/content/IranianMinds_20166.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ :
-
-من و رئیس جمهور چین درباره ایران صحبت کردیم. احساساتمان بسیار شبیه هم است. ما می‌خواهیم تنگه‌ هرمز باز باشد و هدف ما یکیه.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20165
-
-<div align="center"><video src="telegram/content/IranianMinds_20165.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20165.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نتانیاهو:
-
-امروز، ۶۰٪ از نوار غزه تحت کنترل ماست. ولی فردا باید ببینیم…
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20164
-
-<div align="center"><video src="telegram/content/IranianMinds_20164.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20164.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه عظمتی داره هواپیماش
-
-لحظه ی خروج هواپیمای ریاست جمهوری ایالات متحده از چین
 
 @IranianMinds
 </div>

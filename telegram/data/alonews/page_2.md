@@ -1,8 +1,149 @@
 # آرشیو کانال alonews - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 19:26
+📅 آخرین بروزرسانی: 1405/02/26 20:31
 
 ---
+
+## alonews — post 120422
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈حملات ارتش اسرائیل به لبنان ادامه دارد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120421
+
+<div align="center"><video src="telegram/content/alonews_120421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وضعیت عجیب و طوفانی توچال
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120420
+
+<div align="center"><img src="telegram/content/alonews_120420.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرگزاری صداوسیمای جمهوری اسلامی، روز شنبه ۲۶ اردیبهشت در گزارشی اختصاصی اعلام کرد که «چند کشور اروپایی» به‌دنبال انجام امور اداری و دریافت «تاییدیه» از تهران هستند تا بتوانند شناورهایشان را از تنگه هرمز عبور دهند.
+
+
+🔴این خبرگزاری با اشاره به گزارش‌ها از عبور موفق نفتکش‌هایی از چین، ژاپن و پاکستان از مسیر تعیین شده از سوی جمهوری اسلامی، تاکید کرد که این عبورها با «اجازه نیروی دریایی ایران» انجام شده است. صداوسیما نام این «کشورهای اروپایی» را اعلام نکرد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120419
+
+<div align="center"><video src="telegram/content/alonews_120419.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120419.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈امتحانات خرداد دانش‌آموزان پایه‌های هفتم تا دهم اصفهان غیرحضوری شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120418
+
+<div align="center"><img src="telegram/content/alonews_120418.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️کویت تصویر تسلیم شدن چهار پاسدار را منتشر کرد!
+
+🔴کویت با صدور بیانیه‌ای جمهوری اسلامی را به حمله به جزیره «بوبیان» با قایق‌های ماهیگیری  متهم کرد و اعلام کرد نیروهای سپاه پاسداران قصد خرابکاری داشتند؛ یک نظامی  کویتی در درگیری زخمی و ۴ تن از عناصر وابسته به سپاه دستگیر شدند.
+
+🔴چهار پاسدار احتمالا نیروی قدس با دیدن اولین اسلحه دست طرف مقابل تسلیم شدند !
+
+🔴دو سرهنگ، یک سرگرد و یک ستوان‌یکم.
+
+🤔عملیات آغاز نشده لو رفت و تسلیم شدند!
+
+✅@AloNews
+</div>
+
+## alonews — post 120417
+
+<div align="center"><video src="telegram/content/alonews_120417.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120417.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈هم اکنون گزارش رسانه های عربی از تحرکات بزرگ نظامی در سراسر خاورمیانه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120416
+
+<div align="center"><video src="telegram/content/alonews_120416.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120416.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رویترز: به گفته دو منبع آگاه، در داخل کاخ سفید هیچ تلاشی برای متقاعد کردن ترامپ به خویشتنداری بیشتر در پیام‌هایش درباره ایران صورت نگرفته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120414
+
+<div align="center"><video src="telegram/content/alonews_120414.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120414.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈حمله‌ی‌ نیروی هوایی اسرائیل به المنصوری، جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120413
+
+<div align="center"><video src="telegram/content/alonews_120413.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120413.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈حماس تأیید کرد که عزالدین الحداد، فرماندهی از تیپ‌های عزالدین القسام، در حمله هوایی هدفمند اسرائیل شب گذشته در شهر غزه کشته شد.
+
+
+🔴گروه ادعا می‌کند علاوه بر همسر و دختر الحداد، چندین غیرنظامی دیگر نیز در این حمله کشته شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120411
+
+<div align="center"><video src="telegram/content/alonews_120411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر جنگ، پیت هگستث، دریانوردان گروه ضربت ناو هواپیمابر USS Gerald R. Ford را پس از بازگشت به پایگاه نیروی دریایی نورفولک از یک ماموریت تاریخی ۱۱ ماهه، خوش‌آمد گفت.
+
+🔴ویدیوی اول از USS Gerald R. Ford (CVN-78) است و ویدیوی دوم هگستث را در حال خطاب قرار دادن نیروها در USS Bainbridge (DDG-96) نشان می‌دهد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120408
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کرملین : پوتین با رئیس امارات متحده عربی درباره ایران گفتگو کرد
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120407
 
@@ -104,158 +245,6 @@ CH 📣 https://t.me/winstonservice
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈هم اکنون بمباران در جنوب لبنان
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120396
-
-<div align="center"><img src="telegram/content/alonews_120396.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آدرنالین خالص
-🔥
-
-💥سلتیک در آخرین بازی فصل مقابل هارت به برتری ۳بر۱ رسید و قهرمان اسکاتلند شد
-
-🚫هارت رقیب مستقیم سلتیک بود و با یک تساوی هم میتونست قهرمان بشه اما با گل دقیقه ۸۹ مائدا قافیه رو باخت
-
-@AloSport
-</div>
-
-## alonews — post 120395
-
-<div align="center"><video src="telegram/content/alonews_120395.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120395.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️به گواهی تاریخی هاشمی رفسنجانی، خون کودکان میناب و تمام قربانیان جنگ ایران و آمریکا به گردن علی خامنه‌ای است.
-
-
-🔴هاشمی رفسنجانی: «نظرم آن بود که باید مسائل با آمریکا را حل کنیم. با آقای خامنه‌ای یکی دو ساعت بحث کردیم، ولی به نتیجه نرسیدیم.
-
-
-🔴من گفتم: ما حرف دیگری به شما نمی‌توانیم بزنیم، فقط مساله‌ی ما هست و خدا؛ بالاخره روز قیامت از ما می‌پرسند این همه ضرری که این طرف (به مردم ایران) هست، اگر این‌ها را شما به عهده می‌گیرید من دیگر حرفی ندارم.»
-
-
-🔴علی خامنه‌ای گفت: «بله جواب خدا با من».
-
-✅@AloNews
-</div>
-
-## alonews — post 120393
-
-<div align="center"><img src="telegram/content/alonews_120393.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈حمله‌ی‌ نیروی هوایی اسرائیل به المنصوری، جنوب لبنان
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فرماندهی مرکزی ایالات متحده:
-تا امروز، ۷۸ کشتی تجاری تغییر مسیر داده‌اند و ۴ کشتی غیرفعال شده‌اند تا اطمینان حاصل شود که قوانین محاصره رعایت می‌شوند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120391
-
-<div align="center"><video src="telegram/content/alonews_120391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عارف: ما از حق حاکمیت خود در تنگه هرمز گذشته بودیم و اجازه دادیم از تنگه‌ای که متعلق به ایران است تجهیزات نظامی که قرار بود علیه ما استفاده کنند، عبور دهند؛ دیگر این کار را نمی‌کنیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120384
-
-<div align="center"><video src="telegram/content/alonews_120384.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120384.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈منابع رسمی پاکستانی به الحدث: اسلام‌آباد به دنبال قانع کردن تهران و واشنگتن به «انعطاف» در مذاکره است.
-
-
-🔴اسلام‌آباد به دنبال ادامه روند میانجی‌گری با تمام «جدیّت» است.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120383
-
-<div align="center"><video src="telegram/content/alonews_120383.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120383.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈قطعی اینترنت وارد روز ۷۸ام شد
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120382
-
-<div align="center"><video src="telegram/content/alonews_120382.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120382.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ویدیو منتشرشده توسط ارتش آمریکا از عملیات کشتن ابوبلال المینوکی، نفر دوم داعش در نیجریه
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120381
-
-<div align="center"><video src="telegram/content/alonews_120381.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120381.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈از عجایب روزگار اینه تو مراسم بزرگداشت فردوسی نوحه پخش کردن
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120380
-
-<div align="center"><video src="telegram/content/alonews_120380.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120380.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شلیک رگباری در پخش مستقیم صداسیما
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120379
-
-<div align="center"><video src="telegram/content/alonews_120379.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120379.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اردوغان:
-مطالبات ما روشن است. ما اف-۳۵ ها را می‌خواهیم
-
-
-🔴همکاران ما به تماس‌های خود با همتایان آمریکایی‌شان ادامه می‌دهند و امیدواریم نتیجه مثبتی به دست آوریم.
-
 
 ✅ @AloNews خبر جنگ
 </div>

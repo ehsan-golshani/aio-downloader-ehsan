@@ -1,8 +1,37 @@
 # آرشیو کانال pm_afshaa - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 19:10
+📅 آخرین بروزرسانی: 1405/02/26 20:14
 
 ---
+
+## pm_afshaa — post 90775
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ به فاکس‌ نیوز: من دیگر خیلی بیشتر از این صبر نخواهم کرد. آنها باید توافق رو امضا کنند. مواد هسته‌ای ایران، ممکنه به چین یا آمریکا تحویل داده شه!
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90774
+
+<div align="center"><img src="telegram/content/pm_afshaa_90774.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پس از سفر ترامپ و تیم اقتصادیش به چین، بازار سهام آمریکا باز هم رکورد تاریخی زد و حدود بیست درصد رشد رو تجربه کرد
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90773
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وای‌نت: امارات متحده عربی تلاش کرد کشورهای همسایه رو برای حمله مشترک به جمهوری اسلامی متقاعد کنه.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90772
 
@@ -166,53 +195,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ایسنا : با قیمت قطعی خودرو باید خداحافظی کنید،چون تو جدیدترین طرح فروش ایران‌خودرو و سایپا،خریداران باید نیمی از مبلغ خودرو رو امروز بپردازن بدون اینکه بدونن در زمان تحویل چه قیمتی در انتظارشونه
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90755
-
-<div align="center"><img src="telegram/content/pm_afshaa_90755.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تخفیف ویژه فقط گیگی 170 با تست رایگان ✅
-اول تست کن، بعد با خیال راحت خرید کن!
-
-❌ دیگه چرا گیگی ۵۰۰ تا ۶۰۰ بدی؟!
-اونم بدون اینکه بدونی کیفیتش چطوره 😐
-
-⚡️ تخفیف ویژه محدود ⏳
-فقط تا پایان امشب
-
-🌍 آی‌پی استار واقعی + پینگ عالی
-🛡 ضمانت بازگشت وجه بدون شرط
-🚀 اتصال پایدار و بدون قطعی
-
-خرید آنی از ربات :
-
-Id : @LexVipBot
-تایم سرورامون نامحدوده❤️
-
-Link chanel : @lex_server
-
-رایگان گذاشته میشه هرشب تو‌چنل بالا از دست ندید👌
-</div>
-
-## pm_afshaa — post 90754
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کارشناس کانال 14 اسرائیل: رژیم ایران به شدت به پول نیاز داره و در حال انجام تماس‌های مخفی و مستقیم با دولت ترامپه
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اوباما درباره برنامه هسته‌ای ایران:
-ما بدون شلیک یک گلوله آن را متوقف کردیم. 97 درصد اورانیوم آنها رو خارج کردیم. هیچ بحثی وجود نداره که آن توافق رو کار کرد و لازم نبود ما عده زیادی آدم بکشیم یا تنگه هرمز رو ببندیم.
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

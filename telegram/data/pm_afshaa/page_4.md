@@ -1,8 +1,36 @@
 # آرشیو کانال pm_afshaa - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 19:10
+📅 آخرین بروزرسانی: 1405/02/26 20:14
 
 ---
+
+## pm_afshaa — post 90795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ: آمریکا ممکنه در مقطعی برای خارج کردن «گرد و غبار هسته‌ای» ایران، وارد عمل بشه؛ یا اونو به دست میاریم، یا اگر نشد، وارد میشیم؛ آمریکا تجهیزات لازم برای این کار رو در اختیار داره.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90794
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وزیر امور خارجه چین: ما خواستار بازگشایی هرچه سریع‌تر تنگه هرمز هستیم.
+
+همچنین ما از آمریکا و ایران حمایت می‌کنیم تا به حل اختلافات و منازعات خود از طریق گفتگوها ادامه بدن.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90793
+
+<div align="center"><img src="telegram/content/pm_afshaa_90793.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت تبلیغات با بازدهی بالا میتونین دایرکت کانال پیام بدین
+</div>
 
 ## pm_afshaa — post 90792
 
@@ -156,35 +184,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴ترامپ: من از رئیس جمهور چین نخواستم که به ایران برای باز کردن تنگه هرمز فشار بیاورد.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90775
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ به فاکس‌ نیوز: من دیگر خیلی بیشتر از این صبر نخواهم کرد. آنها باید توافق رو امضا کنند. مواد هسته‌ای ایران، ممکنه به چین یا آمریکا تحویل داده شه!
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90774
-
-<div align="center"><img src="telegram/content/pm_afshaa_90774.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پس از سفر ترامپ و تیم اقتصادیش به چین، بازار سهام آمریکا باز هم رکورد تاریخی زد و حدود بیست درصد رشد رو تجربه کرد
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90773
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وای‌نت: امارات متحده عربی تلاش کرد کشورهای همسایه رو برای حمله مشترک به جمهوری اسلامی متقاعد کنه.
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

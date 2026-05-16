@@ -1,8 +1,67 @@
 # آرشیو کانال IranianMinds - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 19:21
+📅 آخرین بروزرسانی: 1405/02/26 20:26
 
 ---
+
+## IranianMinds — post 20123
+
+<div align="center"><img src="telegram/content/IranianMinds_20123.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست کاخ سفید در ایکس:
+تاریخ در حرکت است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20122
+
+<div align="center"><img src="telegram/content/IranianMinds_20122.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ببین کی داره اینو میگه…
+
+دو روز ۱۸ و ۱۹ دی ۱۴۰۴، ۲۳۶ کودک رو کشتید.
+۵۵۵ بچه رو هم بازداشت کردید.
+
+آها یادم نبود کودکان غزه و فلسطین مال شماس.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20121
+
+<div align="center"><img src="telegram/content/IranianMinds_20121.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️اوتباند موجود⚠️
+
+🔋حداقل خرید 30GB
+
+♾حداکثر محدودیتی نداره
+
+50GB ➡️ 180
+
+100GB ➡️140
+
+200GB ➡️120
+
++500GB ➡️100
+
+🧬 500 گیگ به بالا امکان تسویه روزانه نیز فراهم می باشد
+
+⬅️دارای لود بالانس و اپتایم 99/9% بدون قعطی
+⬅️تست موجود می باشد
+
+جهت خرید و استعلام قیمت🟡
+
+@xan_vpnn
+
+کانال:
+
+https://t.me/+qNjExGEJztE2OGI0
+</div>
 
 ## IranianMinds — post 20120
 
@@ -213,56 +272,6 @@ re24
 شما یک رهبر بزرگ هستید. به همه می‌گویم که شما یک رهبر بزرگ هستید. گاهی مردم از گفتن این حرف توسط من خوششان نمی‌آید، اما با این حال می‌گویم چون حقیقت است.
 
 من فقط حقیقت را می‌گویم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20101
-
-<div align="center"><video src="telegram/content/IranianMinds_20101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 رئیس ‌جمهور چین به ترامپ:
-
-همیشه معتقد بودم که دو کشور ما منافع مشترک بیشتری نسبت به اختلافات داریم.
-
-موفقیت یکی، فرصتی برای دیگری است و یک رابطه دوجانبه باثبات برای جهان مفید است.
-
-چین و ایالات متحده هر دو از همکاری بهره می‌برند و از مواجهه ضرر می‌کنند. ما باید شریک باشیم، نه رقیب.
-
-باید به یکدیگر کمک کنیم تا موفق شویم، با هم رونق پیدا کنیم و راه درست برای تعامل کشورهای بزرگ در عصر جدید را بیابیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20100
-
-<div align="center"><video src="telegram/content/IranianMinds_20100.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20100.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 رئیس ‌جمهور چین به ترامپ:
-
-در حال حاضر، تحولی که در یک قرن گذشته دیده نشده در سراسر جهان شتاب گرفته و وضعیت بین‌المللی سیال و پرآشوب است.
-
-جهان به یک چهارراه جدید رسیده است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20099
-
-<div align="center"><video src="telegram/content/IranianMinds_20099.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20099.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 رئیس ‌جمهور چین به ترامپ:
-
-آیا می‌توانیم، به نفع رفاه مردم هر دو کشور و آینده بشریت، آینده‌ای روشن‌تر برای روابط دوجانبه‌مان بسازیم؟
 
 @IranianMinds
 </div>
