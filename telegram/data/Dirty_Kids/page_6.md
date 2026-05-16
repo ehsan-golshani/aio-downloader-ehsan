@@ -1,8 +1,49 @@
 # آرشیو کانال Dirty_Kids - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 18:16
+📅 آخرین بروزرسانی: 1405/02/26 19:24
 
 ---
+
+## Dirty_Kids — post 389445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎶 موزیک - کتلت تنگسیری
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389444
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389444.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389444.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موزیک ویدیو کتلت تنگسیری
+
+ارزش دانلود بالا، انرژی‌بخش و شاد
+
+حجمش رو تا جایی‌که میشد آوردم پایین
+موزیک خالیشم براتون پایین گذاشتم که حجمش خیلی کمتره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389443
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389443.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389443.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جو خونه مکرون
+بعد از قضیه گلشیفته
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389442
 
@@ -260,49 +301,6 @@ R24
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جدی پیک می تر از این جنده های حجابی تو دانشگاه وجود نداره، یارو سال اول کارشناسی کامپیوتره بعد استیکر زده رو لپ تاپش LEAVE ME ALONE IM CODING، بیا برو کیرم تو کدت شد
 
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389421
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پلیس شریف دانمارک vs طرفداران تروریسم جهانی
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389420
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389420.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مانوک خدابخشیان: "فعالیتی که برای براندازی پهلوی سوم وجود داره، برای براندازی رژیم وجود نداره. همه تلاش می‌کنند که این شاهزاده پهلوی به ایران برنگرده‌."
-روحت شاد عمومانوک
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389416
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389416.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389416.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#تکمیلی
-یه پسره حدود 2 میلیون دلار هزینه کرده تا آلیس رزنبلوم | Alice Rosenblum دختر 19 ساله آمریکایی که مدل اونلی‌فنزه رو از نزدیک ببینه؛
-
-پسره تا رسید بهش گفت چاق‌تر از عکساتی و من روزی 3 بار باهات خودارضایی می‌کنم...
-
-تهشم فقط به دختره دست داد که آلیس چندشش شد و گفت اگه میشه بندازینش بیرون چون داره من رو می‌ترسونه!
 
 
 @Dirty_Kids 👻

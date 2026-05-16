@@ -1,8 +1,18 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 18:14
+📅 آخرین بروزرسانی: 1405/02/26 19:21
 
 ---
+
+## IranianMinds — post 20204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امام جمعه کرج:
+
+بر اساس توصیه قرآن باید تا پایان «فتنه»، جنگ رو ادامه بدیم؛ مجازات اسرائیل، محو کردن کامل اونه.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20203
 
@@ -209,16 +219,6 @@ ge25
 🔴 ترامپ:
 
 پیشنهاد ایرانیا که برام رسید همون‌ جمله ی اول متنشونو که خوندم برام قابل قبول نبود و سریع ردش کردم
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-ارتش ایران را نابود کردیم و شاید لازم باشد یک عملیات پاکسازی سبک دیگر‌ هم انجام دهیم.
 
 @IranianMinds
 </div>

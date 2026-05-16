@@ -1,8 +1,41 @@
 # آرشیو کانال WithYashar - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 18:00
+📅 آخرین بروزرسانی: 1405/02/26 19:08
 
 ---
+
+## WithYashar — post 11259
+
+<div align="center"><video src="telegram/content/WithYashar_11259.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11259.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ: امیدوارم ایران تماشا کند. ما دقیقاً می‌دانیم چه چیزی را آماده کرده‌اند. می‌دانید، آن‌ها کمی استراحت داشتند، بنابراین سعی دارند چند چیز را با هم جمع کنند. آن‌ها موشک‌هایی را از زیر زمین بیرون آورده‌اند. همه این‌ها در یک روز از بین خواهند رفت. امیدوارم این رو ببینند چون همه کارهایی که در چهار هفته گذشته انجام داده‌اند، در یک روز از بین خواهد رفت.
+@withyashar
+یاشار:خوب دیگه رسمأ داره میگه جنگ میشه و هم داره میگه حمله خیلی سریع و محکم انجام میشه همانطور که گفتیم
+</div>
+
+## WithYashar — post 11258
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آمریکا پیشنهاد ۱۴ ماده‌ای ایران را رد کرد
+
+
+طبق اطلاعات رسیده به تهران تایمز، دولت آمریکا پاسخ پیشنهاد مکتوب ایران درباره پایان جنگ را داده است.
+
+گفتنی است ایران پیشنهاد خود را مبتنی بر مذاکرات دو مرحله ای ارائه کرده بود که در مرحله اول منجر به پایان جنگ در همه جبهه ها شده و در صورت تحقق شروط ایران، مرحله دوم مذاکرات که درباره موضوع هسته ای بود، آغاز می شد
+@withyashar
+</div>
+
+## WithYashar — post 11257
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجلس نمایندگان آمریکا برای سومین بار طرح دموکرات‌ها جهت محدود کردن اختیارات نظامی ترامپ علیه جمهوری اسلامی رو رد کرد.
+
+این طرح با نتیجه ۲۱۲ در برابر ۲۱۲ به تساوی رسید و در نهایت با اختلاف یک رای شکست خورد.
+@withyashar
+</div>
 
 ## WithYashar — post 11256
 
@@ -158,27 +191,5 @@ https://t.me/boost/withyashar
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبر خوب 😍
-</div>
-
-## WithYashar — post 11238
-
-<div align="center"><video src="telegram/content/WithYashar_11238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتانیاهو: دشمنان ما به دنبال نابودی همه ما هستند. همه ما
-آنها بین راست و چپ، سکولار و مذهبی، یهودی و عرب تفاوتی قائل نمی‌شوند.
-@withyashar
-نتانیاهو: اورشلیم را تحت حاکمیت اسرائیل برای همیشه حفظ خواهیم کرد
-</div>
-
-## WithYashar — post 11237
-
-## WithYashar — post 11236
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سومین دور مذاکرات مستقیم لبنان و اسرائیل در واشنگتن آغاز شد
-@withyashar
 </div>
 

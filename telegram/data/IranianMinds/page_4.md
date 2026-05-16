@@ -1,8 +1,18 @@
 # آرشیو کانال IranianMinds - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 18:14
+📅 آخرین بروزرسانی: 1405/02/26 19:21
 
 ---
+
+## IranianMinds — post 20184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+ارتش ایران را نابود کردیم و شاید لازم باشد یک عملیات پاکسازی سبک دیگر‌ هم انجام دهیم.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20183
 
@@ -227,16 +237,6 @@ re25
 چه عظمتی داره هواپیماش
 
 لحظه ی خروج هواپیمای ریاست جمهوری ایالات متحده از چین
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20163
-
-<div align="center"><img src="telegram/content/IranianMinds_20163.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ چین رو‌‌ ترک‌ کرد
 
 @IranianMinds
 </div>

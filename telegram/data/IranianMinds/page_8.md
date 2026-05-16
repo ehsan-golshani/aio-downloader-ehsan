@@ -1,8 +1,22 @@
 # آرشیو کانال IranianMinds - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 18:14
+📅 آخرین بروزرسانی: 1405/02/26 19:21
 
 ---
+
+## IranianMinds — post 20098
+
+<div align="center"><video src="telegram/content/IranianMinds_20098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+تمام جهان در حال تماشای دیدار ماست
+
+@IranianMindsi
+</div>
 
 ## IranianMinds — post 20097
 
@@ -236,18 +250,6 @@ https://t.me/+qNjExGEJztE2OGI0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 عباس عراقچی وارد هند شد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20077
-
-<div align="center"><img src="telegram/content/IranianMinds_20077.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سنتکام با انتشار تصویری از گشت‌زنی جنگنده پنهان‌کار F-35A امریکا بر فراز آب‌های نزدیک تنگه هرمز خبر داد.
-
-به گفته سنتکام، این جنگنده توان حمل تا ۱۸ هزار پوند مهمات را در سرعت مافوق صوت دارد.
 
 @IranianMinds
 </div>

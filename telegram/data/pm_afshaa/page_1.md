@@ -1,8 +1,32 @@
 # آرشیو کانال pm_afshaa - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 18:02
+📅 آخرین بروزرسانی: 1405/02/26 19:10
 
 ---
+
+## pm_afshaa — post 90853
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت تبلیغات با بازدهی بالا میتونین دایرکت کانال پیام بدین
+</div>
+
+## pm_afshaa — post 90852
+
+<div align="center"><img src="telegram/content/pm_afshaa_90852.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست جدید ترامپ در تروث سوشال:
+شوخی نداریم!!! ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیفته!
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90851
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ایسنا: وزیر کشور پاکستان برای دیدار با مسئولان جمهوری اسلامی ساعاتی قبل به تهران سفر کرده. 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90850
 
@@ -163,50 +187,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ارابه مرگ مردم ایران 1 میلیارد رو رد کرد
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90833
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👩‍💻کانفیگ اضطراری موجود شد!
-
-🛍 V2RAY - ( پر سرعت - تضمینی )
-
-• 1G 260 💵
-• 2G 500💵
-• 3G 740💵
-• 4G 980💵
-• 5G 1.200💵
-• 10G 2.300💵
-• 20G 4.400💵
-• 30G 6.400💵
-
-✅ساب لینک جهت بررسی حجم ارسال میشود
-✔️اتصال ۹۸ درصد اپتایم
-✔️با سرعت اپلود و دانلود بالا
-✔️بدونه محدودیت زمانی و کاربر
-🔥عودت وجه در صورت قطعی
-
-✅پشتیبانی فروش:
-@N9NEEbot
-</div>
-
-## pm_afshaa — post 90832
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت دادگستری آمریکا با صدور بیانیه‌ای، مدعی شد «محمد باقر سعد داوود السعدی»، شهروند عراقی و از اعضای شاخص کتائب حزب‌الله دستگیر شده و به ایالات متحده منتقل شده
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90831
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴رویترز: آمریکا ممکن است از اسرائیل بخواهد میلیاردها دلار از وجوه مالیاتی فلسطینیان که مسدود شده است را به حمایت از طرح بازسازی غزه توسط ترامپ اختصاص دهد
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

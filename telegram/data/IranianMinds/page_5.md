@@ -1,8 +1,18 @@
 # آرشیو کانال IranianMinds - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 18:14
+📅 آخرین بروزرسانی: 1405/02/26 19:21
 
 ---
+
+## IranianMinds — post 20163
+
+<div align="center"><img src="telegram/content/IranianMinds_20163.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ چین رو‌‌ ترک‌ کرد
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20162
 
@@ -218,18 +228,6 @@ ShirOKhorshid-2026.05.14.apk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 :( موضوع امیدوار بودن یا نبودن نیست. وقتی که قدرت تصمیم‌گیری در دست دیگران است، وقتی که ما نمی‌توانیم در تصمیم‌گیری آنها دخالت کنیم، تنها کاری که می‌توان انجام داد، تحمل کردن است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20140
-
-<div align="center"><img src="telegram/content/IranianMinds_20140.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گیر چه عقب مونده‌هایی افتادیم
-
-ننگ ۵۰۰ ساله روحانیت رو از تاریخ ایران پاک باید کنیم
 
 @IranianMinds
 </div>

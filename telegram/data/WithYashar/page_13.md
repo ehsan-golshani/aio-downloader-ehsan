@@ -1,8 +1,32 @@
 # آرشیو کانال WithYashar - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/26 18:00
+📅 آخرین بروزرسانی: 1405/02/26 19:08
 
 ---
+
+## WithYashar — post 11157
+
+<div align="center"><video src="telegram/content/WithYashar_11157.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11157.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همراهان ترامپ در چین
+@withyashar
+</div>
+
+## WithYashar — post 11156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سد عباس چپقچی وارد هند شد
+@withyashar
+</div>
+
+## WithYashar — post 11155
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احسان افرشته، به اتهام جاسوسی و همکاری اطلاعاتی با موساد اعدام شد به گفته رژیم وی چند مرحله تماس از طریق پیام‌رسان‌ها داشته و در ادامه از طریق پست الکترونیک باهم در ارتباط بوده‌اند بیش از ۳۰۰ پیام بین آنها رد و بدل شده است. افرشته در ابتدا در پوشش راننده تاکسی…
+</div>
 
 ## WithYashar — post 11154
 

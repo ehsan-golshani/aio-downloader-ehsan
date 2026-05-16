@@ -1,8 +1,19 @@
 # آرشیو کانال IranianMinds - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 18:14
+📅 آخرین بروزرسانی: 1405/02/26 19:21
 
 ---
+
+## IranianMinds — post 20120
+
+<div align="center"><img src="telegram/content/IranianMinds_20120.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بنر حامیان حکومت در تجمع دیشب تهران:
+سید مجید نقطه‌زن، امتحانا نزدیکه، یه جایی‌رو زود بزن.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20119
 
@@ -254,19 +265,5 @@ re24
 آیا می‌توانیم، به نفع رفاه مردم هر دو کشور و آینده بشریت، آینده‌ای روشن‌تر برای روابط دوجانبه‌مان بسازیم؟
 
 @IranianMinds
-</div>
-
-## IranianMinds — post 20098
-
-<div align="center"><video src="telegram/content/IranianMinds_20098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 رئیس ‌جمهور چین به ترامپ:
-
-تمام جهان در حال تماشای دیدار ماست
-
-@IranianMindsi
 </div>
 

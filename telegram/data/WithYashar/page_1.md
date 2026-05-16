@@ -1,8 +1,33 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 18:00
+📅 آخرین بروزرسانی: 1405/02/26 19:08
 
 ---
+
+## WithYashar — post 11403
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+العربیه: طبق گفته منابع آگاه پاکستانی، در بحث تنگه هرمز، پیشرفت‌هایی حاصل شده است
+@withyashar
+</div>
+
+## WithYashar — post 11402
+
+<div align="center"><video src="telegram/content/WithYashar_11402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوئل نهایی ، وضعیت الان!
+@withyashar
+</div>
+
+## WithYashar — post 11401
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی ها اومدن که خبر مرگ بابای سپاهیشون رو زودتر تو چنلت ببینن
+اخه از رسانه های دیگه ۱ ساعت حداقل جلوتری ستون😂🔥
+</div>
 
 ## WithYashar — post 11400
 
@@ -142,27 +167,6 @@
 جسی واترز، مجری فاکس نیوز:
 
 ترامپ درحال آماده‌شدن برای دور جدیدی از حملات نظامی به ایرانه.
-@withyashar
-</div>
-
-## WithYashar — post 11382
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ: 5 بار با ایران نزدیک توافق شدم، ولی روز بعدش زدن زیرش
-@withyashar
-</div>
-
-## WithYashar — post 11381
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نشست آینده تکنولوژی در ایران، با حضور و سخنرانی شاهزاده رضا پهلوی امشب ۸:۳۰ به وقت تهران ۱۰ صبح به وقت غرب آمریکا سانفرانسیسکو
-@withyashar
-</div>
-
-## WithYashar — post 11380
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سنتکام به نیویورک تایمز : کشتی‌های ایرانی رو با ماهواره و چند روش دیگه ردیابی می‌کنیم
 @withyashar
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال IranianMinds - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 18:14
+📅 آخرین بروزرسانی: 1405/02/26 19:21
 
 ---
+
+## IranianMinds — post 20140
+
+<div align="center"><img src="telegram/content/IranianMinds_20140.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گیر چه عقب مونده‌هایی افتادیم
+
+ننگ ۵۰۰ ساله روحانیت رو از تاریخ ایران پاک باید کنیم
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20139
 
@@ -250,16 +262,5 @@ ShirOKhorshid-2026.05.14.apk
 کانال:
 
 https://t.me/+qNjExGEJztE2OGI0
-</div>
-
-## IranianMinds — post 20120
-
-<div align="center"><img src="telegram/content/IranianMinds_20120.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بنر حامیان حکومت در تجمع دیشب تهران:
-سید مجید نقطه‌زن، امتحانا نزدیکه، یه جایی‌رو زود بزن.
-
-@IranianMinds
 </div>
 

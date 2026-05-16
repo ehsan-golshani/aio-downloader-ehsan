@@ -1,8 +1,56 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 18:16
+📅 آخرین بروزرسانی: 1405/02/26 19:24
 
 ---
+
+## Dirty_Kids — post 389560
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389560.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی یه مانکن حامله میشه!
+چجوری هیچ جاشون تپل نمیشه؟!!!!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389559
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389559.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389559.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارزش دانلود: صفر
+فقط برای اونایی که نت اضافی دارن
+
+این قشنگ مشخص از خود وزارت‌اطلاعات دستور میگیره
+برای اولین یکی پیدا شد از رضا گلزار ضعیفتر فیلم بازی میکنه :/ بابا یذره تف میزدی به چشات خیس بشه اقلا
+
+جیندا جنگ میندازی گردن مردم؟ جنگی که کل دنیا درگیرن سیاست ابرقدرت‌ها داره عوض میشه بخاطرش
+
+تا دیروز هرکی یه فیلم میگرفت میریختن تو خونش میگفتن جاسوس، الان دیدن کسی نمیتونه بره تو جزیره خودشون مستند میسازن میدن به این پرستو‌ها کصونه‌واویلا بازی دربیارن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389558
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389558.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389558.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مداح‌: وقت نبرده بابا، به ترامپ بیناموس بگو، بچه کونه بابا
+
+مجری اسلحه میکشه مداح فحش رکیک میده، چه دست و پایی میزنن
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389557
 
@@ -231,41 +279,6 @@ R26
 🔴 دیشب صداوسیما اسلحه داده بود دست مجریاش تا برای دشمن رجز بخونن و تهدید کنن!
 
 + بوی سقوط و ضعف مساویس با دست‌وپای بیشتر
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389538
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍 🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
-</div>
-
-## Dirty_Kids — post 389537
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389537.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍
-
-🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
-
-رایگان بهترین شرط هارو براتون میذاره
-حتی هزار تومن هم دریافت نمیکنه
-روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
-A25
-اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
-✅https://t.me/+4_ADqwB9e-QwYjlk
-✅https://t.me/+4_ADqwB9e-QwYjlk
-</div>
-
-## Dirty_Kids — post 389536
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389536.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#بخوابیم
 
 
 @Dirty_Kids 👻

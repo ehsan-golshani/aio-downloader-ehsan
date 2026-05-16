@@ -1,8 +1,44 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 18:01
+📅 آخرین بروزرسانی: 1405/02/26 19:09
 
 ---
+
+## FoxNewsTwitter — post 341686
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341686.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341686.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+.@seanhannity: "What is your read on President Xi?"
+
+SECRETARY RUBIO: "China has a plan...they believe they will be the world's most powerful country."
+
+"We're not trying to constrain China, but their rise cannot come at our expense."
+</div>
+
+## FoxNewsTwitter — post 341685
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341685.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341685.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+SENATOR MURRAY: "Do you seriously believe there's abortion in the water, like some of the far-right activists are suggesting?"
+
+EPA ADMIN ZELDIN: "You just said abortion in the water?"
+
+MURRAY: "That's what some far-right activists are saying. That they have an audience, in the EPA, on that absurd issue."
+
+ZELDIN: "I have not had a conversation with anyone at the agency as far as abortions in water."
+
+"I don't even know what you're talking about."
+</div>
 
 ## FoxNewsTwitter — post 341684
 
@@ -286,31 +322,5 @@ BREAKING: Vice President JD Vance announces the federal government is deferring 
 "We're announcing that the federal government is deferring $1.3 billion in Medicaid reimbursements from the state of California.”
 
 “And the simple reason is because the state of California has not taken fraud very seriously."
-</div>
-
-## FoxNewsTwitter — post 341663
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341663.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: Vance delivers remarks on Trump admin's fraud crackdown https://twitter.com/i/broadcasts/1wGWjaVqmRpKQ
-</div>
-
-## FoxNewsTwitter — post 341662
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341662.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341662.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: Acting ICE Director Todd Lyons honors fallen law enforcement officers and agents:
-
-"Police week is sacred, not because of ceremony, but because behind every name we honor was a human being, a son, a daughter, a husband, a wife, a mother, a father, a partner, and a friend. Someone who kissed their family goodbye one last time without knowing it would be the last time."
-
-"These are generations of law enforcement professionals who stood watch over this nation, accepted the risks most Americans will never fully understand."
 </div>
 

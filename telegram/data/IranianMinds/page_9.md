@@ -1,8 +1,20 @@
 # آرشیو کانال IranianMinds - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 18:14
+📅 آخرین بروزرسانی: 1405/02/26 19:21
 
 ---
+
+## IranianMinds — post 20077
+
+<div align="center"><img src="telegram/content/IranianMinds_20077.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سنتکام با انتشار تصویری از گشت‌زنی جنگنده پنهان‌کار F-35A امریکا بر فراز آب‌های نزدیک تنگه هرمز خبر داد.
+
+به گفته سنتکام، این جنگنده توان حمل تا ۱۸ هزار پوند مهمات را در سرعت مافوق صوت دارد.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20075
 

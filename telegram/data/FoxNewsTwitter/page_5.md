@@ -1,8 +1,28 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 18:01
+📅 آخرین بروزرسانی: 1405/02/26 19:09
 
 ---
+
+## FoxNewsTwitter — post 341732
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341732.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: Linda McMahon faces House lawmakers on Trump's education agenda https://twitter.com/i/broadcasts/1AxRnawQVkgxl
+</div>
+
+## FoxNewsTwitter — post 341731
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341731.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: House Judiciary subcommittee holds hearing on Fairfax County's sanctuary policies https://twitter.com/i/broadcasts/1dGYljYZaLZKX
+</div>
 
 ## FoxNewsTwitter — post 341730
 
@@ -244,31 +264,5 @@ NOW: President Xi welcomes President Trump to at the Chinese state banquet in Be
 Fox News (Twitter/X)
 
 NOW: President Trump and President Xi arrive at the welcome state banquet in China, taking their seats as the event gets underway.
-</div>
-
-## FoxNewsTwitter — post 341706
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341706.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341706.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-JUST IN: @seanhannity says President Trump’s meeting with Xi could lead to Chinese cooperation on Iran, oil, and soybean purchases benefiting American farmers.
-
-Telling @ainsleyearhardt his takeaways from the interview, Hannity says China appears ready to help with “whatever Trump needs” regarding Iran.
-
-He also said Xi was surprised when Trump invited him to meet with American CEOs, a move that made a strong impression on the Chinese leader.
-</div>
-
-## FoxNewsTwitter — post 341705
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341705.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: President Trump participates in state banquet with Xi https://twitter.com/i/broadcasts/1OGwblEEdlRKB
 </div>
 

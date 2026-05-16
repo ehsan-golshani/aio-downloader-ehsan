@@ -1,8 +1,25 @@
 # آرشیو کانال Shin_Persian - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 18:07
+📅 آخرین بروزرسانی: 1405/02/26 19:15
 
 ---
+
+## Shin_Persian — post 5987
+
+<div align="center"><img src="telegram/content/Shin_Persian_5987.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+NetBlocks ✓ @netblocks
+Wed, 13 May 2026 07:50:00 UTC
+
+💸 #Iran's internet blackout is now past hour 1776, entering its 75th day. The digital censorship measure has led to profiteering and a decline in digital security as government-backed "pro" internet schemes and selective whitelisting result in surveillance, corruption and scams.
+
+فارسی
+
+💸 قطعی اینترنت #ایران اکنون از ساعت ۱۷۷۶ فراتر رفته و وارد هفتاد و پنجمین روز خود شده است. این اقدام در راستای سانسور دیجیتال منجر به سودجویی و کاهش امنیت دیجیتال شده است، چرا که طرح‌های اینترنت «طبقاتی» تحت حمایت دولت و لیست‌های سفید گزینشی، منجر به نظارت، فساد و کلاهبرداری شده است.
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 5986
 

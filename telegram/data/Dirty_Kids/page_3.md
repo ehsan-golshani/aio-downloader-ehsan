@@ -1,8 +1,48 @@
 # آرشیو کانال Dirty_Kids - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 18:16
+📅 آخرین بروزرسانی: 1405/02/26 19:24
 
 ---
+
+## Dirty_Kids — post 389514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنیاد بین‌المللی رسانه‌های زنان (IWMF)، جایزه «شجاعت در خبرنگاری» رو داده به یک خبرنگار که اینترنت سفید داره.
+قشنگ داریم یه جوک رو زندگی می‌کنیم
+
+خواهران محمدی، خبرنگاران حوزه محور مقاومت، غزه و حومه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389513
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389513.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389513.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سهمیه بندی حوری برای شهدا ! 🤣🤣🤣
+
+ارزش دانلود ۱۰/۱۰
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389512
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389512.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سنتکام رسماً تأیید کرد که حمله به مدرسه میناب توسط آمریکا صورت گرفته.
+
+❌ این خبر که تو فضای مجازی داره دست به دست میشه، فیکه؛ سنتکام تأیید نکرده و ترامپ هم امروز گفت که هنوز داریم بررسی می‌کنیم.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389511
 
@@ -253,47 +293,5 @@ https://t.me/+bcynkEgSW2dlYTc0
 
 🔔کانال دربی بت :
 🪙https://t.me/+bcynkEgSW2dlYTc0
-</div>
-
-## Dirty_Kids — post 389489
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در مورد پروپوزال ایران:
-ترامپ: جمله اولش رو که خوندم انداختمش دور!
-خبرنگار: جمله اول چی بود؟
-ترامپ: یه‌ چیز غیرقال قبول! ما نمیخوایم ایران غنی سازی کنه!!
-خبرنگار: یعنی ۲۰ سال توقف غنی سازی کافی نیس؟
-ترامپ: ۲۰ سال کافیه ولی باید واقعی باشه و تضمین بدن!
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389488
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389488.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجتبی خامنه‌ای به مناسبت روز بزرگداشت فردوسی، این پیام رو منتشر کرد:
-
-همین که یک تازی راهزن بیابانگرد رافضی به ارزش‌های زبان و ادبیات فارسی اعتراف می‌کند می‌تواند جالب باشد.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389487
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389487.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاشیدم تو تار به تار سیبیلاتون.
-
-
-@Dirty_Kids 👻
 </div>
 

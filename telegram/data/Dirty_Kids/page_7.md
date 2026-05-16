@@ -1,8 +1,51 @@
 # آرشیو کانال Dirty_Kids - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 18:16
+📅 آخرین بروزرسانی: 1405/02/26 19:24
 
 ---
+
+## Dirty_Kids — post 389421
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پلیس شریف دانمارک vs طرفداران تروریسم جهانی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389420
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389420.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مانوک خدابخشیان: "فعالیتی که برای براندازی پهلوی سوم وجود داره، برای براندازی رژیم وجود نداره. همه تلاش می‌کنند که این شاهزاده پهلوی به ایران برنگرده‌."
+روحت شاد عمومانوک
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389416
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389416.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389416.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#تکمیلی
+یه پسره حدود 2 میلیون دلار هزینه کرده تا آلیس رزنبلوم | Alice Rosenblum دختر 19 ساله آمریکایی که مدل اونلی‌فنزه رو از نزدیک ببینه؛
+
+پسره تا رسید بهش گفت چاق‌تر از عکساتی و من روزی 3 بار باهات خودارضایی می‌کنم...
+
+تهشم فقط به دختره دست داد که آلیس چندشش شد و گفت اگه میشه بندازینش بیرون چون داره من رو می‌ترسونه!
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389415
 
@@ -211,42 +254,6 @@ A23
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صلواتی خونخوار حکم اعدام ‎#محمد_عباسی رو داد و جمهوری اسلامی امروز مخفیانه طناب دار رو دور گردنش انداخت.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389395
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389395.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی قمصری در کاخ الیزه در واکنش به رابطه «گلشیفته و مکرون»
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389394
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389394.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شما غلط کردی با صاحابت.
-از طرف مردم گه نخور.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خمینی وقتی با فشار دولت صدام، مجبور به تَرک عراق شد، به سمت کویت رفت.
-کویت او را راه نداد و آفتابه بدست در مرز عراق و کویت گرفتار شد.
-چرا فرانسه رو انتخاب کرد؟
-چون شهروندان ایرانی می‌توانستند بدون نیاز به ویزا تا "سه ماه" در فرانسه اقامت کنند.
-
 
 
 @Dirty_Kids 👻

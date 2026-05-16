@@ -1,8 +1,28 @@
 # آرشیو کانال Shin_Persian - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 18:07
+📅 آخرین بروزرسانی: 1405/02/26 19:15
 
 ---
+
+## Shin_Persian — post 6032
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📦 mhrv-rs v1.9.28 released
+
+• Pipeline Full-mode polls for a faster tunnel (PR #1115)
+• Improve WebRTC fallback by blocking STUN/TURN UDP (PR #1115)
+• Add pipeline diagnostics and benchmark tooling (PR #1115)
+
+Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
+
+👉 v1.9.28 — all files with SHA-256
+
+Channel:
+https://t.me/mhrv_rs
+or: https://t.me/+R1OyoHX2boA1ZDgx
+
+#v1928
+</div>
 
 ## Shin_Persian — post 6031
 
@@ -338,13 +358,5 @@ https://t.me/mhrv_rs
 or: https://t.me/+R1OyoHX2boA1ZDgx
 
 #v1926
-</div>
-
-## Shin_Persian — post 6010
-
-<div align="center"><img src="telegram/content/Shin_Persian_6010.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DefenceGeek 🇬🇧 ✓ @DefenceGeek Fri, 15 May 2026 09:32:18 UTC Tanker In-Flight Emergency #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- One of the KC-46A "Pegasus" tanker from Tel Aviv Ben Gurion (LLBG) airport is declaring an in-flight emergency…
 </div>
 

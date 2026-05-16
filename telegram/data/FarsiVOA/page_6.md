@@ -1,8 +1,69 @@
 # آرشیو کانال FarsiVOA - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 18:11
+📅 آخرین بروزرسانی: 1405/02/26 19:19
 
 ---
+
+## FarsiVOA — post 217801
+
+<div align="center"><video src="telegram/content/FarsiVOA_217801.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217801.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گزارش فرهاد فلاحی، خبرنگار بخش فارسی صدای آمریکا، از تدابیر امنیتی در چین و محدودیت‌های رسانه‌ای
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217800
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گفت‌و‌گو با شاهین نژاد درباره ابعاد سیاسی و اقتصادی سفر پرزیدنت ترامپ به چین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217799
+
+<div align="center"><video src="telegram/content/FarsiVOA_217799.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217799.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️پیاده‌روی دونالد ترامپ و شی جین‌پینگ
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217798
+
+<div align="center"><video src="telegram/content/FarsiVOA_217798.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217798.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️دونالد ترامپ: آمریکا و چین خواهان بازشدن تنگه هرمز هستند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️رهبران کدام شرکت‌های بزرگ آمریکایی دونالد ترامپ را در سفر به چین همراهی کردند؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گفت‌وگو با علی معموری و درویش رنجبر درباره مواضع چین و آمریکا در قبال شرایط تنگه هرمز
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گفت‌وگو با علی معموری و درویش رنجبر درباره موضع چین در قبال برنامه تسلیحاتی هسته‌ای جمهوری اسلامی
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217794
 
@@ -141,82 +202,6 @@ https://ir.voanews.com/a/8150103.html
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️شک مقام‌های جمهوری اسلامی به یکدیگر شکاف در حکومت را عمیق‌تر کرد؛ جنگ تهدیدها و تهمت‌ها
 
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️نگرانی مسکو از گسترش تروریسم در افغانستان و پیامدهای آن برای ایران و دیگر کشورها
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺دونالد ترامپ: نابودی نظامی جمهوری اسلامی ادامه خواهد یافت
-
-◾️دونالد ترامپ، رئیس جمهوری آمریکا در پستی که در شکبه اجتماعی تروت‌سوشال منتشر کرد گفت نابودی نظامی جمهوری اسلامی ایران «ادامه» خواهد یافت.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8150091.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217776
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺وزارت امور خارجه آمریکا: ماموریت امحا اورانیوم غنی‌شده ونزوئلا به‌طور کامل اجرا شد
-
-◾️وزارت امور خارجه آمریکا روز پنجشنبه ۲۴ اردیبهشت در بیانیه‌ای اعلام کرد، اورانیوم‌های غنی شده ونزوئلا با درجه خلوص بالا که اوایل ماه جاری میلادی از ونزوئلا به آمریکا منتقل شده بود، در تاسیسات «ساوانا ریور سایت» متعلق به وزارت انرژی آمریکا در کارولینای جنوبی، امحا شد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8150089.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217775
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺مارکو روبیو: واشنگتن از پکن برای حل بحران جمهوری اسلامی درخواست کمک نکرده است
-
-◾️مارکو روبیو، وزیر خارجه ایالات متحده، روز پنجشنبه ۲۴ اردیبهشت گفت دونالد ترامپ، رئیس جمهوری آمریکا، و شی جین‌پینگ، رئیس جمهوری چین، در دیدار خود در پکن درباره عملیات نظامی علیه جمهوری اسلامی، تنگه هرمز، و مسائل امنیتی خاورمیانه گفت‌وگو کرده‌اند، و هر دو طرف بر مخالفت با «نظامی‌سازی» تنگه هرمز تأکید کرده‌اند.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/marco-rubio-nbc-interview-china-iran-hormuz-strait/8150078.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺پاداش ۲۰۰هزار دلاری اف‌بی‌آی برای اطلاعات منجر به دستگیری مامور سابق آمریکایی؛ مونیکا ویت به جاسوسی برای رژیم ایران متهم است
-
-◾️پلیس فدرال آمریکا، اف‌بی‌آی اعلام کرد که برای دریافت اطلاعاتی که منجر به دستگیری و محاکمه مونیکا ویت شود، ۲۰۰ هزار دلار پاداش گذاشته است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8150083.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217773
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺حمله «حزب‌الله» به اسرائيل هم‌‌زمان با آغاز سومین دور مذاکرات صلح با لبنان در واشنگتن
-
-◾️ارتش اسرائيل روز پنج‌شنبه گفت که حزب‌الله به نقض آتش‌بس ادامه می‌دهد. ارتش اسرائيل در بیانیه‌ای در این روز منتشر کرد گفت که هشدارهایی در چندین منطقه در شمال اسرائيل فعال شد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8150080.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217772
-
-<div align="center"><img src="telegram/content/FarsiVOA_217772.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️ستاد فرماندهی مرکزی آمریکا، سنتکام، عصر پنج‌شنبه با انتشار تصویری از تمرین‌های نظامی نیروهای آمریکایی گفت این نیروها در راستای اجرای محاصره دریایی جمهوری اسلامی تاکنون مسیر ۷۲ کشتی تجاری را تغییر داد‌ه‌اند‌ و ۴ کشتی را نیز از کار انداختند.
 @FarsiVOA
 </div>
 

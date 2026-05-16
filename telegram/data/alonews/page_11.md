@@ -1,8 +1,218 @@
 # آرشیو کانال alonews - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/02/26 18:19
+📅 آخرین بروزرسانی: 1405/02/26 19:26
 
 ---
+
+## alonews — post 120186
+
+<div align="center"><video src="telegram/content/alonews_120186.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120186.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار: دیروز از دریاسالار کوپر درباره حمله به مدرسه دخترانه در اولین روز جنگ سوال شد.
+
+🔴ترامپ: شما درباره مورد اصلی صحبت می‌کنید — که در حال بررسی است.
+
+🔴خبرنگار: آیا می‌توانید تایید کنید که این موشک آمریکایی بود؟
+
+🔴ترامپ: شما با چه کسی هستید؟
+
+🔴خبرنگار: بی‌بی‌سی.
+
+🔴ترامپ: بی‌بی‌سی جعلی.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عراقچی: اگه به جنگ برگردن این تصمیم خودشونه، ولی نتیجه فرقی نمیکنه و بازم شکست میخورن
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ رسماً اعلام کرد که یه دور دیگر از عملیات نظامی آمریکا در ایران در راه است:
+ما از نظر نظامی در ایران تقریباً کار را تمام کردیم. حدود ۷۵٪ کار را. (البته) ما همه چیز را تمام نکردیم. برمی‌گردیم و آن را تکمیل می‌کنیم. حتی شاید بیشتر!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مرتس و ترامپ درباره ایران، هرمز و اوکراین رایزنی کردند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ درباره استعفای استارمر: من چنین چیزی نمیگویم
+
+🔴خبرنگاری از دونالد ترامپ پرسید آیا کی‌یر استارمر، نخست وزیر بریتانیا، باید استعفا دهد؟
+
+🔴ترامپ پاسخ داد: «من این را نمیگویم. در واقع فکر میکنم او مرد خوبی است.»
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120181
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار : خب آمریکا که شانسی نداشت. این همه بمبارون رو چرا تکرار می‌کنید؟ ۳۸ روز زدید، آخرشم تغییر سیاسی تو ایران اتفاق نیفتاد
+
+🔴ترامپ : نه، اتفاقاً ما یه پیروزی کامل نظامی داشتیم
+
+🔴 مشکل اینه که سیاسی‌بازایی مثل تو حقیقتو نمی‌نویسن
+
+🔴 ما کل نیروی دریایی‌شونو زدیم، نیروی هواییشونو نابود کردیم، پدافندشونو خوابوندیم، راداراشونو ترکوندیم
+
+🔴 همه فرمانده‌های رده اولشونو زدیم، بعد رده دوم و حتی کلی از رده سومی‌ها رو هم زدیم. الان کاملاً گیج و به‌هم‌ریخته‌ان
+
+🔴 این یه پیروزی کامل بود، جز توی رسانه‌هایی مثل نیویورک تایمز و CNN که حقیقتو نمی‌گن
+
+🔴حتی به نظرم چیزی که می‌نویسید یه جور خیانته
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120180
+
+<div align="center"><video src="telegram/content/alonews_120180.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120180.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار : در مورد ایران، دقیقاً قدم بعدی چیه؟ دوباره می‌خواید با تهدید بمبارون فشار بیارید؟ چقدر واقعیه؟
+
+🔴 ترامپ : نمی‌خوام بگم فلان ساعت و فلان روز بمبارون دوباره شروع میشه
+
+🔴 فقط اینو با اطمینان خیلی زیاد میگم
+
+🔴 ایران هیچ‌وقت به اون چیزی که می‌خواست نمی‌رسه و قرار هم نبود برسه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عراقچی: موضوع مواد غنی‌شده ما مسئله‌ای بسیار پیچیده است و اکنون با آمریکایی‌ها به این نتیجه رسیده‌ایم که چون در این مورد خاص تقریباً به بن‌بست رسیده‌ایم، بهتر است بررسی آن را به مراحل بعدی مذاکرات موکول کنیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ به خبرنگار نیویورک تایمز:
+پوشش نیویورک تایمز برای جنگ ایران نشان دهنده خیانت بزرگ است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120171
+
+<div align="center"><video src="telegram/content/alonews_120171.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120171.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👸سفر رسمی علیاحضرت شهبانو فرح پهلوی، به چین سال ۱۳۵۱ انجام شده است. 
+🤔آن زمان، چین فقیر بود و ایران ثروتمند. 
+✅@AloNews
+</div>
+
+## alonews — post 120170
+
+<div align="center"><img src="telegram/content/alonews_120170.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ارتش اسرائیل دستور تخلیه به ساکنان: عین بعال، الخریب، الزراریه، عرب سلیم و عرب الجل (صیدا) در جنوب لبنان صادر کرده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: اگر 9 ماه پیش از بمب‌ افکن‌های B-2 استفاده نمی‌کردم، ایران اکنون می‌توانست به سلاح هسته‌ای دست یابد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: به رئیس جمهور چین گفتم در مورد پرونده تایوان صحبت نمی کنم
+
+🔴چینی ها عملیات جاسوسی انجام می دهند و ما نیز عملیات جاسوسی انجام می دهیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: میتوانیم نیروگاه‌های ایران را تنها در دو روز از بین ببریم
+
+🔴اگر ایران اورانیوم های غنی شده خودش رو تحویل نده وارد ایران میشیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: ما ارتش ایران را نابود کرده‌ایم و شاید باید یک پاکسازی سبک انجام دهیم.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: وقتی به پیشنهاد ایران نگاه کردم، جمله اول را دوست نداشتم و قابل قبول نبود، بنابراین پیشنهاد را رد کردم
+
+🔴تحقیقات درباره هدف قرار دادن مدرسه در ایران در حال انجام است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120164
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: من به جایی رفتم که شی زندگی می کند، چیزی که به ندرت اتفاق می افتد.
+
+🔴خبرنگار: اونجا بودی؟
+
+🔴ترامپ: آره قشنگ بود.منظورم این است که مردم هرگز آن را ندیده اند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120163
+
+<div align="center"><video src="telegram/content/alonews_120163.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120163.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: رابطه بسیار خوبی با کیم جونگ اون دارم
+
+🔴دونالد ترامپ گفت با کیم جونگ اون، رهبر کره شمالی، «رابطه بسیار خوبی» دارد و او تا امروز نسبت به آمریکا محترمانه رفتار کرده است.
+
+🔴ترامپ اضافه کرد که میخواهد این احترام ادامه داشته باشد. این اظهارات در حالی مطرح میشود که پرونده کره شمالی دوباره به یکی از آزمون‌های مهم سیاست خارجی واشنگتن تبدیل شده، جایی که ترامپ مثل همیشه روی رابطه شخصی با رهبران سختگیر حساب باز میکند.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120162
 
@@ -16,220 +226,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈ترامپ : «مواد هسته‌ای» ایران، ممکنه به چین یا آمریکا تحویل داده شه!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: «من دیگر خیلی بیشتر از این صبر نخواهم کرد. آنها باید توافق را امضا کنند.»
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120159
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عراقچی: پس از اینکه ترامپ آخرین پیشنهاد ما را رد کرد، پیام‌هایی از آمریکا دریافت کردیم که تمایلش به ادامه گفت‌وگو است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120158
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: پل‌ها و سایت‌های برق ایران که می‌توانیم هدف قرار دهیم
-
-🔴ترامپ می‌گوید ایران آتش‌بس را به عنوان لطفی به دیگر کشورها انجام داد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: هیچ تعهدی در مورد تایوان ندادم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: پل‌ها و سایت‌های برق ایران که می‌توانیم هدف قرار دهیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ درباره ایران: من با تعلیق برنامه هسته‌ای ایران به مدت ۲۰ سال مشکلی ندارم اما باید یک تعهد «واقعی» باشد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120154
-
-<div align="center"><video src="telegram/content/alonews_120154.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120154.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️یکی از صدها موشکی که برگشتن رو سر مردم و جمهوری اسلامی طبق روال همیشه با مظلوم نمایی انداختن گردن امریکا و اسرائیل
-
-
-🤔مدرسه میناب جای تحقیق و بررسی زیادی داره.
-
-
-✅@AloNews
-</div>
-
-## alonews — post 120121
-
-## alonews — post 120120
-
-## alonews — post 120119
-
-<div align="center"><video src="telegram/content/alonews_120119.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120119.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دستگیری ۲۲۳ نفر از اتباع بیگانه غیرمجاز در زاهدان
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120118
-
-<div align="center"><video src="telegram/content/alonews_120118.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120118.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 فایننشال‌تایمز: اگر تا ماه آینده تنگهٔ هرمز باز نشود، به‌دلیل تخلیهٔ ذخایر استراتژیک شاهد موج گسترده‌تری از کمبودهای جهانی و افزایش قیمت‌ها در حوزهٔ انرژی خواهیم بود
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120117
-
-<div align="center"><video src="telegram/content/alonews_120117.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120117.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار الجزیره: تهران به‌طور رسمی پاسخ واشنگتن به پیشنهاد خود را دریافت کرده است و ایالات متحده تمامی شروط ایران را رد کرده است
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120116
-
-<div align="center"><video src="telegram/content/alonews_120116.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120116.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈امارات ظرفیت صادرات نفت بدون عبور از تنگه هرمز را دو برابر می‌کند
-
-
-
-🔴امارات متحده عربی اعلام کرد تا سال ۲۰۲۷ ظرفیت صادرات نفت خام خود بدون نیاز به عبور از تنگه هرمز را دو برابر خواهد کرد.
-
-
-🔴بر اساس گزارش‌ها: شرکت ملی نفت ابوظبی در حال ساخت خط لوله جدیدی به بندر فجیره در دریای عمان است
-
-
-🔴هدف این پروژه کاهش وابستگی به تنگه هرمز عنوان شده است
-
-
-🔴بسته‌شدن مسیر هرمز در جریان جنگ اخیر علیه ایران، بازارهای جهانی را دچار بحران کرده است.
-
-
-🔴امارات هم‌اکنون نیز یک خط لوله با ظرفیت روزانه ۱.۵ میلیون بشکه از میادین نفتی داخلی به بندر فجیره در اختیار دارد.
-
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120115
-
-<div align="center"><video src="telegram/content/alonews_120115.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120115.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عراقچی : مشکل اصلی اینه که آمریکا هر روز یه حرف می‌زنه و پیام‌های ضدونقیض می‌فرسته
-
-
-🔴در مورد ایران هیچ راه‌حل نظامی‌ای جواب نمی‌ده
-
-
-🔴 این همه مدت هی تهدید کردن، ولی نه نتیجه‌ای گرفتن نه از جنگی که راه انداختن چیزی گیرشون اومد
-
-
-🔴هرچی بیشتر تهدید کنن، بیشتر شکست می‌خورن.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120114
-
-<div align="center"><video src="telegram/content/alonews_120114.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120114.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈هواپیماهای باری نظامی آذربایجان از طریق حریم هوایی ترکیه به سمت تل آویو در حرکت هستند.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120113
-
-<div align="center"><video src="telegram/content/alonews_120113.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120113.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جنوب لبنان، ساعاتی قبل
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120112
-
-<div align="center"><video src="telegram/content/alonews_120112.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120112.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈صدای چند انفجار در اربیل 
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120111
-
-<div align="center"><video src="telegram/content/alonews_120111.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120111.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سخنگوی وزارت امور خارجه چین: درگیری بین ایران و ایالات متحده از همان ابتدا هرگز نباید رخ می‌داد و نیازی به ادامه آن نیست
-
-
-🔴یافتن راه‌حل در اسرع وقت به نفع ایالات متحده، ایران، کشورهای منطقه و جهان است
-
 
 ✅ @AloNews خبر جنگ
 </div>

@@ -1,8 +1,36 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 18:01
+📅 آخرین بروزرسانی: 1405/02/26 19:09
 
 ---
+
+## FoxNewsTwitter — post 341817
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341817.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341817.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: @VP lays out in blunt terms who the victims are when fraudsters target benefits Americans rely on most on @SatAmericaFNC.
+
+“There really are two costs and two victims. One is taxpayers getting fleeced... But it’s also there’s these programs that people in my family that I have benefited from that are meant to provide food to low income kids, are meant to ensure that if you can’t afford a doctor, you can still have access to medical care. Those programs are going to be destroyed by the fraudsters.”
+</div>
+
+## FoxNewsTwitter — post 341816
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341816.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341816.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+RT @SatAmericaFNC: 🚨EXCLUSIVE: @KayleighMcEnany asks Vice President JD Vance if Newsom has contacted the administration to help investigate fraud in his state.
+
+@VP @Vance says, "I would love it if Gavin Newsom had a come-to-Jesus moment and said, 'You know what, I’m going to take this fraud issue seriously.'”
+</div>
 
 ## FoxNewsTwitter — post 341815
 
@@ -239,35 +267,5 @@ WATCH LIVE: SpaceX CRS-34 resupply mission launches from Cape Canaveral (Courtes
 Fox News (Twitter/X)
 
 🍷Cheers to savings! Take $25 OFF any order on the Fox News Wine Shop. Use code CHEERS25 at checkout. bit.ly/4ueKKkV
-</div>
-
-## FoxNewsTwitter — post 341797
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341797.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341797.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH: President Trump tells @BretBaier that he is signaling a “neutral” stance on Taiwan security following high-stakes meetings with President Xi, emphasizing his desire to avoid military conflict.
-
-The President confirmed that U.S. policy remains unchanged but expressed hesitation regarding billions of dollars in pending weapons approvals for the island.
-
-"I haven't approved it yet. We're going to see what happens. I may do it. I may not do it... We're not looking to have wars."
-
-Watch the full interview at 6 p.m. ET on @SpecialReport
-</div>
-
-## FoxNewsTwitter — post 341796
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341796.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341796.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-RT @TheStoryFNC: EXCLUSIVE: @DAGToddBlanche responds as feds charge Iraqi national with plotting to ‘terrorize’ Americans and Jews in retaliation for military action against Iran
 </div>
 

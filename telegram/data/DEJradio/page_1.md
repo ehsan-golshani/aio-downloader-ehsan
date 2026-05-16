@@ -1,8 +1,21 @@
 # آرشیو کانال DEJradio - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 15:16
+📅 آخرین بروزرسانی: 1405/02/26 19:11
 
 ---
+
+## DEJradio — post 4667
+
+<div align="center"><video src="telegram/content/DEJradio_4667.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/DEJradio_4667.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🔸 امیررضا نصرآزادانی، فوتبالیست زندانی حامی معترضان و آزادی‌خواهان، در پیامی از درون زندان، از ایرانیان خواسته او را فراموش نکنند.
+
+#امیررضا_نصرآزادانی #فوتبالیست_مردمی
+@DEJradio
+</div>
 
 ## DEJradio — post 4666
 
@@ -340,17 +353,6 @@ https://iranopasmigirim.com/fa/transitional-justice
 از سازمان بهداشت هم که عملا نباید توقع داشت."
 
 #تورم #سازمان_بهداشت
-@DEJradio
-</div>
-
-## DEJradio — post 4643
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🔸 چرا برخی از جریان‌های چپ ایرانی با جریان ملی همراه نیست؟
-
-*پژمان گلچین، پژوهشگر فلسفه
-
-#چپ #جریان_ملی
 @DEJradio
 </div>
 

@@ -1,8 +1,18 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 18:14
+📅 آخرین بروزرسانی: 1405/02/26 19:21
 
 ---
+
+## IranianMinds — post 20225
+
+<div align="center"><img src="telegram/content/IranianMinds_20225.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعضیا انگار‌ تو یه ایران دیگه زندگی‌ میکنن
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20224
 
@@ -257,16 +267,6 @@ https://iranopasmigirim.com/fa/transitional-justice
 🔴دقایقی پیش فرمانده حماس کشته شد
 ‏
 نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امام جمعه کرج:
-
-بر اساس توصیه قرآن باید تا پایان «فتنه»، جنگ رو ادامه بدیم؛ مجازات اسرائیل، محو کردن کامل اونه.
 
 @IranianMinds
 </div>

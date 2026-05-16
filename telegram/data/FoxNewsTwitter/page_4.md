@@ -1,8 +1,40 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 18:01
+📅 آخرین بروزرسانی: 1405/02/26 19:09
 
 ---
+
+## FoxNewsTwitter — post 341752
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341752.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341752.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+A wild police chase in Georgia ends when police perform a PIT maneuver, sending the fleeing U-Haul truck flying onto its side.
+
+Sheriff's deputies were forced to chase the U-Haul in and out of traffic.
+
+Authorities identified the driver as Damian Jones, who was reportedly wanted in other counties and accused of driving recklessly, hitting a truck, and nearly striking several vehicles during the pursuit.
+
+Investigators say drugs were found inside the vehicle, and Jones was taken into custody following the crash.
+
+No major injuries were reported.
+</div>
+
+## FoxNewsTwitter — post 341751
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: Vice President JD Vance squares off with a local reporter over the scale of corruption in Maine, warning that current fraud findings are just the "tip of the iceberg."
+
+REPORTER: "My question is, what else do you got? What else has your task force flagged that we should be concerned about? Because those amounts are a lot, 46 million, 1.7 million, but they don't really compare to California and Minnesota."
+
+VANCE: "Ladies and gentlemen, we've got biased reporters in all states. It's okay. Trust me, I can handle I can handle it... I suspect we are going to find hundreds of millions of more dollars every single month that we look in the state of Maine, because this is not a state that takes it seriously."
+</div>
 
 ## FoxNewsTwitter — post 341750
 
@@ -260,25 +292,5 @@ BREAKING: Alex Murdaugh’s lead attorney Jim Griffin reveals his client's shock
 Griffin says while Murdaugh remains “skeptical” after years of courtroom losses, he's thrilled by the latest revelation.
 
 “I can tell you he is very relieved that he has gotten the label of convicted murderer of his wife and son off of him, and we plan to keep it off of him." | @LawrenceBJones3 @foxandfriends
-</div>
-
-## FoxNewsTwitter — post 341732
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341732.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: Linda McMahon faces House lawmakers on Trump's education agenda https://twitter.com/i/broadcasts/1AxRnawQVkgxl
-</div>
-
-## FoxNewsTwitter — post 341731
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341731.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: House Judiciary subcommittee holds hearing on Fairfax County's sanctuary policies https://twitter.com/i/broadcasts/1dGYljYZaLZKX
 </div>
 

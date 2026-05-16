@@ -1,8 +1,34 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 18:01
+📅 آخرین بروزرسانی: 1405/02/26 19:09
 
 ---
+
+## FoxNewsTwitter — post 341663
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341663.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: Vance delivers remarks on Trump admin's fraud crackdown https://twitter.com/i/broadcasts/1wGWjaVqmRpKQ
+</div>
+
+## FoxNewsTwitter — post 341662
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341662.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341662.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: Acting ICE Director Todd Lyons honors fallen law enforcement officers and agents:
+
+"Police week is sacred, not because of ceremony, but because behind every name we honor was a human being, a son, a daughter, a husband, a wife, a mother, a father, a partner, and a friend. Someone who kissed their family goodbye one last time without knowing it would be the last time."
+
+"These are generations of law enforcement professionals who stood watch over this nation, accepted the risks most Americans will never fully understand."
+</div>
 
 ## FoxNewsTwitter — post 341661
 

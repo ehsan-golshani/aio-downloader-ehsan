@@ -1,8 +1,34 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 18:01
+📅 آخرین بروزرسانی: 1405/02/26 19:09
 
 ---
+
+## FoxNewsTwitter — post 341706
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341706.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341706.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST IN: @seanhannity says President Trump’s meeting with Xi could lead to Chinese cooperation on Iran, oil, and soybean purchases benefiting American farmers.
+
+Telling @ainsleyearhardt his takeaways from the interview, Hannity says China appears ready to help with “whatever Trump needs” regarding Iran.
+
+He also said Xi was surprised when Trump invited him to meet with American CEOs, a move that made a strong impression on the Chinese leader.
+</div>
+
+## FoxNewsTwitter — post 341705
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341705.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump participates in state banquet with Xi https://twitter.com/i/broadcasts/1OGwblEEdlRKB
+</div>
 
 ## FoxNewsTwitter — post 341704
 
@@ -229,41 +255,5 @@ NEW: Secretary Rubio says stepping behind the White House press secretary podium
 Fox News (Twitter/X)
 
 WATCH LIVE: President Trump and President Xi Jinping meet for bilateral talks https://twitter.com/i/broadcasts/1nJOLEBAamlxR
-</div>
-
-## FoxNewsTwitter — post 341686
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341686.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341686.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-.@seanhannity: "What is your read on President Xi?"
-
-SECRETARY RUBIO: "China has a plan...they believe they will be the world's most powerful country."
-
-"We're not trying to constrain China, but their rise cannot come at our expense."
-</div>
-
-## FoxNewsTwitter — post 341685
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341685.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341685.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-SENATOR MURRAY: "Do you seriously believe there's abortion in the water, like some of the far-right activists are suggesting?"
-
-EPA ADMIN ZELDIN: "You just said abortion in the water?"
-
-MURRAY: "That's what some far-right activists are saying. That they have an audience, in the EPA, on that absurd issue."
-
-ZELDIN: "I have not had a conversation with anyone at the agency as far as abortions in water."
-
-"I don't even know what you're talking about."
 </div>
 

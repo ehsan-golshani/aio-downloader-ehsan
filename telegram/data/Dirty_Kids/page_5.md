@@ -1,8 +1,44 @@
 # آرشیو کانال Dirty_Kids - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 18:16
+📅 آخرین بروزرسانی: 1405/02/26 19:24
 
 ---
+
+## Dirty_Kids — post 389469
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389469.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389469.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چون دل‌تون برای سخنگوی اسکل الانبیا تنگ شده میدونم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389468
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389468.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اره داداش، امریکا تایوان رو میده به چین و ایران رو ازش میگیره.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389467
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389467.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آخرین ورژن خفت و خواری بچه‌شیعه:
+رزمایش گذاشتن، هلی‌کوپتر نداشتن، بنرشو چاپ کردن گذاشتن اون وسط.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389466
 
@@ -242,47 +278,6 @@ ShirOKhorshid-2026.05.14.apk
 5- میرید و عادی کانکت میشید و به راحتی وصل میشه.
 
 + من تست نکردم ولی دیدم میگن جوابه
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389445
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎶 موزیک - کتلت تنگسیری
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389444
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389444.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389444.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موزیک ویدیو کتلت تنگسیری
-
-ارزش دانلود بالا، انرژی‌بخش و شاد
-
-حجمش رو تا جایی‌که میشد آوردم پایین
-موزیک خالیشم براتون پایین گذاشتم که حجمش خیلی کمتره
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389443
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389443.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389443.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جو خونه مکرون
-بعد از قضیه گلشیفته
 
 
 @Dirty_Kids 👻

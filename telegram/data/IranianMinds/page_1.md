@@ -1,8 +1,20 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 18:14
+📅 آخرین بروزرسانی: 1405/02/26 19:21
 
 ---
+
+## IranianMinds — post 20250
+
+<div align="center"><img src="telegram/content/IranianMinds_20250.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست ترامپ در تروث‌سوشال:
+
+بازی نداریم! تماشا کن قراره بعدش تو موضع مورد علاقت چه اتفاقی رخ میده!
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20249
 
@@ -225,15 +237,5 @@
 🔴 Winro.io
 r26
 سایت اصلی در روزهای آینده بازگشایی خواهد شد ✅
-</div>
-
-## IranianMinds — post 20225
-
-<div align="center"><img src="telegram/content/IranianMinds_20225.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعضیا انگار‌ تو یه ایران دیگه زندگی‌ میکنن
-
-@IranianMinds
 </div>
 

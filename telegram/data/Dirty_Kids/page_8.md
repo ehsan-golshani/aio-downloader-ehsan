@@ -1,8 +1,44 @@
 # آرشیو کانال Dirty_Kids - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 18:16
+📅 آخرین بروزرسانی: 1405/02/26 19:24
 
 ---
+
+## Dirty_Kids — post 389395
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389395.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی قمصری در کاخ الیزه در واکنش به رابطه «گلشیفته و مکرون»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389394
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389394.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شما غلط کردی با صاحابت.
+از طرف مردم گه نخور.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خمینی وقتی با فشار دولت صدام، مجبور به تَرک عراق شد، به سمت کویت رفت.
+کویت او را راه نداد و آفتابه بدست در مرز عراق و کویت گرفتار شد.
+چرا فرانسه رو انتخاب کرد؟
+چون شهروندان ایرانی می‌توانستند بدون نیاز به ویزا تا "سه ماه" در فرانسه اقامت کنند.
+
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389392
 

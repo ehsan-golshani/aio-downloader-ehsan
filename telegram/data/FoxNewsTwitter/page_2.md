@@ -1,8 +1,38 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 18:01
+📅 آخرین بروزرسانی: 1405/02/26 19:09
 
 ---
+
+## FoxNewsTwitter — post 341797
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341797.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341797.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH: President Trump tells @BretBaier that he is signaling a “neutral” stance on Taiwan security following high-stakes meetings with President Xi, emphasizing his desire to avoid military conflict.
+
+The President confirmed that U.S. policy remains unchanged but expressed hesitation regarding billions of dollars in pending weapons approvals for the island.
+
+"I haven't approved it yet. We're going to see what happens. I may do it. I may not do it... We're not looking to have wars."
+
+Watch the full interview at 6 p.m. ET on @SpecialReport
+</div>
+
+## FoxNewsTwitter — post 341796
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341796.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341796.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+RT @TheStoryFNC: EXCLUSIVE: @DAGToddBlanche responds as feds charge Iraqi national with plotting to ‘terrorize’ Americans and Jews in retaliation for military action against Iran
+</div>
 
 ## FoxNewsTwitter — post 341795
 
@@ -247,33 +277,5 @@ Fox News (Twitter/X)
 DHS Secretary Markwayne Mullin joined ICE officers on the ground in Virginia during an early morning operation that resulted in the arrest of a repeat criminal illegal alien previously removed multiple times from the United States.
 
 Mullin said the suspect’s record included drug possession and DUI charges while slamming Governor Spanberger’s sanctuary policies for making Virginia “a magnet for criminal illegal aliens.”
-</div>
-
-## FoxNewsTwitter — post 341772
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341772.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341772.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH: President Trump reacts to Secretary of State Marco Rubio’s viral Nike tracksuit:
-
-"I thought he looked very good in the outfit. Listen, I don't know if I'd do it, but I thought he looked very good."
-</div>
-
-## FoxNewsTwitter — post 341771
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341771.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341771.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH: Country music star Eric Church describes the creative process behind his extremely personal UNC commencement speech, revealing he turned to his guitar after months of writer's block:
-
-"Finally, one night, in a fit of frustration, I picked up my guitar just to kind of just to get away from the frustrating part of trying to write the speech. And as I was strumming the guitar, it just dawned on me. I hit all six strings and I thought, you know, hey, what what if I could make a speech out of these?" | @foxandfriends @ainsleyearhardt
 </div>
 
