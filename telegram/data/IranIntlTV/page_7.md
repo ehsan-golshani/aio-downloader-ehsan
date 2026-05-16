@@ -1,8 +1,73 @@
 # آرشیو کانال IranIntlTV - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/27 01:40
+📅 آخرین بروزرسانی: 1405/02/27 02:42
 
 ---
+
+## IranIntlTV — post 337415
+
+<div align="center"><img src="telegram/content/IranIntlTV_337415.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۲ اسرائیل گزارش داد انتظار می‌رود دونالد ترامپ، رییس‌جمهوری آمریکا، طی ۲۴ ساعت آینده تیم مشاوران نزدیک خود را تشکیل دهد تا درباره ایران تصمیم نهایی بگیرد. برآوردها در اسرائیل حاکی است تصمیم درباره اقدام نظامی ممکن است بسیار به‌زودی اتخاذ شود.
+
+برنامه تلویزیونی «اولپن شیشی» به نقل از یک مقام ارشد اسرائیلی گزارش داد که «ازسرگیری درگیری نزدیک است» و اسرائیل خود را برای احتمال «چند روز تا چند هفته جنگ» آماده می‌کند.
+
+این مقام گفت آمریکایی‌ها دریافته‌اند که مذاکرات به سمت پیشرفت تعیین‌کننده پیش نمی‌رود و در اورشلیم در انتظار تصمیم ترامپ هستند. بر اساس این ارزیابی، تصویر کلی تحولات طی حدود ۲۴ ساعت آینده روشن‌تر خواهد شد.
+https://iranintl.com/202605166935
+</div>
+
+## IranIntlTV — post 337414
+
+<div align="center"><video src="telegram/content/IranIntlTV_337414.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337414.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سی‌ان‌ان به نقل از مقام‌های آمریکایی گزارش داد «هکرهایی که گمان می‌رود با جمهوری اسلامی مرتبط باشند»، سامانه‌های پایش سوخت در جایگاه‌های بنزین در چند ایالت آمریکا را هدف حملات سایبری قرار دادند.
+
+گفت‌وگو با مهدی صارمی‌فر، روزنامه‌نگار علم و تکنولوژی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337413
+
+<div align="center"><video src="telegram/content/IranIntlTV_337413.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337413.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دولت لبنان در اقدامی کم‌سابقه، با ارسال نامه‌ای به سازمان ملل متحد، جمهوری اسلامی را به «سوءاستفاده از مصونیت دیپلماتیک، دخالت در امور داخلی لبنان و انتقال نیروهای سپاه پاسداران به این کشور تحت پوشش فعالیت دیپلماتیک» متهم کرده است.
+
+جزییات بیشتر در گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 337412
+
+<div align="center"><video src="telegram/content/IranIntlTV_337412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امید معماریان، تحلیل‌گر سیاسی در موسسه دان، گفت همه نشانه‌ها حاکی از آن است که اگر تهران و واشینگتن انعطاف نشان ندهند، درگیری و رویارویی دوباره غیرقابل اجتناب خواهد بود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337411
+
+<div align="center"><video src="telegram/content/IranIntlTV_337411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاهزاده رضا پهلوی با انتشار پیامی ویدیویی به نیروهای حکومتی هشدار داد همکاری آگاهانه با ساختارهای سرکوبگر در جمهوری اسلامی، از جمله مشارکت در ایست‌های بازرسی و همکاری در سرکوب و خرید و فروش اموال مصادره‌شده معترضان، می‌تواند مصداق یاری‌رسانی به «جنایت علیه بشریت» باشد و مسئولیت کیفری ایجاد کند.
+
+گفت‌وگو با نازلی صدقی، حقوقدان و عضو شبکه وکلای «یک‌ کلمه»
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337410
 
@@ -181,71 +246,5 @@ https://iranintl.com/202605154459
 او نوشت همین حالا هم میزان ناتوانی در بازپرداخت وام خودرو به بالاترین سطح خود در بیش از ۳۰ سال گذشته رسیده است، اما تمام این‌ها قابل اجتناب بود.
 
 https://iranintl.com/202605157120
-</div>
-
-## IranIntlTV — post 337395
-
-<div align="center"><video src="telegram/content/IranIntlTV_337395.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337395.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امارات متحده عربی اعلام کرد پروژه خط لوله جدید نفت برای دور زدن تنگه هرمز را با سرعت بیشتری پیش خواهد برد.
-
-به گفته مقام‌های ابوظبی، این خط لوله تا سال ۲۰۲۷ ظرفیت صادرات نفت از بندر فجیره را دو برابر می‌کند.
-
-گفت‌وگو با علی دادپی، اقتصاددان
-@iranintltv
-</div>
-
-## IranIntlTV — post 337394
-
-<div align="center"><video src="telegram/content/IranIntlTV_337394.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337394.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ در مسیر بازگشت از چین گفت با تعلیق ۲۰ ساله غنی‌سازی اورانیوم در ایران موافق است، به شرط آنکه در این مدت تمام برنامه هسته‌ای تهران پاکسازی شود.
-
-گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
-@iranintltv
-</div>
-
-## IranIntlTV — post 337393
-
-<div align="center"><video src="telegram/content/IranIntlTV_337393.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337393.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻مراسم بدرقه تیم ملی با حضور هواداران حکومت در میدان انقلاب تهران برگزار شد و هنگام پخش سرود جمهوری اسلامی، بازیکنان تیم ملی سلام نظامی دادند و تعلق خاطر خود به حکومت را نشان دادند.
-
-🔹توضیحات مزدک میرزایی، ایران اینترنشنال در برنامه هت‌تریک
-
-🔹تماشای نشخه کامل هت‌تریک؛👇
-https://youtu.be/v5Exyf8Nyes
-
-@iranintltvsport
-</div>
-
-## IranIntlTV — post 337392
-
-<div align="center"><img src="telegram/content/IranIntlTV_337392.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مایک والتز، سفیر آمریکا در سازمان ملل ، به فاکس‌نیوز گفت: «باید به خاطر داشته باشیم که هیچ دلیلی وجود ندارد که جمهوری اسلامی این گرد و غبار را که شامل ۶۰ درصد اورانیوم با غنای بالا است، در اختیار داشته باشد.»
-او گفت:« هیچ کشوری در جهان وجود ندارد که تا آن سطح غنی‌سازی کند و سپس سلاح هسته‌ای نداشته باشد زیرا هیچ دلیلی برای انجام این کار وجود ندارد.»
-
-https://iranintl.com/202605157842
-</div>
-
-## IranIntlTV — post 337391
-
-<div align="center"><video src="telegram/content/IranIntlTV_337391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند در پیامی به ایران اینترنشنال از شرایط سخت معیشتی خود می‌گوید. او اشاره می‌کند که همسر و بچه‌اش را به خانه مادرخانمش فرستاده و خودش تنها در خانه «نان خشک» می‌خورد. او از کار اخراج شده است. صدای او با هوش مصنوعی بازخوانی شده است.
 </div>
 

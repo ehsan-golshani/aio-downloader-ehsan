@@ -1,8 +1,31 @@
 # آرشیو کانال WithYashar - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/27 01:34
+📅 آخرین بروزرسانی: 1405/02/27 02:36
 
 ---
+
+## WithYashar — post 11328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+l وزارت خارجه آمریکا اعلام کرد آتش‌بس میان لبنان و اسرائیل به مدت ۴۵ روز دیگر تمدید شد.
+@withyashar
+</div>
+
+## WithYashar — post 11327
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@withyashar
+</div>
+
+## WithYashar — post 11326
+
+<div align="center"><video src="telegram/content/WithYashar_11326.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11326.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@withyashar
+</div>
 
 ## WithYashar — post 11325
 
@@ -110,14 +133,4 @@
 </div>
 
 ## WithYashar — post 11309
-
-## WithYashar — post 11308
-
-## WithYashar — post 11307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امریکا زمانی حمله میکنه که کسی منتظر نیس.
-</div>
-
-## WithYashar — post 11306
 

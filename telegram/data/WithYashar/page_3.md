@@ -1,8 +1,33 @@
 # آرشیو کانال WithYashar - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 01:34
+📅 آخرین بروزرسانی: 1405/02/27 02:36
 
 ---
+
+## WithYashar — post 11390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایسنا: وزیر کشور پاکستان برای دیدار با مسئولان جمهوری اسلامی ساعاتی قبل به تهران سفر کرده.
+@withyashar
+</div>
+
+## WithYashar — post 11389
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۲ اسرائیل مدعی شد: ترامپ بزودی با اعضای کابینه خود جلسه اضطراری برای پایان دادن به اوضاع ایران برگزار میکند.
+@withyashar
+</div>
+
+## WithYashar — post 11388
+
+<div align="center"><video src="telegram/content/WithYashar_11388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظر کلی رسانه ها اینه که ۷۲ ساعت طلایی پیشه رو داریم 😬
+@withyashar
+</div>
 
 ## WithYashar — post 11387
 
@@ -142,24 +167,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 استوری مشاور قالیباف تو اینستاگرام 🤣
-@withyashar
-</div>
-
-## WithYashar — post 11370
-
-## WithYashar — post 11369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar
-</div>
-
-## WithYashar — post 11368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک تایمز از قول مقامات نظامی آمریکا:
-
-اگر جزیره خارگ تصرف شود ، نیروهای زمینی برای حفظ آن لازم خواهند بود.
-
 @withyashar
 </div>
 

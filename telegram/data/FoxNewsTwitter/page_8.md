@@ -1,8 +1,22 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 22:17
+📅 آخرین بروزرسانی: 1405/02/27 02:37
 
 ---
+
+## FoxNewsTwitter — post 341669
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341669.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341669.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: "We believe that at least half of the hospices in the entire area around Los Angeles are fraudulent."
+
+"Today we announce 800 of those hospices have been suspended. 800 hospices that last year charged the federal taxpayer $1.4 billion will no longer be paid." - CMS Administrator Dr. Mehmet Oz
+</div>
 
 ## FoxNewsTwitter — post 341668
 

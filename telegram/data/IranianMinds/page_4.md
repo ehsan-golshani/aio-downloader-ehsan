@@ -1,8 +1,28 @@
 # آرشیو کانال IranianMinds - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/27 00:46
+📅 آخرین بروزرسانی: 1405/02/27 02:49
 
 ---
+
+## IranianMinds — post 20197
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کان‌نیوز:
+
+علاوه بر نخست‌وزیر نتانیاهو، ایال زامیر رئیس کل ارتش اسرائیل هم سفری مخفیانه به امارات داشته است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴موسوی‌فرد، امام جمعه اهواز:
+
+جمهوری اسلامی، آمریکا را در شرایطی قرار داده است که نه راه پس دارد و نه راه پیش.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20195
 
@@ -193,26 +213,6 @@
 🔴 ترامپ:
 
 در مورد تایوان هیچ تعهدی به رئیس جمهور چین ندادم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20177
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-رئیس‌ جمهور چین به من اطمینان داد که با داشتن سلاح هسته‌ای ایران مخالف است
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ به رویترز :
-
-من مانعی ندارم که ایران برنامه هسته‌ای خود را برای ۲۰ سال متوقف کند، اما این باید یک تعهد واقعی باشد!
 
 @IranianMinds
 </div>

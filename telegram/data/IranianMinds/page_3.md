@@ -1,8 +1,36 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 00:46
+📅 آخرین بروزرسانی: 1405/02/27 02:49
 
 ---
+
+## IranianMinds — post 20218
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط کافیه مرغ از خیابون رد کنی و‌پولت چند برابر کنی💵👌
+</div>
+
+## IranianMinds — post 20217
+
+<div align="center"><video src="telegram/content/IranianMinds_20217.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20217.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
+ae25
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
 
 ## IranianMinds — post 20216
 
@@ -234,25 +262,5 @@ https://t.me/+aCbq7yy8QY80NzQ0
 ge25
 🔔کانال دربی بت :
 🪙https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20197
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کان‌نیوز:
-
-علاوه بر نخست‌وزیر نتانیاهو، ایال زامیر رئیس کل ارتش اسرائیل هم سفری مخفیانه به امارات داشته است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴موسوی‌فرد، امام جمعه اهواز:
-
-جمهوری اسلامی، آمریکا را در شرایطی قرار داده است که نه راه پس دارد و نه راه پیش.
-
-@IranianMinds
 </div>
 

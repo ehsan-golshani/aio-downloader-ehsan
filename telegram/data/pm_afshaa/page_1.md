@@ -1,8 +1,18 @@
 # آرشیو کانال pm_afshaa - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 01:36
+📅 آخرین بروزرسانی: 1405/02/27 02:38
 
 ---
+
+## pm_afshaa — post 90876
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴میخائیل اولیانوف، نماینده روسیه :
+کارشناسا میگن آمریکا و اسرائیل ممکنه به‌زودی دوباره به ایران حمله کنن
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90875
 
@@ -202,11 +212,5 @@ conquestback
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90851
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ایسنا: وزیر کشور پاکستان برای دیدار با مسئولان جمهوری اسلامی ساعاتی قبل به تهران سفر کرده. 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 😁 @Pm_Afshaa
 </div>
 

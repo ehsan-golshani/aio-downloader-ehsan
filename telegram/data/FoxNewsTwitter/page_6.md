@@ -1,8 +1,22 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 22:17
+📅 آخرین بروزرسانی: 1405/02/27 02:37
 
 ---
+
+## FoxNewsTwitter — post 341712
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341712.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341712.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST IN: "From the beginning, our citizens have shared a deep sense of mutual respect.
+
+"Founding Father Benjamin Franklin published The Sayings of Confucius and his colonial newspaper and today sculpture. Recognizing that ancient Chinese sage is carved into the face of the United States Supreme Court very proudly." –President Trump
+</div>
 
 ## FoxNewsTwitter — post 341711
 
@@ -257,17 +271,5 @@ NOW: President Trump watches a ceremony with Chinese President Xi Jinping after 
 Fox News (Twitter/X)
 
 BREAKING: President Trump receives a warm welcome at the Great Hall of People in Beijing for his meeting with President Xi Jinping.
-</div>
-
-## FoxNewsTwitter — post 341692
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: Chinese President Xi Jinping shakes hands with Secretary Rubio, Secretary Bessent and more in China as he walks with President Trump.
 </div>
 

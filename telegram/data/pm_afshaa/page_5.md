@@ -1,8 +1,17 @@
 # آرشیو کانال pm_afshaa - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/27 01:36
+📅 آخرین بروزرسانی: 1405/02/27 02:38
 
 ---
+
+## pm_afshaa — post 90790
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تهران‌تایمز: آمریکا پیشنهاد 14 ماده‌ای جمهوری اسلامی برای پایان جنگ رو رد کرده و بار دیگر بر مواضع خود، به‌ویژه درباره پرونده هسته‌ای، تأکید کرده.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90789
 
@@ -179,15 +188,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴کانال 11 اسرائیل: گزینه حملات هدفمند به زیرساخت‌های انرژی در ایران روی میزه.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90770
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وای‌نت: اسرائیل خودش رو برای احتمال ازسرگیری اقدام نظامی آمریکا علیه جمهوری اسلامی آماده می‌کنه و رهبران سیاسی به ارتش دستور دادن آمادگی‌های لازم رو در نظر بگیرن.
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

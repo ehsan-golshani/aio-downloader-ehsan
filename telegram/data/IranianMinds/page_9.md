@@ -1,8 +1,28 @@
 # آرشیو کانال IranianMinds - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/27 00:46
+📅 آخرین بروزرسانی: 1405/02/27 02:49
 
 ---
+
+## IranianMinds — post 20091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 عراقچی :
+
+هرکسی بخواد با ما دشمنی کنه و با اسرائیل تبانی کنه بد پشیمون میشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20090
+
+<div align="center"><img src="telegram/content/IranianMinds_20090.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+املت هم‌ تو‌ این مملکت قسطی شد
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20089
 

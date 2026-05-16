@@ -1,8 +1,28 @@
 # آرشیو کانال WithYashar - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/27 01:34
+📅 آخرین بروزرسانی: 1405/02/27 02:36
 
 ---
+
+## WithYashar — post 11205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ از رئیس‌جمهور چین برای سفر به ایالات متحده در ماه سپتامبر آینده دعوت کرد
+@withyashar
+</div>
+
+## WithYashar — post 11204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آکسیوس: یکی از گزینه‌های ترامپ پس از بازگشت از چین از سر گیری پروژه آزادی در تنگه هرمز است. گزینه دیگر ترامپ حمله به زیرساخت‌های ایرانه.
+@withyashar
+</div>
+
+## WithYashar — post 11203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق برنامه ای که قرار داده بودیم ترامپ و رییس‌جمهور چین برای یک مهمانی شام با یکدیگر دیدار کردند @withyashar
+</div>
 
 ## WithYashar — post 11202
 
@@ -137,27 +157,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تسنیم: کیفرخواست زیباکلام و مدیرمسئول خبرگزاری آنا صادر شد ممنوعیت زیباکلام از انجام هرگونه فعالیت رسانه‌ای به مدت سه ماه صادر شده
 @withyashar
-</div>
-
-## WithYashar — post 11185
-
-<div align="center"><img src="telegram/content/WithYashar_11185.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقایقی پیش زمین‌لرزه‌ای بسیار شدید ۵ ریشتری در عمق ۸ کیلومتری بردسیر کرمان را لرزاند
-@withyashar
-</div>
-
-## WithYashar — post 11184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتانیاهو در دادگاه حظور پیدا کرد و گفت: «فیک نیوزها گفتند من به بیماری لاعلاجی مبتلا هستم - این یک صنعت دروغگویی تمام‌عیار است»
-@withyashar
-</div>
-
-## WithYashar — post 11183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاج : در جریان آهنگی که معین برای تیم ملی در جام جهنی ۲۰۲۶ می خواند هستیم @withyashar
 </div>
 

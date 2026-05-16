@@ -1,8 +1,32 @@
 # آرشیو کانال FarsiVOA - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/27 01:44
+📅 آخرین بروزرسانی: 1405/02/27 02:46
 
 ---
+
+## FarsiVOA — post 217673
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺امارات «گزارش‌ها درباره سفر نخست‌وزیر اسرائیل» را تکذیب کرد
+
+▪️وزارت امور خارجه امارات در بیانیه‌ای «گزارش‌های منتشرشده درباره سفر ادعایی بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به امارات یا پذیرش هرگونه هیئت نظامی اسرائیلی در این کشور را» تکذیب کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8149657.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217672
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺وزارت خارجه آمریکا: واشنگتن آماده «کمک مستقیم» ۱۰۰میلیون دلاری به مردم کوبا است
+
+▪️وزارت خارجه آمریکا روز چهارشنبه در بیانیه‌ای گفت که واشنگتن آماده است ۱۰۰ میلیون دلار به‌طور مستقیم به مردم کوبا کمک کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8149655.html
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217671
 
@@ -171,23 +195,5 @@ https://ir.voanews.com/a/narges-mohammadi-prison-pressure-endurance-/8149626.htm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مهدی عربشاهی در برنامه تفسیر خبر: علی خامنه‌ای با کلمه توسعه مشکل داشت
-</div>
-
-## FarsiVOA — post 217653
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اعدام احسان افراشته، زندانی سیاسی، توسط جمهوری اسلامی؛ گفت‌وگو با حسین احمدی‌نیاز
-</div>
-
-## FarsiVOA — post 217652
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺تشدید فضای امنیتی در بند زنان زندان اوین؛ محرومیت شماری از زندانیان سیاسی از حق تماس و ملاقات
-
-◾️ در‌پی تشدید فضای امنیتی در بند زنان زندان اوین، هشت زندانی سیاسی زن، به بهانه حضور در «برنامه‌های اعتراضی»، از حق تماس و ملاقات با خانواده و وکلای خود محروم شدند.
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/evin-prison-women-prisoners-political-prisoners-iran-deprivation/8149620.html
 </div>
 

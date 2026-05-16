@@ -1,8 +1,29 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 01:34
+📅 آخرین بروزرسانی: 1405/02/27 02:36
 
 ---
+
+## WithYashar — post 11411
+
+<div align="center"><img src="telegram/content/WithYashar_11411.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو سخت ترین شرایط بهمون روحیه دادی، تو جلسه ی بچه های تکنولوژی با شاهزاده به یادت بودیم!❤️
+</div>
+
+## WithYashar — post 11410
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرهاد مجیدی با البطائح به دسته دو امارات سقوط کرد
+@withyashar
+</div>
+
+## WithYashar — post 11409
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این ناو گروه در حال فرار هستن یا چی ؟
+</div>
 
 ## WithYashar — post 11408
 
@@ -132,31 +153,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 روز جهانی پسر بچه … به یاد جاوید نام های کوچکمون مبارزه میکنیم تا نسل جدید این درد ها رو نکشه !
-@withyashar
-</div>
-
-## WithYashar — post 11390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایسنا: وزیر کشور پاکستان برای دیدار با مسئولان جمهوری اسلامی ساعاتی قبل به تهران سفر کرده.
-@withyashar
-</div>
-
-## WithYashar — post 11389
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال ۱۲ اسرائیل مدعی شد: ترامپ بزودی با اعضای کابینه خود جلسه اضطراری برای پایان دادن به اوضاع ایران برگزار میکند.
-@withyashar
-</div>
-
-## WithYashar — post 11388
-
-<div align="center"><video src="telegram/content/WithYashar_11388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظر کلی رسانه ها اینه که ۷۲ ساعت طلایی پیشه رو داریم 😬
 @withyashar
 </div>
 

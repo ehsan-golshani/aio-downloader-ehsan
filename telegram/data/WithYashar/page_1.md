@@ -1,8 +1,38 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 01:34
+📅 آخرین بروزرسانی: 1405/02/27 02:36
 
 ---
+
+## WithYashar — post 11432
+
+<div align="center"><video src="telegram/content/WithYashar_11432.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11432.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجری : خواهش می‌کنم سلام من رو به مجتبی خامنه‌ای برسونید.
+
+حدادعادل: والا منم به دامادم دسترسی ندارم، از همین‌جا بهش سلام می‌رسونم.
+@withyashar
+</div>
+
+## WithYashar — post 11431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران به عبری ی توییت زد ک پیام روشن بود لفاظی نکنید... המסר היה ברור: אל תהיו רטוריים... یعنی کار ایران بوده؟ مث ک کلاهک اتمی اسراییل اونجا نگهداری میشده
+</div>
+
+## WithYashar — post 11430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران به عبری ی توییت زد ک
+
+پیام روشن بود لفاظی نکنید...
+המסר היה ברור: אל תהיו רטוריים...
+یعنی کار ایران بوده؟
+مث ک کلاهک اتمی اسراییل اونجا نگهداری میشده
+</div>
 
 ## WithYashar — post 11429
 
@@ -139,26 +169,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 داداش ناموسا من اونجا بودم داد میزدم به شاهزاده میگفتم حتما با یاشار ملاقات حضوری بکن
-</div>
-
-## WithYashar — post 11411
-
-<div align="center"><img src="telegram/content/WithYashar_11411.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو سخت ترین شرایط بهمون روحیه دادی، تو جلسه ی بچه های تکنولوژی با شاهزاده به یادت بودیم!❤️
-</div>
-
-## WithYashar — post 11410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرهاد مجیدی با البطائح به دسته دو امارات سقوط کرد
-@withyashar
-</div>
-
-## WithYashar — post 11409
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این ناو گروه در حال فرار هستن یا چی ؟
 </div>
 

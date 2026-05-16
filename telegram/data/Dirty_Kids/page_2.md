@@ -1,8 +1,135 @@
 # آرشیو کانال Dirty_Kids - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 01:49
+📅 آخرین بروزرسانی: 1405/02/27 02:51
 
 ---
+
+## Dirty_Kids — post 389570
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✖️ سایت بین المللی bet120x ✖️  👍دارای مجوز رسمی Gambling Judge سوئد👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    3️⃣2️⃣ 🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
+</div>
+
+## Dirty_Kids — post 389569
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389569.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✖️ سایت بین المللی bet120x ✖️
+
+ 👍دارای مجوز رسمی Gambling Judge سوئد👍
+     
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+⚠️فروش شرط
+🔔ویرایش شرط                    3️⃣2️⃣
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+🎁 10%برگشت باخت به صورت روزانه
+🎁 10%برگشت باخت به صورت هفتگی
+🎁10%برگشت باخت به صورت ماهانه
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   👈 آموزش واریز و برداشت دلاری👉
+
+🔪کانال اطلاع رسانی:👇
+✈️https://t.me/+1Wv5nGY_a54xNzlk
+</div>
+
+## Dirty_Kids — post 389568
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389568.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389568.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رونمایی از BMW Alpina,
+دیدنش هم لذت بخشه, روندنش که جای خود دارد:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389567
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389567.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389567.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جیمی لنیستر ❌️
+جواد لنیستر ✅️
+
+رسما سیرک درست کردن! این چه ریخت و قیافه‌ای :))) جومونگ ابن حرمله :))
+#مهدی_نوربخش
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389566
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389566.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389566.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عمو مست کرده اومده تو تجمعات شبانه میرقصه و قر میده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389565
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389565.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389565.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فیلم «تهران کنارت» که بخاطر حجاب دو سال توقیف بود، الان آزاد و اکران شده؛
+
+تو تیزر رسمی فیلم، "سوگند" خواننده‌ی زنِ خارج‌نشین داره می‌خونه که حسابی جنجال به پا کرده...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389564
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389564.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بادبان با همراهی شما 50 هزار نفری شد🎉
+
+🛡فروش سرویس جدید با کاهش قیمت تا گیگی 200 هزار تومان باز شد🛒
+
+🎊کد تخفیف 100 هزار تومانی بادبان فعال بوده و میتونید برای خرید اولتون ازش استفاده کنید
+
+BadBan4k : کد تخفیف
+
+🚀همچنین میتونید با معرفی بادبان از طریق لینک معرفی به دوستان 10 درصد از مبلغ تمام خرید هاشون رو در کیف پولتون داشته باشید
+G26
+وقتی بادبان داری، هیچ بادی مانع نیست… با ما راه بازه حتی وقتی اینترنت ملیه!
+
+⛵️@BadBan_VPN | کانال 
+🤖@BadBan_VPNBot | ربات 
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389562
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389562.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در اقدامی کاملا عادی تو اپلیکیشن ترب، محصولاتی با عنوانِ موش بی دندون (همون دول موشیِ خودمون) در ابعاد و رنگ های مختلف موجود شد.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389560
 
@@ -164,123 +291,5 @@ https://t.me/+bcynkEgSW2dlYTc0
 
 🔔کانال دربی بت :
 🪙https://t.me/+bcynkEgSW2dlYTc0
-</div>
-
-## Dirty_Kids — post 389548
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389548.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#کص_فدا 😂😂😂😂
-فاکتور داره میکنه بره پولشو بگیره
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389547
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏لیست مشاغل باقی مانده در ایران :
-کانفیگ فروش
-عرق فروش
-آدم فروش
-اسنپ
-تریاک فروش
-
-بقیه هم نشستن همو نگاه میکنن …
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389546
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389546.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389546.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 توی انگلیس وقتی یه پیرمرد بالاخره به رویاش رسید و یه خانم زیبا رو بوس کرد، از شدت هیجان و شادی بیهوش شد و کارش به بیمارستان کشید.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389545
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389545.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بادبان با همراهی شما 50 هزار نفری شد🎉
-
-🛡فروش سرویس جدید با کاهش قیمت تا گیگی 200 هزار تومان باز شد🛒
-
-🎊کد تخفیف 100 هزار تومانی بادبان فعال بوده و میتونید برای خرید اولتون ازش استفاده کنید
-
-BadBan4k : کد تخفیف
-
-🚀همچنین میتونید با معرفی بادبان از طریق لینک معرفی به دوستان 10 درصد از مبلغ تمام خرید هاشون رو در کیف پولتون داشته باشید
-R26
-وقتی بادبان داری، هیچ بادی مانع نیست… با ما راه بازه حتی وقتی اینترنت ملیه!
-
-⛵️@BadBan_VPN | کانال 
-🤖@BadBan_VPNBot | ربات 
-📞@BadBan_VPNSupport | پشتیبانی
-</div>
-
-## Dirty_Kids — post 389543
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389543.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پاسداران سپاه اسلام هستند که خیلی شیک با دیدن اولین اسلحه دست طرف مقابل تسلیم شدند:)
-
-
-تجهیزات این نیروهای ویژه سپاه در یک عملیات واقعی هم جالب است
-حتی تجهیزات غواصی هم مخصوص عملیات نیروی ویژه نیست
-گفته شده بود اینها روی لنج بودند ولی با توجه به عکس به نظر روی یک قایق تندرو بودند و حتی پیش از آغاز عملیات خفت شدند
-با این حساب پاشون بوبیان هم نرسیده
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389542
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389542.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کجای دنیا دیدید کلاشینکف ببرند توی استودیو تلوزیون آموزش بدن اونهم با تیر واقعی و شلیک کنند به سقف استودیو،جز طویله صداوسیمای رژیمی که صدای نفسهای سقوط رو میشنوه @Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389541
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389541.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389541.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کجای دنیا دیدید کلاشینکف ببرند توی استودیو تلوزیون آموزش بدن اونهم با تیر واقعی و شلیک کنند به سقف استودیو،جز طویله صداوسیمای رژیمی که صدای نفسهای سقوط رو میشنوه
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389539
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389539.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389539.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دیشب صداوسیما اسلحه داده بود دست مجریاش تا برای دشمن رجز بخونن و تهدید کنن!
-
-+ بوی سقوط و ضعف مساویس با دست‌وپای بیشتر
-
-
-@Dirty_Kids 👻
 </div>
 

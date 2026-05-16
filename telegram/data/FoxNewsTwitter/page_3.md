@@ -1,8 +1,18 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 22:17
+📅 آخرین بروزرسانی: 1405/02/27 02:37
 
 ---
+
+## FoxNewsTwitter — post 341781
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341781.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: U.S. Attorney Jeanine Pirro unveils safety plans for America 250 events https://twitter.com/i/broadcasts/1PKqrEmdrknGb
+</div>
 
 ## FoxNewsTwitter — post 341780
 
@@ -256,17 +266,5 @@ MOMENTS AGO: President Trump meets with President Xi Jinping in China https://tw
 Fox News (Twitter/X)
 
 NOW: President Trump arrives at Zhongnanhai Garden to meet with Chinese President Xi.
-</div>
-
-## FoxNewsTwitter — post 341758
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-President Trump says he came up with a nickname, "Dumocrats," after talking about top Democratic leader Hakeem Jeffries. || @seanhannity
 </div>
 

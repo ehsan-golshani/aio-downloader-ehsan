@@ -1,8 +1,17 @@
 # آرشیو کانال pm_afshaa - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/27 01:36
+📅 آخرین بروزرسانی: 1405/02/27 02:38
 
 ---
+
+## pm_afshaa — post 90704
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴نیویورک تایمز: کشورهای خلیج فارس در جریان جنگ ایران بیش از 100 شیعه رو به اتهام خیانت بازداشت شدن.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90703
 

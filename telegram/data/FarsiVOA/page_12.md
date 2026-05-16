@@ -1,8 +1,26 @@
 # آرشیو کانال FarsiVOA - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/27 01:44
+📅 آخرین بروزرسانی: 1405/02/27 02:46
 
 ---
+
+## FarsiVOA — post 217693
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️راهبرد چین در خلیج فارس؛ انرژی حرف اول را می‌زند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217692
+
+<div align="center"><video src="telegram/content/FarsiVOA_217692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️چه توقعات اقتصادی می‌توان از سفر دونالد ترامپ به چین داشت؟ گفت‌وگو با نادر حبیبی
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217691
 
@@ -160,30 +178,6 @@ https://ir.voanews.com/a/8149664.html
 
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/8149663.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺امارات «گزارش‌ها درباره سفر نخست‌وزیر اسرائیل» را تکذیب کرد
-
-▪️وزارت امور خارجه امارات در بیانیه‌ای «گزارش‌های منتشرشده درباره سفر ادعایی بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به امارات یا پذیرش هرگونه هیئت نظامی اسرائیلی در این کشور را» تکذیب کرد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149657.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217672
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺وزارت خارجه آمریکا: واشنگتن آماده «کمک مستقیم» ۱۰۰میلیون دلاری به مردم کوبا است
-
-▪️وزارت خارجه آمریکا روز چهارشنبه در بیانیه‌ای گفت که واشنگتن آماده است ۱۰۰ میلیون دلار به‌طور مستقیم به مردم کوبا کمک کند.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149655.html
 @FarsiVOA
 </div>
 

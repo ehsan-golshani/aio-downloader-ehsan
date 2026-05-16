@@ -1,8 +1,23 @@
 # آرشیو کانال pm_afshaa - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/27 01:36
+📅 آخرین بروزرسانی: 1405/02/27 02:38
 
 ---
+
+## pm_afshaa — post 90724
+
+<div align="center"><video src="telegram/content/pm_afshaa_90724.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/pm_afshaa_90724.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴آکسیوس: یکی از گزینه‌های ترامپ پس از بازگشت از چین از سر گیری پروژه آزادی در تنگه هرمز است. گزینه دیگر ترامپ حمله به زیرساخت‌های ایرانه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90723
 
@@ -198,14 +213,5 @@
 د اخه حرومزاده ای که نشستی خفه خون گرفتی از این بیناموسا دفاع میکنی بیناموس برگرد ببین چند نفر نون شب تو کشور خودمون ندارن بخورن
 
 د اخه من شاشیدم به اون مملکت داریتون
-</div>
-
-## pm_afshaa — post 90704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نیویورک تایمز: کشورهای خلیج فارس در جریان جنگ ایران بیش از 100 شیعه رو به اتهام خیانت بازداشت شدن.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
 </div>
 

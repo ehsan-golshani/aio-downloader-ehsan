@@ -1,8 +1,28 @@
 # آرشیو کانال FarsiVOA - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/27 01:44
+📅 آخرین بروزرسانی: 1405/02/27 02:46
 
 ---
+
+## FarsiVOA — post 217849
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشی از مایکل لیپین، ‌خبرنگار صدای آمریکا، از پکن درباره سفر تاریخی دونالد ترامپ، رئیس جمهوری آمریکا، به چین.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217848
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺طرح سناتور کاتن: محرومیت بستگان تروریست‌ها از سفر و اقامت در آمریکا قانونی و قطعی می‌شود
+
+◾️تام کاتن، سناتور جمهوری‌خواه، روز جمعه ۲۵ اردیبهشت گفت طرحی را ارائه کرده است که در صورت تصویب در کنگره، همه ویزاهای صادرشده برای اعضای «خانواده تروریست‌ها» لغو و صدور ویزاهای جدید برای آنها ممنوع می‌شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/senator-cotton-tom-visa-immigration-terrorist-congress-iran/8150453.html
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217847
 
@@ -151,17 +171,5 @@ https://ir.voanews.com/a/iran-israel-hezbollah-lebanon-washington/8150375.html
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پیام تیری فرمو، مدیر انسیتو لومیر و دبیر هنری جشنواره فیلم کن، به مردم ایران - اختصاصی صدای آمریکا
-</div>
-
-## FarsiVOA — post 217829
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اصغر فرهادی در نشست خبری فیلم «داستان‌های موازی» در جشنواره کن، کشته شدن غیرنظامیان در جنگ و همچنین کشته شدن معترضان در خیابان‌ها در دی را «بسیار دردناک» و فراموش‌نشدنی توصیف کرد.
-</div>
-
-## FarsiVOA — post 217827
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بررسی اهمیت سفر تاریخی رئیس سازمان سیا به کوبا در گفت‌و‌گو با مهرزاد بروجردی، استاد علوم سیاسی دانشگاه علم و فناوری میزوری
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال FarsiVOA - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/02/27 01:44
+📅 آخرین بروزرسانی: 1405/02/27 02:46
 
 ---
+
+## FarsiVOA — post 217653
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اعدام احسان افراشته، زندانی سیاسی، توسط جمهوری اسلامی؛ گفت‌وگو با حسین احمدی‌نیاز
+</div>
+
+## FarsiVOA — post 217652
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺تشدید فضای امنیتی در بند زنان زندان اوین؛ محرومیت شماری از زندانیان سیاسی از حق تماس و ملاقات
+
+◾️ در‌پی تشدید فضای امنیتی در بند زنان زندان اوین، هشت زندانی سیاسی زن، به بهانه حضور در «برنامه‌های اعتراضی»، از حق تماس و ملاقات با خانواده و وکلای خود محروم شدند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/evin-prison-women-prisoners-political-prisoners-iran-deprivation/8149620.html
+</div>
 
 ## FarsiVOA — post 217651
 

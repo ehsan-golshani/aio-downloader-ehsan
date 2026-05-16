@@ -1,8 +1,102 @@
 # آرشیو کانال Dirty_Kids - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/27 01:49
+📅 آخرین بروزرسانی: 1405/02/27 02:51
 
 ---
+
+## Dirty_Kids — post 389477
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389477.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قضیه السیسی اگه نمیدونی این ویدیو کمکت میکنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389475
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389475.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیفونیا با کانفیگ پولی در حال خوندن پستای اندرویدیا که با وپن شیر 🌞 وصل شدن:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389474
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎙️خبرنگار : امیرعلی چرا اومدی تجمع؟
+🧑امیرعلی : به عشق رهبر
+
+🎙️خبرنگار : امیرعلی، مامان و بابات مجبورت کردن که بیای تجمعات؟
+
+🧑امیرعلی : آره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389473
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389473.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کصمادرتون…
+نسلتون رو ✌🏽 بار گائیدم…
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389472
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389472.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو خیابون حل اشکال ریاضی میزارن بعد رتبه یک کنکور رو اعدام میکنن.
+اینجا، ایران جان..
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏تو آسانسور از دختره پرسیدم کدوم طبقه میری ؟
+گفت : فرقی نمیکنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389470
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389470.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ملانیا واقعا خوشتیپه
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389469
 
@@ -166,120 +260,5 @@ https://bet120x.com/fa/?btag=971470
 
 🔪کانال اطلاع رسانی:👇
 ✈️https://t.me/+1Wv5nGY_a54xNzlk
-</div>
-
-## Dirty_Kids — post 389453
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389453.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گیر چه عقب مونده‌هایی افتادیم
-
-ننگ ۵۰۰ ساله روحانیت رو از تاریخ ایران پاک باید کنیم
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389452
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389452.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389452.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هنوز رد خونت روشه ...
-#پرهام_آقامحمدی
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389451
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389451.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
-
-⚫️با بالاترین کیفیت ممکن⚡️ 
-⚫️100 هزار تومان شارژ هدیه 🎁
-⚫️پایین ترین قیمت گیگی 250🌐 
-⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
-
-بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
-
-بادبان راهتو باز می‌کنه⛵️
-
-G24
-🛡@BadBan_VPN | کانال 
-🤖@BadBan_VPNBot | ربات 
-📞@BadBan_VPNSupport | پشتیبانی
-</div>
-
-## Dirty_Kids — post 389450
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389450.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389450.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت دیشبِ خیابون فرشته تهران:
-دعوا سر دختر
-
-طهران الان قسمت بندی شده
-یه گوشه حی‌در حی‌در میکنن عرزشیا هپی بشن، یه گوشه پروپاگاندا، یجا برای بچه پولدارا و...
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389449
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389449.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏از روزی که ‎#رضاشاه_کبیر سر از خاک بیرون آورد جمهوری اسهالی روی خوش ندید.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389448
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ShirOKhorshid-2026.05.14.apk
-</div>
-
-## Dirty_Kids — post 389447
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مراد؛ ویروس هانتا 😂🤌⁩⁩
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389446
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقایقی قبل این اپلیکیشن بنام "شیر و خورشید" که نسخه تغییر یافته سایفون هستش تو تلگرام درحال وایرال شدنه و میگن خیلی خوب کار میکنه.
-
-مهم: اگر این نسخه رو نصب کنید دیگه دردسر ستاپ کردن MITM و... ندارید!
-این نسخه حدودا یک ساعت پیش توسط برنامه‌نویس شیر و خورشید آپدیت شد و به راحتی می‌تونید طبق این آموزش بهش وصل بشید:
-1- وارد اپلیکیشن شیر و خورشید(آخرین نسخه که امروز منتشر شده) می‌شید
-2- وارد بخش Options میشید از نوار بالا
-3- روی More Options کلیک میکنید
-4- گزینه‌ی Connection Protocol رو قرار میدید روی CDN Fronting
-5- میرید و عادی کانکت میشید و به راحتی وصل میشه.
-
-+ من تست نکردم ولی دیدم میگن جوابه
-
-
-@Dirty_Kids 👻
 </div>
 

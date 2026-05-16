@@ -1,8 +1,24 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 22:17
+📅 آخرین بروزرسانی: 1405/02/27 02:37
 
 ---
+
+## FoxNewsTwitter — post 341803
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341803.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341803.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: President Trump is now back in the U.S.
+
+The president waved and pumped his fist as he stepped off Air Force One at Joint Base Andrews on Friday evening following his multi-day trip to China.
+
+Trump has said that he and Chinese President Xi Jinping largely agreed Iran must not have a nuclear weapon and that the Strait of Hormuz should be reopened.
+</div>
 
 ## FoxNewsTwitter — post 341802
 
@@ -253,15 +269,5 @@ WATCH: The FIFA World Cup is less than a month away, and the FBI says it’s tra
 Fox News got behind-the-scenes access to the FBI’s Redstone facility in Huntsville, where agents demonstrated how they jam and hijack suspicious drones to redirect them away from sensitive sites.
 
 @foymeetsworld reports the latest on the ground in Alabama. | @GillianHTurner @AmericaNewsroom
-</div>
-
-## FoxNewsTwitter — post 341781
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341781.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: U.S. Attorney Jeanine Pirro unveils safety plans for America 250 events https://twitter.com/i/broadcasts/1PKqrEmdrknGb
 </div>
 

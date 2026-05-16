@@ -1,8 +1,26 @@
 # آرشیو کانال WithYashar - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/27 01:34
+📅 آخرین بروزرسانی: 1405/02/27 02:36
 
 ---
+
+## WithYashar — post 11370
+
+## WithYashar — post 11369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@withyashar
+</div>
+
+## WithYashar — post 11368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک تایمز از قول مقامات نظامی آمریکا:
+
+اگر جزیره خارگ تصرف شود ، نیروهای زمینی برای حفظ آن لازم خواهند بود.
+
+@withyashar
+</div>
 
 ## WithYashar — post 11367
 
@@ -136,16 +154,4 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حوس لوبیا پلو کردم 😅 امشب که بیداریم درست کنم
 </div>
-
-## WithYashar — post 11349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در تروث : تینا را آزاد کنید
-@withyashar
-تینا پیترز یک مقام انتخاباتی سابق آمریکاست که به‌خاطر دخالت غیرقانونی در سیستم‌های رأی‌گیری بعد از انتخابات 2020 زندانی شده و حالا ترامپ از او حمایت سیاسی می‌کند
-</div>
-
-## WithYashar — post 11348
-
-## WithYashar — post 11347
 

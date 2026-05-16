@@ -1,8 +1,20 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 22:17
+📅 آخرین بروزرسانی: 1405/02/27 02:37
 
 ---
+
+## FoxNewsTwitter — post 341692
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Chinese President Xi Jinping shakes hands with Secretary Rubio, Secretary Bessent and more in China as he walks with President Trump.
+</div>
 
 ## FoxNewsTwitter — post 341691
 
@@ -284,19 +296,5 @@ BREAKING: Vice President JD Vance shuts down talk of a "joint ticket" with Secre
 "There are a few topics that I want to talk about less than what office I'm going to run for years down the road when I'm having a good time and trying to do good work in the job that the American people already elected me to do.”
 
 “I've answered this question, probably in any number of ways, I love Marco. I think he's a great secretary of state. He's become a very, very dear friend. But I think both of us are very much focused on accomplishing the American people's business right now.”
-</div>
-
-## FoxNewsTwitter — post 341669
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341669.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341669.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: "We believe that at least half of the hospices in the entire area around Los Angeles are fraudulent."
-
-"Today we announce 800 of those hospices have been suspended. 800 hospices that last year charged the federal taxpayer $1.4 billion will no longer be paid." - CMS Administrator Dr. Mehmet Oz
 </div>
 

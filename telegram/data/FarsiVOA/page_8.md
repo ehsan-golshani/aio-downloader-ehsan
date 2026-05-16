@@ -1,8 +1,27 @@
 # آرشیو کانال FarsiVOA - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/27 01:44
+📅 آخرین بروزرسانی: 1405/02/27 02:46
 
 ---
+
+## FarsiVOA — post 217788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺دونالد ترامپ: جمهوری اسلامی یا می‌تواند توافق کند یا حذف شود؛ دقیقا می‌دانیم در چهار هفته گذشته چه کرده‌اند
+
+▪️دونالد ترامپ، رئیس جمهوری آمریکا در مصاحبه‌ای که با فاکس نیوز انجام داد گفت او درباره ایران با چین صحبت کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150331.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گفت‌وگو با حسین رئیسی درباره تداوم توقیف و مصادره اموال ایرانیان مخالف جمهوری اسلامی
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217785
 
@@ -178,29 +197,6 @@ https://ir.voanews.com/a/iran-prison-british-tourists-visit-evin/8150052.html
 
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/stock-index-developments-in-the-us-china-summit/8150046.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217765
-
-<div align="center"><video src="telegram/content/FarsiVOA_217765.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217765.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️نازیلا گلستان در برنامه تفسیر خبر: بازماندگان جمهوری اسلامی باید به سمت و سوی مردم برگردند
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺هشدار دوباره وزارت خارجه آمریکا درباره سفر به کشورهای «پرخطر»؛ ایران هم در فهرست است
-
-◾️وزارت امور خارجه ایالات متحده آمریکا روز پنجشنبه ۲۴ اردیبهشت هشدارهای پیشین خود درباره سفر به کشورهای روسیه، کره‌شمالی، افغانستان، و جمهوری اسلامی ایران را تکرار کرد و این کشورها را برای شهروندان آمریکایی، «پرخطر» دانست.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/high-risk-countries-us-department-of-state-travel-warning/8150070.html
 @FarsiVOA
 </div>
 
