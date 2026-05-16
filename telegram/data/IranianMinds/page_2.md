@@ -1,8 +1,30 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 13:01
+📅 آخرین بروزرسانی: 1405/02/26 14:28
 
 ---
+
+## IranianMinds — post 20210
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه دنبال کانفیگی و میخای اینستا و تلگرام و گیم و حتی ترید رو برات مثل آب خوردن بیاره ربات زیر میتونه بهت کمک کنه👇
+
+@Dayaconfigbot
+@Dayaconfigbot
+@Dayaconfigbot
+
+هر گیگ فقط 225 هزارتومان با تضمین عودت وجه!
+</div>
+
+## IranianMinds — post 20208
+
+<div align="center"><img src="telegram/content/IranianMinds_20208.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شباهتو
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20207
 
@@ -229,26 +251,6 @@ ge25
 🔴 ترامپ:
 
 تنها کشورهایی که قادر به خارج کردن غبار هسته‌ای از ایران هستند، آمریکا و چین هستند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20189
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-می‌توانستیم پل‌ها و شبکه‌های برق ایران را نابود کنیم و همه چیز را آن‌جا طی دو روز از بین ببریم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20188
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-اگر ۹ ماه پیش از بمب‌های B-2 استفاده نکرده بودم، ایران اکنون قادر به دستیابی به سلاح هسته‌ای بود.
 
 @IranianMinds
 </div>

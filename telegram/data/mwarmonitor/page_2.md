@@ -1,8 +1,14 @@
 # آرشیو کانال mwarmonitor - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 10:58
+📅 آخرین بروزرسانی: 1405/02/26 14:15
 
 ---
+
+## mwarmonitor — post 9127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تموم شد 😮‍💨
+</div>
 
 ## mwarmonitor — post 9126
 
@@ -173,18 +179,6 @@ KC-46A «YETI??» 18-46054 AE5FA1
 4. جبران خسارات و تلفات ناشی از جنگ
 
 5. به‌رسمیت شناختن حق حاکمیت ایران بر تنگه هرمز»
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9107
-
-<div align="center"><video src="telegram/content/mwarmonitor_9107.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/mwarmonitor_9107.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴«جزیره خارک به سقف ظرفیت ذخیره‌سازی خود نرسیده است. اگر چنین بود، نزدیک‌ترین نفتکش‌های در دسترس را به‌کار می‌گرفتند و آن‌ها را کاملاً بارگیری می‌کردند. در عوض، تولید نفت کاهش یافته تا با افت بارگیری نفتکش‌ها هم‌خوان شود. همچنان تعداد زیادی نفتکش وجود دارد که می‌توان آن‌ها را بارگیری کرد.» TANKER TRACKER
 
 @mwarmonitor
 </div>

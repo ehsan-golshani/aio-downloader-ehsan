@@ -1,8 +1,25 @@
 # آرشیو کانال Shin_Persian - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 11:05
+📅 آخرین بروزرسانی: 1405/02/26 14:22
 
 ---
+
+## Shin_Persian — post 6006
+
+<div align="center"><img src="telegram/content/Shin_Persian_6006.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+NetBlocks ✓ @netblocks
+Fri, 15 May 2026 07:37:19 UTC
+
+🌍 #Iran's digital isolation is now entering its 77th day as the internet blackout passes 1824 hours. The measure presents an emerging mental health risk to the public, who are largely cut off from online platforms, communications, and normal interaction with the outside world.
+
+فارسی
+
+🌍 انزوای دیجیتال #ایران اکنون در حالی وارد هفتاد و هفتمین روز خود می‌شود که خاموشی اینترنت از ۱۸۲۴ ساعت فراتر رفته است. این اقدام ریسک نوظهوری را برای سلامت روان مردمی که تا حد زیادی از پلتفرم‌های آنلاین، ارتباطات و تعامل عادی با دنیای خارج محروم شده‌اند، ایجاد می‌کند.
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6005
 
@@ -336,21 +353,6 @@ Ehsan Afreshte has been executed by Islamic Regime today. Regime claims he was t
 
 احسان افراشته امروز توسط رژیم اسلامی اعدام شد. رژیم مدعی است که او توسط موساد در نپال آموزش دیده و اطلاعات را به اسرائیل فروخته است.
 #Iran
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 5983
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Shin ✓ @hey_itsmyturn
-Tue, 12 May 2026 21:17:38 UTC
-
-Someone wrote “Tehran is having a wild orgasm” in Telegram 😭😭😭
-
-فارسی
-
-یک نفر در تلگرام نوشته «تهران دارد به ارگاسم وحشیانه می‌رسد» 😭😭😭
 
 𝕏 · @shin_persian
 </div>

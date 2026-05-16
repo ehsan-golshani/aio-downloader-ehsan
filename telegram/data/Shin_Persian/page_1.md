@@ -1,8 +1,25 @@
 # آرشیو کانال Shin_Persian - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 11:05
+📅 آخرین بروزرسانی: 1405/02/26 14:22
 
 ---
+
+## Shin_Persian — post 6027
+
+<div align="center"><img src="telegram/content/Shin_Persian_6027.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Sat, 16 May 2026 09:32:14 UTC
+
+The funeral for Hamas leader in the Gaza Strip, Izz al-Din al-Haddad, has begun, according to Palestinian media.
+
+فارسی
+
+به گفته رسانه‌های فلسطینی، مراسم تشییع پیکر عزالدین الحداد، از رهبران حماس در نوار غزه، آغاز شده است.
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6026
 
@@ -352,23 +369,6 @@ KC-135R "RCH314" 62-3521 #AE0485 (پایگاه هوایی اورو -> فرودگ
 KC-135T "RCH559" 59-1471 #AE07A5 (ایالات متحده -> فرودگاه اشتوتگارت)
 
 @MATA_osint
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 6006
-
-<div align="center"><img src="telegram/content/Shin_Persian_6006.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-NetBlocks ✓ @netblocks
-Fri, 15 May 2026 07:37:19 UTC
-
-🌍 #Iran's digital isolation is now entering its 77th day as the internet blackout passes 1824 hours. The measure presents an emerging mental health risk to the public, who are largely cut off from online platforms, communications, and normal interaction with the outside world.
-
-فارسی
-
-🌍 انزوای دیجیتال #ایران اکنون در حالی وارد هفتاد و هفتمین روز خود می‌شود که خاموشی اینترنت از ۱۸۲۴ ساعت فراتر رفته است. این اقدام ریسک نوظهوری را برای سلامت روان مردمی که تا حد زیادی از پلتفرم‌های آنلاین، ارتباطات و تعامل عادی با دنیای خارج محروم شده‌اند، ایجاد می‌کند.
 
 𝕏 · @shin_persian
 </div>

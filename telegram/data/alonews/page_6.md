@@ -1,8 +1,108 @@
 # آرشیو کانال alonews - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 13:06
+📅 آخرین بروزرسانی: 1405/02/26 14:33
 
 ---
+
+## alonews — post 120244
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رضا سپهوند، عضو کمیسیون انرژی مجلس: یه دلیل بمباران جنگ، روزانه ۳۰ میلیون لیتر کمبود بنزین داریم و در کوتاه‌مدت هم امکان افزایش تولید وجود ندارد، راهی جز صرفه جویی نداریم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120243
+
+<div align="center"><img src="telegram/content/alonews_120243.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری / ارتش اسرائیل : عزالدین الحداد فرمانده گردان‌های القسام، همراه با محافظ‌هاش ترور شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رسانه پخش اسرائیل: تصمیم از سرگیری جنگ در ایران هنوز به رئیس‌جمهور ترامپ بستگی دارد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120241
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کانال ۱۳ اسرائیل: سیستم امنیتی معتقد است که ترامپ با حمله‌ای محدود به ایران موافقت خواهد کرد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120240
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈آتش سوزی در تاسیسات گازی در ونزوئلا
+ 
+🔴رویترز از آتش‌سوزی در تاسیسات گازی تحت مدیریت شرکت PDVSA در دریاچه «ماراکایبو» در ونزوئلا خبر داد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120236
+
+<div align="center"><video src="telegram/content/alonews_120236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈چندین حمله هوایی اسرائیل چند لحظه پیش یک آپارتمان در محله ریمال شهر غزه را هدف قرار داد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مرکل صدراعظم سابق آلمان: خروج آمریکا از ناتو به ضرر خود آمریکا است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120234
+
+<div align="center"><img src="telegram/content/alonews_120234.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ چند دقیقه پیش از آلاسکا به سمت واشنگتن پرواز کرد. پس از توقف برای سوخت‌ گیری در انکوریج
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120233
+
+<div align="center"><img src="telegram/content/alonews_120233.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کاهش چشمگیر تولید نفت کشورهای حاشیه خلیج فارس
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120232
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کانال ۱۲ عبری: حزب‌الله در عرض یک ساعت و نیم، ۱۰ پهپاد به سمت اسرائیل پرتاب کرد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قیمت جهانی نفت به ۱۰۹ دلار برای هر بشکه رسیده است
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120230
 
@@ -99,109 +199,5 @@
 🔔@FastProxyMakerBot
 
 ✔️با خیال راحت و بدون دغدغه خرید کنید
-</div>
-
-## alonews — post 120216
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈بلومبرگ: امارات به دنبال پاسخ هماهنگ به ایران بود، اما عربستان و قطر با آن همراهی نکردند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120215
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر امور خارجه پاکستان: یازده پاکستانی و ۲۰ ایرانی که در کشتی‌های توقیف شده توسط نیروهای آمریکایی بودند، آزاد شده‌اند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر امور خارجه چین: ما خواستار بازگشایی هرچه سریع‌تر تنگه هرمز هستیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر خارجه چین : شی جین پینگ پاییز آینده به آمریکا سفر میکنه
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت نیروهای مسلح فرانسه: ناو هواپیمابر شارل دوگل در دریای عرب در ماموریتی احتمالی برای بازگرداندن ناوبری در تنگه هرمز است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120211
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر امور خارجه چین: ما ایالات متحده و ایران را تشویق می‌کنیم که به حل اختلافات و مناقشات خود از طریق گفتگو ادامه دهند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120210
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شرکت‌های نفت دولتی هند قیمت بنزین و گازوئیل را بیش از ۳ درصد افزایش دادند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120209
-
-<div align="center"><video src="telegram/content/alonews_120209.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120209.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر انرژی آمریکا : قبل از اینکه تصمیم بگیریم برنامه هسته‌ای ایران رو خلع سلاح کنیم، قیمت نفت و گازوئیل تو کالیفرنیا رسماً ترکونده بود!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120208
-
-<div align="center"><video src="telegram/content/alonews_120208.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120208.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈روسیه حمله هدفمند با پهپاد FPV به خودروی سازمان ملل تو اوکراین رو منتشر کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120207
-
-<div align="center"><img src="telegram/content/alonews_120207.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈میدل‌ایست‌ای: ایران دنبال دور زدن مسیر محاصره شده تنگه هرمز با کریدور زمینی پاکستان است
-
-🔴 در پی محاصره دریایی ایران توسط آمریکا که وارد پنجمین هفته خود شده است، ایران و پاکستان اعلام کردند که به دنبال احیای پروژه‌ اتصال چندین کریدور هستند که بنادر کراچی، بندر قاسم و گوادر پاکستان را از طریق بلوچستان به گذرگاه‌های مرزی گبد و تفتان ایران متصل می‌کنند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120206
-
-<div align="center"><video src="telegram/content/alonews_120206.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120206.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیروهای دفاعی اسرائیل یک تمرین نظامی غافلگیرکننده در امتداد مرز اردن انجام دادند که هدف آن آزمایش آمادگی برای تهدیدات ناگهانی امنیتی بود
-
-✅ @AloNews خبر جنگ
 </div>
 

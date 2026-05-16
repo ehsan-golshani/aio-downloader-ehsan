@@ -1,8 +1,26 @@
 # آرشیو کانال mwarmonitor - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 10:58
+📅 آخرین بروزرسانی: 1405/02/26 14:15
 
 ---
+
+## mwarmonitor — post 9150
+
+<div align="center"><img src="telegram/content/mwarmonitor_9150.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📍تنگه هرمز، کشتی‌های در حال خروج از خلیج فارس:
+
+🚢کشتی حمل دام «SAPHIRA» (متعلق به ترکیه)
+
+🚢کشتی فله‌بر «KIRAN CHINA» (متعلق به ترکیه)
+
+🚢نفتکش «SEAWAY» (متعلق به چین)
+
+🚢کشتی فله‌بر «KAIA» (با پرچم جزایر مارشال)
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9149
 
@@ -265,11 +283,5 @@
 کوپر در پایان خاطرنشان کرد: «این نتیجه از پیش تعیین شده نبود و بر حسب تصادف به دست نیامد؛ بلکه حاصل ماه‌ها برنامه‌ریزی دقیق بر پایه دهه‌ها تجربه است.»
 
 @mwarmonitor
-</div>
-
-## mwarmonitor — post 9127
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تموم شد 😮‍💨
 </div>
 

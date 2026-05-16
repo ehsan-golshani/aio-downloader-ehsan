@@ -1,8 +1,28 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 13:01
+📅 آخرین بروزرسانی: 1405/02/26 14:28
 
 ---
+
+## IranianMinds — post 20189
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+می‌توانستیم پل‌ها و شبکه‌های برق ایران را نابود کنیم و همه چیز را آن‌جا طی دو روز از بین ببریم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20188
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+اگر ۹ ماه پیش از بمب‌های B-2 استفاده نکرده بودم، ایران اکنون قادر به دستیابی به سلاح هسته‌ای بود.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20187
 
@@ -209,25 +229,5 @@ https://t.me/+aCbq7yy8QY80NzQ0
 re25
 🔔کانال دربی بت :
 🪙https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ :
-
-نابودی نظامی ایران ادامه خواهد داشت
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20167
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ به فاکس‌ نیوز :
-
-من از الان دیگه آدم صبوری نیستم و صبر بیشتری به ایران نشان نخواهم داد!
-
-@IranianMinds
 </div>
 

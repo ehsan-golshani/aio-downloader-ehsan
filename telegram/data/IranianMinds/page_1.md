@@ -1,8 +1,28 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 13:01
+📅 آخرین بروزرسانی: 1405/02/26 14:28
 
 ---
+
+## IranianMinds — post 20232
+
+<div align="center"><img src="telegram/content/IranianMinds_20232.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴۱۹ روز قبل از سقوط رژیم جنایتکار قذافی، به دست مجریان تلویزیون اسلحه داده بودند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کانال ۱۲ اسرائیل:
+
+جنگ سوم با ایران نزدیک است.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20230
 
@@ -235,28 +255,6 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 فرزند عبدالرحیم موسوی، رییس ستاد کل نیروهای مسلح جمهوری اسلامی:
 
 جنازه پدرم ۳۰ روز زیر آوار حملات مونده بود.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20210
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه دنبال کانفیگی و میخای اینستا و تلگرام و گیم و حتی ترید رو برات مثل آب خوردن بیاره ربات زیر میتونه بهت کمک کنه👇
-
-@Dayaconfigbot
-@Dayaconfigbot
-@Dayaconfigbot
-
-هر گیگ فقط 225 هزارتومان با تضمین عودت وجه!
-</div>
-
-## IranianMinds — post 20208
-
-<div align="center"><img src="telegram/content/IranianMinds_20208.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شباهتو
 
 @IranianMinds
 </div>

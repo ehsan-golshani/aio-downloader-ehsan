@@ -1,8 +1,38 @@
 # آرشیو کانال IranianMinds - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 13:01
+📅 آخرین بروزرسانی: 1405/02/26 14:28
 
 ---
+
+## IranianMinds — post 20103
+
+<div align="center"><video src="telegram/content/IranianMinds_20103.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20103.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ به رئیس‌ جمهور چین:
+
+افتخار دارم که در کنار شما هستم. افتخار دارم که دوست شما هستم و روابط بین چین و ایالات متحده بهتر از همیشه خواهد شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20102
+
+<div align="center"><video src="telegram/content/IranianMinds_20102.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20102.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ به رئیس‌ جمهور چین:
+
+شما یک رهبر بزرگ هستید. به همه می‌گویم که شما یک رهبر بزرگ هستید. گاهی مردم از گفتن این حرف توسط من خوششان نمی‌آید، اما با این حال می‌گویم چون حقیقت است.
+
+من فقط حقیقت را می‌گویم.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20101
 
@@ -238,36 +268,5 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 ما خواستار آزادی فوری شهروندان ‌مان هستیم و حق پاسخگویی را برای خود محفوظ می‌دانیم.
 
 @IranianMinds
-</div>
-
-## IranianMinds — post 20082
-
-<div align="center"><img src="telegram/content/IranianMinds_20082.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 برای هفتمین بار هم تلاش برای محدود کردن اختیارات جنگی ترامپ در مجلس سنای آمریکا شکست خورد !
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20081
-
-<div align="center"><img src="telegram/content/IranianMinds_20081.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💙 خان وی‌پی‌ان
-⚡️ سرعت بالا
-🛡 پینگ و پایداری عالی
-🔐 مناسب تلگرام، اینستا، یوتیوب، گیم و استریم
-💸 قیمت اقتصادی با پلن‌های متنوع
-
-🎁 تست ۵۰ مگ فقط ۷۵ تومن
-
-🛎 کانال:
-
-https://t.me/+qNjExGEJztE2OGI0
-
-🤖 ربات خرید:
-@Xan_vpn_bot
 </div>
 

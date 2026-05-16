@@ -1,8 +1,130 @@
 # آرشیو کانال alonews - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/02/26 13:06
+📅 آخرین بروزرسانی: 1405/02/26 14:33
 
 ---
+
+## alonews — post 120064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار المیادین در پکن: بسیاری از اظهارات آمریکایی ها می گویند که ترامپ چین را متقاعد کرد که موضع خود را در قبال ایران تغییر دهد و این درست نیست.
+
+🔴موضع چین در قبال ایران روشن، ثابت است و تغییری نکرده است. دیروز به طور کامل از صحبت در این مورد خودداری کرد و هر آنچه خلاف آن شایعه می شود کذب محض است.
+
+🔴 چین صبح امروز تصمیم گرفت موضع خود را از طریق بیانیه کامل وزارت خارجه منتشر کند تا تمام حقیقت روشن شود
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120063
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رویترز: ترامپ مدعی شد «توافق‌های تجاری فوق‌العاده‌ای» با چین حاصل شده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120062
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: رئیس‌جمهور چین می‌خواهد شاهد توافق با ایران باشد و برای کمک به این کار اعلام آمادگی کرده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120061
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قیمت جهانی نفت روز جمعه پس از آن افزایش یافت که دونالد ترامپ اعلام کرد چین پس از گفت‌وگوهای او با شی جین‌پینگ، با خرید نفت از آمریکا موافقت کرده است.
+
+🔴 با این حال، پکن تاکنون این ادعا را تأیید نکرده و به درخواست رسانه‌ها برای اظهار نظر نیز پاسخی نداده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120060
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ، به شبکه فاکس نیوز: مذاکره با ایران درباره کنار گذاشتن غبار هسته‌ای به دلیل تضاد در تصمیمات ایران، رفت و برگشت دارد
+
+🔴تأسیسات هسته‌ای ایران تحت نظارت مداوم ۹ دوربین، ۲۴ ساعته قرار دارند.
+🔴هرگونه تحرک ایرانی در داخل تأسیسات هسته‌ای با واکنش مستقیم نظامی مواجه خواهد شد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120059
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: توافق‌های تجاری فوق‌العاده‌ای با چین انجام شد
+
+🔴دونالد ترامپ، با اشاره به نتایج مثبت سفر خود اعلام کرد توافق‌های تجاری بسیار خوبی حاصل شده که برای هر دو کشور عالی است.
+🔴وی با ابراز احترام نسبت به شی جین‌پینگ، به سابقه آشنایی ۱۲ ساله و حل مشکلات پیچیده‌ای اشاره کرد که دیگران قادر به رفع آن‌ها نبودند. ترامپ این رابطه را بسیار قوی توصیف کرد و کارهای انجام شده را فوق‌العاده دانست.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120058
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مارکو روبیو: مردم کوبا باید بدانند که در حال حاضر ۱۰۰ میلیون دلار غذا و دارو برای آن‌ها موجود است و تنها دلیلی که این کمک‌ها به دستشان نمی‌رسد، رژیم کوبا است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120057
+
+<div align="center"><video src="telegram/content/alonews_120057.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120057.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈اسرائیل در حملات بامداد امروز علیه حزب الله از سلاح فسفری استفاده کرد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120056
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مجلس نمایندگان آمریکا برای سومین بار در تصویب قطعنامهای با هدف محدود کردن اختیارات رئیس‌جمهور در ارتباط با جنگ با ایران ناکام ماند‌‌
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120055
+
+<div align="center"><img src="telegram/content/alonews_120055.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌐 اینترنت رایگان و آزاد برای همه مردم
+
+⚡ VPN رایگان
+⚡ کانفیگ تست‌شده و پرسرعت
+⚡ آپدیت روزانه
+⚡ بدون قطعی و دردسر
+
+@NetaazaadVPN
+@NetaazaadVPN
+
+اینجا فقط وصل میشی و راحت استفاده میکنی 🫡
+
+👇
+@NetaazaadVPN
+@NetaazaadVPN
+@NetaazaadVPN
+</div>
+
+## alonews — post 120054
+
+<div align="center"><img src="telegram/content/alonews_120054.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴احتمالا ویزا مهدی طارمی به علت خدمت در سپاه صادر نشود
+‼️
+
+@AloSport
+</div>
 
 ## alonews — post 120053
 
@@ -96,109 +218,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تعرفه سرویس های Vip ⭕️ ✅ 1 گیگابایت ⬅️ 235/000 تومان ✅ 3 گیگابایت ⬅️ 735/000 تومان استارلینک Vip 💫 🌟 ⭐️ 5 گیگابایت ⬅️ 1/150/000 تومان ⭐️ 10 گیگابایت ⬅️ 2/350/000 تومان ویژگی های سرویس های Vip : ❤️‍🔥 ✅    متصل در تمامی دستگاه و اپراتور ها ✅    مناسب استفاده…
-</div>
-
-## alonews — post 120044
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سنتکام: از آغاز محاصره دریایی بنادر ایران، 72 کشتی تجاری را منحرف و 4 کشتی را از کار انداختیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت خارجه قطر: ما به طور کامل از تلاش‌های پاکستان برای میانجیگری بین آمریکا و ایران حمایت می‌کنیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120042
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سوپر اپ روبیکا بیش از یک ساعته قطع شده
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120041
-
-<div align="center"><img src="telegram/content/alonews_120041.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈محمدباقر قالیباف: پس شما به هگست، مجری تلویزیونی شکست‌خورده، بودجه‌ای می‌دهید که از سال ۲۰۰۷ بی‌سابقه است، تا بتواند در حیاط خلوت ما در هرمز نقش وزیر جنگ را بازی کند؟
-
-🔴می‌دانی چه چیزی دیوانه‌کننده‌تر از ۳۹ تریلیون دلار بدهی است؟ پرداخت حق بیمه پیش از بحران مالی جهانی برای حمایت از یک بازی نقش‌آفرینی زنده (LARP) و تنها چیزی که به دست می‌آوری یک بحران مالی جهانی جدید است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رئیس‌جمهور ترامپ و هیئت همراهش در طول سفر به چین از تلفن‌ها و لپ‌تاپ‌های جایگزین استفاده کردند به دلیل نگرانی‌هایی که داشتند مبنی بر اینکه مقامات چینی ممکن است از آن‌ها برای نصب نرم‌افزار جاسوسی استفاده کنند، طبق گزارش فاکس نیوز.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120039
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈العربی الجدید: حمله انتحاری، پایگاه نظامی ارتش در منطقه باجور در شمال غربی پاکستان را هدف قرار داد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120038
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈میدل ایست : ارتش دفاعی اسرائیل از فردا که ترامپ چین رو ترک می‌کنه، به بالاترین حالت آماده‌باش وارد میشه
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120037
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈طبق گزارش بی‌بی‌سی، شناوری که ایران امروز توقیف کرد، «هوی چوان» نام دارد.
-هوی چوان یکی از چندین کشتی شبح نظامی چین است که پکن از آن‌ها برای پشتیبانی از ارتش‌ها و شبه‌نظامیان در سراسر جهان استفاده می‌کند.
-
-🔴این شناور توسط پیمانکاران نظامی خصوصی چین برای کمک به اسکورت کشتی‌های تجاری در دریای عرب و دور زدن دزدی دریایی، حوثی‌ها و سومالی به کار گرفته می‌شد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120036
-
-<div align="center"><img src="telegram/content/alonews_120036.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈بدل شاه فقید در تهران رویت شد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اعتراضات در کوبا آغاز شده
-این اعتراضات در حالی آغاز شد که دولت کوبا برق مناطق شرقی این کشور را به طور نامحدود قطع کرد.
-
-🔴دولت اعلام کرد که "مطلقاً سوختی باقی نمانده است" و وضعیت اکنون "بحرانی" است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120034
-
-<div align="center"><video src="telegram/content/alonews_120034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈لیندسی گراهام، سناتور مطرح آمریکایی با آشغال نامیدن متحدان چین از جمله ایران و روسیه، از این کشور برای باز کردن تنگه هرمز درخواست کمک کرد!
-
-✅ @AloNews خبر جنگ
 </div>
 

@@ -1,8 +1,66 @@
 # آرشیو کانال Dirty_Kids - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 13:04
+📅 آخرین بروزرسانی: 1405/02/26 14:30
 
 ---
+
+## Dirty_Kids — post 389496
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389496.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صفحه یوتیوب تتلو :
+امیرخان درحالی که فقط یک ماه به شروع جام جهانی مونده، از تو زندان استارت تمرین‌هاش رو زده و میخواد عضو یه تیم ملی بشه تا تو این مسابقات شرکت کنه.
+
+خودشم داخل قوطی رنگ و بطریِ وایتکس، گچ و سیمان ریخته و داره ازشون به عنوان دمبل استفاده می‌کنه.
+ایشون تو یه فضای 1*1 داره تمرین میکنه و واسه صبحونه، ناهار و شام فقط عدسی و آب‌میوه میخوره!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389495
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389495.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389495.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در ادامه‌ی مصاحبه‌ی جلو در توالتی ترامپ در راه بازگشت از چین:
+
+خبرنگار: آیا تونستید تایید کنید که اون موشک [که به مدرسه‌ی میناب اصابت کرد] آمریکایی بوده؟
+
+ترامپ: شما با کجا کار می‌کنید عزیزجان؟
+
+خبرنگار: بی‌بی‌سی.
+
+ترامپ: بی‌بی‌سی جعلی؟ تو گه بخور. منظورت همون جاکشاییه که با هوش مصنوعی دهن من حرف گذاشتند؟ همونا که از قول من بیانیه‌ای رو منتشر کردند که حالا خودشون اعتراف می‌کنن حقیقت نداشته؟ همون پوفیوزایی که کلمات وحشتناکی رو گذاشتن دهن من و بعد مجبور شدند اعتراف کنن که جعلی بوده؟
+همون دیوثایی که الان به خاطر ۵ میلیار...
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389494
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر از چندگاهی مچ خودمو درحال ریلز دیدن میگیرم. بی پروای فقیر
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389493
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران حتی تبریک تولدهامون‌ هم نفرینه
+ایشالله خودت ۱۲۰ ساله بشی بی‌شرف
+
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389492
 
@@ -216,56 +274,6 @@ A24
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 #بخوابیم
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قضیه السیسی اگه نمیدونی این ویدیو کمکت میکنه
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389475
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389475.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیفونیا با کانفیگ پولی در حال خوندن پستای اندرویدیا که با وپن شیر 🌞 وصل شدن:
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389474
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎙️خبرنگار : امیرعلی چرا اومدی تجمع؟
-🧑امیرعلی : به عشق رهبر
-
-🎙️خبرنگار : امیرعلی، مامان و بابات مجبورت کردن که بیای تجمعات؟
-
-🧑امیرعلی : آره
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389473
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389473.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کصمادرتون…
-نسلتون رو ✌🏽 بار گائیدم…
 
 
 @Dirty_Kids 👻

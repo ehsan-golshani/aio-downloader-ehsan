@@ -1,8 +1,20 @@
 # آرشیو کانال mwarmonitor - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 10:58
+📅 آخرین بروزرسانی: 1405/02/26 14:15
 
 ---
+
+## mwarmonitor — post 9107
+
+<div align="center"><video src="telegram/content/mwarmonitor_9107.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/mwarmonitor_9107.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴«جزیره خارک به سقف ظرفیت ذخیره‌سازی خود نرسیده است. اگر چنین بود، نزدیک‌ترین نفتکش‌های در دسترس را به‌کار می‌گرفتند و آن‌ها را کاملاً بارگیری می‌کردند. در عوض، تولید نفت کاهش یافته تا با افت بارگیری نفتکش‌ها هم‌خوان شود. همچنان تعداد زیادی نفتکش وجود دارد که می‌توان آن‌ها را بارگیری کرد.» TANKER TRACKER
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9106
 
@@ -219,16 +231,6 @@ KC-135T «RCH559» 59-1471 AE07A5 (از CONUS به EDDS)
 🔹یکی از نفتکش‌های غول‌پیکر VLCC همچنان در آتش می‌سوزد و دود غلیظی از یکی از کشتی‌ها به هوا بلند شده و قابل مشاهده است.
 
 🔸نفتکش دوم نیز در حال نشت حجم زیادی از نفت سنگین (fuel oil) به داخل آب است.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9087
-
-<div align="center"><img src="telegram/content/mwarmonitor_9087.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴روز هشتم است که ایران هیچ نفت خامی در جزیره خارگ بارگیری نکرده است. ذخایر نفت در خشکی اکنون تقریباً به ظرفیت کامل رسیده‌اند. به‌احتمال زیاد یکی از خطوط لوله آسیب دیده است. ایران در حال تلاش برای یافتن نوعی راه‌حل جایگزین است. هیچ نفتکش VLCC اجازه ورود پیدا نکرده است به‌دلیل محاصره آمریکا، بنابراین ایران در گزینه‌های خود محدود شده است.
 
 @mwarmonitor
 </div>

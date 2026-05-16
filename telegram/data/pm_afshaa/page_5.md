@@ -1,8 +1,54 @@
 # آرشیو کانال pm_afshaa - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 12:50
+📅 آخرین بروزرسانی: 1405/02/26 14:17
 
 ---
+
+## pm_afshaa — post 90757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کانال 12 اسراییل: اسرائیل سطح هشدار را به اوج می‌رساند تا برای احتمال از سرگیری جنگ با ایران پس از بازگشت ترامپ از چین آماده شود
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایسنا : با قیمت قطعی خودرو باید خداحافظی کنید،چون تو جدیدترین طرح فروش ایران‌خودرو و سایپا،خریداران باید نیمی از مبلغ خودرو رو امروز بپردازن بدون اینکه بدونن در زمان تحویل چه قیمتی در انتظارشونه
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90755
+
+<div align="center"><img src="telegram/content/pm_afshaa_90755.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تخفیف ویژه فقط گیگی 170 با تست رایگان ✅
+اول تست کن، بعد با خیال راحت خرید کن!
+
+❌ دیگه چرا گیگی ۵۰۰ تا ۶۰۰ بدی؟!
+اونم بدون اینکه بدونی کیفیتش چطوره 😐
+
+⚡️ تخفیف ویژه محدود ⏳
+فقط تا پایان امشب
+
+🌍 آی‌پی استار واقعی + پینگ عالی
+🛡 ضمانت بازگشت وجه بدون شرط
+🚀 اتصال پایدار و بدون قطعی
+
+خرید آنی از ربات :
+
+Id : @LexVipBot
+تایم سرورامون نامحدوده❤️
+
+Link chanel : @lex_server
+
+رایگان گذاشته میشه هرشب تو‌چنل بالا از دست ندید👌
+</div>
 
 ## pm_afshaa — post 90754
 
@@ -175,42 +221,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴وزیر خزانه‌داری آمریکا: باز شدن تنگه هرمز به نفع چین خواهد بود و انتظار داریم قیمت نفت در شش ماه آینده کاهش یابد
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90737
-
-<div align="center"><video src="telegram/content/pm_afshaa_90737.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/pm_afshaa_90737.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایلان ماسک هم خوب مست کرده
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴شی جین‌پینگ در ضیافت با ترامپ:
-چین و آمریکا باید شریک باشن، نه رقیب؛ عظمت دوباره آمریکا و احیای چین میتونن همزمان پیش برن.
-
-ترامپ هم پس از این سخنان، روابط واشینگتن و پکن رو یکی از تاثیرگذارترین روابط تاریخ بشر توصیف کرد و دیدارهای انجام‌شده با مقام‌های چینی رو مثبت و سازنده خواند.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90732
-
-<div align="center"><img src="telegram/content/pm_afshaa_90732.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ یه جور داره رفتار میکنه که انگار رئیس جمهور چین اومده آمریکا
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

@@ -1,8 +1,78 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 13:04
+📅 آخرین بروزرسانی: 1405/02/26 14:30
 
 ---
+
+## Dirty_Kids — post 389547
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏لیست مشاغل باقی مانده در ایران :
+کانفیگ فروش
+عرق فروش
+آدم فروش
+اسنپ
+تریاک فروش
+
+بقیه هم نشستن همو نگاه میکنن …
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389546
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389546.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389546.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 توی انگلیس وقتی یه پیرمرد بالاخره به رویاش رسید و یه خانم زیبا رو بوس کرد، از شدت هیجان و شادی بیهوش شد و کارش به بیمارستان کشید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389545
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389545.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بادبان با همراهی شما 50 هزار نفری شد🎉
+
+🛡فروش سرویس جدید با کاهش قیمت تا گیگی 200 هزار تومان باز شد🛒
+
+🎊کد تخفیف 100 هزار تومانی بادبان فعال بوده و میتونید برای خرید اولتون ازش استفاده کنید
+
+BadBan4k : کد تخفیف
+
+🚀همچنین میتونید با معرفی بادبان از طریق لینک معرفی به دوستان 10 درصد از مبلغ تمام خرید هاشون رو در کیف پولتون داشته باشید
+R26
+وقتی بادبان داری، هیچ بادی مانع نیست… با ما راه بازه حتی وقتی اینترنت ملیه!
+
+⛵️@BadBan_VPN | کانال 
+🤖@BadBan_VPNBot | ربات 
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389543
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389543.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاسداران سپاه اسلام هستند که خیلی شیک با دیدن اولین اسلحه دست طرف مقابل تسلیم شدند:)
+
+
+تجهیزات این نیروهای ویژه سپاه در یک عملیات واقعی هم جالب است
+حتی تجهیزات غواصی هم مخصوص عملیات نیروی ویژه نیست
+گفته شده بود اینها روی لنج بودند ولی با توجه به عکس به نظر روی یک قایق تندرو بودند و حتی پیش از آغاز عملیات خفت شدند
+با این حساب پاشون بوبیان هم نرسیده
+
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389542
 
@@ -210,64 +280,6 @@ A25
 
 کشوری که نمیتونی یه حلقه طلا توش بخری، چرا باید توش ازدواج کنی؟!
 
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389521
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏بنظرم اصن معلوم نمیکنه ترامپ از چین برگرده چی میشه الکی حدس نزنیم.
-بعید نیست یهو تایوان رو بده به ایران تنگه رو بده به لبنان روبیو رو بده به سمنان.
-هیچ بعید نیست
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389520
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389520.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ایلان ماسک : اینستاگرام واسه دختراست؛
-
-
-بعضی وقت‌ها یسری مرد بالغ آیدی اینستاگرام‌شون رو واسه من می‌فرستن و من می‌پرسم: آیا داری تغییر جنسیت میدی؟
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389519
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389519.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در تصویر: ترور تروریست ارشد حماس.
-
-احمد وحیدی، داری نگاه می‌کنی؟
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389518
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389518.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389518.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑 شاهزاده رضا پهلوی:
-جمهوری اسلامی الان برای اینکه سقوطش عقب بیفته، داره فشار و سرکوب مردم رو بیشتر میکنه؛
-
-واسه همین یه تیم حقوقی گذاشتم بررسی کنن اونایی که با سیستم سرکوب همکاری میکنن، بعدا چه بلایی سرشون میاد. نتیجه‌ش این شده که این کارا فقط یه همکاری ساده نیست و میتونه به‌عنوان کمک به جنایت علیه بشریت حساب بشه.
-یعنی هر کسی که آگاهانه بره سمت خبرچینی، کمک تو ایست بازرسی، سرکوب مردم یا حتی خرید و فروش اموال مصادره‌شده، باید بدونه بعدا ممکنه محاکمه بشه و جواب پس بده. حتی ممکنه از اموالشون برای جبران خسارت مردم استفاده بشه. به همه اونایی هم که الان دارن با سیستم همکاری میکنن هشدار میدم قبل از هر کاری یه فکر به آینده خودشون و خانوادشون بکنن؛ چون این وضعیت همیشگی نیست و یه روزی میرسه که همه‌چیز روشن میشه و هیچ‌کس نمیتونه از جواب پس دادن فرار کنه.
-
-هدف اینه که ایران تبدیل به یه کشور آزاد بشه که توش حق مردم رعایت بشه و اوضاع کشور درست بشه.
 
 
 @Dirty_Kids 👻

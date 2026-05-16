@@ -1,8 +1,16 @@
 # آرشیو کانال mwarmonitor - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 10:58
+📅 آخرین بروزرسانی: 1405/02/26 14:15
 
 ---
+
+## mwarmonitor — post 9045
+
+<div align="center"><img src="telegram/content/mwarmonitor_9045.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ساعت 09:31 ـ 09:35 به وقت گرینویچ MISS 40 | 41 دو فروند بمب‌افکن استراتژیک B-1B از پایگاه Fairford به پرواز درآمده و با Brize در فرکانس 231.950 در حال ارتباط است. @mwarmonitor
+</div>
 
 ## mwarmonitor — post 9044
 

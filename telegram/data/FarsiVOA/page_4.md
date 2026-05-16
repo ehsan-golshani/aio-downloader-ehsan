@@ -1,8 +1,50 @@
 # آرشیو کانال FarsiVOA - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 12:59
+📅 آخرین بروزرسانی: 1405/02/26 14:25
 
 ---
+
+## FarsiVOA — post 217822
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ناسا روز جمعه ۲۵ اردیبهشت تصاویری از آزمایشگاه شبیه‌سازی سطح ماه در مرکز پژوهشی «ایمز» را منتشر کرد.
+
+در این آزمایشگاه، جعبه‌های بزرگی از خاک شبیه‌سازی‌شده ماه برای آزمایش ابزارهای علمی، ربات‌ها، و مریخ‌نوردهای آینده استفاده می‌شود.
+
+ناسا می‌گوید این مرکز به آماده‌سازی فناوری‌های مورد نیاز برای ماموریت‌های آینده به ماه کمک می‌کند.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217821
+
+<div align="center"><img src="telegram/content/FarsiVOA_217821.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گفته فرماندهی مرکزی ایالات متحده، سنتکام، نیروهای آمریکایی در چارچوب اجرای محاصره دریایی علیه جمهوری اسلامی ایران تاکنون مسیر ۷۵ کشتی تجاری را تغییر داده و چهار شناور را از کار انداخته‌اند.
+
+سنتکام تصویر یک بالگرد سی‌هاوک که از عرشه ناوشکن «یو‌اس‌اس رافائل پرالتا» در دریای عرب به پرواز درآمده را منتشر کرده است.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217820
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس‌جمهوری آمریکا، که پس از یک سفر سه‌روزه پکن را به مقصد واشنگتن ترک کرد، از پیشرفت‌های تجاری میان دو کشور خبر داده است
+</div>
+
+## FarsiVOA — post 217819
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺ترامپ: با تعلیق ۲۰ ساله برنامه هسته‌ای ایران موافقم، «اگر یک تعهد واقعی باشد»
+
+▪️پرزیدنت ترامپ با غیرقابل قبول خواندن تازه‌ترین پیشنهاد رژیم ایران، اشاره کرد که تعلیق ۲۰ساله، به شرط این که واقعا ۲۰ سال تضمین شده باشد، کافی است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/8150374.html/?nocach=1
+</div>
 
 ## FarsiVOA — post 217818
 
@@ -249,52 +291,6 @@ https://ir.voanews.com/a/8150366.html
 پیشتر شرکت اطلاعات کالا، کپلر، به صدای آمریکا گفته بود که بیش از نیمی از نفت جمهوری اسلامی تحت نام نفت مالزی راهی چین می‌شود؛ موضوعی که آمارهای گمرکی چین نیز آن را تأیید می‌کند.
 
 مقام‌های آمریکایی نیز بارها اعلام کرده‌اند که صادرات نفت ایران به‌شدت به ارائه‌دهندگان خدمات دریایی و انتقال نفت از کشتی به کشتی در نزدیکی آب‌های مالزی متکی است.
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217802
-
-<div align="center"><img src="telegram/content/FarsiVOA_217802.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ترامپ: با چین درباره دست نیافتن تهران به سلاح هسته‌ای و باز ماندن تنگه‌ها هم‌نظریم
-
-▪️دونالد ترامپ، رئیس‌جمهور آمریکا، اعلام کرد که او درباره ایران با شی جین‌پینگ، رئیس‌جمهور چین، گفت‌وگو کرده و هر دو رهبر درباره عدم دستیابی تهران به سلاح هسته‌ای و باز بودن تنگه‌ها نظر مشابهی دارند.
-
-▪️آقای ترامپ گفت: «ما درباره این‌که می‌خواهیم این موضوع چگونه پایان یابد، نظر بسیار مشابهی داریم؛ نمی‌خواهیم آن‌ها سلاح هسته‌ای داشته باشند، می‌خواهیم تنگه‌ها باز باشند.»
-
-▪️او اقدام جمهوری اسلامی در بستن تنگه هرمز را «کاری دیوانه‌وار» توصیف کرد و تاکید کرد که جمهوری اسلامی نمی‌تواند سلاح اتمی داشته باشد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8150358.html
-</div>
-
-## FarsiVOA — post 217801
-
-<div align="center"><video src="telegram/content/FarsiVOA_217801.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217801.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️گزارش فرهاد فلاحی، خبرنگار بخش فارسی صدای آمریکا، از تدابیر امنیتی در چین و محدودیت‌های رسانه‌ای
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217800
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️گفت‌و‌گو با شاهین نژاد درباره ابعاد سیاسی و اقتصادی سفر پرزیدنت ترامپ به چین
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217799
-
-<div align="center"><video src="telegram/content/FarsiVOA_217799.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217799.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️پیاده‌روی دونالد ترامپ و شی جین‌پینگ
 @FarsiVOA
 </div>
 

@@ -1,8 +1,72 @@
 # آرشیو کانال Dirty_Kids - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 13:04
+📅 آخرین بروزرسانی: 1405/02/26 14:30
 
 ---
+
+## Dirty_Kids — post 389452
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389452.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389452.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هنوز رد خونت روشه ...
+#پرهام_آقامحمدی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389451
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389451.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+⚫️با بالاترین کیفیت ممکن⚡️ 
+⚫️100 هزار تومان شارژ هدیه 🎁
+⚫️پایین ترین قیمت گیگی 250🌐 
+⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
+
+بادبان راهتو باز می‌کنه⛵️
+
+G24
+🛡@BadBan_VPN | کانال 
+🤖@BadBan_VPNBot | ربات 
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389450
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389450.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389450.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت دیشبِ خیابون فرشته تهران:
+دعوا سر دختر
+
+طهران الان قسمت بندی شده
+یه گوشه حی‌در حی‌در میکنن عرزشیا هپی بشن، یه گوشه پروپاگاندا، یجا برای بچه پولدارا و...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389449
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389449.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏از روزی که ‎#رضاشاه_کبیر سر از خاک بیرون آورد جمهوری اسهالی روی خوش ندید.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389448
 
@@ -245,69 +309,6 @@ https://t.me/+bcynkEgSW2dlYTc0
 سر چی؟
 چون عموی آگاه و اندیشمندم، این محمدعلی‌فروغی زمانه‌ی آمریکایی‌ها، از چین قرمساق در قضیه‌ی سین‌کیانگ و اویغورها و هنگ‌کنگ‌انتقاد شدید کرده بود.
 ﻿
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389428
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389428.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389428.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-و در این میان ایلان پیش‌فعال
-
-روی پله‌ها یک دور هم دور خودش چرخید و از اطراف فیلم گرفت!! :))))
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389427
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389427.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
-
-⚫️با بالاترین کیفیت ممکن⚡️ 
-⚫️100 هزار تومان شارژ هدیه 🎁
-⚫️پایین ترین قیمت گیگی 250🌐 
-⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
-
-بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
-
-بادبان راهتو باز می‌کنه⛵️
-
-R24
-🛡@BadBan_VPN | کانال 
-🤖@BadBan_VPNBot | ربات 
-📞@BadBan_VPNSupport | پشتیبانی
-</div>
-
-## Dirty_Kids — post 389426
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389426.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😂😂😂😂
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389425
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389425.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389425.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ آمریکا و چین موقع دست دادن؛
-
-ترامپ به سمت شی رفت، دست دادن و بعد جفت طرف سعی داشتن دست‌ِ طرف مقابل رو به سمت خودشون بِکشن که این صحنه خلق شد:
-
 
 @Dirty_Kids 👻
 </div>

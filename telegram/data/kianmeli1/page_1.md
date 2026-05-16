@@ -1,8 +1,65 @@
 # آرشیو کانال kianmeli1 - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 08:38
+📅 آخرین بروزرسانی: 1405/02/26 14:20
 
 ---
+
+## kianmeli1 — post 87435
+
+<div align="center"><img src="telegram/content/kianmeli1_87435.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴نیویورک تایمز به نقل از مقامات نظامی آمریکا: اگر جزیره خارگ تصرف شود، نیروهای زمینی برای حفظ آن لازم خواهند بود.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏🔴نماینده خامنه‌ای در سپاه در کردستان: امروز نظام «استکبار» در موضع ضعف قرار گرفته و در این مرحله پایانی وارد آوردن ضربه نهایی برای «اضمحلال دشمن» ضرورتی حیاتی دارد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87430
+
+<div align="center"><video src="telegram/content/kianmeli1_87430.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87430.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴شب گذشته در بسیاری از برنامه های صداوسیما، مجریان با تفنگ حاضر شدند
+
+یکی از مجریان در برنامه زنده پرچم امارات را نشانه گرفت و شلیک کرد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏🔴محمد مخبر، مشاور مجتبی خامنه‌ای، مطلبی را با هشتگ امارات و کویت در ایکس منتشر کرد و نوشت «آن‌ها با پیش‌فروش استقلال خود، حتی خاک و خانه‌هایشان را در اختیار دشمنان فلسطین و جمهوری اسلامی قرار دادند و پاسخ ما به سنگرهای استیجاری سنتکام در جنگ اخیر تمام‌عیار نبود؛ اما این خویشتنداری همیشگی نیست.»
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏🔴وزارت دفاع بریتانیا افزود چهار جنگنده تایفون را در هفته‌های پس از آغاز جنگ به قطر اعزام کرد تا حضور هوایی این کشور در منطقه را تقویت کند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87427
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏🔴فرماندهی کل نیروی دفاع بحرین اعلام کرد همه یگان‌ها در بالاترین سطح آمادگی دفاعی هستند و از مردم خواست به اجسام مشکوک ناشی از حمله از سوی ایران نزدیک نشوند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87426
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏🔴نورنیوز، رسانه نزدیک به شورای عالی امنیت ملی به نقل از یک مقام مطلع نظامی نوشت در صورت وقوع جنگ، «طرح جامع مقابله آنی» به همه یگان‌های عملیاتی ابلاغ شده و هرگونه اقدام آمریکا با پاسخ «فوری، گسترده و چندلایه» مواجه خواهد شد. به گفته این منبع، اهدافی که در جنگ ۴۰ روزه مورد اصابت قرار نگرفتند، این‌بار در اولویت قرار دارند و سناریوی جدید بر مبنای «حداکثر فشار متقابل» بازتعریف شده است
+https://t.me/kianmeli1
+</div>
 
 ## kianmeli1 — post 87425
 
@@ -128,84 +185,6 @@ https://t.me/kianmeli1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴شبکه 13 اسرائیل: ساختار امنیتی [در اسرائیل] بر این ارزیابی است که ترامپ با انجام حمله‌ای محدود به ایران موافقت خواهد کرد.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87412
-
-<div align="center"><video src="telegram/content/kianmeli1_87412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دقایقی پیش فرمانده حماس کشته شد
-‏
-نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87410
-
-<div align="center"><img src="telegram/content/kianmeli1_87410.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴روزنامه اعتماد مدعی شد: اینترنت بین الملل خرداد ماه وصل می‌ شود
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87409
-
-<div align="center"><img src="telegram/content/kianmeli1_87409.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴رئیس کمیسیون امنیت ملی مجلس، از پیشنهاد تعیین جایزه ۵۰ میلیون یورویی برای کشتن دونالد ترامپ، بنیامین نتانیاهو و فرمانده سنتکام خبر داده است.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87408
-
-<div align="center"><video src="telegram/content/kianmeli1_87408.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87408.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 کاتس وزیر دفاع اسرائیل  :
-ماموریت ما کامل نشده است.
-
-ما برای احتمال اینکه ممکن است مجبور به اقدام دوباره شویم - شاید حتی به زودی - آماده‌ایم.
-
-اگر اهداف تأمین نشوند، دوباره اقدام خواهیم کرد.
-   https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87407
-
-<div align="center"><img src="telegram/content/kianmeli1_87407.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ می‌گوید شی جین‌پینگ، رئیس‌جمهور چین، به او گفته است که چین تجهیزات نظامی به ایران ارائه نخواهد داد و از توافق صلح حمایت کرده است.
-
-ترامپ همچنین می‌گوید که رئیس‌جمهور شی پیشنهاد میانجیگری برای کاهش تنش‌ها به منظور بازگشایی تنگه هرمز را داده است.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87406
-
-<div align="center"><img src="telegram/content/kianmeli1_87406.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عربستان سعودی می‌خواهد با ایران پیمان عدم تجاوز امضا کند.
-
-این در حالی است که ایران در طول جنگ به خاک عربستان سعودی حمله کرده است.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87405
-
-<div align="center"><img src="telegram/content/kianmeli1_87405.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴به گزارش رویترز، عربستان سعودی به رئیس جمهور ترامپ گفته است که جنگ با ایران باید پایان یابد و تنگه هرمز باید باز بماند و در صورت ادامه بحران، نسبت به «زیان‌های اقتصادی غیرقابل اندازه‌گیری» هشدار داده است.
 https://t.me/kianmeli1
 </div>
 
