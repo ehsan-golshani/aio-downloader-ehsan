@@ -1,8 +1,69 @@
 # آرشیو کانال FarsiVOA - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 11:08
+📅 آخرین بروزرسانی: 1405/02/26 12:59
 
 ---
+
+## FarsiVOA — post 217798
+
+<div align="center"><video src="telegram/content/FarsiVOA_217798.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217798.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️دونالد ترامپ: آمریکا و چین خواهان بازشدن تنگه هرمز هستند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️رهبران کدام شرکت‌های بزرگ آمریکایی دونالد ترامپ را در سفر به چین همراهی کردند؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گفت‌وگو با علی معموری و درویش رنجبر درباره مواضع چین و آمریکا در قبال شرایط تنگه هرمز
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گفت‌وگو با علی معموری و درویش رنجبر درباره موضع چین در قبال برنامه تسلیحاتی هسته‌ای جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217794
+
+<div align="center"><img src="telegram/content/FarsiVOA_217794.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دومین دیدار دونالد ترامپ رئیس‌جمهور آمریکا، و شی جین‌پینگ رهبر چین، در «جونگ‌نان‌های» آغاز شده است.
+
+سی‌ان‌ان می‌گوید جونگ‌نان‌های مقر رهبری حزب کمونیست چین است و اغلب با کاخ سفید در آمریکا مقایسه می‌شود. این مجموعه حدود ۱۵۰۰ هکتار وسعت دارد که شامل ۷۰۰ هکتار دریاچه، و همچنین آلاچیق‌ها، باغ‌ها و دفاتر اداری است.
+
+این مکان که با دیوارهایی به رنگ قرمز محصور شده، از محرمانه‌ترین نقاط چین است؛ جایی که دوربین‌های مداربسته‌ی بی‌شماری بر فراز آن نظاره‌گر هستند و نیروهای امنیتی، با لباس‌های شخصی و نظامی، با دقت و وسواس در آن گشت‌زنی می‌کنند.
+
+صبح جمعه، شی در این مکان از رئیس‌جمهور آمریکا استقبال کرد و دو رهبر در حال گفت‌وگو در برابر دوربین‌ها دیده شدند؛ پیش از آنکه از خبرنگاران خواسته شود فاصله بگیرند و اعلام شود که رهبران دو کشور قصد دارند یک گفت‌وگوی خصوصی داشته باشند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گزارش فرهاد فلاحی، خبرنگار بخش فارسی صدای آمریکا از ادامه سفر رئیس جمهوری آمریکا به چین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گزارش خبرنگار بخش چینی صدای آمریکا از سفر پرزیدنت ترامپ به چین
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217791
 
@@ -143,78 +204,6 @@ https://ir.voanews.com/a/8150091.html
 
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/8150089.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217775
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺مارکو روبیو: واشنگتن از پکن برای حل بحران جمهوری اسلامی درخواست کمک نکرده است
-
-◾️مارکو روبیو، وزیر خارجه ایالات متحده، روز پنجشنبه ۲۴ اردیبهشت گفت دونالد ترامپ، رئیس جمهوری آمریکا، و شی جین‌پینگ، رئیس جمهوری چین، در دیدار خود در پکن درباره عملیات نظامی علیه جمهوری اسلامی، تنگه هرمز، و مسائل امنیتی خاورمیانه گفت‌وگو کرده‌اند، و هر دو طرف بر مخالفت با «نظامی‌سازی» تنگه هرمز تأکید کرده‌اند.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/marco-rubio-nbc-interview-china-iran-hormuz-strait/8150078.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺پاداش ۲۰۰هزار دلاری اف‌بی‌آی برای اطلاعات منجر به دستگیری مامور سابق آمریکایی؛ مونیکا ویت به جاسوسی برای رژیم ایران متهم است
-
-◾️پلیس فدرال آمریکا، اف‌بی‌آی اعلام کرد که برای دریافت اطلاعاتی که منجر به دستگیری و محاکمه مونیکا ویت شود، ۲۰۰ هزار دلار پاداش گذاشته است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8150083.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217773
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺حمله «حزب‌الله» به اسرائيل هم‌‌زمان با آغاز سومین دور مذاکرات صلح با لبنان در واشنگتن
-
-◾️ارتش اسرائيل روز پنج‌شنبه گفت که حزب‌الله به نقض آتش‌بس ادامه می‌دهد. ارتش اسرائيل در بیانیه‌ای در این روز منتشر کرد گفت که هشدارهایی در چندین منطقه در شمال اسرائيل فعال شد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8150080.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217772
-
-<div align="center"><img src="telegram/content/FarsiVOA_217772.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️ستاد فرماندهی مرکزی آمریکا، سنتکام، عصر پنج‌شنبه با انتشار تصویری از تمرین‌های نظامی نیروهای آمریکایی گفت این نیروها در راستای اجرای محاصره دریایی جمهوری اسلامی تاکنون مسیر ۷۲ کشتی تجاری را تغییر داد‌ه‌اند‌ و ۴ کشتی را نیز از کار انداختند.
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217771
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺اعتصاب غذای یک بریتانیایی در زندان اوین؛ رژیم ایران کرگ فورمن را «ملاقات ممنوع» کرده است
-
-◾️کرگ فورمن، شهروند بریتانیایی زندانی در اوین، در اعتراض به محرومیت از ملاقات و محدودیت‌های اعمال‌شده علیه خود و همسرش، اعتصاب غذا کرده است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/iran-prison-british-tourists-visit-evin/8150052.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217770
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️از سفره‌های خالی تا حواشی بی‌پایان تیم فوتبال جمهوری اسلامی؛ واکنش کاربران در شبکه‌های اجتماعی
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217769
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️نهادهای حقوق بشری گزارش دادند عرفان عربی، دانشجوی ۲۰ ساله، به ۸ سال حبس محکوم شده. مهدی شفاخواه،⁩ مربی داوطلب کودکان کار هم بازداشت شده است
-
 @FarsiVOA
 </div>
 

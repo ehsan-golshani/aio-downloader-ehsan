@@ -1,8 +1,80 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 08:33
+📅 آخرین بروزرسانی: 1405/02/26 12:48
 
 ---
+
+## WithYashar — post 11379
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آسوشیتدپرس: بازگشت ناو هواپیمابر جرالد فورد به پایگاه پس از ۱۱ ماه مأموریت
+
+وزارت‌جنگ آمریکا اعلام کرد پیت هگست، وزیر جنگ، روز شنبه در پایگاه دریایی نورفولک در ویرجینیا از ناو هواپیمابر جرالد فورد و ۴۵۰۰ ملوان آن پس از ۱۱ ماه مأموریت استقبال می‌کند.
+این ناو ۳۲۶ روز در دریا بوده که طولانی‌ترین استقرار یک ناو هواپیمابر آمریکایی در ۵۰ سال گذشته و سومین رکورد از زمان جنگ ویتنام است.
+@withyashar
+</div>
+
+## WithYashar — post 11378
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال N12 اسرائیل: جنگ سوم با ایران نزدیک است
+@withyashar
+</div>
+
+## WithYashar — post 11377
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نامه زرشکیان به پاپ: ما به راهکارهای دیپلماتیک برای حل و فصل مسائل، از جمله پرونده‌های اختلافی با آمریکا، پایبندیم و بعد برقراری امنیت، عبور از تنگه هرمز به حالت عادی بازخواهد گشت
+@withyashar
+</div>
+
+## WithYashar — post 11376
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رویترز به نقل از یک منبع آگاه گزارش داد که متیاس گرافستروم، دبیرکل فیفا، امروز در استانبول با مقام‌های فدراسیون فوتبال ایران دیدار می‌کند و درباره حضور تیم ملی در جام جهانی ۲۰۲۶ «اطمینان خاطر» خواهد داد. این درحالی است که مهدی تاج پیش از این خواستار تضمین‌هایی از فیفا شده بود.
+@withyashar
+</div>
+
+## WithYashar — post 11375
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کرملین امروز اعلام کرد که ولادیمیر پوتین، رئیس‌جمهور روسیه ۱۹ مه (۲۹ اردیبهشت) برای یک سفر دو روزه به چین خواهد رفت. این سفر در پی سفر دونالد ترامپ، رئیس‌جمهور آمریکا به پکن انجام می‌شود.
+@withyashar
+</div>
+
+## WithYashar — post 11374
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چمران رئیس شورای شهر تهران:
+
+رایگان اعلام کردن مترو و اتوبوس در تهران کار احساسی بود و فردا آخرین روز رایگان بودن حمل و نقل عمومی در تهران است و تمدید نخواهد شد.
+@withyashar
+</div>
+
+## WithYashar — post 11373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شریعتمداری: مذاکره به جای خود، اما جنگ بدون پاسخ پایان نمی‌یابد/ با شهادت آقا شروع کردند بی‌انتقام تمام نمی‌کنیم
+@withyashar
+</div>
+
+## WithYashar — post 11372
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۲ اسرائیل گزارش داد انتظار می‌رود دونالد ترامپ، رییس‌جمهوری آمریکا، طی ۲۴ ساعت آینده تیم مشاوران نزدیک خود را تشکیل دهد تا درباره ایران تصمیم نهایی بگیرد. برآوردها در اسرائیل حاکی است تصمیم درباره اقدام نظامی ممکن است بسیار به‌زودی اتخاذ شود.
+
+برنامه تلویزیونی «اولپن شیشی» به نقل از یک مقام ارشد اسرائیلی گزارش داد که «ازسرگیری درگیری نزدیک است» و اسرائیل خود را برای احتمال «چند روز تا چند هفته جنگ» آماده می‌کند.
+@withyashar
+</div>
+
+## WithYashar — post 11371
+
+<div align="center"><img src="telegram/content/WithYashar_11371.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری مشاور قالیباف تو اینستاگرام 🤣
+@withyashar
+</div>
 
 ## WithYashar — post 11370
 
@@ -103,55 +175,5 @@
 مجریان صداوسیما برداشتن یه تصویر هوش مصنوعی رو گذاشتن و دارن تحلیلش میکنن!
 😂😂
 @withyashar
-</div>
-
-## WithYashar — post 11358
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط حال من رو فروشنده های بازار که با مردم سر و کله میززند و جماعت زبون نفهم و میبینند درک میکنند
-</div>
-
-## WithYashar — post 11357
-
-## WithYashar — post 11356
-
-## WithYashar — post 11355
-
-## WithYashar — post 11354
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک تایمز به نقل از مقامات آمریکا:
-
-دستیاران ترامپ برنامه‌هایی رو برای بازگشت به حملات نظامی به ایران آماده کردن، اگر او تصمیم بگیره با بمباران بیشتر از بن بست خارج بشه.
-
-از جمله گزینه‌ها، اعزام نیروهای ویژه به ایران برای هدف قرار دادن مواد هسته‌ای مدفون شده است و ممکنه از نیروهای ویژه برای کنترل جزیره خارک استفاده بشه.
-@withyashar
-</div>
-
-## WithYashar — post 11353
-
-<div align="center"><img src="telegram/content/WithYashar_11353.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جلد جدید مجله تایم: چگونه دیدار ترامپ و شی، نظم نوین جهانی را نشان داد
-@withyashar
-</div>
-
-## WithYashar — post 11352
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ خیلی عجله داشته هیچ فیلمی عکسی از رسیدنش نیومده بیرون ! عجبیه
-</div>
-
-## WithYashar — post 11351
-
-<div align="center"><video src="telegram/content/WithYashar_11351.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11351.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-## WithYashar — post 11350
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حوس لوبیا پلو کردم 😅 امشب که بیداریم درست کنم
 </div>
 

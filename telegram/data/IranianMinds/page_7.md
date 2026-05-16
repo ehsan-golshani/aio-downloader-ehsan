@@ -1,8 +1,72 @@
 # آرشیو کانال IranianMinds - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 11:11
+📅 آخرین بروزرسانی: 1405/02/26 13:01
 
 ---
+
+## IranianMinds — post 20101
+
+<div align="center"><video src="telegram/content/IranianMinds_20101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+همیشه معتقد بودم که دو کشور ما منافع مشترک بیشتری نسبت به اختلافات داریم.
+
+موفقیت یکی، فرصتی برای دیگری است و یک رابطه دوجانبه باثبات برای جهان مفید است.
+
+چین و ایالات متحده هر دو از همکاری بهره می‌برند و از مواجهه ضرر می‌کنند. ما باید شریک باشیم، نه رقیب.
+
+باید به یکدیگر کمک کنیم تا موفق شویم، با هم رونق پیدا کنیم و راه درست برای تعامل کشورهای بزرگ در عصر جدید را بیابیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20100
+
+<div align="center"><video src="telegram/content/IranianMinds_20100.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20100.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+در حال حاضر، تحولی که در یک قرن گذشته دیده نشده در سراسر جهان شتاب گرفته و وضعیت بین‌المللی سیال و پرآشوب است.
+
+جهان به یک چهارراه جدید رسیده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20099
+
+<div align="center"><video src="telegram/content/IranianMinds_20099.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20099.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+آیا می‌توانیم، به نفع رفاه مردم هر دو کشور و آینده بشریت، آینده‌ای روشن‌تر برای روابط دوجانبه‌مان بسازیم؟
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20098
+
+<div align="center"><video src="telegram/content/IranianMinds_20098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رئیس ‌جمهور چین به ترامپ:
+
+تمام جهان در حال تماشای دیدار ماست
+
+@IranianMindsi
+</div>
 
 ## IranianMinds — post 20097
 
@@ -205,50 +269,5 @@ https://t.me/+qNjExGEJztE2OGI0
 
 🤖 ربات خرید:
 @Xan_vpn_bot
-</div>
-
-## IranianMinds — post 20080
-
-<div align="center"><img src="telegram/content/IranianMinds_20080.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴لبنان شکایتی رسمی به سازمان ملل ارائه داده است و ایران(جمهوری اسلامی) را به نقض کنوانسیون وین ۱۹۶۱ در مورد روابط دیپلماتیک متهم کرده است.
-در این شکایت، ایران به دخالت مستقیم و آشکار در امور داخلی لبنان و کشاندن این کشور به جنگ متهم شده است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20079
-
-<div align="center"><video src="telegram/content/IranianMinds_20079.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20079.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اکانت اسرائیل به فارسی:
-
-وقتی به زودی به اسرائیل سفر کنید، این منظره زیبا از پنجره هواپیما در انتظار شماست. به امید دیدار شما در تل‌آویو یا تهران.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20078
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عباس عراقچی وارد هند شد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20077
-
-<div align="center"><img src="telegram/content/IranianMinds_20077.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سنتکام با انتشار تصویری از گشت‌زنی جنگنده پنهان‌کار F-35A امریکا بر فراز آب‌های نزدیک تنگه هرمز خبر داد.
-
-به گفته سنتکام، این جنگنده توان حمل تا ۱۸ هزار پوند مهمات را در سرعت مافوق صوت دارد.
-
-@IranianMinds
 </div>
 

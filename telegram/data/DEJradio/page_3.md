@@ -1,8 +1,70 @@
 # آرشیو کانال DEJradio - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/25 22:44
+📅 آخرین بروزرسانی: 1405/02/26 12:51
 
 ---
+
+## DEJradio — post 4614
+
+<div align="center"><video src="telegram/content/DEJradio_4614.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/DEJradio_4614.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🔸 اذیت و آزار دختران دبیرستان شرافت؛
+
+توضیحات فریبرز کرمی‌زند افسر پیشین پلیس درباره اذیت و آزار دختران دبیرستان «شرافت» تهران توسط ماموران امنیتی
+
+#جمهوری_اسلامی #مدرسه_شرافت
+@DEJradio
+</div>
+
+## DEJradio — post 4613
+
+<div align="center"><video src="telegram/content/DEJradio_4613.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/DEJradio_4613.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺🎥 ”ساختمون فرماندهان ارشد سـ.ـپاه در جنگ کاملا داغون شد
+
+یک شهروند خبرنگار از تهران با ارسال ویدیویی از انهدام کامل یکی از اقامتگاه‌های سـ.ـپاه پاسداران نوشت، «این ساختمونی است که فرماندهان ارشد زندگی میکردن همونایی که تو جنگ بمبارون شدن. می‌گن جنگ رو بردیم ولی حتی پول ندارن خونه‌های داغون ‌شده ‌شون رو درست کنن. این دیگه چه جور پیروزیه؟ این فیلمی رو که دیشب تو تهران گرفتم، براتون می‌فرستم.»
+
+#جمهوری_اسلامی #IRGCterrorists
+@DEJradio
+</div>
+
+## DEJradio — post 4612
+
+<div align="center"><video src="telegram/content/DEJradio_4612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/DEJradio_4612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤡🔺 شخم زدن زمین توسط ارتش برای مقابله با فرود هواپیماهای آمریکا
+
+محمد اکرمی‌نیا سخنگوی ارتش جمهوری اسلامی در مصاحبه با ایرنا ادعا کرده است، عملیات آمریکا برای نجات خلبان‌هایی که در ایران سقوط کرده بودند بیشتر «یک عملیات فریب» بود. به گفته اکرمی‌نیا «احتمالا آن عملیات هم برای سرقت اورانیوم غنی‌شده بود.»
+به گفته این مقام ارتش، یکی از اقدامات برای مقابله با ورود نیروهای آمریکایی به خاک ایران، شخم زدن زمین‌ها و باند فرودگاه‌های متروکه بود با این همه آمریکایی‌ها وارد شدند.
+
+#جمهوری_اسلامی #ارتش
+@DEJradio
+</div>
+
+## DEJradio — post 4611
+
+<div align="center"><video src="telegram/content/DEJradio_4611.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/DEJradio_4611.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺📢 من دانشجو هستم و تا چند وقت دیگر باید از ایران بروم. چون سیستم های بین المللی قطع است و پدر و مادرم نمی توانند برایم پول واریز کنند، مجبورم مقدار بیشتری دلار ببرم تا هزینه یکسال را داشته باشم. اکثر دستگاه‌های عابربانک قطع هستند و یا پول نمی دهند و اگر هم پول می‌دهند بسیار محدود.
+
+دلار هم تا یک سقفی صرافی‌ها می فروشند. گرفتار شده‌ام. اگر وضع مملکت درست بود مجبور نبودم پدرو مادر و دوست و آشنا را ول کنم و با فوق لیسانس دانشگاه امیرکبیر، تازه بروم از نو درس بخوانم.
+مردم همه گرفتارند، بانک‌ها خودشان دنبال پول نقد هستند.
+
+#جمهوری_اسلامی
+@DEJradio
+</div>
 
 ## DEJradio — post 4610
 

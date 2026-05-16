@@ -1,8 +1,44 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 02:29
+📅 آخرین بروزرسانی: 1405/02/26 13:04
 
 ---
+
+## Dirty_Kids — post 389542
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389542.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کجای دنیا دیدید کلاشینکف ببرند توی استودیو تلوزیون آموزش بدن اونهم با تیر واقعی و شلیک کنند به سقف استودیو،جز طویله صداوسیمای رژیمی که صدای نفسهای سقوط رو میشنوه @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389541
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389541.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389541.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کجای دنیا دیدید کلاشینکف ببرند توی استودیو تلوزیون آموزش بدن اونهم با تیر واقعی و شلیک کنند به سقف استودیو،جز طویله صداوسیمای رژیمی که صدای نفسهای سقوط رو میشنوه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389539
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389539.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389539.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دیشب صداوسیما اسلحه داده بود دست مجریاش تا برای دشمن رجز بخونن و تهدید کنن!
+
++ بوی سقوط و ضعف مساویس با دست‌وپای بیشتر
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389538
 
@@ -235,37 +271,5 @@ A25
 
 
 @Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389517
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389517.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کچل عینکی ریشو دیدین فرار کنید
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389516
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389516.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 کتاب اللمعة البيضاء نوشته آیت الله تبریزی، صفحه ۲۳۵: سینه های حضرت فاطمه انقدر بزرگ و دراز بوده که میتونسته اونو از شونه هاش بندازه پشت سرش و به بچه هاش شیر بده!
-
-همچنین سینه های حضرت فاطمه همیشه بوی خوب میداده و پیامبر سرشو بین سینه های حضرت فاطمه میذاشته تا اونو بو کنه.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389515
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389515.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یعنی این فیلم The Odyssey که قراره بسازن مزخرف ترین فیلمی خواهد بود که تاحالا ساخته شده! نقش آشیل رو قراره یه زن تغییر جنسیت داده بازی کنه و نقش هلن رو قراره یه سیاه پوست لاغر.🥴 حتی به دول آشیل و رنگ پوست هلن هم رحم نگردن این چپهای کسخل @Dirty_Kids 👻
 </div>
 

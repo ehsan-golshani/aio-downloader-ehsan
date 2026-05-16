@@ -1,8 +1,31 @@
 # آرشیو کانال ManotoTV - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 11:08
+📅 آخرین بروزرسانی: 1405/02/26 12:58
 
 ---
+
+## ManotoTV — post 105425
+
+<div align="center"><video src="telegram/content/ManotoTV_105425.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/ManotoTV_105425.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس‌جمهوری آمریکا، صبح پنج‌شنبه در جریان سفر خود به پکن همراه با شی جین‌پینگ، رئیس‌جمهوری چین، در مراسم رسمی استقبال و رژه نیروهای نظامی این کشور شرکت کرد.
+این مراسم در مقابل ساختمان «تالار بزرگ خلق» برگزار شد و دو رهبر ضمن بازدید از یگان‌های نظامی، شاهد اجرای مراسم سان و رژه نیروهای ارتش چین بودند.
+</div>
+
+## ManotoTV — post 105424
+
+<div align="center"><video src="telegram/content/ManotoTV_105424.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/ManotoTV_105424.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌
+مهدی تاج، رئیس فدراسیون فوتبال ایران، درباره انتشار آهنگی از سوی معین، برای تیم فوتبال در جام‌جهانی گفت فدراسیون فوتبال در تولید این کار دخیل نبوده، اما «در جریان» این موضوع است.
+تاج افزود: «هر کسی از ایران حمایت کند، مورد تایید ماست.»
+</div>
 
 ## ManotoTV — post 105423
 
@@ -260,26 +283,5 @@
 مدیر ارتباطات کاخ سفید در توضیح عکس‌ها به شوخی به «Nike Tech ونزوئلا» اشاره کرد.
 
 روبیو در جریان سفر دونالد ترامپ به چین او را همراهی می‌کند؛ سفری که محور آن مسائل تجاری و امنیتی عنوان شده است.
-</div>
-
-## ManotoTV — post 105404
-
-<div align="center"><video src="telegram/content/ManotoTV_105404.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/ManotoTV_105404.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سنتکام اعلام کرده یک جنگنده رادارگریز اف-۳۵آ نیروی هوایی آمریکا بر فراز آب‌های منطقه‌ای نزدیک تنگه هرمز عملیات گشت‌زنی انجام داده است و این جنگنده اف-۳۵آ توانایی حمل تا ۱۸ هزار پوند مهمات را دارد و در عین حال می‌تواند با سرعت مافوق صوت پرواز کند.
-</div>
-
-## ManotoTV — post 105403
-
-<div align="center"><video src="telegram/content/ManotoTV_105403.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/ManotoTV_105403.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایال زمیر، رییس ستاد کل ارتش اسرائیل، در جریان سفر به کرانه باختری گفت: «ما در همه جبهه‌ها واقعیت امنیتی جدیدی ایجاد کرده‌ایم، با این حال نبرد به پایان نرسیده است.»
-او افزود: «ارتش اسرائیل برای ازسرگیری جنگ در صورت نیاز آماده است و در دفاع و حمله، از یهودا و سامره تا تهران، در آمادگی و هوشیاری دائم قرار دارد.
 </div>
 

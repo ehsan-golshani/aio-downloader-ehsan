@@ -1,8 +1,250 @@
 # آرشیو کانال alonews - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 11:16
+📅 آخرین بروزرسانی: 1405/02/26 13:06
 
 ---
+
+## alonews — post 120351
+
+## alonews — post 120350
+
+## alonews — post 120349
+
+<div align="center"><video src="telegram/content/alonews_120349.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120349.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری / ارتش اسرائیل : عزالدین الحداد فرمانده گردان‌های القسام، همراه با محافظ‌هاش ترور شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120348
+
+<div align="center"><video src="telegram/content/alonews_120348.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120348.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر جدید نفت عراق، باسم محمد، اعلام کرد که عراق در ماه آوریل/نیمان ۱۰ میلیون بشکه نفت خود را از طریق تنگه هرمز صادر کرده است.
+
+
+🔴وی توضیح داد که عراق قصد دارد با سازمان اوپک همکاری کند تا تولید و ظرفیت صادرات کشور را افزایش دهد و افزود که بغداد هدف دارد به ظرفیت تولید روزانه ۵ میلیون بشکه دست یابد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120347
+
+<div align="center"><video src="telegram/content/alonews_120347.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120347.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سنتکام به نیویورک تایمز : کشتی‌های ایرانی رو با ماهواره و چند روش دیگه ردیابی می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120346
+
+<div align="center"><video src="telegram/content/alonews_120346.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120346.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈منابع پاکستانی: سومین کشتی گاز مایع قطر با عبور از تنگه هرمز در کراچی پهلو گرفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120345
+
+<div align="center"><video src="telegram/content/alonews_120345.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120345.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قطارهای چین به ایران سه برابر شد
+
+
+🔴با وجود محاصره دریایی آمریکا، قطارهای باری چین به ایران از هفته‌ای یک بار به هر سه تا چهار روز یکبار رسیده‌ است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120344
+
+<div align="center"><video src="telegram/content/alonews_120344.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120344.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سخنگوی وزارت کشور: از نمایندگان مجلس توقع داریم در اظهارنظرهای خود در موضوعات مختلف بیشتر دقت کنند؛ انسجام ملی باید حفظ شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120343
+
+<div align="center"><video src="telegram/content/alonews_120343.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120343.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: نام افرادی را که در نزدیکی اورانیوم های غنی‌شده ایران هستند، می‌دانیم. پنجاه درصدشان اسمشان محمد است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120342
+
+<div align="center"><video src="telegram/content/alonews_120342.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120342.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پراید هم رویا شد ...
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120340
+
+<div align="center"><video src="telegram/content/alonews_120340.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120340.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ارتش اوکراین بامداد امروز با استفاده از پهپاد های خود حمله‌ای به یک کارخانه شیمیایی در منطقه نوینومیسک انجام داد که این کارخانه به طور فعال مواد منفجره را برای صنایع نظامی روسیه تولید می‌کرد و همچنین کارخانه صنایع فلزی متالیست پلاس در نابورژنیه چلنی روسیه نیز مورد حمله قرار گرفت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120339
+
+<div align="center"><video src="telegram/content/alonews_120339.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120339.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈تایوان به ترامپ و چین پاسخ داد: ما تابع پکن نیستیم
+
+
+
+
+🔴پس از آنکه ترامپ بعد از دیدار با شی جین پینگ گفت دنبال استقلال تایوان نیست، تایپه پاسخ داد: «تایوان یک کشور دموکراتیک، مستقل و دارای حاکمیت است و تابع جمهوری خلق چین نیست.»
+
+
+🔴این پاسخ نشان میدهد تایوان نمیخواهد در معامله بزرگ واشنگتن و پکن، فقط به یک کارت مذاکره تبدیل شود. ترامپ با احتیاط حرف میزند تا با چین وارد درگیری تازه نشود، اما تایپه هم میخواهد روشن کند که هویتش را با سکوت دیپلماتیک دیگران تعریف نمیکند.
+
+
+🔴برای پکن، این جمله تحریک‌آمیز است. برای واشنگتن، یادآوری دردسرساز است. چون هرچه ترامپ بخواهد پرونده تایوان را آرام نگه دارد، خود تایوان نشان میدهد حاضر نیست استقلال عملی‌اش زیر سایه توافق‌های پشت پرده کم‌رنگ شود
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120338
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت استثنایی گیگی 
+2️⃣
+2️⃣
+2️⃣ تحویل زیر یک دقیقه
+✅ دارای لینک سابسکریشن جهت دیدن حجم و کنترل مصرف
+✅ بدون قطعی 
+✅ بدون محدودیت کاربر و زمان
+✅ جمینایو چت جی بی تی و... کامل اوکیه با سرورامون
+✅ 
+🏪پشتیبانی کامل
+✅ شروع فعالیت از سال 2022 
+✅ پرداخت ریالی
+✅ ضریب و این چیزا…
+</div>
+
+## alonews — post 120337
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار جنگ الونیوز AloNews pinned a photo
+</div>
+
+## alonews — post 120336
+
+<div align="center"><video src="telegram/content/alonews_120336.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120336.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈دوستان این تبلیغاتی که پائین کانال نمایش داده میشه کلاهبرداری هست و توسط خود تلگرام انجام میشه و از دست ما خارجه
+
+
+🔴به هیچ عنوان اعتماد نکنید چون سرمایتون میره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120335
+
+<div align="center"><video src="telegram/content/alonews_120335.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120335.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 انفجار ناشی از امحای مهمات در دزفول
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120334
+
+<div align="center"><img src="telegram/content/alonews_120334.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت استثنایی گیگی 
+2️⃣
+2️⃣
+2️⃣
+
+تحویل زیر یک دقیقه
+✅
+دارای لینک سابسکریشن جهت دیدن حجم و کنترل مصرف
+✅
+بدون قطعی 
+✅
+بدون محدودیت کاربر و زمان
+✅
+جمینایو چت جی بی تی و... کامل اوکیه با سرورامون
+✅
+
+🏪پشتیبانی کامل
+✅
+شروع فعالیت از سال 2022 
+✅
+پرداخت ریالی
+✅
+
+ضریب و این چیزا ندارن و تا آخرین مگابایت برای پشتیبانیش درختمتیم
+🥂
+
+
+⭐️ @Napsternetiran_bot
+〰️〰️〰️〰️〰️〰️〰️
+
+
+🔶 @Napsternetvirani
+</div>
 
 ## alonews — post 120333
 
@@ -38,168 +280,6 @@
 🔴وزارت جنگ آمریکا اعلام کرد پیت هگست، وزیر جنگ، روز شنبه در پایگاه دریایی نورفولک در ویرجینیا از ناو هواپیمابر جرالد فورد و ۴۵۰۰ ملوان آن پس از ۱۱ ماه مأموریت استقبال می‌کند.
 
 🔴این ناو ۳۲۶ روز در دریا بوده که طولانی‌ترین استقرار یک ناو هواپیمابر آمریکایی در ۵۰ سال گذشته و سومین رکورد از زمان جنگ ویتنام است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کپیتال اکونومیست: قیمت نفت به ۱۵۰ دلار در هر بشکه خواهد رسید
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120329
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیروی هوایی اوکراین اعلام کرد: 269 پهپاد از 294 پهپاد پرتاب شده توسط ارتش روسیه را شب گذشته سرنگون کرده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیویورک تایمز گزارش می‌دهد که نیروهای نظامی آمریکا "در حال آماده‌سازی برای دور دیگری از حملات هستند... این بار با شدت بیشتر. این حملات ممکن است از روز دوشنبه آغاز شود. اهداف نظامی بیشتری از ایران در نظر گرفته شده است که شامل زیرساخت‌ها نیز می‌شود."
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120325
-
-<div align="center"><img src="telegram/content/alonews_120325.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شب گذشته در بسیاری از برنامه های صداوسیما، مجریان با تفنگ حاضر شدند!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120324
-
-<div align="center"><video src="telegram/content/alonews_120324.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120324.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مارکو روبیو: چین کاری را انجام می‌دهد که من اگر رهبر چینی بودم انجام می‌دادم. آن‌ها تلاش می‌کنند در تمام این صنایع کلیدی آینده بر جهان مسلط شوند.
-
-🔴 شاید ما از آن خوشمان نیاید، اما این همان کاری است که آن‌ها انجام خواهند داد زیرا به نفع بهترین منافع خود عمل می‌کنند. ما نیز باید به نفع بهترین منافع خود عمل کنیم.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120323
-
-<div align="center"><video src="telegram/content/alonews_120323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈روبیو: اگر جی دی ونس کاندیدای ریاست جمهوری شود، اولین نفری هستم که از او حمایت می کنم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120322
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈روزنامه عبری هاآرتص: چهار ماه از ایجاد «شورای صلح» برای نوار غزه می‌گذرد؛ تاکنون طرح ترامپ اجرا نشده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120321
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: نفت ونزوئلا ما را ثروتمند کرد!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120320
-
-<div align="center"><img src="telegram/content/alonews_120320.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈استوری مشاور قالیباف در اینستاگرام
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120319
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت دادگستری آمریکا با صدور بیانیه‌ای، مدعی شد «محمد باقر سعد داوود السعدی»، شهروند عراقی و از اعضای شاخص کتائب حزب‌الله دستگیر شده و به ایالات متحده منتقل شده است.
-
-🔴وزارت دادگستری آمریکا افزود كه این شهروند عراقی در برابر «سارا نتبورن»، قاضی دادگاه فدرال در منطقه منهتن شهر نیویورک حاضر شده و او دستور بازداشت را تا زمان محاکمه صادر کرده است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سی‌ان‌بی‌سی: ترامپ چند هفته قبل از آنکه به طور علنی سهام شرکت هوش مصنوعی Palantir Technologies را در شبکه Truth Social تحسین کند، سهام این شرکت را خریداری کرد.
-
-🔴سوابق نشان می‌دهد که ترامپ در اوایل سال ۲۰۲۶ بین حدود ۲۴۷,۰۰۰ تا ۶۳۰,۰۰۰ دلار سهام Palantir خریداری کرده است، از جمله چند خرید در ماه مارس. او بعداً این شرکت را در یک پست در Truth Social در آوریل، در زمانی که سهام فناوری به شدت کاهش یافته بود، تبلیغ کرد.
-
-🔴اسناد همچنین نشان می‌دهد که ترامپ در فوریه تا ۵ میلیون دلار سهام Palantir فروخته و سرمایه‌گذاری‌های بزرگ دیگری در حوزه فناوری انجام داده است، از جمله در Nvidia، Apple، Amazon، Microsoft و Oracle.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120317
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کرملین: پوتین در تاریخ ۱۹ و ۲۰ مه به چین سفر خواهد کرد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رسانه‌های عراقی از شنیده‌شدن صدای انفجار در منطقه الکراده بغداد خبر دادند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120315
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈پیام پزشکیان به رهبر کاتولیک‌های جهان: از موضع اخلاقی و منطقی شما در قبال تجاوزات نظامی اخیر به ایران قدردانی می‌کنم
-
-🔴حملات آمریکا و اسرائیل صرفاً علیه ایران نیست، بلکه علیه حاکمیت قانون و ارزش‌های انسانی است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120314
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوووری / منابع روسی: یک جنگنده سوخو-35 نیروی هوایی روسیه، یک جنگنده F-16 فایتینگ فالکون ناتو را سرنگون کرده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120305
-
-<div align="center"><img src="telegram/content/alonews_120305.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رئیس‌جمهور فنلاند: آمریکا از ناتو خارج نخواهد شد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120304
-
-<div align="center"><img src="telegram/content/alonews_120304.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رئیس سازمان اداری و استخدامی: ساعت کاری جدید اداره‌ها از امروز اجرایی می‌شود و تا نیمه شهریور ادامه دارد
 
 ✅ @AloNews خبر جنگ
 </div>
