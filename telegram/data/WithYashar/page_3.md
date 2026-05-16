@@ -1,8 +1,22 @@
 # آرشیو کانال WithYashar - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 15:13
+📅 آخرین بروزرسانی: 1405/02/26 16:21
 
 ---
+
+## WithYashar — post 11350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حوس لوبیا پلو کردم 😅 امشب که بیداریم درست کنم
+</div>
+
+## WithYashar — post 11349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ در تروث : تینا را آزاد کنید
+@withyashar
+تینا پیترز یک مقام انتخاباتی سابق آمریکاست که به‌خاطر دخالت غیرقانونی در سیستم‌های رأی‌گیری بعد از انتخابات 2020 زندانی شده و حالا ترامپ از او حمایت سیاسی می‌کند
+</div>
 
 ## WithYashar — post 11348
 
@@ -120,20 +134,6 @@
 منابع عبری :
 
 گویا ترامپ با یک حمله محدود جهت فشار بر سر تسلیم شدن موافقت کرده است
-@withyashar
-</div>
-
-## WithYashar — post 11330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واشنگتن پست: جمهوری اسلامی واضح‌ترین بازنده دیدار ترامپ از پکن است، با مخالفت علنی پکن با اختلال در هرمز، تعهد به عدم ارسال تجهیزات نظامی به تهران و توافق بر اینکه تنگه «باید باز بماند.»
-@withyashar
-</div>
-
-## WithYashar — post 11328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-l وزارت خارجه آمریکا اعلام کرد آتش‌بس میان لبنان و اسرائیل به مدت ۴۵ روز دیگر تمدید شد.
 @withyashar
 </div>
 

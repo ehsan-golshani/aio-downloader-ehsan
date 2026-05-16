@@ -1,8 +1,21 @@
 # آرشیو کانال WithYashar - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 15:13
+📅 آخرین بروزرسانی: 1405/02/26 16:21
 
 ---
+
+## WithYashar — post 11227
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خسته نباشی یاشار
+نظرت راجب سیم‌کارت پرو چیه به مردم عادی هم دارن میدن الان
+</div>
+
+## WithYashar — post 11226
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لطفا عکس از اس ام اس هایی که رژیم میده برام نفرستید ! خیلی خوشم میاد ! اگه قرار‌باشه هر روز اونا اس ام اس بدن شمام همتون اسکرین بفرستین که نمیشه ! به هیچ عنوان اسکرین ندید دیگه مخصوصا ‌جانفدا رو … مرسی اه
+</div>
 
 ## WithYashar — post 11225
 
@@ -181,22 +194,6 @@ INDOPACOM، فرماندهی نظامی آمریکا برای منطقهٔ «ه�
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبرنگار صداوسیما به نقل از نیروی دریایی سپاه: از شب گذشته تاکنون ۳۰ فروند کشتی از تنگه هرمز با مجوز ایران عبور کرده‌اند
-@withyashar
-</div>
-
-## WithYashar — post 11206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شی جین‌پینگ: چین و ایالات متحده هر دو از همکاری سود می‌برند و از تقابل زیان می‌بینند.
-
-دو کشور ما باید شریک باشند نه رقیب.
-@withyashar
-</div>
-
-## WithYashar — post 11205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ از رئیس‌جمهور چین برای سفر به ایالات متحده در ماه سپتامبر آینده دعوت کرد
 @withyashar
 </div>
 

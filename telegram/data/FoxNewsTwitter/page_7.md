@@ -1,8 +1,50 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 15:14
+📅 آخرین بروزرسانی: 1405/02/26 16:22
 
 ---
+
+## FoxNewsTwitter — post 341680
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341680.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341680.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Secretary of State Marco Rubio stresses the critical need for America to strategically navigate its complex relationship with China:
+
+@seanhannity : “You view China as our top geopolitical foe.”
+
+RUBIO: “Yeah, it’s both our top political challenge geopolitically and it’s also the most important relationship for us to manage.”
+
+“We're going to have interests of ours that are going to be in conflict with interests of theirs; to avoid wars and maintain peace and stability in the world, we're gonna have to manage those.”
+</div>
+
+## FoxNewsTwitter — post 341676
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341676.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: The White House shares brand new photos of President Trump's arrival in China for his landmark state visit, where he will meet with President Xi to discuss major foreign policy and trade issues.
+</div>
+
+## FoxNewsTwitter — post 341675
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341675.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341675.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+RT @TheStoryFNC: “We have time to try him again...”
+
+EXCLUSIVE: South Carolina Attorney General @AGAlanWilson says state will seek speedy trial after Alex Murdaugh’s murder convictions are overturned
+</div>
 
 ## FoxNewsTwitter — post 341674
 

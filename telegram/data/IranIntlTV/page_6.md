@@ -1,8 +1,80 @@
 # آرشیو کانال IranIntlTV - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 15:19
+📅 آخرین بروزرسانی: 1405/02/26 16:27
 
 ---
+
+## IranIntlTV — post 337362
+
+<div align="center"><video src="telegram/content/IranIntlTV_337362.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337362.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از مخاطبان ایران‌اینترنشنال می‌گوید به اختلال دوقطبی مبتلاست و افزایش قیمت و کمبود داروهای اعصاب و روان نگرانی جدی برای او ایجاد کرده است. او تاکید می‌کند این وضعیت روند درمانش را تحت تأثیر قرار داده است.
+
+بازخوانی این پیام و ساخت تصویر برای آن با هوش مصنوعی انجام گرفته است.
+</div>
+
+## IranIntlTV — post 337361
+
+<div align="center"><img src="telegram/content/IranIntlTV_337361.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک مقام ارشد اسرائیلی به کانال ۱۲ گفت تل‌آویو خود را برای احتمال ازسرگیری قریب‌الوقوع جنگ با جمهوری اسلامی آماده می‌کند.
+او با اشاره به روند مذاکرات تهران و واشینگتن گفت: «آمریکایی‌ها به این نتیجه رسیده‌اند که مذاکرات به جایی نمی‌رسد.»
+
+پیش‌تر یسرائیل کاتز، وزیر دفاع اسرائیل گفته بود ماموریت ارتش این کشور درباره ایران کامل نشده و برای این احتمال آماده است که شاید دوباره ناچار به اقدام شود.
+https://iranintl.com/202605150617
+</div>
+
+## IranIntlTV — post 337360
+
+<div align="center"><img src="telegram/content/IranIntlTV_337360.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻ساندی تایمز گزارش داد دیوید بکام و همسرش ویکتوریا با دارایی یک میلیارد و ۱۸۵ میلیون پوندی در فهرست ثروتمندان ۲۰۲۶ این رسانه، به نخستین ورزشکار میلیارد پوندی بریتانیا تبدیل شده‌اند. کاپیتان پیشین تیم ملی فوتبال انگلستان پس از سرمایه‌گذاری‌های سودآور در آمریکا به این ثروت دست یافت.
+
+🔹به نوشته ساندی تایمز، سرمایه‌گذاری هوشمندانه در فوتبال آمریکا، بکام را به این جایگاه رسانده است. پرداخت ۲۵ میلیون دلار برای دریافت حق راه‌اندازی باشگاه اینتر میامی ۱۲ سال پیش، بهترین سرمایه‌گذاری دوران ح
+
+🔹امروز سهم او در این باشگاه حدود ۳۰۰ میلیون پوند ارزش دارد. افزایش ارزش باشگاه تا حدی به قرارداد جدید لیونل مسی نیز مربوط است؛ بکام نقش مهمی در تصمیم این ستاره آرژانتینی برای تمدید سه‌ساله قراردادش داشت.
+
+🔹همچنین ثروت ویکتوریا بکام، ۵۲ ساله، نیز به دلیل موفقیت برند مد او افزایش یافته است. دیوید در سال‌های ابتدایی ۲۳ میلیون پوند در این برند سرمایه‌گذاری کرد و اکنون درآمد سالانه آن از ۱۰۰ میلیون پوند فراتر رفته است.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337359
+
+<div align="center"><img src="telegram/content/IranIntlTV_337359.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنیامین نتانیاهو، نخست‌وزیر و یسرائیل کاتز، وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور، عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است.
+عزالدین حداد، از فرماندهان ارشد گردان‌های عزالدین قسام، شاخه نظامی حماس است.
+https://iranintl.com/202605154092
+</div>
+
+## IranIntlTV — post 337358
+
+<div align="center"><video src="telegram/content/IranIntlTV_337358.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337358.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ گفت: «من از کسی امتیاز درخواست نمی‌کنم، چون وقتی امتیاز بخواهی، باید خودت هم امتیاز بدهی و ما نیازی به این کار نداریم.»
+
+او افزود: «در عمل، نیروهای نظامی ایران را از بین بردیم. شاید هنوز کمی عملیات تکمیلی لازم باشد، چون حدود یک ماه پیش آتش‌بس اعلام کردیم. اما محاصره بسیار موثری ایجاد شد و هدف اصلی هم همین بود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎧نسخه صوتی اخبار شبانگاهی | جمعه ۲۵ شهریور
+@iranintlTV
+</div>
 
 ## IranIntlTV — post 337356
 
@@ -203,68 +275,5 @@ https://iranintl.com/202605151087
 https://youtu.be/1W2RoMvSqPQ
 
 @iranintltv
-</div>
-
-## IranIntlTV — post 337342
-
-<div align="center"><img src="telegram/content/IranIntlTV_337342.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدمهدی حسینی‌همدانی، امام جمعه کرج، ۲۵ اردیبهشت در نماز جمعه این شهر گفت: بر اساس توصیه قرآن باید تا پایان «فتنه»، جنگ را ادامه داد و تاکید کرد مجازات اسرائیل، محو کامل آن است.
-
-او همچنین اطاعت از مجتبی خامنه‌ای را عامل پیروزی خواند و گفت باید عوامل نافرمانی را از میان برداشت.
-https://iranintl.com/202605155975
-</div>
-
-## IranIntlTV — post 337341
-
-<div align="center"><video src="telegram/content/IranIntlTV_337341.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337341.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام‌های ارسالی مخاطبان به ایران‌اینترنشنال از کمبود و گرانی داروهای حوزه سلامت حکایت دارد. یک شهروند شاغل در صنعت دارو می‌گوید شربت «لیسکانتین» برای بیماران صرع و تشنج نایاب شده و قیمت آن از ۹۰۰ هزار تومان به ۴ میلیون و ۲۰۰ هزار تومان افزایش یافته است.
-جزییات بیشتر با سبا حیدرخانی، عضو تحریریه ایران‌اینترنشنال
-@iranintltv
-</div>
-
-## IranIntlTV — post 337340
-
-<div align="center"><video src="telegram/content/IranIntlTV_337340.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337340.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در تازه‌ترین نظرسنجی جهانی، کانادا برای نخستین‌بار به‌عنوان جذاب‌ترین مقصد سرمایه‌گذاری زیرساختی معرفی شد. انجمن سرمایه‌گذاران زیرساخت جهانی، سیاست‌های جذب سرمایه خصوصی و ایجاد صندوق ثروت ۲۵ میلیارد دلاری را از عوامل اصلی این جایگاه دانست.
-مهسا مرتضوی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
-@iranintltv
-</div>
-
-## IranIntlTV — post 337339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام‌های ارسالی مخاطبان به مدیا بات ایران‌اینترنشنال از گرانی، کمبود و نایاب شدن دارو و اقلام حوزه سلامت حکایت دارد. یک شهروند می‌گوید حتی داروهای ساده و مسکن‌هایی مانند قرص کدئین نیز نایاب شده‌اند.
-@iranintltv
-</div>
-
-## IranIntlTV — post 337338
-
-<div align="center"><img src="telegram/content/IranIntlTV_337338.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های ایران اعلام کردند نمایشگاه کتاب تهران امسال به صورت «مجازی» برگزار خواهد شد.
-بر اساس این خبر، نمایشگاه کتاب تهران از روز شنبه، ۲۶ اردیبهشت و به صورت آنلاین آغاز خواهد شد.
-باوجود آتش‌بس میان جمهوری اسلامی و آمریکا، بسیاری از برنامه‌های عادی در ایران همچنان تعطیل بوده یا به‌صورت مجازی برگزار می‌شود.
-https://iranintl.com/202605157688
-</div>
-
-## IranIntlTV — post 337337
-
-<div align="center"><video src="telegram/content/IranIntlTV_337337.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337337.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال پیامی به ایران اینترنشنال درباره گرانی‌ها از افزایش شدید نوشیدنی‌های الکلی در ایران خبر داده و می‌گوید هر لیتر «عرق سگی» یک میلیون و ۵۰۰ هزار تومان شده است. پیام این مخاطب با هوش مصنوعی خوانده شده است.
 </div>
 

@@ -1,8 +1,53 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 15:14
+📅 آخرین بروزرسانی: 1405/02/26 16:22
 
 ---
+
+## FoxNewsTwitter — post 341811
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341811.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+A retired Navy admiral warns UFOs may be controlled by a “higher-order non-human intelligence.”
+
+Tim Gallaudet, considered to be one of America’s leading voices on the UAP phenomenon, says he’s seen “data videos” showing craft moving seamlessly between the ocean and atmosphere at speeds beyond known technology.
+
+“I know we are aware of higher order non-human intelligence that direct the movement of these phenomena,” he said.
+</div>
+
+## FoxNewsTwitter — post 341810
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341810.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+A retired Navy admiral warns UFOs may be controlled by a “higher-order non-human intelligence.”
+
+Tim Gallaudet, considered to be one of America’s leading voices on the UAP phenomenon, says he’s seen “data videos” showing craft moving seamlessly between the ocean and atmosphere at speeds beyond known technology.
+
+“I know we are aware of higher order non-human intelligence that direct the movement
+of these phenomena,” he said.
+</div>
+
+## FoxNewsTwitter — post 341809
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341809.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341809.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+Empty Waymo cars swarm an Atlanta neighborhood, repeatedly circling cul-de-sacs and leaving residents frustrated and confused.
+
+One local estimated nearly 50 self-driving cars rolled through the area in a single morning, with several clogging the road as they struggled to maneuver around one another.
+
+Waymo said it had “already addressed this routing behavior.”
+</div>
 
 ## FoxNewsTwitter — post 341808
 
@@ -232,45 +277,5 @@ WATCH: Vice President JD Vance delivers a powerful tribute at the 45th Annual Na
 Addressing the families and colleagues of the fallen, Vance characterized the life of a peace officer as one defined by an unwavering sense of duty.
 
 "We gather this afternoon to honor men and women who heard the exact same call, men and women whose selflessness led them toward danger when others fled. People who said, send me, not send somebody else, but send me. People whom service was a way of life, not a burden."
-</div>
-
-## FoxNewsTwitter — post 341789
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341789.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341789.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-RT @SpecialReport: TONIGHT at 6 PM ET: @BretBaier sits down with @POTUS for a full interview on @FoxNews during #SpecialReport. Watch live. #Trump #Interview
-</div>
-
-## FoxNewsTwitter — post 341788
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341788.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341788.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: U.S. Attorney Jeanine Pirro announces a major crackdown on parents who let their children take part in teen takeovers that have been causing chaos throughout Washington, D.C.
-
-Pirro vows to prosecute parents who fail to supervise their children, threatening the adults with fines and even jail times.
-
-"If the evidence shows the parent knew or should have known or permitted or failed to prevent participation, we're going to charge them."
-
-"If you drop your kid off and you fail to supervise them, or you let them skip school to join the chaos, you are going to face fines, court ordered classes, and possible jail time"
-</div>
-
-## FoxNewsTwitter — post 341787
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341787.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: VP Vance speaks at National Peace Officers’ Memorial Service https://twitter.com/i/broadcasts/1OxwblyqbYWJB
 </div>
 

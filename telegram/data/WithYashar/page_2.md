@@ -1,8 +1,19 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 15:13
+📅 آخرین بروزرسانی: 1405/02/26 16:21
 
 ---
+
+## WithYashar — post 11371
+
+<div align="center"><img src="telegram/content/WithYashar_11371.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری مشاور قالیباف تو اینستاگرام 🤣
+@withyashar
+</div>
+
+## WithYashar — post 11370
 
 ## WithYashar — post 11369
 
@@ -146,18 +157,4 @@
 <div align="center"><video src="telegram/content/WithYashar_11351.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="telegram/content/WithYashar_11351.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-## WithYashar — post 11350
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حوس لوبیا پلو کردم 😅 امشب که بیداریم درست کنم
-</div>
-
-## WithYashar — post 11349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در تروث : تینا را آزاد کنید
-@withyashar
-تینا پیترز یک مقام انتخاباتی سابق آمریکاست که به‌خاطر دخالت غیرقانونی در سیستم‌های رأی‌گیری بعد از انتخابات 2020 زندانی شده و حالا ترامپ از او حمایت سیاسی می‌کند
-</div>
 

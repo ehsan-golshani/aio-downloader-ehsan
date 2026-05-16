@@ -1,8 +1,34 @@
 # آرشیو کانال IranianMinds - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 15:26
+📅 آخرین بروزرسانی: 1405/02/26 16:34
 
 ---
+
+## IranianMinds — post 20088
+
+<div align="center"><img src="telegram/content/IranianMinds_20088.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴رئیس جمهور ترامپ آماده است عملیات پتک را علیه رژیم تروریستی ایران آغاز نماید.
+دولت او می‌گوید این اقدام، ساعت قانونی اختیارات جنگی را دوباره تنظیم می‌کند و ۶۰ روز فرصت عملیات رزمی پیش از دخالت کنگره می‌دهد.
+رژیم ایران دستپاچه در حال آماده‌سازی است، اما عملیات به احتمال زیاد بلا‌فاصله پس از سفر رسمی چین آغاز خواهد شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20087
+
+<div align="center"><img src="telegram/content/IranianMinds_20087.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 اکانت اسرائیل به فارسی:
+
+محمد عباسی و دخترش فاطمه در دی‌ماه دستگیر شدند.
+محمد را بدون ملاقات آخر، امروز صبح اعدام کردند.
+جمهوری اسلامی روی خون مردمش حکومت می‌کند.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20086
 

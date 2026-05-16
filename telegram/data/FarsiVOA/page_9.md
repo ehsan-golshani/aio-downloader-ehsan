@@ -1,8 +1,29 @@
 # آرشیو کانال FarsiVOA - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 15:24
+📅 آخرین بروزرسانی: 1405/02/26 16:31
 
 ---
+
+## FarsiVOA — post 217713
+
+<div align="center"><img src="telegram/content/FarsiVOA_217713.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روزنامه شرق با اشاره به «افزایش اخراج کارگران» و «شرایط غیرمعقول دریافت بیمه بیکاری»، در گزارشی نوشت: «این روزها بیمه بیکاری برای بسیاری از نیروهای تعدیل‌شده، نه یک حمایت اجتماعی، بلکه مسیری فرساینده و مبهم است.»
+
+هم‌زمان با موج تازه تعدیل نیرو در برخی رسانه‌ها، شرکت‌ها و مجموعه‌های تولیدی، شمار متقاضیان بیمه بیکاری افزایش یافته، اما بسیاری از متقاضیان از حمایت‌های لازم برخوردار نیستند.
+
+نداشتن قرارداد کاری یا در اختیار نداشتن نسخه‌ای از قرارداد، عدم پرداخت به موقع حق بیمه از سوی کارفرما، اشکالات فنی سامانه ثبت درخواست بیمه بیکاری، انتظارهای طولانی مدت برای بررسی پرونده و پاسخگو نبودن تأمین اجتماعی و وزارت کار از جمله مهم‌ترین مشکلاتی است که روزنامه شرق به آن اشاره کرده است.
+
+در این گزارش آمده است که روابط عمومی بیمه تأمین اجتماعی، مسئولیت مشکلات «ثبت درخواست بیمه بیکاری»را متوجه وزارت کار دانسته و در مقابل پروانه رضایی‌بختیاری، معاون روابط کار وزارت کار، علت را «پایین‌بودن سطح سواد دیجیتال برخی متقاضیان» بیان کرده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس جمهوری آمریکا، روز پنج‌شنبه طی سخنانی که در مهمانی شام رسمی که به افتخار او در پکن برگزار شده است، گفت که دو طرف «گفت‌وگوها و نشست‌های بسیار مثبت و سازنده‌ای» داشته‌اند. او رابطه آمریکا و چین را یکی از «سرنوشت‌سازترین روابط در تاریخ جهان» توصیف کرد.
+</div>
 
 ## FarsiVOA — post 217711
 
@@ -251,28 +272,6 @@ https://ir.voanews.com/a/8149914.html
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️راهبرد چین در خلیج فارس؛ انرژی حرف اول را می‌زند
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217692
-
-<div align="center"><video src="telegram/content/FarsiVOA_217692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️چه توقعات اقتصادی می‌توان از سفر دونالد ترامپ به چین داشت؟ گفت‌وگو با نادر حبیبی
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217691
-
-<div align="center"><video src="telegram/content/FarsiVOA_217691.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217691.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️گزارش خبرنگار اعزامی صدای آمریکا از سفر رئیس جمهوری آمریکا به چین
 @FarsiVOA
 </div>
 

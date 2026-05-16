@@ -1,8 +1,27 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 15:29
+📅 آخرین بروزرسانی: 1405/02/26 16:36
 
 ---
+
+## Dirty_Kids — post 389555
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389555.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سپاه یه فراخوان داد که افراد بالای 12 سال به عنوان رزمنده بیان دوره فعالیت دفاعی ببینن. یه دانش آموز 16 ساله به اسم محمدامین صابرکار میره توی دوره آموزشی شرکت کنه که در حین آموزش بر اثر شلیک خودی کشته میشه!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389554
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389554.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تراپی @Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389553
 
@@ -39,8 +58,6 @@
 </div>
 
 ## Dirty_Kids — post 389550
-
-<div align="center"><a href="telegram/content/derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✅ اپلیکیشن اندروید سایت جهانی دربی بت
@@ -247,42 +264,6 @@ A25
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عمو مانوک؛ اخلاق رضاشاه
 
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389533
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389533.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پاتو لیس بزن گه اضافه نخور 😂😂
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389532
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389532.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389532.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-املاکی در مصاحبه با Bret Baier مجری برنامه Special Report شبکه فاکس نیوز در خصوص خواری که رژیم کسمغز روافض در مذاکرات ازش گاییدن فرموده که:
-
-
-«ما واقعاً به نوعی از پایه‌های یک توافق رسیده بودیم. بدون سلاح هسته‌ای.
-
-اون‌هزارپدرای قحبه‌ قرار بود غبار هسته‌ای رو به ما تحویل بدن، همه چیو، هر چیزی که ما می‌خواستیم.
-
-و هر بار که توافقی می‌کنن، این پدرخرابا روز بعدش به جوری رفتار می‌کنن که انگار ما از اساس همچی گفتگویی نداشتیم، و این اتفاق حدود پنج بار رخ داده.
-
-یک مشکلی در این مادرقحبه‌های رافضی وجود داره، در واقع این حرومیا دیونه میوونه‌اند. [علاوه بر کسمغزی،خدعه‌زاده‌ان شیر خدا. اما خب دو بار گاییدی‌شون و فهمیدن اون ممه رو لولو خورد]
-
-و می‌دونید چیه؟ به همین دلیل، این جاکش‌پدرا‌ نباید سلاح هسته‌ای داشته باشن»
-
-﻿
 
 @Dirty_Kids 👻
 </div>

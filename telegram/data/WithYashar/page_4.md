@@ -1,8 +1,22 @@
 # آرشیو کانال WithYashar - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 15:13
+📅 آخرین بروزرسانی: 1405/02/26 16:21
 
 ---
+
+## WithYashar — post 11330
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واشنگتن پست: جمهوری اسلامی واضح‌ترین بازنده دیدار ترامپ از پکن است، با مخالفت علنی پکن با اختلال در هرمز، تعهد به عدم ارسال تجهیزات نظامی به تهران و توافق بر اینکه تنگه «باید باز بماند.»
+@withyashar
+</div>
+
+## WithYashar — post 11328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+l وزارت خارجه آمریکا اعلام کرد آتش‌بس میان لبنان و اسرائیل به مدت ۴۵ روز دیگر تمدید شد.
+@withyashar
+</div>
 
 ## WithYashar — post 11327
 
@@ -124,8 +138,4 @@
 
 @withyashar
 </div>
-
-## WithYashar — post 11309
-
-## WithYashar — post 11308
 

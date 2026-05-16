@@ -1,8 +1,89 @@
 # آرشیو کانال alonews - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/26 15:32
+📅 آخرین بروزرسانی: 1405/02/26 16:39
 
 ---
+
+## alonews — post 120044
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سنتکام: از آغاز محاصره دریایی بنادر ایران، 72 کشتی تجاری را منحرف و 4 کشتی را از کار انداختیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120043
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزارت خارجه قطر: ما به طور کامل از تلاش‌های پاکستان برای میانجیگری بین آمریکا و ایران حمایت می‌کنیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120042
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سوپر اپ روبیکا بیش از یک ساعته قطع شده
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120041
+
+<div align="center"><img src="telegram/content/alonews_120041.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈محمدباقر قالیباف: پس شما به هگست، مجری تلویزیونی شکست‌خورده، بودجه‌ای می‌دهید که از سال ۲۰۰۷ بی‌سابقه است، تا بتواند در حیاط خلوت ما در هرمز نقش وزیر جنگ را بازی کند؟
+
+🔴می‌دانی چه چیزی دیوانه‌کننده‌تر از ۳۹ تریلیون دلار بدهی است؟ پرداخت حق بیمه پیش از بحران مالی جهانی برای حمایت از یک بازی نقش‌آفرینی زنده (LARP) و تنها چیزی که به دست می‌آوری یک بحران مالی جهانی جدید است.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رئیس‌جمهور ترامپ و هیئت همراهش در طول سفر به چین از تلفن‌ها و لپ‌تاپ‌های جایگزین استفاده کردند به دلیل نگرانی‌هایی که داشتند مبنی بر اینکه مقامات چینی ممکن است از آن‌ها برای نصب نرم‌افزار جاسوسی استفاده کنند، طبق گزارش فاکس نیوز.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120039
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈العربی الجدید: حمله انتحاری، پایگاه نظامی ارتش در منطقه باجور در شمال غربی پاکستان را هدف قرار داد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120038
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈میدل ایست : ارتش دفاعی اسرائیل از فردا که ترامپ چین رو ترک می‌کنه، به بالاترین حالت آماده‌باش وارد میشه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120037
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈طبق گزارش بی‌بی‌سی، شناوری که ایران امروز توقیف کرد، «هوی چوان» نام دارد.
+هوی چوان یکی از چندین کشتی شبح نظامی چین است که پکن از آن‌ها برای پشتیبانی از ارتش‌ها و شبه‌نظامیان در سراسر جهان استفاده می‌کند.
+
+🔴این شناور توسط پیمانکاران نظامی خصوصی چین برای کمک به اسکورت کشتی‌های تجاری در دریای عرب و دور زدن دزدی دریایی، حوثی‌ها و سومالی به کار گرفته می‌شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120036
+
+<div align="center"><img src="telegram/content/alonews_120036.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈بدل شاه فقید در تهران رویت شد
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120035
 
@@ -119,91 +200,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈به گزارش Ynet، آیزاک هرتزوگ، رئیس‌جمهور اسرائیل سفر هفته آینده خود به نیویورک را به دلیل «شرایط مانع از این سفر در این زمان» لغو کرده است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خضریان، عضو کمیسیون امنیت ملی مجلس: ترامپ در جنگ گیر کرده است و با بلوف زدن به دنبال این است که عقب‌های سیاسی را در ایران فعال کند تا مردم را به سوی تسلیم سوق دهند ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خضریان، عضو کمیسیون امنیت ملی مجلس: ترامپ در جنگ گیر کرده است و با بلوف زدن به دنبال این است که عقب‌های سیاسی را در ایران فعال کند تا مردم را به سوی تسلیم سوق دهند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120019
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خروج مرغ زنده از خوزستان ممنوع شد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120018
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عزیزی، رئیس کمیسیون امنیت ملی:
-پیش بینی کردیم که هرکس که ترامپ رو به هلاکت برسونه، 50 میلیون یورو پاداش دریافت کنه.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120017
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️درک گفته های زنده یاد فريدون فرخزاد هنوز برای سه فاسد قابل فهم نيست!!!
-
-🔴حتما این ویدیو رو ببینید.
-
-🤔«مردی که ۵۰سال از زمان خودش جلوتر بود»
-
-✅@AloNews
-</div>
-
-## alonews — post 120016
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شبکه فاکس نیوز از استعفای فرمانده کل گشت مرزی آمریکا خبر داد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شبکه ۱۲ اسرائیل اشاره دارد که تکذیب سفر نتانیاهو از سوی مسئولان اماراتی‌ ناشی از ترس است؛ زیرا ابوظبی می‌ترسد به عنوان یک طرف در محور ضد ایران، ظاهر شود.
-
-🔴امارات در تلاش است است که سطح حضور خود را در مورد روابط با اسرائیل نسبتا پایین نگه دارد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ظهوریان، نماینده مجلس: بخش انرژی کشور ۱۴ میلیارد دلار خسارت دیده است
-
-🔴۸ میلیارد دلار بخش گاز آسیب دیده است
-
-🔴ظرفیت تولید گاز کاهش پیدا کرده
-
-🔴پخش پتروشیمی ۶ میلیارد دلار آسیب دیده است
-
-🔴بخش فولاد ۲.۷ میلیارد دلار آسیب دیده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120013
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نتانیاهو: اورشلیم را تحت حاکمیت اسرائیل برای همیشه حفظ خواهیم کرد.
 
 ✅ @AloNews خبر جنگ
 </div>

@@ -1,8 +1,24 @@
 # آرشیو کانال WithYashar - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/02/26 15:13
+📅 آخرین بروزرسانی: 1405/02/26 16:21
 
 ---
+
+## WithYashar — post 11186
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسنیم: کیفرخواست زیباکلام و مدیرمسئول خبرگزاری آنا صادر شد ممنوعیت زیباکلام از انجام هرگونه فعالیت رسانه‌ای به مدت سه ماه صادر شده
+@withyashar
+</div>
+
+## WithYashar — post 11185
+
+<div align="center"><img src="telegram/content/WithYashar_11185.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقایقی پیش زمین‌لرزه‌ای بسیار شدید ۵ ریشتری در عمق ۸ کیلومتری بردسیر کرمان را لرزاند
+@withyashar
+</div>
 
 ## WithYashar — post 11184
 
@@ -150,8 +166,4 @@ https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
 لحظه استقبال از دونالد ترامپ در پکن، چین
 @withyashar
 </div>
-
-## WithYashar — post 11166
-
-## WithYashar — post 11165
 

@@ -1,8 +1,28 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 15:26
+📅 آخرین بروزرسانی: 1405/02/26 16:34
 
 ---
+
+## IranianMinds — post 20215
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سازمان ملل: نگرانیم، چون ممکنه منطقه بازم دچار تنش و درگیری بشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20214
+
+<div align="center"><img src="telegram/content/IranianMinds_20214.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴جلد جدید مجله تایم:
+
+چگونه دیدار ترامپ و شی، یک نظم نوین جهانی را به نمایش گذاشت.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20213
 
@@ -234,27 +254,6 @@ ge25
 🔴خبرنگار نیویورک‌‌پست:
 
 اعضای هیئت امریکایی همراه ترامپ، قبل از سوار شدن به ایر‌فورس‌وان و ترک چین، همه هدیه‌هایی که چینی‌ها بهشون داده بودند رو درون سطل زباله ریختند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20194
-
-<div align="center"><img src="telegram/content/IranianMinds_20194.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پست کاخ سفید در ایکس:
-حمایت از آلبوم دریک.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وزیر امور‌خارجه چین:
-
-ما خواستار بازگشایی هرچه سریعتر تنگه هرمز هستیم.
 
 @IranianMinds
 </div>

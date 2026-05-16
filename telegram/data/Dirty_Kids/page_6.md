@@ -1,8 +1,32 @@
 # آرشیو کانال Dirty_Kids - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 15:29
+📅 آخرین بروزرسانی: 1405/02/26 16:36
 
 ---
+
+## Dirty_Kids — post 389437
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389437.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ تو چین یه جور داره رفتار میکنه که انگار اون میزبانه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389436
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این چه سمی بود دیدم 😂🔞
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389435
 
@@ -265,29 +289,5 @@ A23
 اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
 ✅https://t.me/+4_ADqwB9e-QwYjlk
 ✅https://t.me/+4_ADqwB9e-QwYjlk
-</div>
-
-## Dirty_Kids — post 389413
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389413.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#بخوابیم
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389412
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زینب موشک دوست🤣🤣🤣
-
-
-@Dirty_Kids 👻
 </div>
 

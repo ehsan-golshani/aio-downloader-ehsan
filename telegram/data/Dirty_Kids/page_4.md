@@ -1,8 +1,33 @@
 # آرشیو کانال Dirty_Kids - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 15:29
+📅 آخرین بروزرسانی: 1405/02/26 16:36
 
 ---
+
+## Dirty_Kids — post 389484
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389484.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچ کودکی نباید اول قصه‌اش از کنار قبر پدرش شروع شود…
+در ایران اما این سرنوشت خیلی از کودکان است.
+#علیرضا_احمدی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389483
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389483.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پستِ خواهرِ جاویدنام سپهر ابراهیمی نشون میده که سپهر هم یه پادشاهی خواه بود ❤️
+این انقلاب و پادشاهی خواها با خونشون به ثمر میرسونن.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389482
 
@@ -213,33 +238,6 @@ A24
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هنوز که هنوزه این ویدئو از درگیری چندتا ایرانی تو جاده ساحلیِ چالوس تو پیج‌های خارجی داره دست به دست میشه و تو اکسپلوره؛
 
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389464
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389464.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری دانشجو : شما فقط نحوه دست دادن رئیس‌جمهور چین با پرفسور رئیسی و ترامپ رو مقایسه کنی، متوجه قدرت ایران میشید... +کسخلیت و کونده‌پرویی اینا حدی نداره :))))) چین فروختتشون توافق کرده با امریکا استقبال بی نظیر کردن از ترامپ بعد رئیسی گوزو ۶ کلاسه‌رو…
-</div>
-
-## Dirty_Kids — post 389463
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389463.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389463.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری دانشجو :
-شما فقط نحوه دست دادن رئیس‌جمهور چین با پرفسور رئیسی و ترامپ رو مقایسه کنی، متوجه قدرت ایران میشید...
-
-+کسخلیت و کونده‌پرویی اینا حدی نداره :)))))
-چین فروختتشون توافق کرده با امریکا
-استقبال بی نظیر کردن از ترامپ
-بعد رئیسی گوزو ۶ کلاسه‌رو همه میریدن بهش از پوتین بگیر تا شی دارن مقایسه میکنن
-﻿
 
 @Dirty_Kids 👻
 </div>

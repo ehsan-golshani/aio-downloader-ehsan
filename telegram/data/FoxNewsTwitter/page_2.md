@@ -1,8 +1,48 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 15:14
+📅 آخرین بروزرسانی: 1405/02/26 16:22
 
 ---
+
+## FoxNewsTwitter — post 341789
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341789.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341789.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+RT @SpecialReport: TONIGHT at 6 PM ET: @BretBaier sits down with @POTUS for a full interview on @FoxNews during #SpecialReport. Watch live. #Trump #Interview
+</div>
+
+## FoxNewsTwitter — post 341788
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341788.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341788.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: U.S. Attorney Jeanine Pirro announces a major crackdown on parents who let their children take part in teen takeovers that have been causing chaos throughout Washington, D.C.
+
+Pirro vows to prosecute parents who fail to supervise their children, threatening the adults with fines and even jail times.
+
+"If the evidence shows the parent knew or should have known or permitted or failed to prevent participation, we're going to charge them."
+
+"If you drop your kid off and you fail to supervise them, or you let them skip school to join the chaos, you are going to face fines, court ordered classes, and possible jail time"
+</div>
+
+## FoxNewsTwitter — post 341787
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341787.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: VP Vance speaks at National Peace Officers’ Memorial Service https://twitter.com/i/broadcasts/1OxwblyqbYWJB
+</div>
 
 ## FoxNewsTwitter — post 341786
 
@@ -237,41 +277,5 @@ NOW: President Trump gives a fist pump as he departs China after a series of cru
 Ahead of his departure, Trump met with Xi and expressed optimism about hosting him in the U.S. this September.
 
 “You're going to walk away hopefully very impressed, like I'm very impressed with China."
-</div>
-
-## FoxNewsTwitter — post 341766
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341766.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341766.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump exits the Beast to fanfare and pumps his fist during a departure ceremony at Beijing Capital International Airport.
-
-Ahead of his departure, Trump met with Chinese President Xi Jinping and expressed optimism about hosting him in the U.S. this September.
-
-“You're going to walk away hopefully very impressed, like I'm very impressed with China."
-</div>
-
-## FoxNewsTwitter — post 341765
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341765.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: President Trump departs Beijing after summit with President Xi https://twitter.com/i/broadcasts/1XxygmDlakEGM
-</div>
-
-## FoxNewsTwitter — post 341764
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341764.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-President Trump took a stroll through Zhongnanhai Garden, part of a powerful Chinese government complex, with President Xi Jinping on his second day of meetings in Beijing.
 </div>
 

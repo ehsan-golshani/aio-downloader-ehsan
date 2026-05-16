@@ -1,8 +1,134 @@
 # آرشیو کانال alonews - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 15:32
+📅 آخرین بروزرسانی: 1405/02/26 16:39
 
 ---
+
+## alonews — post 120384
+
+<div align="center"><video src="telegram/content/alonews_120384.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120384.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈منابع رسمی پاکستانی به الحدث: اسلام‌آباد به دنبال قانع کردن تهران و واشنگتن به «انعطاف» در مذاکره است.
+
+
+🔴اسلام‌آباد به دنبال ادامه روند میانجی‌گری با تمام «جدیّت» است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120383
+
+<div align="center"><video src="telegram/content/alonews_120383.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120383.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قطعی اینترنت وارد روز ۷۸ام شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120382
+
+<div align="center"><video src="telegram/content/alonews_120382.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120382.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ویدیو منتشرشده توسط ارتش آمریکا از عملیات کشتن ابوبلال المینوکی، نفر دوم داعش در نیجریه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120381
+
+<div align="center"><video src="telegram/content/alonews_120381.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120381.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈از عجایب روزگار اینه تو مراسم بزرگداشت فردوسی نوحه پخش کردن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120380
+
+<div align="center"><video src="telegram/content/alonews_120380.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120380.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈شلیک رگباری در پخش مستقیم صداسیما
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120379
+
+<div align="center"><video src="telegram/content/alonews_120379.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120379.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈اردوغان:
+مطالبات ما روشن است. ما اف-۳۵ ها را می‌خواهیم
+
+
+🔴همکاران ما به تماس‌های خود با همتایان آمریکایی‌شان ادامه می‌دهند و امیدواریم نتیجه مثبتی به دست آوریم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120378
+
+<div align="center"><video src="telegram/content/alonews_120378.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120378.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈آخرین قیمت نفت ۱۰۹.۲۶ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120377
+
+<div align="center"><video src="telegram/content/alonews_120377.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120377.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری/شبکه ۱۲ اسرائیل :
+اسرائیل در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120376
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ توجه 
+⚠️
+
+بچه ها فیلترینگ خیلیی شدید شده همین الان که اینترنت دارین حتما جوین بشید و از کانفینگاش استفاده کنید که موقع قطعی خیلی به کارتون میاد
+⏬
+
+https://t.me/+WgqzouUHJ1U3OTY0
+https://t.me/+WgqzouUHJ1U3OTY0
+https://t.me/+WgqzouUHJ1U3OTY0
+</div>
 
 ## alonews — post 120375
 
@@ -95,123 +221,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈ناو شارل دوگل فرانسه، خروجی خلیج عدن - ورودی دریای عرب دیده شده
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120364
-
-<div align="center"><video src="telegram/content/alonews_120364.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120364.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فرماندهی کل نیروی دفاعی بحرین : برای حمله احتمالی جمهوری اسلامی، تو آماده‌باش سطح بالا قرار داریم
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120362
-
-<div align="center"><video src="telegram/content/alonews_120362.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120362.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری / شبکه فاکس نیوز: ارتش آمریکا درحال آماده شدن برای دور جدیدی از درگیری های نظامی در ایران است
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120361
-
-<div align="center"><video src="telegram/content/alonews_120361.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120361.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈امارات مدعی شد: خروج از اوپک و اوپک‌پلاس نشانه اختلاف با شرکا نیست
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120360
-
-<div align="center"><video src="telegram/content/alonews_120360.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120360.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈یک مقام مطلع نظامی به نورنیوز: در صورت وقوع جنگ، اهدافی که قبلاً مصون ماندند این‌بار در تیررس‌اند
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120359
-
-<div align="center"><video src="telegram/content/alonews_120359.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120359.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سی‌ان‌ان: مشاوران ترامپ خواهان پایان فوری جنگ هستند؛ فشار اقتصادی رای‌دهندگان را نگران کرده
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120358
-
-<div align="center"><video src="telegram/content/alonews_120358.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120358.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مهاجرانی: نگاه دولت به اینترنت دسترسی برابر برای همه شهروندان است!
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120357
-
-<div align="center"><video src="telegram/content/alonews_120357.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120357.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت دفاع اسرائیل می‌خواد برد جنگنده‌های F-35I رو بیشتر کنه - DefNews
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120356
-
-<div align="center"><video src="telegram/content/alonews_120356.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120356.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جنگنده‌های جدید "MiG-29" سوریه رسماً رفتن تو عملیات و دارن برای دفاع از حریم هوایی سوریه پرواز می‌کنن
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120355
-
-<div align="center"><video src="telegram/content/alonews_120355.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120355.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈یک مقام ارشد اسرائیلی در گفتگو با کانال ۱۲ اسرائیل: تل‌آویو در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
-
 
 ✅ @AloNews خبر جنگ
 </div>

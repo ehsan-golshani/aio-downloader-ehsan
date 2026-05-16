@@ -1,8 +1,29 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 15:26
+📅 آخرین بروزرسانی: 1405/02/26 16:34
 
 ---
+
+## IranianMinds — post 20194
+
+<div align="center"><img src="telegram/content/IranianMinds_20194.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست کاخ سفید در ایکس:
+حمایت از آلبوم دریک.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وزیر امور‌خارجه چین:
+
+ما خواستار بازگشایی هرچه سریعتر تنگه هرمز هستیم.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20192
 
@@ -190,26 +211,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😂😂😂
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20174
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عراقچی:
-
-موضوع اورانیوم غنی شده بسیار پیچیده است و ما با واشنگتن به تفاهم رسیدیم تا آن را به مرحله دیگری از مذاکرات موکول کنیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20172
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عراقچی :
-
-آمریکا با راه نظامی هرگز نمیتونه مارو شکست بده و به اهدافش برسه ، ولی اگه دیپلماسی رو امتحان میکرد شاید متفاوت بود
 
 @IranianMinds
 </div>

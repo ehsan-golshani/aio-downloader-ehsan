@@ -1,8 +1,50 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 15:14
+📅 آخرین بروزرسانی: 1405/02/26 16:22
 
 ---
+
+## FoxNewsTwitter — post 341726
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341726.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341726.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+Among the suits and billion-dollar conversations during President Trump's high-stakes Chinese trip, one guest stood out.
+
+Elon Musk’s son was seen wandering through a massive hall in China with his father as major CEOs gathered for high-level meetings.
+</div>
+
+## FoxNewsTwitter — post 341725
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341725.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+Porn on taxpayer-funded tablets — that’s what some California death row inmates are reportedly watching.
+
+Over 90,000 devices were handed out as part of a multimillion-dollar program meant to connect prisoners with family and provide educational resources. Instead, reports say they’re also being used for explicit content and sexual conversations.
+</div>
+
+## FoxNewsTwitter — post 341724
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341724.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+RT @FNCGlobalNews: FOREIGN NETWORK HQ: A pro-China nonprofit under federal investigation just dropped $5.15 million on a Manhattan building to serve as its 'permanent home' for far-left organizing.
+
+The People's Forum, tied to Shanghai-based Marxist mogul Neville Roy Singham's network, is now urging supporters to raise another $5 million to renovate the rundown property.
+
+Lawmakers say the group's funding raises "significant concerns" about "foreign influence or control."
+
+Story by @AsraNomani & @M_Dorgan
+</div>
 
 ## FoxNewsTwitter — post 341720
 
@@ -237,41 +279,5 @@ U.S. CEOs are also making pitches for expanded business ties during the ongoing 
 Fox News (Twitter/X)
 
 NEW: President Trump and President Xi Jinping tour the Temple of Heaven after their meeting at the Great Hall of the People in Beijing.
-</div>
-
-## FoxNewsTwitter — post 341700
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump and President Xi visit Temple of Heaven after having "great" talks.
-
-"China is beautiful."
-</div>
-
-## FoxNewsTwitter — post 341699
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: President Trump and Chinese President Xi Jinping visit Temple of Heaven https://twitter.com/i/broadcasts/1nxnRYlNzoLxO
-</div>
-
-## FoxNewsTwitter — post 341698
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341698.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341698.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump calls Chinese President Xi Jinping a "great leader."
-
-"Sometimes people don't like me saying it, but I say it anyway, because it's true — I always say the truth."
 </div>
 

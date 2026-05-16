@@ -1,8 +1,52 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 15:14
+📅 آخرین بروزرسانی: 1405/02/26 16:22
 
 ---
+
+## FoxNewsTwitter — post 341746
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341746.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341746.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Vice President JD Vance exposes massive fraud rings involving hospice care and services for autistic children, alleging billions are being stolen from vulnerable Americans.
+
+"We have seen people go out there and say that they're providing services to autistic children, when in reality they maybe don't have any children at all, or they certainly don't have autistic children."
+
+"What happened to the autistic children and their families who actually need those services and need a competent government to ensure that they're doing the right thing?"
+</div>
+
+## FoxNewsTwitter — post 341745
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341745.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341745.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NEW: Vice President JD Vance gets a chuckle from the crowd after a person yells about dead people voting while the VP was talking about fraud in the United States:
+
+"Unfortunately, they vote for Democrats. They don't vote for us my friends.”
+</div>
+
+## FoxNewsTwitter — post 341744
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341744.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341744.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: Vice President JD Vance reveals his reaction when President Trump asked him to oversee taking on America's fraud problem:
+
+"When the president of the United States said, 'JD, we have got a fraud problem and I want you to tackle it.' I was so proud and so happy to be able to do it, because I realized that fraud isn't just about saving money. It's not just about protecting taxpayers. It's about protecting you."
+</div>
 
 ## FoxNewsTwitter — post 341743
 
@@ -222,47 +266,5 @@ Fox News (Twitter/X)
 A New Hampshire woman claims Planet Fitness canceled her membership and called the police after she reported seeing a man in the women's locker room.
 
 The gym reportedly labeled her "transphobic" for raising safety concerns, highlighting the ongoing national debate over "inclusive" locker room policies.
-</div>
-
-## FoxNewsTwitter — post 341726
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341726.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341726.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-Among the suits and billion-dollar conversations during President Trump's high-stakes Chinese trip, one guest stood out.
-
-Elon Musk’s son was seen wandering through a massive hall in China with his father as major CEOs gathered for high-level meetings.
-</div>
-
-## FoxNewsTwitter — post 341725
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341725.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-Porn on taxpayer-funded tablets — that’s what some California death row inmates are reportedly watching.
-
-Over 90,000 devices were handed out as part of a multimillion-dollar program meant to connect prisoners with family and provide educational resources. Instead, reports say they’re also being used for explicit content and sexual conversations.
-</div>
-
-## FoxNewsTwitter — post 341724
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341724.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-RT @FNCGlobalNews: FOREIGN NETWORK HQ: A pro-China nonprofit under federal investigation just dropped $5.15 million on a Manhattan building to serve as its 'permanent home' for far-left organizing.
-
-The People's Forum, tied to Shanghai-based Marxist mogul Neville Roy Singham's network, is now urging supporters to raise another $5 million to renovate the rundown property.
-
-Lawmakers say the group's funding raises "significant concerns" about "foreign influence or control."
-
-Story by @AsraNomani & @M_Dorgan
 </div>
 

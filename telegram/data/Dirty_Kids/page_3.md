@@ -1,8 +1,32 @@
 # آرشیو کانال Dirty_Kids - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 15:29
+📅 آخرین بروزرسانی: 1405/02/26 16:36
 
 ---
+
+## Dirty_Kids — post 389505
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389505.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این شما و این منتخب ژانر از کِی فهمیدین کسخلید توی توییتر :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389504
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389504.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389504.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مبارزه بانو هایده در برابر معین به کمک مدل Seedance 2.0 در سرویس PolloAI!
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389503
 
@@ -271,30 +295,5 @@ R25
 🛡@BadBan_VPN | کانال 
 🤖@BadBan_VPNBot | ربات 
 📞@BadBan_VPNSupport | پشتیبانی
-</div>
-
-## Dirty_Kids — post 389484
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389484.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیچ کودکی نباید اول قصه‌اش از کنار قبر پدرش شروع شود…
-در ایران اما این سرنوشت خیلی از کودکان است.
-#علیرضا_احمدی
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389483
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389483.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پستِ خواهرِ جاویدنام سپهر ابراهیمی نشون میده که سپهر هم یه پادشاهی خواه بود ❤️
-این انقلاب و پادشاهی خواها با خونشون به ثمر میرسونن.
-
-
-@Dirty_Kids 👻
 </div>
 

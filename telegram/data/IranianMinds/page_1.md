@@ -1,8 +1,29 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 15:26
+📅 آخرین بروزرسانی: 1405/02/26 16:34
 
 ---
+
+## IranianMinds — post 20237
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ایرنا:
+
+سید محسن نقوی وزیر کشور پاکستان برای دیدار با مسؤولان جمهوری اسلامی، ساعاتی قبل وارد تهران شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20236
+
+<div align="center"><img src="telegram/content/IranianMinds_20236.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 آخرین قیمت نفت:
+۱۰۹.۲۶ دلار
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20235
 
@@ -233,26 +254,6 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 🔴 کانال ۱۳ اسرائیل:
 
 برآوردها حاکی از آن است که ترامپ چراغ سبز برای حمله محدود به مواضع رژیم ملاها را خواهد داد
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20215
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سازمان ملل: نگرانیم، چون ممکنه منطقه بازم دچار تنش و درگیری بشه
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20214
-
-<div align="center"><img src="telegram/content/IranianMinds_20214.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴جلد جدید مجله تایم:
-
-چگونه دیدار ترامپ و شی، یک نظم نوین جهانی را به نمایش گذاشت.
 
 @IranianMinds
 </div>

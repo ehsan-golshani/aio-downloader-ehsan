@@ -1,8 +1,12 @@
 # آرشیو کانال WithYashar - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 15:13
+📅 آخرین بروزرسانی: 1405/02/26 16:21
 
 ---
+
+## WithYashar — post 11309
+
+## WithYashar — post 11308
 
 ## WithYashar — post 11307
 
@@ -127,33 +131,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز 25 اردیبهشت روز پاسداشت زبان فارسی و بزرگداشت فردوسیه
-@withyashar
-</div>
-
-## WithYashar — post 11288
-
-<div align="center"><video src="telegram/content/WithYashar_11288.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11288.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روانه شدن نفت در سواحل جزایر خلیج فارس جمهموری اسلامی داره نفتو تو دریا میریزه و جان موجودات دریایی و زیست بوم ها رو به خطر انداخته
-@withyashar
-</div>
-
-## WithYashar — post 11287
-
-<div align="center"><video src="telegram/content/WithYashar_11287.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11287.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کارشناس صداسیما : نتانیاهو نه خسته شده نه عقب میخواد بکشه بنظرم واقعا مَرده واقعا مَرده و میخواد ایرانو
-از 100 درصد به 20 درصد برسونه
-
-همین الانم اماده ترین عنصر برای
-حمله به ایران؛ اسرائیله
-نتانیاهو نه کم آورده نه علائمی از خستگی داره نه پشیمانه
 @withyashar
 </div>
 

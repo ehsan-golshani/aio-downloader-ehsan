@@ -1,8 +1,32 @@
 # آرشیو کانال FarsiVOA - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/02/26 15:24
+📅 آخرین بروزرسانی: 1405/02/26 16:31
 
 ---
+
+## FarsiVOA — post 217672
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺وزارت خارجه آمریکا: واشنگتن آماده «کمک مستقیم» ۱۰۰میلیون دلاری به مردم کوبا است
+
+▪️وزارت خارجه آمریکا روز چهارشنبه در بیانیه‌ای گفت که واشنگتن آماده است ۱۰۰ میلیون دلار به‌طور مستقیم به مردم کوبا کمک کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8149655.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217671
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺نگاهی به دیدار‌های گذشته دونالد ترامپ با شی جین‌پینگ
+
+▪️سفر دونالد ترامپ، رئیس‌جمهوری آمریکا، به پکن و دیدارهای پیش‌روی او با شی جین‌پینگ، رئیس‌جمهوری چین، یکی از تیترهای مهم خبری روزهای اخیر در رسانه‌ها و جراید معتبر جهان در چند روز اخیر بوده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8149652.html
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217670
 
@@ -165,23 +189,5 @@ https://ir.voanews.com/a/narges-mohammadi-prison-pressure-endurance-/8149626.htm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اعدام احسان افراشته، زندانی سیاسی، توسط جمهوری اسلامی؛ گفت‌وگو با حسین احمدی‌نیاز
-</div>
-
-## FarsiVOA — post 217652
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺تشدید فضای امنیتی در بند زنان زندان اوین؛ محرومیت شماری از زندانیان سیاسی از حق تماس و ملاقات
-
-◾️ در‌پی تشدید فضای امنیتی در بند زنان زندان اوین، هشت زندانی سیاسی زن، به بهانه حضور در «برنامه‌های اعتراضی»، از حق تماس و ملاقات با خانواده و وکلای خود محروم شدند.
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/evin-prison-women-prisoners-political-prisoners-iran-deprivation/8149620.html
-</div>
-
-## FarsiVOA — post 217651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امیر سلطانی در برنامه تفسیر خبر: ما دوباره نیاز به ملی کردن نفت ایران داریم
 </div>
 
