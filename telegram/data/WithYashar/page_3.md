@@ -1,8 +1,84 @@
 # آرشیو کانال WithYashar - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 21:15
+📅 آخرین بروزرسانی: 1405/02/26 22:16
 
 ---
+
+## WithYashar — post 11374
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چمران رئیس شورای شهر تهران:
+
+رایگان اعلام کردن مترو و اتوبوس در تهران کار احساسی بود و فردا آخرین روز رایگان بودن حمل و نقل عمومی در تهران است و تمدید نخواهد شد.
+@withyashar
+</div>
+
+## WithYashar — post 11373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شریعتمداری: مذاکره به جای خود، اما جنگ بدون پاسخ پایان نمی‌یابد/ با شهادت آقا شروع کردند بی‌انتقام تمام نمی‌کنیم
+@withyashar
+</div>
+
+## WithYashar — post 11372
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۲ اسرائیل گزارش داد انتظار می‌رود دونالد ترامپ، رییس‌جمهوری آمریکا، طی ۲۴ ساعت آینده تیم مشاوران نزدیک خود را تشکیل دهد تا درباره ایران تصمیم نهایی بگیرد. برآوردها در اسرائیل حاکی است تصمیم درباره اقدام نظامی ممکن است بسیار به‌زودی اتخاذ شود.
+
+برنامه تلویزیونی «اولپن شیشی» به نقل از یک مقام ارشد اسرائیلی گزارش داد که «ازسرگیری درگیری نزدیک است» و اسرائیل خود را برای احتمال «چند روز تا چند هفته جنگ» آماده می‌کند.
+@withyashar
+</div>
+
+## WithYashar — post 11371
+
+<div align="center"><img src="telegram/content/WithYashar_11371.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری مشاور قالیباف تو اینستاگرام 🤣
+@withyashar
+</div>
+
+## WithYashar — post 11370
+
+## WithYashar — post 11369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@withyashar
+</div>
+
+## WithYashar — post 11368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک تایمز از قول مقامات نظامی آمریکا:
+
+اگر جزیره خارگ تصرف شود ، نیروهای زمینی برای حفظ آن لازم خواهند بود.
+
+@withyashar
+</div>
+
+## WithYashar — post 11367
+
+<div align="center"><video src="telegram/content/WithYashar_11367.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11367.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنها چیزی که می‌توانم بگویم این است که این یک موفقیت بزرگ بود.»
+
+رئیس جمهور ترامپ پس از سفر به چین به کاخ سفید بازگشت و به خبرنگاران گفت: «ما به توافق‌های بزرگی رسیدیم» و این دیدار را یک لحظه تاریخی خواند.
+
+سپس او به اتفاقات بیشتری در آینده اشاره کرد: «اتفاقات زیادی افتاده است و شما درباره آنها خواهید شنید.»
+@withyashar
+</div>
+
+## WithYashar — post 11366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ: افزایش قیمت‌ بنزین مرتبط با جنگ ایران «درد کوتاه‌مدت» است که بسیار کمتر از چیزی است که مردم انتظار داشتن.
+
+وقتی به کسی میگید که باید کمی بیشتر برای بنزین در یک دوره بسیار کوتاه بپردازید، چون میخوایم جلوی تهدید تکه‌تکه شدن توسط یک دیوانه، یک فرد دیوانه رو بگیریم، و آنها دیوانه هستن با استفاده از سلاح‌های هسته‌ای، همه میگن که این خوب است.
+@withyashar
+</div>
 
 ## WithYashar — post 11365
 
@@ -83,58 +159,6 @@
 دستیاران ترامپ برنامه‌هایی رو برای بازگشت به حملات نظامی به ایران آماده کردن، اگر او تصمیم بگیره با بمباران بیشتر از بن بست خارج بشه.
 
 از جمله گزینه‌ها، اعزام نیروهای ویژه به ایران برای هدف قرار دادن مواد هسته‌ای مدفون شده است و ممکنه از نیروهای ویژه برای کنترل جزیره خارک استفاده بشه.
-@withyashar
-</div>
-
-## WithYashar — post 11353
-
-<div align="center"><img src="telegram/content/WithYashar_11353.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جلد جدید مجله تایم: چگونه دیدار ترامپ و شی، نظم نوین جهانی را نشان داد
-@withyashar
-</div>
-
-## WithYashar — post 11352
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ خیلی عجله داشته هیچ فیلمی عکسی از رسیدنش نیومده بیرون ! عجبیه
-</div>
-
-## WithYashar — post 11351
-
-<div align="center"><video src="telegram/content/WithYashar_11351.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11351.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-## WithYashar — post 11350
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حوس لوبیا پلو کردم 😅 امشب که بیداریم درست کنم
-</div>
-
-## WithYashar — post 11349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در تروث : تینا را آزاد کنید
-@withyashar
-تینا پیترز یک مقام انتخاباتی سابق آمریکاست که به‌خاطر دخالت غیرقانونی در سیستم‌های رأی‌گیری بعد از انتخابات 2020 زندانی شده و حالا ترامپ از او حمایت سیاسی می‌کند
-</div>
-
-## WithYashar — post 11348
-
-## WithYashar — post 11347
-
-## WithYashar — post 11346
-
-## WithYashar — post 11345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک‌تایمز به نقل از ۲ مقام امنیتی:
-
-آمریکا و اسرائیل در حال آماده‌سازی گسترده برای احتمال ازسرگیری حملات علیه جمهوری اسلامی هستند،
-
-این حمله ممکن است از هفته آینده آغاز شود
 @withyashar
 </div>
 

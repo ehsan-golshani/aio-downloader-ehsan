@@ -1,8 +1,113 @@
 # آرشیو کانال alonews - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 21:34
+📅 آخرین بروزرسانی: 1405/02/26 22:34
 
 ---
+
+## alonews — post 120442
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار سی‌ان‌ان، کیتلان کالینز، می‌گوید: «ترامپ ظاهراً نمی‌خوابد.
+
+🔴«یک منبع یک بار به من گفت هیچوقت کسی دوست ندارد در یک سفر طولانی مثلاً به آسیا در هواپیمای رئیس جمهور باشد… ترامپ همیشه بیدار است و حرف می‌زند، و اگر کارکنانش خواب باشند، می‌فرستد بیدارشان کنند چون می‌خواهد با آنها صحبت کند.»
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120441
+
+<div align="center"><video src="telegram/content/alonews_120441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 ارتش دفاعی اسرائیل اعلام کرده است که در طول آخر هفته حملاتی به حدود ۱۰۰ هدف حزب‌الله در جنوب لبنان انجام داده است.
+
+🔴 این اهداف شامل موقعیت‌های نظارتی، محل‌های ذخیره سلاح و سایر زیرساخت‌هایی بود که ادعا می‌شود توسط حزب‌الله استفاده می‌شوند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120440
+
+<div align="center"><video src="telegram/content/alonews_120440.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120440.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈امروز بمب افکن B-52 تو پایگاه هوایی فِرفورد تمرین‌‌های خودشو انجام داد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120439
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈معاریو: ترامپ در آستانه چراغ سبز به اسرائیل برای ازسرگیری حملات است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120438
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کاخ سفید : همه گزینه ها در مورد ایران تو اختیار ترامپه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120437
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ادعای سی‌ان‌ان، به نقل از منابع آگاه:
+در دولت ترامپ نظرات متفاوتی در مورد چگونگی برخورد با ایران وجود دارد.
+
+🔴دولت ترامپ و مقامات پنتاگون بر حملات هدفمند اصرار دارند، در حالی که دیگران از دیپلماسی حمایت می‌کنند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120436
+
+<div align="center"><video src="telegram/content/alonews_120436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وضعیت جنوب لبنان دقایقی قبل ، پس از حملات اسرائیل
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120435
+
+<div align="center"><img src="telegram/content/alonews_120435.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈نماینده دائم روسیه در سازمان‌های بین‌المللی مستقر در وین، موضع چین در قبال قطعنامه ضدایرانی بحرین و آمریکا در ارتباط با تنگه هرمز را تایید کرد و گفت «روسیه هم همین دیدگاه را دارد»
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈هیمتی رئیس بانک مرکزی: با قدرت، شتاب تورم را کنترل خواهیم کرد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120433
+
+<div align="center"><video src="telegram/content/alonews_120433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈امروز ایران یه نفتکش حامل ۴۵۰ هزار بشکه نفت رو به دلیل نقض قوانین جدید تو تنگه هرمز توقیف کرد
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120432
 
@@ -89,139 +194,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈مدیر روس‌اتم: عملیات بتن‌ریزی و آرماتوربندی ساختمان‌های واحد دوم نیروگاه هسته‌ای بوشهر در ایران از سر گرفته شده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120422
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈حملات ارتش اسرائیل به لبنان ادامه دارد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120421
-
-<div align="center"><video src="telegram/content/alonews_120421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وضعیت عجیب و طوفانی توچال
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120420
-
-<div align="center"><img src="telegram/content/alonews_120420.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرگزاری صداوسیمای جمهوری اسلامی، روز شنبه ۲۶ اردیبهشت در گزارشی اختصاصی اعلام کرد که «چند کشور اروپایی» به‌دنبال انجام امور اداری و دریافت «تاییدیه» از تهران هستند تا بتوانند شناورهایشان را از تنگه هرمز عبور دهند.
-
-
-🔴این خبرگزاری با اشاره به گزارش‌ها از عبور موفق نفتکش‌هایی از چین، ژاپن و پاکستان از مسیر تعیین شده از سوی جمهوری اسلامی، تاکید کرد که این عبورها با «اجازه نیروی دریایی ایران» انجام شده است. صداوسیما نام این «کشورهای اروپایی» را اعلام نکرد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120419
-
-<div align="center"><video src="telegram/content/alonews_120419.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120419.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈امتحانات خرداد دانش‌آموزان پایه‌های هفتم تا دهم اصفهان غیرحضوری شد
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120418
-
-<div align="center"><img src="telegram/content/alonews_120418.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️کویت تصویر تسلیم شدن چهار پاسدار را منتشر کرد!
-
-🔴کویت با صدور بیانیه‌ای جمهوری اسلامی را به حمله به جزیره «بوبیان» با قایق‌های ماهیگیری  متهم کرد و اعلام کرد نیروهای سپاه پاسداران قصد خرابکاری داشتند؛ یک نظامی  کویتی در درگیری زخمی و ۴ تن از عناصر وابسته به سپاه دستگیر شدند.
-
-🔴چهار پاسدار احتمالا نیروی قدس با دیدن اولین اسلحه دست طرف مقابل تسلیم شدند !
-
-🔴دو سرهنگ، یک سرگرد و یک ستوان‌یکم.
-
-🤔عملیات آغاز نشده لو رفت و تسلیم شدند!
-
-✅@AloNews
-</div>
-
-## alonews — post 120417
-
-<div align="center"><video src="telegram/content/alonews_120417.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120417.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈هم اکنون گزارش رسانه های عربی از تحرکات بزرگ نظامی در سراسر خاورمیانه
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120416
-
-<div align="center"><video src="telegram/content/alonews_120416.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120416.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رویترز: به گفته دو منبع آگاه، در داخل کاخ سفید هیچ تلاشی برای متقاعد کردن ترامپ به خویشتنداری بیشتر در پیام‌هایش درباره ایران صورت نگرفته است
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120414
-
-<div align="center"><video src="telegram/content/alonews_120414.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120414.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈حمله‌ی‌ نیروی هوایی اسرائیل به المنصوری، جنوب لبنان
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120413
-
-<div align="center"><video src="telegram/content/alonews_120413.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120413.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈حماس تأیید کرد که عزالدین الحداد، فرماندهی از تیپ‌های عزالدین القسام، در حمله هوایی هدفمند اسرائیل شب گذشته در شهر غزه کشته شد.
-
-
-🔴گروه ادعا می‌کند علاوه بر همسر و دختر الحداد، چندین غیرنظامی دیگر نیز در این حمله کشته شدند.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120411
-
-<div align="center"><video src="telegram/content/alonews_120411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر جنگ، پیت هگستث، دریانوردان گروه ضربت ناو هواپیمابر USS Gerald R. Ford را پس از بازگشت به پایگاه نیروی دریایی نورفولک از یک ماموریت تاریخی ۱۱ ماهه، خوش‌آمد گفت.
-
-🔴ویدیوی اول از USS Gerald R. Ford (CVN-78) است و ویدیوی دوم هگستث را در حال خطاب قرار دادن نیروها در USS Bainbridge (DDG-96) نشان می‌دهد
 
 ✅ @AloNews خبر جنگ
 </div>

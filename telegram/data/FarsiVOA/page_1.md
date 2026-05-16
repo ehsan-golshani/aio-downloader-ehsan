@@ -1,8 +1,50 @@
 # آرشیو کانال FarsiVOA - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 21:26
+📅 آخرین بروزرسانی: 1405/02/26 22:26
 
 ---
+
+## FarsiVOA — post 217924
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گفت‌وگو با منصور سهرابی وقتی نفت به دریا می‌ریزد؛ جزیره خارک و نشت نفت و بن‌بست صادراتی
+</div>
+
+## FarsiVOA — post 217923
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+توافق اروپا برای محاکمه رهبران روسیه؛ هم‌زمان با موج حملات گسترده مسکو به شهرهای اوکراین
+</div>
+
+## FarsiVOA — post 217922
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در هفتاد و نهمین فستیوال فیلم کن «تمرین‌های برای یک انقلاب » ساخته پگاه آهنگرانی به نمایش در آمد . مراسم فرش قرمز این فیلم بارحضور پگاه آهنگرانی ، علی عظیمی ، منیژه حکت و کاوه فرنام همراه بود
+</div>
+
+## FarsiVOA — post 217921
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺ترامپ: به آمریکایی‌ها آسیب برسانید، کشته خواهید شد
+
+▪️حساب رسمی کاخ سفید در ایکس روز شنبه ۲۶ اردیبهشت نقل قولی را از پرزیدنت ترامپ منتشر کرد که در آن به کسانی که قصد دارند به شهروندان آمریکایی آسیب بزنند، هشدار جدی داده شده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/8150710.html/?nocach=1
+</div>
+
+## FarsiVOA — post 217920
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺ارتش اسرائیل: آخر این هفته، حدود ۱۰۰ موضع متعلق به حزب‌الله در جنوب لبنان را هدف قرار دادیم
+
+▪️ارتش اسرائیل شامگاه شنبه ۲۶ اردیبهشت اعلام کرد در دو روز پایانی هفته (جمعه و شنبه)، حدود ۱۰۰ موضع متعلق به گروه تروریستی حزب‌الله در جنوب لبنان را هدف قرار داده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/8150704.html/?nocach=1
+</div>
 
 ## FarsiVOA — post 217919
 
@@ -146,59 +188,5 @@ https://ir.voanews.com/a/8150690.html/?nocach=1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 در گفت‌وگو با حسن هاشمیان، به آتش‌بس شکننده میان اسرائیل و لبنان، بازداشت چهره‌های کلیدی شبکه‌های نیابتی جمهوری اسلامی و تشدید عملیات پنهان آمریکا و اسرائیل پرداختیم و پرسیدیم چرا به رغم تلاش‌های جمهوری اسلامی و حزب الله لبنان، آتش بس میان اسرائیل و لبنان تمدید شد؟
-</div>
-
-## FarsiVOA — post 217904
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیدار وزیرخارجه امارات با نایجل فاراژ در بریتانیا، همزمان با افزایش تنش‌ها میان امارات و ایران
-</div>
-
-## FarsiVOA — post 217903
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺هگست: نفر دوم داعش، در راستای دستور پرزیدنت ترامپ برای محافظت از مسیحیان، در نیجریه کشته شد
-
-▪️پیت هگست، وزیر جنگ ایالات متحده روز شنبه ۲۶ اردیبهشت اعلام کرد نیروهای آمریکایی، شامگاه جمعه با همکاری نیروهای مسلح نیجریه، ابوبلال المینوکی و دیگر رهبران داعش در این کشور را از میان برداشتند.
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/8150687.html/?nocach=1
-</div>
-
-## FarsiVOA — post 217902
-
-<div align="center"><video src="telegram/content/FarsiVOA_217902.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217902.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ناسا می‌گوید در این ماموریت تدارکاتی، یک موشک اسپیس‌ایکس فالکون ۹ به سوی ایستگاه فضایی بین‌المللی پرتاب شد.
- 
-در این ماموریت، اقلام ‌ویژه‌ای برای یادبود دویست‌وپنجاهمین سالگرد استقلال آمریکا، فرستاده شده است.
-
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217901
-
-<div align="center"><video src="telegram/content/FarsiVOA_217901.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217901.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های جمهوری اسلامی ویدیویی از مهدی خانعلی‌زاده، کارشناس صداوسیما، منتشر کرده‌اند که تصویری جعلی و ساخته هوش مصنوعی را تحلیل می‌کند. این تصویر دونالد ترامپ، رئیس‌جمهور آمریکا، ایلان ماسک، مدیرعامل تسلا و جنسن هوانگ، مدیرعامل انویدیا را با مشت گره کرده جلوی پرچم حزب کمونیست نشان می‌دهد که به ادعای خانعلی‌زاده نشانه «نیاز آمریکا به چین» است.
-</div>
-
-## FarsiVOA — post 217900
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺اختلال «بله» و «روبیکا»؛ پیام‌رسان‌های داخلی هم از دسترس خارج شدند
-
-▪️همزمان با آغاز دوازدهمین هفته قطع کامل اینترنت بر روی مردم توسط جمهوری اسلامی، رسانه‌های داخلی گزارش دادند پیام‌رسان‌های بومی اینترنت روز شنبه ۲۶ اردیبهشت ۱۴۰۵ با اختلال گسترده روبرو و شماری از آنها از دسترس خارج شدند.
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/iran-internet-application-blocked-security/8150680.html/?nocach=1
 </div>
 

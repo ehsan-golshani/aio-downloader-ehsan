@@ -1,8 +1,29 @@
 # آرشیو کانال Dirty_Kids - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 21:31
+📅 آخرین بروزرسانی: 1405/02/26 22:31
 
 ---
+
+## Dirty_Kids — post 389481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش حداقل خودمون ریده بودیم تو زندگیمون. درس خوندیم، کار کردیم، زحمت کشیدیم و نهایتا دستاوردش چی بوده؟ کیرخر
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389480
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389480.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امیدوارم برسه به دست ترامپ.
+عمویم خریت بچه ‌شیعه:
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389479
 
@@ -219,28 +240,6 @@ A24
 رسایی؛ نماینده‌ی مجلس:
 
 دولت قصد داره میزان سهمیه ماهانه بنزین ۱۵۰۰ تومنی و ۳۰۰۰ تومنی رو کاهش بده و قیمت بنزین ۵۰۰۰ تومنی رو هم به ۲۰۰۰۰ تومن برسونه.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389458
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389458.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ده‌هزار تا عکس داره یکی از یکی زیباتر
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389456
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389456.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریدم=)))))))))
 
 
 @Dirty_Kids 👻

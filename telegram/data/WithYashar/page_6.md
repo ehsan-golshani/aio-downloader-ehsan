@@ -1,8 +1,47 @@
 # آرشیو کانال WithYashar - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 21:15
+📅 آخرین بروزرسانی: 1405/02/26 22:16
 
 ---
+
+## WithYashar — post 11312
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یاشار مجاهدین خیلی دارن به دانشجو های داخل ایران پیام میدن، واسه خودم تا الان از دو نفر مختلف پیش اومده، شروع میکنن به توضیح تاریخچه خودشون و همه چیزای خوب رو هم میچسبونن به خودشون و فلان
+نمیدونم چه پروژه ای راه انداختن ولی از طریق
+</div>
+
+## WithYashar — post 11311
+
+## WithYashar — post 11310
+
+<div align="center"><img src="telegram/content/WithYashar_11310.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده
+
+@withyashar
+</div>
+
+## WithYashar — post 11309
+
+## WithYashar — post 11308
+
+## WithYashar — post 11307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امریکا زمانی حمله میکنه که کسی منتظر نیس.
+</div>
+
+## WithYashar — post 11306
+
+## WithYashar — post 11305
+
+<div align="center"><video src="telegram/content/WithYashar_11305.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11305.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## WithYashar — post 11304
 
 ## WithYashar — post 11303
 
@@ -75,98 +114,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وزیر نیروهای مسلح فرانسه: ناو هواپیمابر «شارل دوگل» در دریای عرب مستقر شده و ماموریت آن «دفاعی» است.
 @withyashar
-</div>
-
-## WithYashar — post 11291
-
-<div align="center"><video src="telegram/content/WithYashar_11291.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11291.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرنگار: دیروز از دریادار کوپر درباره حمله به مدرسه دخترانه(میناب)در روز اول جنگ سؤال شد.
-ترامپ: منظورتون همون حمله اولیه‌ست؟ اون موضوع هنوز تحت تحقیق قرار داره.
-خبرنگار: می‌تونید تأیید کنید که موشک آمریکایی بوده؟
-ترامپ: شما از کدوم رسانه‌ای هستید؟
-خبرنگار: بی‌بی‌سی.
-ترامپ: بی‌بی‌سی فیکه با من حرف نزن.
-@withyashar
-</div>
-
-## WithYashar — post 11290
-
-<div align="center"><video src="telegram/content/WithYashar_11290.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11290.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥲 @withyashar
-</div>
-
-## WithYashar — post 11289
-
-<div align="center"><video src="telegram/content/WithYashar_11289.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11289.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 25 اردیبهشت روز پاسداشت زبان فارسی و بزرگداشت فردوسیه
-@withyashar
-</div>
-
-## WithYashar — post 11288
-
-<div align="center"><video src="telegram/content/WithYashar_11288.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11288.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روانه شدن نفت در سواحل جزایر خلیج فارس جمهموری اسلامی داره نفتو تو دریا میریزه و جان موجودات دریایی و زیست بوم ها رو به خطر انداخته
-@withyashar
-</div>
-
-## WithYashar — post 11287
-
-<div align="center"><video src="telegram/content/WithYashar_11287.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11287.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کارشناس صداسیما : نتانیاهو نه خسته شده نه عقب میخواد بکشه بنظرم واقعا مَرده واقعا مَرده و میخواد ایرانو
-از 100 درصد به 20 درصد برسونه
-
-همین الانم اماده ترین عنصر برای
-حمله به ایران؛ اسرائیله
-نتانیاهو نه کم آورده نه علائمی از خستگی داره نه پشیمانه
-@withyashar
-</div>
-
-## WithYashar — post 11286
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ به فاکس‌نیوز: ما می‌توانستیم پل‌ها و شبکه‌های برق ایران را نابود کنیم و می‌توانیم ظرف دو روز همه چیز را در آنجا از بین ببریم.
-@withyashar
-</div>
-
-## WithYashar — post 11285
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ به فاکس‌نیوز : ما ارتش ایران را نابود کرده‌ایم و شاید باید یک پاکسازی سبک انجام دهیم.
-میتوانیم نیروگاه‌های ایران را تنها در دو روز از بین ببریم
-اگر ایران اورانیوم های غنی شده خودش رو تحویل نده وارد ایران میشیم
-@withyashar
-</div>
-
-## WithYashar — post 11284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Voice message
-</div>
-
-## WithYashar — post 11283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارو به قاهره میبره؟
-خب پس بذار هرچی میخواد بگه
 </div>
 

@@ -1,8 +1,32 @@
 # آرشیو کانال IranianMinds - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 21:28
+📅 آخرین بروزرسانی: 1405/02/26 22:29
 
 ---
+
+## IranianMinds — post 20104
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 الجزیره :
+
+مذاکرات و صحبتای ترامپ و رئیس جمهور چین در تالار پکن پایان یافت
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20103
+
+<div align="center"><video src="telegram/content/IranianMinds_20103.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20103.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ به رئیس‌ جمهور چین:
+
+افتخار دارم که در کنار شما هستم. افتخار دارم که دوست شما هستم و روابط بین چین و ایالات متحده بهتر از همیشه خواهد شد.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20102
 
@@ -238,30 +262,6 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 دیگه شد یه کسب درآمد داعم براشون و همه جا شروع کردن به فروش سیمکارت و اینترنت پرو !
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20083
-
-<div align="center"><img src="telegram/content/IranianMinds_20083.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 عراقچی :
-
-در تلاشی آشکار برای ایجاد اختلاف، کویت به ‌صورت غیرقانونی به یک قایق ایرانی در خلیج فارس حمله کرده و ۴ نفر از شهروندان ما را بازداشت کرده است. این اقدام غیرقانونی در نزدیکی جزیره ‌ای رخ داده که آمریکا از آن برای حمله به ایران استفاده میکند.
-
-ما خواستار آزادی فوری شهروندان ‌مان هستیم و حق پاسخگویی را برای خود محفوظ می‌دانیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20082
-
-<div align="center"><img src="telegram/content/IranianMinds_20082.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 برای هفتمین بار هم تلاش برای محدود کردن اختیارات جنگی ترامپ در مجلس سنای آمریکا شکست خورد !
 
 @IranianMinds
 </div>

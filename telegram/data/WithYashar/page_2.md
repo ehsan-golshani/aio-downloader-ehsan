@@ -1,8 +1,77 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 21:15
+📅 آخرین بروزرسانی: 1405/02/26 22:16
 
 ---
+
+## WithYashar — post 11395
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این پست اوناییکه استیکر خنده گذاشتن رو از کانال مسدودشون کن
+</div>
+
+## WithYashar — post 11394
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لازم به ذکر است شخص اینجانب ، یاشار در اتاق جنگ هیچ رابطه و تیمکشی با هیچ گروه جناح و سمتی ندارم مسیر من مسیر مانوک خدابخشیان و فریدون فرخزاد است و هم پیمانان من فقط مردم واقعی و وطن پرست ایران هستند و برگ برنده ما همه با هم اینجا برای عبور از مسیر فقط فقط فقط خود شخص شاهزاده رضا پهلوی است ، یک بار دیگه خواستم اهداف و مسیر خودم را مشخص و کلیر کنم
+@withyashar
+</div>
+
+## WithYashar — post 11393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشاورین شاهزاده (امیر اعتمادی و سعید قاسمینژاد) ، علی کریمی‌ رو به علت واکنش ‌به کنسرت و آهنگ شاهین نجفی آنفالو کردند
+@withyashar
+</div>
+
+## WithYashar — post 11392
+
+<div align="center"><img src="telegram/content/WithYashar_11392.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روز جهانی پسر بچه … به یاد جاوید نام های کوچکمون مبارزه میکنیم تا نسل جدید این درد ها رو نکشه !
+@withyashar
+</div>
+
+## WithYashar — post 11390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایسنا: وزیر کشور پاکستان برای دیدار با مسئولان جمهوری اسلامی ساعاتی قبل به تهران سفر کرده.
+@withyashar
+</div>
+
+## WithYashar — post 11389
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۲ اسرائیل مدعی شد: ترامپ بزودی با اعضای کابینه خود جلسه اضطراری برای پایان دادن به اوضاع ایران برگزار میکند.
+@withyashar
+</div>
+
+## WithYashar — post 11388
+
+<div align="center"><video src="telegram/content/WithYashar_11388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظر کلی رسانه ها اینه که ۷۲ ساعت طلایی پیشه رو داریم 😬
+@withyashar
+</div>
+
+## WithYashar — post 11387
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شبکه فاکس نیوز: ارتش آمریکا درحال آماده شدن برای دور جدیدی از درگیری های نظامی در ایران است
+@withyashar
+</div>
+
+## WithYashar — post 11386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایال زمیر، رئیس ستاد کل نیروهای مسلح اسرائیل اعلام کرد کشته‌شدن عزالدین الحداد، فرمانده‌ شاخه ‌نظامی «حماس» یک گام مهم و موفقیتی بزرگ در عرصه عملیاتی است.
+او افزود اسرائیل «با جدیت» به‌ تعقیب و هدف قرار دادن سایر رهبران و فرماندهان حماس ادامه خواهد داد.
+@withyashar
+</div>
 
 ## WithYashar — post 11385
 
@@ -93,82 +162,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کرملین امروز اعلام کرد که ولادیمیر پوتین، رئیس‌جمهور روسیه ۱۹ مه (۲۹ اردیبهشت) برای یک سفر دو روزه به چین خواهد رفت. این سفر در پی سفر دونالد ترامپ، رئیس‌جمهور آمریکا به پکن انجام می‌شود.
-@withyashar
-</div>
-
-## WithYashar — post 11374
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چمران رئیس شورای شهر تهران:
-
-رایگان اعلام کردن مترو و اتوبوس در تهران کار احساسی بود و فردا آخرین روز رایگان بودن حمل و نقل عمومی در تهران است و تمدید نخواهد شد.
-@withyashar
-</div>
-
-## WithYashar — post 11373
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شریعتمداری: مذاکره به جای خود، اما جنگ بدون پاسخ پایان نمی‌یابد/ با شهادت آقا شروع کردند بی‌انتقام تمام نمی‌کنیم
-@withyashar
-</div>
-
-## WithYashar — post 11372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال ۱۲ اسرائیل گزارش داد انتظار می‌رود دونالد ترامپ، رییس‌جمهوری آمریکا، طی ۲۴ ساعت آینده تیم مشاوران نزدیک خود را تشکیل دهد تا درباره ایران تصمیم نهایی بگیرد. برآوردها در اسرائیل حاکی است تصمیم درباره اقدام نظامی ممکن است بسیار به‌زودی اتخاذ شود.
-
-برنامه تلویزیونی «اولپن شیشی» به نقل از یک مقام ارشد اسرائیلی گزارش داد که «ازسرگیری درگیری نزدیک است» و اسرائیل خود را برای احتمال «چند روز تا چند هفته جنگ» آماده می‌کند.
-@withyashar
-</div>
-
-## WithYashar — post 11371
-
-<div align="center"><img src="telegram/content/WithYashar_11371.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استوری مشاور قالیباف تو اینستاگرام 🤣
-@withyashar
-</div>
-
-## WithYashar — post 11370
-
-## WithYashar — post 11369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar
-</div>
-
-## WithYashar — post 11368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک تایمز از قول مقامات نظامی آمریکا:
-
-اگر جزیره خارگ تصرف شود ، نیروهای زمینی برای حفظ آن لازم خواهند بود.
-
-@withyashar
-</div>
-
-## WithYashar — post 11367
-
-<div align="center"><video src="telegram/content/WithYashar_11367.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11367.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنها چیزی که می‌توانم بگویم این است که این یک موفقیت بزرگ بود.»
-
-رئیس جمهور ترامپ پس از سفر به چین به کاخ سفید بازگشت و به خبرنگاران گفت: «ما به توافق‌های بزرگی رسیدیم» و این دیدار را یک لحظه تاریخی خواند.
-
-سپس او به اتفاقات بیشتری در آینده اشاره کرد: «اتفاقات زیادی افتاده است و شما درباره آنها خواهید شنید.»
-@withyashar
-</div>
-
-## WithYashar — post 11366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ: افزایش قیمت‌ بنزین مرتبط با جنگ ایران «درد کوتاه‌مدت» است که بسیار کمتر از چیزی است که مردم انتظار داشتن.
-
-وقتی به کسی میگید که باید کمی بیشتر برای بنزین در یک دوره بسیار کوتاه بپردازید، چون میخوایم جلوی تهدید تکه‌تکه شدن توسط یک دیوانه، یک فرد دیوانه رو بگیریم، و آنها دیوانه هستن با استفاده از سلاح‌های هسته‌ای، همه میگن که این خوب است.
 @withyashar
 </div>
 

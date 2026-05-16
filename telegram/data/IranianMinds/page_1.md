@@ -1,8 +1,30 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 21:28
+📅 آخرین بروزرسانی: 1405/02/26 22:29
 
 ---
+
+## IranianMinds — post 20256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ:
+
+حکومت ایران بهتره که به توافق برسه، اگه این‌‌کارو نکنن، دوران بسیار بدی در انتظارشون خواهد بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20255
+
+<div align="center"><img src="telegram/content/IranianMinds_20255.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ:
+
+اگر به آمریکایی‌ها آسیب بزنید، یا در حال برنامه‌ریزی برای آسیب زدن به آمریکا‌یی‌ها باشید، ما شما را پیدا خواهیم کرد و شما را خواهیم کشت.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20254
 
@@ -208,26 +230,6 @@ G26
 🔴جسی واترز، مجری فاکس‌نیوز:
 
 ترامپ در حال آماده شدن برای دور جدیدی از حملات به ایران است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20233
-
-<div align="center"><img src="telegram/content/IranianMinds_20233.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴استوری مشاور قالیباف😂
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20232
-
-<div align="center"><img src="telegram/content/IranianMinds_20232.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴۱۹ روز قبل از سقوط رژیم جنایتکار قذافی، به دست مجریان تلویزیون اسلحه داده بودند.
 
 @IranianMinds
 </div>

@@ -1,8 +1,109 @@
 # آرشیو کانال alonews - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/02/26 21:34
+📅 آخرین بروزرسانی: 1405/02/26 22:34
 
 ---
+
+## alonews — post 120026
+
+<div align="center"><img src="telegram/content/alonews_120026.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈آژیرها در کریات شمونه و اطراف آن به دلیل شلیک یک رگبار راکتی حزب‌الله از لبنان به صدا درآمده‌اند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120025
+
+<div align="center"><video src="telegram/content/alonews_120025.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120025.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈نتانیاهو : در واقع، منطقه داره به بلوک اضافه می‌شه، ولی ما ورق رو برگردوندیم 🔴 رژیم وحشت تو ایران از همیشه ضعیف‌تر شده و دولت اسرائیل از همیشه قوی‌تره ✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120024
+
+<div align="center"><video src="telegram/content/alonews_120024.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120024.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈نتانیاهو : در واقع، منطقه داره به بلوک اضافه می‌شه، ولی ما ورق رو برگردوندیم
+
+🔴 رژیم وحشت تو ایران از همیشه ضعیف‌تر شده و دولت اسرائیل از همیشه قوی‌تره
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120023
+
+<div align="center"><img src="telegram/content/alonews_120023.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ارفعان نبیان ، جوان ۲۶ ساله اهل اصفهان، در جریان اعتراضات ضدحکومتی بازداشت شد.
+
+🔴خانواده‌اش بیش از دو ماه است که هیچ خبری از او ندارند، اجازه ملاقات به آنها داده نشده و او از حق دسترسی به وکیل محروم بوده است.
+
+🔴رژیم او را به اتهاماتی مانند محاربه (دشمنی با خدا) محکوم کرده که مجازات آن اعدام است.
+
+🔴گزارش‌ها حاکی از آن است که حکم اعدام او صادر شده و خطر اجرای آن با طناب دار بسیار جدی است
+
+✅@AloNews
+</div>
+
+## alonews — post 120022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈به گزارش Ynet، آیزاک هرتزوگ، رئیس‌جمهور اسرائیل سفر هفته آینده خود به نیویورک را به دلیل «شرایط مانع از این سفر در این زمان» لغو کرده است.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120021
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خضریان، عضو کمیسیون امنیت ملی مجلس: ترامپ در جنگ گیر کرده است و با بلوف زدن به دنبال این است که عقب‌های سیاسی را در ایران فعال کند تا مردم را به سوی تسلیم سوق دهند ✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120020
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خضریان، عضو کمیسیون امنیت ملی مجلس: ترامپ در جنگ گیر کرده است و با بلوف زدن به دنبال این است که عقب‌های سیاسی را در ایران فعال کند تا مردم را به سوی تسلیم سوق دهند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خروج مرغ زنده از خوزستان ممنوع شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120018
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عزیزی، رئیس کمیسیون امنیت ملی:
+پیش بینی کردیم که هرکس که ترامپ رو به هلاکت برسونه، 50 میلیون یورو پاداش دریافت کنه.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120017
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️درک گفته های زنده یاد فريدون فرخزاد هنوز برای سه فاسد قابل فهم نيست!!!
+
+🔴حتما این ویدیو رو ببینید.
+
+🤔«مردی که ۵۰سال از زمان خودش جلوتر بود»
+
+✅@AloNews
+</div>
 
 ## alonews — post 120016
 
@@ -128,103 +229,5 @@
 👈عراقچی: دنیا فهمید دیگر نباید سر به سر مردم ایران بگذارد
 
 ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119993
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اوکراین پهپادهایی را به مناطق کورسک و بریانسک روسیه به سمت مسکو پرتاب کرده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119992
-
-<div align="center"><img src="telegram/content/alonews_119992.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 دیدار عراقچی و وزیر خارجه مصر در حاشیه نشست وزرای امور خارجه بریکس در دهلی‌نو
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119988
-
-<div align="center"><img src="telegram/content/alonews_119988.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ارتش اسرائیل شروع به توزیع توری‌های ضد پهپاد به نیروها در لبنان کرده است، به طوری که تقریباً ۱۵۸٬۰۰۰ متر مربع تاکنون توزیع شده و ۱۸۸٬۰۰۰ متر مربع دیگر در حال خرید است، طبق گزارش کانال ۱۵
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119987
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کانال 12 عبری: اسرائیل سطح هشدار خود را به بالاترین حد ممکن افزایش می‌دهد تا برای احتمال جنگی تازه با ایران پس از بازگشت ترامپ از چین آماده شود.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119986
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈واشنگتن پست: چین از جنگ آمریکا علیه ایران برای تقویت روابط با کشورهایی مانند تایلند، استرالیا و فیلیپین، با ارائه سوخت و فناوری سبز، استفاده می‌کند، آن هم در زمانی که به نظر می‌رسد دولت ترامپ علاقه کمتری به رهبری تلاش‌های بین‌المللی برای مقابله با بحران جهانی انرژی دارد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈روبیو، وزیر امور خارجه آمریکا : ترامپ از رئیس جمهور چین کمکی نخواست، آمریکا به کمک چین نیازی نداره
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119984
-
-<div align="center"><video src="telegram/content/alonews_119984.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119984.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈حزب‌الله دو سرباز اسرائیلی رو که داشتن فرار میکردن هدف گرفت و با پهپاد کُشت
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119983
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈گزارش واشنگتن پست از یک ارزیابی اطلاعاتی محرمانه ایالات متحده: چین در نتیجه جنگ جاری آمریکا با ایران، در زمینه های نظامی، اقتصادی، دیپلماتیک و رسانه ای، دستاوردهای استراتژیک گسترده‌ای را به هزینه ایالات متحده به دست می آورد ، در حالی که نگرانی فزاینده‌ای در وزارت دفاع ایالات متحده در مورد پیامدهای ژئوپلیتیکی این درگیری وجود دارد
-
-🔴پکن از جنگ با ایران برای تقویت جایگاه بین‌المللی خود استفاده کرد، در حالی که واشنگتن بخش قابل توجهی از قابلیت‌های نظامی و اقتصادی خود را از بین برد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119982
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رسایی؛ نماینده‌ی مجلس:
-دولت قصد داره میزان سهمیه ماهانه بنزین ۱۵۰۰ تومنی و ۳۰۰۰ تومنی رو کاهش بده و قیمت بنزین ۵۰۰۰ تومنی رو هم به ۲۰۰۰۰ تومن برسونه.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119981
-
-<div align="center"><img src="telegram/content/alonews_119981.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟 اشتراک v2ray استارلینک
-
-🗯گیگی 150,000 تومان
-🔗لینک ساب برا چک کردن مصرف و حجمتون
-🔥سرعت و کیفیت بالا
-✅ پشتیبانی دائم
-
-📱جهت خرید پیام بدین : @v2safeBot
 </div>
 

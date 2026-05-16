@@ -1,8 +1,20 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 21:16
+📅 آخرین بروزرسانی: 1405/02/26 22:17
 
 ---
+
+## FoxNewsTwitter — post 341825
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341825.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341825.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WELCOME HOME! The USS Winston S. Churchill returned home after a successful 11-month deployment with the USS Gerald R. Ford Carrier Strike Group supporting Operation Epic Fury.
+</div>
 
 ## FoxNewsTwitter — post 341824
 
@@ -255,13 +267,5 @@ BREAKING: President Trump is now back in the U.S.
 The president waved and pumped his fist as he stepped off Air Force One at Joint Base Andrews on Friday evening following his multi-day trip to China.
 
 Trump has said that he and Chinese President Xi Jinping largely agreed Iran must not have a nuclear weapon and that the Strait of Hormuz should be reopened.
-</div>
-
-## FoxNewsTwitter — post 341802
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: The U.S. Supreme Court has denied Virginia's attempt to get its state supreme court's decision tossing out controversial election map overturned. The state's Democratic leaders had redrawn congressional maps, giving their party 10 out of 11 seats.
 </div>
 

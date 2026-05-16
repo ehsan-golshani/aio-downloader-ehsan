@@ -1,8 +1,28 @@
 # آرشیو کانال IranianMinds - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 21:28
+📅 آخرین بروزرسانی: 1405/02/26 22:29
 
 ---
+
+## IranianMinds — post 20190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+تنها کشورهایی که قادر به خارج کردن غبار هسته‌ای از ایران هستند، آمریکا و چین هستند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20189
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+می‌توانستیم پل‌ها و شبکه‌های برق ایران را نابود کنیم و همه چیز را آن‌جا طی دو روز از بین ببریم.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20188
 
@@ -195,39 +215,5 @@
 ➖➖➖➖➖➖➖➖➖
 🪙همین حالا عضو شوید 👇
 https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20169
-
-<div align="center"><img src="telegram/content/IranianMinds_20169.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
-
-👍دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-re25
-🔔کانال دربی بت :
-🪙https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ :
-
-نابودی نظامی ایران ادامه خواهد داشت
-
-@IranianMinds
 </div>
 

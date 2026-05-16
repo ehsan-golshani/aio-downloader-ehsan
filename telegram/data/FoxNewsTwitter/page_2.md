@@ -1,8 +1,16 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 21:16
+📅 آخرین بروزرسانی: 1405/02/26 22:17
 
 ---
+
+## FoxNewsTwitter — post 341802
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: The U.S. Supreme Court has denied Virginia's attempt to get its state supreme court's decision tossing out controversial election map overturned. The state's Democratic leaders had redrawn congressional maps, giving their party 10 out of 11 seats.
+</div>
 
 ## FoxNewsTwitter — post 341801
 
@@ -255,23 +263,5 @@ Fox News got behind-the-scenes access to the FBI’s Redstone facility in Huntsv
 Fox News (Twitter/X)
 
 WATCH LIVE: U.S. Attorney Jeanine Pirro unveils safety plans for America 250 events https://twitter.com/i/broadcasts/1PKqrEmdrknGb
-</div>
-
-## FoxNewsTwitter — post 341780
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341780.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341780.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NEW: President Trump defends the timeline of America’s conflict with Iran and highlights the devastating impact of U.S. strikes during an exclusive interview with @BretBaier.
-
-The President dismissed critics who claim he underestimated the situation, noting that the U.S. has maintained significant restraint by leaving critical infrastructure like electricity and Kharg Island oil valves intact despite having the capability to "knock that all out in two days."
-
-"I didn't underestimate anything. We hit them unbelievably hard. Look, we left their bridges. We left their electricity capacity. We can knock that all out in two days. Two days. Everything. We left Kharg Island, other than I said, hit it except for the valves where the oil comes out."
-
-Watch the full interview at 6 p.m. ET on ‘Special Report”’
 </div>
 

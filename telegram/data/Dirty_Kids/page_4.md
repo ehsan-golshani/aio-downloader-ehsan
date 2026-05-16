@@ -1,8 +1,39 @@
 # آرشیو کانال Dirty_Kids - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 21:31
+📅 آخرین بروزرسانی: 1405/02/26 22:31
 
 ---
+
+## Dirty_Kids — post 389502
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389502.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+⚫️با بالاترین کیفیت ممکن⚡️ 
+⚫️100 هزار تومان شارژ هدیه 🎁
+⚫️پایین ترین قیمت گیگی 250🌐 
+⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
+
+بادبان راهتو باز می‌کنه⛵️
+
+G25
+🛡@BadBan_VPN | کانال 
+🤖@BadBan_VPNBot | ربات 
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389501
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نمیدونم کیه این پسره و چه برنامه‌ای هست ولی داره درست میگه، این اقلیت ۵درصدی رافضی ولایت‌به‌باسن برای اینکه بمونن راضین همرو بکشن
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389500
 
@@ -261,27 +292,6 @@ R25
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 زندگی تو ایران که استرس نداره بابا
 ممد ۲۰ ساله:
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389481
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاش حداقل خودمون ریده بودیم تو زندگیمون. درس خوندیم، کار کردیم، زحمت کشیدیم و نهایتا دستاوردش چی بوده؟ کیرخر
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389480
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389480.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امیدوارم برسه به دست ترامپ.
-عمویم خریت بچه ‌شیعه:
 
 
 @Dirty_Kids 👻

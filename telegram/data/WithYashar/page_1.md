@@ -1,8 +1,71 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 21:15
+📅 آخرین بروزرسانی: 1405/02/26 22:16
 
 ---
+
+## WithYashar — post 11415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قلعه نویی در لیست نهایی جام جهانی آزمونو خط زد و گفت باشرف هارو دعوت کردم.
+@withyashar
+</div>
+
+## WithYashar — post 11414
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وال استریت ژورنال : ایران و آمریکا بر سر یک موضوع توافق دارند در حالی که بن‌بست دیپلماتیک بین تهران و واشنگتن ادامه دارد, هر دو طرف می‌گویند که در حال حاضر درباره سرنوشت ذخایر اورانیوم غنی‌شده ایران بحث نمی‌کنند.
+@withyashar
+</div>
+
+## WithYashar — post 11413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتانیاهو : اگه آمریکا دوباره بخواد عملیات نظامی علیه ایران رو شروع کنه، اسرائیل آماده‌ست
+@withyashar
+</div>
+
+## WithYashar — post 11412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داداش ناموسا من اونجا بودم داد میزدم به شاهزاده میگفتم حتما با یاشار ملاقات حضوری بکن
+</div>
+
+## WithYashar — post 11411
+
+<div align="center"><img src="telegram/content/WithYashar_11411.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو سخت ترین شرایط بهمون روحیه دادی، تو جلسه ی بچه های تکنولوژی با شاهزاده به یادت بودیم!❤️
+</div>
+
+## WithYashar — post 11410
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرهاد مجیدی با البطائح به دسته دو امارات سقوط کرد
+@withyashar
+</div>
+
+## WithYashar — post 11409
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این ناو گروه در حال فرار هستن یا چی ؟
+</div>
+
+## WithYashar — post 11408
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این ناو گروه در حال فرار هستن یا چی ؟
+</div>
+
+## WithYashar — post 11407
+
+<div align="center"><img src="telegram/content/WithYashar_11407.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ناوگروه آبراهام لینکلن با سه اسکورت با سرعت به سمت دریای عمان می‌ روند ، ۲۶ اردیبهشت. (مکان 260 کیلومتری چابهار)
+@withyashar
+</div>
 
 ## WithYashar — post 11406
 
@@ -89,74 +152,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این پست اوناییکه استیکر خنده گذاشتن رو از کانال مسدودشون کن
-</div>
-
-## WithYashar — post 11395
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این پست اوناییکه استیکر خنده گذاشتن رو از کانال مسدودشون کن
-</div>
-
-## WithYashar — post 11394
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لازم به ذکر است شخص اینجانب ، یاشار در اتاق جنگ هیچ رابطه و تیمکشی با هیچ گروه جناح و سمتی ندارم مسیر من مسیر مانوک خدابخشیان و فریدون فرخزاد است و هم پیمانان من فقط مردم واقعی و وطن پرست ایران هستند و برگ برنده ما همه با هم اینجا برای عبور از مسیر فقط فقط فقط خود شخص شاهزاده رضا پهلوی است ، یک بار دیگه خواستم اهداف و مسیر خودم را مشخص و کلیر کنم
-@withyashar
-</div>
-
-## WithYashar — post 11393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشاورین شاهزاده (امیر اعتمادی و سعید قاسمینژاد) ، علی کریمی‌ رو به علت واکنش ‌به کنسرت و آهنگ شاهین نجفی آنفالو کردند
-@withyashar
-</div>
-
-## WithYashar — post 11392
-
-<div align="center"><img src="telegram/content/WithYashar_11392.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز جهانی پسر بچه … به یاد جاوید نام های کوچکمون مبارزه میکنیم تا نسل جدید این درد ها رو نکشه !
-@withyashar
-</div>
-
-## WithYashar — post 11390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایسنا: وزیر کشور پاکستان برای دیدار با مسئولان جمهوری اسلامی ساعاتی قبل به تهران سفر کرده.
-@withyashar
-</div>
-
-## WithYashar — post 11389
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال ۱۲ اسرائیل مدعی شد: ترامپ بزودی با اعضای کابینه خود جلسه اضطراری برای پایان دادن به اوضاع ایران برگزار میکند.
-@withyashar
-</div>
-
-## WithYashar — post 11388
-
-<div align="center"><video src="telegram/content/WithYashar_11388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظر کلی رسانه ها اینه که ۷۲ ساعت طلایی پیشه رو داریم 😬
-@withyashar
-</div>
-
-## WithYashar — post 11387
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شبکه فاکس نیوز: ارتش آمریکا درحال آماده شدن برای دور جدیدی از درگیری های نظامی در ایران است
-@withyashar
-</div>
-
-## WithYashar — post 11386
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایال زمیر، رئیس ستاد کل نیروهای مسلح اسرائیل اعلام کرد کشته‌شدن عزالدین الحداد، فرمانده‌ شاخه ‌نظامی «حماس» یک گام مهم و موفقیتی بزرگ در عرصه عملیاتی است.
-او افزود اسرائیل «با جدیت» به‌ تعقیب و هدف قرار دادن سایر رهبران و فرماندهان حماس ادامه خواهد داد.
-@withyashar
 </div>
 

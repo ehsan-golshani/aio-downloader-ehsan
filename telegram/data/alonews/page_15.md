@@ -1,8 +1,116 @@
 # آرشیو کانال alonews - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/02/26 21:34
+📅 آخرین بروزرسانی: 1405/02/26 22:34
 
 ---
+
+## alonews — post 120069
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈دونالد ترامپ،در مصاحبه‌ای مدعی شد آنها (چینی‌ها) موافقت کرده‌اند که می‌خواهند از ایالات متحده نفت بخرند.
+
+🔴آنها قرار است به تگزاس بروند. ما قرار است کشتی‌های چینی را به تگزاس و لوئیزیانا و آلاسکا بفرستیم.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120068
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈جدیدترین رای گیری برای محدود کردن اختیارات جنگی ترامپ در مجلس آمریکا ۲۱۲ رای مخالف و ۲۱۲ رای موافق آورد و بازم شکست خورد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120067
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 الجزیره از بزرگ‌ترین تبادل اسرا در جنگ یمن خبر داد، بیش از ۱۶۰۰ زندانی آزاد می‌شوند
+
+
+
+🔴 دولت مورد حمایت سازمان ملل در یمن و حوثی‌ها در توافقی که با میانجی‌گری سازمان ملل در اردن امضا شد، بر سر تبادل بیش از ۱۶۰۰ زندانی به توافق رسیدند؛ اقدامی که بزرگ‌ترین مبادله اسرا از زمان آغاز جنگ داخلی یمن در سال ۲۰۱۴ توصیف شده است.
+
+🔴 بر اساس این توافق، حوثی‌ها ۵۸۰ زندانی، از جمله ۷ شهروند سعودی و ۲۰ سودانی را آزاد می‌کنند و در مقابل، دولت یمن ۱۱۰۰ زندانی حوثی را تحویل خواهد داد. مقام‌های دو طرف می‌گویند مجموع افراد مشمول این توافق به حدود ۱۷۲۸ نفر می‌رسد.
+
+🔴 الجزیره گزارش داده دو طرف همچنین بر سر ادامه مذاکرات، بازدید متقابل از بازداشتگاه‌ ها و اجرای عملیات آزادی زندانیان با همکاری کمیته بین‌المللی صلیب سرخ توافق کرده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120066
+
+<div align="center"><video src="telegram/content/alonews_120066.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120066.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ در مصاحبه با فاکس‌نیوز: افزایش قیمت بنزین، بهایی است که آمریکایی‌ها باید برای جلوگیری از دستیابی ایران به سلاح هسته‌ای بپردازند.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120065
+
+<div align="center"><img src="telegram/content/alonews_120065.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈نیروهای دفاعی اسرائیل هشدار تخلیه برای چندین شهر در منطقه صور در جنوب لبنان صادر کرده‌اند و نسبت به حملات احتمالی اسرائیل هشدار داده‌اند.
+
+🔴 از ساکنان خواسته شده حداقل ۱ کیلومتر از مناطق مشخص شده فاصله بگیرند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار المیادین در پکن: بسیاری از اظهارات آمریکایی ها می گویند که ترامپ چین را متقاعد کرد که موضع خود را در قبال ایران تغییر دهد و این درست نیست.
+
+🔴موضع چین در قبال ایران روشن، ثابت است و تغییری نکرده است. دیروز به طور کامل از صحبت در این مورد خودداری کرد و هر آنچه خلاف آن شایعه می شود کذب محض است.
+
+🔴 چین صبح امروز تصمیم گرفت موضع خود را از طریق بیانیه کامل وزارت خارجه منتشر کند تا تمام حقیقت روشن شود
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120063
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رویترز: ترامپ مدعی شد «توافق‌های تجاری فوق‌العاده‌ای» با چین حاصل شده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120062
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: رئیس‌جمهور چین می‌خواهد شاهد توافق با ایران باشد و برای کمک به این کار اعلام آمادگی کرده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120061
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قیمت جهانی نفت روز جمعه پس از آن افزایش یافت که دونالد ترامپ اعلام کرد چین پس از گفت‌وگوهای او با شی جین‌پینگ، با خرید نفت از آمریکا موافقت کرده است.
+
+🔴 با این حال، پکن تاکنون این ادعا را تأیید نکرده و به درخواست رسانه‌ها برای اظهار نظر نیز پاسخی نداده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120060
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ، به شبکه فاکس نیوز: مذاکره با ایران درباره کنار گذاشتن غبار هسته‌ای به دلیل تضاد در تصمیمات ایران، رفت و برگشت دارد
+
+🔴تأسیسات هسته‌ای ایران تحت نظارت مداوم ۹ دوربین، ۲۴ ساعته قرار دارند.
+🔴هرگونه تحرک ایرانی در داخل تأسیسات هسته‌ای با واکنش مستقیم نظامی مواجه خواهد شد.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120059
 
@@ -123,94 +231,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈عوستاد رائفی پور:
 آمریکایی‌ها متحد نیستن و بزودی تجزیه میشن
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120049
-
-<div align="center"><img src="telegram/content/alonews_120049.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تصویری وایرال شده از گلشیفته فراهانی و امانوئیل مکرون
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120048
-
-<div align="center"><img src="telegram/content/alonews_120048.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈یدیعوت آحارونوت: اسرائیل می‌خواد اگه درگیری با ایران دوباره شروع بشه،تمرکزش روی زدن زیرساخت‌ها و اهداف انرژی باشه
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120047
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری/سفر هفته آینده رئیس جمهور اسرائیل به آمریکا به طور ناگهانی لغو شد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120046
-
-<div align="center"><img src="telegram/content/alonews_120046.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجیب ترین توافق نامه ازدواج که توی دوران جنگ رقم خورد:
-
-[@AloTweet]
-</div>
-
-## alonews — post 120045
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تعرفه سرویس های Vip ⭕️ ✅ 1 گیگابایت ⬅️ 235/000 تومان ✅ 3 گیگابایت ⬅️ 735/000 تومان استارلینک Vip 💫 🌟 ⭐️ 5 گیگابایت ⬅️ 1/150/000 تومان ⭐️ 10 گیگابایت ⬅️ 2/350/000 تومان ویژگی های سرویس های Vip : ❤️‍🔥 ✅    متصل در تمامی دستگاه و اپراتور ها ✅    مناسب استفاده…
-</div>
-
-## alonews — post 120044
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سنتکام: از آغاز محاصره دریایی بنادر ایران، 72 کشتی تجاری را منحرف و 4 کشتی را از کار انداختیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت خارجه قطر: ما به طور کامل از تلاش‌های پاکستان برای میانجیگری بین آمریکا و ایران حمایت می‌کنیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120042
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سوپر اپ روبیکا بیش از یک ساعته قطع شده
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120041
-
-<div align="center"><img src="telegram/content/alonews_120041.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈محمدباقر قالیباف: پس شما به هگست، مجری تلویزیونی شکست‌خورده، بودجه‌ای می‌دهید که از سال ۲۰۰۷ بی‌سابقه است، تا بتواند در حیاط خلوت ما در هرمز نقش وزیر جنگ را بازی کند؟
-
-🔴می‌دانی چه چیزی دیوانه‌کننده‌تر از ۳۹ تریلیون دلار بدهی است؟ پرداخت حق بیمه پیش از بحران مالی جهانی برای حمایت از یک بازی نقش‌آفرینی زنده (LARP) و تنها چیزی که به دست می‌آوری یک بحران مالی جهانی جدید است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رئیس‌جمهور ترامپ و هیئت همراهش در طول سفر به چین از تلفن‌ها و لپ‌تاپ‌های جایگزین استفاده کردند به دلیل نگرانی‌هایی که داشتند مبنی بر اینکه مقامات چینی ممکن است از آن‌ها برای نصب نرم‌افزار جاسوسی استفاده کنند، طبق گزارش فاکس نیوز.
 
 ✅ @AloNews خبر جنگ
 </div>

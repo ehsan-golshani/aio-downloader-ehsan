@@ -1,8 +1,28 @@
 # آرشیو کانال IranianMinds - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 21:28
+📅 آخرین بروزرسانی: 1405/02/26 22:29
 
 ---
+
+## IranianMinds — post 20147
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## IranianMinds — post 20146
+
+<div align="center"><img src="telegram/content/IranianMinds_20146.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خبرگزاری ایسنا :
+
+از الان دیگه باید با قیمت قطعی خودرو خداحافظی کنید؛
+
+در طرح جدید ایران ‌خودرو و سایپا، خریداران باید نصف پول رو از اول بدن بدون اینکه حتی بفهمن قیمت نهایی زمان تحویل خودرو براشون چقدره !
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20145
 
@@ -221,17 +241,5 @@ ge24
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 لامین یامال بازیکن چپول بارسلونا که تو‌ جشن قهرمانی بارسا پرچم فلسطینو گرفته دستش @IranianMinds
-</div>
-
-## IranianMinds — post 20126
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ShirOKhorshid-2026.05.14.apk
-</div>
-
-## IranianMinds — post 20125
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ShirOKhorshid-2026.05.14.apk
 </div>
 

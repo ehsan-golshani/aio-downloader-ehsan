@@ -1,8 +1,60 @@
 # آرشیو کانال WithYashar - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 21:15
+📅 آخرین بروزرسانی: 1405/02/26 22:16
 
 ---
+
+## WithYashar — post 11353
+
+<div align="center"><img src="telegram/content/WithYashar_11353.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جلد جدید مجله تایم: چگونه دیدار ترامپ و شی، نظم نوین جهانی را نشان داد
+@withyashar
+</div>
+
+## WithYashar — post 11352
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ خیلی عجله داشته هیچ فیلمی عکسی از رسیدنش نیومده بیرون ! عجبیه
+</div>
+
+## WithYashar — post 11351
+
+<div align="center"><video src="telegram/content/WithYashar_11351.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11351.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## WithYashar — post 11350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حوس لوبیا پلو کردم 😅 امشب که بیداریم درست کنم
+</div>
+
+## WithYashar — post 11349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ در تروث : تینا را آزاد کنید
+@withyashar
+تینا پیترز یک مقام انتخاباتی سابق آمریکاست که به‌خاطر دخالت غیرقانونی در سیستم‌های رأی‌گیری بعد از انتخابات 2020 زندانی شده و حالا ترامپ از او حمایت سیاسی می‌کند
+</div>
+
+## WithYashar — post 11348
+
+## WithYashar — post 11347
+
+## WithYashar — post 11346
+
+## WithYashar — post 11345
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک‌تایمز به نقل از ۲ مقام امنیتی:
+
+آمریکا و اسرائیل در حال آماده‌سازی گسترده برای احتمال ازسرگیری حملات علیه جمهوری اسلامی هستند،
+
+این حمله ممکن است از هفته آینده آغاز شود
+@withyashar
+</div>
 
 ## WithYashar — post 11344
 
@@ -73,78 +125,5 @@
 
 او متهم به طراحی حداقل 18 حمله در اروپا، آمریکا و کانادا از پایان فوریه شده؛ این حملات به عنوان انتقام از حملات آمریکا و اسرائیل علیه جمهوری اسلامی برنامه‌ریزی شده بودن.
 @withyashar
-</div>
-
-## WithYashar — post 11333
-
-<div align="center"><video src="telegram/content/WithYashar_11333.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11333.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لحظه خداحافظی ترامپ با شی و خوشحالی او از سفر موفقیت آمیزش
-@withyashar
-</div>
-
-## WithYashar — post 11332
-
-<div align="center"><video src="telegram/content/WithYashar_11332.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11332.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏مایک والتز، سفیر آمریکا در سازمان ملل ، می‌گوید که یکی از «نتایج بزرگ» سفر ترامپ به چین این بود که چین موافقت کرده از ایران فاصله بگیرد.
-@withyashar
-</div>
-
-## WithYashar — post 11331
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منابع عبری :
-
-گویا ترامپ با یک حمله محدود جهت فشار بر سر تسلیم شدن موافقت کرده است
-@withyashar
-</div>
-
-## WithYashar — post 11330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واشنگتن پست: جمهوری اسلامی واضح‌ترین بازنده دیدار ترامپ از پکن است، با مخالفت علنی پکن با اختلال در هرمز، تعهد به عدم ارسال تجهیزات نظامی به تهران و توافق بر اینکه تنگه «باید باز بماند.»
-@withyashar
-</div>
-
-## WithYashar — post 11328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-l وزارت خارجه آمریکا اعلام کرد آتش‌بس میان لبنان و اسرائیل به مدت ۴۵ روز دیگر تمدید شد.
-@withyashar
-</div>
-
-## WithYashar — post 11327
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar
-</div>
-
-## WithYashar — post 11326
-
-<div align="center"><video src="telegram/content/WithYashar_11326.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11326.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar
-</div>
-
-## WithYashar — post 11325
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میگم فالورایه شاهزاده داره کم میشه قبله جنگ ۹.۹ بود الان ۹.۷ شده
-</div>
-
-## WithYashar — post 11324
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میگم فالورایه شاهزاده داره کم میشه قبله جنگ ۹.۹ بود الان ۹.۷ شده
 </div>
 

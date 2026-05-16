@@ -1,8 +1,31 @@
 # آرشیو کانال Dirty_Kids - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 21:31
+📅 آخرین بروزرسانی: 1405/02/26 22:31
 
 ---
+
+## Dirty_Kids — post 389552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمونم خونه overthink ميكنم، برم بيرون overpay.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389551
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389551.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389551.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مامانم وقتی میگم از عمه خبری نیست:
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389550
 
@@ -260,34 +283,6 @@ A25
 
 یه عده دفاع میکنن ازش
 یه عده هیت میدن
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389528
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389528.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 طبق گفته دو مقام خاورمیانه‌ای، آمریکا و اسرائیل دارن آماده‌سازی خیلی گسترده‌ای انجام می‌دن. (بزرگ‌ترین سطح از وقتی که آتش‌بس برقرار شده)
-
-این آماده‌سازی‌ها انقدر جدیه که ممکنه از هفته آینده دوباره حملات شروع بشه.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389526
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389526.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389526.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز یکی تو فضای مجازی با هوش مصنوعی یه عکس از ترامپ و ایلان ماسک زیر پرچم داس و چکشِ کمونیست ساخت؛
-
-بعد تو صداوسیما، خانعلی زاده (کارشناس روابط خارجی و همراه تیم مذاکره کننده تو سفر به پاکستان) خیلی جدی تحلیل کرد که این عکس خروجی سفر ترامپه و این یعنی آمریکا همیشه زیرخوابِ چینه...
 
 
 @Dirty_Kids 👻
