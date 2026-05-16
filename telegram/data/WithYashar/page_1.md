@@ -1,8 +1,36 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 22:16
+📅 آخرین بروزرسانی: 1405/02/26 23:25
 
 ---
+
+## WithYashar — post 11419
+
+## WithYashar — post 11418
+
+<div align="center"><img src="telegram/content/WithYashar_11418.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشاورین شاهزاده (امیر اعتمادی و سعید قاسمینژاد) ، علی کریمی‌ رو به علت واکنش ‌به کنسرت و آهنگ شاهین نجفی آنفالو کردند @withyashar
+</div>
+
+## WithYashar — post 11417
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاهزاده رضا پهلوی در نشست آینده تکنولوژی در ایران:
+
+ایران می‌تونه به کره جنوبی تبدیل بشه، اما به دلیل وضعیت سیاسی کنونی به سمت الگویی شبیه کره شمالی سوق داده شده؛ جمهوری اسلامی در ذات خودش قابل تغییر نیست.
+
+@withyashar
+</div>
+
+## WithYashar — post 11416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۳ اسرائیل:
+اسرائیل در بالاترین سطح هشدار برای احتمال از سرگیری جنگ با ایران است. در صورت از سرگیری جنگ با ایران، احتمال دارد ایران در روزهای نخست ده‌ها موشک به سمت اسرائیل شلیک کند.
+@withyashar
+</div>
 
 ## WithYashar — post 11415
 
@@ -125,32 +153,5 @@
 شوخی نداریم!!!
 ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیفته!
 @withyashar
-</div>
-
-## WithYashar — post 11399
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سقوط یک شهر پاکستان به دست جدایی‌طلبان
-
-منابع محلی روز شنبه از تسلط جدایی‌طلبان بلوچ بر شهر راهبردی دالبندین در پاکستان خبر می‌دهند.
-@withyashar
-</div>
-
-## WithYashar — post 11398
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط برای یک پست که نمیشه ببندم مهندس ! کلا ببندمم که یعنی میگی خنده رو از روی لب چندین هزار نفر بگیرم به خاطر ده نفر. ما اینجا هدف اصلیمون مبارزه با اخبار سمیه و روحیه دادن به مردم. اجازه بدید در عرزشی سوزترین رسانه ایرانی بسوزند و حرس بخورند
-</div>
-
-## WithYashar — post 11397
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میتونی ری‌اکشن رو هم ببندی داداش!
-</div>
-
-## WithYashar — post 11396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این پست اوناییکه استیکر خنده گذاشتن رو از کانال مسدودشون کن
 </div>
 

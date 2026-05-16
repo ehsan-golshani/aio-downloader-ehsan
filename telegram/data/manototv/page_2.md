@@ -1,8 +1,18 @@
 # آرشیو کانال manototv - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 22:33
+📅 آخرین بروزرسانی: 1405/02/26 23:42
 
 ---
+
+## manototv — post 105516
+
+<div align="center"><video src="telegram/content/manototv_105516.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105516.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سوییس، تجمع مقابل سفارت جمهوری اسلامی، ۲۶ اردیبهشت ۱۴۰۵
+</div>
 
 ## manototv — post 105515
 
@@ -257,15 +267,5 @@
 سی‌ان‌ان پیش‌تر گزارش داده بود مقام‌های آمریکایی معتقدند جمهوری اسلامی او را جذب کرده و ویت پس از فرار به ایران، هویت یک مأمور اطلاعاتی آمریکا و جزئیات یک برنامه فوق‌محرمانه اطلاعاتی را افشا کرده است.
 
 کیفرخواست این پرونده همچنین نام چهار شهروند ایرانی را در ارتباط با اتهام‌هایی از جمله توطئه، تلاش برای هک رایانه‌ای و سرقت هویت ذکر کرده است.
-</div>
-
-## manototv — post 105496
-
-<div align="center"><video src="telegram/content/manototv_105496.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105496.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما صدای فاطمه سپهری هستیم
 </div>
 

@@ -1,8 +1,71 @@
 # آرشیو کانال Dirty_Kids - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 22:31
+📅 آخرین بروزرسانی: 1405/02/26 23:40
 
 ---
+
+## Dirty_Kids — post 389534
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389534.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389534.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عمو مانوک؛ اخلاق رضاشاه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389533
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389533.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاتو لیس بزن گه اضافه نخور 😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389532
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389532.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389532.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+املاکی در مصاحبه با Bret Baier مجری برنامه Special Report شبکه فاکس نیوز در خصوص خواری که رژیم کسمغز روافض در مذاکرات ازش گاییدن فرموده که:
+
+
+«ما واقعاً به نوعی از پایه‌های یک توافق رسیده بودیم. بدون سلاح هسته‌ای.
+
+اون‌هزارپدرای قحبه‌ قرار بود غبار هسته‌ای رو به ما تحویل بدن، همه چیو، هر چیزی که ما می‌خواستیم.
+
+و هر بار که توافقی می‌کنن، این پدرخرابا روز بعدش به جوری رفتار می‌کنن که انگار ما از اساس همچی گفتگویی نداشتیم، و این اتفاق حدود پنج بار رخ داده.
+
+یک مشکلی در این مادرقحبه‌های رافضی وجود داره، در واقع این حرومیا دیونه میوونه‌اند. [علاوه بر کسمغزی،خدعه‌زاده‌ان شیر خدا. اما خب دو بار گاییدی‌شون و فهمیدن اون ممه رو لولو خورد]
+
+و می‌دونید چیه؟ به همین دلیل، این جاکش‌پدرا‌ نباید سلاح هسته‌ای داشته باشن»
+
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389529
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389529.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این بانو که یکم حشری‌طور میزنه امروز حاشیه ساز بوده
+
+یه عده دفاع میکنن ازش
+یه عده هیت میدن
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389528
 
@@ -204,71 +267,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✖️ سایت بین المللی bet120x ✖️  👍دارای مجوز رسمی Gambling Judge سوئد👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    3️⃣2️⃣ 🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
-</div>
-
-## Dirty_Kids — post 389510
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389510.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x ✖️
-
- 👍دارای مجوز رسمی Gambling Judge سوئد👍
-     
-💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
-💳تسویه حساب دلاری سریع
-💊بیمه شرط میکس
-⚠️فروش شرط
-🔔ویرایش شرط                    3️⃣2️⃣
-
-🎁20%هدیه واریز از طریق ارز و ووچر
-┅━━━━━━━━━━━
-🎁 10%برگشت باخت به صورت روزانه
-🎁 10%برگشت باخت به صورت هفتگی
-🎁10%برگشت باخت به صورت ماهانه
-💻ادرس ورود به سایت:
-https://bet120x.com/fa/?btag=971470
-➖➖➖➖➖
-   👈 آموزش واریز و برداشت دلاری👉
-
-🔪کانال اطلاع رسانی:👇
-✈️https://t.me/+1Wv5nGY_a54xNzlk
-</div>
-
-## Dirty_Kids — post 389505
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389505.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این شما و این منتخب ژانر از کِی فهمیدین کسخلید توی توییتر :))
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389504
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389504.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389504.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مبارزه بانو هایده در برابر معین به کمک مدل Seedance 2.0 در سرویس PolloAI!
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389503
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389503.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389503.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بحران زیست‌محیطی در خلیج فارس در پی نشت نفت از جزیره مارو
-
-
-@Dirty_Kids 👻
 </div>
 

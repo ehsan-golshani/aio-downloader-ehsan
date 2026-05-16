@@ -1,8 +1,44 @@
 # آرشیو کانال WithYashar - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/26 22:16
+📅 آخرین بروزرسانی: 1405/02/26 23:25
 
 ---
+
+## WithYashar — post 11193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک مقام کاخ سفید به فاکس‌نیوز:
+
+رئیس‌جمهور چین علاقه‌مند است نفت بیشتری از آمریکا خریداری کند تا وابستگی کشورش به تنگه هرمز را کاهش دهد.
+@withyashar
+</div>
+
+## WithYashar — post 11192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جان بولتون: مذاکره با ایران برای یک توافق هسته‌ای هدر دادن اکسیژن است.
+
+این افراد دهه‌ها پیش تصمیم استراتژیکی برای دستیابی به سلاح‌های هسته‌ای گرفتند و در این ۴۷ سال هیچ مدرکی وجود ندارد که نشان دهد آن‌ها این هدف را رها کرده‌اند.
+@withyashar
+</div>
+
+## WithYashar — post 11191
+
+<div align="center"><video src="telegram/content/WithYashar_11191.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11191.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ بعد از ۵۰ سال، اولین رئیس‌ جمهوری شد که به معبد آسمان چین رفت
+@withyashar
+</div>
+
+## WithYashar — post 11190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاخ سفید : ترامپ و شی توافق کردن که تنگه هرمز باید باز بمونه
+@withyashar
+</div>
 
 ## WithYashar — post 11189
 
@@ -138,34 +174,4 @@
 <div align="center"><video src="telegram/content/WithYashar_11174.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="telegram/content/WithYashar_11174.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-## WithYashar — post 11173
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درودی دوباره یاشار جان
-میشه سوال منو ج بدین چرا ترامپ وقتی وارد چین شد نیومد ریس جمهور استقبالش در صورتی که باید بیاد ؟
-</div>
-
-## WithYashar — post 11172
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال N12: ترامپ داره به صدور دستور برای از سرگیری درگیری با ایران فکر می‌کنه
-@withyashar
-</div>
-
-## WithYashar — post 11171
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ائتلاف حاکم در اسرائیل پیشنهاد انحلال کنست در تدارک برای برگزاری انتخابات زودهنگام را ارائه کرد.
-@withyashar
-</div>
-
-## WithYashar — post 11170
-
-<div align="center"><img src="telegram/content/WithYashar_11170.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دارن تحلیل میکنن چیکار کنن 😂😅
-@withyashar
-</div>
 

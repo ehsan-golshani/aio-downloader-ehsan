@@ -1,8 +1,18 @@
 # آرشیو کانال IranianMinds - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 22:29
+📅 آخرین بروزرسانی: 1405/02/26 23:38
 
 ---
+
+## IranianMinds — post 20084
+
+<div align="center"><img src="telegram/content/IranianMinds_20084.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دیگه شد یه کسب درآمد داعم براشون و همه جا شروع کردن به فروش سیمکارت و اینترنت پرو !
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20083
 

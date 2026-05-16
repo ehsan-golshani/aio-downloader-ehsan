@@ -1,8 +1,133 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 22:27
+📅 آخرین بروزرسانی: 1405/02/26 23:36
 
 ---
+
+## Persian_Trend_Official — post 14181
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14181.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14181.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 الجزیره: آمریکا تمامی شروط ایران را رد کرده است
+
+💢خبرنگار الجزیره گزارش داد تهران به‌صورت رسمی پاسخ واشینگتن به پیشنهاد ارائه‌شده از سوی ایران را دریافت کرده است.
+
+بر اساس این گزارش:
+
+▪️ ایالات متحده تمامی شروط مطرح‌شده از سوی ایران را رد کرده است
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14180
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢رئیس ستاد کل ارتش اسرائیل در جریان جنگ ایران به طور مخفیانه به امارات متحده عربی سفر کرد و با شیخ محمد بن زاید دیدار کرد — که به فهرست فزاینده‌ای از مقامات ارشد اسرائیلی پیوست که سفرهای مخفیانه در زمان جنگ به ابوظبی داشتند.
+
+💢امارات متحده عربی همچنان این دیدارها را انکار می‌کند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14179
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14179.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 آمریکا برای اطلاعات درباره واحد تولید پهپاد سپاه جایزه تعیین کرد
+
+💢وزارت خارجه آمریکا اعلام کرد برای دریافت اطلاعات درباره ۶ فرد مرتبط با واحد تولید پهپاد نیروی قدس سپاه پاسداران جایزه مالی تعیین کرده است.
+
+بر اساس بیانیه واشینگتن:
+
+▪️ این افراد با شرکت «کیمیا پارت سیوان» مرتبط هستند
+▪️ آمریکا مدعی است این مجموعه در آزمایش، توسعه و تأمین پهپادها نقش دارد
+▪️ اطلاعات درباره این افراد، همکاران یا شبکه‌های مالی آن‌ها می‌تواند مشمول جایزه شود
+
+💢برنامه پاداش امنیتی وزارت خارجه آمریکا اعلام کرده میزان این جایزه تا ۱۵ میلیون دلار خواهد بود.
+
+💢در متن منتشرشده آمده است:
+
+▪️ «به ما کمک کنید به منابع مالی سپاه ضربه بزنیم»
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14178
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ پکن را ترک کرد؛ پایان سفر رئیس‌جمهور آمریکا به چین
+
+💢دونالد ترامپ پس از پایان سفر خود به چین، سوار بر هواپیمای ریاست‌جمهوری آمریکا پکن را ترک کرد.
+
+در مراسم بدرقه:
+
+▪️ فرش قرمز برای رئیس‌جمهور آمریکا پهن شده بود
+▪️ حاضران پرچم‌های آمریکا و چین را در دست داشتند
+▪️ یک گروه موسیقی نظامی نیز در مراسم خداحافظی اجرا داشت
+
+💢سفر ترامپ به چین با دیدارهای مهم با شی جین‌پینگ و گفت‌وگو درباره موضوعاتی از جمله ایران، تایوان، تجارت و تنگه هرمز همراه بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14177
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ارتش اسرائیل مدعی انهدام پرتابگر راکتی حزب‌الله شد
+
+💢ارتش اسرائیل اعلام کرد یک سکوی پرتاب راکت متعلق به حزب‌الله را که برای شلیک به شمال اسرائیل استفاده شده بود، هدف قرار داده و منهدم کرده است.
+
+بر اساس ادعای ارتش اسرائیل:
+
+▪️ این پرتابگر در منطقه «زبقین» در جنوب لبنان قرار داشته است
+▪️ حمله پس از شلیک راکت‌ها به سمت شمال اسرائیل انجام شده
+▪️ این موضع متعلق به نیروهای حزب‌الله بوده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 چین خواستار مذاکره برای پایان جنگ ایران شد
+
+💢وزارت خارجه چین اعلام کرد ثبات در خلیج فارس و خاورمیانه در شرایط کنونی مهم‌ترین مسئله است و ادامه جنگ ایران پیامدهای خطرناکی برای منطقه به‌دنبال دارد.
+
+💢سخنگوی وزارت خارجه چین تأکید کرد:
+
+▪️ باید هرچه سریع‌تر راهی برای پایان جنگ پیدا شود
+▪️ فرصت آغاز مذاکرات و پایان درگیری‌ها نباید از دست برود
+▪️ بازگشایی و حفظ تردد آزاد در تنگه هرمز ضروری است
+▪️ گفت‌وگو و مذاکره تنها مسیر مناسب برای حل بحران محسوب می‌شود
+
+💢پکن همچنین هشدار داد هرگونه اختلال در تنگه هرمز می‌تواند تبعات گسترده‌ای برای اقتصاد و امنیت جهانی داشته باشد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14175
 
@@ -260,71 +385,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 https://youtube.com/live/SFBV2nP6Gs4?feature=share
-</div>
-
-## Persian_Trend_Official — post 14160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فایل صوتی لایو اول
-نسخه کم حجم - 8.26 مگابایت
-
-اتاق جنگ پنجشنبه 24 اردیبهشت | توافق چین و آمریکا در مورد ایران
-
-📝 Nick
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14159
-
-<div align="center"><img src="telegram/content/Persian_Trend_Official_14159.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🇨🇳 لی جون، بنیان‌گذار و مدیرعامل شرکت شیائومی، در حال گرفتن عکس سلفی با ایلان ماسک، ثروتمندترین فرد جهان و تاریخ.
-
-📝 Nick
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14156
-
-<div align="center"><img src="telegram/content/Persian_Trend_Official_14156.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اسرائیل در حال توزیع تورهای ضد پهپاد به نیروهای خود در جنوب لبنان برای مقابله با پهپادهای FPV حزب‌الله است.
-
-▪️تا کنون ۱۵۸٬۰۰۰ متر مربع نصب شده و ۱۸۸٬۰۰۰ متر مربع دیگر در سفارش است.
-
-🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://youtube.com/live/SFBV2nP6Gs4?feature=share
-</div>
-
-## Persian_Trend_Official — post 14154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا دقایقی دیگه لایو شروع میشه
-</div>
-
-## Persian_Trend_Official — post 14153
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❤️ اگر از مخاطبان پرشین ترند هستید و تلگرام پرمیوم دارید،
-با بوست کردن کانال کمک بزرگی به رشد و دیده‌شدن بیشتر پرشین ترند می‌کنید.
-این بوست‌ها باعث می‌شود امکانات بیشتری برای انتشار محتوا، استوری و قابلیت‌های ویژه کانال فعال شود و در شرایط فعلی، به ادامه پوشش سریع و تحلیل‌های روزانه کمک زیادی می‌کند.
-🙏 اگر مایل بودید، از طریق لینک زیر کانال را بوست کنید:
-https://t.me/boost/persian_trend_official
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>
 

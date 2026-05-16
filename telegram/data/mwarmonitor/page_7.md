@@ -1,8 +1,51 @@
 # آرشیو کانال mwarmonitor - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 22:16
+📅 آخرین بروزرسانی: 1405/02/26 23:25
 
 ---
+
+## mwarmonitor — post 9049
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فایننشال‌تایمز: اریک پسر دونالد ترامپ قرار است رئیس‌جمهور آمریکا را در یک سفر رسمی به پکن همراهی کند؛ هم‌زمان، یک گروه مرتبط با خانواده ترامپ در حال بررسی یک توافق با یک شرکت چینی سازنده تراشه است که کنگره آمریکا هشدار داده با حزب کمونیست چین ارتباط دارد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9048
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وال‌استریت ژورنال: مقامات کاخ سفید در حال بررسی طرحی هستند که بر اساس آن رئیس‌جمهور ترامپ به مناسبت جشن دویست‌وپنجاهمین سالگرد تولد این کشور، ۲۵۰ عفو صادر کند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری: بنیامین نتانیاهو به‌طور محرمانه به امارات متحده عربی سفر کرده و در جریان عملیات «شیر غران» علیه ایران با محمد بن زاید دیدار کرده است. i24 news
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9046
+
+<div align="center"><img src="telegram/content/mwarmonitor_9046.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️مأموریت WENCH11 (بمب‌افکن رادارگریز B-2A Spirit)
+🔸پس از سوخت‌گیری هوایی با پرواز DEED41 (تانکر KC-135 Stratotanker) بر فراز نوا اسکوشیا شرق کانادا، روی مسیر سوخت‌رسانی AR20NE، در باند VHF با Gander Radio در ارتباط بوده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9045
+
+<div align="center"><img src="telegram/content/mwarmonitor_9045.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ساعت 09:31 ـ 09:35 به وقت گرینویچ MISS 40 | 41 دو فروند بمب‌افکن استراتژیک B-1B از پایگاه Fairford به پرواز درآمده و با Brize در فرکانس 231.950 در حال ارتباط است. @mwarmonitor
+</div>
 
 ## mwarmonitor — post 9044
 

@@ -1,8 +1,38 @@
 # آرشیو کانال WithYashar - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/26 22:16
+📅 آخرین بروزرسانی: 1405/02/26 23:25
 
 ---
+
+## WithYashar — post 11173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درودی دوباره یاشار جان
+میشه سوال منو ج بدین چرا ترامپ وقتی وارد چین شد نیومد ریس جمهور استقبالش در صورتی که باید بیاد ؟
+</div>
+
+## WithYashar — post 11172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال N12: ترامپ داره به صدور دستور برای از سرگیری درگیری با ایران فکر می‌کنه
+@withyashar
+</div>
+
+## WithYashar — post 11171
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ائتلاف حاکم در اسرائیل پیشنهاد انحلال کنست در تدارک برای برگزاری انتخابات زودهنگام را ارائه کرد.
+@withyashar
+</div>
+
+## WithYashar — post 11170
+
+<div align="center"><img src="telegram/content/WithYashar_11170.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دارن تحلیل میکنن چیکار کنن 😂😅
+@withyashar
+</div>
 
 ## WithYashar — post 11169
 
@@ -128,45 +158,6 @@ https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بی‌حرکت ایستادن کامل افسر چینی هنگام عبور هواپیمای رئیس جمهور آمریکا (ایر فورس وان) در چند متری او، توجه بسیاری از رسانه‌ها را به خود جلب کرد
-@withyashar
-</div>
-
-## WithYashar — post 11153
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک مقام ارشد کُرد در گفتگو با کانال۱۳ اسرائیل:
-در واقع خود پرزیدنت ترامپ مانع از طرح اقدام ما علیه حکومت ایران شد و اتهامات او در مورد ضبط سلاح های معترضین در ایران توسط کُردها، ناعادلانه و غیرمنطقی است
-@withyashar
-</div>
-
-## WithYashar — post 11152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اتاق جنگ با شما : گزارش از جنگنده های ناشناس پرواز در ارتفاع پایین در‌ ارومیه و انفجار در شیراز
-@withyashar
-</div>
-
-## WithYashar — post 11151
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایال زامیر ، رئیس ستاد ارتش اسرائیل:
-نبرد تمام نشده است، ارتش اسرائیل آماده از سرگیری نبرد در صورت نیاز از کرانه باختری تا تهران است
-@withyashar
-</div>
-
-## WithYashar — post 11150
-
-<div align="center"><img src="telegram/content/WithYashar_11150.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برنامه های ترامپ با حاکم چین به این ترتیبه : مراسم استقبال تو تالار بزرگ خلق
-چهارشنبه رسیدن به پکن ، استقرار و استراحت
-پنج شنبه ۱۴ مه
-- ملاقات با شی - ضیافت دولتی با شی
-
-جمعه تاریخ ۱۵ مه
-- جلسه عکس با شی- چای با شی
-- ناهار با شی و حرکت از پکن به آمریکا،
 @withyashar
 </div>
 

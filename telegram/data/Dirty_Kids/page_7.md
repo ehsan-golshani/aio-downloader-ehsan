@@ -1,8 +1,59 @@
 # آرشیو کانال Dirty_Kids - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 22:31
+📅 آخرین بروزرسانی: 1405/02/26 23:40
 
 ---
+
+## Dirty_Kids — post 389441
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شی جین‌پینگ، رئیس‌جمهور چین در دیدار با ترامپ رئیس‌جمهور آمريکا:
+
+دو کشور ما باید شریک باشند، نه رقیب. مردم چین و ایالات متحده هر دو ملت‌های بزرگی هستند. تحقق احیای بزرگی ملت چین و عظمت دوباره آمریکا می‌تواند همزمان پیش برود. ما می‌توانیم به موفقیت یکدیگر کمک کنیم و رفاه کل جهان را ارتقا دهیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389437
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389437.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ تو چین یه جور داره رفتار میکنه که انگار اون میزبانه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389436
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این چه سمی بود دیدم 😂🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389435
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389435.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقیقا وقتی فکر می‌کنی جمهوری اسلامی تپه نریده باقی نذاشته، همون لحظه یه تپه جدید می‌سازه و میره سرش میرینه.
+فقط مونده بود برن از امارات کشتی بدزدن فرار کنن، که اونم گویا حاصل شد.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389434
 
@@ -235,62 +286,5 @@ R24
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍 🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
-</div>
-
-## Dirty_Kids — post 389414
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389414.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍
-
-🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
-
-رایگان بهترین شرط هارو براتون میذاره
-حتی هزار تومن هم دریافت نمیکنه
-روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
-A23
-اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
-✅https://t.me/+4_ADqwB9e-QwYjlk
-✅https://t.me/+4_ADqwB9e-QwYjlk
-</div>
-
-## Dirty_Kids — post 389413
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389413.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#بخوابیم
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389412
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زینب موشک دوست🤣🤣🤣
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389411
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ انیمیشن‌های لگویی وارد فاز جدیدی شد!
-
-لگوی شاه عالیه فقط! 👏🤩
-
-
-@Dirty_Kids 👻
 </div>
 

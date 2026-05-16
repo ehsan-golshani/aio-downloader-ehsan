@@ -1,8 +1,18 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 22:29
+📅 آخرین بروزرسانی: 1405/02/26 23:38
 
 ---
+
+## IranianMinds — post 20257
+
+<div align="center"><img src="telegram/content/IranianMinds_20257.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پست جدید ترامپ که دوباره گرفته رو‌ بایدن یتیم:
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20256
 
@@ -220,16 +230,6 @@ G26
 آمریکا و اسرائیل احتمالأ هفته آینده به ایران حمله خواهند کرد.
 
 بعضی از رسانه‌ها هم احتمال حمله را تا ۲۴ ساعت آینده تخمین می‌زنند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴جسی واترز، مجری فاکس‌نیوز:
-
-ترامپ در حال آماده شدن برای دور جدیدی از حملات به ایران است.
 
 @IranianMinds
 </div>

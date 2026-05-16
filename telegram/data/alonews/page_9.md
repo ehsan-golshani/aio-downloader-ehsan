@@ -1,8 +1,188 @@
 # آرشیو کانال alonews - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 22:34
+📅 آخرین بروزرسانی: 1405/02/26 23:43
 
 ---
+
+## alonews — post 120291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعرفه سرویس های Vip 
+⭕️
+
+
+✅ 1 گیگابایت 
+⬅️ 250/000 تومان
+✅ 3 گیگابایت ⬅️ 750/000 تومان
+
+استارلینک Vip 
+💫 
+🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات)
+
+
+⭐️ 5 گیگابایت 
+⬅️ 1/400/000 تومان
+⭐️ 10 گیگابایت ⬅️ 2/800/000 تومان
+
+ویژگی های سرویس های Vip : ❤️‍🔥
+✅ متصل در تمامی دستگاه و اپراتور ها
+✅ مناسب استفاده روزمره در تمامی برنامه ها
+✅ دارای ساب برای اطلاع لحظه ای باقیمانده
+✅ تک لینک بدون نیاز به بروزرسانی های متعدد
+ برای خرید از پشتیبانی به ایدی زیر پیام بدید.👇
+
+🔤 @expressuport
+
+خرید فوری از ربات.👇
+
+🔤 @vpn_express_sup_bot
+</div>
+
+## alonews — post 120290
+
+<div align="center"><video src="telegram/content/alonews_120290.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120290.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مجریان بیسواد صدا و سیما برداشتن یه تصویر هوش مصنوعی رو گذاشتن و دارن تحلیلش میکنن!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120289
+
+<div align="center"><video src="telegram/content/alonews_120289.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120289.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مصاحبه‌گر : قبول دارید عامل گرانی‌ها محاصره آمریکا علیه ماست؟
+
+🔴حامی حکومت : نه، قبول ندارم!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120288
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈نیویورک تایمز: گزینه‌های ترامپ در ایران شامل نیروهای ویژه زمینی برای کنترل اورانیوم است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120287
+
+<div align="center"><video src="telegram/content/alonews_120287.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120287.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈گلایه مخاطب ایران اینترنشنال از قیمت نجومی عرق سگی
+
+🔴قبل جنگ لیتری ۲۵۰بود و با دوستام میخوردم اما الان لیتری ۱۵۰۰ و تنها میخورم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120286
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ادعای نیویورک‌تایمز: دو مقام خاورمیانه‌ای ادعا کردند که آمریکا و اسرائیل در حال آماده‌سازی گسترده برای احتمال ازسرگیری حملات علیه ایران هستند؛ آماده‌سازی‌ای که بزرگ‌ترین سطح از زمان آتش‌بس محسوب می‌شود؛ این حمله ممکن است از هفته آینده آغاز شود
+
+🔴مقام‌های نظامی آمریکا به‌طور غیررسمی می‌گویند پیروزی در حملات جدید بسیار دشوار است، زیرا ایران بخش زیادی از توان موشکی و زیرزمینی خود را بازیابی کرده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈نیویورک‌تایمز: ترامپ روز جمعه پس از بازگشت از چین، با تصمیم‌های مهمی درباره ایران مواجه شد؛ در حالی که نزدیک‌ترین مشاورانش طرح‌هایی برای ازسرگیری حملات نظامی در صورت تصمیم او برای شکستن بن‌بست از طریق فشار نظامی تهیه کرده‌اند
+
+🔴مشاوران رئیس جمهور آمریکا می‌گویند ترامپ هنوز درباره گام بعدی درباره ایران تصمیم نگرفته است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فارس: نمایندگان مجلس پیشنهاد افزایش ۵۰۰ هزار تا ۱ میلیون‌تومانی رقم کالابرگ را داده‌اند اما دولت گفته که تنها منابع افزایش ۲۵۰ هزارتومانی رقم کالابرگ را در اختیار دارد و سازمان برنامه هم اعلام کرده که پول نداریم!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ رسید آمریکا
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120282
+
+<div align="center"><img src="telegram/content/alonews_120282.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مقامات آمریکایی مشکوک هستند که هکرهای مرتبط با ایران ممکن است پشت یک سری نفوذهای سایبری باشند که سیستم‌های نظارت بر سوخت در پمپ‌بنزین‌ها در چندین ایالت را هدف قرار داده‌اند، طبق گزارش CNN
+
+🔴هکرها از سیستم‌های اندازه‌گیری خودکار مخازن که به اینترنت متصل بودند بدون حفاظت رمز عبور سوء استفاده کردند و این امکان را برایشان فراهم کرد تا خوانش‌های نمایش داده شده سوخت را دستکاری کنند — هرچند نه سطح واقعی سوخت.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120281
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ژان-لوک ملانشون، نامزد ریاست‌جمهوری فرانسه، درباره ایران و تنگه هرمز: «وقتی کشوری از خود دفاع می‌کند، از تمام ابزارهای دفاعی خود استفاده می‌کند.
+
+
+🔴ما هم همین کار را میکردیم.
+
+
+🔴ما تمام کانال مانش را مین‌گذاری می‌کردیم.»
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈منابع عراقی از حملۀ پهپادی به مقر گروهک‌های تجزیه‌طلب در کردستان عراق خبر می‌دهند.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120279
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فیلد مارشال ، محسن رضایی: قواعد نظم جدید جهان دیگه آمریکا محور نیست
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120277
+
+<div align="center"><video src="telegram/content/alonews_120277.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120277.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈شهر صور تو "جنوب لبنان" بعد از حمله‌ی سنگین ارتش اسرائیل
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120276
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈واشنگتن پست : ایران واضح‌ترین بازنده دیدار ترامپ از پکن است، با مخالفت علنی پکن با اختلال در هرمز، تعهد به عدم ارسال تجهیزات نظامی به تهران و توافق بر اینکه تنگه «باید باز بماند.»
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120275
 
@@ -69,179 +249,5 @@
 🔴پسرش اینو به صداوسیما گفته
 
 ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120270
-
-<div align="center"><img src="telegram/content/alonews_120270.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈توییت جدید و عجیب ترامپ
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120269
-
-<div align="center"><img src="telegram/content/alonews_120269.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دنا پلاس؛ ۳ میلیارد تومن ناقابل
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120268
-
-<div align="center"><img src="telegram/content/alonews_120268.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈آخرین قیمت نفت ۱۰۹.۴۳ دلار
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120267
-
-<div align="center"><img src="telegram/content/alonews_120267.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈هشدار مرندی: حمله ایالات متحده به زیرساخت‌های ایران به قیمت نابودی نیروهای نیابتی آمریکا در منطقه تمام خواهد شد!
-
-🔴اگر ترامپ به نیروگاه‌ها و پل‌های ایران حمله کند، جمهوری اسلامی برای همیشه نیروهای نیابتی او را در خلیج فارس نابود کرده و زیرساخت‌های حیاتی رژیم صهیونیستی را فوراً در هم خواهد شکست. رکود اقتصادی فاجعه‌بار جهانی تضمین خواهد شد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120266
-
-<div align="center"><img src="telegram/content/alonews_120266.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تعیین جایزه ۲۰۰ هزار دلاری توسط FBI برای کسب اطلاع از افسر سابق نیروی هوایی آمریکا که به ایران پیوسته و اطلاعات نظامی حیاتی را لو داده است
-
-🔴شبکه فاکس‌نیوز گزارش داده است:
-«مونیکا ویت» متخصص سابق نیروی هوایی ظاهراً از سال ۲۰۱۳ فرار کرده و اطلاعات طبقه‌بندی شده دفاع ملی را در اختیار تهران قرار داده است.
-
-🔴او متهم است با استفاده از دسترسی‌های امنیتی خود، هویت همکاران سابق و جزئیات پروژه‌های حساس اطلاعاتی آمریکا را به مأموران ایرانی لو داده است.
-
-🔴مقامات امنیتی آمریکا معتقدند ویت پس از خروج از کشور، همکاری نزدیکی با نهادهای اطلاعاتی ایران آغاز کرده و در عملیات‌های سایبری علیه پرسنل نظامی آمریکا نقش داشته است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈الجزیره: هند پس از افزایش قیمت سوخت، عوارض صادراتی بنزین و گازوئیل را افزایش داد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120264
-
-<div align="center"><img src="telegram/content/alonews_120264.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر امور خارجه پاکستان، اسحاق دار:
-خوشحالم که اعلام کنم ما در بازگرداندن ۱۱ شهروند پاکستانی به کشورمان موفق بوده‌ایم، همراه با ۲۰ شهروند از کشور برادرمان ایران، از طریق سنگاپور، که در کشتی‌هایی که توسط ایالات متحده در آب‌های آزاد توقیف شده بودند، حضور داشتند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120263
-
-<div align="center"><video src="telegram/content/alonews_120263.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120263.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️یکی از صدها موشکی که برگشتن رو سر مردم و جمهوری اسلامی طبق روال همیشه با مظلوم نمایی انداختن گردن امریکا و اسرائیل 🤔مدرسه میناب جای تحقیق و بررسی زیادی داره. ✅@AloNews
-</div>
-
-## alonews — post 120262
-
-<div align="center"><img src="telegram/content/alonews_120262.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 توییت جدید و عجیب دونالد ترامپ:
-کشور ایران ایالت ۲۴۳اُم آمریکا است!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120261
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اوگاندا و جمهوری دموکراتیک کنگو هر دو اعلام کردند که شیوع جدید ابولا در کشورهایشان در جریان است.
-
-🔴۶۶ مورد مرگ ثبت شده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120260
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت امور خارجه آمریکا: آتش‌بس بین اسرائیل و لبنان به مدت ۴۵ روز تمدید می‌شود تا امکان ادامه روند مذاکرات فراهم شود
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جنگ الونیوز AloNews pinned a photo
-</div>
-
-## alonews — post 120258
-
-<div align="center"><img src="telegram/content/alonews_120258.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت خارجه آمریکا : ونزوئلا 7340 کیلوگرم اورانیوم غنی‌شده‌‌‌ش رو به آمریکا منتقل کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120257
-
-<div align="center"><img src="telegram/content/alonews_120257.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کوروش وی پی ان 👑 ارائه بهترین کانفینگ های ایران
-
-👑👑👑 بدون ضریب 🤴
-👑👑👑 همراه با لینک ساب 🤴
-👑👑👑 پرسرعت 🤴
-👑👑👑 همراه با لینک ساب 🤴
-👑👑👑 ۵ سرور متفاوت 🤴
-👑👑👑 همیشه در حال اپدیت 🤴
-👑👑👑کانفینگ های رایگان 🤴
-
-
-🦁توجه کنید شاید یکی قیمتش ۱۵۰ ۲۰۰ باشه ولی هر قیمتی دلیل بر خوب بودن نیست بلکه ضریب دارن و یا سرور های کند دارن!🦁
-
-تنها چنلی که کانفینگ رایگان میزاره :
-👑 https://t.me/+nVsNnhQep1s5YTA0 👑
-👑 https://t.me/+nVsNnhQep1s5YTA0 👑
-
-👑👑👑خرید از طریق ربات :
-👑 @CyrusV2ray_bot
-👑 @CyrusV2ray_bot
-</div>
-
-## alonews — post 120256
-
-<div align="center"><video src="telegram/content/alonews_120256.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120256.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کاوه مدنی: وضعیت دردآور جزیره مارو (شیدور) ملقب به «مالدیو ایران»
-
-🔴نشت نفت به خلیج فارس پس از حمله به تأسیسات نفتی جزیره لاوان در فروردین ماه عامل این فاجعه بود.
-
-✅@AloNews
 </div>
 

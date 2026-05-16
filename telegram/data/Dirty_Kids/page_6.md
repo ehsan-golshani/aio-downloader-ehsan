@@ -1,8 +1,61 @@
 # آرشیو کانال Dirty_Kids - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 22:31
+📅 آخرین بروزرسانی: 1405/02/26 23:40
 
 ---
+
+## Dirty_Kids — post 389465
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389465.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389465.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هنوز که هنوزه این ویدئو از درگیری چندتا ایرانی تو جاده ساحلیِ چالوس تو پیج‌های خارجی داره دست به دست میشه و تو اکسپلوره؛
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389464
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389464.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری دانشجو : شما فقط نحوه دست دادن رئیس‌جمهور چین با پرفسور رئیسی و ترامپ رو مقایسه کنی، متوجه قدرت ایران میشید... +کسخلیت و کونده‌پرویی اینا حدی نداره :))))) چین فروختتشون توافق کرده با امریکا استقبال بی نظیر کردن از ترامپ بعد رئیسی گوزو ۶ کلاسه‌رو…
+</div>
+
+## Dirty_Kids — post 389463
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389463.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389463.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری دانشجو :
+شما فقط نحوه دست دادن رئیس‌جمهور چین با پرفسور رئیسی و ترامپ رو مقایسه کنی، متوجه قدرت ایران میشید...
+
++کسخلیت و کونده‌پرویی اینا حدی نداره :)))))
+چین فروختتشون توافق کرده با امریکا
+استقبال بی نظیر کردن از ترامپ
+بعد رئیسی گوزو ۶ کلاسه‌رو همه میریدن بهش از پوتین بگیر تا شی دارن مقایسه میکنن
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389462
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389462.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسایی؛ نماینده‌ی مجلس:
+
+دولت قصد داره میزان سهمیه ماهانه بنزین ۱۵۰۰ تومنی و ۳۰۰۰ تومنی رو کاهش بده و قیمت بنزین ۵۰۰۰ تومنی رو هم به ۲۰۰۰۰ تومن برسونه.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389458
 
@@ -244,57 +297,6 @@ ShirOKhorshid-2026.05.14.apk
 روافض جنایتکار تا اینجای سال جاری ۳۰ یا ۴۰ هزار نفر رو کشتن و اعدام کردن ‌ که خیلی از این معترضان مسالمت‌جو بودن‌. پس، با چنین رژیم مادرخر...
 
 ﻿
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389441
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شی جین‌پینگ، رئیس‌جمهور چین در دیدار با ترامپ رئیس‌جمهور آمريکا:
-
-دو کشور ما باید شریک باشند، نه رقیب. مردم چین و ایالات متحده هر دو ملت‌های بزرگی هستند. تحقق احیای بزرگی ملت چین و عظمت دوباره آمریکا می‌تواند همزمان پیش برود. ما می‌توانیم به موفقیت یکدیگر کمک کنیم و رفاه کل جهان را ارتقا دهیم.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389437
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389437.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ تو چین یه جور داره رفتار میکنه که انگار اون میزبانه:
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389436
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این چه سمی بود دیدم 😂🔞
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389435
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389435.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقیقا وقتی فکر می‌کنی جمهوری اسلامی تپه نریده باقی نذاشته، همون لحظه یه تپه جدید می‌سازه و میره سرش میرینه.
-فقط مونده بود برن از امارات کشتی بدزدن فرار کنن، که اونم گویا حاصل شد.
-
 
 @Dirty_Kids 👻
 </div>

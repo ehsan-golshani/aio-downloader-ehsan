@@ -1,8 +1,16 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 22:29
+📅 آخرین بروزرسانی: 1405/02/26 23:38
 
 ---
+
+## IranianMinds — post 20212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ به آمریکا رسید.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20211
 
@@ -241,16 +249,6 @@ ge25
 🔴تهران‌تایمز:
 
 آمریکا پیشنهاد ۱۴ ماده‌ای جمهوری اسلامی برای پایان جنگ را رد کرده و بار دیگر بر مواضع خود، به ویژه درباره پرونده هسته‌ای تأکید کرده است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عراقچی:
-
-اگر آنها بخواهند به جنگ بازگردند، این به خودشان بستگی دارد.
 
 @IranianMinds
 </div>

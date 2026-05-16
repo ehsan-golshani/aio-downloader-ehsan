@@ -1,8 +1,24 @@
 # آرشیو کانال WithYashar - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 22:16
+📅 آخرین بروزرسانی: 1405/02/26 23:25
 
 ---
+
+## WithYashar — post 11316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یاشار مجاهدین الان دارن از کجا تغذیه میشن؟
+</div>
+
+## WithYashar — post 11315
+
+## WithYashar — post 11314
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آخرین فیلم مخفی وحید بنی عامریان، نخبه ریاضی در زندان اوین که از دفاعیه اش در مقابل بیدادگاه آخوندی می گوید. وحید روز 15 فروردین 1405 اعدام شد @withyashar
+</div>
+
+## WithYashar — post 11313
 
 ## WithYashar — post 11312
 
@@ -83,36 +99,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 درود فرمانده یاشار
 فرمانده نظری برای امشب تا وقتی بازار های مالی باز میشه داری ؟
-</div>
-
-## WithYashar — post 11295
-
-<div align="center"><img src="telegram/content/WithYashar_11295.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک پهپاد اسرائیلی مناره مسجدی در محله المحطه در خان یونس در جنوب غزه را هدف قرار داد.
-@withyashar
-</div>
-
-## WithYashar — post 11294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر خارجه چین:
-رئیس‌جمهور شی جین‌پینگ طبق دعوت ترامپ در پاییز به آمریکا سفر خواهد کرد
-@withyashar
-</div>
-
-## WithYashar — post 11293
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گزارش خبرنگار همراه هیئت آمریکایی، پیش از سوار شدن به «ایرفورس وان»، کارکنان آمریکایی تمام وسایل و ههدایایی را که طرف چینی داده بود از جمله کارت‌ها، نشان‌ها، تلفن‌های موقت و اقلام هدیه جمع کردند و داخل سطل زباله انداختند و اجازه ندادند چیزی از چین وارد هواپیما شود.
-@withyashar
-</div>
-
-## WithYashar — post 11292
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر نیروهای مسلح فرانسه: ناو هواپیمابر «شارل دوگل» در دریای عرب مستقر شده و ماموریت آن «دفاعی» است.
-@withyashar
 </div>
 
