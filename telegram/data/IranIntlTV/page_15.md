@@ -1,8 +1,64 @@
 # آرشیو کانال IranIntlTV - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/02/26 03:21
+📅 آخرین بروزرسانی: 1405/02/26 05:05
 
 ---
+
+## IranIntlTV — post 337081
+
+<div align="center"><video src="telegram/content/IranIntlTV_337081.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337081.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌های جمهوری اسلامی از برگزاری رزمایش پنج‌روزه سپاه تهران بزرگ با محوریت مقابله با عملیات «هلی‌برن» نیروهای متخاصم خبر دادند.
+در تصاویر منتشرشده، نیروهای پیاده با سلاح‌های سبک، نیمه‌سنگین و پهپاد به اهداف فرضی، همچون تصویر پارچه‌ای یک بالگرد، شلیک می‌کنند.
+این رزمایش پس از ورود بالگردهای بلک‌هاوک و هواپیمای سوخت‌رسان آمریکا به خاک ایران، در جریان عملیات جست‌وجوی خلبان اف-۱۵، برگزار شده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337080
+
+<div align="center"><video src="telegram/content/IranIntlTV_337080.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337080.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موج تازهٔ اعدام جوانان نخبه؛
+احسان افرشته با اتهام «جاسوسی» اعدام شد
+
+جمهوری اسلامی بامداد چهارشنبه حکم اعدام احسان افرشته، زندانی سیاسی متهم به «جاسوسی برای اسرائیل»، را اجرا کرد؛ پرونده‌ای که مانند بسیاری از پرونده‌های امنیتی مشابه، بدون انتشار سند و مدرک مستقل به پایان رسید.
+
+نهادهای حقوق بشری پیش‌تر هشدار داده بودند که اتهامات مطرح‌شده علیه او بر پایهٔ اعترافات اجباری و تحت فشار مطرح شده است.
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## IranIntlTV — post 337079
+
+<div align="center"><video src="telegram/content/IranIntlTV_337079.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337079.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمد از آلمان: کسی که پول دارو ندارد، آب ندارد، برق ندارد، او هم اعدامی جمهوری اسلامی است
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337078
 
@@ -225,44 +281,5 @@ https://iranintl.com/202605139871
 
 گفت‌وگو با ایمان ناصری، مشاور بازار نفت
 @iranintltv
-</div>
-
-## IranIntlTV — post 337061
-
-<div align="center"><video src="telegram/content/IranIntlTV_337061.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337061.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تجمعات حکومتی شبانه، بلای جان نظام و مجتبی
-
-چشم‌انداز با مهدی مهدوی‌آزاد
-
-نسخه کامل این برنامه در یوتیوب:
-https://youtu.be/SepDBES4ITI
-@iranintltv
-</div>
-
-## IranIntlTV — post 337060
-
-<div align="center"><video src="telegram/content/IranIntlTV_337060.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337060.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تجمعات حکومتی شبانه، بلای جان نظام و مجتبی
-
-چشم‌انداز با مهدی مهدوی‌آزاد
-
-نسخه کامل این برنامه در یوتیوب:
-https://youtu.be/SepDBES4ITI
-@iranintltv
-</div>
-
-## IranIntlTV — post 337059
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎧نسخه صوتی چشم‌انداز: تجمعات حکومتی شبانه، بلای جان نظام و مجتبی
-@iranintlTV
 </div>
 

@@ -1,8 +1,27 @@
 # آرشیو کانال FarsiVOA - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 03:25
+📅 آخرین بروزرسانی: 1405/02/26 05:10
 
 ---
+
+## FarsiVOA — post 217781
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ماجرای تکذیب همکاری معین با تیم ملی فوتبال جمهوری اسلامی، تصویری کوچک از یک سازوکار بزرگ‌ است که در آن سپاه پاسداران گاه با استفاده از نام هنرمندان، پیش از وقوع هر اتفاقی، روایت مطلوب خود را می‌سازد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217780
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺سفر نادر رئیس سیا به کوبا و انتقال پیام رئیس‌جمهوری آمریکا
+
+▪️جان رتکلیف رئیس سازمان اطلاعات مرکزی آمریکا، سیا، روز پنج‌شنبه در سفری «سطح بالا» به کوبا، با مقام‌های ارشد وزارت کشور این کشور دیدار و گفت‌وگو کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150103.html
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217779
 
@@ -178,17 +197,5 @@ https://ir.voanews.com/a/high-risk-countries-us-department-of-state-travel-warni
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 داریوش سجادی در برنامه تفسیر خبر می‌گوید که فرصتی برای وساطت چین بین جمهوری اسلامی و آمریکا وجود ندارد
-</div>
-
-## FarsiVOA — post 217761
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش فریبا مودت درباره جزئیات روز نخست دیدار پرزیدنت ترامپ با رئیس جمهوری چین
-</div>
-
-## FarsiVOA — post 217760
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شکریا برادوست در برنامه تفسیر خبر: تمرکز بر ملی‌گرایی در چین افزایش یافته است
 </div>
 

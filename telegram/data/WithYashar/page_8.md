@@ -1,8 +1,36 @@
 # آرشیو کانال WithYashar - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 03:15
+📅 آخرین بروزرسانی: 1405/02/26 05:00
 
 ---
+
+## WithYashar — post 11224
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سناتور کنگره خطاب به برد کوپر:
+برجام توانایی هسته ای ایران رو محدود میکرد ولی ترامپ پاره کرد، الان وارد یه جنگ بی‌پایان شدیم، آیا ترامپ هیچ وقت به شما نگفت چرا برجام رو پاره کرد؟
+
+کوپر فرمانده سنتکام:
+خانم سناتور زمانی که این ۸ سال پیش اتفاق افتاد من یک سمت دیگه داشتم! من سیاستمدار نیستم و نمیتونم جواب این سوال رو بدم!
+@withyashar
+</div>
+
+## WithYashar — post 11223
+
+<div align="center"><video src="telegram/content/WithYashar_11223.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11223.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«دریادار برد کوپر»، فرمانده سنتکام:
+
+«فرماندهی مرکزی ایالات متحده (سنتکام) مستقیماً در پاسخ به تهدیدهایی که جمهوری اسلامی ایران ایجاد می‌کرد، تأسیس شد.
+
+رژیم ایران طی ۴۷ سال گذشته منطقه را دچار هراس و بی‌ثباتی کرده و دشمنی با آمریکا را به یکی از اصول اساسی حاکمیت خود تبدیل کرده است.
+
+سابقه خصمانه و مرگبار آنها علیه ایالات متحده کاملاً مستند و ثبت‌شده است
+@withyashar
+</div>
 
 ## WithYashar — post 11222
 
@@ -168,21 +196,5 @@ INDOPACOM، فرماندهی نظامی آمریکا برای منطقهٔ «ه�
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آکسیوس: یکی از گزینه‌های ترامپ پس از بازگشت از چین از سر گیری پروژه آزادی در تنگه هرمز است. گزینه دیگر ترامپ حمله به زیرساخت‌های ایرانه.
 @withyashar
-</div>
-
-## WithYashar — post 11203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق برنامه ای که قرار داده بودیم ترامپ و رییس‌جمهور چین برای یک مهمانی شام با یکدیگر دیدار کردند @withyashar
-</div>
-
-## WithYashar — post 11202
-
-<div align="center"><video src="telegram/content/WithYashar_11202.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11202.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برنامه های ترامپ با حاکم چین به این ترتیبه : مراسم استقبال تو تالار بزرگ خلق چهارشنبه رسیدن به پکن ، استقرار و استراحت پنج شنبه ۱۴ مه - ملاقات با شی - ضیافت دولتی با شی جمعه تاریخ ۱۵ مه - جلسه عکس با شی- چای با شی - ناهار با شی و حرکت از پکن به آمریکا، @withyashar
 </div>
 

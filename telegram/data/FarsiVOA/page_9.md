@@ -1,8 +1,22 @@
 # آرشیو کانال FarsiVOA - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 03:25
+📅 آخرین بروزرسانی: 1405/02/26 05:10
 
 ---
+
+## FarsiVOA — post 217689
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️آیا چین اراده و قدرت این را دارد که جمهوری اسلامی را وادار کند از ناامن‌سازی تنگه هرمز دست بر دارد؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217688
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️چه انتظاری از سفر پرزیدنت ترامپ به چین می‌‌توان داشت؟ گفت‌وگو با شهیر شهیدثالث و شکریا برادوست
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217687
 
@@ -167,25 +181,6 @@ https://ir.voanews.com/a/8149652.html
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️بررسی پوشش اخبار درگیری نظامی با جمهوری اسلامی در رسانه‌های غربی
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217669
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️حملە امارات و عربستان بە جمهوری اسلامی و سفر مخفیانە نخست وزیر اسرائیل بە امارات
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217668
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺رویترز: عربستان و کویت در جریان عملیات «خشم حماسی» نیابتی‌های جمهوری اسلامی در عراق را هدف قرار دادند
-
-▪️خبرگزاری رویترز به نقل از منابع امنیتی و نظامی گزارش داده است که عربستان سعودی در جریان عملیات «خشم حماسی» مواضع شبه‌نظامیان شیعه مورد حمایت رژیم ایران در عراق را هدف حملات هوایی قرار داد. علاوه بر این، حملات تلافی‌جویانه‌ای نیز از خاک کویت علیه اهدافی در عراق انجام شده است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/reuters-saudi-arabia-kuwait-attacked-iraq-iranian-militias/8149641.html
 @FarsiVOA
 </div>
 

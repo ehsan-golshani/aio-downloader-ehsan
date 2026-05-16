@@ -1,8 +1,24 @@
 # آرشیو کانال WithYashar - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 03:15
+📅 آخرین بروزرسانی: 1405/02/26 05:00
 
 ---
+
+## WithYashar — post 11203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق برنامه ای که قرار داده بودیم ترامپ و رییس‌جمهور چین برای یک مهمانی شام با یکدیگر دیدار کردند @withyashar
+</div>
+
+## WithYashar — post 11202
+
+<div align="center"><video src="telegram/content/WithYashar_11202.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11202.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برنامه های ترامپ با حاکم چین به این ترتیبه : مراسم استقبال تو تالار بزرگ خلق چهارشنبه رسیدن به پکن ، استقرار و استراحت پنج شنبه ۱۴ مه - ملاقات با شی - ضیافت دولتی با شی جمعه تاریخ ۱۵ مه - جلسه عکس با شی- چای با شی - ناهار با شی و حرکت از پکن به آمریکا، @withyashar
+</div>
 
 ## WithYashar — post 11201
 
@@ -142,19 +158,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نتانیاهو در دادگاه حظور پیدا کرد و گفت: «فیک نیوزها گفتند من به بیماری لاعلاجی مبتلا هستم - این یک صنعت دروغگویی تمام‌عیار است»
-@withyashar
-</div>
-
-## WithYashar — post 11183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاج : در جریان آهنگی که معین برای تیم ملی در جام جهنی ۲۰۲۶ می خواند هستیم @withyashar
-</div>
-
-## WithYashar — post 11182
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اتاق جنگ با شما : زمین لرزه خیلی شدید کرمان یک دقیقه پیش
 @withyashar
 </div>
 
