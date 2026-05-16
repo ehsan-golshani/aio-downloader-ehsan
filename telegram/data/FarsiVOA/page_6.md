@@ -1,8 +1,36 @@
 # آرشیو کانال FarsiVOA - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 05:10
+📅 آخرین بروزرسانی: 1405/02/26 08:43
 
 ---
+
+## FarsiVOA — post 217764
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺هشدار دوباره وزارت خارجه آمریکا درباره سفر به کشورهای «پرخطر»؛ ایران هم در فهرست است
+
+◾️وزارت امور خارجه ایالات متحده آمریکا روز پنجشنبه ۲۴ اردیبهشت هشدارهای پیشین خود درباره سفر به کشورهای روسیه، کره‌شمالی، افغانستان، و جمهوری اسلامی ایران را تکرار کرد و این کشورها را برای شهروندان آمریکایی، «پرخطر» دانست.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/high-risk-countries-us-department-of-state-travel-warning/8150070.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217763
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرزیدنت ترامپ: شی جین‌پینگ متعهد شده که به جمهوری اسلامی تجهیزات نظامی نفرستد
+</div>
+
+## FarsiVOA — post 217762
+
+<div align="center"><video src="telegram/content/FarsiVOA_217762.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217762.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داریوش سجادی در برنامه تفسیر خبر می‌گوید که فرصتی برای وساطت چین بین جمهوری اسلامی و آمریکا وجود ندارد
+</div>
 
 ## FarsiVOA — post 217761
 
@@ -128,23 +156,5 @@ https://ir.voanews.com/a/adm-brad-cooper-senate-hearing-iran-epic-fury/8149979.h
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کمیته نیروهای مسلح سنا روز پنجشنبه ۲۴ اردیبهشت یک جلسه استماع را با حضور دریابد برد کوپر، فرمانده سنتکام، و ژنرال داگوین اندرسون، فرمانده آفریکام، برگزار کرد. یکی از محورهای اصلی این جلسه اقدام نظامی آمریکا علیه رژیم ایران بود. صدای آمریکا این جلسه را با ترجمه همزمان پژواک کیومرثی پخش کرد.
-</div>
-
-## FarsiVOA — post 217741
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کمیته نیروهای مسلح سنا روز پنجشنبه ۲۴ اردیبهشت یک جلسه استماع را با حضور دریابد برد کوپر، فرمانده سنتکام، و ژنرال داگوین اندرسون، فرمانده آفریکام، برگزار کرد. یکی از محورهای اصلی این جلسه اقدام نظامی آمریکا علیه رژیم ایران بود. صدای آمریکا این جلسه را با ترجمه همزمان پژواک کیومرثی پخش کرد.
-</div>
-
-## FarsiVOA — post 217740
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اصغر فرهادی با فیلم جدیدش تحت عنوان «داستان‌های موازی» با حضور ایزابل اوپر، ونساند کسل، و کاترین دونوو به جشنواره کن می‌رود.
-</div>
-
-## FarsiVOA — post 217738
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در گفت‌وگو با احمد وخشیته، پژوهشگر روابط بین‌الملل، به تصرف کشتی با پرچم هند در نزدیکی امارات، مواضع متناقض مقام‌های حکومت ایران در خصوص باز بودن تنگه هرمز پرداختیم و پرسیدیم آیا این اقدامات، ناشی از ضعف و انزواست یا بخشی از یک استراتژی حساب‌شده جمهوری اسلامی است؟
 </div>
 

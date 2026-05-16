@@ -1,8 +1,34 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 03:16
+📅 آخرین بروزرسانی: 1405/02/26 08:34
 
 ---
+
+## FoxNewsTwitter — post 341762
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341762.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341762.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Trump says he and Chinese President Xi "feel very similar on Iran."
+
+"We want that to end. We don't want them to have a nuclear weapon. We want the straits open."
+</div>
+
+## FoxNewsTwitter — post 341761
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341761.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341761.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Trump says he and Chinese President Xi agree they do not want Iran to obtain a nuclear weapon and want the Strait of Hormuz to remain open.
+</div>
 
 ## FoxNewsTwitter — post 341760
 
@@ -266,31 +292,5 @@ Fox News (Twitter/X)
 Rep. Jim Jordan hammers Fairfax County Commonwealth's Attorney Stephen Descano over the removal of campaign promises from his website about taking “immigration consequences” into account while handling cases.
 
 Jordan blasts the prosecutor after an illegal immigrant with a lengthy criminal history was released by police and allegedly killed a man in his home a day later.
-</div>
-
-## FoxNewsTwitter — post 341742
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341742.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: VP Vance delivers remarks on Trump admin's fraud crackdown https://twitter.com/i/broadcasts/1kKzDMmkkYXJv
-</div>
-
-## FoxNewsTwitter — post 341741
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341741.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341741.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-“Tend to your faith not just when you’re broken, but when you’re whole.”
-
-Eric Church returned to his alma mater, UNC Chapel Hill, and gave graduates a message bigger than music:
-
-The country star told graduates that faith is the “low E” of life: the foundation every chord rests on, especially when the world gets overwhelming.
 </div>
 

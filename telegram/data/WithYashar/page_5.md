@@ -1,8 +1,31 @@
 # آرشیو کانال WithYashar - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 05:00
+📅 آخرین بروزرسانی: 1405/02/26 08:33
 
 ---
+
+## WithYashar — post 11287
+
+<div align="center"><video src="telegram/content/WithYashar_11287.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11287.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارشناس صداسیما : نتانیاهو نه خسته شده نه عقب میخواد بکشه بنظرم واقعا مَرده واقعا مَرده و میخواد ایرانو
+از 100 درصد به 20 درصد برسونه
+
+همین الانم اماده ترین عنصر برای
+حمله به ایران؛ اسرائیله
+نتانیاهو نه کم آورده نه علائمی از خستگی داره نه پشیمانه
+@withyashar
+</div>
+
+## WithYashar — post 11286
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ به فاکس‌نیوز: ما می‌توانستیم پل‌ها و شبکه‌های برق ایران را نابود کنیم و می‌توانیم ظرف دو روز همه چیز را در آنجا از بین ببریم.
+@withyashar
+</div>
 
 ## WithYashar — post 11285
 
@@ -142,20 +165,5 @@ Voice message
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هم‌اکنون حمله سنگین جمهوری اسلامی به مقر گروه های مخالف در عراق
 @withyashar
-</div>
-
-## WithYashar — post 11267
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گزارش روزنامه «ساوت چاینا مورنینگ پست» و بازنشر آن توسط «بلومبرگ»، انتظار می‌رود «ولادیمیر پوتین» در حدود ۲۰ مه به «پکن» سفر کند؛ تنها حدود ۵ روز پس از دیدار «شی جین‌پینگ» و «دونالد ترامپ» در پکن.
-
-رسانه‌ها می‌گویند این سفر احتمالاً فقط یک روز طول می‌کشد و بیشتر در قالب یک دیدار کاری و هماهنگی سیاسی انجام می‌شود. همچنین برخلاف سفر ترامپ، ظاهراً خبری از تشریفات بزرگ، رژه رسمی یا استقبال بسیار گسترده نخواهد بود و این سفر در سطحی ساده‌تر و کم‌نمایش‌تر برگزار می‌شود
-@withyashar
-</div>
-
-## WithYashar — post 11266
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@withyashar part2
 </div>
 

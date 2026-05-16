@@ -1,8 +1,52 @@
 # آرشیو کانال alonews - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 02:32
+📅 آخرین بروزرسانی: 1405/02/26 08:51
 
 ---
+
+## alonews — post 120235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مرکل صدراعظم سابق آلمان: خروج آمریکا از ناتو به ضرر خود آمریکا است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120234
+
+<div align="center"><img src="telegram/content/alonews_120234.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ چند دقیقه پیش از آلاسکا به سمت واشنگتن پرواز کرد. پس از توقف برای سوخت‌ گیری در انکوریج
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120233
+
+<div align="center"><img src="telegram/content/alonews_120233.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کاهش چشمگیر تولید نفت کشورهای حاشیه خلیج فارس
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120232
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کانال ۱۲ عبری: حزب‌الله در عرض یک ساعت و نیم، ۱۰ پهپاد به سمت اسرائیل پرتاب کرد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قیمت جهانی نفت به ۱۰۹ دلار برای هر بشکه رسیده است
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120230
 
@@ -145,62 +189,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈وزیر امور خارجه چین: ما ایالات متحده و ایران را تشویق می‌کنیم که به حل اختلافات و مناقشات خود از طریق گفتگو ادامه دهند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120210
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شرکت‌های نفت دولتی هند قیمت بنزین و گازوئیل را بیش از ۳ درصد افزایش دادند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120209
-
-<div align="center"><video src="telegram/content/alonews_120209.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120209.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر انرژی آمریکا : قبل از اینکه تصمیم بگیریم برنامه هسته‌ای ایران رو خلع سلاح کنیم، قیمت نفت و گازوئیل تو کالیفرنیا رسماً ترکونده بود!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120208
-
-<div align="center"><video src="telegram/content/alonews_120208.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120208.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈روسیه حمله هدفمند با پهپاد FPV به خودروی سازمان ملل تو اوکراین رو منتشر کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120207
-
-<div align="center"><img src="telegram/content/alonews_120207.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈میدل‌ایست‌ای: ایران دنبال دور زدن مسیر محاصره شده تنگه هرمز با کریدور زمینی پاکستان است
-
-🔴 در پی محاصره دریایی ایران توسط آمریکا که وارد پنجمین هفته خود شده است، ایران و پاکستان اعلام کردند که به دنبال احیای پروژه‌ اتصال چندین کریدور هستند که بنادر کراچی، بندر قاسم و گوادر پاکستان را از طریق بلوچستان به گذرگاه‌های مرزی گبد و تفتان ایران متصل می‌کنند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120206
-
-<div align="center"><video src="telegram/content/alonews_120206.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120206.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیروهای دفاعی اسرائیل یک تمرین نظامی غافلگیرکننده در امتداد مرز اردن انجام دادند که هدف آن آزمایش آمادگی برای تهدیدات ناگهانی امنیتی بود
 
 ✅ @AloNews خبر جنگ
 </div>

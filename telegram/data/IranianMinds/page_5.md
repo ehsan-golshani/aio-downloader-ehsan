@@ -1,8 +1,44 @@
 # آرشیو کانال IranianMinds - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 02:03
+📅 آخرین بروزرسانی: 1405/02/26 08:46
 
 ---
+
+## IranianMinds — post 20137
+
+<div align="center"><video src="telegram/content/IranianMinds_20137.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20137.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+
+شی مایل است شاهد انجام یک معامله باشد. او گفت: «اگر بتوانم کمکی داشته باشم، دوست دارم کمک کنم.»
+
+هر کسی که این مقدار نفت می‌خرد، دوست دارد تنگه هرمز را باز ببیند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سنتکام:
+
+امارات، بحرین، عربستان، کویت، اردن و اسرائیل در عملیات آمریکا شرکت کردند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20135
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴حمید رسایی:
+
+دولت می‌خواهد قیمت بنزین را تا ۲۰ هزار تومان افزایش بدهد.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20134
 
@@ -216,34 +252,6 @@ https://t.me/+qNjExGEJztE2OGI0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 صحبت‌های امروز اسکات بسنت، وزیر خزانه‌داری آمریکا راجب ایران و جمهوری‌اسلامی: تا اینجای امسال، رژیم ایران ۳۰ تا ۴۰ هزار نفر رو اعدام کرده (کُشته) و خیلی‌هاشون هم معترضای مسالمت‌آمیز بودن. خب با همچین رژیمی چطور باید برخورد کرد؟ از نظر اقتصادی خفه‌ش می‌کنیم و فکر می‌کنیم کار به جایی رسیده که سربازاشون حقوق نمی‌گیرن و نمی‌تونن از خارج هم سلاح و مهماتشون رو تأمین کنن. برای همین فکر می‌کنم دیگه دارن به آخر خط می‌رسن.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 یسرائیل کاتز، وزیر دفاع اسرائیل، درباره ایران: ماموریت ما کامل نشده؛ ما برای احتمال اینکه ممکنه مجبور شیم دوباره اقدام کنیم، شاید حتی «بزودی» آماده‌ایم. اگر اهدافمون تأمین نشن، دوباره اقدام خواهیم کرد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20116
-
-<div align="center"><img src="telegram/content/IranianMinds_20116.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 کاخ سفید پس از مذاکرات دوجانبه ایالات متحده و چین در پکن، پایتخت چین، در بیانیه‌ای اعلام کرد که دو هیئت در مورد مسائلی مانند دسترسی به بازار چین، سرمایه‌گذاری چین در صنایع ایالات متحده، مواد مخدر، به ویژه فنتانیل، «جریان آزاد» تجارت از طریق تنگه هرمز و سایر مسائل کلیدی گفتگو کردند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20115
-
-<div align="center"><img src="telegram/content/IranianMinds_20115.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💔
 
 @IranianMinds
 </div>

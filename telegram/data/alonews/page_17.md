@@ -1,8 +1,56 @@
 # آرشیو کانال alonews - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/02/26 02:32
+📅 آخرین بروزرسانی: 1405/02/26 08:51
 
 ---
+
+## alonews — post 119818
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزارت خارجه ایالات متحده: امروز، وزارت خارجه به‌طور عمومی پیشنهاد سخاوتمندانه ایالات متحده برای ارائه ۱۰۰ میلیون دلار کمک بشردوستانه مستقیم اضافی به مردم کوبا را که با هماهنگی کلیسای کاتولیک و سایر سازمان‌های بشردوستانه مستقل و قابل اعتماد توزیع خواهد شد، مجدداً اعلام می‌کند.
+
+🔴تصمیم با رژیم کوبا است که پیشنهاد کمک ما را بپذیرد یا از کمک‌های حیاتی نجات‌بخش زندگی خودداری کند و در نهایت در برابر مردم کوبا به دلیل ایستادگی در برابر کمک‌های حیاتی پاسخگو باشد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119817
+
+<div align="center"><video src="telegram/content/alonews_119817.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119817.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کوین وارش با رأی ۵۴ به ۴۵ سنا ایالات متحده به عنوان رئیس فدرال رزرو تأیید شد.
+
+🔴 جان فترمن تنها دموکراتی بود که از این تأیید حمایت کرد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزیر امور خارجه سوریه: دمشق خواهان دستیابی به توافقی امنیتی با اسرائیل است که بر پایه احترام متقابل به حاکمیت دو طرف و حفظ ثبات منطقه شکل بگیرد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119815
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار سی‌بی‌اس مدعی شد: پیشرفت‌هایی در مذاکرات با ایران دیده می‌شود
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119814
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کانال ۱۲ اسرائیل: امارات و اسرائیل به دنبال علنی‌تر کردن روابط خود هستند
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119813
 

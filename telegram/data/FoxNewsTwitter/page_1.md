@@ -1,8 +1,34 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 03:16
+📅 آخرین بروزرسانی: 1405/02/26 08:34
 
 ---
+
+## FoxNewsTwitter — post 341807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Trump says U.S. forces just helped take out "the most active terrorist in the world."
+
+In a late-night Truth Social post, the president announced that American forces and Nigeria’s military carried out a complex mission that killed Abu-Bilal al-Minuki, whom Trump described as ISIS’s second-in-command globally.
+
+“[He] thought he could hide in Africa,” Trump said, "but little did he know we had sources who kept us informed on what he was doing."
+</div>
+
+## FoxNewsTwitter — post 341806
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341806.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341806.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+Countless bees swarmed outside the White House, near the press corps' media area, on Friday.
+
+About 20 minutes later, the bees swarmed a hive on a tree on the North Lawn.
+</div>
 
 ## FoxNewsTwitter — post 341805
 
@@ -239,37 +265,5 @@ Fox News (Twitter/X)
 
 WATCH LIVE: FBI provides update after alleged TdA leader made first courtroom appearance
 https://twitter.com/i/broadcasts/1RKjpznvoldJw
-</div>
-
-## FoxNewsTwitter — post 341785
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341785.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341785.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: U.S. Marshals Director Gadyaces Serralta reveals the massive success of the D.C. Safe Task Force, reporting a dramatic drop in violent crime across the nation's capital.
-
-The task force has made nearly 13,000 arrests and seized over 1,400 illegal firearms in just nine months, leading to a 35% decrease in murders.
-
-"The D.C. Safe Task Force has seized over 1400 illegal firearms, preventing countless violent crimes in our nation's capital. Murders are down more than 35%, and overall crime is down 26%. The violent carjackings that once plagued this city are rare and will be over because we are not done."
-</div>
-
-## FoxNewsTwitter — post 341784
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341784.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341784.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-Cardinal Dolan delivers a heartfelt message to the New York faithful during a golden jubilee Mass, crediting his priesthood to God and the support of his community.
-
-The Cardinal reflected on nearly two decades of service, calling the people of New York his "family" and offering a humble assessment of his many years in the church.
-
-"After 17 happy years, you're my family, you're my friends, and I love you, and I thank you. I thank you so much... Without Jesus, I could've done nothing. Without you, none of the meager accomplishments you so graciously pointed out could've ever happened."
 </div>
 

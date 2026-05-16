@@ -1,8 +1,21 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 02:25
+📅 آخرین بروزرسانی: 1405/02/26 08:44
 
 ---
+
+## Persian_Trend_Official — post 14159
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14159.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸🇨🇳 لی جون، بنیان‌گذار و مدیرعامل شرکت شیائومی، در حال گرفتن عکس سلفی با ایلان ماسک، ثروتمندترین فرد جهان و تاریخ.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14156
 
@@ -350,11 +363,5 @@ https://t.me/boost/persian_trend_official
 
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدارو شکر دیگه کم کم هر ننه قمری فاز کوسه برداشته و میخواد به حساب دیگران رسیدگی کنه! جناب کریم شیره ای، شما اگر خیلی حساب و کتاب سرت میشه برو پول بساطت رو با ساقی محل حساب کن .
 </div>
 

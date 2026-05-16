@@ -1,8 +1,26 @@
 # آرشیو کانال kianmeli1 - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 00:14
+📅 آخرین بروزرسانی: 1405/02/26 08:38
 
 ---
+
+## kianmeli1 — post 87404
+
+<div align="center"><img src="telegram/content/kianmeli1_87404.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دریاسالار برد کوپر، رئیس فرماندهی مرکزی ایالات متحده، گزارش‌های خبری مبنی بر اینکه ایران ۷۰ تا ۷۵ درصد از موشک‌ها و پرتابگرهای قبل از جنگ خود را حفظ کرده است، «غیردقیق» خواند و آنها را رد کرد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87403
+
+<div align="center"><img src="telegram/content/kianmeli1_87403.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ایران از همه کشورهای عضو بریکس می‌خواهد که جنگ آمریکا و اسرائیل علیه خود را محکوم کنند.
+https://t.me/kianmeli1
+</div>
 
 ## kianmeli1 — post 87402
 
@@ -183,40 +201,6 @@ https://t.me/kianmeli1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ‏🔴خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، از اعدام محمد عباسی از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴ خبر داد
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87384
-
-<div align="center"><video src="telegram/content/kianmeli1_87384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴آشنا: ایران هنوز شگفتی‌هایی برای دشمن دارد
-
-ایران ظرفیت عبور از چالش فعلی را دارد. برای توان نظامی ایران، ۴۷ سال زحمت کشیده شده است. به‌نظر من هیچ‌کس نمی‌داند ایران چقدر قدرت دارد.
-
-اگر قرار است مستقل باشیم آخرش اسلحه‌ها حرف می‌زنند.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87383
-
-<div align="center"><video src="telegram/content/kianmeli1_87383.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/kianmeli1_87383.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴زنگنه: ۳۰ درصد از گرانی‌ها طبیعی جنگ است / ۳۵ درصد از گرانی‌ها به خاطر ناکارآمدی دستگاه‌هاست
-
-محسن زنگنه، عضو کمیسیون برنامه و بودجه مجلس:
-برخی از وزارتخانه‌ها آرایش جنگی ندارند
-
-گزارشات وزارتخانه‌ها مداوم نیست و قطع می‌شود؛ به طور خاص وزارت جهاد کشاورزی اینگونه است
-
-باید در وزارت کشاورزی برنامه ریزی بهتری داشته باشیم که در آینده چه خواهد شد
-وزارت جهادکشاورزی یک مرتبه کود را هفت برابر کرده است!
 https://t.me/kianmeli1
 </div>
 

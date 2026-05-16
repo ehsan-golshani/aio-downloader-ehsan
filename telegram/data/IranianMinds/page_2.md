@@ -1,8 +1,37 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 02:03
+📅 آخرین بروزرسانی: 1405/02/26 08:46
 
 ---
+
+## IranianMinds — post 20201
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طبق گزارش خبرنگاران آمریکایی، پیش از سوار شدن به «ایرفورس وان»، سرویس مخفی آمریکا تمام وسایل و هدایایی را که طرف چینی داده بود از جمله کارت‌ها، نشان‌ها، تلفن‌های موقت و اقلام هدیه جمع کردند و داخل سطل زباله انداختند و اجازه ندادند چیزی از چین وارد هواپیما شود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20200
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یک مقام وزارت خارجه آمریکا به الجزیره گفت فضای دومین روز مذاکرات میان لبنان و اسرائیل بسیار مثبت بوده و روند گفت‌وگوها فراتر از انتظارها پیش رفته است.
+
+این دومین روز از سومین دور مذاکرات میان اسرائیل و لبنان با میانجی‌گری ایالات متحده بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20199
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+👍اسپانسر لیگ انگلیس👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
 
 ## IranianMinds — post 20198
 
@@ -187,46 +216,6 @@ ge25
 🔴 ترامپ:
 
 ایران هرگز به سلاح هسته‌ای دست نخواهد یافت و تحت هیچ شرایطی فرصتی برای آن نخواهد داشت.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20181
-
-<div align="center"><video src="telegram/content/IranianMinds_20181.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20181.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ درباره رهبر کره شمالی :
-
-من رابطه خیلی خوبی با کیم جونگ‌اون دارم.
-
-او به کشور ما احترام گذاشته است و من می‌خواهم همین احترام را ادامه دهد.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20180
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-80 درصد از توان موشکی ایران نابود شده است
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20179
-
-<div align="center"><video src="telegram/content/IranianMinds_20179.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20179.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ در مورد توقف فعالیت هسته ای ایران:
-
-۲۰ سال کافی است. اما میزان تضمینی که از طرف آن‌ها داده می‌شود… باید واقعاً ۲۰ سال باشد
 
 @IranianMinds
 </div>

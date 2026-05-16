@@ -1,8 +1,14 @@
 # آرشیو کانال pm_afshaa - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 03:17
+📅 آخرین بروزرسانی: 1405/02/26 08:35
 
 ---
+
+## pm_afshaa — post 90785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 25 اردیبهشت روز پاسداشت زبان فارسی و بزرگداشت فردوسیه 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90784
 
@@ -186,19 +192,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴کانال 13 اسرائیل:اسرائیل انتظار دارد حمله احتمالی آمریکا در ایران از فردا با بازگشت ترامپ از چین آغاز شود
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90765
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ به فاکس نیوز:امیدوارم ایران در حال تماشا باشد. ما دقیقاً می‌دانیم چه چیزی را به نمایش گذاشته‌اند.
-
-می‌دانید، آنها کمی استراحت داشتند، بنابراین سعی می‌کنند چند چیز را جمع کنند. آنها چند موشک را از زیر زمین برداشته‌اند. همه آن‌ها در یک روز از بین خواهد رفت.
-
-هر کاری که در چهار هفته گذشته انجام داده‌اند، در یک روز از بین خواهد رفت
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

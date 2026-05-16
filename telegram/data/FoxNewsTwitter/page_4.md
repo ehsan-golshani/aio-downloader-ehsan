@@ -1,8 +1,34 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 03:16
+📅 آخرین بروزرسانی: 1405/02/26 08:34
 
 ---
+
+## FoxNewsTwitter — post 341742
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341742.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: VP Vance delivers remarks on Trump admin's fraud crackdown https://twitter.com/i/broadcasts/1kKzDMmkkYXJv
+</div>
+
+## FoxNewsTwitter — post 341741
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341741.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341741.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+“Tend to your faith not just when you’re broken, but when you’re whole.”
+
+Eric Church returned to his alma mater, UNC Chapel Hill, and gave graduates a message bigger than music:
+
+The country star told graduates that faith is the “low E” of life: the foundation every chord rests on, especially when the world gets overwhelming.
+</div>
 
 ## FoxNewsTwitter — post 341740
 
@@ -234,29 +260,5 @@ Story by @AsraNomani & @M_Dorgan
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fox News (Twitter/X)
-</div>
-
-## FoxNewsTwitter — post 341716
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341716.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-SEE IT: President Trump joins Chinese President Xi at a state banquet in Beijing, a formal moment centered on U.S.-China relations.
-
-The setting emphasizes ceremony and continuity between the two nations against a backdrop of ongoing global and economic uncertainty.
-</div>
-
-## FoxNewsTwitter — post 341715
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341715.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341715.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH: @BretBaier goes inside a Beijing convenience store to test out their new humanoid robot worker. It's moving a little slow for now, but with 50 different locations already active, China is making a massive play for AI dominance. | @SpecialReport
 </div>
 

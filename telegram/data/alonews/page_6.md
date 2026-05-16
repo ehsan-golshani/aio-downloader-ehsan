@@ -1,8 +1,67 @@
 # آرشیو کانال alonews - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 02:32
+📅 آخرین بروزرسانی: 1405/02/26 08:51
 
 ---
+
+## alonews — post 120186
+
+<div align="center"><video src="telegram/content/alonews_120186.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120186.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈خبرنگار: دیروز از دریاسالار کوپر درباره حمله به مدرسه دخترانه در اولین روز جنگ سوال شد.
+
+🔴ترامپ: شما درباره مورد اصلی صحبت می‌کنید — که در حال بررسی است.
+
+🔴خبرنگار: آیا می‌توانید تایید کنید که این موشک آمریکایی بود؟
+
+🔴ترامپ: شما با چه کسی هستید؟
+
+🔴خبرنگار: بی‌بی‌سی.
+
+🔴ترامپ: بی‌بی‌سی جعلی.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عراقچی: اگه به جنگ برگردن این تصمیم خودشونه، ولی نتیجه فرقی نمیکنه و بازم شکست میخورن
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ رسماً اعلام کرد که یه دور دیگر از عملیات نظامی آمریکا در ایران در راه است:
+ما از نظر نظامی در ایران تقریباً کار را تمام کردیم. حدود ۷۵٪ کار را. (البته) ما همه چیز را تمام نکردیم. برمی‌گردیم و آن را تکمیل می‌کنیم. حتی شاید بیشتر!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مرتس و ترامپ درباره ایران، هرمز و اوکراین رایزنی کردند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ درباره استعفای استارمر: من چنین چیزی نمیگویم
+
+🔴خبرنگاری از دونالد ترامپ پرسید آیا کی‌یر استارمر، نخست وزیر بریتانیا، باید استعفا دهد؟
+
+🔴ترامپ پاسخ داد: «من این را نمیگویم. در واقع فکر میکنم او مرد خوبی است.»
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120181
 
@@ -167,48 +226,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈ترامپ : «مواد هسته‌ای» ایران، ممکنه به چین یا آمریکا تحویل داده شه!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: «من دیگر خیلی بیشتر از این صبر نخواهم کرد. آنها باید توافق را امضا کنند.»
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120159
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عراقچی: پس از اینکه ترامپ آخرین پیشنهاد ما را رد کرد، پیام‌هایی از آمریکا دریافت کردیم که تمایلش به ادامه گفت‌وگو است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120158
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: پل‌ها و سایت‌های برق ایران که می‌توانیم هدف قرار دهیم
-
-🔴ترامپ می‌گوید ایران آتش‌بس را به عنوان لطفی به دیگر کشورها انجام داد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: هیچ تعهدی در مورد تایوان ندادم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: پل‌ها و سایت‌های برق ایران که می‌توانیم هدف قرار دهیم
 
 ✅ @AloNews خبر جنگ
 </div>

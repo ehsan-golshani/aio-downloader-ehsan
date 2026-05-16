@@ -1,8 +1,50 @@
 # آرشیو کانال alonews - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 02:32
+📅 آخرین بروزرسانی: 1405/02/26 08:51
 
 ---
+
+## alonews — post 120160
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: «من دیگر خیلی بیشتر از این صبر نخواهم کرد. آنها باید توافق را امضا کنند.»
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120159
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عراقچی: پس از اینکه ترامپ آخرین پیشنهاد ما را رد کرد، پیام‌هایی از آمریکا دریافت کردیم که تمایلش به ادامه گفت‌وگو است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120158
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: پل‌ها و سایت‌های برق ایران که می‌توانیم هدف قرار دهیم
+
+🔴ترامپ می‌گوید ایران آتش‌بس را به عنوان لطفی به دیگر کشورها انجام داد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120157
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: هیچ تعهدی در مورد تایوان ندادم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: پل‌ها و سایت‌های برق ایران که می‌توانیم هدف قرار دهیم
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120155
 
@@ -197,76 +239,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈سخنگوی صنعت آب: ناچار به مدیریت مصرف به روش‌های مختلف هستیم تا بتوانیم آب را تأمین کنیم، از جمله افت فشار آب
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120108
-
-<div align="center"><video src="telegram/content/alonews_120108.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120108.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈صدای چند انفجار در اربیل
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120107
-
-<div align="center"><video src="telegram/content/alonews_120107.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120107.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رسایی: جلسات مجلس به طرز بی‌سابقه‌ای تعطیل شده تا در مذاکرات دخالت نکنیم
-
-
-🔴 دبیر شورای عالی امنیت در نامه‌ای اعلام کردند مصلحت نیست جلسات مجلس برگزار شود.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120106
-
-<div align="center"><video src="telegram/content/alonews_120106.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120106.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▪️خبرنگار:
-امیرعلی چرا اومدی تجمع؟!
-▪️امیرعلی:
-به عشق رهبرم.
-▪️خبرنگار:
-مامان و بابات مجبورت کردن که بیای تجمعات؟!
-▪️امیرعلی:
-آره
-
-[@AloTweet]
-</div>
-
-## alonews — post 120105
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جنگ الونیوز AloNews pinned a photo
-</div>
-
-## alonews — post 120104
-
-<div align="center"><video src="telegram/content/alonews_120104.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120104.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فایننشال‌تایمز به‌نقل از دنیس وایلدر، رئیس سابق بخش تحلیل چین در سیا نوشت: بسیار قابل توجه است که گزارش‌های رسمی چین تاکنون هیچ اشاره‌ای به توافق آمریکا و چین بر سر «ایران غیرهسته‌ای» یا مخالفت با «مالکیت ایران بر تنگهٔ هرمز» نکرده‌اند.
-
-
-🔴این سکوت، سوالات جدی را دربارهٔ این ایجاد می‌کند که آیا واقعاً صحبت‌های ترامپ به‌نقل از چینی‌ها در این‌ موارد درست است یا خیر.
 
 
 ✅ @AloNews خبر جنگ

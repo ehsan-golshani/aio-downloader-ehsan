@@ -1,8 +1,54 @@
 # آرشیو کانال IranianMinds - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 02:03
+📅 آخرین بروزرسانی: 1405/02/26 08:46
 
 ---
+
+## IranianMinds — post 20095
+
+<div align="center"><img src="telegram/content/IranianMinds_20095.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رویترز :
+
+طبق گزارش وزارت خارجه، آمریکا و چین توافق کردند که هیچ کشوری نباید در تنگه هرمز عوارض حمل و نقل دریایی دریافت کند.
+
+این موضوع پیش از نشست ترامپ و شی در پکن، توسط مارکو روبیو، وزیر خارجه آمریکا، و وانگ یی، وزیر خارجه چین، مورد بحث قرار گرفت!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20094
+
+<div align="center"><video src="telegram/content/IranianMinds_20094.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20094.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
+ae23
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
+
+## IranianMinds — post 20093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 وزیر خارجه سوریه :
+
+میخوایم روابطمون با داداشیمون اسرائیل رو قوی تر کنیم و به حاکمیت هم احترام بزاریم
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20092
 
@@ -204,43 +250,5 @@ https://t.me/+qNjExGEJztE2OGI0
 چین پیش از دیدار ترامپ به ایران فشار آورده تا به توافق برسد با آمریکا.
 
 @IranianMinds
-</div>
-
-## IranianMinds — post 20072
-
-<div align="center"><img src="telegram/content/IranianMinds_20072.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مجله فرانسوی Paris Match ادعا میکند که رئیس‌جمهور فرانسه، مکرون، چند ماه با گلشیفته فراهانی بازیگر‌ایرانی یک رابطهٔ افلاطونی ( رابطه صمیمانه عاطفی بدون رابطه ی جنسی ) داشته و پیام‌هایی مانند «خیلی زیبا هستی» رد و بدل کرده‌اند.
-
-ماجرای جنجالی مه ۲۰۲۵ در هانوی که به نظر می‌رسید بریژیت او را در باند فرودگاه سیلی زده باشد، در واقع یک دعوای زوجین بوده، زمانی که بریژیت پیام‌ها را وسط پرواز در گوشی مکرون دیده است.
-
-گلشیفته درباره این ادعا هنوز چیزی نگفته.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20071
-
-<div align="center"><img src="telegram/content/IranianMinds_20071.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
-
-👍دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-ge23
-🔔کانال دربی بت :
-🪙https://t.me/+aCbq7yy8QY80NzQ0
 </div>
 

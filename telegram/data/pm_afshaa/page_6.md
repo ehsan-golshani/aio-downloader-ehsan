@@ -1,8 +1,18 @@
 # آرشیو کانال pm_afshaa - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 03:17
+📅 آخرین بروزرسانی: 1405/02/26 08:35
 
 ---
+
+## pm_afshaa — post 90719
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴شی جین‌پینگ در دیدار با دونالد ترامپ:
+همواره باور داشتم منافع مشترک چین و آمریکا بیشتر از اختلافاتشونه.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90718
 
@@ -193,17 +203,6 @@
 🔴عباس عراقچی:
 
 کویت در اقدامی آشکار برای ایجاد اختلاف، به طور غیرقانونی به یک قایق ایرانی حمله کرد و چهار شهروند رو در خلیج فارس بازداشت کرد. این اقدام غیرقانونی در نزدیکی جزیره‌ای رخ داد که آمریکا از آن برای حمله به ایران استفاده میکنه. ما خواستار آزادی فوری شهروندان خود هستیم و حق پاسخگویی رو برای خود محفوظ می‌داریم.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90699
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴هفتمین رأی‌گیری سنای آمریکا توسط دموکرات‌ها برای محدود کردن اختیارات جنگی ترامپ و پایان جنگ با جمهوری اسلامی بازهم شکست خورد.
-
-تعداد آرا فاصله نزدیک 50 به 49 داشت!
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

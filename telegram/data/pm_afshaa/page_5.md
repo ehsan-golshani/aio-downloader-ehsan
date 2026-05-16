@@ -1,8 +1,19 @@
 # آرشیو کانال pm_afshaa - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 03:17
+📅 آخرین بروزرسانی: 1405/02/26 08:35
 
 ---
+
+## pm_afshaa — post 90745
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎙️آیا درباره حمایت چین از ایران با رئیس جمهور چین صحبت کردید؟
+
+ترامپ: ما در مورد این موضوع صحبت کردیم. منظورم اینه که وقتی میگید «حمایت»، آنها با ما جنگ نمی‌کنن یا چیزی شبیه این. او گفت که تجهیزات نظامی ارائه نخواهد کرد، این یک بیانیه بزرگه. اما در عین حال گفت که آنها مقدار زیادی نفت خودشون رو از ایران میخرن و دوست دارن این کار رو ادامه بدن.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90744
 
@@ -209,16 +220,6 @@
 🔴ترامپ در دیدار با شی‌جین‌ پینگ: روابط آمریکا و چین بهتر از زمان دیگری خواهد شد.
 
 شی هم ابراز امیدواری کرد سال 2026 نقطه‌عطفی در روابط چین و آمریکا باشه.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90719
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴شی جین‌پینگ در دیدار با دونالد ترامپ:
-همواره باور داشتم منافع مشترک چین و آمریکا بیشتر از اختلافاتشونه.
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

@@ -1,8 +1,19 @@
 # آرشیو کانال pm_afshaa - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 03:17
+📅 آخرین بروزرسانی: 1405/02/26 08:35
 
 ---
+
+## pm_afshaa — post 90699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴هفتمین رأی‌گیری سنای آمریکا توسط دموکرات‌ها برای محدود کردن اختیارات جنگی ترامپ و پایان جنگ با جمهوری اسلامی بازهم شکست خورد.
+
+تعداد آرا فاصله نزدیک 50 به 49 داشت!
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90698
 

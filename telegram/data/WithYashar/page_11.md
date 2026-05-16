@@ -1,8 +1,16 @@
 # آرشیو کانال WithYashar - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/02/26 05:00
+📅 آخرین بروزرسانی: 1405/02/26 08:33
 
 ---
+
+## WithYashar — post 11165
+
+## WithYashar — post 11164
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیام سد مجید موسی ، فرمانده نیروی هوافضای ۳پا تیم ملی رو هم بردن وسط میدون مثل میمونای سیرک @withyashar
+</div>
 
 ## WithYashar — post 11163
 

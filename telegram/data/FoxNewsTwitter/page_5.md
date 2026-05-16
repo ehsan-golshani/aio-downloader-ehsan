@@ -1,8 +1,32 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 03:16
+📅 آخرین بروزرسانی: 1405/02/26 08:34
 
 ---
+
+## FoxNewsTwitter — post 341716
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341716.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+SEE IT: President Trump joins Chinese President Xi at a state banquet in Beijing, a formal moment centered on U.S.-China relations.
+
+The setting emphasizes ceremony and continuity between the two nations against a backdrop of ongoing global and economic uncertainty.
+</div>
+
+## FoxNewsTwitter — post 341715
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341715.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341715.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH: @BretBaier goes inside a Beijing convenience store to test out their new humanoid robot worker. It's moving a little slow for now, but with 50 different locations already active, China is making a massive play for AI dominance. | @SpecialReport
+</div>
 
 ## FoxNewsTwitter — post 341714
 
@@ -251,31 +275,5 @@ NOW: President Trump calls Chinese President Xi Jinping a "great leader."
 Fox News (Twitter/X)
 
 NOW: President Trump expressed high hopes for U.S.-China relations at the Great Hall of the People, telling President Xi Jinping it is an honor to be his friend and predicting the partnership will be stronger than ever before.
-</div>
-
-## FoxNewsTwitter — post 341696
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341696.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341696.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump says "it's an honor" after meeting Chinese President Xi Jinping.
-
-"It's an honor to be with you, it's an honor to be your friend, and the relationship between China and the USA is going to be better than ever before."
-</div>
-
-## FoxNewsTwitter — post 341695
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341695.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341695.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump thanks Chinese President Xi Jinping for welcoming him to Beijing, saying he was particularly impressed with the crowd of cheering children during the welcome ceremony.
 </div>
 

@@ -1,8 +1,44 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 03:16
+📅 آخرین بروزرسانی: 1405/02/26 08:34
 
 ---
+
+## FoxNewsTwitter — post 341673
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341673.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341673.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+"I can do all things through Christ who strengthens me.”
+
+DHS Secretary Markwayne Mullin leans on his Christian faith as he sends a message of support to his ICE agents, defending them against media scrutiny:
+
+“If any agency needs to hear that, it's ICE. No matter what the media wants to say, I know you're doing your job every day, and I want you to know I am proud to be part of it.”
+
+“I take it with tremendous pride, and I'm willing to stand beside you and stand in front of you and defend you every single day."
+</div>
+
+## FoxNewsTwitter — post 341672
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341672.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341672.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+JUST NOW: VP Vance makes an 'Apprentice' joke when asked about President Trump doing a crowd poll of himself and Secretary Rubio earlier this week.
+
+"I just don't think it sounds like the president of the United States to have a televised competition for who would succeed him as his apprentice."
+
+"I just think that's not at all what you would expect the president to do."
+
+"I think it's natural for him to joke around with us a little bit to play around with the idea. But I can tell you the president is as focused as any of us on making sure we do as good of a job now for the American people."
+</div>
 
 ## FoxNewsTwitter — post 341671
 

@@ -1,8 +1,30 @@
 # آرشیو کانال kianmeli1 - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 00:14
+📅 آخرین بروزرسانی: 1405/02/26 08:38
 
 ---
+
+## kianmeli1 — post 87425
+
+<div align="center"><video src="telegram/content/kianmeli1_87425.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87425.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برت بایر از فاکس: آیا تاب آوری ایران را دست کم گرفتید ؟
+
+ترامپ: چیزی را دست کم نگرفتم ما می توانیم پل ها و ظرفیت برق آنها را در دو روز از بین ببریم.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87424
+
+<div align="center"><img src="telegram/content/kianmeli1_87424.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴به گزارش نیویورک تایمز، به نقل از دو مقام خاورمیانه، ایالات متحده و اسرائیل در حال آماده شدن برای از سرگیری احتمالی عملیات جنگی علیه ایران، احتمالاً با نامی جدید، از اوایل هفته آینده هستند. طبق این گزارش، گزینه‌های هدف‌گیری شامل حملات تهاجمی‌تر علیه اهداف نظامی و زیرساختی است که یکی از مقامات آن را حملات تهاجمی‌تر نامیده است. علاوه بر این، گزینه دیگری که روی میز است، استفاده از نیروهای ویژه برای ورود و استخراج اورانیوم غنی‌شده با غلظت بالا از داخل ایران است. با این حال، طبق این گزارش، این امر برای موفقیت به هزاران نیروی پشتیبانی و عناصر پشتیبانی متعدد دیگری نیاز دارد و خطرات چنین عملیاتی بسیار زیاد است
+https://t.me/kianmeli1
+</div>
 
 ## kianmeli1 — post 87423
 
@@ -184,24 +206,6 @@ https://t.me/kianmeli1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴به گزارش رویترز، عربستان سعودی به رئیس جمهور ترامپ گفته است که جنگ با ایران باید پایان یابد و تنگه هرمز باید باز بماند و در صورت ادامه بحران، نسبت به «زیان‌های اقتصادی غیرقابل اندازه‌گیری» هشدار داده است.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87404
-
-<div align="center"><img src="telegram/content/kianmeli1_87404.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دریاسالار برد کوپر، رئیس فرماندهی مرکزی ایالات متحده، گزارش‌های خبری مبنی بر اینکه ایران ۷۰ تا ۷۵ درصد از موشک‌ها و پرتابگرهای قبل از جنگ خود را حفظ کرده است، «غیردقیق» خواند و آنها را رد کرد.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87403
-
-<div align="center"><img src="telegram/content/kianmeli1_87403.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ایران از همه کشورهای عضو بریکس می‌خواهد که جنگ آمریکا و اسرائیل علیه خود را محکوم کنند.
 https://t.me/kianmeli1
 </div>
 

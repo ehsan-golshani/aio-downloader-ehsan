@@ -1,8 +1,60 @@
 # آرشیو کانال alonews - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 02:32
+📅 آخرین بروزرسانی: 1405/02/26 08:51
 
 ---
+
+## alonews — post 120285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈نیویورک‌تایمز: ترامپ روز جمعه پس از بازگشت از چین، با تصمیم‌های مهمی درباره ایران مواجه شد؛ در حالی که نزدیک‌ترین مشاورانش طرح‌هایی برای ازسرگیری حملات نظامی در صورت تصمیم او برای شکستن بن‌بست از طریق فشار نظامی تهیه کرده‌اند
+
+🔴مشاوران رئیس جمهور آمریکا می‌گویند ترامپ هنوز درباره گام بعدی درباره ایران تصمیم نگرفته است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فارس: نمایندگان مجلس پیشنهاد افزایش ۵۰۰ هزار تا ۱ میلیون‌تومانی رقم کالابرگ را داده‌اند اما دولت گفته که تنها منابع افزایش ۲۵۰ هزارتومانی رقم کالابرگ را در اختیار دارد و سازمان برنامه هم اعلام کرده که پول نداریم!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ رسید آمریکا
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120282
+
+<div align="center"><img src="telegram/content/alonews_120282.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مقامات آمریکایی مشکوک هستند که هکرهای مرتبط با ایران ممکن است پشت یک سری نفوذهای سایبری باشند که سیستم‌های نظارت بر سوخت در پمپ‌بنزین‌ها در چندین ایالت را هدف قرار داده‌اند، طبق گزارش CNN
+
+🔴هکرها از سیستم‌های اندازه‌گیری خودکار مخازن که به اینترنت متصل بودند بدون حفاظت رمز عبور سوء استفاده کردند و این امکان را برایشان فراهم کرد تا خوانش‌های نمایش داده شده سوخت را دستکاری کنند — هرچند نه سطح واقعی سوخت.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120281
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ژان-لوک ملانشون، نامزد ریاست‌جمهوری فرانسه، درباره ایران و تنگه هرمز: «وقتی کشوری از خود دفاع می‌کند، از تمام ابزارهای دفاعی خود استفاده می‌کند.
+
+
+🔴ما هم همین کار را میکردیم.
+
+
+🔴ما تمام کانال مانش را مین‌گذاری می‌کردیم.»
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120280
 
@@ -170,56 +222,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈الجزیره: هند پس از افزایش قیمت سوخت، عوارض صادراتی بنزین و گازوئیل را افزایش داد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120264
-
-<div align="center"><img src="telegram/content/alonews_120264.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر امور خارجه پاکستان، اسحاق دار:
-خوشحالم که اعلام کنم ما در بازگرداندن ۱۱ شهروند پاکستانی به کشورمان موفق بوده‌ایم، همراه با ۲۰ شهروند از کشور برادرمان ایران، از طریق سنگاپور، که در کشتی‌هایی که توسط ایالات متحده در آب‌های آزاد توقیف شده بودند، حضور داشتند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120263
-
-<div align="center"><video src="telegram/content/alonews_120263.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120263.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️یکی از صدها موشکی که برگشتن رو سر مردم و جمهوری اسلامی طبق روال همیشه با مظلوم نمایی انداختن گردن امریکا و اسرائیل 🤔مدرسه میناب جای تحقیق و بررسی زیادی داره. ✅@AloNews
-</div>
-
-## alonews — post 120262
-
-<div align="center"><img src="telegram/content/alonews_120262.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 توییت جدید و عجیب دونالد ترامپ:
-کشور ایران ایالت ۲۴۳اُم آمریکا است!
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120261
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اوگاندا و جمهوری دموکراتیک کنگو هر دو اعلام کردند که شیوع جدید ابولا در کشورهایشان در جریان است.
-
-🔴۶۶ مورد مرگ ثبت شده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120260
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت امور خارجه آمریکا: آتش‌بس بین اسرائیل و لبنان به مدت ۴۵ روز تمدید می‌شود تا امکان ادامه روند مذاکرات فراهم شود
 
 ✅ @AloNews خبر جنگ
 </div>

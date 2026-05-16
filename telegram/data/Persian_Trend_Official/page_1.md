@@ -1,8 +1,22 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 02:25
+📅 آخرین بروزرسانی: 1405/02/26 08:44
 
 ---
+
+## Persian_Trend_Official — post 14226
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14226.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14226.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ☕️🤍
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14225
 
@@ -262,6 +276,4 @@ https://youtube.com/live/MneL4ZkKs1A?feature=share
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>
-
-## Persian_Trend_Official — post 14202
 

@@ -1,8 +1,69 @@
 # آرشیو کانال alonews - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/02/26 02:32
+📅 آخرین بروزرسانی: 1405/02/26 08:51
 
 ---
+
+## alonews — post 119839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈یک منبع امنیتی عراقی به شبکه العربیة: دو پهپاد حامل مواد منفجره، مقر یک حزب مخالف دولت ایران را در شمال اربیل هدف قرار دادند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119838
+
+<div align="center"><video src="telegram/content/alonews_119838.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119838.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈دیدار شی جی پینگ و دونالد ترامپ
+
+🔴دونالد ترامپ با ورود به محوطه تالار بزرگ خلق، با شی جینگ پینگ دیدار کرد و قرار است گفت‌و‌گوی دوجانبه انجام شود.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119837
+
+<div align="center"><video src="telegram/content/alonews_119837.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119837.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈جریمه سنگین دوربین‌های نظارتی چین برای مجری فاکس‌نیوز / برت بایر:
+
+🔴”به معنای واقعی کلمه همه جا دوربین وجود دارد.آنها همه چیز را می‌بینند... راننده ما به مدت ۲ دقیقه غیرقانونی پارک کرده و ۴۰ دلار جریمه شده است!"
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119836
+
+<div align="center"><video src="telegram/content/alonews_119836.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119836.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈معین: مهدی تاج الکی میگه، من قرار نیست هیچ آهنگی واسه تیم فوتبال تو جام جهانی بخونم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119835
+
+<div align="center"><img src="telegram/content/alonews_119835.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈طبق گزارش رویترز، ایالات متحده و چین توافق کردند که هیچ کشوری نباید اجازه داشته باشد عوارض حمل و نقل در تنگه هرمز را دریافت کند.
+
+🔴وزیر امور خارجه چین، وانگ یی، و وزیر امور خارجه ایالات متحده، مارکو روبیو، این موضوع را در تماس تلفنی آوریل مورد بحث قرار دادند.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119834
 
@@ -158,54 +219,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈وال‌استریت ژورنال: در حالی‌که نگرانی‌هایی درباره کاهش ذخیره مهمات ایالات متحده وجود دارد، پنتاگون در حال تلاش برای خرید ۱۰٬۰۰۰ موشک کروز کم‌هزینه در طول سه سال است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119818
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزارت خارجه ایالات متحده: امروز، وزارت خارجه به‌طور عمومی پیشنهاد سخاوتمندانه ایالات متحده برای ارائه ۱۰۰ میلیون دلار کمک بشردوستانه مستقیم اضافی به مردم کوبا را که با هماهنگی کلیسای کاتولیک و سایر سازمان‌های بشردوستانه مستقل و قابل اعتماد توزیع خواهد شد، مجدداً اعلام می‌کند.
-
-🔴تصمیم با رژیم کوبا است که پیشنهاد کمک ما را بپذیرد یا از کمک‌های حیاتی نجات‌بخش زندگی خودداری کند و در نهایت در برابر مردم کوبا به دلیل ایستادگی در برابر کمک‌های حیاتی پاسخگو باشد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119817
-
-<div align="center"><video src="telegram/content/alonews_119817.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119817.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کوین وارش با رأی ۵۴ به ۴۵ سنا ایالات متحده به عنوان رئیس فدرال رزرو تأیید شد.
-
-🔴 جان فترمن تنها دموکراتی بود که از این تأیید حمایت کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119816
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر امور خارجه سوریه: دمشق خواهان دستیابی به توافقی امنیتی با اسرائیل است که بر پایه احترام متقابل به حاکمیت دو طرف و حفظ ثبات منطقه شکل بگیرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119815
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار سی‌بی‌اس مدعی شد: پیشرفت‌هایی در مذاکرات با ایران دیده می‌شود
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119814
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کانال ۱۲ اسرائیل: امارات و اسرائیل به دنبال علنی‌تر کردن روابط خود هستند
 
 ✅ @AloNews خبر جنگ
 </div>

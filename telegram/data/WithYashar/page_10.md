@@ -1,8 +1,24 @@
 # آرشیو کانال WithYashar - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/02/26 05:00
+📅 آخرین بروزرسانی: 1405/02/26 08:33
 
 ---
+
+## WithYashar — post 11185
+
+<div align="center"><img src="telegram/content/WithYashar_11185.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقایقی پیش زمین‌لرزه‌ای بسیار شدید ۵ ریشتری در عمق ۸ کیلومتری بردسیر کرمان را لرزاند
+@withyashar
+</div>
+
+## WithYashar — post 11184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتانیاهو در دادگاه حظور پیدا کرد و گفت: «فیک نیوزها گفتند من به بیماری لاعلاجی مبتلا هستم - این یک صنعت دروغگویی تمام‌عیار است»
+@withyashar
+</div>
 
 ## WithYashar — post 11183
 
@@ -145,12 +161,4 @@ https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
 </div>
 
 ## WithYashar — post 11166
-
-## WithYashar — post 11165
-
-## WithYashar — post 11164
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام سد مجید موسی ، فرمانده نیروی هوافضای ۳پا تیم ملی رو هم بردن وسط میدون مثل میمونای سیرک @withyashar
-</div>
 

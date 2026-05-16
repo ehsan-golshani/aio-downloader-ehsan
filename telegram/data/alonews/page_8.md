@@ -1,8 +1,78 @@
 # آرشیو کانال alonews - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 02:32
+📅 آخرین بروزرسانی: 1405/02/26 08:51
 
 ---
+
+## alonews — post 120108
+
+<div align="center"><video src="telegram/content/alonews_120108.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120108.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈صدای چند انفجار در اربیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120107
+
+<div align="center"><video src="telegram/content/alonews_120107.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120107.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رسایی: جلسات مجلس به طرز بی‌سابقه‌ای تعطیل شده تا در مذاکرات دخالت نکنیم
+
+
+🔴 دبیر شورای عالی امنیت در نامه‌ای اعلام کردند مصلحت نیست جلسات مجلس برگزار شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120106
+
+<div align="center"><video src="telegram/content/alonews_120106.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120106.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▪️خبرنگار:
+امیرعلی چرا اومدی تجمع؟!
+▪️امیرعلی:
+به عشق رهبرم.
+▪️خبرنگار:
+مامان و بابات مجبورت کردن که بیای تجمعات؟!
+▪️امیرعلی:
+آره
+
+[@AloTweet]
+</div>
+
+## alonews — post 120105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار جنگ الونیوز AloNews pinned a photo
+</div>
+
+## alonews — post 120104
+
+<div align="center"><video src="telegram/content/alonews_120104.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120104.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فایننشال‌تایمز به‌نقل از دنیس وایلدر، رئیس سابق بخش تحلیل چین در سیا نوشت: بسیار قابل توجه است که گزارش‌های رسمی چین تاکنون هیچ اشاره‌ای به توافق آمریکا و چین بر سر «ایران غیرهسته‌ای» یا مخالفت با «مالکیت ایران بر تنگهٔ هرمز» نکرده‌اند.
+
+
+🔴این سکوت، سوالات جدی را دربارهٔ این ایجاد می‌کند که آیا واقعاً صحبت‌های ترامپ به‌نقل از چینی‌ها در این‌ موارد درست است یا خیر.
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120103
 
@@ -174,67 +244,5 @@
 🔴وی با ابراز احترام نسبت به شی جین‌پینگ، به سابقه آشنایی ۱۲ ساله و حل مشکلات پیچیده‌ای اشاره کرد که دیگران قادر به رفع آن‌ها نبودند. ترامپ این رابطه را بسیار قوی توصیف کرد و کارهای انجام شده را فوق‌العاده دانست.
 
 ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120058
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مارکو روبیو: مردم کوبا باید بدانند که در حال حاضر ۱۰۰ میلیون دلار غذا و دارو برای آن‌ها موجود است و تنها دلیلی که این کمک‌ها به دستشان نمی‌رسد، رژیم کوبا است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120057
-
-<div align="center"><video src="telegram/content/alonews_120057.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120057.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈اسرائیل در حملات بامداد امروز علیه حزب الله از سلاح فسفری استفاده کرد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مجلس نمایندگان آمریکا برای سومین بار در تصویب قطعنامهای با هدف محدود کردن اختیارات رئیس‌جمهور در ارتباط با جنگ با ایران ناکام ماند‌‌
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120055
-
-<div align="center"><img src="telegram/content/alonews_120055.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌐 اینترنت رایگان و آزاد برای همه مردم
-
-⚡ VPN رایگان
-⚡ کانفیگ تست‌شده و پرسرعت
-⚡ آپدیت روزانه
-⚡ بدون قطعی و دردسر
-
-@NetaazaadVPN
-@NetaazaadVPN
-
-اینجا فقط وصل میشی و راحت استفاده میکنی 🫡
-
-👇
-@NetaazaadVPN
-@NetaazaadVPN
-@NetaazaadVPN
-</div>
-
-## alonews — post 120054
-
-<div align="center"><img src="telegram/content/alonews_120054.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴احتمالا ویزا مهدی طارمی به علت خدمت در سپاه صادر نشود
-‼️
-
-@AloSport
 </div>
 

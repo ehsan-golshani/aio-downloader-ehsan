@@ -1,8 +1,40 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 03:16
+📅 آخرین بروزرسانی: 1405/02/26 08:34
 
 ---
+
+## FoxNewsTwitter — post 341785
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341785.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341785.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: U.S. Marshals Director Gadyaces Serralta reveals the massive success of the D.C. Safe Task Force, reporting a dramatic drop in violent crime across the nation's capital.
+
+The task force has made nearly 13,000 arrests and seized over 1,400 illegal firearms in just nine months, leading to a 35% decrease in murders.
+
+"The D.C. Safe Task Force has seized over 1400 illegal firearms, preventing countless violent crimes in our nation's capital. Murders are down more than 35%, and overall crime is down 26%. The violent carjackings that once plagued this city are rare and will be over because we are not done."
+</div>
+
+## FoxNewsTwitter — post 341784
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341784.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341784.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+Cardinal Dolan delivers a heartfelt message to the New York faithful during a golden jubilee Mass, crediting his priesthood to God and the support of his community.
+
+The Cardinal reflected on nearly two decades of service, calling the people of New York his "family" and offering a humble assessment of his many years in the church.
+
+"After 17 happy years, you're my family, you're my friends, and I love you, and I thank you. I thank you so much... Without Jesus, I could've done nothing. Without you, none of the meager accomplishments you so graciously pointed out could've ever happened."
+</div>
 
 ## FoxNewsTwitter — post 341783
 
@@ -242,31 +274,5 @@ President Trump took a stroll through Zhongnanhai Garden, part of a powerful Chi
 Fox News (Twitter/X)
 
 NOW: President Trump tours Zhongnanhai Garden with Chinese President Xi Jinping.
-</div>
-
-## FoxNewsTwitter — post 341762
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341762.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341762.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump says he and Chinese President Xi "feel very similar on Iran."
-
-"We want that to end. We don't want them to have a nuclear weapon. We want the straits open."
-</div>
-
-## FoxNewsTwitter — post 341761
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341761.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341761.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump says he and Chinese President Xi agree they do not want Iran to obtain a nuclear weapon and want the Strait of Hormuz to remain open.
 </div>
 

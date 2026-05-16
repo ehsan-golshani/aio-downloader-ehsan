@@ -1,8 +1,81 @@
 # آرشیو کانال IranIntlTV - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 05:05
+📅 آخرین بروزرسانی: 1405/02/26 08:39
 
 ---
+
+## IranIntlTV — post 337259
+
+<div align="center"><video src="telegram/content/IranIntlTV_337259.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337259.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلم «داستان‌های موازی»، ساخته اصغر فرهادی، جمعه به‌طور رسمی در بخش مسابقه اصلی جشنواره فیلم کن به نمایش درمی‌آید.
+سینمای مستقل، مهاجرت، تبعید و همچنین حضور فیلم‌سازان ایرانی در بخش‌های مختلف، از محورهای مورد توجه جشنواره امسال است.
+
+گزارش لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337258
+
+<div align="center"><video src="telegram/content/IranIntlTV_337258.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337258.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، پس از دیدار با شی جین‌پینگ در پکن، به شبکه فاکس نیوز گفت رییس‌جمهوری چین پیشنهاد داده برای کمک به بازگشایی تنگه هرمز همکاری کند. هم‌زمان وزارت خارجه چین نیز اعلام کرد: «تنگه هرمز باید هرچه زودتر بازگشایی شود.»
+
+توماج طاهباز و امیر گیتی، خبرنگاران ایران‌اینترنشنال، گزارش می‌دهند
+@iranintltv
+</div>
+
+## IranIntlTV — post 337257
+
+<div align="center"><img src="telegram/content/IranIntlTV_337257.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ در گفت‌وگو با فاکس‌نیوز در پکن با اشاره به اینکه گسترش همکاری‌های تجاری میان آمریکا و چین می‌تواند به نفع هر دو طرف باشد، گفت چین خواهان خرید نفت از ایالات‌متحده است.
+او با اشاره به روابط بسیار خوب خود با شی گفت: «زمانی چین از آمریکا سوءاستفاده می‌کرد، اما حالا ما با چین عملکرد بسیار خوبی داریم.»
+ترامپ با اشاره به همراهی ۳۰ نفر از بزرگ‌ترین صاحبان‌کسب‌وکار آمریکا در سفر به چین گفت بسیاری از این مدیران برای نخستین‌بار با شی جین‌پینگ دیدار کردند. او این دیدارها را مثبت ارزیابی کرد.
+او همچنین افزود در دیدار با مقام‌های چینی، موضوع دسترسی بیشتر شرکت ویزا به بازار کارت‌های اعتباری چین را مطرح کرده است.
+ترامپ درباره رئیس‌جمهوری چین گفت: «وقتی درباره برخی رهبران خوب صحبت می‌کنم، از من انتقاد می‌شود، اما او نزدیک به یک‌ونیم میلیارد نفر را برای مدت طولانی رهبری کرده و مورد احترام است.»
+
+https://iranintl.com/202605154928
+</div>
+
+## IranIntlTV — post 337256
+
+<div align="center"><video src="telegram/content/IranIntlTV_337256.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337256.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرخط خبرهای جمعه ۲۵ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337255
+
+<div align="center"><img src="telegram/content/IranIntlTV_337255.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شبکه کان اسرائیل گزارش داد دونالد ترامپ، رییس‌جمهوری آمریکا، پس از بازگشت از سفر به چین درباره ازسرگیری جنگ علیه جمهوری اسلامی یا تمدید محاصره تنگه هرمز تصمیم‌گیری خواهد کرد.
+به گفته منابع اسرائیلی، در روزهای اخیر رایزنی‌هایی میان مقام‌های ارشد ارتش اسرائیل و فرماندهی مرکزی ایالات متحده (سنتکام) انجام شده است. این منابع افزودند اسرائیل خواهان بازگشت به کارزار نظامی علیه جمهوری اسلامی است و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، چندین بار بر این موضع تاکید کرده است.
+هم‌زمان روزنامه هاآرتص نوشت هرچند نشانه‌ای از هشدار امنیتی غیرمعمول مشاهده نشده، اما احتمال ازسرگیری درگیری‌ها در روزهای آینده مطرح است.
+
+https://iranintl.com/202605159751
+</div>
+
+## IranIntlTV — post 337254
+
+<div align="center"><img src="telegram/content/IranIntlTV_337254.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت خارجه چین با اشاره به تنش‌های جاری میان جمهوری اسلامی و آمریکا، خواستار بازگشایی هرچه سریع‌تر کانال‌های گفت‌وگو و دستیابی فوری به «آتش‌بس جامع و پایدار» شد و تاکید کرد دستیابی سریع به یک راه‌حل سیاسی، به نفع تهران، واشینگتن و کشورهای منطقه است.
+https://iranintl.com/202605150200
+</div>
 
 ## IranIntlTV — post 337253
 
@@ -215,77 +288,5 @@ https://iranintl.com/202605147292
 
 گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
 @iranintltv
-</div>
-
-## IranIntlTV — post 337231
-
-<div align="center"><img src="telegram/content/IranIntlTV_337231.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، در پستی در شبکه اجتماعی تروث سوشال تاکید کرد «تضعیف نظامی حکومت ایران» در دوره دولت او است که انجام شده است.
-ترامپ این موفقیت را در کنار مجموعه‌ای از دستاوردهای دولت خود ذکر و تاکید کرد این روند درباره جمهوری اسلامی همچنان «ادامه خواهد داشت».
-
-https://iranintl.com/202605148199
-</div>
-
-## IranIntlTV — post 337230
-
-<div align="center"><img src="telegram/content/IranIntlTV_337230.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تام کاتن، سناتور جمهوری‌خواه آمریکا، در حساب کاربری ایکس خود نوشت «توافق‌های فاجعه‌بار» دوران باراک اوباما مسیر جاه‌طلبی‌های هسته‌ای جمهوری اسلامی را هموار کرد، اما ترامپ به این جاه‌طلبی‌ها پایان داد.
-این سناتور نزدیک به دونالد ترامپ همچنین گفت: جمهوری اسلامی اکنون نسبت به ۱۰ ماه پیش «به‌مراتب ضعیف‌تر» شده است.
-
-https://iranintl.com/202605140230
-</div>
-
-## IranIntlTV — post 337229
-
-<div align="center"><video src="telegram/content/IranIntlTV_337229.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337229.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همزمان با آغاز دور جدید مذاکرات مستقیم اسرائیل و لبنان، مقام‌های لبنانی بر آتش‌بس فوری و توقف حملات اسرائیل به جنوب لبنان به‌عنوان اولویت اصلی تاکید کردند.
-
-این مذاکرات در شرایطی برگزار می‌شود که آتش‌بس پیشین همچنان شکننده است و تنش‌ها در جنوب لبنان ادامه دارد.
-
-گفت‌وگو با منشه امیر، کارشناس امور خاورمیانه
-@iranintltv
-</div>
-
-## IranIntlTV — post 337228
-
-<div align="center"><video src="telegram/content/IranIntlTV_337228.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337228.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ پس از دیدار با شی جین‌پینگ پیشنهاد داد چین برای بازگشایی تنگه هرمز کمک کند.
-
-ترامپ همچنین گفت شی به او اطمینان داده چین تجهیزات نظامی در اختیار تهران قرار نخواهد داد.
-
-گزارش امیر گیتی، عضو تحریریه ایران‌اینترنشنال
-@iranintltv
-</div>
-
-## IranIntlTV — post 337227
-
-<div align="center"><img src="telegram/content/IranIntlTV_337227.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجلس نمایندگان آمریکا برای سومین بار به طرحی رای منفی داد که هدف آن محدود کردن اختیارات نظامی دونالد ترامپ در قبال حکومت ایران بود. این طرح در قالب قطعنامه‌ای از سوی دموکرات‌ها ارائه شده بود.
-رای‌گیری روز پنجشنبه با نتیجه ۲۱۲ در برابر ۲۱۲ به تساوی رسید و در نهایت با اختلاف یک رای نتوانست به اکثریت لازم برسد و رد شد.
-این سومین بار است که چنین ابتکاری برای مهار اختیارات نظامی رییس‌جمهوری در مجلس نمایندگان آمریکا شکست می‌خورد.
-در جریان بررسی این طرح، جو گاتهایمر، نماینده دموکرات ایالت نیوجرسی، گفت از فشار بر حکومت ایران حمایت می‌کند اما دولت را به نگه داشتن کنگره «در تاریکی» بدون جلسات توجیهی رسمی، متهم کرد.
-
-https://iranintl.com/202605146155
-</div>
-
-## IranIntlTV — post 337226
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎧نسخه صوتی برنامه با کامبیز حسینی؛ اگر یک جمله فرصت داشتید با ایران حرف بزنید، چه می‌گفتید؟
-@iranintlTV
 </div>
 
