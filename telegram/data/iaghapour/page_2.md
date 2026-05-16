@@ -1,8 +1,17 @@
 # آرشیو کانال iaghapour - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 22:43
+📅 آخرین بروزرسانی: 1405/02/26 11:00
 
 ---
+
+## iaghapour — post 2592
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#فیلترینگ به ما تحمیل شد,
+ولی #اینترنت_طبقاتی رو شما باید درخواست بدی تا بهت بدن...
+
+🆔 @iaghapour
+</div>
 
 ## iaghapour — post 2591
 

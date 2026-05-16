@@ -1,8 +1,31 @@
 # آرشیو کانال IranianMinds - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/26 08:46
+📅 آخرین بروزرسانی: 1405/02/26 11:11
 
 ---
+
+## IranianMinds — post 20203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قرارداد تبلیغاتی ۱ ماهه میبندم
+غیر اخلاقی چیزی نمیزارم
+دزدی و سیگنال ارز دیجیتال و این چیزا نمیزارم
+خواستید پیام بزارید
+اگر فیلترشکن میفروشید باید مدارک رضایت فروش بدید خیال راحتی باشه
+
+«بازدهی تضمینی»
+@AmirrPower
+</div>
+
+## IranianMinds — post 20202
+
+<div align="center"><img src="telegram/content/IranianMinds_20202.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ چند دقیقه پیش از آلاسکا به سمت واشنگتن پرواز کرد. پس از توقف برای سوخت‌گیری در انکوریج
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20201
 
@@ -196,26 +219,6 @@ ge25
 🔴 ترامپ:
 
 ارتش ایران را نابود کردیم و شاید لازم باشد یک عملیات پاکسازی سبک دیگر‌ هم انجام دهیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-نیروی هوایی ایران را کاملا نابود کردیم و از شر رهبران ایرانی خلاص شدیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20182
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-ایران هرگز به سلاح هسته‌ای دست نخواهد یافت و تحت هیچ شرایطی فرصتی برای آن نخواهد داشت.
 
 @IranianMinds
 </div>

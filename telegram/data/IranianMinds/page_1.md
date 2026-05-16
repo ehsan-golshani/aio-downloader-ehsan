@@ -1,8 +1,29 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 08:46
+📅 آخرین بروزرسانی: 1405/02/26 11:11
 
 ---
+
+## IranianMinds — post 20224
+
+<div align="center"><img src="telegram/content/IranianMinds_20224.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش یه روزی بیاد که تنها دغدغه و اخبارای مهم مام این چیزا باشه:)
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20223
+
+<div align="center"><img src="telegram/content/IranianMinds_20223.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۱۸ و ۱۹ دی ، میلیونها ایرانی بند کفششون رو بستند که ایرانو از بند جمهوری اسلامی آزاد کنند. بیش از پنجاه هزار نفرشون دیگه برنگشتند. ما تا روز دادخواهی، به زندگی عادی برنخواهیم گشت.
+آخرین عکس از جاویدنام محسن جبارزاده
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20222
 
@@ -246,29 +267,6 @@ https://iranopasmigirim.com/fa/transitional-justice
 🔴 امام جمعه کرج:
 
 بر اساس توصیه قرآن باید تا پایان «فتنه»، جنگ رو ادامه بدیم؛ مجازات اسرائیل، محو کردن کامل اونه.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قرارداد تبلیغاتی ۱ ماهه میبندم
-غیر اخلاقی چیزی نمیزارم
-دزدی و سیگنال ارز دیجیتال و این چیزا نمیزارم
-خواستید پیام بزارید
-اگر فیلترشکن میفروشید باید مدارک رضایت فروش بدید خیال راحتی باشه
-
-«بازدهی تضمینی»
-@AmirrPower
-</div>
-
-## IranianMinds — post 20202
-
-<div align="center"><img src="telegram/content/IranianMinds_20202.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ چند دقیقه پیش از آلاسکا به سمت واشنگتن پرواز کرد. پس از توقف برای سوخت‌گیری در انکوریج
 
 @IranianMinds
 </div>

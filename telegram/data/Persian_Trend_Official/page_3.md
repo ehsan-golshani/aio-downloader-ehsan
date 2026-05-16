@@ -1,8 +1,30 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 08:44
+📅 آخرین بروزرسانی: 1405/02/26 11:10
 
 ---
+
+## Persian_Trend_Official — post 14181
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14181.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14181.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 الجزیره: آمریکا تمامی شروط ایران را رد کرده است
+
+💢خبرنگار الجزیره گزارش داد تهران به‌صورت رسمی پاسخ واشینگتن به پیشنهاد ارائه‌شده از سوی ایران را دریافت کرده است.
+
+بر اساس این گزارش:
+
+▪️ ایالات متحده تمامی شروط مطرح‌شده از سوی ایران را رد کرده است
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14180
 
@@ -363,19 +385,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 https://youtube.com/live/SFBV2nP6Gs4?feature=share
-</div>
-
-## Persian_Trend_Official — post 14160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فایل صوتی لایو اول
-نسخه کم حجم - 8.26 مگابایت
-
-اتاق جنگ پنجشنبه 24 اردیبهشت | توافق چین و آمریکا در مورد ایران
-
-📝 Nick
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>
 

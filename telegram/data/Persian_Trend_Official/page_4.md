@@ -1,8 +1,22 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 08:44
+📅 آخرین بروزرسانی: 1405/02/26 11:10
 
 ---
+
+## Persian_Trend_Official — post 14160
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فایل صوتی لایو اول
+نسخه کم حجم - 8.26 مگابایت
+
+اتاق جنگ پنجشنبه 24 اردیبهشت | توافق چین و آمریکا در مورد ایران
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14159
 
@@ -344,22 +358,6 @@ https://t.me/boost/persian_trend_official
 ▪️ تولید انبوه جنگنده «جی-۲۰» از سال ۲۰۲۰ آغاز شده است
 
 🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14135
-
-<div align="center"><img src="telegram/content/Persian_Trend_Official_14135.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکانت کاخ سفید در شبکه ایکس:
-تاریخ در حرکت است.
-
-
-
-☆Phantom☆
 
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی

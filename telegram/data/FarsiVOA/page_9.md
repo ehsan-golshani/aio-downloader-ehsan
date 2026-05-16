@@ -1,8 +1,40 @@
 # آرشیو کانال FarsiVOA - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/26 08:43
+📅 آخرین بروزرسانی: 1405/02/26 11:08
 
 ---
+
+## FarsiVOA — post 217696
+
+<div align="center"><video src="telegram/content/FarsiVOA_217696.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217696.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گزارش فرهاد فلاحی از چین؛ واشنگتن از پکن در ارتباط با جمهوری اسلامی چه می‌خواهد؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217695
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️مردم درباره سفر پرزيدنت ترامپ به چین چه می‌گویند؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217694
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گفت‌وگو با مسعود کاظم‌زاده و ابراهیم روشندل درباره انتظارات از سفر رئيس جمهوری آمریکا به چین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217693
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️راهبرد چین در خلیج فارس؛ انرژی حرف اول را می‌زند
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217692
 
@@ -135,54 +167,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️آنچه دولت علی الزیدی برای عراق به ارمغان نمی‌آورد؟
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217676
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺مارکو روبیو: امیدواریم چین در واداشتن جمهوری اسلامی به اتمام بی‌ثبات‌سازی خلیج فارس نقش فعال‌تری ایفا کند
-
-▪️مارکو روبیو، وزیر امور خارجه آمریکا، در یک گفت‌وگوی اختصاصی با شان هنیتی از شبکه فاکس‌نیوز درباره تلاش‌ها برای وادار کردن چین به برخورد با جمهوری اسلامی ایران در ارتباط با اقداماتش در خلیج فارس توضیح داد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149668.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217675
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺آمریکا سپرده ضمانت ویزا برای اعضای واجد شرایط تیم‌های شرکت‌کننده در «جام جهانی» و برخی هواداران را لغو کرد
-
-▪️ایالات متحده می‌گوید سپرده ضمانت ویزا برای اعضای واجد شرایط تیم‌ها و برخی هواداران تیم‌ها لغو کرده است.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149664.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217674
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺مایک والتز: جمهوری اسلامی در انجام اقدامات غیرقانونی خود منزوی است
-
-▪️مایک والتز، سفیر آمریکا در سازمان ملل متحد، فهرستی از ۱۱۳ کشور را بازنشر کرد که پیش‌نویس قطعنامه شورای امنیت سازمان ملل که جمهوری اسلامی را به دلیل بستن تنگه هرمز محکوم می‌کند،‌ امضا کرده‌اند.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149663.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺امارات «گزارش‌ها درباره سفر نخست‌وزیر اسرائیل» را تکذیب کرد
-
-▪️وزارت امور خارجه امارات در بیانیه‌ای «گزارش‌های منتشرشده درباره سفر ادعایی بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به امارات یا پذیرش هرگونه هیئت نظامی اسرائیلی در این کشور را» تکذیب کرد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/8149657.html
 @FarsiVOA
 </div>
 

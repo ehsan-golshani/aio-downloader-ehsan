@@ -1,8 +1,21 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/26 08:44
+📅 آخرین بروزرسانی: 1405/02/26 11:10
 
 ---
+
+## Persian_Trend_Official — post 14077
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14077.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢امارات متحده عربی دیدار مخفیانه نتانیاهو از ابوظبی در طول جنگ با ایران را تکذیب کرد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14076
 

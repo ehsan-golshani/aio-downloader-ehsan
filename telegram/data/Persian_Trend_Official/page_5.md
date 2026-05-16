@@ -1,8 +1,24 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/26 08:44
+📅 آخرین بروزرسانی: 1405/02/26 11:10
 
 ---
+
+## Persian_Trend_Official — post 14135
+
+<div align="center"><img src="telegram/content/Persian_Trend_Official_14135.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکانت کاخ سفید در شبکه ایکس:
+تاریخ در حرکت است.
+
+
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14134
 
@@ -304,22 +320,6 @@ https://farsnews.ir/Khate_energy/1778660394098111565/%D8%A7%D8%B2-%D8%A7%D8%AE%D
 پ.ن: چی بگم والا...
 
 📝 Nick
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14104
-
-<div align="center"><img src="telegram/content/Persian_Trend_Official_14104.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 گزارش‌ها از توقیف یک شناور در نزدیکی فجیره توسط ایران
-
-💢برخی گزارش‌ها حاکی است یک فروند شناور در فاصله حدود ۳۸ مایل دریایی از بندر فجیره امارات توسط نیروهای ایرانی توقیف شده و در حال حرکت به‌سمت آب‌های سرزمینی ایران است.
-
-
-🫆:Tony
 
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی

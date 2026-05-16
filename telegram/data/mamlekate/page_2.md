@@ -1,8 +1,69 @@
 # آرشیو کانال mamlekate - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/25 16:44
+📅 آخرین بروزرسانی: 1405/02/26 11:02
 
 ---
+
+## mamlekate — post 103512
+
+<div align="center"><video src="telegram/content/mamlekate_103512.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/mamlekate_103512.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📝 حسین افشین، معاون علمی و فناوری مسعود پزشکیان، با اشاره به اینکه «در شرایط جنگی هم بستن اینترنت نمی‌تواند راهکار باشد» گفت: «دیدیم وقتی اینترنت کاملا بسته بود، ترورها همچنان وجود داشت.»
+
+💎 پیشتر: ترور لاریجانی:
+t.me/mamlekate/103477
+</div>
+
+## mamlekate — post 103511
+
+<div align="center"><video src="telegram/content/mamlekate_103511.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/mamlekate_103511.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤏 سخنگوی دولت: اینترنت پرو، مصوبه شورای عالی امنیت ملی است. اینترنت پرو برای کسب‌و‌کارها است. کشور در جنگ است و ویژگی جنگ امنیت مردم است
+
+📝 خانم فاطمه مهاجرانی دروغ می‌گوید. در هفته‌های اخیر، پیامک فعال‌سازی اینترنت پرو برای بسیاری از شهروندانی ارسال شده که هیچ کسب‌وکار خاصی ندارند. همزمان، گزارش‌های متعددی از شکل‌گیری بازار دلالی این نوع دسترسی منتشر شده؛ افرادی که در ازای دریافت مبالغی تا حدود ۶ میلیون تومان، اینترنت پرو را برای شهروندان فعال می‌کنند.
+
+اظهارات امروز سخنگوی دولت مسعود پزشکیان، بار دیگر نشان می‌دهد که این دولت نه‌تنها مخالف فیلترینگ و محدودسازی اینترنت نیست، بلکه از سیاست ارائه اینترنت طبقاتی و دسترسی تبعیض‌آمیز به اینترنت آزاد نیز حمایت می‌کند.
+alirezaer
+
+❗️ کار از پرو گذشته، علنا سیم‌کارت سفید می‌فروشن.
+
+📝 سلام، در مورد اینترنت پرو، من بدون اینکه درخواستی بدم یا کاری بکنم تایید شدم.
+
+@mamlekate
+</div>
+
+## mamlekate — post 103510
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📝 بحران تنگه هرمز و بازار باقلوا؛ آیا پسته ایرانی جای خود را به رقبای ترک و سوری می‌دهد؟
+
+برآوردهای اقتصادی نشان می‌دهد که قیمت باقلوا به دلیل افزایش قیمت پسته ایرانی، حدود ۱۰ درصد افزایش یافته است.
+
+@mamlekate
+</div>
+
+## mamlekate — post 103509
+
+<div align="center"><video src="telegram/content/mamlekate_103509.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/mamlekate_103509.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رئیس‌جمهور ایالات متحده درباره ایران:
+
+آن‌ها افراد بسیار بی‌اعتباری هستند؛ [منظورم] رهبری‌شان است. آن‌ها مدام نظرشان را عوض می‌کنند. من در تجارت بارها با این موضوع روبه‌رو شده‌ام. شما با این افراد معامله می‌کنید و بعد آن‌ها برایتان یک سند می‌فرستند که باید در ۲۰ دقیقه به دست شما برسد، اما پنج روز طول می‌کشد تا برسد.
+
+آن‌ها هرگز سلاح هسته‌ای نخواهند داشت.
+
+USABehFarsi
+@mamlekate
+</div>
 
 ## mamlekate — post 103508
 

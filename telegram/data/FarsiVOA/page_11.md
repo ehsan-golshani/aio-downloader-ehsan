@@ -1,8 +1,40 @@
 # آرشیو کانال FarsiVOA - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/02/26 08:43
+📅 آخرین بروزرسانی: 1405/02/26 11:08
 
 ---
+
+## FarsiVOA — post 217656
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اروپا در دو مسیر؛ از اعزام ناوهای ایتالیا و بریتانیا به تنگه هرمز تا ابتکار دیپلماتیک فرانسه
+</div>
+
+## FarsiVOA — post 217655
+
+<div align="center"><video src="telegram/content/FarsiVOA_217655.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217655.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علم صالح در برنامه تفسیر خبر: جنگ باعث شد جمهوری اسلامی نفت خود را با قیمت ۱۰۳ دلار بفروشد
+</div>
+
+## FarsiVOA — post 217654
+
+<div align="center"><video src="telegram/content/FarsiVOA_217654.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217654.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مهدی عربشاهی در برنامه تفسیر خبر: علی خامنه‌ای با کلمه توسعه مشکل داشت
+</div>
+
+## FarsiVOA — post 217653
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اعدام احسان افراشته، زندانی سیاسی، توسط جمهوری اسلامی؛ گفت‌وگو با حسین احمدی‌نیاز
+</div>
 
 ## FarsiVOA — post 217652
 

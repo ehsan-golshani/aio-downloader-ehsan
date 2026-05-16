@@ -1,8 +1,30 @@
 # آرشیو کانال IranianMinds - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/26 08:46
+📅 آخرین بروزرسانی: 1405/02/26 11:11
 
 ---
+
+## IranianMinds — post 20119
+
+<div align="center"><img src="telegram/content/IranianMinds_20119.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایلان ماسک به همراه پسرش در نشست پکن شرکت کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20118
+
+<div align="center"><video src="telegram/content/IranianMinds_20118.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20118.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 صحبت‌های امروز اسکات بسنت، وزیر خزانه‌داری آمریکا راجب ایران و جمهوری‌اسلامی: تا اینجای امسال، رژیم ایران ۳۰ تا ۴۰ هزار نفر رو اعدام کرده (کُشته) و خیلی‌هاشون هم معترضای مسالمت‌آمیز بودن. خب با همچین رژیمی چطور باید برخورد کرد؟ از نظر اقتصادی خفه‌ش می‌کنیم و فکر می‌کنیم کار به جایی رسیده که سربازاشون حقوق نمی‌گیرن و نمی‌تونن از خارج هم سلاح و مهماتشون رو تأمین کنن. برای همین فکر می‌کنم دیگه دارن به آخر خط می‌رسن.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20117
 
@@ -246,27 +268,5 @@ re24
 تمام جهان در حال تماشای دیدار ماست
 
 @IranianMindsi
-</div>
-
-## IranianMinds — post 20097
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مارکو روبیو:
-
-واشنگتن به پکن روشن کرد که هرگونه حمایت از ایران به روابط دوجانبه آسیب می رساند
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20096
-
-<div align="center"><video src="telegram/content/IranianMinds_20096.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20096.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 لحظه ی دیدار ترامپ و رئیس جمهور‌ چین
-
-@IranianMinds
 </div>
 

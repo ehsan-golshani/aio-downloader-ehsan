@@ -1,8 +1,42 @@
 # آرشیو کانال mwarmonitor - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 08:33
+📅 آخرین بروزرسانی: 1405/02/26 10:58
 
 ---
+
+## mwarmonitor — post 9106
+
+<div align="center"><img src="telegram/content/mwarmonitor_9106.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️🇺🇸نیروی هوایی ایالات متحده|جابجایی تانکرها ادامه دارد
+
+✈️همان‌طور که در بیشتر روزهای آتش‌بس دیده شده، ناوگان تانکرهای هوایی ایالات متحده (با بیش از ۲۲۰ فروند هواپیما) در سراسر اروپا و حوزه سنتکام همچنان در حال جابجایی است؛ به‌طوری‌که هواپیماهایی که فشار کاری بیشتری داشته‌اند، به‌تدریج خارج و با نمونه‌های دیگر جایگزین می‌شوند. تا این لحظه امروز:
+
+KC-135R «RCH736» 57-1486 AE041D (از EGUN به LLBG)
+KC-135R «؟» 61-0300 AE0689 (از LLBG به EDDS)
+KC-135R «RCH314» 62-3521 AE0485 (از LFOA به EDDS و سپس نامشخص)
+KC-135T «RCH559» 59-1471 AE07A5 (از CONUS به EDDS)
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9105
+
+<div align="center"><video src="telegram/content/mwarmonitor_9105.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/mwarmonitor_9105.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️«اکنون: رئیس‌جمهور ترامپ با هواپیمای ایرفورس وان چین را ترک کرد و به نشست دو روزه خود با رئیس‌جمهور چین، شی جین‌پینگ، پایان داد.
+
+🔹پیش از پرواز بازگشت به ایالات متحده، مراسمی کوتاه در باند فرودگاه برگزار شد.
+
+🇺🇸🇨🇳ترامپ پس از این دیدارها از «توافق‌های تجاری فوق‌العاده» سخن گفت و اعلام کرد که دو رهبر درباره ایران هم‌نظر هستند.»
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9104
 
@@ -195,36 +229,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴روز هشتم است که ایران هیچ نفت خامی در جزیره خارگ بارگیری نکرده است. ذخایر نفت در خشکی اکنون تقریباً به ظرفیت کامل رسیده‌اند. به‌احتمال زیاد یکی از خطوط لوله آسیب دیده است. ایران در حال تلاش برای یافتن نوعی راه‌حل جایگزین است. هیچ نفتکش VLCC اجازه ورود پیدا نکرده است به‌دلیل محاصره آمریکا، بنابراین ایران در گزینه‌های خود محدود شده است.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9085
-
-<div align="center"><img src="telegram/content/mwarmonitor_9085.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️🇺🇸نیروی هوایی آمریکا (USAF) 🚨 وضعیت اضطراری عمومی
-
-⏱ساعت ۱۴:۳۹ – پرواز HITMAN 02 یک فروند Lockheed Martin F-35 Lightning II با علامت «LN» در حال بازگشت به پایگاه RAF Lakenheath است و به‌دلیل مشکل در سیستم فشار کابین (pressurisation) وضعیت اضطراری اعلام کرده است.
-
-✈️این هواپیما کد اضطراری 7700 را روی ترانسپوندر (squawk 7700) ارسال کرده که به معنی اعلام وضعیت اضطراری عمومی در پرواز است.
-
-🔸هواپیما با شماره بدنه 13-5067 به‌عنوان یک F-35A شناسایی شده است.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9084
-
-<div align="center"><video src="telegram/content/mwarmonitor_9084.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/mwarmonitor_9084.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸سرمایه‌گذاری ۱.۵ تریلیون دلاری، یک پیش‌پرداخت نسلی برای دفاع ملی آمریکا است.
-
-🔸این سرمایه‌گذاری تضمین می‌کند که ایالات متحده برای نسل‌های آینده، برتری قاطع نظامی و توان بازدارندگی بی‌رقیب خود را در برابر هر دشمنی حفظ کند.
 
 @mwarmonitor
 </div>

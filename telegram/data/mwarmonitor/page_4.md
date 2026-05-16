@@ -1,8 +1,38 @@
 # آرشیو کانال mwarmonitor - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/26 08:33
+📅 آخرین بروزرسانی: 1405/02/26 10:58
 
 ---
+
+## mwarmonitor — post 9085
+
+<div align="center"><img src="telegram/content/mwarmonitor_9085.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️🇺🇸نیروی هوایی آمریکا (USAF) 🚨 وضعیت اضطراری عمومی
+
+⏱ساعت ۱۴:۳۹ – پرواز HITMAN 02 یک فروند Lockheed Martin F-35 Lightning II با علامت «LN» در حال بازگشت به پایگاه RAF Lakenheath است و به‌دلیل مشکل در سیستم فشار کابین (pressurisation) وضعیت اضطراری اعلام کرده است.
+
+✈️این هواپیما کد اضطراری 7700 را روی ترانسپوندر (squawk 7700) ارسال کرده که به معنی اعلام وضعیت اضطراری عمومی در پرواز است.
+
+🔸هواپیما با شماره بدنه 13-5067 به‌عنوان یک F-35A شناسایی شده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9084
+
+<div align="center"><video src="telegram/content/mwarmonitor_9084.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/mwarmonitor_9084.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸سرمایه‌گذاری ۱.۵ تریلیون دلاری، یک پیش‌پرداخت نسلی برای دفاع ملی آمریکا است.
+
+🔸این سرمایه‌گذاری تضمین می‌کند که ایالات متحده برای نسل‌های آینده، برتری قاطع نظامی و توان بازدارندگی بی‌رقیب خود را در برابر هر دشمنی حفظ کند.
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9083
 
@@ -235,24 +265,6 @@
 
 🔸ما در برابر تجاوز ولادیمیر پوتین در کنار اوکراین ایستاده‌ایم.
 افکار و همدردی ما با خانواده‌های اوکراینی است.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟥شرکتUKMTO گزارشی از یک حادثه در ۳۸ مایل دریایی (38NM) شمال شرقی فجیره، امارات متحده عربی دریافت کرده است.
-🔸افسر امنیتی شرکت (CSO) گزارش داده است که کشتی در زمان لنگر انداختن توسط افراد غیرمجاز تصرف شده و اکنون به سمت آب‌های سرزمینی ایران در حرکت است.
-
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پس از دیدار دونالد ترامپ و شی جین‌پینگ، یک مقام کاخ سفید اعلام کرد که چین و ایالات متحده آمریکا توافق دارند که ایران هرگز نباید به سلاح هسته‌ای دست یابد و تنگه هرمز باید باز بماند. i24 news
 
 @mwarmonitor
 </div>

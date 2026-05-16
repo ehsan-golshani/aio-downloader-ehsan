@@ -1,8 +1,38 @@
 # آرشیو کانال Shin_Persian - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/26 01:23
+📅 آخرین بروزرسانی: 1405/02/26 11:05
 
 ---
+
+## Shin_Persian — post 5982
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Tue, 12 May 2026 21:16:15 UTC
+
+And another aftershock rn
+
+فارسی
+
+و یک پس‌لرزه دیگر همین الان
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5981
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Tue, 12 May 2026 21:06:37 UTC
+
+And we are back at “It’s HAARP” dumbfucks.
+
+فارسی
+
+و دوباره برگشتیم سر احمق‌هایی که می‌گویند «کار هارپ (HAARP) است».
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 5980
 

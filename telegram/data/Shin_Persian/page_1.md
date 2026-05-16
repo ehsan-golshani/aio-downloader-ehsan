@@ -1,8 +1,32 @@
 # آرشیو کانال Shin_Persian - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/26 01:23
+📅 آخرین بروزرسانی: 1405/02/26 11:05
 
 ---
+
+## Shin_Persian — post 6026
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet: سكاي نيوز عربية-عاجل ✓ @SkyNewsArabia_B Sat, 16 May 2026 06:21:13 UTC أ ف ب: دوي انفجارات في بغداد ↩️ Quoted tweet — see the post below for the reply. English AFP: Sounds of explosions in Baghdad 𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+↩️ Quoted tweet:
+سكاي نيوز عربية-عاجل ✓ @SkyNewsArabia_B
+Sat, 16 May 2026 06:21:13 UTC
+
+أ ف ب: دوي انفجارات في بغداد
+
+↩️ Quoted tweet — see the post below for the reply.
+
+English
+
+AFP: Sounds of explosions in Baghdad
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6023
 
@@ -345,38 +369,6 @@ Fri, 15 May 2026 07:37:19 UTC
 فارسی
 
 🌍 انزوای دیجیتال #ایران اکنون در حالی وارد هفتاد و هفتمین روز خود می‌شود که خاموشی اینترنت از ۱۸۲۴ ساعت فراتر رفته است. این اقدام ریسک نوظهوری را برای سلامت روان مردمی که تا حد زیادی از پلتفرم‌های آنلاین، ارتباطات و تعامل عادی با دنیای خارج محروم شده‌اند، ایجاد می‌کند.
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 6005
-
-<div align="center"><img src="telegram/content/Shin_Persian_6005.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-U.S. Central Command ✓ @CENTCOM
-Fri, 15 May 2026 00:38:22 UTC
-
-A U.S. Air Force F-16 takes off from a base in the Middle East for a night flight. Air Force fighter aircraft regularly patrol the skies over the Middle East in support of regional security.
-
-فارسی
-
-یک فروند اف-۱۶ نیروی هوایی ایالات متحده (USAF) برای یک پرواز شبانه از پایگاهی در خاورمیانه به هوا برمی‌خیزد. جنگنده‌های نیروی هوایی به طور منظم در حمایت از امنیت منطقه‌ای، در آسمان‌های خاورمیانه گشت‌زنی می‌کنند.
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 6003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Shin ✓ @hey_itsmyturn
-Thu, 14 May 2026 23:41:52 UTC
-
-Jet activity over Mosul, #Iraq 🇮🇶
-
-فارسی
-
-فعالیت جنگنده‌ها برفراز موصل، #Iraq 🇮🇶
 
 𝕏 · @shin_persian
 </div>

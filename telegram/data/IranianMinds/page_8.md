@@ -1,8 +1,30 @@
 # آرشیو کانال IranianMinds - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/26 08:46
+📅 آخرین بروزرسانی: 1405/02/26 11:11
 
 ---
+
+## IranianMinds — post 20075
+
+<div align="center"><video src="telegram/content/IranianMinds_20075.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20075.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 حملات اسرائیل به جنوب لبنان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پولیتیکو به نقل از یک مقام ارشد کاخ سفید:
+
+چین پیش از دیدار ترامپ به ایران فشار آورده تا به توافق برسد با آمریکا.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20072
 
