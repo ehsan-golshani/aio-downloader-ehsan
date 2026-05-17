@@ -1,8 +1,284 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 15:17
+📅 آخرین بروزرسانی: 1405/02/27 17:31
 
 ---
+
+## tasiyanc — post 4951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن؟
+</div>
+
+## tasiyanc — post 4950
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای اتصال پایدار زمان بدید همه کانفیگا تست شده
+</div>
+
+## tasiyanc — post 4949
+
+<div align="center"><a href="telegram/content/Nutella.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Nutella.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 🦦
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 4948
+
+<div align="center"><a href="telegram/content/YT @Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 YT @Tasiyanc.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 🦦
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 4947
+
+<div align="center"><a href="telegram/content/Melanya @Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Melanya @Tasiyanc.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 🦦
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 4946
+
+<div align="center"><a href="telegram/content/Tufan.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Tufan.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 🦦
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 4945
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 6️⃣👑
+
+184.24.77.16
+184.24.77.36
+184.24.77.21
+184.24.77.11
+185.200.232.49
+184.25.85.224
+23.1.241.123
+23.3.90.43
+185.200.232.50
+185.200.232.42
+185.200.232.41
+23.48.23.186
+23.48.23.133
+23.48.23.195
+23.48.23.178
+184.24.77.29
+2.22.21.152
+95.101.23.82
+23.215.0.164
+23.197.161.35
+184.28.230.87
+184.24.77.42
+184.24.77.32
+184.24.77.5
+184.24.77.7
+23.220.128.221
+96.17.207.142
+23.50.131.18
+23.36.162.209
+23.219.3.212
+23.223.245.150
+96.16.122.59
+23.2.13.138
+23.2.13.144
+96.17.207.135
+23.220.113.51
+96.17.72.41
+23.203.185.105
+84.26.13.91
+23.54.210.170
+23.44.201.206
+23.220.163.205
+23.209.46.33
+23.10.34.11
+23.39.185.35
+23.32.152.106
+23.218.232.181
+23.206.188.212
+2.21.2.89
+23.208.222.120
+23.48.203.248
+23.44.201.136
+23.44.201.151
+23.44.201.149
+2.21.2.58
+23.3.90.48
+23.44.201.41
+2.19.204.184
+23.218.232.188
+23.44.201.12
+23.212.253.227
+23.201.31.155
+23.220.163.203
+23.44.201.185
+23.52.116.66
+23.44.201.17
+23.62.54.24
+23.218.239.132
+23.39.149.69
+23.52.40.147
+23.58.95.144
+2.16.244.58
+23.212.253.137
+2.17.106.176
+23.62.54.137
+2.17.106.5
+23.203.134.233
+23.212.253.232
+23.206.188.197
+23.44.201.170
+23.54.127.39
+23.214.170.83
+23.52.40.89
+23.55.176.73
+23.202.229.140
+23.215.56.61
+2.17.106.166
+23.222.126.108
+
+❤️@Tasiyanc 😐
+</div>
+
+## tasiyanc — post 4944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6️⃣ آموزش اتصال MahsaNG با روش CDN :
+
+گام اول آخرین نسخه برنامه MahsaNG رو دانلود کنید.
+- گام دوم وارد برنامه شوید و سمت راست یا چپ برنامه سه تا خط رو کلیک کنید.
+- گام سوم Psiphon Settings بزنید
+- گام چهارم داخل پروتکل گزینه cdn fronting بزنید.
+- گام پنجم socks port روی 20808 بزارید و http port روی 20809
+- گام شیشم داخل کادر CDN Edge IPs آی پی های که برای شیر و خورشید قراز میدیم رو وارد کنید.
+- گام آخر Save Psiphone Settings رو بزنید و متصل شوید
+
+@Tasiyanc 😐
+</div>
+
+## tasiyanc — post 4941
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 2.22.250.149 23.58.193.140 23.48.23.151 2.19.126.81 23.202.138.125 23.43.237.239 104.112.146.82 23.2.13.136 72.246.28.37 2.18.63.49 2.16.53.11 2.16.53.50 2.16.19.136 2.19.205.58 2.19.205.59 2.19.205.64 2.19.205.65 2.19.205.82 2.19.205.83…
+</div>
+
+## tasiyanc — post 4940
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs for 👑 6️⃣
+
+
+92.122.166.141
+92.122.166.197
+2.23.169.105
+184.24.77.42
+2.23.168.144
+65.109.34.234
+151.101.192.223
+142.54.178.211
+23.2.13.227
+104.103.90.156
+2.23.168.96
+2.21.239.21
+2.23.168.47
+2.23.170.80
+104.117.76.40
+104.94.100.73
+184.51.252.36
+2.23.168.213
+2.23.168.174
+23.219.1.4
+23.40.63.69
+
+❤️ @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 4939
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شیرو خورشید روی اپراتور سامانتل خوب وصله 🛜😐
+</div>
+
+## tasiyanc — post 4938
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs for 👑 6️⃣
+
+
+
+2.21.2.89
+23.208.222.120
+23.48.203.248
+23.44.201.136
+23.44.201.151
+23.44.201.149
+2.21.2.58
+23.3.90.48
+23.44.201.41
+2.19.204.184
+23.218.232.188
+23.44.201.12
+23.212.253.227
+23.201.31.155
+23.220.163.203
+23.44.201.185
+23.52.116.66
+23.44.201.17
+23.62.54.24
+23.218.239.132
+23.39.149.69
+23.52.40.147
+23.58.95.144
+2.16.244.58
+23.212.253.137
+2.17.106.176
+23.62.54.137
+2.17.106.5
+23.203.134.233
+23.212.253.232
+23.206.188.197
+23.44.201.170
+23.54.127.39
+23.214.170.83
+23.52.40.89
+23.55.176.73
+23.202.229.140
+23.215.56.61
+2.17.106.166
+23.222.126.108
+184.25.85.224
+23.1.241.123
+23.3.90.43
+
+❤️ @Tasiyanc
+</div>
 
 ## tasiyanc — post 4937
 
@@ -203,8 +479,6 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 
 ## tasiyanc — post 4933
 
-<div align="center"><a href="telegram/content/Slipnet 🚀 @Tasiyanc.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Slipnet 🚀 @Tasiyanc.txt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🕊 Slipnet VayDNS 🕊 4sv
 
@@ -279,8 +553,6 @@ IPs 👑
 
 ## tasiyanc — post 4928
 
-<div align="center"><a href="telegram/content/🫶 @Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🫶 @Tasiyanc.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔒Password: Navid
 
@@ -289,100 +561,5 @@ IPs 👑
 برای اتصال پایدار صبور باشید 🦦
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 4927
-
-<div align="center"><a href="telegram/content/chocolate.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 chocolate.npvt</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 🦦
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 4926
-
-<div align="center"><a href="telegram/content/اینم وردار😂.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 اینم وردار😂.npvt</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 🦦
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 4925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فعلا امروز هرچی گذاشتی دیکد از من بود 😂😂😂
-</div>
-
-## tasiyanc — post 4924
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رو کانفیگا ری اکشن بزنین
-</div>
-
-## tasiyanc — post 4923
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من هنوز باورم نشده وصلم دمت گرم😂🤌🏼
-</div>
-
-## tasiyanc — post 4922
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بابا بنازم ت این اوضا ک همه کانفینگ میفروشن ت رایگان میزاری دم مرام و معرفتت گرم
-</div>
-
-## tasiyanc — post 4921
-
-<div align="center"><a href="telegram/content/🧩Puzzle 2s.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🧩Puzzle 2s.npvt</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 🦦
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 4920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دمتون گرم همینک وصلم کردین یه دنیا ممنون
-</div>
-
-## tasiyanc — post 4919
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از کیه به اون نپستر War وصلم
-دمتگرم
-</div>
-
-## tasiyanc — post 4918
-
-<div align="center"><img src="telegram/content/tasiyanc_4918.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مررررررسی
-</div>
-
-## tasiyanc — post 4917
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدا خیرتونو بده انشاالله🫀
-</div>
-
-## tasiyanc — post 4916
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من بعد از چند ماه بالاخره تونستم درست حسابی وارد اینستا بشم
 </div>
 
