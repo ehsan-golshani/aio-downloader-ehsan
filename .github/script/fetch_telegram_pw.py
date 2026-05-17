@@ -11,7 +11,6 @@ import asyncio
 import argparse
 import base64
 import json
-import mimetypes
 import re
 import sys
 import time
@@ -29,7 +28,6 @@ REPO_ROOT = SCRIPT_DIR.parent.parent
 CHANNELS_FILE = REPO_ROOT / "telegram" / "channels.json"
 STATE_FILE = REPO_ROOT / "telegram" / "last_ids.json"
 DATA_DIR = REPO_ROOT / "telegram" / "data"
-CONTENT_DIR = REPO_ROOT / "telegram" / "content"  # قدیمی - برای سازگاری موقت
 
 IRAN_TZ = ZoneInfo("Asia/Tehran")
 HEADERS = {"User-Agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36"}
@@ -167,59 +165,10 @@ def fix_filename_extension(filename, content_type):
         return filename + correct_ext
     return filename
 
-def convert_to_base64(file_path):
-    """تبدیل فایل به Base64 و بازگشت محتوا"""
-    try:
-        with open(file_path, "rb") as f:
-            file_data = f.read()
-            base64_data = base64.b64encode(file_data).decode('utf-8')
-            return base64_data
-    except Exception as e:
-        print(f"    ⚠️ Base64 conversion failed: {e}")
-        return None
-
-def save_base64_file(base64_dir, filename, base64_data, original_filename=None):
-    """ذخیره فایل Base64 به صورت .txt با اطلاعات کامل"""
-    base64_filename = filename
-    if not base64_filename.endswith('.txt'):
-        base64_filename = filename + '.txt'
-    file_path = base64_dir / base64_filename
-    
-    # ایجاد محتوای HTML ساده برای دانلود
-    html_content = f"""<!DOCTYPE html>
-<html>
-<head><meta charset="UTF-8"><title>{filename}</title></head>
-<body>
-<pre style="word-wrap:break-word; white-space:pre-wrap; font-family:monospace; font-size:12px;">
-این فایل به صورت Base64 ذخیره شده است. برای دانلود فایل اصلی، کد زیر را کپی کرده و در یک دیکودر Base64 قرار دهید.
-
-نام فایل اصلی: {original_filename or filename}
-تاریخ ایجاد: {jdatetime.datetime.now(IRAN_TZ).strftime('%Y/%m/%d %H:%M:%S')}
-
-========== کد Base64 ==========
-
-{base64_data}
-
-========== پایان کد ==========
-
-برای تبدیل به فایل اصلی، می‌توانید از ابزارهای آنلاین دیکود Base64 استفاده کنید.
-</pre>
-</body>
-</html>"""
-    
-    file_path.write_text(html_content, encoding='utf-8')
-    print(f"    📁 Saved Base64 file: {base64_filename}")
-    return f"file-base64/{base64_filename}"
-
-def download_and_save_file(url, channel_name, post_id, media_type, original_filename, pages_dir):
+def download_and_save_file(url, channel_name, post_id, media_type, original_filename):
     """دانلود فایل و ذخیره در پوشه مناسب بر اساس حجم و نوع"""
     if not url:
         return None
-    
-    # تعیین پوشه مقصد
-    channel_dir = pages_dir.parent
-    media_dir = get_media_dir(channel_dir)
-    base64_dir = get_base64_dir(channel_dir)
     
     url = url.strip()
     if url.startswith('/'):
@@ -227,7 +176,7 @@ def download_and_save_file(url, channel_name, post_id, media_type, original_file
     elif url.startswith('//'):
         url = f"https:{url}"
     
-    # تعیین نام فایل
+    # تعیین نام فایل پایه
     if original_filename:
         base_filename = original_filename
     else:
@@ -250,42 +199,40 @@ def download_and_save_file(url, channel_name, post_id, media_type, original_file
             else:
                 final_filename += '.dat'
         
-        # عکس‌ها و ویدیوها همیشه به media میروند
+        # تعیین پوشه مقصد بر اساس نوع و حجم
         is_media = media_type in ['photo', 'video'] or content_type.startswith('image/') or content_type.startswith('video/')
         
-        # تصمیم‌گیری برای پوشه مقصد
         if is_media:
-            target_dir = media_dir
+            target_dir = get_media_dir(get_channel_dir(channel_name))
             relative_path = f"media/{final_filename}"
             print(f"    📁 Media file -> media/ ({content_length} bytes)")
         elif content_length < MAX_SIZE_FOR_BASE64:
-            # فایل کوچک: هم فایل اصلی و هم Base64 ذخیره میشه
-            target_dir = base64_dir
+            target_dir = get_base64_dir(get_channel_dir(channel_name))
             relative_path = f"file-base64/{final_filename}"
-            
-            # ذخیره فایل اصلی در base64_dir
-            local_path = target_dir / final_filename
-            local_path.write_bytes(resp.content)
-            
-            # تبدیل به Base64 و ذخیره فایل جدا
-            base64_data = base64.b64encode(resp.content).decode('utf-8')
-            save_base64_file(base64_dir, final_filename, base64_data, final_filename)
-            
-            print(f"    📁 Small file -> file-base64/ ({content_length} bytes) + Base64")
-            return relative_path
+            print(f"    📁 Small file -> file-base64/ ({content_length} bytes)")
         else:
-            target_dir = media_dir
+            target_dir = get_media_dir(get_channel_dir(channel_name))
             relative_path = f"media/{final_filename}"
             print(f"    📁 Large file -> media/ ({content_length} bytes)")
         
         # ذخیره فایل
+        target_dir.mkdir(parents=True, exist_ok=True)
         local_path = target_dir / final_filename
+        
         if local_path.exists():
             print(f"    📁 Already exists: {final_filename}")
             return relative_path
         
         local_path.write_bytes(resp.content)
         print(f"    ✅ Downloaded: {final_filename}")
+        
+        # برای فایل‌های کوچک، نسخه Base64 هم ذخیره کن
+        if not is_media and content_length < MAX_SIZE_FOR_BASE64:
+            base64_data = base64.b64encode(resp.content).decode('utf-8')
+            base64_file = target_dir / (final_filename + ".base64.txt")
+            base64_file.write_text(base64_data, encoding='utf-8')
+            print(f"    📁 Base64 saved: {final_filename}.base64.txt")
+        
         return relative_path
         
     except Exception as e:
@@ -379,38 +326,52 @@ async def scrape_messages(page, channel_name, target_count, last_id):
     return messages
 
 def save_page(pages_dir, page_num, messages, channel_name):
+    """ذخیره صفحه Markdown در پوشه pages"""
+    pages_dir.mkdir(parents=True, exist_ok=True)
     file_path = pages_dir / f"page_{page_num}.md"
+    
     now = jdatetime.datetime.now(IRAN_TZ).strftime('%Y/%m/%d %H:%M')
-    content = f"# آرشیو کانال {channel_name} - صفحه {page_num}\n\n📅 آخرین بروزرسانی: {now}\n\n---\n\n"
+    content = f"# آرشیو کانال {channel_name} - صفحه {page_num}\n\n"
+    content += f"📅 آخرین بروزرسانی: {now}\n\n---\n\n"
+    
     for msg in messages:
         content += f"## {channel_name} — post {msg['id']}\n\n"
         for media in msg.get('mediaItems', []):
-            if media['type'] == 'photo' and media.get('url'):
+            if media.get('type') == 'photo' and media.get('url'):
                 content += f'<div align="center"><img src="{media["url"]}" alt="Photo"></div>\n\n'
-            elif media['type'] == 'video' and media.get('url'):
+            elif media.get('type') == 'video' and media.get('url'):
                 content += f'<div align="center"><video src="{media["url"]}" controls style="max-width:100%; border-radius:12px;"></video></div>\n\n'
-                content += f'<div align="center"><a href="{media["url"]}" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>\n\n'
-            elif media['type'] == 'document' and media.get('url'):
+                content += f'<div align="center"><a href="{media["url"]}" target="_blank" style="color:#2ea4d9;">🎬 Download video</a></div>\n\n'
+            elif media.get('type') == 'document' and media.get('url'):
                 fname = media.get('filename', 'فایل')
                 content += f'<div align="center"><a href="{media["url"]}" target="_blank" class="file-link" style="color:#2ea4d9;">📎 {fname}</a></div>\n\n'
         if msg.get('text'):
             content += f'<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">\n{msg["text"]}\n</div>\n\n'
+    
     file_path.write_text(content, encoding='utf-8')
     print(f"    💾 Saved page {page_num} with {len(messages)} messages")
     return file_path
 
 async def process_channel(page, channel_name, state):
+    print(f"\n{'='*50}")
+    print(f"📡 Processing channel: {channel_name}")
+    print(f"{'='*50}")
+    
     channel_dir = get_channel_dir(channel_name)
     pages_dir = get_pages_dir(channel_dir)
+    
+    print(f"   📁 Channel dir: {channel_dir}")
+    print(f"   📁 Pages dir: {pages_dir}")
+    
     existing_ids = get_existing_ids(pages_dir)
     last_id = state.get(channel_name, 0)
     is_new = len(existing_ids) == 0
     
     if is_new:
-        print(f"\n📡 {channel_name}: New channel - fetching first {MESSAGES_PER_PAGE} messages")
+        print(f"   🆕 New channel - fetching first {MESSAGES_PER_PAGE} messages")
         messages = await scrape_messages(page, channel_name, MESSAGES_PER_PAGE, 0)
     else:
-        print(f"\n📡 {channel_name}: Checking for new messages after ID {last_id}")
+        print(f"   🔄 Checking for new messages after ID {last_id}")
         messages = await scrape_messages(page, channel_name, 0, last_id)
     
     if not messages:
@@ -423,14 +384,18 @@ async def process_channel(page, channel_name, state):
         return 0
     
     # دانلود و ذخیره مدیاها
+    print(f"   📥 Downloading media for {len(new_messages)} messages...")
     for msg in new_messages:
         for media in msg.get('mediaItems', []):
-            if media['type'] == 'photo':
-                media['url'] = download_and_save_file(media['url'], channel_name, msg['id'], 'photo', None, pages_dir)
-            elif media['type'] == 'video':
-                media['url'] = download_and_save_file(media['url'], channel_name, msg['id'], 'video', None, pages_dir)
-            elif media['type'] == 'document':
-                media['url'] = download_and_save_file(media['url'], channel_name, msg['id'], 'document', media.get('filename'), pages_dir)
+            saved_path = download_and_save_file(
+                media.get('url'), 
+                channel_name, 
+                msg['id'], 
+                media.get('type'), 
+                media.get('filename')
+            )
+            if saved_path:
+                media['url'] = saved_path
     
     # جمع‌آوری پیام‌های موجود
     all_messages = []
@@ -468,18 +433,27 @@ async def process_channel(page, channel_name, state):
     for page_num, page_msgs in pages.items():
         save_page(pages_dir, page_num, page_msgs, channel_name)
     
+    # حذف صفحات اضافی
     existing_pages = get_page_files(pages_dir)
     for page_num, file_path in existing_pages:
         if page_num not in pages:
             file_path.unlink()
+            print(f"   🗑️ Deleted old page: page_{page_num}.md")
     
     new_last_id = max(m['id'] for m in new_messages)
     state[channel_name] = max(last_id, new_last_id)
     print(f"   ✅ Added {len(new_messages)} messages, reorganized into {len(pages)} pages")
+    print(f"   📌 Last ID: {state[channel_name]}")
     return len(new_messages)
 
 async def main():
+    print("\n" + "=" * 50)
+    print("🚀 Starting Telegram Archiver")
+    print("=" * 50)
+    
     channels = load_channels()
+    print(f"📋 Channels in config: {channels}")
+    
     if TARGET_CHANNEL:
         clean = TARGET_CHANNEL.lstrip('@')
         if clean in channels:
@@ -495,12 +469,16 @@ async def main():
     async with async_playwright() as p:
         browser = await p.chromium.launch(headless=True)
         page = await browser.new_page()
+        
         for ch in channels:
             total += await process_channel(page, ch, state)
+        
         await browser.close()
     
     save_state(state)
-    print(f"\n✅ Done! Total new messages added: {total}")
+    print(f"\n{'='*50}")
+    print(f"✅ Done! Total new messages added: {total}")
+    print(f"{'='*50}")
 
 if __name__ == "__main__":
     asyncio.run(main())
