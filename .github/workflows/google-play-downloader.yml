@@ -25,9 +25,14 @@ on:
         type: boolean
         default: true
 
+permissions:
+  contents: write
+
 jobs:
   actions:
     runs-on: ubuntu-latest
+    permissions:
+      contents: write
 
     steps:
       - uses: actions/checkout@v4
