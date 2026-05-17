@@ -4,7 +4,7 @@ Telegram Channel Archiver - نسخه نهایی با ساختار جدید
 - هر کانال در پوشه مجزا
 - pages/ برای فایل‌های Markdown
 - media/ برای عکس، ویدیو، فایل‌های حجیم (>1MB)
-- file-base64/ برای فایل‌های کوچک (<1MB) با تبدیل Base64
+- file-base64/ برای فایل‌های کوچک (<1MB) با فرمت HTML (برای دسترسی از طریق API)
 """
 
 import asyncio
@@ -83,7 +83,7 @@ def get_media_dir(channel_dir):
     return media_dir
 
 def get_base64_dir(channel_dir):
-    """پوشه فایل‌های Base64 (کانفیگ‌ها و فایل‌های کوچک)"""
+    """پوشه فایل‌های Base64 (کانفیگ‌ها و فایل‌های کوچک) - با فرمت HTML"""
     base64_dir = channel_dir / "file-base64"
     base64_dir.mkdir(parents=True, exist_ok=True)
     return base64_dir
@@ -165,6 +165,155 @@ def fix_filename_extension(filename, content_type):
         return filename + correct_ext
     return filename
 
+def save_base64_as_html(base64_dir, original_filename, base64_data):
+    """ذخیره فایل Base64 به صورت HTML (قابل دسترسی از طریق API)"""
+    base64_dir.mkdir(parents=True, exist_ok=True)
+    
+    # نام فایل HTML (با همان نام اصلی + .html)
+    html_filename = original_filename + '.html'
+    file_path = base64_dir / html_filename
+    
+    # ایجاد محتوای HTML با دکمه دانلود و دیکود خودکار
+    html_content = f'''<!DOCTYPE html>
+<html dir="rtl">
+<head>
+    <meta charset="UTF-8">
+    <title>دانلود فایل {original_filename}</title>
+    <style>
+        body {{
+            font-family: -apple-system, BlinkMacSystemFont, 'Segoe UI', Roboto, sans-serif;
+            background: #0a0a0a;
+            color: #ffffff;
+            display: flex;
+            justify-content: center;
+            align-items: center;
+            min-height: 100vh;
+            margin: 0;
+            padding: 20px;
+        }}
+        .container {{
+            max-width: 600px;
+            width: 100%;
+            background: #1f1f1f;
+            border-radius: 16px;
+            padding: 24px;
+            box-shadow: 0 4px 20px rgba(0,0,0,0.3);
+        }}
+        h2 {{
+            color: #2aabee;
+            margin-bottom: 16px;
+            text-align: center;
+        }}
+        .info {{
+            background: #2b2b2b;
+            border-radius: 12px;
+            padding: 12px;
+            margin-bottom: 20px;
+            font-size: 13px;
+            word-break: break-all;
+        }}
+        button {{
+            width: 100%;
+            padding: 14px;
+            background: linear-gradient(135deg, #2aabee, #7c3aed);
+            border: none;
+            border-radius: 12px;
+            color: white;
+            font-size: 16px;
+            font-weight: 600;
+            cursor: pointer;
+            transition: transform 0.2s;
+        }}
+        button:active {{
+            transform: scale(0.98);
+        }}
+        .status {{
+            margin-top: 16px;
+            padding: 10px;
+            border-radius: 8px;
+            text-align: center;
+            font-size: 13px;
+            display: none;
+        }}
+        .success {{ background: #10b981; color: white; display: block; }}
+        .error {{ background: #ef4444; color: white; display: block; }}
+        .loading {{ background: #f59e0b; color: white; display: block; }}
+        .note {{
+            margin-top: 16px;
+            font-size: 11px;
+            color: #888;
+            text-align: center;
+        }}
+    </style>
+</head>
+<body>
+    <div class="container">
+        <h2>📥 دانلود فایل</h2>
+        <div class="info">
+            <div>📄 نام فایل: <strong>{original_filename}</strong></div>
+            <div>📦 حجم اصلی: <span id="originalSize">در حال محاسبه...</span></div>
+            <div>🔐 فرمت: Base64 Encoded</div>
+        </div>
+        <button id="downloadBtn">⬇️ دانلود و دیکود فایل</button>
+        <div id="status" class="status"></div>
+        <div class="note">
+            💡 این فایل به صورت Base64 ذخیره شده است. با کلیک روی دکمه، فایل دیکود و دانلود می‌شود.
+        </div>
+    </div>
+    <script>
+        const base64Data = ` + "`" + base64_data + "`" + `;
+        const filename = '{original_filename}';
+        
+        function showStatus(msg, type) {{
+            const statusDiv = document.getElementById('status');
+            statusDiv.textContent = msg;
+            statusDiv.className = 'status ' + type;
+        }}
+        
+        document.getElementById('downloadBtn').onclick = function() {{
+            try {{
+                showStatus('🔄 در حال دیکود کردن فایل...', 'loading');
+                
+                // دیکود Base64
+                const binaryString = atob(base64Data);
+                const bytes = new Uint8Array(binaryString.length);
+                for (let i = 0; i < binaryString.length; i++) {{
+                    bytes[i] = binaryString.charCodeAt(i);
+                }}
+                
+                // ساخت Blob و دانلود
+                const blob = new Blob([bytes]);
+                const url = URL.createObjectURL(blob);
+                const a = document.createElement('a');
+                a.href = url;
+                a.download = filename;
+                document.body.appendChild(a);
+                a.click();
+                document.body.removeChild(a);
+                URL.revokeObjectURL(url);
+                
+                showStatus('✅ دانلود کامل شد!', 'success');
+                setTimeout(() => window.close(), 2000);
+            }} catch(e) {{
+                showStatus('❌ خطا در دیکود فایل: ' + e.message, 'error');
+            }}
+        }};
+        
+        // محاسبه حجم اصلی
+        try {{
+            const binaryLen = atob(base64Data).length;
+            document.getElementById('originalSize').textContent = (binaryLen / 1024).toFixed(1) + ' KB';
+        }} catch(e) {{
+            document.getElementById('originalSize').textContent = 'نامشخص';
+        }}
+    </script>
+</body>
+</html>'''
+    
+    file_path.write_text(html_content, encoding='utf-8')
+    print(f"    📁 Base64 HTML saved: {html_filename}")
+    return f"file-base64/{html_filename}"
+
 def download_and_save_file(url, channel_name, post_id, media_type, original_filename):
     """دانلود فایل و ذخیره در پوشه مناسب بر اساس حجم و نوع"""
     if not url:
@@ -208,30 +357,26 @@ def download_and_save_file(url, channel_name, post_id, media_type, original_file
             print(f"    📁 Media file -> media/ ({content_length} bytes)")
         elif content_length < MAX_SIZE_FOR_BASE64:
             target_dir = get_base64_dir(get_channel_dir(channel_name))
-            relative_path = f"file-base64/{final_filename}"
-            print(f"    📁 Small file -> file-base64/ ({content_length} bytes)")
+            # ذخیره فایل اصلی هم در پوشه base64 (برای دسترسی مستقیم)
+            target_dir.mkdir(parents=True, exist_ok=True)
+            local_path = target_dir / final_filename
+            local_path.write_bytes(resp.content)
+            
+            # ذخیره نسخه Base64 به صورت HTML
+            base64_data = base64.b64encode(resp.content).decode('utf-8')
+            html_path = save_base64_as_html(target_dir, final_filename, base64_data)
+            relative_path = html_path
+            print(f"    📁 Small file -> file-base64/ ({content_length} bytes) + HTML decoder")
         else:
             target_dir = get_media_dir(get_channel_dir(channel_name))
             relative_path = f"media/{final_filename}"
             print(f"    📁 Large file -> media/ ({content_length} bytes)")
         
-        # ذخیره فایل
+        # ذخیره فایل (اگه قبلاً ذخیره نشده باشه)
         target_dir.mkdir(parents=True, exist_ok=True)
         local_path = target_dir / final_filename
-        
-        if local_path.exists():
-            print(f"    📁 Already exists: {final_filename}")
-            return relative_path
-        
-        local_path.write_bytes(resp.content)
-        print(f"    ✅ Downloaded: {final_filename}")
-        
-        # برای فایل‌های کوچک، نسخه Base64 هم ذخیره کن
-        if not is_media and content_length < MAX_SIZE_FOR_BASE64:
-            base64_data = base64.b64encode(resp.content).decode('utf-8')
-            base64_file = target_dir / (final_filename + ".base64.txt")
-            base64_file.write_text(base64_data, encoding='utf-8')
-            print(f"    📁 Base64 saved: {final_filename}.base64.txt")
+        if not local_path.exists() and not is_media and content_length >= MAX_SIZE_FOR_BASE64:
+            local_path.write_bytes(resp.content)
         
         return relative_path
         
