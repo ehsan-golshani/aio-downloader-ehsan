@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 23:28
+📅 آخرین بروزرسانی: 1405/02/28 00:36
 
 ---
+
+## ProxyMTProto — post 47446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: pika.proxytg.space
+Port: 443
+Secret: ee09ca9424322894efa56ebc7e6c88f87b70696b612e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47445
 
