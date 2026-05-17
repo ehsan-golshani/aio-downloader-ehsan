@@ -1,8 +1,30 @@
 # آرشیو کانال mwarmonitor - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/27 11:03
+📅 آخرین بروزرسانی: 1405/02/27 12:56
 
 ---
+
+## mwarmonitor — post 9081
+
+<div align="center"><img src="telegram/content/mwarmonitor_9081.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸کمک کنید تا در جریان درآمدی سپاه پاسداران انقلاب اسلامی (IRGC) اختلال ایجاد کنیم.
+
+🔸برای ما درباره این افراد اطلاعات/نکته ارسال کنید؛ کسانی که این شرکت تولیدکننده پهپاد را مدیریت می‌کنند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9080
+
+<div align="center"><img src="telegram/content/mwarmonitor_9080.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸یک ناو جنگی آبی - خاکی uss makin مستقر در سن‌دیگو در حال آماده‌سازی برای اعزام به خاورمیانه است، در حالی که ملوانان کالیفرنیایی برای اعزام آماده می‌شوند. نیویورک پست
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9079
 
@@ -247,23 +269,5 @@
 🎙شکیرا، مدونا و گروه BTS اجرای نخستین نمایش بین دو نیمه را در فینال جام جهانی فوتبال بر عهده خواهند داشت.
 
 @mwarmonitor
-</div>
-
-## mwarmonitor — post 9060
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🇨🇳مراسم رسمی استقبال از دونالد ترامپ با حضور شی جین‌پینگ در چین برگزار شد
-
-💠در این مراسم، رئیس‌جمهور چین با برگزاری تشریفات کامل دیپلماتیک از رئیس‌جمهور آمریکا استقبال کرد؛ رویدادی که در چارچوب سفر رسمی ترامپ به پکن و با هدف بررسی روابط دوجانبه، همکاری‌های اقتصادی و تحولات راهبردی بین دو کشور انجام خواهد گرفت.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9059
-
-<div align="center"><img src="telegram/content/mwarmonitor_9059.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری: بنیامین نتانیاهو به‌طور محرمانه به امارات متحده عربی سفر کرده و در جریان عملیات «شیر غران» علیه ایران با محمد بن زاید دیدار کرده است. i24 news @mwarmonitor
 </div>
 

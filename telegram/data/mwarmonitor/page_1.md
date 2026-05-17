@@ -1,8 +1,24 @@
 # آرشیو کانال mwarmonitor - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 11:03
+📅 آخرین بروزرسانی: 1405/02/27 12:56
 
 ---
+
+## mwarmonitor — post 9186
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دیوان کیفری بین‌المللی در لاهه به‌طور محرمانه احکام بازداشت علیه سه سیاستمدار اسرائیلی و دو افسر نظامی صادر کرده است.(هاآرتص)
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇮🇷🇨🇳 انتصاب محمدباقر قالیباف به‌عنوان نماینده ویژه ایران نزد چین.
+
+@mwarmonitor
+</div>
 
 ## mwarmonitor — post 9184
 
@@ -189,32 +205,6 @@
 🚨✈️ به نظر می‌رسد آسمان‌ها در حال حاضر به‌طور نگران‌کننده‌ای آرام هستند. حتی هیچ پرواز باری ورودی قابل مشاهده‌ای وجود ندارد، به‌جز یک فروند C-17 که همین حالا در اردن فرود آمده است.
 
 ✈️آخرین پروازهای باری نظامی در حال خارج شدن از خاورمیانه هستند.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9165
-
-<div align="center"><img src="telegram/content/mwarmonitor_9165.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گزارش‌ها حاکی از حمله تروریستی مشکوک در شهر مودنا ایتالیاست.
-
-🔸یک مهاجر اهل شمال آفریقا با خودرو به میان جمعیت رفته و پس از آن از خودرو پیاده شده و با چاقو به مردم حمله کرده است.
-
-🔸منابع غیررسمی از ۲ کشته و ۸ مجروح به‌شدت خبر می‌دهند. همچنین گزارش شده زنی روی زمین دیده شده که هر دو پای خود را از دست داده است.
-
-@mwarmonitor
-</div>
-
-## mwarmonitor — post 9164
-
-<div align="center"><img src="telegram/content/mwarmonitor_9164.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸«اگر به آمریکایی‌ها آسیب بزنید، یا در حال برنامه‌ریزی برای آسیب زدن به آمریکایی‌ها باشید، ما شما را پیدا خواهیم کرد و خواهیم کشت.»
-
-رئیس‌جمهور دونالد جی. ترامپ
 
 @mwarmonitor
 </div>

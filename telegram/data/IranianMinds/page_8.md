@@ -1,8 +1,62 @@
 # آرشیو کانال IranianMinds - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/27 11:16
+📅 آخرین بروزرسانی: 1405/02/27 13:09
 
 ---
+
+## IranianMinds — post 20121
+
+<div align="center"><img src="telegram/content/IranianMinds_20121.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️اوتباند موجود⚠️
+
+🔋حداقل خرید 30GB
+
+♾حداکثر محدودیتی نداره
+
+50GB ➡️ 180
+
+100GB ➡️140
+
+200GB ➡️120
+
++500GB ➡️100
+
+🧬 500 گیگ به بالا امکان تسویه روزانه نیز فراهم می باشد
+
+⬅️دارای لود بالانس و اپتایم 99/9% بدون قعطی
+⬅️تست موجود می باشد
+
+جهت خرید و استعلام قیمت🟡
+
+@xan_vpnn
+
+کانال:
+
+https://t.me/+qNjExGEJztE2OGI0
+</div>
+
+## IranianMinds — post 20120
+
+<div align="center"><img src="telegram/content/IranianMinds_20120.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بنر حامیان حکومت در تجمع دیشب تهران:
+سید مجید نقطه‌زن، امتحانا نزدیکه، یه جایی‌رو زود بزن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20119
+
+<div align="center"><img src="telegram/content/IranianMinds_20119.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایلان ماسک به همراه پسرش در نشست پکن شرکت کرد.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20118
 
@@ -228,44 +282,6 @@ re24
 در حال حاضر، تحولی که در یک قرن گذشته دیده نشده در سراسر جهان شتاب گرفته و وضعیت بین‌المللی سیال و پرآشوب است.
 
 جهان به یک چهارراه جدید رسیده است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20099
-
-<div align="center"><video src="telegram/content/IranianMinds_20099.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20099.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 رئیس ‌جمهور چین به ترامپ:
-
-آیا می‌توانیم، به نفع رفاه مردم هر دو کشور و آینده بشریت، آینده‌ای روشن‌تر برای روابط دوجانبه‌مان بسازیم؟
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20098
-
-<div align="center"><video src="telegram/content/IranianMinds_20098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 رئیس ‌جمهور چین به ترامپ:
-
-تمام جهان در حال تماشای دیدار ماست
-
-@IranianMindsi
-</div>
-
-## IranianMinds — post 20097
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مارکو روبیو:
-
-واشنگتن به پکن روشن کرد که هرگونه حمایت از ایران به روابط دوجانبه آسیب می رساند
 
 @IranianMinds
 </div>

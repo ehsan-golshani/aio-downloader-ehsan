@@ -1,8 +1,70 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 11:02
+📅 آخرین بروزرسانی: 1405/02/27 12:56
 
 ---
+
+## WithYashar — post 11467
+
+## WithYashar — post 11466
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داداش شما رئیس سواک میشی شک نکن
+</div>
+
+## WithYashar — post 11465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم ساواک روزی که برگرده باید اول به من بگه دادچ آرشیوتو بیار 🤣
+</div>
+
+## WithYashar — post 11464
+
+<div align="center"><video src="telegram/content/WithYashar_11464.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11464.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الان بحث داغه دیدن این ویدیو شاهین نجفی هم که در اوایل شروع ‌به کارش برام فرستاد خالی از‌ لطف نیست ، من امید وارم همه با هم متحد باشن و مشکلات تموم بشه
+@withyashar
+</div>
+
+## WithYashar — post 11463
+
+<div align="center"><video src="telegram/content/WithYashar_11463.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11463.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینا همش به تاریخ پیوست…
+@withyashar
+</div>
+
+## WithYashar — post 11462
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو اين مدت هر وقت كه ولنجك رد ميشم ياد شما ميافتم، هميشه و هميشه و هميشه اين ويديو رو براى شما گرفتم و صميم قلبم آرزو كردم به زودى خود شمارو تو ايران ببينيم🌸
+</div>
+
+## WithYashar — post 11461
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباس عراقچی، اعلام کرد که کتاب «قدرت مذاکره» او به چاپ پنجم رسیده و در چاپ جدید این کتاب، بخش جدیدی با عنوان «دیپلماسی زیر آتش» درباره روند «مذاکرات غیرمستقیم با آمریکا در جنگ ۱۲ روزه» به آن افزوده شده است.
+@withyashar
+</div>
+
+## WithYashar — post 11460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو اين مدت هر وقت كه ولنجك رد ميشم ياد شما ميافتم، هميشه و هميشه و هميشه اين ويديو رو براى شما گرفتم و صميم قلبم آرزو كردم به زودى خود شمارو تو ايران ببينيم🌸
+</div>
+
+## WithYashar — post 11459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو اين مدت هر وقت كه ولنجك رد ميشم ياد شما ميافتم، هميشه و هميشه و هميشه
+اين ويديو رو براى شما گرفتم و صميم قلبم آرزو كردم به زودى خود شمارو تو ايران ببينيم🌸
+</div>
 
 ## WithYashar — post 11458
 
@@ -34,53 +96,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این لحنم نبود🤣🤣🤣🤣بد گذاشتی ک
-</div>
-
-## WithYashar — post 11447
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ولت براچی گذاشتی تو
-</div>
-
-## WithYashar — post 11446
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ولت براچی گذاشتی تو
-</div>
-
-## WithYashar — post 11445
-
-## WithYashar — post 11444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پدرم در اومد رسیدم تلگرام چرا روبیکا خبر نمیزاری یاشار
-</div>
-
-## WithYashar — post 11443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پدرم در اومد رسیدم تلگرام چرا روبیکا خبر نمیزاری یاشار
-</div>
-
-## WithYashar — post 11442
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معاون وزیر خارجه روسیه دقایقی پیش از قریب‌الوقوع بودن حمله آمریکا و اسرائیل به ایران خبر داد.
-@withyashar
-</div>
-
-## WithYashar — post 11441
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاج: فیفا برای هر ۱۰ شرط ما برای حضور در جام جهانی راه‌حل ارائه داده
-@withyashar
-</div>
-
-## WithYashar — post 11440
-
-## WithYashar — post 11439
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظرت راجب فرستاده پاکستان چیه؟ بنظرت احتمالش هست بتونه کانکت کنه و جنگ مجدد درصدش کم بشه ؟
 </div>
 

@@ -1,8 +1,40 @@
 # آرشیو کانال Dirty_Kids - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/27 11:18
+📅 آخرین بروزرسانی: 1405/02/27 13:12
 
 ---
+
+## Dirty_Kids — post 389463
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389463.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389463.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری دانشجو :
+شما فقط نحوه دست دادن رئیس‌جمهور چین با پرفسور رئیسی و ترامپ رو مقایسه کنی، متوجه قدرت ایران میشید...
+
++کسخلیت و کونده‌پرویی اینا حدی نداره :)))))
+چین فروختتشون توافق کرده با امریکا
+استقبال بی نظیر کردن از ترامپ
+بعد رئیسی گوزو ۶ کلاسه‌رو همه میریدن بهش از پوتین بگیر تا شی دارن مقایسه میکنن
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389462
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389462.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسایی؛ نماینده‌ی مجلس:
+
+دولت قصد داره میزان سهمیه ماهانه بنزین ۱۵۰۰ تومنی و ۳۰۰۰ تومنی رو کاهش بده و قیمت بنزین ۵۰۰۰ تومنی رو هم به ۲۰۰۰۰ تومن برسونه.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389458
 
@@ -269,31 +301,6 @@ ShirOKhorshid-2026.05.14.apk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترامپ تو چین یه جور داره رفتار میکنه که انگار اون میزبانه:
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389436
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این چه سمی بود دیدم 😂🔞
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389435
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389435.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقیقا وقتی فکر می‌کنی جمهوری اسلامی تپه نریده باقی نذاشته، همون لحظه یه تپه جدید می‌سازه و میره سرش میرینه.
-فقط مونده بود برن از امارات کشتی بدزدن فرار کنن، که اونم گویا حاصل شد.
 
 
 @Dirty_Kids 👻

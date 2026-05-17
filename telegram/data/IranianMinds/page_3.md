@@ -1,8 +1,52 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 11:16
+📅 آخرین بروزرسانی: 1405/02/27 13:09
 
 ---
+
+## IranianMinds — post 20227
+
+<div align="center"><img src="telegram/content/IranianMinds_20227.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎉 ۵۰۰٬۰۰۰ تومان رایگان-بونوس ویژه ثبت‌نام
+🔥 با هر ثبت نام ۵۰۰ هزار تومن جایزه بگیرید
+⬅️ شرط‌بندی کنید و بونوس را به موجودی واقعی تبدیل کنید
+🔥 وقتشه بازی رو یه جور دیگه ببینی
+⚽️  پوشش کامل مسابقات ورزشی 
+📊  پیش‌بینی با بهترین ضرایب 
+⚡️  تجربه سریع و حرفه‌ای
+
+😀 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن 
+
+😀 کانال تلگرام: 
+🔴 @winro_io  
+
+😀 هدیه خود را با ثبت نام در سایت دریافت کنید: 
+🔴 Winro.io
+r26
+سایت اصلی در روزهای آینده بازگشایی خواهد شد ✅
+</div>
+
+## IranianMinds — post 20225
+
+<div align="center"><img src="telegram/content/IranianMinds_20225.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعضیا انگار‌ تو یه ایران دیگه زندگی‌ میکنن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20224
+
+<div align="center"><img src="telegram/content/IranianMinds_20224.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش یه روزی بیاد که تنها دغدغه و اخبارای مهم مام این چیزا باشه:)
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20223
 
@@ -235,42 +279,5 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 https://iranopasmigirim.com/fa/transitional-justice
 
 @OfficialRezaPahlavi
-</div>
-
-## IranianMinds — post 20205
-
-<div align="center"><video src="telegram/content/IranianMinds_20205.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20205.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دقایقی پیش فرمانده حماس کشته شد
-‏
-نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امام جمعه کرج:
-
-بر اساس توصیه قرآن باید تا پایان «فتنه»، جنگ رو ادامه بدیم؛ مجازات اسرائیل، محو کردن کامل اونه.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قرارداد تبلیغاتی ۱ ماهه میبندم
-غیر اخلاقی چیزی نمیزارم
-دزدی و سیگنال ارز دیجیتال و این چیزا نمیزارم
-خواستید پیام بزارید
-اگر فیلترشکن میفروشید باید مدارک رضایت فروش بدید خیال راحتی باشه
-
-«بازدهی تضمینی»
-@AmirrPower
 </div>
 

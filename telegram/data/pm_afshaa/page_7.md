@@ -1,8 +1,45 @@
 # آرشیو کانال pm_afshaa - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/27 11:04
+📅 آخرین بروزرسانی: 1405/02/27 12:58
 
 ---
+
+## pm_afshaa — post 90755
+
+<div align="center"><img src="telegram/content/pm_afshaa_90755.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تخفیف ویژه فقط گیگی 170 با تست رایگان ✅
+اول تست کن، بعد با خیال راحت خرید کن!
+
+❌ دیگه چرا گیگی ۵۰۰ تا ۶۰۰ بدی؟!
+اونم بدون اینکه بدونی کیفیتش چطوره 😐
+
+⚡️ تخفیف ویژه محدود ⏳
+فقط تا پایان امشب
+
+🌍 آی‌پی استار واقعی + پینگ عالی
+🛡 ضمانت بازگشت وجه بدون شرط
+🚀 اتصال پایدار و بدون قطعی
+
+خرید آنی از ربات :
+
+Id : @LexVipBot
+تایم سرورامون نامحدوده❤️
+
+Link chanel : @lex_server
+
+رایگان گذاشته میشه هرشب تو‌چنل بالا از دست ندید👌
+</div>
+
+## pm_afshaa — post 90754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کارشناس کانال 14 اسرائیل: رژیم ایران به شدت به پول نیاز داره و در حال انجام تماس‌های مخفی و مستقیم با دولت ترامپه
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90753
 
@@ -191,26 +228,6 @@
 چین و آمریکا باید شریک باشن، نه رقیب؛ عظمت دوباره آمریکا و احیای چین میتونن همزمان پیش برن.
 
 ترامپ هم پس از این سخنان، روابط واشینگتن و پکن رو یکی از تاثیرگذارترین روابط تاریخ بشر توصیف کرد و دیدارهای انجام‌شده با مقام‌های چینی رو مثبت و سازنده خواند.
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90732
-
-<div align="center"><img src="telegram/content/pm_afshaa_90732.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ یه جور داره رفتار میکنه که انگار رئیس جمهور چین اومده آمریکا
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90730
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اکسیوس: یک مشاور ترامپ اذعان کرد مشکل اینه که ایران زمان بیشتری داره و آنها روی تقویم سیاسی ما حساب باز کردن تا به سودشون تمام بشه.
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

@@ -1,8 +1,43 @@
 # آرشیو کانال IranianMinds - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/27 11:16
+📅 آخرین بروزرسانی: 1405/02/27 13:09
 
 ---
+
+## IranianMinds — post 20141
+
+<div align="center"><img src="telegram/content/IranianMinds_20141.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+:( موضوع امیدوار بودن یا نبودن نیست. وقتی که قدرت تصمیم‌گیری در دست دیگران است، وقتی که ما نمی‌توانیم در تصمیم‌گیری آنها دخالت کنیم، تنها کاری که می‌توان انجام داد، تحمل کردن است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20140
+
+<div align="center"><img src="telegram/content/IranianMinds_20140.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گیر چه عقب مونده‌هایی افتادیم
+
+ننگ ۵۰۰ ساله روحانیت رو از تاریخ ایران پاک باید کنیم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20139
+
+<div align="center"><video src="telegram/content/IranianMinds_20139.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20139.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این هنرمند و کمدین آمریکایی، با طنز استندآپ، ۴۷ سال حکومت ننگین جمهوری اسلامی در ایران را به سخره می‌گیرد و به‌خوبی چهره فاسد و سرکوبگر این حکومت را افشا می‌کند. او همچنین از انقلاب و مبارزه مردم ایران برای آزادی حمایت می‌کند.
+درود بر آزادی‌خواهان سراسر جهان.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20138
 
@@ -202,60 +237,6 @@ ShirOKhorshid-2026.05.14.apk
 ۵۵۵ بچه رو هم بازداشت کردید.
 
 آها یادم نبود کودکان غزه و فلسطین مال شماس.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20121
-
-<div align="center"><img src="telegram/content/IranianMinds_20121.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️اوتباند موجود⚠️
-
-🔋حداقل خرید 30GB
-
-♾حداکثر محدودیتی نداره
-
-50GB ➡️ 180
-
-100GB ➡️140
-
-200GB ➡️120
-
-+500GB ➡️100
-
-🧬 500 گیگ به بالا امکان تسویه روزانه نیز فراهم می باشد
-
-⬅️دارای لود بالانس و اپتایم 99/9% بدون قعطی
-⬅️تست موجود می باشد
-
-جهت خرید و استعلام قیمت🟡
-
-@xan_vpnn
-
-کانال:
-
-https://t.me/+qNjExGEJztE2OGI0
-</div>
-
-## IranianMinds — post 20120
-
-<div align="center"><img src="telegram/content/IranianMinds_20120.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بنر حامیان حکومت در تجمع دیشب تهران:
-سید مجید نقطه‌زن، امتحانا نزدیکه، یه جایی‌رو زود بزن.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20119
-
-<div align="center"><img src="telegram/content/IranianMinds_20119.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایلان ماسک به همراه پسرش در نشست پکن شرکت کرد.
 
 @IranianMinds
 </div>

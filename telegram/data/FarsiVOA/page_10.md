@@ -1,8 +1,48 @@
 # آرشیو کانال FarsiVOA - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/02/27 11:13
+📅 آخرین بروزرسانی: 1405/02/27 13:06
 
 ---
+
+## FarsiVOA — post 217763
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرزیدنت ترامپ: شی جین‌پینگ متعهد شده که به جمهوری اسلامی تجهیزات نظامی نفرستد
+</div>
+
+## FarsiVOA — post 217762
+
+<div align="center"><video src="telegram/content/FarsiVOA_217762.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217762.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داریوش سجادی در برنامه تفسیر خبر می‌گوید که فرصتی برای وساطت چین بین جمهوری اسلامی و آمریکا وجود ندارد
+</div>
+
+## FarsiVOA — post 217761
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش فریبا مودت درباره جزئیات روز نخست دیدار پرزیدنت ترامپ با رئیس جمهوری چین
+</div>
+
+## FarsiVOA — post 217760
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شکریا برادوست در برنامه تفسیر خبر: تمرکز بر ملی‌گرایی در چین افزایش یافته است
+</div>
+
+## FarsiVOA — post 217759
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺پرزیدنت ترامپ: رئیس جمهوری چین گفته که به رژیم ایران تجهیزات نظامی نخواهد داد
+
+◾️پرزیدنت ترامپ می‌گوید که شی جین‌پینگ، رئیس‌ جمهوری چین، متعهد شده است پس از مذاکرات سطح بالای دو رهبر، ارسال تجهیزات نظامی برای رژیم ایران را متوقف کند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-us-trump-china-chi-weapon-hannity-/8150025.html?withmediaplayer=1
+</div>
 
 ## FarsiVOA — post 217758
 
@@ -110,35 +150,5 @@ https://ir.voanews.com/a/adm-brad-cooper-senate-hearing-iran-epic-fury/8149979.h
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کمیته نیروهای مسلح سنا روز پنجشنبه ۲۴ اردیبهشت یک جلسه استماع را با حضور دریابد برد کوپر، فرمانده سنتکام، و ژنرال داگوین اندرسون، فرمانده آفریکام، برگزار کرد. یکی از محورهای اصلی این جلسه اقدام نظامی آمریکا علیه رژیم ایران بود. صدای آمریکا این جلسه را با ترجمه همزمان پژواک کیومرثی پخش کرد.
-</div>
-
-## FarsiVOA — post 217740
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اصغر فرهادی با فیلم جدیدش تحت عنوان «داستان‌های موازی» با حضور ایزابل اوپر، ونساند کسل، و کاترین دونوو به جشنواره کن می‌رود.
-</div>
-
-## FarsiVOA — post 217738
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در گفت‌وگو با احمد وخشیته، پژوهشگر روابط بین‌الملل، به تصرف کشتی با پرچم هند در نزدیکی امارات، مواضع متناقض مقام‌های حکومت ایران در خصوص باز بودن تنگه هرمز پرداختیم و پرسیدیم آیا این اقدامات، ناشی از ضعف و انزواست یا بخشی از یک استراتژی حساب‌شده جمهوری اسلامی است؟
-</div>
-
-## FarsiVOA — post 217737
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در گفت‌وگو با صالح کامرانی، کارشناس حقوق بین‌الملل، به هم‌زمانی فشار تحریم‌های آمریکا علیه چین، بحث تایوان و نقش منطقه‌ای پکن پرداختیم و پرسیدیم آیا معامله‌ای نانوشته میان واشنگتن و پکن بر سر ایران و تغییر موازنه قدرت در حال شکل‌گیری است؟
-</div>
-
-## FarsiVOA — post 217736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در گفت‌وگو با مهدی مصلحی، کارشناس بازار انرژی از لندن، به ابعاد اقتصادی سفر ترامپ به چین پرداختیم؛ از رقابت بر سر نیمه‌رساناها و انرژی تا نقش کشورهای خلیج فارس در معادله جدید گفتیم و پرسیدیم آیا این معادلات، ایران را از زنجیره‌های آینده اقتصاد جهانی کنار می‌گذارد؟
-</div>
-
-## FarsiVOA — post 217735
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در گفت‌وگو با کامران متین و رضا تقی‌زاده، تحلیلگران سیاسی از بریتانیا، به همسویی تلویحی چین با راهبرد دریایی آمریکا پس از حمله به نفت‌کش چینی پرداختیم و پرسیدیم آیا جمهوری اسلامی در معادلات قدرت‌های بزرگ به «دارایی قابل حذف» تبدیل شده است؟
 </div>
 

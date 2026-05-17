@@ -1,8 +1,45 @@
 # آرشیو کانال IranianMinds - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/27 11:16
+📅 آخرین بروزرسانی: 1405/02/27 13:09
 
 ---
+
+## IranianMinds — post 20205
+
+<div align="center"><video src="telegram/content/IranianMinds_20205.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20205.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دقایقی پیش فرمانده حماس کشته شد
+‏
+نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امام جمعه کرج:
+
+بر اساس توصیه قرآن باید تا پایان «فتنه»، جنگ رو ادامه بدیم؛ مجازات اسرائیل، محو کردن کامل اونه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قرارداد تبلیغاتی ۱ ماهه میبندم
+غیر اخلاقی چیزی نمیزارم
+دزدی و سیگنال ارز دیجیتال و این چیزا نمیزارم
+خواستید پیام بزارید
+اگر فیلترشکن میفروشید باید مدارک رضایت فروش بدید خیال راحتی باشه
+
+«بازدهی تضمینی»
+@AmirrPower
+</div>
 
 ## IranianMinds — post 20202
 
@@ -186,36 +223,6 @@ ge25
 🔴 ترامپ:
 
 تحقیقات درباره هدف قرار گرفتن مدرسه‌ای در ایران ( مدرسه میناب ) در جریان است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20185
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-پیشنهاد ایرانیا که برام رسید همون‌ جمله ی اول متنشونو که خوندم برام قابل قبول نبود و سریع ردش کردم
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-ارتش ایران را نابود کردیم و شاید لازم باشد یک عملیات پاکسازی سبک دیگر‌ هم انجام دهیم.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ:
-
-نیروی هوایی ایران را کاملا نابود کردیم و از شر رهبران ایرانی خلاص شدیم.
 
 @IranianMinds
 </div>

@@ -1,8 +1,71 @@
 # آرشیو کانال WithYashar - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/27 11:02
+📅 آخرین بروزرسانی: 1405/02/27 12:56
 
 ---
+
+## WithYashar — post 11236
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سومین دور مذاکرات مستقیم لبنان و اسرائیل در واشنگتن آغاز شد
+@withyashar
+</div>
+
+## WithYashar — post 11235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ اعلام کرد که انتظار می‌رود پکن ۲۰۰ هواپیما از بوئینگ سفارش دهد.
+@withyashar
+</div>
+
+## WithYashar — post 11234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کان نیوز : مقامات ارشد ارتش اسرائیل و سنتکام هفته گذشته جلسه داشتن و منتظرن ببینن فردا ترامپ بعد اتمام سفرش چه تصمیمی میگیره
+@withyashar
+</div>
+
+## WithYashar — post 11233
+
+<div align="center"><video src="telegram/content/WithYashar_11233.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11233.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اتاق جنگ با یاشار ، شواهد نشان دهنده حمله غافلگیر کننده برای کتلت پزون است
+@withyashar
+</div>
+
+## WithYashar — post 11232
+
+<div align="center"><video src="telegram/content/WithYashar_11232.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11232.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در سال ۱۹۷۲، شهبانو فرح پهلوی به دعوت رسمی دولت چین به این کشور سفر کرد؛ سفری تاریخی و بی‌سابقه که در اوج جنگ سرد، نماد دیپلماسی بی‌طرفانه ایران بود
+@withyashar
+</div>
+
+## WithYashar — post 11231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا درباره حمایت چین از ایران با رئیس جمهور چین صحبت کردید؟ ترامپ: ما در مورد این موضوع صحبت کردیم. منظورم اینه که وقتی میگید «حمایت»، آنها با ما جنگ نمی‌کنن یا چیزی شبیه این. او گفت که تجهیزات نظامی ارائه نخواهد کرد، این یک بیانیه بزرگه. اما در عین حال گفت…
+</div>
+
+## WithYashar — post 11230
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Voice message
+</div>
+
+## WithYashar — post 11229
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«دریادار برد کوپر»، فرمانده سنتکام: «فرماندهی مرکزی ایالات متحده (سنتکام) مستقیماً در پاسخ به تهدیدهایی که جمهوری اسلامی ایران ایجاد می‌کرد، تأسیس شد. رژیم ایران طی ۴۷ سال گذشته منطقه را دچار هراس و بی‌ثباتی کرده و دشمنی با آمریکا را به یکی از اصول اساسی…
+</div>
+
+## WithYashar — post 11228
 
 ## WithYashar — post 11227
 
@@ -105,95 +168,5 @@
 INDOPACOM، فرماندهی نظامی آمریکا برای منطقهٔ «هندو-پاسیفیک»ایندوپکام: تفنگداران دریایی ایالات متحده، واحد یازدهم اعزامی تفنگداران دریایی، در حال انجام تیراندازی رزمی بر روی ناو جنگی یو اس اس کامستاک (LSD 45) در اقیانوس هند هستند. واحد یازدهم اعزامی دریایی، که بر روی گروه آماده آبی-خاکی باکسر(USS BOXER) مستقر شده است، یک نیروی پایدار و قابل اعتماد رزمی است که به بازدارندگی و واکنش به بحران در منطقه عملیاتی ناوگان هفتم ایالات متحده کمک می‌کند.
 @withyashar
 یاشار: ساده بگم ناو باکسر وسط راه مونده داره تمرین میکنه و معلوم نیست کی بیاد !
-</div>
-
-## WithYashar — post 11215
-
-<div align="center"><video src="telegram/content/WithYashar_11215.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11215.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گوشیT1 "ترامپ موبایل" بعد از نزدیک
-یه سال تأخیر بالاخره داره عرضه میشه
-یه گوشی طلایی ۴۹۹ دلاری با برند ترامپه که
-چیپ اسنپدراگون سری ۷، رم ۱۲ گیگ، حافظه
-۵۱۲ گیگ و دوربین سه‌گانه ۵۰ مگاپیکسلی دارهبه نظر میاد در اصل یه گوشی ساخت چین باشه که فقط مونتاژ نهاییشو تو آمریکا انجام دادن
-@withyashar
-</div>
-
-## WithYashar — post 11214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارکو روبیو : ترامپ موضوع ایران رو با چین مطرح کرد و این خیلی مهم بود
-
-طرف چینی گفت ما موافق نظامی‌کردن تنگه هرمز نیستیم
-با سیستم عوارض‌گیری هم مخالفیم، و این موضع ما هم هست
-@withyashar
-</div>
-
-## WithYashar — post 11213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر خزانه داری آمریکا:ایران رو انقدر تحت فشار اقتصادی قرار دادیم که توی پرداخت حقوق نیروهاشم به مشکل خورده. دارن نفسای آخرشونو میکشن
-@withyashar
-</div>
-
-## WithYashar — post 11212
-
-<div align="center"><video src="telegram/content/WithYashar_11212.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11212.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر دفاع اسرائیل، اسرائیل کاتز درباره ایران:
-
-ماموریت ما کامل نشده است.ما برای احتمال اینکه ممکن است مجبور شویم دوباره اقدام کنیم - شاید حتی به زودی - آماده‌ایم. اگر اهداف تأمین نشوند، دوباره اقدام خواهیم کرد.
-@withyashar
-</div>
-
-## WithYashar — post 11211
-
-<div align="center"><img src="telegram/content/WithYashar_11211.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلفی لی جون، بنیانگذار و مدیرعامل شیائومی با ایلان ماسک
-@withyashar
-</div>
-
-## WithYashar — post 11210
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-الجزیره: چین با آمریکا در مورد ایران انعطاف دارد، اما در مورد تایوان نه
-
-مسئولان چینی پیام واضحی به ایالات متحده ارسال کرده‌اند:
-چین در بسیاری از مسائل مانند ایران، تجارت و فناوری آماده انعطاف و پذیرش اختلاف نظر است، اما در یک موضوع حساس، انعطاف‌پذیر نیست و آن تایوان است.
-@withyashar
-</div>
-
-## WithYashar — post 11209
-
-<div align="center"><video src="telegram/content/WithYashar_11209.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11209.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایلان لوله لول سر میز شمام 😂
-@withyashar
-</div>
-
-## WithYashar — post 11208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر خزانه‌داری آمریکا:
-تأسیسات اصلی بارگیری نفت ایران به مدت ۳ روز است از سرویس خارج شده است
-@withyashar
-</div>
-
-## WithYashar — post 11207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرنگار صداوسیما به نقل از نیروی دریایی سپاه: از شب گذشته تاکنون ۳۰ فروند کشتی از تنگه هرمز با مجوز ایران عبور کرده‌اند
-@withyashar
 </div>
 

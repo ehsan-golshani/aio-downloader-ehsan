@@ -1,8 +1,46 @@
 # آرشیو کانال IranianMinds - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/27 11:16
+📅 آخرین بروزرسانی: 1405/02/27 13:09
 
 ---
+
+## IranianMinds — post 20164
+
+<div align="center"><video src="telegram/content/IranianMinds_20164.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20164.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه عظمتی داره هواپیماش
+
+لحظه ی خروج هواپیمای ریاست جمهوری ایالات متحده از چین
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20163
+
+<div align="center"><img src="telegram/content/IranianMinds_20163.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ چین رو‌‌ ترک‌ کرد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20162
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 تروث جدید ترامپ در مورد شی، رئیس‌جمهور چین:
+
+وقتی شی جین‌پینگ خیلی شیک و محترمانه از آمریکا به‌عنوان کشوری در حال افول یاد کرد، منظورش خسارت وحشتناکی بود که تو دوران جو خواب‌آلود بایدن و دولتش به کشورمون وارد شد؛ و تو این مورد، صددرصد حق با اون بود. کشور ما به خاطر مرزهای باز، مالیات‌های سنگین، ترویج ترنس‌ها برای همه، حضور مردها تو ورزش زنان، سیاست‌های DEI، قراردادهای تجاری افتضاح، افزایش جرم و جنایت و کلی چیز دیگه ضربه شدیدی خورد.
+
+اما شی جین‌پینگ منظورش اون پیشرفت فوق‌العاده‌ای نبود که آمریکا تو ۱۶ ماه درخشان دولت ترامپ به دنیا نشون داده. پیشرفتی که شامل رکورد تاریخی بازار بورس و صندوق‌های بازنشستگی 401K، پیروزی‌های نظامی، رابطه عالی با ونزوئلا، نابود کردن قدرت نظامی ایران (که ادامه هم داره!)، قوی‌ترین ارتش دنیا، تبدیل شدن دوباره آمریکا به ابرقدرت اقتصادی و سرمایه‌گذاری رکوردشکن ۱۸ تریلیون دلاری تو آمریکاست. همین‌طور بهترین بازار کار تاریخ آمریکا، با بیشترین تعداد افراد شاغل در تاریخ کشور، پایان دادن به سیاست‌های نابودکننده DEI و خیلی موفقیت‌های دیگه. در واقع، شی جین‌پینگ تو مدت کوتاهی بابت این همه موفقیت به من تبریک گفت.
+
+دو سال پیش، ما واقعاً کشوری در حال سقوط بودیم و من کاملاً با شی جین‌پینگ موافق بودم! ولی الان آمریکا داغ‌ترین و قدرتمندترین کشور دنیاست و امیدوارم رابطه‌مون با چین از همیشه قوی‌تر و بهتر بشه.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20161
 
@@ -194,41 +232,6 @@ ShirOKhorshid-2026.05.14.apk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 روبیو، وزیرخارجه آمریکا: ترامپ از رئیس جمهور چین کمکی نخواست و آمریکا به کمک چین نیازی نداره.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20141
-
-<div align="center"><img src="telegram/content/IranianMinds_20141.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-:( موضوع امیدوار بودن یا نبودن نیست. وقتی که قدرت تصمیم‌گیری در دست دیگران است، وقتی که ما نمی‌توانیم در تصمیم‌گیری آنها دخالت کنیم، تنها کاری که می‌توان انجام داد، تحمل کردن است.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20140
-
-<div align="center"><img src="telegram/content/IranianMinds_20140.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گیر چه عقب مونده‌هایی افتادیم
-
-ننگ ۵۰۰ ساله روحانیت رو از تاریخ ایران پاک باید کنیم
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20139
-
-<div align="center"><video src="telegram/content/IranianMinds_20139.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20139.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این هنرمند و کمدین آمریکایی، با طنز استندآپ، ۴۷ سال حکومت ننگین جمهوری اسلامی در ایران را به سخره می‌گیرد و به‌خوبی چهره فاسد و سرکوبگر این حکومت را افشا می‌کند. او همچنین از انقلاب و مبارزه مردم ایران برای آزادی حمایت می‌کند.
-درود بر آزادی‌خواهان سراسر جهان.
 
 @IranianMinds
 </div>

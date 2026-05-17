@@ -1,8 +1,27 @@
 # آرشیو کانال Dirty_Kids - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 11:18
+📅 آخرین بروزرسانی: 1405/02/27 13:12
 
 ---
+
+## Dirty_Kids — post 389554
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389554.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تراپی @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389553
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389553.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به اونایی که می‌گفتن تو کوله سرباز خارجی آزادی پیدا نمی‌شه بگید مجری‌های صداوسیما واستون اسلحه کشیدن.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389552
 
@@ -244,45 +263,6 @@ A25
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پاتو لیس بزن گه اضافه نخور 😂😂
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389532
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389532.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389532.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-املاکی در مصاحبه با Bret Baier مجری برنامه Special Report شبکه فاکس نیوز در خصوص خواری که رژیم کسمغز روافض در مذاکرات ازش گاییدن فرموده که:
-
-
-«ما واقعاً به نوعی از پایه‌های یک توافق رسیده بودیم. بدون سلاح هسته‌ای.
-
-اون‌هزارپدرای قحبه‌ قرار بود غبار هسته‌ای رو به ما تحویل بدن، همه چیو، هر چیزی که ما می‌خواستیم.
-
-و هر بار که توافقی می‌کنن، این پدرخرابا روز بعدش به جوری رفتار می‌کنن که انگار ما از اساس همچی گفتگویی نداشتیم، و این اتفاق حدود پنج بار رخ داده.
-
-یک مشکلی در این مادرقحبه‌های رافضی وجود داره، در واقع این حرومیا دیونه میوونه‌اند. [علاوه بر کسمغزی،خدعه‌زاده‌ان شیر خدا. اما خب دو بار گاییدی‌شون و فهمیدن اون ممه رو لولو خورد]
-
-و می‌دونید چیه؟ به همین دلیل، این جاکش‌پدرا‌ نباید سلاح هسته‌ای داشته باشن»
-
-﻿
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389529
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389529.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این بانو که یکم حشری‌طور میزنه امروز حاشیه ساز بوده
-
-یه عده دفاع میکنن ازش
-یه عده هیت میدن
 
 
 @Dirty_Kids 👻

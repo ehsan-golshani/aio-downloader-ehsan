@@ -1,8 +1,33 @@
 # آرشیو کانال Dirty_Kids - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/27 11:18
+📅 آخرین بروزرسانی: 1405/02/27 13:12
 
 ---
+
+## Dirty_Kids — post 389436
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این چه سمی بود دیدم 😂🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389435
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389435.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقیقا وقتی فکر می‌کنی جمهوری اسلامی تپه نریده باقی نذاشته، همون لحظه یه تپه جدید می‌سازه و میره سرش میرینه.
+فقط مونده بود برن از امارات کشتی بدزدن فرار کنن، که اونم گویا حاصل شد.
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389434
 
@@ -261,34 +286,6 @@ A23
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 #بخوابیم
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389412
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زینب موشک دوست🤣🤣🤣
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389411
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ انیمیشن‌های لگویی وارد فاز جدیدی شد!
-
-لگوی شاه عالیه فقط! 👏🤩
 
 
 @Dirty_Kids 👻

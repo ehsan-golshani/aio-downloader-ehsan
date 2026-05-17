@@ -1,8 +1,37 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 11:18
+📅 آخرین بروزرسانی: 1405/02/27 13:12
 
 ---
+
+## Dirty_Kids — post 389600
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389600.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوران اوباما
+Vs
+دوران ترامپ
+
+
+اینو برای عمو ترامپ درست کردن میخوام براش بفرستیم تو بزاره تو صفحه تروث‌مدیاش
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389599
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389599.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389599.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اتفاقا نه تنها بی‌ناموس بلکه بقیه موارد مرتبط با قضیه ناموس رو هم هستی «دکتر» قلابی!
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389598
 
@@ -238,32 +267,6 @@ A26
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بابای گلشیفته هستن
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389576
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389576.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389576.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تامی رابینسون (فعال ملی‌گرای بریتانیایی) در تطاهرات لندن عکس شاهزاده رضا پهلوی بالا برد
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389575
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389575.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سال 1374، کل پاساژ علاءالدین: 500 میلیون
-
-سال 1405، آیفون 17 پرومکس: 500 میلیون
 
 
 @Dirty_Kids 👻

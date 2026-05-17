@@ -1,8 +1,58 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 11:16
+📅 آخرین بروزرسانی: 1405/02/27 13:09
 
 ---
+
+## IranianMinds — post 20272
+
+<div align="center"><img src="telegram/content/IranianMinds_20272.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ونزوئلا :
+
+الکس صائب از نزدیکان رئیس جمهور سابق نیکولاس مادورو و رابط حزب الله و سپاه پاسداران جمهوری اسلامی رو دستگیر کردیم و به ایالات متحده تحویل دادیم !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20271
+
+<div align="center"><img src="telegram/content/IranianMinds_20271.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خبرگزاری فارس :
+
+قالیباف نماینده ویژه جمهوری اسلامی در امور چین شد
+
+قبل از قالیباف علی لاریجانی این سمت رو داشت که ترور شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20270
+
+<div align="center"><img src="telegram/content/IranianMinds_20270.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎉 ۵۰۰٬۰۰۰ تومان رایگان-بونوس ویژه ثبت‌نام
+🔥 با هر ثبت نام 🅰️🅰️🅰️ هزار تومن جایزه بگیرید
+⬅️ شرط‌بندی کنید و بونوس را به موجودی واقعی تبدیل کنید
+🔥 وقتشه بازی رو یه جور دیگه ببینی
+⚽️  پوشش کامل مسابقات ورزشی 
+📊  پیش‌بینی با بهترین ضرایب 
+⚡️  تجربه سریع و حرفه‌ای
+
+😀 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن 
+
+😀 کانال تلگرام: 
+🔴 @winro_io  
+
+😀 هدیه خود را با ثبت نام در سایت دریافت کنید: 
+🔴 Winro.io
+R27
+سایت اصلی در روزهای آینده بازگشایی خواهد شد ✅
+</div>
 
 ## IranianMinds — post 20269
 
@@ -219,37 +269,5 @@ A26
 🔴 Winro.io
 G26
 سایت اصلی در روزهای آینده بازگشایی خواهد شد ✅
-</div>
-
-## IranianMinds — post 20251
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 تلگراف: مقامات ارشد دولت ترامپ از امارات خواستن به شکل جدی‌تری وارد جنگ با ایران شه.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20250
-
-<div align="center"><img src="telegram/content/IranianMinds_20250.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پست ترامپ در تروث‌سوشال:
-
-بازی نداریم! تماشا کن قراره بعدش تو موضع مورد علاقت چه اتفاقی رخ میده!
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20249
-
-<div align="center"><video src="telegram/content/IranianMinds_20249.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20249.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دفتر ریاست جمهوری تایوان: در مورد موضوع فروش تسلیحات که توجه خارجی را به خود جلب کرده است، کاملاً مشخص است که چین همچنان به تشدید تهدیدات نظامی ادامه می‌دهد. این تنها منبع ناامنی در تنگه تایوان و منطقه هند و اقیانوس آرام است و همچنین به همین دلیل است که کشورهای اطراف زنجیره جزایر اول به طور فعال با ایالات متحده برای تقویت دفاع همکاری می‌کنند.
-
-@IranianMinds
 </div>
 
