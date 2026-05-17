@@ -9,7 +9,7 @@ on:
         type: boolean
         default: false
       clean_telegram:
-        description: 'پاک کردن دیتای Telegram (media, pages, file-base64, last_ids)'
+        description: 'پاک کردن دیتای Telegram (pages, media, file-base64, last_ids)'
         required: false
         type: boolean
         default: false
@@ -102,13 +102,6 @@ jobs:
                       print("🧹 Deleted telegram/data/ (pages, media, file-base64)")
                       cleaned.append("telegram/data")
                   
-                  # پاک کردن content قدیمی (برای سازگاری)
-                  content_dir = Path("telegram") / "content"
-                  if content_dir.exists():
-                      shutil.rmtree(content_dir)
-                      print("🧹 Deleted telegram/content/ (old media)")
-                      cleaned.append("telegram/content")
-                  
                   # پاک کردن last_ids.json
                   last_ids_file = Path("telegram") / "last_ids.json"
                   if last_ids_file.exists():
@@ -152,8 +145,6 @@ jobs:
           for p in "${PLATFORM_ARRAY[@]}"; do
             if [ "$p" = "telegram/data" ]; then
               git add -A telegram/data/ 2>/dev/null || true
-            elif [ "$p" = "telegram/content" ]; then
-              git add -A telegram/content/ 2>/dev/null || true
             elif [ "$p" = "telegram/last_ids.json" ]; then
               git add -A telegram/last_ids.json 2>/dev/null || true
             else
