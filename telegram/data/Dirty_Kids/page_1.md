@@ -1,8 +1,57 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 13:12
+📅 آخرین بروزرسانی: 1405/02/27 14:28
 
 ---
+
+## Dirty_Kids — post 389603
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389603.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389603.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه مشت پیرزن پیرمرد چروک گوزو و بچه‌ چاقال مسجدی جمع کردن توی مساجد،یکی یه آرپی‌جی و کلاش دادن دستشون که یعنی آموزش ببینند،واسه چی؟مثلآ جنگ با آمریکا و اسرائیل، آخه احمقا با این سیرک شماها جنگجو شدید؟خیر
+رژیم روزای آخر بد به دریوزگی افتاده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389602
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جان تراولتای هفتاد و دو ساله یا اکسیر جوونی رو پیدا کرده یا کار دکترش خیلی درسته، ولی چیزی که خیلی جالبه اکت و تیز بودنشه، حرکاتش یه جوریه انگار چهل سالشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389601
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389601.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+⚫️با بالاترین کیفیت ممکن⚡️ 
+⚫️100 هزار تومان شارژ هدیه 🎁
+⚫️پایین ترین قیمت گیگی 250🌐 
+⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
+
+بادبان راهتو باز می‌کنه⛵️
+
+R27
+🛡@BadBan_VPN | کانال 
+🤖@BadBan_VPNBot | ربات 
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
 
 ## Dirty_Kids — post 389600
 
@@ -228,45 +277,6 @@ A26
 مدیونید بزارید آب‌خوش از گلوشون پایین بره... از دم فرودگاه تا هتل، شب قبل بازی جلوی هتل و داخل استادیوم، همه بلیطا هم بخرید تا صادراتیاشون نخرن، دیگه هرکاری در توانتون بکنید خارشونو بگایید
 ﻿
 #فوتبالیست_سپاهی
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389579
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389579.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید ترامپ تو تروث سوشال کنار یه فرمانده نظامی و خطاب به ایران :
-
-این تازه آرامش قبلِ طوفان بود.
-
-مجموع گزارش‌ها، اخبار رسمی، نقل‌وانتقالات نظامی و مصاحبه‌های ترامپ و نتانیاهو در هفته گذشته، نشان می‌دهد هر لحظه باید منتظر آغاز دور جدید حملات به جمهوری اسلامی بود؛ حملاتی که می‌تواند این‌بار با پیاده کردن سربازان آمریکایی در خاک ایران نیز همراه باشد.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389578
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ:
-اگه توافق نشود ایران روز های خیلی سختی در پیش دارد
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389577
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389577.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389577.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بابای گلشیفته هستن
 
 
 @Dirty_Kids 👻

@@ -1,8 +1,264 @@
 # آرشیو کانال alonews - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 13:15
+📅 آخرین بروزرسانی: 1405/02/27 14:30
 
 ---
+
+## alonews — post 120535
+
+<div align="center"><video src="telegram/content/alonews_120535.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120535.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈توییت 6 ساعت پیش اتاق جنگ اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120534
+
+<div align="center"><video src="telegram/content/alonews_120534.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120534.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈تایمز: انگلیس برای جنگ آماده می‌شود 
+🔴 یک رسانه انگلیسی از افزایش بودجه دفاعی انگلیس خبر داد و هدف از آن را آماده شدن برای جنگ های آینده اعلام کرد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120533
+
+<div align="center"><video src="telegram/content/alonews_120533.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120533.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈تایمز: انگلیس برای جنگ آماده می‌شود
+
+
+🔴 یک رسانه انگلیسی از افزایش بودجه دفاعی انگلیس خبر داد و هدف از آن را آماده شدن برای جنگ های آینده اعلام کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120532
+
+<div align="center"><video src="telegram/content/alonews_120532.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120532.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فعالیت غیرمعمول امروز هواپیماهای باری برای سوخت رسانی به جنگنده‌ها در منطقه خاورمیانه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120531
+
+<div align="center"><video src="telegram/content/alonews_120531.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120531.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ادغام کنکور سراسری و آزمون پذیرش دانشجو معلمان منتفی شد/ آزمون‌ها با شرایط سال قبل برگزار می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120530
+
+<div align="center"><video src="telegram/content/alonews_120530.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120530.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈الجزیره: پاکسازی ۲۴ ژنرال آمریکایی در میانه جنگ با ایران
+
+
+
+🔴پیت هگست، وزیر جنگ ایالات متحده، در سه ماه گذشته بیش از ۲۴ ژنرال و دریاسالار را بدون ارائه دلایل روشن برکنار کرده است. این اقدام شامل روسای ستاد ارتش و نیروی دریایی و دیگر مقامات ارشد است و شائبه‌های سیاسی را تقویت می‌کند.
+
+
+🔴با ادامه بن‌بست مذاکرات با ایران، تصمیم‌گیری درباره عملیات نظامی یا محاصره دریایی پیچیده‌تر شده و پیام‌های واشنگتن به متحدان منطقه‌ای گیج‌کننده است. همزمان، وزارت جنگ درخواست افزایش بودجه‌ای نزدیک به ۵۰۰ میلیارد دلار کرده اما توضیح قانع‌کننده‌ای ارائه نکرده است.
+
+
+🔴 کارشناسان هشدار می‌دهند ادامه این وضعیت احتمال دستیابی به توافق سیاسی و موفقیت نظامی آمریکا را در منطقه کاهش می‌دهد.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120529
+
+<div align="center"><video src="telegram/content/alonews_120529.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120529.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قتل هولناک نوزاد ۴۰ روزه در مشهد!
+
+
+🔴مادر نوزاد می گوید: از خوزستان به مشهد آمدیم و سوئیتی را در خیابان نوغان اجاره کردیم.
+
+
+🔴دو روز قبل همسرم که مواد مخدر صنعتی مصرف می‌کند دچار توهم و بدبینی شد.
+
+
+🔴او ناگهان تصور کرد نوزاد متعلق به فرد دیگری است.
+
+
+🔴ماهی‌تابه حاوی تخم‌مرغ را برداشت و با آن ضربات هولناکی به سر نوزاد زد.
+
+
+🔴سپس با کف دستش چند ضربه دیگر به سر او کوبید.
+
+
+🔴بعد هم نوزاد را به شدت به زمین کوبید و باعث مرگش شد.
+
+
+🔴پس از این ماجرا جسد کودک را داخل یخچال مسافرخانه گذاشت.
+
+
+🔴او مرا تهدید کرد چیزی به کسی نگویم تا اینکه دو روز بعد موضوع را به صاحب سوئیت اطلاع دادم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120528
+
+<div align="center"><video src="telegram/content/alonews_120528.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120528.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈دولت ترامپ اجازه دارد معافیت تحریم‌ها بر نفت دریایی روسیه که در روز شنبه منقضی شود و مجوز موقت برای کشورهایی مانند هند برای ادامه خرید نفت خام روسیه را به پایان برساند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120527
+
+<div align="center"><video src="telegram/content/alonews_120527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈آب و فاضلاب عسلویه : با توجه به تعمیرات ضروری در خط انتقال آب کوثر، آب شهرستان عسلویه از ساعت ۶ صبح روز دوشنبه، ۲۸ اردیبهشت‌ماه به مدت ۴۸ ساعت قطع خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120526
+
+<div align="center"><video src="telegram/content/alonews_120526.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120526.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سی‌ان‌ان: کوبایی‌ها خود را برای «تهاجم آمریکا» آماده می‌کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120525
+
+<div align="center"><video src="telegram/content/alonews_120525.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120525.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 کوثری، نماینده مجلس: ترامپ در جنگ با ایران درمانده شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120523
+
+<div align="center"><video src="telegram/content/alonews_120523.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120523.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈یک پهپاد اوکراینی به ساختمانی در زلنگراد، منطقه مسکو روسیه برخورد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120522
+
+<div align="center"><video src="telegram/content/alonews_120522.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120522.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈حملات پهپادی اوکراینی فرودگاه بین‌المللی شرمتیه‌وو در منطقه مسکو روسیه را هدف قرار دادند.
+
+
+🔴 شرمتیه‌وو شلوغ‌ترین فرودگاه روسیه است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120505
+
+<div align="center"><img src="telegram/content/alonews_120505.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عوستاد خوش چشم: باید آماده نبرد آخر بشیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈طی ۲۴ساعت گذشته تعداد زیادی ترابری آمریکا وارد منطقه شده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120503
+
+<div align="center"><img src="telegram/content/alonews_120503.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈بابک تقوایی میلیتاریست معروف:
+انفجار در کارخانه «تومر» در بیت شمش، اسرائیل، کنترل نشده بود. این حادثه ناشی از یک حادثه بود. انباری که پرکلرات سدیم مورد نیاز برای تولید موتورهای موشک‌های زمین به هوا در آن قرار داشت، به دلایل نامعلومی منفجر شد.
+
+🔴به گفته منابع نظامی اسرائیلی من، این انفجار به دلیل حمله پهپاد یا موشک کروز نیروهای دشمن رخ نداده است.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120502
+
+<div align="center"><img src="telegram/content/alonews_120502.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥💥اینترنت آزاد و رایگان
+
+🌐🚫تنها جایی که کانفیگ رایگان میزاره
+
+⬇️⬇️
+@NetAazaadBot
+@NetAazaadBot
+
+⚠️هر ساعت 100گیگ شارژ میشه، رباتو داشته باشید تا مطلع بشید
+</div>
 
 ## alonews — post 120500
 
@@ -35,188 +291,5 @@
 👈بیرانوند : با صدای بلند و رسا کف آمریکا سرود جمهوری اسلامی ایران رو می‌خونم. مخالفا هم نمی‌تونن کاری بکنن
 
 ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120497
-
-<div align="center"><img src="telegram/content/alonews_120497.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈علم الهدی: تو آمریکا 9میلیون آمریکایی پرچم ایران رو دستشون گرفتن
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120496
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈شبکه GB News ادعا می‌کند که نخست‌وزیر کیر در حال آماده‌سازی جدول زمانی استعفا است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120495
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کاربران فضای‌مجازی گفته‌اند که این انفجار بدون هیچ هشدار قبلی به ساکنان مناطق اطراف صورت گرفته است.
-
-🔴کاربران فضای‌مجازی گفته‌اند که سوال‌های بی‌پاسخ زیادی دربارۀ این حادثه وجود دارد
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120494
-
-<div align="center"><img src="telegram/content/alonews_120494.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مجری صدا وسیما : خواهش می‌کنم سلام من رو به مجتبی خامنه‌ای برسونید.
-
-🔴حدادعادل: والا منم به دامادم دسترسی ندارم، از همین‌جا بهش سلام می‌رسونم.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120492
-
-<div align="center"><img src="telegram/content/alonews_120492.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رسانه‌های اسرائیلی از جمله Channel 12 گزارش داده‌اند انفجار بزرگی که در منطقه بیت شِمش دیده و شنیده شد، مربوط به فعالیت شرکت دولتی دفاعی Tomer بوده است.
-
-🔴این شرکت سامانه‌های پیشران موشکی تولید می‌کند؛ از جمله موتور و سیستم‌های مربوط به موشک‌های رهگیر Arrow 2 و Arrow 3 که برای مقابله با موشک‌های بالستیک استفاده می‌شوند.
-
-اما هنوز مشخص نیست چرا این انفجار ساعت ۱۱ شب شنبه انجام شده؛ مخصوصاً بعد از گزارش‌هایی که آخر هفته درباره آماده‌سازی برای حمله احتمالی به ایران منتشر شده بود.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120490
-
-<div align="center"><video src="telegram/content/alonews_120490.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120490.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کان نیوز: حادثه بیت شمس اسرائیل یک انفجار کنترل‌شده داخل یک کارخانه غیرنظامی بوده است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120489
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رسانه بریتانیایی امواج: این ۱۴ بند شامل خروج نظامی آمریکا از مجاورت ایران، پایان محاصره دریایی، لغو محدودیتهای فروش نفت ظرف ۳۰ روز پس از هر توافق اولیه و یک ترتیبات حاکمیتی جدید برای تنگه هرمز است. ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120488
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رسانه بریتانیایی امواج: در هفته منتهی به سفر ترامپ به چین، ایران یک چارچوب ۱۴ ماده‌ای برای پایان جنگ، به واشنگتن ارائه کرد. 🔴یک منبع ارشد سیاسی در تهران که به شرط فاش نشدن نامش صحبت میکرد، به رسانه «امواج مدیا» توضیح داد که این سند شامل ۱۱ ماده‌ای است که…
-</div>
-
-## alonews — post 120487
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رسانه بریتانیایی امواج:
-در هفته منتهی به سفر ترامپ به چین، ایران یک چارچوب ۱۴ ماده‌ای برای پایان جنگ، به واشنگتن ارائه کرد.
-
-🔴یک منبع ارشد سیاسی در تهران که به شرط فاش نشدن نامش صحبت میکرد، به رسانه «امواج مدیا» توضیح داد که این سند شامل ۱۱ ماده‌ای است که در ابتدا توسط دولت آمریکا ارائه شده بود، به اضافه سه ماده‌ای که ایران به آن افزوده است.
-
-🔴این پیشنهاد که تا حدودی به دلیل تشدید محاصره دریایی آمریکا علیه ایران – و ظاهراً با ناراحتی ترامپ – به تأخیر افتاد، حاصل دستورات صریح به مذاکره کنندگان بود.
-
-🔴به گفته یک منبع مطلع، پاسخ واشنگتن که از طریق میانجیگران ارسال شده، کل این چارچوب را رد کرده است. گفته می‌شود که آمریکا بار دیگر بر مواضع از پیش تعیین شده خود در مورد پرونده هسته‌ای تأکید کرده و از پذیرش این پیش‌شرط‌ها به عنوان پیش‌نیاز هرگونه مذاکره خودداری نموده است.
-
-🔴با این حال، یک منبع سیاسی دیگر که از جزییات امور مطلع است، چنین توصیفی از وقایع را رد کرد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120485
-
-<div align="center"><video src="telegram/content/alonews_120485.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120485.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈گزارش‌ها از انفجار و نور بسیار شدید در بیت شِمِش در اسرائیل ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120484
-
-<div align="center"><video src="telegram/content/alonews_120484.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120484.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 رئیس‌جمهور ترامپ عکسی از خودش و شی جین‌پینگ را در Truth Social منتشر کرد.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120483
-
-<div align="center"><video src="telegram/content/alonews_120483.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120483.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈گزارش‌ها از انفجار و نور بسیار شدید در بیت شِمِش در اسرائیل
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120482
-
-<div align="center"><video src="telegram/content/alonews_120482.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120482.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: این آرامش قبل طوفان بود!
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120481
-
-<div align="center"><video src="telegram/content/alonews_120481.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120481.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کاخ سفید پیامی تهدیدآمیز از ترامپ با عنوان «شوخی نداریم» همراه با تصویری از حضور او در اتاق جنگ منتشر کرد.
-
-🔴در پیام کاخ سفید آمده است: «اگر به آمریکایی‌ها آسیب بزنید، یا برای آسیب‌زدن به آمریکایی‌ها توطئه و طرح‌ریزی کنید، ما شما را خواهیم یافت.»
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120480
-
-<div align="center"><img src="telegram/content/alonews_120480.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سال 1374، کل پاساژ علاءالدین: 500 میلیون
-
-سال 1405، آیفون 17 پرومکس: 500 میلیون
-
-[@AloTweet]
-</div>
-
-## alonews — post 120479
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 FLASH NET VPN 🔥 ⚠️ شرایط جنگی؟ نت ملی؟ فیلترینگ سنگین؟ 💪 ما هنوز پایدار و بدون قطعی کنار شماییم! 🚀 پینگ خفن 🌐 سرعت فوق‌العاده پایدار 😍 رضایت فراوان کاربران 🤖 ربات کاملاً خودکار 💸 نرخ‌ها پایین‌تر از همه جا 🇧🇬 تک لوکیشن بلغارستان ♾ بدون ضریب 🔗 دارای لینک…
-</div>
-
-## alonews — post 120478
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈العربیه به نقل از پاکستان: حضور وزیر کشور پاکستان در ایران یک روز دیگر ادامه خواهد یافت تا در مورد چشم‌انداز ازسرگیری مذاکرات گفت‌وگو شود ✅ @AloNews خبر جنگ
 </div>
 

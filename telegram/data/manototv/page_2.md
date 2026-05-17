@@ -1,8 +1,18 @@
 # آرشیو کانال manototv - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 13:14
+📅 آخرین بروزرسانی: 1405/02/27 14:30
 
 ---
+
+## manototv — post 105531
+
+<div align="center"><video src="telegram/content/manototv_105531.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/manototv_105531.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اشتوتگارت، تجمع در حمایت از مردم ایران، ۲۶ اردیبهشت
+</div>
 
 ## manototv — post 105530
 
@@ -199,17 +209,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 «تجمع ایرانیان در بریزبن استرالیا»
-</div>
-
-## manototv — post 105511
-
-<div align="center"><video src="telegram/content/manototv_105511.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/manototv_105511.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کریس رایت، وزیر انرژی آمریکا گفته است انتظار دارد تنگه هرمز «حداکثر تا مقطعی در تابستان» بازگشایی شود.
-
-رایت همچنین گفت اگر ایران به «گروگان گرفتن اقتصاد جهان» ادامه دهد، ارتش آمریکا می‌تواند برای بازگشایی تنگه هرمز مداخله کند.
 </div>
 

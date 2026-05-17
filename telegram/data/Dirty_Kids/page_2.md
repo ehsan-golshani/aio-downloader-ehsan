@@ -1,8 +1,47 @@
 # آرشیو کانال Dirty_Kids - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 13:12
+📅 آخرین بروزرسانی: 1405/02/27 14:28
 
 ---
+
+## Dirty_Kids — post 389579
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389579.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید ترامپ تو تروث سوشال کنار یه فرمانده نظامی و خطاب به ایران :
+
+این تازه آرامش قبلِ طوفان بود.
+
+مجموع گزارش‌ها، اخبار رسمی، نقل‌وانتقالات نظامی و مصاحبه‌های ترامپ و نتانیاهو در هفته گذشته، نشان می‌دهد هر لحظه باید منتظر آغاز دور جدید حملات به جمهوری اسلامی بود؛ حملاتی که می‌تواند این‌بار با پیاده کردن سربازان آمریکایی در خاک ایران نیز همراه باشد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389578
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+اگه توافق نشود ایران روز های خیلی سختی در پیش دارد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389577
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389577.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389577.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بابای گلشیفته هستن
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389576
 
@@ -250,44 +289,6 @@ G26
 مداح‌: وقت نبرده بابا، به ترامپ بیناموس بگو، بچه کونه بابا
 
 مجری اسلحه میکشه مداح فحش رکیک میده، چه دست و پایی میزنن
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389557
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389557.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389557.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اطلاعات داره کم‌کم رو می‌شه. به خامنه‌ای گفته بودند جنگ نمی‌شه از لونه بیا بیرون که یک دفعه با یه تق... به هلاکت می‌رسه
-گوش کنید حتما
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389556
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389556.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استوری جدید مشاور قالیباف :
-
-ای لشکر صاحب زمان آماده باش...
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389555
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389555.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سپاه یه فراخوان داد که افراد بالای 12 سال به عنوان رزمنده بیان دوره فعالیت دفاعی ببینن. یه دانش آموز 16 ساله به اسم محمدامین صابرکار میره توی دوره آموزشی شرکت کنه که در حین آموزش بر اثر شلیک خودی کشته میشه!
 
 
 @Dirty_Kids 👻

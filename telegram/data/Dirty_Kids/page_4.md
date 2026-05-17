@@ -1,8 +1,43 @@
 # آرشیو کانال Dirty_Kids - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/27 13:12
+📅 آخرین بروزرسانی: 1405/02/27 14:28
 
 ---
+
+## Dirty_Kids — post 389535
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389535.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانو ناتالیا بیش از ۲۰ نفر از اعضای حماس رو به هلاکت رسونده تو غزه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389534
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389534.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389534.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عمو مانوک؛ اخلاق رضاشاه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389533
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389533.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاتو لیس بزن گه اضافه نخور 😂😂
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389532
 
@@ -234,52 +269,6 @@
 سنتکام رسماً تأیید کرد که حمله به مدرسه میناب توسط آمریکا صورت گرفته.
 
 ❌ این خبر که تو فضای مجازی داره دست به دست میشه، فیکه؛ سنتکام تأیید نکرده و ترامپ هم امروز گفت که هنوز داریم بررسی می‌کنیم.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x ✖️  👍دارای مجوز رسمی Gambling Judge سوئد👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    3️⃣2️⃣ 🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
-</div>
-
-## Dirty_Kids — post 389510
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389510.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x ✖️
-
- 👍دارای مجوز رسمی Gambling Judge سوئد👍
-     
-💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
-💳تسویه حساب دلاری سریع
-💊بیمه شرط میکس
-⚠️فروش شرط
-🔔ویرایش شرط                    3️⃣2️⃣
-
-🎁20%هدیه واریز از طریق ارز و ووچر
-┅━━━━━━━━━━━
-🎁 10%برگشت باخت به صورت روزانه
-🎁 10%برگشت باخت به صورت هفتگی
-🎁10%برگشت باخت به صورت ماهانه
-💻ادرس ورود به سایت:
-https://bet120x.com/fa/?btag=971470
-➖➖➖➖➖
-   👈 آموزش واریز و برداشت دلاری👉
-
-🔪کانال اطلاع رسانی:👇
-✈️https://t.me/+1Wv5nGY_a54xNzlk
-</div>
-
-## Dirty_Kids — post 389505
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389505.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این شما و این منتخب ژانر از کِی فهمیدین کسخلید توی توییتر :))
 
 
 @Dirty_Kids 👻

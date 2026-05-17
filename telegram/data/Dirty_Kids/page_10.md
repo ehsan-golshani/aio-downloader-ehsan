@@ -1,8 +1,48 @@
 # آرشیو کانال Dirty_Kids - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/02/27 13:12
+📅 آخرین بروزرسانی: 1405/02/27 14:28
 
 ---
+
+## Dirty_Kids — post 389392
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389392.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389392.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کپی برداری نوحه خوانی محمود کریمی از مدل اشعار برنامه های کودک تو سیرک شبانه حکومتی‌های حرامزاده؛
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389391
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بهمن محصص ۱۳ سال پیش گلشیفته رو اینجوری توصیف کرد...
+
+چقد فحش خورد اون روزا
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✖️ سایت بین المللی bet120x 
+✖️  
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    
+3️⃣
+2️⃣ 
+🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
+</div>
 
 ## Dirty_Kids — post 389389
 

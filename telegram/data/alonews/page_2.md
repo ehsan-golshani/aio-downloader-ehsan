@@ -1,8 +1,216 @@
 # آرشیو کانال alonews - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 13:15
+📅 آخرین بروزرسانی: 1405/02/27 14:30
 
 ---
+
+## alonews — post 120557
+
+<div align="center"><video src="telegram/content/alonews_120557.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120557.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 حمله‌های شدید ارتش اسرائیل به جنوب لبنان
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120556
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سوپر اپلیکیشن بله مجدداً از دقایقی پیش با اختلال روبرو شده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120555
+
+<div align="center"><img src="telegram/content/alonews_120555.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قلهکی: یکی از کشورهای منطقه هشدار شروع جنگ را برای دورماندن از تیررسِ ایران، به تهران منتقل کرده است!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120554
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈جزئیاتی از درخواست‌های آمریکا از ایران در مذاکرات
+
+
+🔴براساس شنیده‌های فارس از پاسخ آمریکا به پیشنهادهای ایران، ۵ شرط اصلی واشنگتن به این شرح اعلام شده است:
+
+🔴عدم پرداخت هرگونه غرامت و خسارت از سوی آمریکا
+🔴خروج و تحویل ۴۰۰ کیلوگرم اورانیوم از ایران به آمریکا
+🔴فعال ماندن تنها یک مجموعه از تأسیسات هسته‌ای ایران
+🔴عدم پرداخت حتی ۲۵ درصد از دارایی‌های بلوکه‌شدهٔ ایران
+🔴منوط‌شدن توقف جنگ در همه ساحتها به انجام مذاکره
+
+🔴این گزارش تأکید می‌کند که حتی در صورت تحقق این شرایط از سوی ایران، تهدید حمله آمریکا و اسرائیل همچنان پابرجا خواهد بود.
+
+🔴کارشناسان معتقدند طرح پیشنهادی آمریکا به جای حل مشکل، در پی دستیابی به اهدافی است که این کشور نتوانسته در طول جنگ آن را محقق کند.
+
+🔴در مقابل، ایران انجام هرگونه مذاکره را منوط به تحقق ۵ پیش‌شرط اعتمادساز دانسته است که عبارتند از:
+
+🔴پایان جنگ در همهٔ جبهه‌ها به‌ویژه لبنان
+🔴رفع تحریم‌ها
+🔴آزادسازی پول‌های بلوکه‌شده ایران
+🔴جبران خسارات ناشی از جنگ
+🔴پذیرش حق حاکمیت ایران بر تنگه هرمز
+
+
+﻿✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120553
+
+<div align="center"><img src="telegram/content/alonews_120553.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈پست ترامپ تو ثروث سوشال : یه شب بزرگ تو سیاست؛ از همه متشکرم!
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120552
+
+<div align="center"><img src="telegram/content/alonews_120552.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈گویا تو اصفهان برای خانم‌های بی حجاب ابلاغیه دادگاه ارسال میشه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وزارت کشور عربستان: برافراشتن پرچم‌های سیاسی یا مذهبی و سر دادن هرگونه شعار در مکه، مدینه و اماکن مقدسه از جمله مسجدالحرام، مسجدالنبی، صحن‌های آنها و مسیرهای منتهی به آن ممنوع است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120550
+
+<div align="center"><img src="telegram/content/alonews_120550.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥💥اینترنت آزاد و رایگان
+
+🌐🚫تنها جایی که کانفیگ رایگان میزاره
+
+⬇️⬇️
+@NetAazaadBot
+@NetAazaadBot
+
+⚠️هر ساعت 100گیگ شارژ میشه، رباتو داشته باشید تا مطلع بشید
+</div>
+
+## alonews — post 120549
+
+<div align="center"><img src="telegram/content/alonews_120549.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈میزان: دادگاه «صادق ساعدنیا» برگزار شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120546
+
+<div align="center"><img src="telegram/content/alonews_120546.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈تصویری از نصب مسلسل ۱۲.۷ میلیمتری گاتلینگ چهار اول نصب شده در دماغه برخی نسخه های بالگرد میل۲۴ با یک سامانه دید حرارتی در روسیه برای مقابله با پهپادها ..این سیستم بیش از ۲۰۰۰ گلوله بر دقیقه آتش می‌کند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120545
+
+<div align="center"><img src="telegram/content/alonews_120545.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈از چند ساعت گذشته بیش از دوازده فروند هواپیمای ترابری راهبردی C-17A گلوبمستر III نیروی هوایی آمریکا در حال ترک خاورمیانه و حرکت به سمت اروپا هستند.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120544
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فارس: محمدباقر قالیباف، نمایندۀ ویژۀ ایران در امور چین شد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120543
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈معاون شرکت مخابرات ایران: دسترسی به اینترنت باید برای همه مردم فراهم باشد
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120542
+
+<div align="center"><img src="telegram/content/alonews_120542.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تصویری لو رفته از گلشیفته و مکرون
+
+[@AloTweet]
+</div>
+
+## alonews — post 120541
+
+<div align="center"><video src="telegram/content/alonews_120541.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120541.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سفر ترامپ به پکن نمادی از کاهش قدرت آمریکا بود، به طوری که چین تنها رئیس‌جمهور را سرگرم کرد بدون اینکه هیچ امتیاز واقعی ارائه دهد، طبق گزارش آتلانتیک.
+
+
+🔴 فرانکلین فور می‌نویسد که با وجود پروتکل‌ها و مراسم پرزرق و برق، دیدار شی و ترامپ هیچ دستاورد سیاسی یا اقتصادی قابل توجهی برای واشنگتن نداشت.
+
+
+🔴 مقاله بیان می‌کند: «وقتی آمریکا دستش را دراز می‌کند، دیگر هیچ‌کس برای گرفتن آن عجله نمی‌کند، و وقتی تهدید می‌کند، دیگر هیچ‌کس ترسی احساس نمی‌کند.»
+
+
+🔴شی نه تنها از ارائه طرح مشخصی برای پایان جنگ ایران خودداری کرد، بلکه از امضای توافقنامه بزرگ تجاری یا ارائه تضمین‌هایی درباره دسترسی آمریکا به مواد معدنی کمیاب نیز امتناع ورزید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120540
+
+<div align="center"><video src="telegram/content/alonews_120540.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120540.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قطر و عربستان وضعیت منطقه و آتش‌بس را بررسی کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120539
+
+<div align="center"><video src="telegram/content/alonews_120539.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120539.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈سی‌ان‌ان: ایران به کابل‌های اینترنتی تنگه هرمز چشم دوخته است!
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120538
 
@@ -47,261 +255,5 @@
 
 
 ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120535
-
-<div align="center"><video src="telegram/content/alonews_120535.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120535.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈توییت 6 ساعت پیش اتاق جنگ اسرائیل
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120534
-
-<div align="center"><video src="telegram/content/alonews_120534.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120534.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تایمز: انگلیس برای جنگ آماده می‌شود 
-🔴 یک رسانه انگلیسی از افزایش بودجه دفاعی انگلیس خبر داد و هدف از آن را آماده شدن برای جنگ های آینده اعلام کرد 
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120533
-
-<div align="center"><video src="telegram/content/alonews_120533.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120533.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تایمز: انگلیس برای جنگ آماده می‌شود
-
-
-🔴 یک رسانه انگلیسی از افزایش بودجه دفاعی انگلیس خبر داد و هدف از آن را آماده شدن برای جنگ های آینده اعلام کرد
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120532
-
-<div align="center"><video src="telegram/content/alonews_120532.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120532.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فعالیت غیرمعمول امروز هواپیماهای باری برای سوخت رسانی به جنگنده‌ها در منطقه خاورمیانه!
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120531
-
-<div align="center"><video src="telegram/content/alonews_120531.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120531.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ادغام کنکور سراسری و آزمون پذیرش دانشجو معلمان منتفی شد/ آزمون‌ها با شرایط سال قبل برگزار می‌شود.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120530
-
-<div align="center"><video src="telegram/content/alonews_120530.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120530.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈الجزیره: پاکسازی ۲۴ ژنرال آمریکایی در میانه جنگ با ایران
-
-
-
-🔴پیت هگست، وزیر جنگ ایالات متحده، در سه ماه گذشته بیش از ۲۴ ژنرال و دریاسالار را بدون ارائه دلایل روشن برکنار کرده است. این اقدام شامل روسای ستاد ارتش و نیروی دریایی و دیگر مقامات ارشد است و شائبه‌های سیاسی را تقویت می‌کند.
-
-
-🔴با ادامه بن‌بست مذاکرات با ایران، تصمیم‌گیری درباره عملیات نظامی یا محاصره دریایی پیچیده‌تر شده و پیام‌های واشنگتن به متحدان منطقه‌ای گیج‌کننده است. همزمان، وزارت جنگ درخواست افزایش بودجه‌ای نزدیک به ۵۰۰ میلیارد دلار کرده اما توضیح قانع‌کننده‌ای ارائه نکرده است.
-
-
-🔴 کارشناسان هشدار می‌دهند ادامه این وضعیت احتمال دستیابی به توافق سیاسی و موفقیت نظامی آمریکا را در منطقه کاهش می‌دهد.
-
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120529
-
-<div align="center"><video src="telegram/content/alonews_120529.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120529.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈قتل هولناک نوزاد ۴۰ روزه در مشهد!
-
-
-🔴مادر نوزاد می گوید: از خوزستان به مشهد آمدیم و سوئیتی را در خیابان نوغان اجاره کردیم.
-
-
-🔴دو روز قبل همسرم که مواد مخدر صنعتی مصرف می‌کند دچار توهم و بدبینی شد.
-
-
-🔴او ناگهان تصور کرد نوزاد متعلق به فرد دیگری است.
-
-
-🔴ماهی‌تابه حاوی تخم‌مرغ را برداشت و با آن ضربات هولناکی به سر نوزاد زد.
-
-
-🔴سپس با کف دستش چند ضربه دیگر به سر او کوبید.
-
-
-🔴بعد هم نوزاد را به شدت به زمین کوبید و باعث مرگش شد.
-
-
-🔴پس از این ماجرا جسد کودک را داخل یخچال مسافرخانه گذاشت.
-
-
-🔴او مرا تهدید کرد چیزی به کسی نگویم تا اینکه دو روز بعد موضوع را به صاحب سوئیت اطلاع دادم
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120528
-
-<div align="center"><video src="telegram/content/alonews_120528.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120528.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دولت ترامپ اجازه دارد معافیت تحریم‌ها بر نفت دریایی روسیه که در روز شنبه منقضی شود و مجوز موقت برای کشورهایی مانند هند برای ادامه خرید نفت خام روسیه را به پایان برساند.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120527
-
-<div align="center"><video src="telegram/content/alonews_120527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈آب و فاضلاب عسلویه : با توجه به تعمیرات ضروری در خط انتقال آب کوثر، آب شهرستان عسلویه از ساعت ۶ صبح روز دوشنبه، ۲۸ اردیبهشت‌ماه به مدت ۴۸ ساعت قطع خواهد شد
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120526
-
-<div align="center"><video src="telegram/content/alonews_120526.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120526.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈سی‌ان‌ان: کوبایی‌ها خود را برای «تهاجم آمریکا» آماده می‌کنند
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120525
-
-<div align="center"><video src="telegram/content/alonews_120525.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120525.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 کوثری، نماینده مجلس: ترامپ در جنگ با ایران درمانده شده است
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120523
-
-<div align="center"><video src="telegram/content/alonews_120523.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120523.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈یک پهپاد اوکراینی به ساختمانی در زلنگراد، منطقه مسکو روسیه برخورد کرد
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120522
-
-<div align="center"><video src="telegram/content/alonews_120522.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120522.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈حملات پهپادی اوکراینی فرودگاه بین‌المللی شرمتیه‌وو در منطقه مسکو روسیه را هدف قرار دادند.
-
-
-🔴 شرمتیه‌وو شلوغ‌ترین فرودگاه روسیه است
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120505
-
-<div align="center"><img src="telegram/content/alonews_120505.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عوستاد خوش چشم: باید آماده نبرد آخر بشیم
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120504
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈طی ۲۴ساعت گذشته تعداد زیادی ترابری آمریکا وارد منطقه شده است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120503
-
-<div align="center"><img src="telegram/content/alonews_120503.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈بابک تقوایی میلیتاریست معروف:
-انفجار در کارخانه «تومر» در بیت شمش، اسرائیل، کنترل نشده بود. این حادثه ناشی از یک حادثه بود. انباری که پرکلرات سدیم مورد نیاز برای تولید موتورهای موشک‌های زمین به هوا در آن قرار داشت، به دلایل نامعلومی منفجر شد.
-
-🔴به گفته منابع نظامی اسرائیلی من، این انفجار به دلیل حمله پهپاد یا موشک کروز نیروهای دشمن رخ نداده است.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120502
-
-<div align="center"><img src="telegram/content/alonews_120502.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥💥اینترنت آزاد و رایگان
-
-🌐🚫تنها جایی که کانفیگ رایگان میزاره
-
-⬇️⬇️
-@NetAazaadBot
-@NetAazaadBot
-
-⚠️هر ساعت 100گیگ شارژ میشه، رباتو داشته باشید تا مطلع بشید
 </div>
 
