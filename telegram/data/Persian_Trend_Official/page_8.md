@@ -1,8 +1,24 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/27 03:55
+📅 آخرین بروزرسانی: 1405/02/27 08:20
 
 ---
+
+## Persian_Trend_Official — post 14115
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14115.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14115.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢حمله حامیان جمهوری اسلامی به دو گردشگر چینی که در حال تهیه گزارش
+از شرایط کشور در زمان حملات بودند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14114
 
@@ -275,18 +291,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هر شب خواب رفیقای شهیدمو می‌بینم ! 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14090
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14090.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14090.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر شب خواب رفیقای شهیدمو می‌بینم !
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>
 

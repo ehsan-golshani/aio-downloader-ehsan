@@ -1,8 +1,39 @@
 # آرشیو کانال alonews - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/27 01:52
+📅 آخرین بروزرسانی: 1405/02/27 08:26
 
 ---
+
+## alonews — post 120438
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈کاخ سفید : همه گزینه ها در مورد ایران تو اختیار ترامپه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120437
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ادعای سی‌ان‌ان، به نقل از منابع آگاه:
+در دولت ترامپ نظرات متفاوتی در مورد چگونگی برخورد با ایران وجود دارد.
+
+🔴دولت ترامپ و مقامات پنتاگون بر حملات هدفمند اصرار دارند، در حالی که دیگران از دیپلماسی حمایت می‌کنند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120436
+
+<div align="center"><video src="telegram/content/alonews_120436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وضعیت جنوب لبنان دقایقی قبل ، پس از حملات اسرائیل
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120435
 
@@ -164,50 +195,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈امتحانات خرداد دانش‌آموزان پایه‌های هفتم تا دهم اصفهان غیرحضوری شد
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120418
-
-<div align="center"><img src="telegram/content/alonews_120418.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️کویت تصویر تسلیم شدن چهار پاسدار را منتشر کرد!
-
-🔴کویت با صدور بیانیه‌ای جمهوری اسلامی را به حمله به جزیره «بوبیان» با قایق‌های ماهیگیری  متهم کرد و اعلام کرد نیروهای سپاه پاسداران قصد خرابکاری داشتند؛ یک نظامی  کویتی در درگیری زخمی و ۴ تن از عناصر وابسته به سپاه دستگیر شدند.
-
-🔴چهار پاسدار احتمالا نیروی قدس با دیدن اولین اسلحه دست طرف مقابل تسلیم شدند !
-
-🔴دو سرهنگ، یک سرگرد و یک ستوان‌یکم.
-
-🤔عملیات آغاز نشده لو رفت و تسلیم شدند!
-
-✅@AloNews
-</div>
-
-## alonews — post 120417
-
-<div align="center"><video src="telegram/content/alonews_120417.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120417.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈هم اکنون گزارش رسانه های عربی از تحرکات بزرگ نظامی در سراسر خاورمیانه
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120416
-
-<div align="center"><video src="telegram/content/alonews_120416.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120416.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رویترز: به گفته دو منبع آگاه، در داخل کاخ سفید هیچ تلاشی برای متقاعد کردن ترامپ به خویشتنداری بیشتر در پیام‌هایش درباره ایران صورت نگرفته است
 
 
 ✅ @AloNews خبر جنگ

@@ -1,8 +1,24 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/27 03:45
+📅 آخرین بروزرسانی: 1405/02/27 08:09
 
 ---
+
+## FoxNewsTwitter — post 341714
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341714.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341714.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: President Trump gives a toast to President Xi and invites him to the White House for an official visit in September:
+
+"Thank you again, President Xi, for this beautiful welcome... It is my honor to extend an invitation to you and Madam Peng to visit us at the White House, September 24th, and we look forward to it."
+
+"I now like to raise a glass and propose a toast to the rich and enduring ties between the American and Chinese people. It's a very special relationship, and I want to thank you again. This has been an amazing period of time. Thank you, President Xi."
+</div>
 
 ## FoxNewsTwitter — post 341713
 
@@ -261,17 +277,5 @@ NOW: President Trump says "it's an honor" after meeting Chinese President Xi Jin
 Fox News (Twitter/X)
 
 NOW: President Trump thanks Chinese President Xi Jinping for welcoming him to Beijing, saying he was particularly impressed with the crowd of cheering children during the welcome ceremony.
-</div>
-
-## FoxNewsTwitter — post 341694
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341694.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341694.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump watches a ceremony with Chinese President Xi Jinping after arriving at the Great Hall of People in Beijing.
 </div>
 

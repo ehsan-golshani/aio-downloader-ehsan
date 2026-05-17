@@ -1,8 +1,36 @@
 # آرشیو کانال alonews - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/02/27 01:52
+📅 آخرین بروزرسانی: 1405/02/27 08:26
 
 ---
+
+## alonews — post 120167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: میتوانیم نیروگاه‌های ایران را تنها در دو روز از بین ببریم
+
+🔴اگر ایران اورانیوم های غنی شده خودش رو تحویل نده وارد ایران میشیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: ما ارتش ایران را نابود کرده‌ایم و شاید باید یک پاکسازی سبک انجام دهیم.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ: وقتی به پیشنهاد ایران نگاه کردم، جمله اول را دوست نداشتم و قابل قبول نبود، بنابراین پیشنهاد را رد کردم
+
+🔴تحقیقات درباره هدف قرار دادن مدرسه در ایران در حال انجام است
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120164
 
@@ -182,54 +210,6 @@
 
 🔴امارات هم‌اکنون نیز یک خط لوله با ظرفیت روزانه ۱.۵ میلیون بشکه از میادین نفتی داخلی به بندر فجیره در اختیار دارد.
 
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120115
-
-<div align="center"><video src="telegram/content/alonews_120115.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120115.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈عراقچی : مشکل اصلی اینه که آمریکا هر روز یه حرف می‌زنه و پیام‌های ضدونقیض می‌فرسته
-
-
-🔴در مورد ایران هیچ راه‌حل نظامی‌ای جواب نمی‌ده
-
-
-🔴 این همه مدت هی تهدید کردن، ولی نه نتیجه‌ای گرفتن نه از جنگی که راه انداختن چیزی گیرشون اومد
-
-
-🔴هرچی بیشتر تهدید کنن، بیشتر شکست می‌خورن.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120114
-
-<div align="center"><video src="telegram/content/alonews_120114.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120114.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈هواپیماهای باری نظامی آذربایجان از طریق حریم هوایی ترکیه به سمت تل آویو در حرکت هستند.
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120113
-
-<div align="center"><video src="telegram/content/alonews_120113.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120113.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈جنوب لبنان، ساعاتی قبل
 
 
 ✅ @AloNews خبر جنگ

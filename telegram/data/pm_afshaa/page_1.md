@@ -1,8 +1,21 @@
 # آرشیو کانال pm_afshaa - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 03:45
+📅 آخرین بروزرسانی: 1405/02/27 08:10
 
 ---
+
+## pm_afshaa — post 90879
+
+<div align="center"><img src="telegram/content/pm_afshaa_90879.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+توییت جدید اتاق جنگ اسرائیل:
+
+⌛
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90877
 
@@ -207,11 +220,5 @@ conquestback
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90853
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت تبلیغات با بازدهی بالا میتونین دایرکت کانال پیام بدین
 </div>
 

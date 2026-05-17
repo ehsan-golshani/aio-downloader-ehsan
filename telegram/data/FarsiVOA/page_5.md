@@ -1,8 +1,27 @@
 # آرشیو کانال FarsiVOA - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/27 03:54
+📅 آخرین بروزرسانی: 1405/02/27 08:18
 
 ---
+
+## FarsiVOA — post 217855
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️پیام واشنگتن به زیدی: شراکت، مشروط به مهار گروه‌های وابسته به جمهوری اسلامی و نابودی تروریسم است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217854
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺واکنش نماینده آمریکا در سازمان ملل به ویدیوی آلودگی نفتی در سواحل ایران؛ جمهوری اسلامی «به محیط زیست نیز حمله می‌کند»
+
+◾️مایک والتز، نماینده آمریکا در سازمان ملل متحد، روز جمعه ویدیویی را که گفته می‌شود مربوط به آلودگی نفتی در سواحل ایران در خلیج فارس است، بازنشر کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150486.html
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217853
 
@@ -156,19 +175,5 @@ https://ir.voanews.com/a/iran-israel-hezbollah-lebanon-washington/8150375.html
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بررسی جزئیات درگیری لفظی نمایندگان جمهوری اسلامی و امارات در کنفرانس بریکس در گفت‌و‌گو با موسی شریفی، خبرنگار شبکه العربیه و تحلیل‌گر امور جهان عرب
-</div>
-
-## FarsiVOA — post 217835
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت ترامپ: در حال بررسی لغو تحریم‌ها علیه شرکت‌های چینی خریدار نفت ایران هستم
-</div>
-
-## FarsiVOA — post 217834
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارشی از مایکل لیپین، ‌خبرنگار صدای آمریکا، از پکن درباره سفر تاریخی دونالد ترامپ، رئیس جمهوری آمریکا، به چین.
-
-@FarsiVOA
 </div>
 

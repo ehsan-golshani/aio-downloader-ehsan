@@ -1,8 +1,38 @@
 # آرشیو کانال alonews - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 01:52
+📅 آخرین بروزرسانی: 1405/02/27 08:26
 
 ---
+
+## alonews — post 120461
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢فوری/گزارش‌ها از پرواز جنگنده‌های اسرائیلی به مقصد نامعلوم 🚨 @AkhbareFouri
+</div>
+
+## alonews — post 120460
+
+<div align="center"><img src="telegram/content/alonews_120460.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈یک افسر اسرائیلی از گردان جولان در جنوب لبنان پس از انفجار یک خودروی بمب‌گذاری شده کشته شد و به گفته ارتش اسرائیل و رسانه‌های اسرائیلی، تعداد کل کشته‌های ارتش اسرائیل در لبنان از آغاز جنگ به ۲۰ نفر رسید
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈وال استریت ژورنال: ایران و آمریکا بر سر یک موضوع توافق دارند: فعلا درباره سرنوشت ذخایر اورانیوم گفتگو نشود
+
+
+🔴در حالی که بن‌بست دیپلماتیک بین تهران و واشنگتن ادامه دارد، یک نقطه اشتراک وجود دارد: هر دو طرف می‌گویند که در حال حاضر درباره سرنوشت ذخایر اورانیوم غنی‌شده ایران بحث نمی‌کنند.
+
+🔴دونالد ترامپ، رئیس‌جمهور آمریکا، روز جمعه دوباره در هواپیمای ایرفورس وان ادعا کرد که ایران گفته بود مواد شکافت‌پذیر را به واشنگتن تحویل خواهد داد و سپس از این کار سرباز زده است، ادعایی که تهران آن را رد کرده است. اما ترامپ ادعا کرد ایران معتقد است که به‌تنهایی نمی‌تواند این مواد را به صورت فیزیکی جابه‌جا کند، بنابراین این موضوع فعلاً از دستور کار خارج شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120458
 
@@ -185,37 +215,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈معاریو: ترامپ در آستانه چراغ سبز به اسرائیل برای ازسرگیری حملات است
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120438
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کاخ سفید : همه گزینه ها در مورد ایران تو اختیار ترامپه
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120437
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ادعای سی‌ان‌ان، به نقل از منابع آگاه:
-در دولت ترامپ نظرات متفاوتی در مورد چگونگی برخورد با ایران وجود دارد.
-
-🔴دولت ترامپ و مقامات پنتاگون بر حملات هدفمند اصرار دارند، در حالی که دیگران از دیپلماسی حمایت می‌کنند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120436
-
-<div align="center"><video src="telegram/content/alonews_120436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وضعیت جنوب لبنان دقایقی قبل ، پس از حملات اسرائیل
 
 ✅ @AloNews خبر جنگ
 </div>

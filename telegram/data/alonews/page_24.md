@@ -1,8 +1,34 @@
 # آرشیو کانال alonews - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/02/27 01:52
+📅 آخرین بروزرسانی: 1405/02/27 08:26
 
 ---
+
+## alonews — post 119864
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈تایوان: واشنگتن حمایت آشکار و قاطع خود را از این جزیره تجدید کرد.
+
+🔴تایوان اعلام کرد که ایالات متحده «حمایت آشکار و قاطع» خود را از این جزیره تجدید می‌کند.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119863
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عدد جدید از خسارت قطعی ۷۴ روزه اینترنت ایران؛ ۳۰۰ تا ۷۰۰ هزار میلیارد تومان
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119862
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ارتش اسرائیل دستور تخلیه 8 شهرک و روستا در دره بقاع و جنوب لبنان را صادر کرد
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119861
 
@@ -180,42 +206,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈خوش‌چشم: ترامپ رفته چین التماس کنه تا میانجی بشه که ایران جنگ رو تموم کنه
 
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119826
-
-<div align="center"><video src="telegram/content/alonews_119826.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_119826.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈تمرینه بمب‌افکنِ " B-52 " و فرود به پایگاه فِرفورد بریتانیا
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119825
-
-<div align="center"><img src="telegram/content/alonews_119825.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈بابک زنجانی: در تاریخ ۲۸ خرداد، شبکه اجتماعی مای دات به‌صورت فراگیر برای عموم بازگشایی و طی مراسمی در برج میلاد رونمایی خواهد شد.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119824
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈روزنامه South China Morning Post: شرکت تصاویر ماهواره‌ای چینی MizarVision که با تحلیل‌های خود از استقرارهای نظامی آمریکا در جنگ آمریکا و اسرائیل علیه ایران به شهرت رسید، افزوده شدن خود به فهرست تحریم‌های آمریکا را به عنوان نشان افتخاری در کمپین استخدامی خود به کار می‌برد.
-
-
-🔴این استارت‌آپ اطلاعاتی با منابع باز (OSINT) که با نام رسمی Meentropy Technology Hangzhou Co Ltd شناخته می‌شود، در تحلیل داده‌های ماهواره‌های تجاری تخصص دارد و در ماه‌های اخیر چندین بار تحرکات نظامی آمریکا را رصد کرده است.
-
-🔴این شرکت روز جمعه به فهرست تحریم وزارت خزانه‌داری آمریکا اضافه شد که در  پی انتشار «تصاویر با منبع باز که جزئیات فعالیت نظامی آمریکا را در جریان عملیات خشم حماسی (Epic Fury) نشان می‌داد»، صورت گرفته است
-
-﻿
 ✅ @AloNews خبر جنگ
 </div>
 

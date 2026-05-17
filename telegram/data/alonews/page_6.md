@@ -1,8 +1,49 @@
 # آرشیو کانال alonews - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/27 01:52
+📅 آخرین بروزرسانی: 1405/02/27 08:26
 
 ---
+
+## alonews — post 120391
+
+<div align="center"><video src="telegram/content/alonews_120391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عارف: ما از حق حاکمیت خود در تنگه هرمز گذشته بودیم و اجازه دادیم از تنگه‌ای که متعلق به ایران است تجهیزات نظامی که قرار بود علیه ما استفاده کنند، عبور دهند؛ دیگر این کار را نمی‌کنیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120384
+
+<div align="center"><video src="telegram/content/alonews_120384.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120384.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈منابع رسمی پاکستانی به الحدث: اسلام‌آباد به دنبال قانع کردن تهران و واشنگتن به «انعطاف» در مذاکره است.
+
+
+🔴اسلام‌آباد به دنبال ادامه روند میانجی‌گری با تمام «جدیّت» است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120383
+
+<div align="center"><video src="telegram/content/alonews_120383.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120383.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈قطعی اینترنت وارد روز ۷۸ام شد
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120382
 
@@ -182,42 +223,6 @@ https://t.me/+WgqzouUHJ1U3OTY0
 👈فارس مدعی شد: یک نفتکش غول‌پیکر چینی که از تنگهٔ هرمز عبور کرده بود، خارج از خط محاصرهٔ آمریکا رویت شد.
 
 🔴این نفتکش پیش از آغاز مذاکرات رئیس‌جمهور چین و ترامپ درحال عبور از مسیر تعیین‌شدهٔ ایران در تنگهٔ هرمز در کنار جزیرهٔ لارک دیده شده بود.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120365
-
-<div align="center"><img src="telegram/content/alonews_120365.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ناو شارل دوگل فرانسه، خروجی خلیج عدن - ورودی دریای عرب دیده شده
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120364
-
-<div align="center"><video src="telegram/content/alonews_120364.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120364.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فرماندهی کل نیروی دفاعی بحرین : برای حمله احتمالی جمهوری اسلامی، تو آماده‌باش سطح بالا قرار داریم
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120362
-
-<div align="center"><video src="telegram/content/alonews_120362.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120362.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری / شبکه فاکس نیوز: ارتش آمریکا درحال آماده شدن برای دور جدیدی از درگیری های نظامی در ایران است
-
 
 ✅ @AloNews خبر جنگ
 </div>

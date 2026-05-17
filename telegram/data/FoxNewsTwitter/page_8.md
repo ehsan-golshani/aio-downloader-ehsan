@@ -1,8 +1,22 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/27 03:45
+📅 آخرین بروزرسانی: 1405/02/27 08:09
 
 ---
+
+## FoxNewsTwitter — post 341671
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341671.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Senate confirms Kevin Warsh as Federal Reserve Chair in a 54–45 vote.
+
+Warsh replaces Jerome Powell, who will stay on the board as a Fed governor, despite repeated criticism from President Trump, who has been pushing the Fed to cut rates and accused Powell of making decisions "too late."
+
+Democrat John Fetterman was the only member of his party to join Republicans as the lone vote from his party to back Trump’s pick.
+</div>
 
 ## FoxNewsTwitter — post 341670
 

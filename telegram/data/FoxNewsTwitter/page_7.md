@@ -1,8 +1,20 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/27 03:45
+📅 آخرین بروزرسانی: 1405/02/27 08:09
 
 ---
+
+## FoxNewsTwitter — post 341694
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341694.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341694.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: President Trump watches a ceremony with Chinese President Xi Jinping after arriving at the Great Hall of People in Beijing.
+</div>
 
 ## FoxNewsTwitter — post 341693
 
@@ -278,19 +290,5 @@ JUST NOW: VP Vance makes an 'Apprentice' joke when asked about President Trump d
 "I just think that's not at all what you would expect the president to do."
 
 "I think it's natural for him to joke around with us a little bit to play around with the idea. But I can tell you the president is as focused as any of us on making sure we do as good of a job now for the American people."
-</div>
-
-## FoxNewsTwitter — post 341671
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341671.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: Senate confirms Kevin Warsh as Federal Reserve Chair in a 54–45 vote.
-
-Warsh replaces Jerome Powell, who will stay on the board as a Fed governor, despite repeated criticism from President Trump, who has been pushing the Fed to cut rates and accused Powell of making decisions "too late."
-
-Democrat John Fetterman was the only member of his party to join Republicans as the lone vote from his party to back Trump’s pick.
 </div>
 

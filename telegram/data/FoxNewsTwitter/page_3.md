@@ -1,8 +1,16 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 03:45
+📅 آخرین بروزرسانی: 1405/02/27 08:09
 
 ---
+
+## FoxNewsTwitter — post 341783
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌Fox News (Twitter/X)
+
+https://www.foxnews.com/politics/longtime-democratic-rep-steve-cohen-announces-end-re-election-bid
+</div>
 
 ## FoxNewsTwitter — post 341782
 
@@ -260,15 +268,5 @@ NOW: President Trump says he and Chinese President Xi "feel very similar on Iran
 Fox News (Twitter/X)
 
 NOW: President Trump says he and Chinese President Xi agree they do not want Iran to obtain a nuclear weapon and want the Strait of Hormuz to remain open.
-</div>
-
-## FoxNewsTwitter — post 341760
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341760.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-MOMENTS AGO: President Trump meets with President Xi Jinping in China https://twitter.com/i/broadcasts/1RJjpznjbDVKw
 </div>
 

@@ -1,8 +1,48 @@
 # آرشیو کانال alonews - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/02/27 01:52
+📅 آخرین بروزرسانی: 1405/02/27 08:26
 
 ---
+
+## alonews — post 119919
+
+<div align="center"><video src="telegram/content/alonews_119919.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119919.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈حرکات عجیب ایلان ماسک بعد مستی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119918
+
+<div align="center"><video src="telegram/content/alonews_119918.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119918.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ترامپ از شی جین‌پینگ دعوت کرد تا در تاریخ ۲۴ سپتامبر از کاخ سفید بازدید کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119917
+
+<div align="center"><video src="telegram/content/alonews_119917.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_119917.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈صداوسیما به‌نقل از نیروی دریایی سپاه:
+از شب گذشته تاکنون ۳۰ فروند کشتی از تنگۀ هرمز با مجوز ایران عبور کرده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 119916
 
@@ -188,32 +228,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈 قیمت طلا با دیدار ترامپ و شی جین‌پینگ صعود کرد/ افت نقره و عقب‌نشینی سایر فلزات گرانبها
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119899
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دیدار عراقچی با نخست وزیر هند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119898
-
-<div align="center"><img src="telegram/content/alonews_119898.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈یدیعوت آحارانوت به نقل از یک منبع نظامی: سربازان در لبنان با زره و کلاه ایمنی در حال رفت و آمد هستند و نمی‌دانند چه زمانی ممکن است پهپادها به آنها حمله کنند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 119897
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈مدیر سرویس اطلاعات خارجی روسیه: هیچ نشانه ای از پایان درگیری نظامی بر سر ایران وجود ندارد و نمی توان موج جدیدی از تشدید تنش را رد کرد
 
 ✅ @AloNews خبر جنگ
 </div>

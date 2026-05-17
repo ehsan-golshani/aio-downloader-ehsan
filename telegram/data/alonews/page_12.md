@@ -1,8 +1,38 @@
 # آرشیو کانال alonews - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/27 01:52
+📅 آخرین بروزرسانی: 1405/02/27 08:26
 
 ---
+
+## alonews — post 120245
+
+<div align="center"><video src="telegram/content/alonews_120245.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120245.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈محل ترور عزالدین حداد فرمانده گردان های القسام در شهر غزه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120244
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈رضا سپهوند، عضو کمیسیون انرژی مجلس: یه دلیل بمباران جنگ، روزانه ۳۰ میلیون لیتر کمبود بنزین داریم و در کوتاه‌مدت هم امکان افزایش تولید وجود ندارد، راهی جز صرفه جویی نداریم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120243
+
+<div align="center"><img src="telegram/content/alonews_120243.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری / ارتش اسرائیل : عزالدین الحداد فرمانده گردان‌های القسام، همراه با محافظ‌هاش ترور شد
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120242
 
@@ -166,35 +196,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈رسایی:
 هر صحبت یا مذاکره‌ای باید با اجازه مجلس باشه
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120217
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈فروش کانفیگ متصل پایدار با ساب و مورد تایید مجموعه الونیوز⬇️
-
-
-🔔@FastProxyMakerBot
-
-🔔@FastProxyMakerBot
-
-✔️با خیال راحت و بدون دغدغه خرید کنید
-</div>
-
-## alonews — post 120216
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈بلومبرگ: امارات به دنبال پاسخ هماهنگ به ایران بود، اما عربستان و قطر با آن همراهی نکردند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120215
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈وزیر امور خارجه پاکستان: یازده پاکستانی و ۲۰ ایرانی که در کشتی‌های توقیف شده توسط نیروهای آمریکایی بودند، آزاد شده‌اند
 
 ✅ @AloNews خبر جنگ
 </div>

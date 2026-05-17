@@ -1,8 +1,14 @@
 # آرشیو کانال pm_afshaa - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 03:45
+📅 آخرین بروزرسانی: 1405/02/27 08:10
 
 ---
+
+## pm_afshaa — post 90853
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت تبلیغات با بازدهی بالا میتونین دایرکت کانال پیام بدین
+</div>
 
 ## pm_afshaa — post 90852
 
@@ -184,31 +190,5 @@
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90833
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👩‍💻کانفیگ اضطراری موجود شد!
-
-🛍 V2RAY - ( پر سرعت - تضمینی )
-
-• 1G 260 💵
-• 2G 500💵
-• 3G 740💵
-• 4G 980💵
-• 5G 1.200💵
-• 10G 2.300💵
-• 20G 4.400💵
-• 30G 6.400💵
-
-✅ساب لینک جهت بررسی حجم ارسال میشود
-✔️اتصال ۹۸ درصد اپتایم
-✔️با سرعت اپلود و دانلود بالا
-✔️بدونه محدودیت زمانی و کاربر
-🔥عودت وجه در صورت قطعی
-
-✅پشتیبانی فروش:
-@N9NEEbot
 </div>
 

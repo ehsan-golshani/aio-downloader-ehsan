@@ -1,8 +1,44 @@
 # آرشیو کانال alonews - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/27 01:52
+📅 آخرین بروزرسانی: 1405/02/27 08:26
 
 ---
+
+## alonews — post 120365
+
+<div align="center"><img src="telegram/content/alonews_120365.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈ناو شارل دوگل فرانسه، خروجی خلیج عدن - ورودی دریای عرب دیده شده
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120364
+
+<div align="center"><video src="telegram/content/alonews_120364.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120364.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈فرماندهی کل نیروی دفاعی بحرین : برای حمله احتمالی جمهوری اسلامی، تو آماده‌باش سطح بالا قرار داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120362
+
+<div align="center"><video src="telegram/content/alonews_120362.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120362.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری / شبکه فاکس نیوز: ارتش آمریکا درحال آماده شدن برای دور جدیدی از درگیری های نظامی در ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120361
 
@@ -202,45 +238,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈سخنگوی وزارت کشور: از نمایندگان مجلس توقع داریم در اظهارنظرهای خود در موضوعات مختلف بیشتر دقت کنند؛ انسجام ملی باید حفظ شود
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120343
-
-<div align="center"><video src="telegram/content/alonews_120343.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120343.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ترامپ: نام افرادی را که در نزدیکی اورانیوم های غنی‌شده ایران هستند، می‌دانیم. پنجاه درصدشان اسمشان محمد است!
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120342
-
-<div align="center"><video src="telegram/content/alonews_120342.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120342.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈پراید هم رویا شد ...
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120340
-
-<div align="center"><video src="telegram/content/alonews_120340.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120340.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈ارتش اوکراین بامداد امروز با استفاده از پهپاد های خود حمله‌ای به یک کارخانه شیمیایی در منطقه نوینومیسک انجام داد که این کارخانه به طور فعال مواد منفجره را برای صنایع نظامی روسیه تولید می‌کرد و همچنین کارخانه صنایع فلزی متالیست پلاس در نابورژنیه چلنی روسیه نیز مورد حمله قرار گرفت.
 
 
 ✅ @AloNews خبر جنگ

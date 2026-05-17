@@ -1,8 +1,22 @@
 # آرشیو کانال FarsiVOA - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/27 03:54
+📅 آخرین بروزرسانی: 1405/02/27 08:18
 
 ---
+
+## FarsiVOA — post 217679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️شروط آمریکا برای عادی‌سازی روابط با طالبان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️تازه‌ترین مواضع قانون‌گذاران آمریکایی در کنگره
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217677
 
@@ -175,30 +189,6 @@ https://ir.voanews.com/a/8149643.html
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️وقوع زلزله‌های متعدد در استان تهران نشانه چیست و شهروندان باید چه کنند؟ گفت‌وگو با عطارد عزیزی نمینی
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217659
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺وزیر انرژی آمریکا: رژیم ایران «به‌طرزی نگران‌کننده‌» به سلاح هسته‌ای نزدیک شده است
-
-▪️کریس رایت، وزیر انرژی ایالات متحده، روز چهارشنبه ۲۳ اردیبهشت هشدار داد که رژیم ایران به مرحله‌ای «بسیار نگران‌کننده» در برنامه هسته‌ای خود رسیده است و تنها چند هفته با تولید اورانیوم در سطح تسلیحاتی فاصله دارد.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/nypost-chris-wright-iran-close-to-nuclear-weapon/8149630.html
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217658
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺نتیجه منفی آزمایش‌ها در ایتالیا و اسپانیا برای یافتن رد پای جهانی ویروس هانتا
-
-▪️وزارت‌ بهداشت دو کشور ایتالیا و اسپانیا، روز چهارشنبه ۲۳ اردیبهشت، اعلام کردند نتیجه آزمایش‌های هفده نفری که مشکوک به ابتلا به ویروس هانتا بودند، منفی بوده‌ است. این در حالی است که دولت‌های جهان همچنان به هدف جلوگیری از گسترش این ویروس در تلاش ردیابی موارد احتمالی ابتلا به بیماری هستند.
-
-⬇️ بیشتر بخوانید:
-https://ir.voanews.com/a/hantavirus-cruise-spain-france-health-test/8149628.html
 @FarsiVOA
 </div>
 

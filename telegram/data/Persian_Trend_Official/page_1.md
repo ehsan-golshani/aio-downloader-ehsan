@@ -1,8 +1,22 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 03:55
+📅 آخرین بروزرسانی: 1405/02/27 08:20
 
 ---
+
+## Persian_Trend_Official — post 14282
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14282.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14282.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ☕️🔥
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14281
 
@@ -216,29 +230,6 @@ https://youtube.com/live/Lj3xWW7IbLA?feature=share
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💢پست جدید ترامپ و تمسخر دوباره پهپاد های جمهوری اسلامی ...
-
-🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14261
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مهم‌ترین تحولات منطقه
-
-▪️ حماس تأیید کرد «عزالدین الحداد» فرمانده شاخه نظامی گردان‌های قسام، در حمله روز جمعه اسرائیل به غزه کشته شده است
-
-▪️ وزیر کشور پاکستان در سفری غیرمنتظره به تهران با همتای ایرانی خود درباره ثبات منطقه‌ای
-و همکاری‌های دوجانبه گفت‌وگو کرد.
-
-▪️ فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرد در ادامه محاصره بنادر ایران، مسیر حرکت ۷۸ کشتی تجاری را تغییر داده است
-
-▪️ اسرائیل حملات خود به لبنان را با وجود آتش‌بس ادامه داد؛ در حملات جدید دست‌کم ۳ نفر در جنوب لبنان کشته شدند
-
-▪️ وزارت بهداشت لبنان اعلام کرد از اوایل مارس تاکنون
-۲۹۶۹ نفر در حملات اسرائیل کشته و ۹۱۱۲ نفر زخمی شده‌اند.
 
 🫆:Tony
 

@@ -1,8 +1,21 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/27 03:55
+📅 آخرین بروزرسانی: 1405/02/27 08:20
 
 ---
+
+## Persian_Trend_Official — post 14090
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14090.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14090.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر شب خواب رفیقای شهیدمو می‌بینم !
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14087
 
@@ -363,20 +376,5 @@ https://youtube.com/live/xKXwDy6wYig?feature=share
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تا ده دقیقه دیکه لایو آغاز میشه
-</div>
-
-## Persian_Trend_Official — post 14068
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 رویترز مدعی حملات جنگنده‌های سعودی به مواضع گروه‌های عراقی شد
-
-💢خبرگزاری رویترز به‌نقل از منابعی مدعی شد جنگنده‌های عربستان سعودی در جریان جنگ اخیر، مواضع گروه‌های مسلح عراقی را هدف قرار داده‌اند.
-
-تاکنون نیز عربستان سعودی به‌صورت رسمی واکنشی به این ادعا نشان نداده است.
-
-🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>
 

@@ -1,8 +1,18 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/27 03:45
+📅 آخرین بروزرسانی: 1405/02/27 08:09
 
 ---
+
+## FoxNewsTwitter — post 341760
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341760.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+MOMENTS AGO: President Trump meets with President Xi Jinping in China https://twitter.com/i/broadcasts/1RJjpznjbDVKw
+</div>
 
 ## FoxNewsTwitter — post 341759
 
@@ -282,23 +292,5 @@ Fox News (Twitter/X)
 Eric Church returned to his alma mater, UNC Chapel Hill, and gave graduates a message bigger than music:
 
 The country star told graduates that faith is the “low E” of life: the foundation every chord rests on, especially when the world gets overwhelming.
-</div>
-
-## FoxNewsTwitter — post 341740
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341740.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341740.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-FIRST ON FOX: Buster Murdaugh was spotted Thursday on the porch of his South Carolina home, one day after the South Carolina Supreme Court ruled that misconduct by a court official tainted his father, Alex Murdaugh’s, 2023 trial.
-
-The ruling overturned Alex Murdaugh’s murder conviction, which had sent him to prison for life.
-
-Despite the legal win Wednesday, Murdaugh will not be walking free - he remains behind bars serving lengthy sentences for a string of financial crimes that cemented his fall from power.
-
-Murdaugh was sentenced to 27 years in state prison after pleading guilty to 22 financial crimes. He also got 40 years in federal prison for fraud-related charges, which he is serving at the same time. | @FoxTrueCrime @FoxUSNews
 </div>
 

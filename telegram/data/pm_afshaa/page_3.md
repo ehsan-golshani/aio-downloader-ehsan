@@ -1,8 +1,34 @@
 # آرشیو کانال pm_afshaa - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 03:45
+📅 آخرین بروزرسانی: 1405/02/27 08:10
 
 ---
+
+## pm_afshaa — post 90833
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👩‍💻کانفیگ اضطراری موجود شد!
+
+🛍 V2RAY - ( پر سرعت - تضمینی )
+
+• 1G 260 💵
+• 2G 500💵
+• 3G 740💵
+• 4G 980💵
+• 5G 1.200💵
+• 10G 2.300💵
+• 20G 4.400💵
+• 30G 6.400💵
+
+✅ساب لینک جهت بررسی حجم ارسال میشود
+✔️اتصال ۹۸ درصد اپتایم
+✔️با سرعت اپلود و دانلود بالا
+✔️بدونه محدودیت زمانی و کاربر
+🔥عودت وجه در صورت قطعی
+
+✅پشتیبانی فروش:
+@N9NEEbot
+</div>
 
 ## pm_afshaa — post 90832
 
@@ -208,22 +234,6 @@
 از جمله گزینه‌ها، اعزام نیروهای ویژه به ایران برای هدف قرار دادن مواد هسته‌ای مدفون شده است و ممکنه از نیروهای ویژه برای کنترل جزیره خارک استفاده بشه.
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90813
-
-<div align="center"><video src="telegram/content/pm_afshaa_90813.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/pm_afshaa_90813.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏
-🔴مایک والتز، سفیر آمریکا در سازمان ملل: یکی از نتایج بزرگ سفر ترامپ به چین این بود که چین موافقت کرده از ایران فاصله بگیره.
-
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-
 😁 @Pm_Afshaa
 </div>
 

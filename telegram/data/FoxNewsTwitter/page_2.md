@@ -1,8 +1,24 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 03:45
+📅 آخرین بروزرسانی: 1405/02/27 08:09
 
 ---
+
+## FoxNewsTwitter — post 341805
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341805.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341805.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+NOW: “All I can say is, that was a great success.”
+
+President Trump returned to the White House after his trip to China, telling reporters “we made great deals” and calling the visit a historic moment.
+
+Then he teased more to come: “A lot of things have happened and you’ll be hearing about them.”
+</div>
 
 ## FoxNewsTwitter — post 341804
 
@@ -255,13 +271,5 @@ Cardinal Dolan delivers a heartfelt message to the New York faithful during a go
 The Cardinal reflected on nearly two decades of service, calling the people of New York his "family" and offering a humble assessment of his many years in the church.
 
 "After 17 happy years, you're my family, you're my friends, and I love you, and I thank you. I thank you so much... Without Jesus, I could've done nothing. Without you, none of the meager accomplishments you so graciously pointed out could've ever happened."
-</div>
-
-## FoxNewsTwitter — post 341783
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌Fox News (Twitter/X)
-
-https://www.foxnews.com/politics/longtime-democratic-rep-steve-cohen-announces-end-re-election-bid
 </div>
 

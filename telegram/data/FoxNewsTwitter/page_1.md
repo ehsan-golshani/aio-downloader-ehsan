@@ -1,8 +1,24 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 03:45
+📅 آخرین بروزرسانی: 1405/02/27 08:09
 
 ---
+
+## FoxNewsTwitter — post 341828
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341828.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Senator Bill Cassidy has been defeated.
+
+More than five years after voting to convict President Trump in his impeachment trial, the Louisiana Republican senator has lost in his GOP primary.
+
+In a Truth Social post, Trump reacted, saying “his disloyalty to the man who got him elected is now a part of legend, and it’s nice to see that his political career is OVER!”
+
+Trump-backed Rep. Julia Letlow and Louisiana Treasurer John Fleming finished ahead of Cassidy, according to the AP, and will now face off in next month’s runoff.
+</div>
 
 ## FoxNewsTwitter — post 341827
 
@@ -249,21 +265,5 @@ Fox News (Twitter/X)
 Countless bees swarmed outside the White House, near the press corps' media area, on Friday.
 
 About 20 minutes later, the bees swarmed a hive on a tree on the North Lawn.
-</div>
-
-## FoxNewsTwitter — post 341805
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341805.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341805.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: “All I can say is, that was a great success.”
-
-President Trump returned to the White House after his trip to China, telling reporters “we made great deals” and calling the visit a historic moment.
-
-Then he teased more to come: “A lot of things have happened and you’ll be hearing about them.”
 </div>
 

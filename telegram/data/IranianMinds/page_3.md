@@ -1,8 +1,26 @@
 # آرشیو کانال IranianMinds - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 02:49
+📅 آخرین بروزرسانی: 1405/02/27 08:21
 
 ---
+
+## IranianMinds — post 20219
+
+<div align="center"><video src="telegram/content/IranianMinds_20219.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20219.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباس یه بار فقط بگو بله مامان 😭
+
+🔴 جاوید نام عباس کشاورز ۳۹ ساله اهل روستای لفمجان لاهیجان پدر ارشا ۱۲ ساله …
+
+او در شب ۱۹ دی ۱۴۰۴ در جریان اعتراضات در شهر رشت، در محدوده میدان صیقلان، با شلیک مستقیم گلوله کشته شد.
+
+جاویدنامان فراموش نمیشوند.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20218
 
@@ -238,29 +256,5 @@ https://iranopasmigirim.com/fa/transitional-justice
 ➖➖➖➖➖➖➖➖➖
 🪙همین حالا عضو شوید 👇
 https://t.me/+aCbq7yy8QY80NzQ0
-</div>
-
-## IranianMinds — post 20198
-
-<div align="center"><img src="telegram/content/IranianMinds_20198.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
-
-👍دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-ge25
-🔔کانال دربی بت :
-🪙https://t.me/+aCbq7yy8QY80NzQ0
 </div>
 

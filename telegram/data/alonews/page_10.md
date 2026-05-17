@@ -1,8 +1,60 @@
 # آرشیو کانال alonews - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/02/27 01:52
+📅 آخرین بروزرسانی: 1405/02/27 08:26
 
 ---
+
+## alonews — post 120292
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعرفه سرویس های Vip ⭕️ ✅ 1 گیگابایت ⬅️ 250/000 تومان ✅ 3 گیگابایت ⬅️ 750/000 تومان استارلینک Vip 💫 🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات) ⭐️ 5 گیگابایت ⬅️ 1/400/000 تومان ⭐️ 10 گیگابایت ⬅️ 2/800/000 تومان ویژگی های سرویس های Vip : ❤️‍🔥 ✅ متصل…
+</div>
+
+## alonews — post 120291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعرفه سرویس های Vip 
+⭕️
+
+
+✅ 1 گیگابایت 
+⬅️ 250/000 تومان
+✅ 3 گیگابایت ⬅️ 750/000 تومان
+
+استارلینک Vip 
+💫 
+🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات)
+
+
+⭐️ 5 گیگابایت 
+⬅️ 1/400/000 تومان
+⭐️ 10 گیگابایت ⬅️ 2/800/000 تومان
+
+ویژگی های سرویس های Vip : ❤️‍🔥
+✅ متصل در تمامی دستگاه و اپراتور ها
+✅ مناسب استفاده روزمره در تمامی برنامه ها
+✅ دارای ساب برای اطلاع لحظه ای باقیمانده
+✅ تک لینک بدون نیاز به بروزرسانی های متعدد
+ برای خرید از پشتیبانی به ایدی زیر پیام بدید.👇
+
+🔤 @expressuport
+
+خرید فوری از ربات.👇
+
+🔤 @vpn_express_sup_bot
+</div>
+
+## alonews — post 120290
+
+<div align="center"><video src="telegram/content/alonews_120290.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120290.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈مجریان بیسواد صدا و سیما برداشتن یه تصویر هوش مصنوعی رو گذاشتن و دارن تحلیلش میکنن!
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120289
 
@@ -187,40 +239,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈امیر قطر و محمد بن سلمان، ولیعهد عربستان سعودی در یک گفت وگوی تلفنی درباره آخرین تحولات منطقه با یکدیگر گفتگو کردند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120271
-
-<div align="center"><video src="telegram/content/alonews_120271.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120271.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈۳۰ روز طول کشید تا جنازه عبدالرحیم موسوی، رئیس سابق ستاد کل نیروهای مسلح ایران، رو پیدا کنن
-
-🔴پسرش اینو به صداوسیما گفته
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120270
-
-<div align="center"><img src="telegram/content/alonews_120270.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈توییت جدید و عجیب ترامپ
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120269
-
-<div align="center"><img src="telegram/content/alonews_120269.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈دنا پلاس؛ ۳ میلیارد تومن ناقابل
 
 ✅ @AloNews خبر جنگ
 </div>

@@ -1,8 +1,16 @@
 # آرشیو کانال IranianMinds - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/27 02:49
+📅 آخرین بروزرسانی: 1405/02/27 08:21
 
 ---
+
+## IranianMinds — post 20092
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 گوگل رسما اعلام کرد در جام جهانی اسپانسری تیم های ملی عراق و مراکش رو گرفته و تمامی هزینه های این تیم هارو‌ میده.
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20091
 

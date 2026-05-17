@@ -1,8 +1,39 @@
 # آرشیو کانال alonews - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 01:52
+📅 آخرین بروزرسانی: 1405/02/27 08:26
 
 ---
+
+## alonews — post 120505
+
+<div align="center"><img src="telegram/content/alonews_120505.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عوستاد خوش چشم: باید آماده نبرد آخر بشیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈طی ۲۴ساعت گذشته تعداد زیادی ترابری آمریکا وارد منطقه شده است
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120503
+
+<div align="center"><img src="telegram/content/alonews_120503.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈بابک تقوایی میلیتاریست معروف:
+انفجار در کارخانه «تومر» در بیت شمش، اسرائیل، کنترل نشده بود. این حادثه ناشی از یک حادثه بود. انباری که پرکلرات سدیم مورد نیاز برای تولید موتورهای موشک‌های زمین به هوا در آن قرار داشت، به دلایل نامعلومی منفجر شد.
+
+🔴به گفته منابع نظامی اسرائیلی من، این انفجار به دلیل حمله پهپاد یا موشک کروز نیروهای دشمن رخ نداده است.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120502
 
@@ -195,38 +226,5 @@
 
 
 ✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120481
-
-<div align="center"><video src="telegram/content/alonews_120481.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/alonews_120481.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈کاخ سفید پیامی تهدیدآمیز از ترامپ با عنوان «شوخی نداریم» همراه با تصویری از حضور او در اتاق جنگ منتشر کرد.
-
-🔴در پیام کاخ سفید آمده است: «اگر به آمریکایی‌ها آسیب بزنید، یا برای آسیب‌زدن به آمریکایی‌ها توطئه و طرح‌ریزی کنید، ما شما را خواهیم یافت.»
-
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120480
-
-<div align="center"><img src="telegram/content/alonews_120480.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سال 1374، کل پاساژ علاءالدین: 500 میلیون
-
-سال 1405، آیفون 17 پرومکس: 500 میلیون
-
-[@AloTweet]
-</div>
-
-## alonews — post 120479
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 FLASH NET VPN 🔥 ⚠️ شرایط جنگی؟ نت ملی؟ فیلترینگ سنگین؟ 💪 ما هنوز پایدار و بدون قطعی کنار شماییم! 🚀 پینگ خفن 🌐 سرعت فوق‌العاده پایدار 😍 رضایت فراوان کاربران 🤖 ربات کاملاً خودکار 💸 نرخ‌ها پایین‌تر از همه جا 🇧🇬 تک لوکیشن بلغارستان ♾ بدون ضریب 🔗 دارای لینک…
 </div>
 

@@ -1,8 +1,56 @@
 # آرشیو کانال alonews - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/02/27 01:52
+📅 آخرین بروزرسانی: 1405/02/27 08:26
 
 ---
+
+## alonews — post 120115
+
+<div align="center"><video src="telegram/content/alonews_120115.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120115.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈عراقچی : مشکل اصلی اینه که آمریکا هر روز یه حرف می‌زنه و پیام‌های ضدونقیض می‌فرسته
+
+
+🔴در مورد ایران هیچ راه‌حل نظامی‌ای جواب نمی‌ده
+
+
+🔴 این همه مدت هی تهدید کردن، ولی نه نتیجه‌ای گرفتن نه از جنگی که راه انداختن چیزی گیرشون اومد
+
+
+🔴هرچی بیشتر تهدید کنن، بیشتر شکست می‌خورن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120114
+
+<div align="center"><video src="telegram/content/alonews_120114.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120114.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈هواپیماهای باری نظامی آذربایجان از طریق حریم هوایی ترکیه به سمت تل آویو در حرکت هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120113
+
+<div align="center"><video src="telegram/content/alonews_120113.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/alonews_120113.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈جنوب لبنان، ساعاتی قبل
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ## alonews — post 120112
 
@@ -223,38 +271,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👈ترامپ در مصاحبه با فاکس‌نیوز: افزایش قیمت بنزین، بهایی است که آمریکایی‌ها باید برای جلوگیری از دستیابی ایران به سلاح هسته‌ای بپردازند.
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120065
-
-<div align="center"><img src="telegram/content/alonews_120065.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈نیروهای دفاعی اسرائیل هشدار تخلیه برای چندین شهر در منطقه صور در جنوب لبنان صادر کرده‌اند و نسبت به حملات احتمالی اسرائیل هشدار داده‌اند.
-
-🔴 از ساکنان خواسته شده حداقل ۱ کیلومتر از مناطق مشخص شده فاصله بگیرند
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈خبرنگار المیادین در پکن: بسیاری از اظهارات آمریکایی ها می گویند که ترامپ چین را متقاعد کرد که موضع خود را در قبال ایران تغییر دهد و این درست نیست.
-
-🔴موضع چین در قبال ایران روشن، ثابت است و تغییری نکرده است. دیروز به طور کامل از صحبت در این مورد خودداری کرد و هر آنچه خلاف آن شایعه می شود کذب محض است.
-
-🔴 چین صبح امروز تصمیم گرفت موضع خود را از طریق بیانیه کامل وزارت خارجه منتشر کند تا تمام حقیقت روشن شود
-
-✅ @AloNews خبر جنگ
-</div>
-
-## alonews — post 120063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈رویترز: ترامپ مدعی شد «توافق‌های تجاری فوق‌العاده‌ای» با چین حاصل شده است
 
 ✅ @AloNews خبر جنگ
 </div>
