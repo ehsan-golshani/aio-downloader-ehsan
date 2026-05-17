@@ -1,16 +1,14 @@
 #!/usr/bin/env python3
 """
-Telegram Channel Archiver - نسخه نهایی با ساختار جدید و پشتیبانی از Base64
-- ساختار: data/[ChannelName]/{pages/, media/, base64/}
-- فایل‌های کوچک (<1MB) به Base64 تبدیل و در base64/ ذخیره می‌شوند
-- فایل‌های بزرگ در media/ ذخیره می‌شوند
+Telegram Channel Archiver - نسخه ساده
+- فایل‌ها بدون تبدیل در پوشه files/ ذخیره می‌شوند
+- ساختار: data/[ChannelName]/{pages/, files/}
+- دانلود از طریق GitHub API با هدر raw
 """
 
 import asyncio
 import argparse
-import base64
 import json
-import mimetypes
 import re
 import sys
 import time
@@ -32,7 +30,6 @@ DATA_DIR = REPO_ROOT / "telegram" / "data"
 IRAN_TZ = ZoneInfo("Asia/Tehran")
 HEADERS = {"User-Agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36"}
 MESSAGES_PER_PAGE = 20
-MAX_BASE64_SIZE = 1024 * 1024  # 1 مگابایت - فایل‌های بزرگتر از این در media/ ذخیره می‌شوند
 
 parser = argparse.ArgumentParser()
 parser.add_argument('--channel', type=str, default=None)
@@ -44,9 +41,8 @@ TARGET_CHANNEL = args.channel
 CUSTOM_MODE = args.limit > 0
 
 print("=" * 50)
-print("🚀 Telegram Archiver - نسخه نهایی با Base64")
+print("🚀 Telegram Archiver - نسخه ساده (بدون Base64)")
 print(f"📢 Channel: {TARGET_CHANNEL or 'ALL'}")
-print(f"📦 Max Base64 size: {MAX_BASE64_SIZE // 1024} KB")
 print("=" * 50)
 
 
@@ -70,12 +66,10 @@ def save_state(state):
 
 
 def get_channel_dir(channel_name):
-    """دریافت پوشه اصلی کانال - ساختار جدید"""
+    """دریافت پوشه اصلی کانال"""
     channel_dir = DATA_DIR / channel_name
-    # ایجاد زیرپوشه‌ها
     (channel_dir / "pages").mkdir(parents=True, exist_ok=True)
-    (channel_dir / "media").mkdir(parents=True, exist_ok=True)
-    (channel_dir / "base64").mkdir(parents=True, exist_ok=True)
+    (channel_dir / "files").mkdir(parents=True, exist_ok=True)
     return channel_dir
 
 
@@ -167,53 +161,27 @@ def fix_filename_extension(filename, content_type):
     return filename
 
 
-def save_file_as_base64(file_data, channel_dir, post_id, original_filename):
-    """ذخیره فایل به صورت Base64 در پوشه base64/"""
-    base64_dir = channel_dir / "base64"
-    base64_dir.mkdir(parents=True, exist_ok=True)
+def save_file(channel_dir, post_id, original_filename, file_data):
+    """ذخیره فایل در پوشه files/"""
+    files_dir = channel_dir / "files"
+    files_dir.mkdir(parents=True, exist_ok=True)
     
-    # تبدیل به Base64
-    base64_data = base64.b64encode(file_data).decode('utf-8')
-    
-    # نام فایل: post_{post_id}_{original_filename}.base64.txt
+    # نام فایل: post_{post_id}_{original_filename}
     safe_filename = original_filename.replace('/', '_').replace('\\', '_')
-    base64_filename = f"post_{post_id}_{safe_filename}.base64.txt"
-    base64_path = base64_dir / base64_filename
-    
-    base64_path.write_text(base64_data, encoding='utf-8')
-    print(f"    📝 Saved as Base64: {base64_filename} ({len(base64_data)} chars)")
-    return f"base64/{base64_filename}"
-
-
-def save_media_file(file_data, channel_dir, post_id, media_type, original_filename=None):
-    """ذخیره فایل مدیا در پوشه media/"""
-    media_dir = channel_dir / "media"
-    media_dir.mkdir(parents=True, exist_ok=True)
-    
-    if original_filename:
-        filename = f"post_{post_id}_{original_filename}"
-    else:
-        ext_map = {'photo': '.jpg', 'video': '.mp4', 'document': '.dat'}
-        ext = ext_map.get(media_type, '.dat')
-        filename = f"post_{post_id}{ext}"
-    
-    # اصلاح پسوند
-    if '.' not in filename:
-        filename += '.dat'
-    
-    file_path = media_dir / filename
+    filename = f"post_{post_id}_{safe_filename}"
+    file_path = files_dir / filename
     
     if file_path.exists():
         print(f"    📁 Already exists: {filename}")
-        return f"media/{filename}"
+        return f"files/{filename}"
     
     file_path.write_bytes(file_data)
-    print(f"    💾 Saved media: {filename} ({len(file_data)} bytes)")
-    return f"media/{filename}"
+    print(f"    💾 Saved file: {filename} ({len(file_data)} bytes)")
+    return f"files/{filename}"
 
 
 def download_and_save_media(url, channel_name, post_id, media_type='photo', original_filename=None):
-    """دانلود و ذخیره مدیا - انتخاب خودکار بین Base64 و Media"""
+    """دانلود و ذخیره مدیا"""
     if not url:
         return None
     
@@ -231,7 +199,6 @@ def download_and_save_media(url, channel_name, post_id, media_type='photo', orig
         resp.raise_for_status()
         
         file_data = resp.content
-        file_size = len(file_data)
         
         # تعیین نام فایل مناسب
         if original_filename:
@@ -249,15 +216,9 @@ def download_and_save_media(url, channel_name, post_id, media_type='photo', orig
             else:
                 final_filename += '.dat'
         
-        # تصمیم‌گیری: Base64 یا Media
-        if file_size <= MAX_BASE64_SIZE:
-            # فایل کوچک → Base64
-            saved_path = save_file_as_base64(file_data, channel_dir, post_id, final_filename)
-            return saved_path
-        else:
-            # فایل بزرگ → Media
-            saved_path = save_media_file(file_data, channel_dir, post_id, media_type, final_filename)
-            return saved_path
+        # ذخیره فایل
+        saved_path = save_file(channel_dir, post_id, final_filename, file_data)
+        return saved_path
         
     except Exception as e:
         print(f"    ⚠️ Download failed: {e}")
