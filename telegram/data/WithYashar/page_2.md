@@ -1,8 +1,14 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 02:36
+📅 آخرین بروزرسانی: 1405/02/27 03:43
 
 ---
+
+## WithYashar — post 11412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داداش ناموسا من اونجا بودم داد میزدم به شاهزاده میگفتم حتما با یاشار ملاقات حضوری بکن
+</div>
 
 ## WithYashar — post 11411
 
@@ -144,15 +150,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مشاورین شاهزاده (امیر اعتمادی و سعید قاسمینژاد) ، علی کریمی‌ رو به علت واکنش ‌به کنسرت و آهنگ شاهین نجفی آنفالو کردند
-@withyashar
-</div>
-
-## WithYashar — post 11392
-
-<div align="center"><img src="telegram/content/WithYashar_11392.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز جهانی پسر بچه … به یاد جاوید نام های کوچکمون مبارزه میکنیم تا نسل جدید این درد ها رو نکشه !
 @withyashar
 </div>
 

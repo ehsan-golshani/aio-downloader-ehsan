@@ -1,8 +1,20 @@
 # آرشیو کانال WithYashar - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/02/27 02:36
+📅 آخرین بروزرسانی: 1405/02/27 03:43
 
 ---
+
+## WithYashar — post 11248
+
+<div align="center"><video src="telegram/content/WithYashar_11248.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11248.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏ترامپ به دلیل مرگ برادر بزرگترش که بر اثر نوشیدن الکل جانش را از دست داد ،مشروب نمیخوره ،ولی اینجا جرعه‌ای از آن را مینوشه و به نشانه احترام به رئیس جمهور شی جین پینگ
+‏ولی داشت بالا می‌آورد
+@withyashar
+</div>
 
 ## WithYashar — post 11247
 
@@ -154,11 +166,4 @@ Voice message
 </div>
 
 ## WithYashar — post 11228
-
-## WithYashar — post 11227
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خسته نباشی یاشار
-نظرت راجب سیم‌کارت پرو چیه به مردم عادی هم دارن میدن الان
-</div>
 

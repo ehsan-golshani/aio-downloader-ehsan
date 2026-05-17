@@ -1,8 +1,36 @@
 # آرشیو کانال kianmeli1 - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 00:38
+📅 آخرین بروزرسانی: 1405/02/27 03:49
 
 ---
+
+## kianmeli1 — post 87417
+
+<div align="center"><img src="telegram/content/kianmeli1_87417.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توئیت عجیب ترامپ
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87416
+
+<div align="center"><video src="telegram/content/kianmeli1_87416.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/kianmeli1_87416.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ اعلام کرد که یک دور دیگر از عملیات نظامی آمریکا در ایران در راه است:
+‏​
+‏ما از نظر نظامی در ایران تقریباً کار را تمام کردیم. حدود ۷۵٪ کار را. (البته) ما همه چیز را تمام نکردیم. برمی‌گردیم و آن را تکمیل می‌کنیم. حتی شاید بیشتر.
+‏​
+‏ممکن است مجبور شویم کمی کارِ پاکسازی انجام دهیم، چون یک آتش‌بسِ حدوداً یک‌ماهه داشتیم.
+‏​
+‏ما در حقیقت آتش‌بس را به درخواست کشورهای دیگر انجام دادیم.
+‏​
+‏من خودم چندان موافق آن نبودم، اما این کار را به عنوان لطفی به پاکستان انجام دادیم، آدم‌های فوق‌العاده‌ای هستند، فیلد مارشال و نخست‌وزیر.»
+https://t.me/kianmeli1
+</div>
 
 ## kianmeli1 — post 87415
 
@@ -186,24 +214,6 @@ https://t.me/kianmeli1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴در پی انتشار گزارش‌هایی مبنی بر بلند شدن دود از منطقه صنایع نفتی فجیره، دفتر رسانه‌ای فجیره اعلام کرد که این دود به دلیل تعمیرات مداوم یک خط لوله است.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87396
-
-<div align="center"><img src="telegram/content/kianmeli1_87396.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴طبق اعلام مرکز عملیات تجارت دریایی بریتانیا (UKMTO)، حادثه‌ای در ۳۸ مایلی شمال شرقی فجیره، امارات متحده عربی رخ داده است که در آن یک کشتی توقیف و به آب‌های ایران منتقل شده است. این احتمالاً توقیف دیگری از یک کشتی توسط سپاه پاسداران انقلاب اسلامی است.
-https://t.me/kianmeli1
-</div>
-
-## kianmeli1 — post 87395
-
-<div align="center"><img src="telegram/content/kianmeli1_87395.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کاخ سفید پس از مذاکرات دوجانبه ایالات متحده و چین در پکن، پایتخت چین، در بیانیه‌ای اعلام کرد که دو هیئت در مورد مسائلی مانند دسترسی به بازار چین، سرمایه‌گذاری چین در صنایع ایالات متحده، مواد مخدر، به ویژه فنتانیل، «جریان آزاد» تجارت از طریق تنگه هرمز و سایر مسائل کلیدی گفتگو کردند.
 https://t.me/kianmeli1
 </div>
 

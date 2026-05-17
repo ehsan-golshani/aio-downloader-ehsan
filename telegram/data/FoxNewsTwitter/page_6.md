@@ -1,8 +1,22 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/27 02:37
+📅 آخرین بروزرسانی: 1405/02/27 03:45
 
 ---
+
+## FoxNewsTwitter — post 341713
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341713.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341713.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+HAPPENING NOW: "The relationship between the American and Chinese people goes all the way back to America's founding. The first American consul to China, Samuel Shaw, arrived on the first American trading ship to reach these shores in 1784."
+
+"Two and a half centuries later, that first connection has grown into one of the most consequential relationships in world history." - President Trump
+</div>
 
 ## FoxNewsTwitter — post 341712
 
@@ -259,17 +273,5 @@ NOW: President Trump thanks Chinese President Xi Jinping for welcoming him to Be
 Fox News (Twitter/X)
 
 NOW: President Trump watches a ceremony with Chinese President Xi Jinping after arriving at the Great Hall of People in Beijing.
-</div>
-
-## FoxNewsTwitter — post 341693
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341693.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341693.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-BREAKING: President Trump receives a warm welcome at the Great Hall of People in Beijing for his meeting with President Xi Jinping.
 </div>
 

@@ -1,8 +1,19 @@
 # آرشیو کانال WithYashar - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 02:36
+📅 آخرین بروزرسانی: 1405/02/27 03:43
 
 ---
+
+## WithYashar — post 11433
+
+<div align="center"><video src="telegram/content/WithYashar_11433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چنته هرکسی که توخالی باشد بالاخره معلوم میشود
+@withyashar
+</div>
 
 ## WithYashar — post 11432
 
@@ -163,11 +174,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نتانیاهو : اگه آمریکا دوباره بخواد عملیات نظامی علیه ایران رو شروع کنه، اسرائیل آماده‌ست
 @withyashar
-</div>
-
-## WithYashar — post 11412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داداش ناموسا من اونجا بودم داد میزدم به شاهزاده میگفتم حتما با یاشار ملاقات حضوری بکن
 </div>
 

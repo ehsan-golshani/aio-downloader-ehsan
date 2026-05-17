@@ -1,8 +1,23 @@
 # آرشیو کانال Shin_Persian - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 01:41
+📅 آخرین بروزرسانی: 1405/02/27 03:51
 
 ---
+
+## Shin_Persian — post 6044
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Shin ✓ @hey_itsmyturn
+Sat, 16 May 2026 23:39:11 UTC
+
+Jet activity over Erbil, KRI, #Iraq 🇮🇶
+
+فارسی
+
+فعالیت جت‌ها بر فراز اربیل، اقلیم کردستان عراق، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
 
 ## Shin_Persian — post 6043
 
@@ -371,25 +386,6 @@ Usual caveats apply, my data is based on public flight tracking information and 
 https://www.raf.mod.uk/news/articles/sustained-at-range-raf-fighters-deliver-defensive-cover-over-the-red-sea/
 
 ترجمه فارسی در بخش نظرات
-
-𝕏 · @shin_persian
-</div>
-
-## Shin_Persian — post 6021
-
-<div align="center"><video src="telegram/content/Shin_Persian_6021.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Shin_Persian_6021.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Open Source Intel ✓ @Osint613
-Fri, 15 May 2026 19:06:22 UTC
-
-Four assistants to Haddad were killed inside a vehicle as they attempted to escape from the apartment used as his hiding location.
-
-فارسی
-
-چهار دستیار حداد در حالی که قصد داشتند با خودرویی از آپارتمانی که به عنوان مخفیگاه او استفاده می‌شد فرار کنند، کشته شدند.
 
 𝕏 · @shin_persian
 </div>

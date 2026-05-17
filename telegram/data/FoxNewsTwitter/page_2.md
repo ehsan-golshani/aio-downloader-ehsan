@@ -1,8 +1,18 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 02:37
+📅 آخرین بروزرسانی: 1405/02/27 03:45
 
 ---
+
+## FoxNewsTwitter — post 341804
+
+<div align="center"><img src="telegram/content/FoxNewsTwitter_341804.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH LIVE: Alexandria Ocasio-Cortez and Chris Rabb hold rally in Philadelphia https://twitter.com/i/broadcasts/1vJpPrAbMmDJE
+</div>
 
 ## FoxNewsTwitter — post 341803
 
@@ -253,21 +263,5 @@ The Cardinal reflected on nearly two decades of service, calling the people of N
 ‌Fox News (Twitter/X)
 
 https://www.foxnews.com/politics/longtime-democratic-rep-steve-cohen-announces-end-re-election-bid
-</div>
-
-## FoxNewsTwitter — post 341782
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341782.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341782.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH: The FIFA World Cup is less than a month away, and the FBI says it’s training officers to use electronic defense capabilities that can intercept drones over stadiums.
-
-Fox News got behind-the-scenes access to the FBI’s Redstone facility in Huntsville, where agents demonstrated how they jam and hijack suspicious drones to redirect them away from sensitive sites.
-
-@foymeetsworld reports the latest on the ground in Alabama. | @GillianHTurner @AmericaNewsroom
 </div>
 

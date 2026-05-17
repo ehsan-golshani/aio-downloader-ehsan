@@ -1,8 +1,19 @@
 # آرشیو کانال pm_afshaa - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/27 02:38
+📅 آخرین بروزرسانی: 1405/02/27 03:45
 
 ---
+
+## pm_afshaa — post 90727
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴در حاشیه اجلاس سران در چین: رئیس‌جمهور ترامپ رئیس‌جمهور چین را برای بازدید از کاخ سفید در پایان سپتامبر دعوت کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90724
 
@@ -203,15 +214,5 @@
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90705
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی بیاد به من بگه چرا تو افغانستان خوراکیای تولید داخل خودمونو ارزونتر از ما میتونن خرید کنن
-
-د اخه حرومزاده ای که نشستی خفه خون گرفتی از این بیناموسا دفاع میکنی بیناموس برگرد ببین چند نفر نون شب تو کشور خودمون ندارن بخورن
-
-د اخه من شاشیدم به اون مملکت داریتون
 </div>
 

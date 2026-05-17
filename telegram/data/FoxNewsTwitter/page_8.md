@@ -1,8 +1,24 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/27 02:37
+📅 آخرین بروزرسانی: 1405/02/27 03:45
 
 ---
+
+## FoxNewsTwitter — post 341670
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341670.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341670.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Vice President JD Vance shuts down talk of a "joint ticket" with Secretary of State Marco Rubio, insisting he is focused solely on the job the American people already elected him to do:
+
+"There are a few topics that I want to talk about less than what office I'm going to run for years down the road when I'm having a good time and trying to do good work in the job that the American people already elected me to do.”
+
+“I've answered this question, probably in any number of ways, I love Marco. I think he's a great secretary of state. He's become a very, very dear friend. But I think both of us are very much focused on accomplishing the American people's business right now.”
+</div>
 
 ## FoxNewsTwitter — post 341669
 

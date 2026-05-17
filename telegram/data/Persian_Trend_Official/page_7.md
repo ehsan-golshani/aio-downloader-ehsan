@@ -1,8 +1,29 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/27 01:45
+📅 آخرین بروزرسانی: 1405/02/27 03:55
 
 ---
+
+## Persian_Trend_Official — post 14148
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14148.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14148.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 چین درخواست ترامپ برای عدم خرید نفت از ایران را رد کرد
+
+🔹مجری فاکس‌ نیوز:
+آیا در مورد حمایت چین از ایران با شی جین‌پینگ صحبت کردید؟
+
+🔹ترامپ:
+«ما در مورد آن صحبت کردیم. منظورم این است که وقتی می‌گویید «حمایت از ایران»، آنها با ما جنگ یا چیزی شبیه به این نمی‌کنند. او گفت که قرار نیست تجهیزات نظامی به ایران بدهد. این حرف بزرگی است. اما او در عین حال گفت که آنها مقدار زیادی از نفت خود را از ایران می‌خرند و دوست دارند به این کار ادامه دهند!»
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14147
 
@@ -345,24 +366,6 @@ https://farsnews.ir/Khate_energy/1778660394098111565/%D8%A7%D8%B2-%D8%A7%D8%AE%D
 از شرایط کشور در زمان حملات بودند
 
 🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14114
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺علی کیایی ‌فر، متخصص امنیت اطلاعات: در جنگ دوازده‌روزه، نوبیتکس، بانک پاسارگاد، بانک سپه و بانک مرکزی از داخل خود ایران هک شدند
-
-مثلاً نوبیتکس توسط یک سرور زامبی در یک مدرسه‌ی علمیه خواهران در قم هک شد.
-
-
-☆Phantom☆
 
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی

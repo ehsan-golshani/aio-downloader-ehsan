@@ -1,8 +1,17 @@
 # آرشیو کانال WithYashar - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/27 02:36
+📅 آخرین بروزرسانی: 1405/02/27 03:43
 
 ---
+
+## WithYashar — post 11206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شی جین‌پینگ: چین و ایالات متحده هر دو از همکاری سود می‌برند و از تقابل زیان می‌بینند.
+
+دو کشور ما باید شریک باشند نه رقیب.
+@withyashar
+</div>
 
 ## WithYashar — post 11205
 
@@ -149,13 +158,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس داده ها , شرکت تتر مبلغ 344 میلیون دلار USDT مرتبط با بانک مرکزی ایران رو فریز کرده و دلیلش هم بخاطر دور زدن تحریم‌ها بوده که شرکت آرکهام کیف پول‌های مرتبط رو شناسایی کرده
-@withyashar
-</div>
-
-## WithYashar — post 11186
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسنیم: کیفرخواست زیباکلام و مدیرمسئول خبرگزاری آنا صادر شد ممنوعیت زیباکلام از انجام هرگونه فعالیت رسانه‌ای به مدت سه ماه صادر شده
 @withyashar
 </div>
 

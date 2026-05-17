@@ -1,8 +1,40 @@
 # آرشیو کانال IranIntlTV - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/02/27 02:42
+📅 آخرین بروزرسانی: 1405/02/27 03:49
 
 ---
+
+## IranIntlTV — post 337056
+
+<div align="center"><img src="telegram/content/IranIntlTV_337056.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش الحدث، دو پهپاد انتحاری مقر حزب دموکرات کردستان ایران در شمال اربیل عراق را هدف قرار دادند.
+
+همزمان رویترز به نقل از منابع امنیتی گزارش داد در این حمله پهپادی یک انبار سلاح و مهمات در داخل این اردوگاه هدف قرار گرفته است.
+https://iranintl.com/202605131072
+</div>
+
+## IranIntlTV — post 337055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: سرنوشت جمهوری‌اسلامی، موضوع گفتگوهای ترامپ در چین
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337054
+
+<div align="center"><video src="telegram/content/IranIntlTV_337054.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337054.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود پزشکیان در واکنش به تورم و گرانی‌های بی‌سابقه، از وزارت جهاد کشاورزی خواست برای کنترل قیمت‌ها همه توانش را به کار گیرد. او پیشتر گفته بود، کشور به شدت به صرفه‌جویی نیاز دارد.
+
+گفت‌وگو با سیامک جوادی ، مدرس و پژوهشگر اقتصاد مالی در دانشگاه تگزاس
+
+@iranintltv
+</div>
 
 ## IranIntlTV — post 337053
 

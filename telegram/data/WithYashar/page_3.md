@@ -1,8 +1,17 @@
 # آرشیو کانال WithYashar - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 02:36
+📅 آخرین بروزرسانی: 1405/02/27 03:43
 
 ---
+
+## WithYashar — post 11392
+
+<div align="center"><img src="telegram/content/WithYashar_11392.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روز جهانی پسر بچه … به یاد جاوید نام های کوچکمون مبارزه میکنیم تا نسل جدید این درد ها رو نکشه !
+@withyashar
+</div>
 
 ## WithYashar — post 11390
 
@@ -158,15 +167,6 @@
 کانال ۱۲ اسرائیل گزارش داد انتظار می‌رود دونالد ترامپ، رییس‌جمهوری آمریکا، طی ۲۴ ساعت آینده تیم مشاوران نزدیک خود را تشکیل دهد تا درباره ایران تصمیم نهایی بگیرد. برآوردها در اسرائیل حاکی است تصمیم درباره اقدام نظامی ممکن است بسیار به‌زودی اتخاذ شود.
 
 برنامه تلویزیونی «اولپن شیشی» به نقل از یک مقام ارشد اسرائیلی گزارش داد که «ازسرگیری درگیری نزدیک است» و اسرائیل خود را برای احتمال «چند روز تا چند هفته جنگ» آماده می‌کند.
-@withyashar
-</div>
-
-## WithYashar — post 11371
-
-<div align="center"><img src="telegram/content/WithYashar_11371.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استوری مشاور قالیباف تو اینستاگرام 🤣
 @withyashar
 </div>
 

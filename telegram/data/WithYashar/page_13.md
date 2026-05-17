@@ -1,8 +1,15 @@
 # آرشیو کانال WithYashar - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/27 02:36
+📅 آخرین بروزرسانی: 1405/02/27 03:43
 
 ---
+
+## WithYashar — post 11186
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسنیم: کیفرخواست زیباکلام و مدیرمسئول خبرگزاری آنا صادر شد ممنوعیت زیباکلام از انجام هرگونه فعالیت رسانه‌ای به مدت سه ماه صادر شده
+@withyashar
+</div>
 
 ## WithYashar — post 11185
 
@@ -159,6 +166,4 @@ https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
 لحظه استقبال از دونالد ترامپ در پکن، چین
 @withyashar
 </div>
-
-## WithYashar — post 11166
 

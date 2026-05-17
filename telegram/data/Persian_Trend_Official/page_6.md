@@ -1,8 +1,25 @@
 # آرشیو کانال Persian_Trend_Official - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/27 01:45
+📅 آخرین بروزرسانی: 1405/02/27 03:55
 
 ---
+
+## Persian_Trend_Official — post 14171
+
+<div align="center"><video src="telegram/content/Persian_Trend_Official_14171.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Persian_Trend_Official_14171.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢خلاقیت و نوآوری با کمترین هزینه را از اوکراین بخواهید ❗️
+
+💢اپراتورای پهپاد اوکراینی با یه پهپاد FPV که روی آن تفنگ ساچمه زن بستن، دارن پهپادهای FPV روسی رو می‌زنن
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
 
 ## Persian_Trend_Official — post 14170
 
@@ -320,27 +337,6 @@ https://t.me/boost/persian_trend_official
 🔴مارکو روبیو:
 
 💢نیروهای مسلح اوکراین در حال حاضر قوی‌ترین و قدرتمندترین نیروهای مسلح در سراسر اروپا هستند.
-
-🫆:Tony
-
-📌 @persian_trend_official
-پرشین ترند | متفاوت‌ترین کانال نظامی
-</div>
-
-## Persian_Trend_Official — post 14148
-
-<div align="center"><video src="telegram/content/Persian_Trend_Official_14148.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Persian_Trend_Official_14148.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 چین درخواست ترامپ برای عدم خرید نفت از ایران را رد کرد
-
-🔹مجری فاکس‌ نیوز:
-آیا در مورد حمایت چین از ایران با شی جین‌پینگ صحبت کردید؟
-
-🔹ترامپ:
-«ما در مورد آن صحبت کردیم. منظورم این است که وقتی می‌گویید «حمایت از ایران»، آنها با ما جنگ یا چیزی شبیه به این نمی‌کنند. او گفت که قرار نیست تجهیزات نظامی به ایران بدهد. این حرف بزرگی است. اما او در عین حال گفت که آنها مقدار زیادی از نفت خود را از ایران می‌خرند و دوست دارند به این کار ادامه دهند!»
 
 🫆:Tony
 

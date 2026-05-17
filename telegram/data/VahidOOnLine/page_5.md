@@ -1,8 +1,46 @@
 # آرشیو کانال VahidOOnLine - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/27 02:35
+📅 آخرین بروزرسانی: 1405/02/27 03:43
 
 ---
+
+## VahidOOnLine — post 240466
+
+<div align="center"><video src="telegram/content/VahidOOnLine_240466.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/VahidOOnLine_240466.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ دست‌کم ۸ کشته در برخورد مرگبار قطار و اتوبوس در بانکوک
+
+♦️برخورد مرگبار قطار با یک اتوبوس شهری در بانکوک، پایتخت تایلند، دست‌کم ۸ کشته و ۲۵ زخمی برجای گذاشت.
+ویدیوهای منتشرشده توسط شاهدان عینی، ستون‌های دود غلیظ را در محل حادثه نشان می‌دهد، جایی که پس از برخورد قطار با وسایل نقلیه، یک اتوبوس عمومی دچار حریق شد و شعله‌های آتش به خودروها و موتورسیکلت‌های اطراف نیز سرایت کرد.
+تیم‌های امداد و آتش‌نشانی بلافاصله به محل اعزام شدند و عملیات نجات و انتقال مجروحان را آغاز کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان روز شنبه در تجمعی که به فراخوان تامی رابینسون،‌ فعال راست‌گرای بریتانیا،‌ در لندن برگزار شده حاضر شده و پرچم شیروخورشید به دست گرفتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240464
+
+<div align="center"><img src="telegram/content/VahidOOnLine_240464.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری تسنیم، روز شنبه ۲۶ اردیبهشت ماه، به مقل از منابع آگاه از سفر سید محسن نقوی، وزیر کشور پاکستان به تهران خبر داد.
+به گزارش تسنیم، گفته می‌شود وزیر کشور پاکستان طی این سفر از پیش اعلام نشده قرار است با شماری از مقام‌های جمهوری اسلامی، از جمله وزیر کشور، دیدار کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 240463
 
@@ -240,55 +278,6 @@
 فرماندهی کل نیروی دفاعی بحرین اعلام کرد که تمامی سلاح‌ها و یگان‌های این نیرو در بالاترین سطح آمادگی و آماده‌باش دفاعی برای مواجه با حمله احتمالی جمهوری اسلامی قرار دارند. بحرین همچنین از شهروندانش خواست با توجه به پیامدهای این حمله، از نزدیک شدن یا دست زدن به هرگونه شیء ناشناس یا مشکوک که ممکن است از بقایای این حمله باشد، خودداری کنند.
 
 در بیانیه این فرماندهی آمده است که نیروهای آن از آمادگی رزمی پیشرفته و هوشیاری بالا در انجام وظیفه ملی خود برای دفاع از کشور و حفاظت از دستاوردهای آن برخوردارند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240446
-
-<div align="center"><video src="telegram/content/VahidOOnLine_240446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/VahidOOnLine_240446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ یخاب آران و بیدگل؛
-زیستگاه امن حیات‌وحش کویری ایران
-
-♦️گله‌ای از قوچ‌ و میش‌های وحشی در پناهگاه حیات وحش یخاب ابوزیدآباد در شهرستان آران و بیدگل، در قاب دوربین ثبت شد، منطقه‌ای بکر و کم‌نظیر در حاشیه کویر که یکی از زیستگاه‌های مهم حیات‌وحش ایران به شمار می‌رود.
-پناهگاه حیات وحش یخاب با برخورداری از تنوع زیستی ارزشمند، زیستگاه گونه‌هایی همچون قوچ و میش وحشی، جبیر، کاراکال و انواع پرندگان بومی کویر است و به‌دلیل شرایط خاص طبیعی و حفاظت محیط‌زیستی، از مناطق مهم حیات‌وحش در استان اصفهان محسوب می‌شود.
-ویدیویی از حضور و حرکت گله قوچ و میش‌های وحشی در این منطقه، جلوه‌ای از حیات طبیعی و زیبایی کم‌نظیر زیستگاه‌های کویری ایران را به نمایش گذاشته است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240445
-
-<div align="center"><video src="telegram/content/VahidOOnLine_240445.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/VahidOOnLine_240445.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند ویدیویی به ایران اینترنشنال فرستاده که بحران در دسترسی به بنزین و تشکیل صف‌های طولانی در بندرعباس در روز شنبه ۲۶ اردیبهشت‌ماه را نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240444
-
-<div align="center"><img src="telegram/content/VahidOOnLine_240444.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشاهدات شما از بحران کمبود و گرانی سوخت در استان‌های مختلف ایران چیست؟
-
-
-روی لینک زیر کلیک کنید و پیام‌های خود از طریق مدیا‌بات برای ما بفرستید.
-
-t.me
-
-پیام‌های شما به صورت زیر‌نویس در تلویزیون و همچنین در بخش‌های مختلف‌ خبری منتشر خواهد شد
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

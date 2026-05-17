@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/27 02:35
+📅 آخرین بروزرسانی: 1405/02/27 03:43
 
 ---
+
+## VahidOOnLine — post 240486
+
+<div align="center"><video src="telegram/content/VahidOOnLine_240486.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/VahidOOnLine_240486.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوسلدورف آلمان، تجمع ایرانیان، شنبه ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240485
+
+<div align="center"><video src="telegram/content/VahidOOnLine_240485.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/VahidOOnLine_240485.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ملبورن، تجمع ایرانیان، ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240484
+
+<div align="center"><video src="telegram/content/VahidOOnLine_240484.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/VahidOOnLine_240484.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هامبورگ، راهپیمایی ایرانیان و حمایت از زندانیان سیاسی، ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 240483
 
@@ -230,44 +269,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 «تجمع ایرانیان در بریزبن استرالیا»
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240466
-
-<div align="center"><video src="telegram/content/VahidOOnLine_240466.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/VahidOOnLine_240466.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ دست‌کم ۸ کشته در برخورد مرگبار قطار و اتوبوس در بانکوک
-
-♦️برخورد مرگبار قطار با یک اتوبوس شهری در بانکوک، پایتخت تایلند، دست‌کم ۸ کشته و ۲۵ زخمی برجای گذاشت.
-ویدیوهای منتشرشده توسط شاهدان عینی، ستون‌های دود غلیظ را در محل حادثه نشان می‌دهد، جایی که پس از برخورد قطار با وسایل نقلیه، یک اتوبوس عمومی دچار حریق شد و شعله‌های آتش به خودروها و موتورسیکلت‌های اطراف نیز سرایت کرد.
-تیم‌های امداد و آتش‌نشانی بلافاصله به محل اعزام شدند و عملیات نجات و انتقال مجروحان را آغاز کردند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240465
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان روز شنبه در تجمعی که به فراخوان تامی رابینسون،‌ فعال راست‌گرای بریتانیا،‌ در لندن برگزار شده حاضر شده و پرچم شیروخورشید به دست گرفتند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240464
-
-<div align="center"><img src="telegram/content/VahidOOnLine_240464.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری تسنیم، روز شنبه ۲۶ اردیبهشت ماه، به مقل از منابع آگاه از سفر سید محسن نقوی، وزیر کشور پاکستان به تهران خبر داد.
-به گزارش تسنیم، گفته می‌شود وزیر کشور پاکستان طی این سفر از پیش اعلام نشده قرار است با شماری از مقام‌های جمهوری اسلامی، از جمله وزیر کشور، دیدار کند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

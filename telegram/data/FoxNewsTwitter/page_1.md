@@ -1,8 +1,16 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 02:37
+📅 آخرین بروزرسانی: 1405/02/27 03:45
 
 ---
+
+## FoxNewsTwitter — post 341827
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+BREAKING: Napoleon Solo wins 151st Preakness Stakes
+</div>
 
 ## FoxNewsTwitter — post 341826
 
@@ -257,15 +265,5 @@ NOW: “All I can say is, that was a great success.”
 President Trump returned to the White House after his trip to China, telling reporters “we made great deals” and calling the visit a historic moment.
 
 Then he teased more to come: “A lot of things have happened and you’ll be hearing about them.”
-</div>
-
-## FoxNewsTwitter — post 341804
-
-<div align="center"><img src="telegram/content/FoxNewsTwitter_341804.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-WATCH LIVE: Alexandria Ocasio-Cortez and Chris Rabb hold rally in Philadelphia https://twitter.com/i/broadcasts/1vJpPrAbMmDJE
 </div>
 

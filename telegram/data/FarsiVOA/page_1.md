@@ -1,8 +1,41 @@
 # آرشیو کانال FarsiVOA - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 02:46
+📅 آخرین بروزرسانی: 1405/02/27 03:54
 
 ---
+
+## FarsiVOA — post 217938
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️مواضع قانون‌گذاران کنگره درباره شرایط خاورمیانه و قطع دسترسی مردم به اینترنت از سوی جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217937
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺دولت ونزوئلا متحد سابق نیکلاس مادورو را برای رسیدگی به پرونده‌های قضائی به آمریکا تحویل داد
+
+▪️دولت ونزوئلا روز شنبه ۲۶ اردیبهشت اعلام کرد که الکس ساب از نزدیکان نیکلاس مادورو، را برای رسیدگی به پرونده‌های کیفری به ایالات متحده مسترد کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150731.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217936
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️روز جهانی همزیستی مسالمت‌آمیز؛ اروپا در هنگامه آزمونی تاریخی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217935
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️از «به جان اموال مردم افتادن» تا حکومتِ سرکوب در نقش مربی اسلحه در صداوسیما
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217934
 
@@ -172,49 +205,5 @@ https://ir.voanews.com/a/8150704.html/?nocach=1
 ⬇️ بیشتر بخوانید:
 
 https://ir.voanews.com/a/iran-pakistan-interior-minister-visit-epic-fury/8150696.html/?nocach=1
-</div>
-
-## FarsiVOA — post 217918
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺تداوم دستبرد جمهوری اسلامی به دارایی مردم؛ اموال ۱۲۹ شهروند در آذربایجان‌غربی هم مصادره شد
-
-▪️رئیس کل دادگستری استان آذربایجان غربی روز شنبه ۲۶ اردیبهشت از صدور دستور توقیف اموال ۱۲۹ نفر از مخالفان جمهوری اسلامی در این استان خبر داد.
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/8150694.html/?nocach=1
-</div>
-
-## FarsiVOA — post 217917
-
-<div align="center"><video src="telegram/content/FarsiVOA_217917.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217917.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارتش اسرائیل اعلام کرد در آخر هفته حدود ۱۰۰ موضع حزب‌الله را در نقاط مختلف جنوب لبنان هدف قرار داده است که شامل ایست‌های بازرسی، انبار تسلیحات و زیرساخت‌های دیگر حزب‌الله می‌شود.
-
-ارتش اسرائیل تاکید کرده است به مقابله با تهدیدها علیه شهروندان این کشور و نیروهای خود ادامه داده و بر اساس دستورالعمل‌های مقامات سیاسی عمل می‌کند.
-
-این ویدیو بی‌صدا است.
-</div>
-
-## FarsiVOA — post 217916
-
-<div align="center"><img src="telegram/content/FarsiVOA_217916.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد یک بالگرد ارتش آمریکا در جریان عملیات نظارت بر کشتی‌های تجاری بر فراز تنگه هرمز به پرواز درآمد.
- 
-به گفته سنتکام، تا روز ۲۶ اردیبهشت، مسیر ۷۸ کشتی تجاری تغییر داده شده و چهار شناور نیز برای اطمینان از اجرای این اقدامات از کار افتاده‌اند.
-
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217915
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گفتگو با بهزاد احمدی نیا کمبود بنزین در ایران و گزارش شهروند-خبرنگاران از تشکیل بازار سیاه
 </div>
 

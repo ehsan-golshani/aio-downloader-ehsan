@@ -1,8 +1,10 @@
 # آرشیو کانال WithYashar - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/27 02:36
+📅 آخرین بروزرسانی: 1405/02/27 03:43
 
 ---
+
+## WithYashar — post 11309
 
 ## WithYashar — post 11308
 
@@ -129,17 +131,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز 25 اردیبهشت روز پاسداشت زبان فارسی و بزرگداشت فردوسیه
-@withyashar
-</div>
-
-## WithYashar — post 11288
-
-<div align="center"><video src="telegram/content/WithYashar_11288.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11288.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روانه شدن نفت در سواحل جزایر خلیج فارس جمهموری اسلامی داره نفتو تو دریا میریزه و جان موجودات دریایی و زیست بوم ها رو به خطر انداخته
 @withyashar
 </div>
 

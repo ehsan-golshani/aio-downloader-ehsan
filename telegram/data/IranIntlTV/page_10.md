@@ -1,8 +1,41 @@
 # آرشیو کانال IranIntlTV - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/02/27 02:42
+📅 آخرین بروزرسانی: 1405/02/27 03:49
 
 ---
+
+## IranIntlTV — post 337358
+
+<div align="center"><video src="telegram/content/IranIntlTV_337358.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranIntlTV_337358.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ گفت: «من از کسی امتیاز درخواست نمی‌کنم، چون وقتی امتیاز بخواهی، باید خودت هم امتیاز بدهی و ما نیازی به این کار نداریم.»
+
+او افزود: «در عمل، نیروهای نظامی ایران را از بین بردیم. شاید هنوز کمی عملیات تکمیلی لازم باشد، چون حدود یک ماه پیش آتش‌بس اعلام کردیم. اما محاصره بسیار موثری ایجاد شد و هدف اصلی هم همین بود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎧نسخه صوتی اخبار شبانگاهی | جمعه ۲۵ شهریور
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337356
+
+<div align="center"><img src="telegram/content/IranIntlTV_337356.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رضا سپهوند، عضو کمیسیون انرژی مجلس گفت: «روزانه ۳۰ میلیون لیتر کمبود بنزین داریم و چون در کوتاه‌مدت امکان افزایش تولید وجود ندارد، باید مدیریت مصرف سوخت را جدی گرفت.»
+
+او ادامه داد: «تولید روزانه بنزین در ایران ۱۰۵ میلیون لیتر و مصرف ۱۳۵ میلیون لیتر است.»
+
+این نماینده مجلس افزود: «بخشی از تولید بنزین به دلیل بمباران در جنگ کاهش یافته و همچنین واردات کمتر شده است.»
+https://iranintl.com/202605158254
+</div>
 
 ## IranIntlTV — post 337355
 
@@ -231,39 +264,6 @@ https://iranintl.com/202605155975
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پیام‌های ارسالی مخاطبان به مدیا بات ایران‌اینترنشنال از گرانی، کمبود و نایاب شدن دارو و اقلام حوزه سلامت حکایت دارد. یک شهروند می‌گوید حتی داروهای ساده و مسکن‌هایی مانند قرص کدئین نیز نایاب شده‌اند.
-@iranintltv
-</div>
-
-## IranIntlTV — post 337338
-
-<div align="center"><img src="telegram/content/IranIntlTV_337338.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های ایران اعلام کردند نمایشگاه کتاب تهران امسال به صورت «مجازی» برگزار خواهد شد.
-بر اساس این خبر، نمایشگاه کتاب تهران از روز شنبه، ۲۶ اردیبهشت و به صورت آنلاین آغاز خواهد شد.
-باوجود آتش‌بس میان جمهوری اسلامی و آمریکا، بسیاری از برنامه‌های عادی در ایران همچنان تعطیل بوده یا به‌صورت مجازی برگزار می‌شود.
-https://iranintl.com/202605157688
-</div>
-
-## IranIntlTV — post 337337
-
-<div align="center"><video src="telegram/content/IranIntlTV_337337.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337337.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال پیامی به ایران اینترنشنال درباره گرانی‌ها از افزایش شدید نوشیدنی‌های الکلی در ایران خبر داده و می‌گوید هر لیتر «عرق سگی» یک میلیون و ۵۰۰ هزار تومان شده است. پیام این مخاطب با هوش مصنوعی خوانده شده است.
-</div>
-
-## IranIntlTV — post 337336
-
-<div align="center"><video src="telegram/content/IranIntlTV_337336.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranIntlTV_337336.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس عراقچی، وزیر خارجه جمهوری اسلامی، گفت موضوع اورانیوم غنی‌شده به دلیل پیچیدگی‌ها به بن‌بست رسیده و تصمیم گرفته شده در مراحل بعدی مذاکرات بررسی شود. او افزود تهران زمانی به مذاکرات بازمی‌گردد که مطمئن شود آمریکا برای یک توافق «عادلانه» آمادگی دارد.
-گفت‌وگو با شایان سمیعی، کارشناس امنیت ملی
 @iranintltv
 </div>
 

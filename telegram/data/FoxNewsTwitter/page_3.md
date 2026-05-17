@@ -1,8 +1,24 @@
 # آرشیو کانال FoxNewsTwitter - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 02:37
+📅 آخرین بروزرسانی: 1405/02/27 03:45
 
 ---
+
+## FoxNewsTwitter — post 341782
+
+<div align="center"><video src="telegram/content/FoxNewsTwitter_341782.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FoxNewsTwitter_341782.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fox News (Twitter/X)
+
+WATCH: The FIFA World Cup is less than a month away, and the FBI says it’s training officers to use electronic defense capabilities that can intercept drones over stadiums.
+
+Fox News got behind-the-scenes access to the FBI’s Redstone facility in Huntsville, where agents demonstrated how they jam and hijack suspicious drones to redirect them away from sensitive sites.
+
+@foymeetsworld reports the latest on the ground in Alabama. | @GillianHTurner @AmericaNewsroom
+</div>
 
 ## FoxNewsTwitter — post 341781
 
@@ -254,17 +270,5 @@ NOW: President Trump says he and Chinese President Xi agree they do not want Ira
 Fox News (Twitter/X)
 
 MOMENTS AGO: President Trump meets with President Xi Jinping in China https://twitter.com/i/broadcasts/1RJjpznjbDVKw
-</div>
-
-## FoxNewsTwitter — post 341759
-
-<div align="center"><video src="telegram/content/FoxNewsTwitter_341759.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FoxNewsTwitter_341759.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fox News (Twitter/X)
-
-NOW: President Trump arrives at Zhongnanhai Garden to meet with Chinese President Xi.
 </div>
 

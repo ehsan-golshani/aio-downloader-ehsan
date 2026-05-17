@@ -1,8 +1,54 @@
 # آرشیو کانال VahidOOnLine - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/02/27 02:35
+📅 آخرین بروزرسانی: 1405/02/27 03:43
 
 ---
+
+## VahidOOnLine — post 240366
+
+<div align="center"><img src="telegram/content/VahidOOnLine_240366.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️جان تراولتا شامگاه جمعه در جشنواره فیلم کن ۲۰۲۶ با دریافت نخل طلای افتخاری غافلگیر شد؛ مراسمی که هم‌زمان با نمایش نخستین فیلم بلند او در مقام کارگردان برگزار شد.
+تیری فرمو، مدیر هنری جشنواره کن، درست پیش از آغاز نمایش فیلم «پراپلر؛ قطار شبانه یک‌طرفه» روی صحنه آمد و نخل طلای افتخاری را به تراولتا اهدا کرد. بازیگر آمریکایی که آشکارا تحت تاثیر قرار گرفته بود، هنگام دریافت جایزه دستش را روی سینه گذاشت و از حاضران تشکر کرد.
+تراولتا روی فرش قرمز کن با دختر ۲۶ ساله‌اش الا بلو تراولتا ظاهر شد. این فیلم نخستین تجربه کارگردانی بلند جان تراولتا به شمار می‌رود. او علاوه بر کارگردانی، نویسندگی و تهیه‌کنندگی مشترک این پروژه را نیز بر عهده داشته است. داستان فیلم بر اساس کتاب کودکانه‌ای ساخته شده که خود تراولتا در سال ۱۹۹۷ منتشر کرده بود و درباره نوجوانی علاقه‌مند به هوانوردی است.
+جشنواره کن پیش‌تر نیز چند بار مهمانانش را با اهدای ناگهانی نخل طلای افتخاری غافلگیر کرده بود. تام کروز در سال ۲۰۲۲ چنین جایزه‌ای دریافت کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240365
+
+<div align="center"><video src="telegram/content/VahidOOnLine_240365.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/VahidOOnLine_240365.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌
+وزارت خارجه آمریکا اعلام کرد آتش‌بس میان اسرائیل و لبنان برای ۴۵ روز دیگر تمدید شده تا فرصت بیشتری برای ادامه مذاکرات فراهم شود.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240364
+
+<div align="center"><video src="telegram/content/VahidOOnLine_240364.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/VahidOOnLine_240364.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌
+اسرائیل اعلام کرد در حمله‌ای هوایی، عزالدین الحداد، ارشدترین فرمانده گروه تروریستی حماس در نوار غزه را هدف قرار داده است.
+
+هنوز گزارشی از وضعیت او منتشر نشده و حماس هم واکنشی نشان نداده است.
+
+الحداد در فهرست افراد تحت تعقیب اسرائیل قرار دارد و از سوی اسرائیل به عنوان یکی از «طراحان» حمله تروریستی هفت اکتبر معرفی شده است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 240363
 
@@ -258,42 +304,6 @@
 
 ترامپ همچنین گفت آمریکا جز بخش مربوط به شیرهای خروج نفت، جزیره خارگ را هدف قرار داده است.
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240346
-
-<div align="center"><video src="telegram/content/VahidOOnLine_240346.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/VahidOOnLine_240346.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«شما هم به کمپین حمایت از خانم سپهری بپیوندید»
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240345
-
-<div align="center"><img src="telegram/content/VahidOOnLine_240345.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک مقام وزارت خارجه آمریکا به الجزیره گفت فضای دومین روز مذاکرات میان لبنان و اسرائیل بسیار مثبت بوده و روند گفت‌وگوها فراتر از انتظارها پیش رفته است.
-
-این دومین روز از سومین دور مذاکرات میان اسرائیل و لبنان با میانجی‌گری ایالات متحده بود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240344
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیمارستان الغدیر تهران شامگاه ۱۸ و ۱۹ دی‌ماه ۱۴۰۴، شاهد گوشه‌ای از جنایتی بود که جمهوری اسلامی علیه معترضان مرتکب شد. ده‌ها پیکر بی‌جان و شمار زیادی از مجروحان به این بیمارستان منتقل شدند و به دلیل کمبود فضای سردخانه، تعدادی از کشته‌شدگان، پتوپیچ در حیاط پشت بیمارستان رها شدند. ایران‌اینترنشنال تاکنون هویت ۹ نفر از آن‌ها را شناسایی کرده که در این ویدیو چهار تن از آنها معرفی شده‌اند.
-فرنوش فرجی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,51 @@
 # آرشیو کانال FarsiVOA - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/27 02:46
+📅 آخرین بروزرسانی: 1405/02/27 03:54
 
 ---
+
+## FarsiVOA — post 217677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️آنچه دولت علی الزیدی برای عراق به ارمغان نمی‌آورد؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217676
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺مارکو روبیو: امیدواریم چین در واداشتن جمهوری اسلامی به اتمام بی‌ثبات‌سازی خلیج فارس نقش فعال‌تری ایفا کند
+
+▪️مارکو روبیو، وزیر امور خارجه آمریکا، در یک گفت‌وگوی اختصاصی با شان هنیتی از شبکه فاکس‌نیوز درباره تلاش‌ها برای وادار کردن چین به برخورد با جمهوری اسلامی ایران در ارتباط با اقداماتش در خلیج فارس توضیح داد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8149668.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217675
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺آمریکا سپرده ضمانت ویزا برای اعضای واجد شرایط تیم‌های شرکت‌کننده در «جام جهانی» و برخی هواداران را لغو کرد
+
+▪️ایالات متحده می‌گوید سپرده ضمانت ویزا برای اعضای واجد شرایط تیم‌ها و برخی هواداران تیم‌ها لغو کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8149664.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217674
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺مایک والتز: جمهوری اسلامی در انجام اقدامات غیرقانونی خود منزوی است
+
+▪️مایک والتز، سفیر آمریکا در سازمان ملل متحد، فهرستی از ۱۱۳ کشور را بازنشر کرد که پیش‌نویس قطعنامه شورای امنیت سازمان ملل که جمهوری اسلامی را به دلیل بستن تنگه هرمز محکوم می‌کند،‌ امضا کرده‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8149663.html
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217673
 
@@ -157,43 +200,5 @@ https://ir.voanews.com/a/nypost-chris-wright-iran-close-to-nuclear-weapon/814963
 ⬇️ بیشتر بخوانید:
 https://ir.voanews.com/a/hantavirus-cruise-spain-france-health-test/8149628.html
 @FarsiVOA
-</div>
-
-## FarsiVOA — post 217657
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺هشدار بنیاد نرگس: جسم نرگس محمدی توان تحمل هیچ «فشار مضاعفی» را ندارد
-
-◾️بنیاد نرگس، روز چهارشنبه ۲۳ اردیبهشت، در بیانیه‌ای ضمن تشریح روند درمانی نرگس محمدی در زنجان و تهران، اعلام کرد: «این زندانی سیاسی، نیازمند درمان دست‌کم ۸ ماهه است و بدنش در وضعیت فعلی توان تحمل هیچ‌گونه فشار مضاعف و بازگشت به شرایط حبس را ندارد.»
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/narges-mohammadi-prison-pressure-endurance-/8149626.html?withmediaplayer=1
-</div>
-
-## FarsiVOA — post 217656
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اروپا در دو مسیر؛ از اعزام ناوهای ایتالیا و بریتانیا به تنگه هرمز تا ابتکار دیپلماتیک فرانسه
-</div>
-
-## FarsiVOA — post 217655
-
-<div align="center"><video src="telegram/content/FarsiVOA_217655.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217655.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علم صالح در برنامه تفسیر خبر: جنگ باعث شد جمهوری اسلامی نفت خود را با قیمت ۱۰۳ دلار بفروشد
-</div>
-
-## FarsiVOA — post 217654
-
-<div align="center"><video src="telegram/content/FarsiVOA_217654.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217654.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مهدی عربشاهی در برنامه تفسیر خبر: علی خامنه‌ای با کلمه توسعه مشکل داشت
 </div>
 
