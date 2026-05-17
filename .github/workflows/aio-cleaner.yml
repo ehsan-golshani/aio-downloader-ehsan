@@ -9,7 +9,7 @@ on:
         type: boolean
         default: false
       clean_telegram:
-        description: 'پاک کردن دیتای Telegram (media, archive, last_ids)'
+        description: 'پاک کردن دیتای Telegram (data, last_ids)'
         required: false
         type: boolean
         default: false
