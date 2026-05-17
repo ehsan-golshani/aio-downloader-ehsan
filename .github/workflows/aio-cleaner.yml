@@ -4,7 +4,7 @@ on:
   workflow_dispatch:
     inputs:
       clean_all:
-        description: 'پاک کردن همه چیز (telegram, youtube, x, instagram, website, leecher, google-play, direct)'
+        description: 'پاک کردن همه چیز (telegram, youtube, x, instagram, website, leecher)'
         required: false
         type: boolean
         default: false
@@ -39,7 +39,7 @@ on:
         type: boolean
         default: false
       clean_google_play:
-        description: 'پاک کردن Google Play APKها'
+        description: 'پاک کردن Google Play'
         required: false
         type: boolean
         default: false
@@ -111,21 +111,18 @@ jobs:
           
           for platform in platforms:
               if platform == "telegram":
-                  # پاک کردن مدیاها
                   content_dir = Path("telegram") / "content"
                   if content_dir.exists():
                       shutil.rmtree(content_dir)
                       print("🧹 Deleted telegram/content/")
                       cleaned.append("telegram/content")
                   
-                  # پاک کردن آرشیو کانال‌ها
                   data_dir = Path("telegram") / "data"
                   if data_dir.exists():
                       shutil.rmtree(data_dir)
                       print("🧹 Deleted telegram/data/")
                       cleaned.append("telegram/data")
                   
-                  # پاک کردن فایل last_ids.json
                   last_ids_file = Path("telegram") / "last_ids.json"
                   if last_ids_file.exists():
                       last_ids_file.unlink()
@@ -160,7 +157,6 @@ jobs:
                       print(f"🧹 Deleted {platform}/")
                       cleaned.append(platform)
 
-          # ذخیره لیست برای commit
           with open("/tmp/cleaned_platforms.txt", "w") as f:
               f.write(",".join(cleaned))
           EOF
@@ -179,7 +175,6 @@ jobs:
             exit 0
           fi
 
-          # Stage deletions
           IFS=',' read -ra PLATFORM_ARRAY <<< "$PLATFORMS"
           for p in "${PLATFORM_ARRAY[@]}"; do
             if [ "$p" = "telegram/content" ]; then
