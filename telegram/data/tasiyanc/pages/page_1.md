@@ -1,0 +1,575 @@
+# آرشیو کانال tasiyanc - صفحه 1
+
+📅 آخرین بروزرسانی: 1405/02/27 20:03
+
+---
+
+## tasiyanc — post 4983
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀Slipnet Setting ✅Vpn MTU 512 ✅Max channel 64 ✅Enable split tunneling ON - only vpn، tunnel Telegram ... ✅Prevent dns fallback: OFF ✅Enable geo - bypass: ON ✅ compression : ON 🕊 Config setting 🔹 ✅Query 150 - 131 علامت مداد کنار کانفیگ بزنید بعد…
+</div>
+
+## tasiyanc — post 4982
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀Slipnet Setting ✅Vpn MTU 512 ✅Max channel 64 ✅Enable split tunneling ON - only vpn، tunnel Telegram ... ✅Prevent dns fallback: OFF ✅Enable geo - bypass: ON ✅ compression : ON 🕊 Config setting 🔹 ✅Query 150 - 131 علامت مداد کنار کانفیگ بزنید بعد…
+</div>
+
+## tasiyanc — post 4981
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀Slipnet Setting
+
+✅Vpn MTU 512
+
+✅Max channel 64
+
+✅Enable split tunneling ON - only vpn، tunnel Telegram ...
+
+✅Prevent dns fallback: OFF
+
+✅Enable geo - bypass: ON
+
+✅ compression : ON
+
+🕊 Config setting 🔹
+
+✅Query 150 - 131 علامت مداد کنار کانفیگ بزنید
+
+
+بعد انجام تنظیمات مارا از نتیجه باخبر سازید ♾
+📥 Link download Slipnet 📥
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 4980
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🕊 VyDns udp 🇮🇹 VPN mode slipnet-enc://Ads5sx+yoqI9uH2GLG5T7vJ3TUf/4Aq7gBGkHrXzLTr6zNLSDkyzW3TFUDiQm8BD9Y5Wtbn9D+P1M1R+m7YKSIRGreyo9Cpco1wq9srvSuTweVesC+M0lPo0e+L4nh30bTy0+t6vMKTX772cg943uf/HGl4Bh7Blt2hB7Es85DwcXSSEmq5sD4DimMW+D4vUKr3HUrqVmQ4aV0KR3PcA…
+</div>
+
+## tasiyanc — post 4979
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🕊 VyDns udp 🇮🇹 VPN mode
+
+slipnet-enc://Ads5sx+yoqI9uH2GLG5T7vJ3TUf/4Aq7gBGkHrXzLTr6zNLSDkyzW3TFUDiQm8BD9Y5Wtbn9D+P1M1R+m7YKSIRGreyo9Cpco1wq9srvSuTweVesC+M0lPo0e+L4nh30bTy0+t6vMKTX772cg943uf/HGl4Bh7Blt2hB7Es85DwcXSSEmq5sD4DimMW+D4vUKr3HUrqVmQ4aV0KR3PcA9g6DJ6H3NoxHn9m2awG3f71ko9WrTI+YOtku+/wzwjYUPvBjw6mu3KmarlXMlbDu3JhYPTKU6O4pGSZ4nK0r8kk80fVML3kjX/DfDjD2pA0fWUjIKmz/SjDcA3y/kNIyhCTfF31aHHzvv0NVKtNSm+FytIYYILk/jmTIQGDYkmjVuRFSn2gRHVs0KIZpUv3gHiMcE0LtJE2F7e+iF6ZKHp09JoccKoMtwGSGWNWviYS4BUVuPg0bzerHvpUlyJ0iYp6pv4nwQi09R6kz2DB8OkulgFt+5wiwtTY0QRO576tbRA5pWqI8v9WVWUwTz6hvYTIRK0SXvv2fgSa/LZwEVLWqybn4gYzZAD/DySrA/mlhzitSpmhb4UlKpkmoBoG/X/5QWgsJsSveN+UjxEz6VTux40L9JegE9EIYRiwUQRRyY/hMIL+pwHUJ5+loiLnPy+y4c9bHDiinvFbtvnYwJPVxCUtsSlPor21bRYfn+K1lDNtoDAPy0/HGhdYjKe2bNB2wZ27nDCTC0+IVXmTqh6MHdGpsFoEb1IbBE8bE41472E9sjLst1sL3
+
+✔ Setting For Slipnet ✔
+
+❤️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 4978
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه روشی هست تست کنم روی شیرخورشید جواب داد میگم
+شبیه ترکیبیه
+</div>
+
+## tasiyanc — post 4977
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Mci - 👑6️⃣
+
+95.101.29.12
+95.101.29.30
+95.101.29.54
+95.101.35.73
+95.101.35.83
+95.101.181.125
+95.101.200.63
+96.16.122.48
+96.16.122.59
+95.38.201.199
+80.191.243.226
+81.12.72.218
+81.91.145.2
+2.16.19.136
+2.16.221.37
+2.23.168.7
+2.23.168.47
+5.144.129.174
+5.160.13.85
+37.191.76.110
+79.175.169.59
+95.101.133.42
+104.103.65.5
+142.54.178.211
+151.101.64.223
+151.101.192.223
+185.137.25.214
+185.200.232.41
+185.200.232.42
+193.148.67.117
+2.23.168.144
+2.23.168.174
+2.23.168.213
+2.23.168.250
+2.23.168.254
+2.23.169.42
+2.23.169.111
+2.23.170.80
+92.246.144.179
+217.219.39.77
+2.19.205.88
+92.123.8.91
+2.23.170.80
+2.23.168.254
+2.23.169.105
+2.19.204.186
+185.200.232.40
+185.200.232.43
+2.17.251.98
+2.20.255.113
+2.21.239.21
+2.22.6.68
+2.23.168.7
+2.23.168.47
+2.23.168.96
+2.23.168.144
+2.23.168.174
+2.23.168.213
+2.23.169.105
+2.23.169.111
+2.23.169.207
+2.23.170.80
+23.2.13.152
+23.2.13.227
+23.40.63.69
+23.41.37.129
+23.46.188.71
+23.48.23.133
+23.48.23.178
+23.48.23.186
+23.48.23.195
+23.57.43.195
+23.59.235.208
+23.60.69.118
+23.65.119.52
+23.67.136.200
+23.67.136.202
+23.72.248.214
+23.73.2.141
+23.73.2.148
+23.73.2.161
+23.73.207.11
+23.79.20.249
+23.79.48.162
+23.211.49.252
+23.217.11.56
+23.219.1.4
+23.222.126.108
+65.109.34.234
+88.221.132.162
+88.221.168.5
+88.221.168.138
+88.221.213.81
+92.122.73.138
+92.122.166.141
+92.122.166.146
+92.122.166.168
+92.122.166.175
+92.122.166.182
+92.122.166.197
+92.122.166.234
+92.122.166.236
+92.122.166.237
+92.123.104.7
+92.123.104.67
+92.123.112.7
+92.123.189.41
+92.123.189.82
+95.100.69.108
+95.101.23.27
+96.7.218.219
+96.16.122.55
+96.16.122.66
+96.16.122.70
+96.16.122.74
+96.16.122.75
+96.16.122.77
+96.16.122.82
+96.16.122.83
+96.16.122.137
+96.16.122.146
+96.16.122.150
+96.16.122.154
+96.17.206.214
+96.17.207.12
+96.17.207.30
+96.17.207.137
+96.17.207.149
+96.17.207.151
+96.17.222.31
+104.66.70.133
+104.78.170.186
+104.81.104.13
+104.81.108.10
+104.81.108.51
+104.83.5.65
+104.83.5.82
+104.83.5.201
+104.83.5.202
+104.83.5.203
+104.83.5.208
+104.83.5.216
+104.83.15.66
+104.94.100.73
+104.96.143.134
+104.103.90.156
+104.109.128.153
+104.109.250.232
+104.110.138.190
+104.110.191.57
+104.117.76.40
+104.121.0.17
+104.122.212.92
+104.126.37.185
+142.54.178.211
+151.101.0.223
+151.101.64.223
+151.101.128.223
+151.101.192.223
+172.237.127.6
+172.239.57.117
+173.222.200.5
+184.24.77.5
+184.24.77.7
+184.24.77.11
+184.24.77.16
+184.24.77.21
+184.24.77.29
+184.24.77.32
+184.24.77.36
+184.24.77.42
+184.51.252.4
+184.51.252.36
+184.51.252.38
+184.51.252.135
+184.51.252.152
+184.51.252.157
+184.86.251.12
+185.200.232.41
+185.200.232.42
+185.200.232.49
+185.200.232.50
+142.54.178.211
+2.23.168.144
+2.23.168.47
+2.23.168.96
+2.23.168.213
+184.25.85.224
+23.1.241.123
+23.3.90.43
+0.191.243.226
+185.137.25.214
+5.144.129.174
+81.91.145.2
+104.83.5.208
+104.83.15.66
+104.94.100.73
+104.96.143.134
+104.103.64.7
+104.109.128.153
+104.111.202.158
+104.117.76.26
+104.117.76.40
+184.25.52.200
+184.28.230.87
+184.51.252.36
+184.51.252.38
+184.86.251.27
+23.215.0.164
+23.220.128.221
+96.17.207.142
+23.50.131.18
+23.219.3.212
+23.223.245.150
+96.17.207.135
+23.220.113.51
+96.17.72.41
+23.203.185.105
+2.23.168.213
+2.23.168.174
+96.17.207.137
+96.16.122.75
+173.222.200.5
+96.16.122.146
+96.17.206.214
+172.239.57.117
+96.17.207.30
+96.16.122.83
+96.16.122.150
+96.16.122.77
+96.17.207.155
+2.23.168.47
+2.23.168.144
+
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 4976
+
+<div align="center"><a href="base64/post_4976_Suski - ¹².npvt.base64.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Suski - ¹².npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید بین ۲ تا ۵ مین🦦
+اگر نتتون پایدار نیست پروکسی بزنید
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 4969
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@adolfazI1005_مادر_ایشون_جنده_تاسیان_میباشد.npvt
+</div>
+
+## tasiyanc — post 4967
+
+<div align="center"><a href="base64/post_4967_@adolfazI1005_مادر_ایشون_جنده_تاسیان_میباشد.npvt.base64.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @adolfazI1005_مادر_ایشون_جنده_تاسیان_میباشد.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@adolfazI1005
+</div>
+
+## tasiyanc — post 4954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بازه 📶 ✅ @StarTasiyan 1 Gb 275 - 2Gb 530
+</div>
+
+## tasiyanc — post 4953
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بازه 📶
+✅ @StarTasiyan
+
+1 Gb 275 - 2Gb 530
+</div>
+
+## tasiyanc — post 4952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢
+
+
+184.86.103.210
+96.16.248.183
+92.122.16.5
+96.16.249.60
+96.16.249.9
+23.12.156.115
+23.216.77.16
+23.62.61.53
+23.39.148.245
+23.210.73.133
+23.44.201.136
+23.205.46.167
+184.30.150.142
+23.220.161.217
+184.28.165.4
+23.46.230.133
+88.221.168.204
+104.96.158.174
+184.51.252.4
+172.234.199.15
+104.85.26.14
+172.237.145.27
+92.123.103.24
+172.234.159.58
+185.200.232.43  
+2.17.100.200
+2.19.205.42
+2.19.205.50
+2.19.252.134
+2.20.169.70
+2.20.170.91
+95.101.111.144
+2.16.245.188
+2.18.69.150
+2.16.106.4
+23.58.222.107
+184.25.28.31
+23.47.124.134
+23.50.131.147
+23.46.190.18
+23.58.222.147
+23.56.162.186
+23.44.203.68
+
+
+تست شده و متصل👍
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 4951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن؟
+</div>
+
+## tasiyanc — post 4950
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای اتصال پایدار زمان بدید همه کانفیگا تست شده
+</div>
+
+## tasiyanc — post 4949
+
+<div align="center"><a href="base64/post_4949_Nutella.npvt.base64.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Nutella.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 🦦
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 4948
+
+<div align="center"><a href="base64/post_4948_YT @Tasiyanc.npvt.base64.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 YT @Tasiyanc.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 🦦
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 4947
+
+<div align="center"><a href="base64/post_4947_Melanya @Tasiyanc.npvt.base64.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Melanya @Tasiyanc.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 🦦
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 4946
+
+<div align="center"><a href="base64/post_4946_Tufan.npvt.base64.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Tufan.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 🦦
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 4945
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 6️⃣👑
+
+184.24.77.16
+184.24.77.36
+184.24.77.21
+184.24.77.11
+185.200.232.49
+184.25.85.224
+23.1.241.123
+23.3.90.43
+185.200.232.50
+185.200.232.42
+185.200.232.41
+23.48.23.186
+23.48.23.133
+23.48.23.195
+23.48.23.178
+184.24.77.29
+2.22.21.152
+95.101.23.82
+23.215.0.164
+23.197.161.35
+184.28.230.87
+184.24.77.42
+184.24.77.32
+184.24.77.5
+184.24.77.7
+23.220.128.221
+96.17.207.142
+23.50.131.18
+23.36.162.209
+23.219.3.212
+23.223.245.150
+96.16.122.59
+23.2.13.138
+23.2.13.144
+96.17.207.135
+23.220.113.51
+96.17.72.41
+23.203.185.105
+84.26.13.91
+23.54.210.170
+23.44.201.206
+23.220.163.205
+23.209.46.33
+23.10.34.11
+23.39.185.35
+23.32.152.106
+23.218.232.181
+23.206.188.212
+2.21.2.89
+23.208.222.120
+23.48.203.248
+23.44.201.136
+23.44.201.151
+23.44.201.149
+2.21.2.58
+23.3.90.48
+23.44.201.41
+2.19.204.184
+23.218.232.188
+23.44.201.12
+23.212.253.227
+23.201.31.155
+23.220.163.203
+23.44.201.185
+23.52.116.66
+23.44.201.17
+23.62.54.24
+23.218.239.132
+23.39.149.69
+23.52.40.147
+23.58.95.144
+2.16.244.58
+23.212.253.137
+2.17.106.176
+23.62.54.137
+2.17.106.5
+23.203.134.233
+23.212.253.232
+23.206.188.197
+23.44.201.170
+23.54.127.39
+23.214.170.83
+23.52.40.89
+23.55.176.73
+23.202.229.140
+23.215.56.61
+2.17.106.166
+23.222.126.108
+
+❤️@Tasiyanc 😐
+</div>
+
