@@ -1,139 +1,160 @@
 # آرشیو کانال WithYashar - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/27 03:43
+📅 آخرین بروزرسانی: 1405/02/27 11:02
 
 ---
 
-## WithYashar — post 11350
+## WithYashar — post 11371
+
+<div align="center"><img src="telegram/content/WithYashar_11371.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حوس لوبیا پلو کردم 😅 امشب که بیداریم درست کنم
-</div>
-
-## WithYashar — post 11349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در تروث : تینا را آزاد کنید
-@withyashar
-تینا پیترز یک مقام انتخاباتی سابق آمریکاست که به‌خاطر دخالت غیرقانونی در سیستم‌های رأی‌گیری بعد از انتخابات 2020 زندانی شده و حالا ترامپ از او حمایت سیاسی می‌کند
-</div>
-
-## WithYashar — post 11348
-
-## WithYashar — post 11347
-
-## WithYashar — post 11346
-
-## WithYashar — post 11345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک‌تایمز به نقل از ۲ مقام امنیتی:
-
-آمریکا و اسرائیل در حال آماده‌سازی گسترده برای احتمال ازسرگیری حملات علیه جمهوری اسلامی هستند،
-
-این حمله ممکن است از هفته آینده آغاز شود
+استوری مشاور قالیباف تو اینستاگرام 🤣
 @withyashar
 </div>
 
-## WithYashar — post 11344
+## WithYashar — post 11370
+
+## WithYashar — post 11369
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه مسیج درست اگه تو دایرکت دیدی به من بگو ! انگار‌من کشیش کلیسام ! یا کلانتر محل !
-</div>
-
-## WithYashar — post 11343
-
-## WithYashar — post 11342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب حمله‌ست؟
-</div>
-
-## WithYashar — post 11341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب حمله‌ست؟
-</div>
-
-## WithYashar — post 11340
-
-<div align="center"><img src="telegram/content/WithYashar_11340.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صدا و سیما هم میدونه چی میشه داره آموزش کار با سلاح رو میده 😂 اینا رفتنین شک نکنید 👋🏾👋🏾
 @withyashar
 </div>
 
-## WithYashar — post 11339
+## WithYashar — post 11368
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه امشب شب‌زیبایی‌نبود و امید نبود الان رد میدادم ! با این پیغام هایی که دایرکت میاد
-</div>
+نیویورک تایمز از قول مقامات نظامی آمریکا:
 
-## WithYashar — post 11338
+اگر جزیره خارگ تصرف شود ، نیروهای زمینی برای حفظ آن لازم خواهند بود.
 
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عمو یاشار ما امشب منتظر اومدم اومدمیم😂🫡
-</div>
-
-## WithYashar — post 11337
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یاشار یچی خواستم بگم روم نشد ولی کلاهبرداریه اگه امکانش بود اطلاع رسانی کن ما پیوی ینفر رفتیم برامون خاله جور کنه واسه معرفی ۲۰۰ از ما گرفت بعد شماره طرفو داد گفت یک میلیون ۳۰۰ دیه برامون بزن گرفتیم براش زدیم بعد اومد گفت برای تضمین ۱۳ میلیون بزنید بعد اینکه…
-</div>
-
-## WithYashar — post 11336
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یاشار یچی خواستم بگم روم نشد ولی کلاهبرداریه اگه امکانش بود اطلاع رسانی کن
-ما پیوی ینفر رفتیم برامون خاله جور کنه واسه معرفی ۲۰۰ از ما گرفت بعد شماره طرفو داد گفت یک میلیون ۳۰۰ دیه برامون بزن گرفتیم براش زدیم بعد اومد گفت برای تضمین ۱۳ میلیون بزنید بعد اینکه کارتون تموم شد برش میگردونم حالا ما بهش گفتیم ۱۳ میلیون از کجا بیارم گفتم کنسلش کن ۱۳۰۰ بهمون برگردون اومده میگه اون مهریه بوده دیگه میره برا خالهه
-ولله به این پفیوزا اعتماد نکنید اگه امکانش هست بزار چنلت بقیه هم در جریان باشن
-</div>
-
-## WithYashar — post 11335
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ رسید آمریکا
 @withyashar
 </div>
 
-## WithYashar — post 11334
+## WithYashar — post 11367
+
+<div align="center"><video src="telegram/content/WithYashar_11367.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11367.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک تایمز: آمریکا محمد بکر سعید داود السعدی، فرمانده ارشد شبه‌نظامی گردان‌های حزب‌الله درعراق، رو دستگیر کرد و علیه‌اش کیفرخواست صادر کرد.
+تنها چیزی که می‌توانم بگویم این است که این یک موفقیت بزرگ بود.»
 
-او متهم به طراحی حداقل 18 حمله در اروپا، آمریکا و کانادا از پایان فوریه شده؛ این حملات به عنوان انتقام از حملات آمریکا و اسرائیل علیه جمهوری اسلامی برنامه‌ریزی شده بودن.
+رئیس جمهور ترامپ پس از سفر به چین به کاخ سفید بازگشت و به خبرنگاران گفت: «ما به توافق‌های بزرگی رسیدیم» و این دیدار را یک لحظه تاریخی خواند.
+
+سپس او به اتفاقات بیشتری در آینده اشاره کرد: «اتفاقات زیادی افتاده است و شما درباره آنها خواهید شنید.»
 @withyashar
 </div>
 
-## WithYashar — post 11333
-
-<div align="center"><video src="telegram/content/WithYashar_11333.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11333.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## WithYashar — post 11366
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لحظه خداحافظی ترامپ با شی و خوشحالی او از سفر موفقیت آمیزش
+ترامپ: افزایش قیمت‌ بنزین مرتبط با جنگ ایران «درد کوتاه‌مدت» است که بسیار کمتر از چیزی است که مردم انتظار داشتن.
+
+وقتی به کسی میگید که باید کمی بیشتر برای بنزین در یک دوره بسیار کوتاه بپردازید، چون میخوایم جلوی تهدید تکه‌تکه شدن توسط یک دیوانه، یک فرد دیوانه رو بگیریم، و آنها دیوانه هستن با استفاده از سلاح‌های هسته‌ای، همه میگن که این خوب است.
 @withyashar
 </div>
 
-## WithYashar — post 11332
+## WithYashar — post 11365
 
-<div align="center"><video src="telegram/content/WithYashar_11332.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11332.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## WithYashar — post 11364
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏مایک والتز، سفیر آمریکا در سازمان ملل ، می‌گوید که یکی از «نتایج بزرگ» سفر ترامپ به چین این بود که چین موافقت کرده از ایران فاصله بگیرد.
+صادق هدایت میگه دیگه
+میگه اگه کارت با سر و کله زدن با ادماس میفهمی چه ملت شریف زبون نفهمی داریم
+</div>
+
+## WithYashar — post 11363
+
+<div align="center"><video src="telegram/content/WithYashar_11363.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11363.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اف‌بی‌آی ترامپ یک توطئه تروریستی بزرگ را که قرار بود توسط یک فرمانده شبه‌نظامی تحت حمایت ایران در خاک ایالات متحده، کانادا و اروپا انجام شود، خنثی کرده است.
+محمد السعدی - رهبر کتائب حزب‌الله اسلام‌گرا - بیش از ۲۰ حمله را برنامه‌ریزی کرده بود. هدف او اماکن یهودی، از جمله یکی در نیویورک بود.
+جان‌های بیشتری نجات یافت
+«بنابراین او به اینجا آورده شد و امروز زودتر در دادگاه حاضر شد.»
+می خواهم در مورد این عملیات محتاط باشم تا کسی را به خطر نیندازم، اما همین کافی است که بگویم این تلاشی بود که نه تنها اف‌بی‌آی، بلکه شرکای اجرای قانون ما در خارج از کشور را نیز شامل می‌شد.
 @withyashar
 </div>
 
-## WithYashar — post 11331
+## WithYashar — post 11361
+
+<div align="center"><video src="telegram/content/WithYashar_11361.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11361.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منابع عبری :
+ترامپ: ما ۹ تا دوربین مختلف در فضا روی سایت هسته ای ایران داریم
 
-گویا ترامپ با یک حمله محدود جهت فشار بر سر تسلیم شدن موافقت کرده است
+می‌تونیم اسم طرف رو هم بخونیم
+مثلاً اگه اسمش محمد باشه، ‌که خب بیشترشون محمدن، تقریباً می‌تونیم حدس بزنیم که حدود ۵۰٪ اطلاعاتش درست در میاد
 @withyashar
 </div>
+
+## WithYashar — post 11360
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ : ویتنام ۱۹ سال طول کشید، عراق حدود ۱۰ سال، کره ۷ سال، یکی دیگه ۱۴ سال، یکی ۱۲ سال، یکی هم ۹ سال
+- ما فقط دو ماه و نیم اونجا بودیم
+- چین هم این هفته سه تا نفتکش پر از نفت ایران رو برد، چون ما اجازه دادیم این اتفاق بیفته،شما اجازه دادید
+@withyashar
+</div>
+
+## WithYashar — post 11359
+
+<div align="center"><video src="telegram/content/WithYashar_11359.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11359.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجریان صداوسیما برداشتن یه تصویر هوش مصنوعی رو گذاشتن و دارن تحلیلش میکنن!
+😂😂
+@withyashar
+</div>
+
+## WithYashar — post 11358
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط حال من رو فروشنده های بازار که با مردم سر و کله میززند و جماعت زبون نفهم و میبینند درک میکنند
+</div>
+
+## WithYashar — post 11357
+
+## WithYashar — post 11356
+
+## WithYashar — post 11355
+
+## WithYashar — post 11354
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک تایمز به نقل از مقامات آمریکا:
+
+دستیاران ترامپ برنامه‌هایی رو برای بازگشت به حملات نظامی به ایران آماده کردن، اگر او تصمیم بگیره با بمباران بیشتر از بن بست خارج بشه.
+
+از جمله گزینه‌ها، اعزام نیروهای ویژه به ایران برای هدف قرار دادن مواد هسته‌ای مدفون شده است و ممکنه از نیروهای ویژه برای کنترل جزیره خارک استفاده بشه.
+@withyashar
+</div>
+
+## WithYashar — post 11353
+
+<div align="center"><img src="telegram/content/WithYashar_11353.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جلد جدید مجله تایم: چگونه دیدار ترامپ و شی، نظم نوین جهانی را نشان داد
+@withyashar
+</div>
+
+## WithYashar — post 11352
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ خیلی عجله داشته هیچ فیلمی عکسی از رسیدنش نیومده بیرون ! عجبیه
+</div>
+
+## WithYashar — post 11351
+
+<div align="center"><video src="telegram/content/WithYashar_11351.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11351.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 

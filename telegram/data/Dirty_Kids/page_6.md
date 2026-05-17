@@ -1,8 +1,53 @@
 # آرشیو کانال Dirty_Kids - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/27 02:51
+📅 آخرین بروزرسانی: 1405/02/27 11:18
 
 ---
+
+## Dirty_Kids — post 389481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش حداقل خودمون ریده بودیم تو زندگیمون. درس خوندیم، کار کردیم، زحمت کشیدیم و نهایتا دستاوردش چی بوده؟ کیرخر
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389480
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389480.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امیدوارم برسه به دست ترامپ.
+عمویم خریت بچه ‌شیعه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389479
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍 🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389478
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389478.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A24
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+✅https://t.me/+4_ADqwB9e-QwYjlk
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
 
 ## Dirty_Kids — post 389477
 
@@ -198,67 +243,5 @@
 
 
 @Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389458
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389458.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ده‌هزار تا عکس داره یکی از یکی زیباتر
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389456
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389456.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریدم=)))))))))
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389455
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x ✖️  
-👍دارای مجوز رسمی Gambling Judge سوئد
-👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    3️⃣2️⃣ 🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
-</div>
-
-## Dirty_Kids — post 389454
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389454.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✖️ سایت بین المللی bet120x ✖️
-
- 
-👍دارای مجوز رسمی Gambling Judge سوئد
-👍
-     
-💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
-💳تسویه حساب دلاری سریع
-💊بیمه شرط میکس
-⚠️فروش شرط
-🔔ویرایش شرط                    3️⃣2️⃣
-
-🎁20%هدیه واریز از طریق ارز و ووچر
-┅━━━━━━━━━━━
-🎁 10%برگشت باخت به صورت روزانه
-🎁 10%برگشت باخت به صورت هفتگی
-🎁10%برگشت باخت به صورت ماهانه
-💻ادرس ورود به سایت:
-https://bet120x.com/fa/?btag=971470
-➖➖➖➖➖
-   👈 آموزش واریز و برداشت دلاری
-👉
-
-🔪کانال اطلاع رسانی:👇
-✈️https://t.me/+1Wv5nGY_a54xNzlk
 </div>
 

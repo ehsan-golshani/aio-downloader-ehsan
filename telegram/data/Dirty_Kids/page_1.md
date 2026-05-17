@@ -1,8 +1,60 @@
 # آرشیو کانال Dirty_Kids - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 02:51
+📅 آخرین بروزرسانی: 1405/02/27 11:18
 
 ---
+
+## Dirty_Kids — post 389598
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏از جمهوری اسلامی فقط؛
+
+۴۰۰ کیلو اورانیوم مونده با یه مشت گشنه‌ی کلاشینکف به دست.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389596
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389596.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سپاهیا در برابر مردم بی دفاع
+&
+سپاهیا در برابر ارتش دیگر کشورها
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389595
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«حالا یه بار کافه نری که نمیمیری»، «چندتا آهنگ نتونی تو اسپاتیفای گوش ندی که نمیمیری»
+اتفاقاً کم‌کم میمیریم. زندگی فقط زنده بودن نیست؛ همین خوشی‌های کوچیکه: قهوه، موسیقی، دورهمی، شب‌گردی، خریدای الکی. وقتی یکی‌یکی ازت گرفته بشن، فقط نفس میکشی
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389594
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389594.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389594.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همینطور که در فیلم محمد رسول الله هم میبینید در جنگ بدر؛ محمد به
+سپاهیانش دستور میده که چاههای آب رو با سنگ پرکنن و آب رو به روی دشمنانش میبنده
+
+چرا وقتی محمد این کار رو میکنه اسمش میشه تاکتیک جنگی ،اما حدود ۵۹ سال بعد وقتی همین کاررو سپاه یزید انجام میده اسمش ظلم و ستم هست؟🖕🖕
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389593
 
@@ -212,56 +264,6 @@ A26
 سال 1374، کل پاساژ علاءالدین: 500 میلیون
 
 سال 1405، آیفون 17 پرومکس: 500 میلیون
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389574
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389574.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389574.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ دقایقی پیش با انتشار این ویدئو در تروث‌سوشال در حال تمسخر روافض هزارپدره
-
-خار Ai رو گاییده 😂
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389573
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389573.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتی به نقشه های محسن رضایی خیلی اعتماد میکنی! 🤭🤣
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389572
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏ظهر رفتم دوش بگیرم، نگو کانفیگم روشن مونده و حجمش تموم شده.
-فکر میکنم از بعد از امیرکبیر، تا الان کسی اینجوری از حموم رفتن ضرر نکرده بوده.
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389571
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389571.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389571.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چی شد؟ مگه ۳۰ میلیون جانفدا نداشتید؟ افتادید دنبال ۵۰ ساله برای خدمت
 
 
 @Dirty_Kids 👻

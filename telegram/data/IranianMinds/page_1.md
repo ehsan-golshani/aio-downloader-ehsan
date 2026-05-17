@@ -1,8 +1,53 @@
 # آرشیو کانال IranianMinds - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 08:21
+📅 آخرین بروزرسانی: 1405/02/27 11:16
 
 ---
+
+## IranianMinds — post 20269
+
+<div align="center"><img src="telegram/content/IranianMinds_20269.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نت بلاکس :
+
+قطعی اینترنت در ایران وارد ۷۹ امین روز خودش شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20268
+
+<div align="center"><img src="telegram/content/IranianMinds_20268.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 میخائیل اولیانوف، نماینده روسیه در سازمان انرژی اتمی:
+
+کارشناسان غربی معتقدند که آمریکا
+و اسرائیل ممکن است در روزهای آینده، اگر نه در ساعت‌های آینده، حملات نظامی علیه جمهوری اسلامی را از سر بگیرند. اگر این موضوع درست باشد، به این معناست که آمریکا و اسرائیل از اشتباهات راهبردی گذشته خود درس نمی‌گیرند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20267
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 حماس: هشدار میدیم بهتون که دست از پا خطا کنید نابودتون میکنیم بمولا
+
++ یعنی اینارو‌ همشونو‌ از بین ببری یه چص ازشون بمونه همونم شروع میکنه گنده گوزی 😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20266
+
+<div align="center"><img src="telegram/content/IranianMinds_20266.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 توییت جدید اکانت کاخ سفید :
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20265
 
@@ -204,54 +249,6 @@ G26
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 دفتر ریاست جمهوری تایوان: در مورد موضوع فروش تسلیحات که توجه خارجی را به خود جلب کرده است، کاملاً مشخص است که چین همچنان به تشدید تهدیدات نظامی ادامه می‌دهد. این تنها منبع ناامنی در تنگه تایوان و منطقه هند و اقیانوس آرام است و همچنین به همین دلیل است که کشورهای اطراف زنجیره جزایر اول به طور فعال با ایالات متحده برای تقویت دفاع همکاری می‌کنند.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20248
-
-<div align="center"><video src="telegram/content/IranianMinds_20248.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20248.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دفتر ریاست جمهوری تایوان: از رئیس جمهور ترامپ به خاطر حمایت مستمرش از امنیت تنگه تایوان از زمان اولین دوره ریاست جمهوری‌اش تشکر می‌کنیم. ما همکاری تایوان و ایالات متحده را بیشتر تعمیق خواهیم کرد و از طریق قدرت، صلح را برقرار خواهیم کرد و اطمینان حاصل خواهیم کرد که امنیت و ثبات تنگه تایوان تهدید یا تضعیف نشود.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20247
-
-<div align="center"><img src="telegram/content/IranianMinds_20247.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ (فقط ۲۲۵ هزار تومن)🥺
-
-
-🌱 قیمت اقتصادی + پشتیبانی حرفه‌ای
-
-🚀 سریع و پایدار، بدون قطعی
-🦋پشتیبانی واقعی، همیشه در دسترس
-
-ربات ما🌴
-📩 @dayaconfigbot
-
-کانال ما🌳
-📩 @dayavpn
-</div>
-
-## IranianMinds — post 20245
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 منبع پاکستانی به الحدث: ما از آمریکا و ایران می‌خوایم برای جلوگیری از جنگ انعطاف بیشتری از خودشون نشون بدن.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ارتش اسرائیل هامر ایاد محمد آلماتوک و خالد محمد سالم گودا، دو تروریست سازمان تروریستی حماس را که در 7 اکتبر به خاک اسرائیل حمله کردند و توطئه های تروریستی را علیه نیروهای ما ترویج کردند، کشتند.
 
 @IranianMinds
 </div>

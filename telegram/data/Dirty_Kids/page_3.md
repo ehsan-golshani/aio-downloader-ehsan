@@ -1,8 +1,65 @@
 # آرشیو کانال Dirty_Kids - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/27 02:51
+📅 آخرین بروزرسانی: 1405/02/27 11:18
 
 ---
+
+## Dirty_Kids — post 389552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمونم خونه overthink ميكنم، برم بيرون overpay.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389551
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389551.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389551.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مامانم وقتی میگم از عمه خبری نیست:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389550
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+😀Telegram Channel👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389549
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389549.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
+
+👍دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+
+🔔کانال دربی بت :
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
 
 ## Dirty_Kids — post 389548
 
@@ -226,60 +283,6 @@ A25
 
 یه عده دفاع میکنن ازش
 یه عده هیت میدن
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389528
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389528.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 طبق گفته دو مقام خاورمیانه‌ای، آمریکا و اسرائیل دارن آماده‌سازی خیلی گسترده‌ای انجام می‌دن. (بزرگ‌ترین سطح از وقتی که آتش‌بس برقرار شده)
-
-این آماده‌سازی‌ها انقدر جدیه که ممکنه از هفته آینده دوباره حملات شروع بشه.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389526
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389526.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389526.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز یکی تو فضای مجازی با هوش مصنوعی یه عکس از ترامپ و ایلان ماسک زیر پرچم داس و چکشِ کمونیست ساخت؛
-
-بعد تو صداوسیما، خانعلی زاده (کارشناس روابط خارجی و همراه تیم مذاکره کننده تو سفر به پاکستان) خیلی جدی تحلیل کرد که این عکس خروجی سفر ترامپه و این یعنی آمریکا همیشه زیرخوابِ چینه...
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389525
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389525.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تراپی
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389524
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389524.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389524.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوب شد به حرف این 👆 گوش ندادن، اگه گوش میدادن الان موشعلی و فرمانده‌هاشو زنده بودن
-
-ولی بجاش رفتن به حرف رافئی‌پور و خوش‌چشم گوش دادن همشون کتلت شدن:)))
 
 
 @Dirty_Kids 👻

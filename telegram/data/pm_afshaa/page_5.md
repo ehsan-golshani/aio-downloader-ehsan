@@ -1,8 +1,16 @@
 # آرشیو کانال pm_afshaa - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/27 08:10
+📅 آخرین بروزرسانی: 1405/02/27 11:04
 
 ---
+
+## pm_afshaa — post 90793
+
+<div align="center"><img src="telegram/content/pm_afshaa_90793.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت تبلیغات با بازدهی بالا میتونین دایرکت کانال پیام بدین
+</div>
 
 ## pm_afshaa — post 90792
 
@@ -176,15 +184,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پس از سفر ترامپ و تیم اقتصادیش به چین، بازار سهام آمریکا باز هم رکورد تاریخی زد و حدود بیست درصد رشد رو تجربه کرد
-
-💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
-😁 @Pm_Afshaa
-</div>
-
-## pm_afshaa — post 90773
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وای‌نت: امارات متحده عربی تلاش کرد کشورهای همسایه رو برای حمله مشترک به جمهوری اسلامی متقاعد کنه.
 
 💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
 😁 @Pm_Afshaa

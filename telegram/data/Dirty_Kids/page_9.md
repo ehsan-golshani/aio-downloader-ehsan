@@ -1,8 +1,58 @@
 # آرشیو کانال Dirty_Kids - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/27 02:51
+📅 آخرین بروزرسانی: 1405/02/27 11:18
 
 ---
+
+## Dirty_Kids — post 389410
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389410.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درسته مکرون جلوی چشم دنیا چک خورد،
+ولی مدال طلای واکنش به لو رفتن چت عاشقانه،
+میرسه به زن ایرانی‌ای که وسط پرواز از خوابِ شوهرش استفاده کرد، با انگشتش گوشی رو باز کرد،
+با دیدن پیامای عاشقانه،
+چنان قشقرقی بپاکرد که هواپیما فرود اضطراری کرد تو هند 😭✈️
+بدون چمدون پیاده‌شون کردن🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389409
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389409.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانی بودن یعنی traumatized شدن با هر چیز ساده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389407
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389407.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دوست دختر جدید پوبون (رپر) از روی یه پُل تو مکزیک افتاده پایین و گویا کمر و گردنش شکسته؛
+
+پوبون هم استوریش کرده و از مردم خواسته که پول دونیت کنن تا هزینه عملش دربیاد...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من دیگه اگه بگن قراره یه ابر بزرگ بیاد رو آسمون ایران ازش کیر بباره تعجب نمیکنم.
+
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389405
 
@@ -226,32 +276,6 @@ https://bet120x.com/fa/?btag=971470
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 و همچنان گلی در حال درخشیدنه
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389387
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389387.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آلیس روزنبلوم ستاره اونلی فنز 2 میلیون دلار(360 میلیارد) از طرفدار درجه یکش دریافت کرد تا باهاش ملاقات کنه.
-
-طرفداراش وقتی آلیس رو دیده گفته هر روز ۳ بار باهاش خودارضایی می‌کرده!
-وقتی طرفدارش خواسته به بازوی آلیس دست بزنه، آلیس گفته به من دست نزن، تو خیلی چندش آوری! فورا از من دور شو وگرنه به پلیس زنگ میزنم.
-اون جقی بدبختم ۳۶۰ میلیاردش بگا میره و دست از پا دراز تر برمیگرده خونه.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389383
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389383.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ببخشید من متوجه نشدم تو این مثلث عشقی فاعل کیه؟
 
 
 @Dirty_Kids 👻

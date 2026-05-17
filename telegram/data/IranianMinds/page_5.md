@@ -1,8 +1,58 @@
 # آرشیو کانال IranianMinds - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/27 08:21
+📅 آخرین بروزرسانی: 1405/02/27 11:16
 
 ---
+
+## IranianMinds — post 20182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+ایران هرگز به سلاح هسته‌ای دست نخواهد یافت و تحت هیچ شرایطی فرصتی برای آن نخواهد داشت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20181
+
+<div align="center"><video src="telegram/content/IranianMinds_20181.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20181.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ درباره رهبر کره شمالی :
+
+من رابطه خیلی خوبی با کیم جونگ‌اون دارم.
+
+او به کشور ما احترام گذاشته است و من می‌خواهم همین احترام را ادامه دهد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20180
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ:
+
+80 درصد از توان موشکی ایران نابود شده است
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20179
+
+<div align="center"><video src="telegram/content/IranianMinds_20179.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/IranianMinds_20179.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ در مورد توقف فعالیت هسته ای ایران:
+
+۲۰ سال کافی است. اما میزان تضمینی که از طرف آن‌ها داده می‌شود… باید واقعاً ۲۰ سال باشد
+
+@IranianMinds
+</div>
 
 ## IranianMinds — post 20178
 
@@ -193,55 +243,5 @@ re25
 دو سال پیش، ما واقعاً کشوری در حال سقوط بودیم و من کاملاً با شی جین‌پینگ موافق بودم! ولی الان آمریکا داغ‌ترین و قدرتمندترین کشور دنیاست و امیدوارم رابطه‌مون با چین از همیشه قوی‌تر و بهتر بشه.
 
 @IranianMinds
-</div>
-
-## IranianMinds — post 20161
-
-<div align="center"><video src="telegram/content/IranianMinds_20161.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/IranianMinds_20161.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
-
-😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
-
-توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
-
-کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
-
-کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
-ae24
-🎯همین حالا عضو شو و شروع کن👇
-https://t.me/+OS-QBvyDO4M2ZGY0
-https://t.me/+OS-QBvyDO4M2ZGY0
-</div>
-
-## IranianMinds — post 20160
-
-<div align="center"><img src="telegram/content/IranianMinds_20160.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 محمد قنطری، سرپرست جدید امور سوریه در واشنگتن دی‌سی.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20159
-
-<div align="center"><img src="telegram/content/IranianMinds_20159.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پست جدید ترامپ:
-
-ایالت 243ام.
-
-@IranianMinds
-</div>
-
-## IranianMinds — post 20158
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-92.122.123.128 65.109.34.234 94.130.70.160 63.141.252.203 94.130.50.12 50.7.5.83 142.54.178.211 94.130.33.41 144.76.1.88 138.201.54.122 95.216.69.37 94.130.13.19 این ایپی هارو‌ هم تست کنید @IranianMinds
 </div>
 

@@ -1,8 +1,70 @@
 # آرشیو کانال Dirty_Kids - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/27 02:51
+📅 آخرین بروزرسانی: 1405/02/27 11:18
 
 ---
+
+## Dirty_Kids — post 389458
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389458.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ده‌هزار تا عکس داره یکی از یکی زیباتر
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389456
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389456.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریدم=)))))))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389455
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✖️ سایت بین المللی bet120x ✖️  
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍       💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 💳تسویه حساب دلاری سریع 💊بیمه شرط میکس ⚠️فروش شرط 🔔ویرایش شرط                    3️⃣2️⃣ 🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
+</div>
+
+## Dirty_Kids — post 389454
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389454.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✖️ سایت بین المللی bet120x ✖️
+
+ 
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍
+     
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+⚠️فروش شرط
+🔔ویرایش شرط                    3️⃣2️⃣
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+🎁 10%برگشت باخت به صورت روزانه
+🎁 10%برگشت باخت به صورت هفتگی
+🎁10%برگشت باخت به صورت ماهانه
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   👈 آموزش واریز و برداشت دلاری
+👉
+
+🔪کانال اطلاع رسانی:👇
+✈️https://t.me/+1Wv5nGY_a54xNzlk
+</div>
 
 ## Dirty_Kids — post 389453
 
@@ -232,75 +294,6 @@ ShirOKhorshid-2026.05.14.apk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دقیقا وقتی فکر می‌کنی جمهوری اسلامی تپه نریده باقی نذاشته، همون لحظه یه تپه جدید می‌سازه و میره سرش میرینه.
 فقط مونده بود برن از امارات کشتی بدزدن فرار کنن، که اونم گویا حاصل شد.
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ اپلیکیشن اندروید سایت جهانی دربی بت
-💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
-🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
-😀Telegram Channel👇
-https://t.me/+bcynkEgSW2dlYTc0
-</div>
-
-## Dirty_Kids — post 389433
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389433.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
-⛔
-
-
-👍دربی بت همون انتخاب  100%
-
-
-💎ویژگی های سایت جهانی Derby Bet:
-
-⬅️امکان شارژ امن با کارت بانکی
-
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-
-⬅️پر اپشن ترین سایت فعال در ایران
-
-⬅️تسویه حساب کمتر از 5 دقیقه
-
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید
-👉
-
-
-🔔کانال دربی بت :
-
-🪙https://t.me/+bcynkEgSW2dlYTc0
-</div>
-
-## Dirty_Kids — post 389432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سختی زبان چینی همینقدر بگم که اگه یکم تن صداتو بالا پایین کنی معنی کلمه از توت‌فرنگی به خوارتو گاییدم تغییر می‌کنه.
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389431
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389431.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389431.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شراب چینی ایلان ماسکو کصخل کرده، هر کی میاد باهاش عکس بگیره شکلک در میاره 😂
 
 
 @Dirty_Kids 👻

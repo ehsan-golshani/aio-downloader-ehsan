@@ -1,8 +1,77 @@
 # آرشیو کانال FarsiVOA - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/27 08:18
+📅 آخرین بروزرسانی: 1405/02/27 11:13
 
 ---
+
+## FarsiVOA — post 217863
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️موضع‌گیری شش کشور عربی علیه جمهوری اسلامی در نامه‌ای به شورای امنیت؛ گفت‌وگو با مجید گلپور
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217862
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺ترامپ: مقامات جمهوری اسلامی دیوانه‌‌اند و به‌همین دلیل نباید سلاح هسته‌ای داشته باشند؛ پس از هر توافقی وانمود می‌کنند هیچ مذاکره‌ای نشده است
+
+◾️دونالد ترامپ، رئیس‌جمهوری آمریکا، در مصاحبه‌ای با فاکس‌نیوز گفت ایالات متحده می‌تواند پل‌ها و نیروگاه‌ها در ایران را «در دو روز» منهدم کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150501.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217861
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️گزارش صدای آمریکا از نشست امنیتی نشریه پولیتیکو
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217860
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺وزارت دادگستری آمریکا برای فرد متهم به قتل دو کارمند سفارت اسرائيل در واشنگتن درخواست مجازات اعدام می‌کند
+
+◾️دادستان‌ها در آمریکا روز جمعه اعلام کردند که وزارت دادگستری ایالات متحده برای مردی که متهم است دو کارمند سفارت اسرائیل در واشنگتن را در بیرون یک موزه یهودیان با شلیک گلوله کشت، درخواست مجازات اعدام خواهد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150497.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217859
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺یک رهبر کتائب الحزب‌الله به اتهامات تروریستی در آمریکا محاکمه می‌شود؛ یار عراقی «قاسم سلیمانی» خارج از ایالات متحده دستگیر شد
+
+◾️وزارت دادگستری ایالات متحده روز جمعه ۲۵ اردیبهشت از آغاز محاکمه محمد‌باقر سعد داوود السعدی، تبعه عراقی و عضو ارشد کتائب حزب‌الله خبر داد و او را به همکاری با سازمان‌های تروریستی تحت حمایت رژیم ایران و هدایت حملات علیه شهروندان و منافع ایالات متحده متهم کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150492.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217857
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺اسرائيل به رهبر شاخه نظامی حماس حمله کرد؛ عزالدین حداد یکی از طراحان «قتل‌عام ۷ اکتبر» بود
+
+◾️وزیر دفاع اسرائیل، یسرائیل کاتز، روز جمعه ۲۵ اردیبهشت گفت ارتش اسرائیل به دستور او و نخست‌وزیر اسرائیل، عزالدین حداد، رهبر شاخه نظامی سازمان تروریستی حماس و یکی از طراحان قتل‌عام ۷ اکتبر ۲۰۲۳ را هدف قرار داده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-hamas-hezbollah-lebanon-october-7-/8150485.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217856
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️از «اینترنت پرو» و «قلک» توصیف شده برای همراه اول، ایرانسل، و رایتل تا هشدارها درباره بنزین ۲۰ هزار تومانی؛ فشار اقتصادی و معیشتی بر مردم ایران ادامه دارد.
+@FarsiVOA
+</div>
 
 ## FarsiVOA — post 217855
 
@@ -125,55 +194,5 @@ https://ir.voanews.com/a/iran-israel-hezbollah-lebanon-washington/8150375.html
 گزارش کامل را در وب‌سایت صدای آمریکا بخوانید.
 
 @FarsiVOA
-</div>
-
-## FarsiVOA — post 217842
-
-<div align="center"><video src="telegram/content/FarsiVOA_217842.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217842.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مهدی قدسی در برنامه تفسیر خبر: چین ذخایر استراتژیک خود را پر کرده بود و در مقابل بحران تا چند ماه تاب‌آوری دارد
-</div>
-
-## FarsiVOA — post 217841
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پوشش ویژه | بخشی از سخنرانی معاون رئیس جمهوری آمریکا در مراسم یادبود افسران صلح
-</div>
-
-## FarsiVOA — post 217840
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در حالی که سفر پرزیدنت ترامپ به چین توجه جهان را جلب کرده است، مردم درباره تأثیر این دیدار بر روابط آمریکا و چین، اقتصاد جهانی، و نقش جمهوری اسلامی و خاورمیانه صحبت می‌کنند.
-</div>
-
-## FarsiVOA — post 217839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کامبیز غفوری در برنامه تفسیر خبر: جمهوری اسلامی اکنون دشمن اصلی اعراب است
-</div>
-
-## FarsiVOA — post 217838
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گفت‌و‌گوی پرزیدنت ترامپ و مرتس همزمان با تشدید جنگ اوکراین و واکنش تند اروپا به روسیه
-</div>
-
-## FarsiVOA — post 217837
-
-<div align="center"><video src="telegram/content/FarsiVOA_217837.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217837.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد قائدی در برنامه تفسیر خبر: آمریکا مشتاق حل بحران در تنگه هرمز است
-</div>
-
-## FarsiVOA — post 217836
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بررسی جزئیات درگیری لفظی نمایندگان جمهوری اسلامی و امارات در کنفرانس بریکس در گفت‌و‌گو با موسی شریفی، خبرنگار شبکه العربیه و تحلیل‌گر امور جهان عرب
 </div>
 

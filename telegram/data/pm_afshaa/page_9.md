@@ -1,8 +1,17 @@
 # آرشیو کانال pm_afshaa - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/27 08:10
+📅 آخرین بروزرسانی: 1405/02/27 11:04
 
 ---
+
+## pm_afshaa — post 90707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بلومبرگ: صادرات نفت ایران از جزیره خارک برای اولین بار از زمان شروع جنگ متوقف شده و تصاویر ماهواره‌ای نشان میده که مخازن ذخیره‌سازی نفت تقریباً به ظرفیت کامل خود رسیدن.
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+😁 @Pm_Afshaa
+</div>
 
 ## pm_afshaa — post 90706
 

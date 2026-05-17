@@ -1,8 +1,58 @@
 # آرشیو کانال Dirty_Kids - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 02:51
+📅 آخرین بروزرسانی: 1405/02/27 11:18
 
 ---
+
+## Dirty_Kids — post 389574
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389574.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389574.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ دقایقی پیش با انتشار این ویدئو در تروث‌سوشال در حال تمسخر روافض هزارپدره
+
+خار Ai رو گاییده 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389573
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389573.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی به نقشه های محسن رضایی خیلی اعتماد میکنی! 🤭🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389572
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏ظهر رفتم دوش بگیرم، نگو کانفیگم روشن مونده و حجمش تموم شده.
+فکر میکنم از بعد از امیرکبیر، تا الان کسی اینجوری از حموم رفتن ضرر نکرده بوده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389571
+
+<div align="center"><video src="telegram/content/Dirty_Kids_389571.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/Dirty_Kids_389571.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چی شد؟ مگه ۳۰ میلیون جانفدا نداشتید؟ افتادید دنبال ۵۰ ساله برای خدمت
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389570
 
@@ -234,62 +284,5 @@ G26
 
 
 @Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمونم خونه overthink ميكنم، برم بيرون overpay.
-
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389551
-
-<div align="center"><video src="telegram/content/Dirty_Kids_389551.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/Dirty_Kids_389551.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مامانم وقتی میگم از عمه خبری نیست:
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389550
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ اپلیکیشن اندروید سایت جهانی دربی بت
-💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
-🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
-😀Telegram Channel👇
-https://t.me/+bcynkEgSW2dlYTc0
-</div>
-
-## Dirty_Kids — post 389549
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389549.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
-
-👍دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-
-🔔کانال دربی بت :
-🪙https://t.me/+bcynkEgSW2dlYTc0
 </div>
 

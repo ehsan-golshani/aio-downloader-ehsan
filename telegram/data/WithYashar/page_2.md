@@ -1,155 +1,178 @@
 # آرشیو کانال WithYashar - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 03:43
+📅 آخرین بروزرسانی: 1405/02/27 11:02
 
 ---
 
-## WithYashar — post 11412
+## WithYashar — post 11433
+
+<div align="center"><video src="telegram/content/WithYashar_11433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داداش ناموسا من اونجا بودم داد میزدم به شاهزاده میگفتم حتما با یاشار ملاقات حضوری بکن
-</div>
-
-## WithYashar — post 11411
-
-<div align="center"><img src="telegram/content/WithYashar_11411.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو سخت ترین شرایط بهمون روحیه دادی، تو جلسه ی بچه های تکنولوژی با شاهزاده به یادت بودیم!❤️
-</div>
-
-## WithYashar — post 11410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرهاد مجیدی با البطائح به دسته دو امارات سقوط کرد
+چنته هرکسی که توخالی باشد بالاخره معلوم میشود
 @withyashar
 </div>
 
-## WithYashar — post 11409
+## WithYashar — post 11432
+
+<div align="center"><video src="telegram/content/WithYashar_11432.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11432.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این ناو گروه در حال فرار هستن یا چی ؟
-</div>
+مجری : خواهش می‌کنم سلام من رو به مجتبی خامنه‌ای برسونید.
 
-## WithYashar — post 11408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این ناو گروه در حال فرار هستن یا چی ؟
-</div>
-
-## WithYashar — post 11407
-
-<div align="center"><img src="telegram/content/WithYashar_11407.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ناوگروه آبراهام لینکلن با سه اسکورت با سرعت به سمت دریای عمان می‌ روند ، ۲۶ اردیبهشت. (مکان 260 کیلومتری چابهار)
+حدادعادل: والا منم به دامادم دسترسی ندارم، از همین‌جا بهش سلام می‌رسونم.
 @withyashar
 </div>
 
-## WithYashar — post 11406
+## WithYashar — post 11431
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شبکه 13 اسرائیل: هم اکنون ارزیابی‌ها در اسرائیل بر این است که جنگ با ایران در روز های آینده از سر گرفته خواهد شد.
+ایران به عبری ی توییت زد ک پیام روشن بود لفاظی نکنید... המסר היה ברור: אל תהיו רטוריים... یعنی کار ایران بوده؟ مث ک کلاهک اتمی اسراییل اونجا نگهداری میشده
+</div>
+
+## WithYashar — post 11430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران به عبری ی توییت زد ک
+
+پیام روشن بود لفاظی نکنید...
+המסר היה ברור: אל תהיו רטוריים...
+یعنی کار ایران بوده؟
+مث ک کلاهک اتمی اسراییل اونجا نگهداری میشده
+</div>
+
+## WithYashar — post 11429
+
+<div align="center"><video src="telegram/content/WithYashar_11429.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11429.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ناو هواپیمابر جرالد فورد به خانه بازگشت
 @withyashar
 </div>
 
-## WithYashar — post 11405
+## WithYashar — post 11428
+
+<div align="center"><video src="telegram/content/WithYashar_11428.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11428.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ: اگه به آمریکایی‌ها آسیب بزنید، یا در حال برنامه‌ریزی برای آسیب زدن به آمریکایی‌ها باشید، ما شما رو پیدا خواهیم کرد و خواهیم کشت.
+انفجار سنگین در بیت شمس و دیده شدن ابر قارچی گزارش شده که در کارخانه شرکت تومر رخ داد. این شرکت موتورهای موشک سنگین و سبک، از جمله موتورهای پیشران موشک‌های ارو ۲ و ارو ۳، موتور موشک هدف سیلور انکر، موتورهای ماهواره هورایزن و موتورهای موشک باراک ۸ و باراک ام‌ایکس را توسعه و تولید می‌کند.
 @withyashar
 </div>
 
-## WithYashar — post 11404
+## WithYashar — post 11427
+
+## WithYashar — post 11426
+
+<div align="center"><video src="telegram/content/WithYashar_11426.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11426.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در گفت‌وگوی تلفنی با شبکه فرانسوی «بی‌اف‌ام‌تی‌وی»:
-
-آینده مذاکرات نامشخص است اما اگر توافقی حاصل نشود ایران روزهای بسیار سختی در پیش خواهد داشت
+امشب بیداریم !
 @withyashar
 </div>
 
-## WithYashar — post 11403
+## WithYashar — post 11424
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-العربیه: طبق گفته منابع آگاه پاکستانی، در بحث تنگه هرمز، پیشرفت‌هایی حاصل شده است
+‏ جیمی دیمون، مدیرعامل جی‌پی‌مورگان چیس، درباره ایران:
+
+‏آنها ۴۷ سال است که تجاوز، قتل و کشتار می‌کنند. دنیای غرب اجازه جنگ‌های نیابتی را داد.
+‏ما درس عبرت گرفتیم - باید سال‌ها پیش به سراغ سر مار می‌رفتیم.
 @withyashar
 </div>
 
-## WithYashar — post 11402
+## WithYashar — post 11423
 
-<div align="center"><video src="telegram/content/WithYashar_11402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/WithYashar_11402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+<div align="center"><img src="telegram/content/WithYashar_11423.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوئل نهایی ، وضعیت الان!
+محمد امین صابرکار، دانش‌آموز ۱۷ ساله بسیجی بوشهری،‌ حین انجام تمرینات تیراندازی اشتباها با آتش خودی(فرندلی فایر😬) کشته شد
 @withyashar
 </div>
 
-## WithYashar — post 11401
+## WithYashar — post 11422
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عرزشی ها اومدن که خبر مرگ بابای سپاهیشون رو زودتر تو چنلت ببینن
-اخه از رسانه های دیگه ۱ ساعت حداقل جلوتری ستون😂🔥
+@withyashar فرهنگ ما همیشه غالب میشه
 </div>
 
-## WithYashar — post 11400
+## WithYashar — post 11421
 
-<div align="center"><img src="telegram/content/WithYashar_11400.jpg" alt="Photo"></div>
+<div align="center"><video src="telegram/content/WithYashar_11421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/WithYashar_11421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید ترامپ :
-
-شوخی نداریم!!!
-ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیفته!
+گوش جان میسپریم به فریدون عزیز تا من موتورم رو گرم کنم ویس بزارم
 @withyashar
 </div>
 
-## WithYashar — post 11399
+## WithYashar — post 11420
+
+<div align="center"><img src="telegram/content/WithYashar_11420.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سقوط یک شهر پاکستان به دست جدایی‌طلبان
+ترامپ در تروث : آرامش فبل از طوفان
 
-منابع محلی روز شنبه از تسلط جدایی‌طلبان بلوچ بر شهر راهبردی دالبندین در پاکستان خبر می‌دهند.
+قایق تندرو با پرچم جمهوری اسلامی دیده میشود …
 @withyashar
 </div>
 
-## WithYashar — post 11398
+## WithYashar — post 11419
+
+## WithYashar — post 11418
+
+<div align="center"><img src="telegram/content/WithYashar_11418.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط برای یک پست که نمیشه ببندم مهندس ! کلا ببندمم که یعنی میگی خنده رو از روی لب چندین هزار نفر بگیرم به خاطر ده نفر. ما اینجا هدف اصلیمون مبارزه با اخبار سمیه و روحیه دادن به مردم. اجازه بدید در عرزشی سوزترین رسانه ایرانی بسوزند و حرس بخورند
+مشاورین شاهزاده (امیر اعتمادی و سعید قاسمینژاد) ، علی کریمی‌ رو به علت واکنش ‌به کنسرت و آهنگ شاهین نجفی آنفالو کردند @withyashar
 </div>
 
-## WithYashar — post 11397
+## WithYashar — post 11417
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میتونی ری‌اکشن رو هم ببندی داداش!
-</div>
+شاهزاده رضا پهلوی در نشست آینده تکنولوژی در ایران:
 
-## WithYashar — post 11396
+ایران می‌تونه به کره جنوبی تبدیل بشه، اما به دلیل وضعیت سیاسی کنونی به سمت الگویی شبیه کره شمالی سوق داده شده؛ جمهوری اسلامی در ذات خودش قابل تغییر نیست.
 
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این پست اوناییکه استیکر خنده گذاشتن رو از کانال مسدودشون کن
-</div>
-
-## WithYashar — post 11395
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این پست اوناییکه استیکر خنده گذاشتن رو از کانال مسدودشون کن
-</div>
-
-## WithYashar — post 11394
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لازم به ذکر است شخص اینجانب ، یاشار در اتاق جنگ هیچ رابطه و تیمکشی با هیچ گروه جناح و سمتی ندارم مسیر من مسیر مانوک خدابخشیان و فریدون فرخزاد است و هم پیمانان من فقط مردم واقعی و وطن پرست ایران هستند و برگ برنده ما همه با هم اینجا برای عبور از مسیر فقط فقط فقط خود شخص شاهزاده رضا پهلوی است ، یک بار دیگه خواستم اهداف و مسیر خودم را مشخص و کلیر کنم
 @withyashar
 </div>
 
-## WithYashar — post 11393
+## WithYashar — post 11416
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشاورین شاهزاده (امیر اعتمادی و سعید قاسمینژاد) ، علی کریمی‌ رو به علت واکنش ‌به کنسرت و آهنگ شاهین نجفی آنفالو کردند
+کانال ۱۳ اسرائیل:
+اسرائیل در بالاترین سطح هشدار برای احتمال از سرگیری جنگ با ایران است. در صورت از سرگیری جنگ با ایران، احتمال دارد ایران در روزهای نخست ده‌ها موشک به سمت اسرائیل شلیک کند.
+@withyashar
+</div>
+
+## WithYashar — post 11415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قلعه نویی در لیست نهایی جام جهانی آزمونو خط زد و گفت باشرف هارو دعوت کردم.
+@withyashar
+</div>
+
+## WithYashar — post 11414
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وال استریت ژورنال : ایران و آمریکا بر سر یک موضوع توافق دارند در حالی که بن‌بست دیپلماتیک بین تهران و واشنگتن ادامه دارد, هر دو طرف می‌گویند که در حال حاضر درباره سرنوشت ذخایر اورانیوم غنی‌شده ایران بحث نمی‌کنند.
+@withyashar
+</div>
+
+## WithYashar — post 11413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتانیاهو : اگه آمریکا دوباره بخواد عملیات نظامی علیه ایران رو شروع کنه، اسرائیل آماده‌ست
 @withyashar
 </div>
 

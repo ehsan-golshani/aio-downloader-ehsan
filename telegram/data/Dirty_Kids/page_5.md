@@ -1,8 +1,63 @@
 # آرشیو کانال Dirty_Kids - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/27 02:51
+📅 آخرین بروزرسانی: 1405/02/27 11:18
 
 ---
+
+## Dirty_Kids — post 389502
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389502.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+⚫️با بالاترین کیفیت ممکن⚡️ 
+⚫️100 هزار تومان شارژ هدیه 🎁
+⚫️پایین ترین قیمت گیگی 250🌐 
+⚫️و ارائه پورسانت %10 در ازای هر معرفی💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی🚀
+
+بادبان راهتو باز می‌کنه⛵️
+
+G25
+🛡@BadBan_VPN | کانال 
+🤖@BadBan_VPNBot | ربات 
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389501
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نمیدونم کیه این پسره و چه برنامه‌ای هست ولی داره درست میگه، این اقلیت ۵درصدی رافضی ولایت‌به‌باسن برای اینکه بمونن راضین همرو بکشن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389500
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389500.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یعنی این فیلم The Odyssey که قراره بسازن مزخرف ترین فیلمی خواهد بود که تاحالا ساخته شده!
+نقش آشیل رو قراره یه زن تغییر جنسیت داده بازی کنه و نقش هلن رو قراره یه سیاه پوست لاغر.🥴
+حتی به دول آشیل و رنگ پوست هلن هم رحم نگردن این چپهای کسخل
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389498
+
+<div align="center"><img src="telegram/content/Dirty_Kids_389498.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از پدرهای پویان مختاری هم پیدا شد
+
+
+@Dirty_Kids 👻
+</div>
 
 ## Dirty_Kids — post 389497
 
@@ -240,50 +295,5 @@ R25
 
 
 @Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389481
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاش حداقل خودمون ریده بودیم تو زندگیمون. درس خوندیم، کار کردیم، زحمت کشیدیم و نهایتا دستاوردش چی بوده؟ کیرخر
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389480
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389480.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امیدوارم برسه به دست ترامپ.
-عمویم خریت بچه ‌شیعه:
-
-
-@Dirty_Kids 👻
-</div>
-
-## Dirty_Kids — post 389479
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍 🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
-</div>
-
-## Dirty_Kids — post 389478
-
-<div align="center"><img src="telegram/content/Dirty_Kids_389478.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 👍
-
-🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
-
-رایگان بهترین شرط هارو براتون میذاره
-حتی هزار تومن هم دریافت نمیکنه
-روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
-A24
-اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
-✅https://t.me/+4_ADqwB9e-QwYjlk
-✅https://t.me/+4_ADqwB9e-QwYjlk
 </div>
 

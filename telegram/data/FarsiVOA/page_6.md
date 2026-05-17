@@ -1,8 +1,58 @@
 # آرشیو کانال FarsiVOA - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/27 08:18
+📅 آخرین بروزرسانی: 1405/02/27 11:13
 
 ---
+
+## FarsiVOA — post 217842
+
+<div align="center"><video src="telegram/content/FarsiVOA_217842.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217842.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مهدی قدسی در برنامه تفسیر خبر: چین ذخایر استراتژیک خود را پر کرده بود و در مقابل بحران تا چند ماه تاب‌آوری دارد
+</div>
+
+## FarsiVOA — post 217841
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پوشش ویژه | بخشی از سخنرانی معاون رئیس جمهوری آمریکا در مراسم یادبود افسران صلح
+</div>
+
+## FarsiVOA — post 217840
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در حالی که سفر پرزیدنت ترامپ به چین توجه جهان را جلب کرده است، مردم درباره تأثیر این دیدار بر روابط آمریکا و چین، اقتصاد جهانی، و نقش جمهوری اسلامی و خاورمیانه صحبت می‌کنند.
+</div>
+
+## FarsiVOA — post 217839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کامبیز غفوری در برنامه تفسیر خبر: جمهوری اسلامی اکنون دشمن اصلی اعراب است
+</div>
+
+## FarsiVOA — post 217838
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گفت‌و‌گوی پرزیدنت ترامپ و مرتس همزمان با تشدید جنگ اوکراین و واکنش تند اروپا به روسیه
+</div>
+
+## FarsiVOA — post 217837
+
+<div align="center"><video src="telegram/content/FarsiVOA_217837.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="telegram/content/FarsiVOA_217837.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمد قائدی در برنامه تفسیر خبر: آمریکا مشتاق حل بحران در تنگه هرمز است
+</div>
+
+## FarsiVOA — post 217836
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بررسی جزئیات درگیری لفظی نمایندگان جمهوری اسلامی و امارات در کنفرانس بریکس در گفت‌و‌گو با موسی شریفی، خبرنگار شبکه العربیه و تحلیل‌گر امور جهان عرب
+</div>
 
 ## FarsiVOA — post 217835
 
@@ -103,96 +153,6 @@ https://ir.voanews.com/a/iraq-export-oil-strait-hormuz/8150380.html/?nocach=1
 
 ناسا می‌گوید این مرکز به آماده‌سازی فناوری‌های مورد نیاز برای ماموریت‌های آینده به ماه کمک می‌کند.
 
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217821
-
-<div align="center"><img src="telegram/content/FarsiVOA_217821.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به گفته فرماندهی مرکزی ایالات متحده، سنتکام، نیروهای آمریکایی در چارچوب اجرای محاصره دریایی علیه جمهوری اسلامی ایران تاکنون مسیر ۷۵ کشتی تجاری را تغییر داده و چهار شناور را از کار انداخته‌اند.
-
-سنتکام تصویر یک بالگرد سی‌هاوک که از عرشه ناوشکن «یو‌اس‌اس رافائل پرالتا» در دریای عرب به پرواز درآمده را منتشر کرده است.
-
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217820
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رئیس‌جمهوری آمریکا، که پس از یک سفر سه‌روزه پکن را به مقصد واشنگتن ترک کرد، از پیشرفت‌های تجاری میان دو کشور خبر داده است
-</div>
-
-## FarsiVOA — post 217819
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ترامپ: با تعلیق ۲۰ ساله برنامه هسته‌ای ایران موافقم، «اگر یک تعهد واقعی باشد»
-
-▪️پرزیدنت ترامپ با غیرقابل قبول خواندن تازه‌ترین پیشنهاد رژیم ایران، اشاره کرد که تعلیق ۲۰ساله، به شرط این که واقعا ۲۰ سال تضمین شده باشد، کافی است.
-
-⬇️ بیشتر بخوانید:
-
-https://ir.voanews.com/a/8150374.html/?nocach=1
-</div>
-
-## FarsiVOA — post 217818
-
-<div align="center"><video src="telegram/content/FarsiVOA_217818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگنده‌های اف-۱۶ امارات متحده عربی، هواپیمای حامل نارندرا مودی، نخست‌وزیر هند، را هنگام عبور از حریم هوایی امارات اسکورت کردند.
-
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217817
-
-<div align="center"><video src="telegram/content/FarsiVOA_217817.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="telegram/content/FarsiVOA_217817.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصاویر منتشرشده در شبکه‌های اجتماعی، لحظه وقوع حمله هوایی اسرائیل به منطقه العباسیه در شهرستان صور در جنوب لبنان را نشان می‌دهد.
-
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217816
-
-<div align="center"><img src="telegram/content/FarsiVOA_217816.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر خارجه جمهوری اسلامی اعلام کرد که حکومت ایران از هرگونه تلاش دیپلماتیک چین برای کاهش تنش در درگیری با ایالات متحده استقبال خواهد کرد.
-
-عباس عراقچی در یک کنفرانس خبری در دهلی نو و در جریان سفرش برای شرکت در نشست وزرای خارجه بریکس گفت: «ما از هر کشوری که بتواند به روند حل‌وفصل کمک کند استقبال می‌کنیم، به‌ویژه چین. چین در گذشته نیز در ازسرگیری روابط ایران و عربستان نقش مثبتی ایفا کرده است.»
-
-او افزود: «ما روابط بسیار خوبی با چین داریم و دو کشور شرکای راهبردی یکدیگر هستند. می‌دانیم که چینی‌ها نیت خوبی دارند، بنابراین هر اقدامی که از سوی آن‌ها برای کمک به دیپلماسی انجام شود، از سوی جمهوری اسلامی ایران مورد استقبال قرار خواهد گرفت.»
-
-چین شریک دیپلماتیک نزدیک جمهوری اسلامی و بزرگ‌ترین خریدار نفت ایران است.
-
-خبرگزاری رویترز، ساعاتی پس از ترک پکن از سوی دونالد ترامپ، رئیس‌جمهور آمریکا گزارش داد که او اعلام کرده که با تعلیق برنامه هسته‌ای ایران به مدت ۲۰ سال موافق است، اما باید یک «تعهد واقعی» از سوی تهران وجود داشته باشد.
-@FarsiVOA
-</div>
-
-## FarsiVOA — post 217815
-
-<div align="center"><img src="telegram/content/FarsiVOA_217815.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک رسانه اسرائیلی خبر داد که گفته می‌شود سپهبد ایال زمیر رئیس ستاد ارتش اسرائیل، در جریان جنگ علیه حکومت ایران از امارات متحده عربی بازدید کرده است.
-
-طبق گزارش رسانه دولتی کان اسرائیل، دیگر مقام‌های نظامی این کشور زمیر را در این سفر همراهی کردند. بر اساس این گزارش، در طول این سفر، زمیر با مقام‌های اماراتی، از جمله محمد بن زاید، رئیس‌ امارات دیدار کرده است.
-
-ارتش اسرائیل هنوز درباره این گزارش اظهار نظر نکرده است.
-
-این موضوع پس از آن مطرح شد که بنیامین نتانیاهو نخست‌وزیر اسرائیل روز چهارشنبه گفت او نیز در جریان جنگ علیه رژیم ایران از امارات بازدید کرده است؛ امارات بعدا این سفر را تکذیب کرد.
-
-همچنین گزارش شده است که رؤسای شین‌بت و موساد نیز در جریان جنگ از امارات بازدید کرده‌اند.
-
-پیشتر، مقام‌های ارشد آمریکایی گزارش‌ها مبنی بر این که اسرائیل یک سامانه «گنبد آهنین» را به امارات ارسال کرده، تأیید کردند.
 @FarsiVOA
 </div>
 
