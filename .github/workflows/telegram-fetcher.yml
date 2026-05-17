@@ -71,4 +71,4 @@ jobs:
             fi
             sleep 3
           done
-          exit 15
+          exit 1
