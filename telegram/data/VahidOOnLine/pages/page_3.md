@@ -1,8 +1,68 @@
 # آرشیو کانال VahidOOnLine - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/28 02:44
+📅 آخرین بروزرسانی: 1405/02/28 03:45
 
 ---
+
+## VahidOOnLine — post 240671
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سخنرانی پدر جاویدنام سام افشاری در گردهمایی مونیخ - گزارشگر ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240670
+
+<div align="center"><img src="files/post_240670_VahidOOnLine_240670.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ابراهیم رضایی سخنگوی کمیسیون امنیت ملی مجلس، گفت: «آمریکا یا باید شرایط جمهوری اسلامی را بپذیرد و تسلیم دیپلمات‌های ما شود و یا اینکه از موضع قدرت با او مذاکره می‌کنیم و باید تسلیم موشک‌های ما شود.»
+او افزود: «تاریخ تنگه هرمز را باید به قبل و بعد از کشته‌شدن علی خامنه‌ای تقسیم کرد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240669
+
+<div align="center"><video src="files/post_240669_VahidOOnLine_240669.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_240669_VahidOOnLine_240669.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌‌
+دونالد ترامپ در پیامی در شبکه‌ اجتماعی خود نوشت:
+«برای ایران، ساعت در حال گذر است و بهتر است خیلی سریع حرکت کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند. وقت تنگ است.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240668
+
+<div align="center"><img src="files/post_240668_VahidOOnLine_240668.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز یکشنبه با انتشار پیامی در شبکه اجتماعی تروث سوشال، به ایران هشدار داد زمان برای تصمیم‌گیری رو به پایان است و رهبران جمهوری اسلامی باید هرچه سریع‌تر اقدام کنند.
+ترامپ در این پیام نوشت: «برای ایران، ساعت در حال تیک‌تاک است و بهتر است خیلی سریع حرکت کنند، وگرنه چیزی از آنها باقی نخواهد ماند. زمان حیاتی است!»
+طی روزهای اخیر گزارش‌هایی درباره احتمال ازسرگیری اقدام نظامی علیه ایران و افزایش تنش‌ها میان تهران، واشنگتن و تل‌آویو منتشر شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240667
+
+<div align="center"><img src="files/post_240667_VahidOOnLine_240667.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ در شبکه تروث سوشال نوشت که زمان برای ایران به‌سرعت در حال سپری شدن است و بهتر است آن‌ها هرچه زودتر اقدام کنند در غیر این صورت «چیزی از آن‌ها باقی نخواهد ماند». ترامپ تاکید کرد: «زمان بسیار حیاتی است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 240666
 
@@ -217,75 +277,6 @@
 ‌
 وین | اتریش؛ گردهمایی ایرانیان _ گزارشگر یکشنبه ۲۷ اردیبهشت
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240651
-
-<div align="center"><img src="files/post_240651_VahidOOnLine_240651.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسعود پزشکیان در پیامی در شبکه اجتماعی ایکس به مناسبت روز جهانی ارتباطات نوشت: «در روزهای جنگ، فرزندان ما در ارتباطات و فناوری اطلاعات شبانه‌روز ایستادند تا ارتباطات کشور پایدار بماند.»
-او همچنین دسترسی باکیفیت و پایدار مردم به خدمات دیجیتال را «بخشی از آرامش، پیشرفت و حق زندگی شایسته مردم» ایران دانست.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240650
-
-<div align="center"><video src="files/post_240650_VahidOOnLine_240650.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_240650_VahidOOnLine_240650.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازار تهران؛ ۲۷ اردیبهشت ـ گزارشگر
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240649
-
-<div align="center"><video src="files/post_240649_VahidOOnLine_240649.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_240649_VahidOOnLine_240649.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌
-پورتو | پرتغال؛ گردهمایی ایرانیان ـ گزارشگر یکشنبه ۲۷ اردیبهشت
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240648
-
-<div align="center"><img src="files/post_240648_VahidOOnLine_240648.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️گوگوش، خواننده نامدار ایرانی، در پیامی در اینستاگرام اعلام کرد مدال افتخار سال ۲۰۲۶ «جزیره الیس» را دریافت کرده و این جایزه را با «عشق و احترام» به مردم ایران تقدیم می‌کند.
-
-او نوشت: «دیشب افتخار داشتم نشان افتخار جزیره الیس را دریافت کنم؛ نشانی که به افرادی اهدا می‌شود که در جامعه آمریکا تأثیرگذار بوده‌اند و در عین حال ریشه‌ها و هویت فرهنگی خود را حفظ کرده‌اند.»
-
-«نشان افتخار جزیره الیس» یکی از شناخته‌شده‌ترین جوایز مدنی آمریکا است که از سال ۱۹۸۶ به افرادی از حوزه‌های هنر، فرهنگ، سیاست، علم، تجارت و فعالیت‌های اجتماعی اعطا می‌شود؛ افرادی که علاوه بر نقش‌آفرینی در جامعه آمریکا، بر حفظ پیشینه و هویت فرهنگی خود نیز تأکید داشته‌اند. این جایزه در جزیره الیس نیویورک، نماد ورود میلیون‌ها مهاجر به آمریکا، اهدا می‌شود.
-
-از چهره‌های شناخته‌شده‌ای که در سال‌های مختلف این نشان را دریافت کرده‌اند می‌توان به رونالد ریگان، ریچارد نیکسون، رزا پارکس، فرانک سیناترا، گلوریا استفان، ملاله یوسف‌زی و دونالد ترامپ اشاره کرد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 240647
-
-<div align="center"><img src="files/post_240647_VahidOOnLine_240647.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گوگوش، خواننده سرشناس ایرانی، «نشان افتخار جزیره آلیس» را دریافت کرد؛ «این نشان به افرادی اهدا می‌شود که در جامعه آمریکا تأثیرگذار بوده‌اند و در عین حال ریشه‌ها و هویت فرهنگی خود را حفظ کرده‌اند.»
-
-گوگوش با انتشار تصویری از مراسم اهدای این نشان در صفحه اینستاگرام خود نوشت: «این نشان را با عشق و احترام به مردم ایران تقدیم می‌کنم؛ به مردمی که سال‌ها با رنج، صبوری، امید و سربلندی زندگی کرده‌اند و با وجود همه سختی‌ها، همچنان ایستاده‌اند.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
