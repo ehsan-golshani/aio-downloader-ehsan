@@ -1,8 +1,136 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/29 02:16
+📅 آخرین بروزرسانی: 1405/02/29 03:23
 
 ---
+
+## tasiyanc — post 5080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 VyDns ترکیبی با نپستر و نکوباکس slipnet-enc://AQWUiXekehUioEA8QqMp3enet/bR52yS6R+DZxii7MSZwggy4Yj+WkTX1UsIOy6PR8DPOlK1Sc9G5+kT9f7wlfqOFEBgvjV1AcIU9ygPoAgrThVCvuoJKOUiwvYiVNR446bSlc7mo0sXhJJ2Qcx5gwxE/LS3/2bywXIo3tm4XX435JjDo6AFUasIeNeF4NgIK2Qi/ZWe2wF2v…
+</div>
+
+## tasiyanc — post 5079
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 VyDns
+ترکیبی با نپستر و نکوباکس
+
+slipnet-enc://AQWUiXekehUioEA8QqMp3enet/bR52yS6R+DZxii7MSZwggy4Yj+WkTX1UsIOy6PR8DPOlK1Sc9G5+kT9f7wlfqOFEBgvjV1AcIU9ygPoAgrThVCvuoJKOUiwvYiVNR446bSlc7mo0sXhJJ2Qcx5gwxE/LS3/2bywXIo3tm4XX435JjDo6AFUasIeNeF4NgIK2Qi/ZWe2wF2vI7r9UX5Bbw15FTjfl85+lG+RSJRrggRQQkmmL7ioV5ZxAJ4HpMtkkdkM4Hw01pCf+cjhpj4g6Cxg9pGrZSkYGRfWDBO/dsMtaIFWuinVWhckZQeB1fjThDxwHqe+b+oqJagtPgVJ8EhPeXK2dBnAyIdaT5G+4P4F5//Q44zolzxv03n4l66LK/OxqZheMqp3a87qK42m2WEd82BEoZPOhcCtpq9CyoXboEyvg7LwGagCb5mWJSqN62IljA/DfqOjkh7iNGIFDNFyG7Mv+CbCeUlIJL0jGs2vPaiC/TkmFVgpzex5PxY94+zPF1eno1IlL7Tl4idAbMcAmByRgkDVevOfHpmAdWAAiExoJTIyv6UKNOPf4tGEgSzRLbCwbGRZBQi+IXtFh226tcrJ34f0slN404LWB9DlyDtjTbkHi0EKl2k0UdPZWzoIGeEPqJYvPqsERPsDulQ55kR/y46r36p9GrOawJ8q+uAO50wMYdCs5Qz+VnONzEw/b073frvfu0aOsc6RsK2NmRDyWtnIxC99g54lqH8JJXSlDMBB5cxjqlWyB8gvxgm7vvQ9Dh0RCAUpkd420BihpFWfXelONc=
+آموزش اتصال 🔐
+ویدیو آموزشی 🔐
+آموزش اتصال با nekobax
+ویدیو آموزشی nekobox
+
+@Tasiyanc 🩶
+</div>
+
+## tasiyanc — post 5078
+
+<div align="center"><a href="files/post_5078_None 2sv.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 None 2sv.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2sv
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5077
+
+<div align="center"><a href="files/post_5077_Venum.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Venum.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New IPs 👑
+
+151.101.192.223
+167.82.48.223
+185.200.232.43
+2.23.169.111
+2.23.168.213
+23.48.23.184
+184.24.77.42
+184.25.28.31
+184.28.165.4
+184.51.252.4
+184.86.251.12
+184.86.251.27
+184.25.52.200
+184.28.230.87
+184.30.150.142
+184.51.252.36
+184.51.252.152
+184.51.252.157
+184.86.103.210
+184.51.252.135
+37.255.133.30
+5.160.13.85
+185.137.25.214
+184.51.252.38
+185.200.232.40
+185.200.232.41
+185.200.232.42
+185.200.232.43
+185.200.232.49
+185.200.232.50
+81.12.72.218
+151.101.128.223
+172.237.127.6
+185.143.232.122
+185.200.232.50
+2.23.168.254
+2.23.170.80
+2.23.168.174
+185.200.232.25
+185.200.232.42
+185.200.232.11
+2.16.19.136
+185.200.232.19
+185.200.232.24
+172.234.199.15
+2.23.168.96
+2.23.168.144
+2.23.168.7
+
+🌐@Tasiyanc 🐾
+</div>
+
+## tasiyanc — post 5074
+
+<div align="center"><img src="files/post_5074_tasiyanc_5074.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 دوستانی آیفون 🍏دارن می‌تونن این برنامه رو نصب کنن و ازش استفاده کنن، راحت می‌تونید سرور‌های دیگه هم اضافه کنید و استفاده کنید
+🔺 حالت Proxy Mode با پروکسی Local به تلگرام متصل شدم!
+
++پیش نیاز نصب برنامه TestFlight از اپ استور
+
+🪼 Download TestFlight
+
+❤️ @Tasiyanc 💠
+</div>
+
+## tasiyanc — post 5073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹نسخه‌ی اولیه‌ی WhiteDNS برای IOS📹
+
+https://testflight.apple.com/join/GfUqXrFz
+
+❤️ @Tasiyanc 🐾
+</div>
 
 ## tasiyanc — post 5072
 
@@ -20,8 +148,6 @@ slipnet-enc://Ad0nhhY8OuZnE4dR8AjKPZP99HTsAOHTf7SEEOG5ZMBk8T0h4knYLH9Gqtn+Ngly6B
 
 <div align="center"><a href="files/post_5071_tasiyanc_5071.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
-<div align="center"><a href="files/post_5071_STAR.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 STAR.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 
 📶
@@ -38,8 +164,6 @@ slipnet-enc://Ad0nhhY8OuZnE4dR8AjKPZP99HTsAOHTf7SEEOG5ZMBk8T0h4knYLH9Gqtn+Ngly6B
 <div align="center"><video src="files/post_5070_tasiyanc_5070.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_5070_tasiyanc_5070.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_5070_DS @tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 DS @tasiyanc.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 
@@ -173,70 +297,5 @@ slipnet-enc://AQjmttI+jAEcY5GBZjlh/34gzSCVK4Nt5oYXAy+kfSb/VtuAFlnzc37w5Ot1Wtz/+n
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خودمم با 127.0.0.1 وصل
-</div>
-
-## tasiyanc — post 5059
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودمم با 127.0.0.1 وصل
-</div>
-
-## tasiyanc — post 5058
-
-<div align="center"><img src="files/post_5058_tasiyanc_5058.jpg" alt="Photo"></div>
-
-## tasiyanc — post 5057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New APN All Operators 🐾 Name 127.0.0.1 APN 127.0.0.1 @Tasiyanc 😐
-</div>
-
-## tasiyanc — post 5056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنظیمات سیمکارت 
-🛜🛜🛜 APN Name Google.com APN Google.com APN protocol Just  IPv4 🐾 Shir khorshid Sni: 
-🔹Google.com رو ایرانسل جواب داده ، بقیه اپراتورها هم تست بزنن @Tasiyanc 🔥
-</div>
-
-## tasiyanc — post 5055
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Mci ip🛜
-
-
-96.16.249.50
-96.17.72.58
-104.117.76.99
-96.16.249.20
-96.16.248.139
-184.84.81.125
-23.64.59.26
-
-@Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان 2 سرور فعال 📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5051
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛜 IPs
-
-184.86.103.19 173.223.109.20 96.17.96.31 104.76.220.65 173.222.148.49 184.51.96.7 104.76.220.42 184.51.149.33 104.108.238.182 104.80.48.203 92.122.17.9 92.123.8.93 104.76.210.216 104.76.220.112 23.64.224.224 173.222.168.212 173.222.168.191 92.123.8.87 92.123.10.140 184.51.102.58 184.51.102.177 104.76.220.170 104.76.220.168 92.122.6.109 173.223.29.67 92.123.8.100 23.65.117.219 173.222.148.43 23.75.23.33 184.86.103.223 184.86.103.217 184.86.103.196 23.67.129.53 184.86.103.139 184.86.103.142 104.108.237.97 184.86.103.13 104.112.135.94 23.64.59.26 92.122.9.160 104.120.80.245 173.223.239.52 92.122.1.249 173.222.116.88 96.16.249.50 96.16.249.33 96.16.249.60 96.16.248.151 96.16.248.145 96.16.248.148 96.16.248.176 96.16.248.136 96.16.248.154 96.16.248.143 92.123.8.77 104.124.165.104 96.16.249.12 96.16.248.155 96.16.248.179 96.16.248.171 96.16.248.147 96.16.248.144 23.65.124.89 96.16.249.9 23.65.124.88 96.16.249.16 96.16.249.6 96.16.248.174 96.16.248.167 96.16.248.164 92.123.8.99 92.123.8.94 23.65.124.104 92.123.8.74 23.65.124.91 23.65.124.106
-104.88.70.105 92.123.10.153 96.16.248.152 104.83.197.160 96.16.248.133 96.16.249.54 96.16.248.162 173.222.249.155 184.87.193.138 96.6.34.243 96.17.96.7 96.16.248.137 104.110.191.32 184.51.97.129 104.116.98.32 184.87.193.139 184.84.221.34 96.16.248.139 96.16.249.52 88.221.0.39 96.16.249.28 96.16.248.142 96.17.72.48 104.117.76.106 104.109.128.163 96.17.72.51 96.17.72.75 104.109.250.11 104.115.39.202 96.16.249.38 184.85.134.164 104.76.210.6 104.117.76.16 104.117.76.8 184.84.81.125 23.66.101.71 96.16.248.177 92.123.10.217 184.85.155.41 88.221.0.52 173.222.146.221 184.51.102.248 96.17.72.80 96.17.72.58 173.222.249.146 104.115.39.104 96.17.72.57 173.222.249.153 173.222.108.57 96.17.72.10 23.67.142.129 173.222.108.49 88.221.0.58 96.16.248.182 104.110.191.39 104.110.191.41 96.16.248.159 96.16.248.156 96.16.248.153 104.110.191.14 88.221.0.38 88.221.0.44 104.108.86.50 96.7.105.201 96.16.248.166 173.222.249.160 96.16.248.183 88.221.0.56 184.51.102.88 96.16.249.23 88.221.0.50 104.68.103.205 96.16.248.170 104.116.96.159 96.16.249.20 88.221.0.36 96.17.180.45 96.16.249.11 96.16.248.181 104.83.197.135 173.222.108.120 23.64.59.9 92.122.16.5 104.120.56.96 104.117.76.147 92.123.10.232 184.86.103.159 104.117.76.137 104.117.76.145 104.117.76.139 104.117.76.114 104.69.81.4 104.117.76.104 104.117.76.99 104.117.76.179 104.117.76.153 104.120.90.56 104.117.76.90 104.117.76.91 96.6.33.250 104.117.76.67 104.117.76.72 104.117.76.64 104.117.76.57 104.117.76.58 104.117.76.19 184.86.103.20 184.86.103.12 184.86.103.23 184.86.103.14 23.65.124.105 104.108.231.170 23.66.101.79 184.85.137.131 104.120.82.77 104.120.77.233 23.64.12.168 104.120.89.53
-104.120.76.148
-
-@Tasiyanc 🤩
 </div>
 
