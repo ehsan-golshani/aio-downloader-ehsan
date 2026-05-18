@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/28 19:48
+📅 آخرین بروزرسانی: 1405/02/28 21:48
 
 ---
+
+## tasiyanc — post 5042
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنظیمات سیمکارت 🛜🛜🛜 APN Name Google.com APN Google.com APN protocol Just  IPv4 🐾 Shir khorshid Sni: 🔹Google.com رو ایرانسل جواب داده ، بقیه اپراتورها هم تست بزنن @Tasiyanc 🔥
+</div>
+
+## tasiyanc — post 5041
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنظیمات سیمکارت 🛜🛜🛜
+APN
+Name Google.com
+APN Google.com
+APN protocol Just  IPv4
+
+🐾 Shir khorshid Sni:
+🔹Google.com
+
+رو ایرانسل جواب داده ، بقیه اپراتورها هم تست بزنن
+@Tasiyanc 🔥
+</div>
+
+## tasiyanc — post 5040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 new all operators 185.208.174.167 31.214.169.244 185.109.61.27 5.144.129.174 37.191.76.110 81.12.72.218 185.142.158.162 185.88.178.196 63.141.252.203 109.72.197.1 80.191.243.226 142.54.178.211 185.137.25.214 81.91.145.2 5.160.13.85 185.200.232.42 185.200.232.50…
+</div>
 
 ## tasiyanc — post 5038
 
@@ -310,65 +338,5 @@ IPs 👑 new all operators
 برای اتصال پایدار صبور باشید 😐
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New IPs Ping 150 - 200 👑
-
-138.201.54.122
-144.76.1.88
-94.130.70.160
-94.130.33.41
-94.130.50.12
-95.216.69.37
-185.137.25.214
-37.255.133.30
-81.91.145.2
-65.109.34.234
-185.143.232.122
-5.160.13.85
-142.54.178.211
-63.141.252.203
-2.23.168.144
-2.23.168.254
-2.23.168.250
-2.23.168.96
-50.7.5.83
-2.23.170.80
-2.23.168.47
-2.23.168.174
-2.23.168.213
-
-@Tasiyanc 😐
-</div>
-
-## tasiyanc — post 5019
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡 اسکنر آیپی برای شیرخورشید👑
-
-☺️ فایل بالا رو با مرورگر باز کنید.
-
-☺️از بخش «رنج‌های آماده IP» یک رنج انتخاب کنید، یا به‌صورت دستی آیپی‌های موردنظرتون رو داخل قسمت «لیست بازه /ip» وارد کنید.
-
-☺️ اسکن رو بدون VPN شروع کنید.
-
-☺️ بعد از اتمام اسکن، لیست آیپی‌های سالم و سازگار با اینترنتتون پایین صفحه نمایش داده میشه.
-
-☺️ آیپی‌های نمایش‌داده‌شده رو کپی کنید و داخل برنامه شیر و خورشید وارد کنید.
-🤩 @Tasiyanc ✔
 </div>
 

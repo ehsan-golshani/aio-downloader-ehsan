@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/28 19:48
+📅 آخرین بروزرسانی: 1405/02/28 21:48
 
 ---
+
+## tasiyanc — post 5064
+
+<div align="center"><a href="files/post_5064_@Tasiyanc 🚀 IP Scanner Vip ⚡.html.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🚀 IP Scanner Vip ⚡.html</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🐾 اسکنر فوق پیشرفته بدون خطا IP برای شیرخورشید
+
+✅ دارای لیست رنج‌های آماده و پریست‌های اسکن
+✅قابلیت انتخاب CDN های مختلف و هاست‌نیم‌های SNI
+✅خروجی راحت به صورت متن، فایل اکسل و بارکد (QR)
+
+1⃣ فایل بالا رو با مرورگر و بدون VPN باز کنید.
+
+2⃣ از بخش «انتخاب CDN» سرویس موردنظر و هاست‌نیم SNI پیشنهادی رو انتخاب کنید
+
+3⃣ از بخش «رنج‌های آماده IP» یک رنج انتخاب کنید، یا به‌صورت دستی آیپی‌های موردنظرتون رو داخل قسمت «لیست بازه /ip» وارد کنید.
+
+4⃣بعد از اتمام اسکن، لیست آیپی‌های سالم در پایین صفحه نمایش داده می‌شود. آیپی‌ها را کپی کنید و داخل برنامه شیر و خورشید وارد کنید
+اسکنر قبلی 🤩
+
+🐾 @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5063
+
+<div align="center"><img src="files/post_5063_tasiyanc_5063.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ آخر شبی که گذاشتین تا امروز ظهر وصل بود بعد قطع شد دیگه ولی عااالی بود🥹
+</div>
+
+## tasiyanc — post 5062
+
+<div align="center"><a href="files/post_5062_2s💙.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 2s💙.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 2 سرور فعال 📶
+
+برای اتصال پایدار صبور باشید 😐
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5061
 
@@ -74,8 +119,6 @@ Mci ip🛜
 
 ## tasiyanc — post 5054
 
-<div align="center"><a href="files/post_5054_🪻2sv @Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🪻2sv @Tasiyanc.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔒Password: Navid
 
@@ -108,8 +151,6 @@ Mci ip🛜
 </div>
 
 ## tasiyanc — post 5049
-
-<div align="center"><a href="files/post_5049_💜⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 💜⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 📶
@@ -157,8 +198,6 @@ IPs 👑
 
 ## tasiyanc — post 5045
 
-<div align="center"><a href="files/post_5045_Kheyli Vaghte (Ft NAVA).dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Kheyli Vaghte (Ft NAVA)</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Hidden - Nava
 </div>
@@ -184,33 +223,5 @@ IPs 👑 ping 100 - 250✅ 🛜🛜📶📶
 185.89.22.73 185.89.22.210 185.89.22.10 185.89.22.71 142.54.178.211 151.101.128.223 151.101.192.223 185.200.232.42 185.200.232.50 185.89.22.66 63.141.252.203
 
 @Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5042
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنظیمات سیمکارت 🛜🛜🛜 APN Name Google.com APN Google.com APN protocol Just  IPv4 🐾 Shir khorshid Sni: 🔹Google.com رو ایرانسل جواب داده ، بقیه اپراتورها هم تست بزنن @Tasiyanc 🔥
-</div>
-
-## tasiyanc — post 5041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنظیمات سیمکارت 🛜🛜🛜
-APN
-Name Google.com
-APN Google.com
-APN protocol Just  IPv4
-
-🐾 Shir khorshid Sni:
-🔹Google.com
-
-رو ایرانسل جواب داده ، بقیه اپراتورها هم تست بزنن
-@Tasiyanc 🔥
-</div>
-
-## tasiyanc — post 5040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑 new all operators 185.208.174.167 31.214.169.244 185.109.61.27 5.144.129.174 37.191.76.110 81.12.72.218 185.142.158.162 185.88.178.196 63.141.252.203 109.72.197.1 80.191.243.226 142.54.178.211 185.137.25.214 81.91.145.2 5.160.13.85 185.200.232.42 185.200.232.50…
 </div>
 
