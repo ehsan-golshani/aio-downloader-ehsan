@@ -1,8 +1,15 @@
 # آرشیو کانال MehdiBudam - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/27 23:28
+📅 آخرین بروزرسانی: 1405/02/28 19:47
 
 ---
+
+## MehdiBudam — post 8002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دایرکت یادتون نره.
+t.me/MehdiBudam?direct
+</div>
 
 ## MehdiBudam — post 7997
 

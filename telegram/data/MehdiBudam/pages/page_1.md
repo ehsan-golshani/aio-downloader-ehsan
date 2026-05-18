@@ -1,8 +1,14 @@
 # آرشیو کانال MehdiBudam - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/27 23:28
+📅 آخرین بروزرسانی: 1405/02/28 19:47
 
 ---
+
+## MehdiBudam — post 8023
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+104 103 102 101 100 99 98 97 96 95 94 93 92 91 90 89 88 76 75 71 70 67 66 64 61 59 58 45 41 32 31 22 و بقیه وصلن.
+</div>
 
 ## MehdiBudam — post 8022
 
@@ -166,12 +172,5 @@ slipnet-enc://AdNa5ttZaERApGIuE0QMltTKUrPROyEud/O9AT2jz6hAJuGxD3zRz0w4Z3n47eLE0Y
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 95 94 92 88 86 84 81 78 77 75 74 72 71 69 67 65 59 58 57 49 47 34 30 27 و بقیه رو تست کنید.
-</div>
-
-## MehdiBudam — post 8002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دایرکت یادتون نره.
-t.me/MehdiBudam?direct
 </div>
 
