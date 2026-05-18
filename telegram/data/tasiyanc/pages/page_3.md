@@ -1,8 +1,155 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/29 01:13
+📅 آخرین بروزرسانی: 1405/02/29 02:16
 
 ---
+
+## tasiyanc — post 5029
+
+<div align="center"><video src="files/post_5029_tasiyanc_5029.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5029_tasiyanc_5029.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## tasiyanc — post 5028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Goodnight my family ❤️‍🔥
+</div>
+
+## tasiyanc — post 5026
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 new all operators
+
+138.201.54.122
+144.76.1.88
+94.130.70.160
+94.130.33.41
+94.130.50.12
+95.216.69.37
+185.137.25.214
+37.255.133.30
+81.91.145.2
+65.109.34.234
+185.143.232.122
+5.160.13.85
+142.54.178.211
+63.141.252.203
+2.23.168.144
+2.23.168.254
+2.23.168.250
+2.23.168.96
+50.7.5.83
+2.23.170.80
+2.23.168.47
+2.23.168.174
+2.23.168.213
+23.44.201.149
+23.212.253.227
+23.44.201.185
+23.44.201.17
+23.62.54.24
+23.58.95.144
+104.83.198.44
+92.123.102.153
+184.51.252.134
+23.53.40.147
+184.51.252.176
+2.18.64.212
+172.104.251.198
+2.18.79.101
+23.216.77.181
+92.123.102.89
+23.216.77.80
+96.16.53.132
+23.53.40.139
+23.48.165.70
+2.21.20.143
+23.43.85.155
+23.48.23.184
+23.207.210.83
+23.209.125.169
+23.48.23.172
+2.21.240.22
+23.55.110.82
+23.216.77.35
+23.58.95.138
+23.33.40.149
+23.48.23.146
+23.209.125.145
+92.123.102.130
+23.53.40.121
+23.48.23.11
+23.201.248.171
+23.209.125.27
+23.48.23.176
+23.207.210.86
+23.55.161.151
+92.123.103.89
+2.23.7.34
+23.207.210.80
+23.48.23.165
+23.48.23.173
+23.48.23.156
+23.55.110.74
+173.222.107.202
+23.213.161.140
+23.48.23.134
+23.204.152.160
+2.23.97.120
+185.200.232.49
+185.200.232.50
+185.200.232.42
+185.200.232.41
+184.24.77.42
+184.24.77.32
+184.24.77.5
+184.24.77.7
+184.24.77.16
+184.24.77.36
+184.24.77.21
+184.24.77.11
+23.48.23.186
+23.48.23.133
+23.48.23.195
+23.48.23.178
+184.24.77.29
+96.16.122.146
+23.58.222.107
+185.137.25.214
+81.12.72.218
+37.255.133.30
+81.91.145.2
+185.143.232.122
+94.130.33.41
+138.201.54.122
+144.76.1.88
+95.216.69.37
+94.130.50.12
+94.130.70.160
+65.109.34.234
+142.54.178.211
+63.141.252.203
+2.19.205.34
+2.19.204.249
+50.7.5.83
+
+این هاست و پورت رو با IP های بالا ترکیب کنید ✅
+❤️Host: 81.91.147.148
+❤️Port: 10443
+به ارور توجه نکنید Ok بزنید وایستید وصل شه
+❤️@Tasiyanc ☑
+</div>
 
 ## tasiyanc — post 5025
 
@@ -266,46 +413,5 @@ slipnet-enc://AfGk2opsi+MrCpAC+etlraDt0dOI/3l5sdWzoTvyRPP1XqBDiuVORgBdHDoHV9kQ9E
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حاجی ناموسا فعالیت تعطیل کنیم؟ به خدا یه ری اکشن ساده بهمون قوت قلب و فعالیت میده دریغ میکنید از مون
-</div>
-
-## tasiyanc — post 5008
-
-<div align="center"><video src="files/post_5008_tasiyanc_5008.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_5008_tasiyanc_5008.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 
-😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5007
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید ۳ دقیقه زمان لازمه🦦
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5006
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ بدجور انگار زده سیم‌اخر
-</div>
-
-## tasiyanc — post 5005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🕊 VyDns udp 🇮🇹 slipnet-enc://AZkgjNCARQDM5vGsYmPO4xLikQSyPviV2tGCVM41UmbfqVk+QpMxOuR6sgaeCCmBGMA9y4hzItLJUX382lGN1w2j7FZGruTuI937iQW7hla7swJaDWH/Nn0N157j2hE4lTsBoB0SKMXxoIjPvQfbT3XC0si8fUgGG+yJ2Fn/RvOjunQ8IPfODop8FHoJo9CLlmwerd4j1/OmvscgJGinuiiF3Au7ONw…
 </div>
 

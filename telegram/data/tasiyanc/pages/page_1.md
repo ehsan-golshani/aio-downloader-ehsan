@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/29 01:13
+📅 آخرین بروزرسانی: 1405/02/29 02:16
 
 ---
+
+## tasiyanc — post 5072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟 VyDns 🇨🇦
+slipnet-enc://Ad0nhhY8OuZnE4dR8AjKPZP99HTsAOHTf7SEEOG5ZMBk8T0h4knYLH9Gqtn+Ngly6BGiBe6lQ+UqT8gEKdoaGMWhg8htAho/ItHVi/sRa6zPHf69Sp1noH55Rvp2syyAKVk1GwzHb7uMSUO/rcO9gyUaqjG++BSXhBzBCg9OBeMN5n5uXbq+Wz1nEYLeNYkhsbiH8RZn0dg9BtP0rxWog8+dmhBMv8iaDkFKm2H5J6aiqP/utdo8rLisFMybe4fmN4GeIxL8U+lzbyeTT14LFmyeF6PgDX3Jddr1zPNlf8Ga7I5TSmp93wQY2kRFWUqY+mZ06l6FRtocN4paEmRIKHIxWq6afTPsjLGrtwnfpX58VZkwyYBe1uaTFrh04o6n4KDzDLBAWJ7nh8JNdS1zyH4BZVld5XMz6SNjRCSfs2HoxL3/t+NWfupm/vs2MhA8g51/5kWyCp6Wm5SDeIYhH/ML+GVHLuko2YcRZuaA+at8gSY4EPz9lH55dAh8agh/Y+zDurI08sOJVKDqTBuRDs8Z/skozQcz/k7cS10Vaw1acEyaTeDfYTAnSrDtIiJlDZso16JXbYy2tBFQU//NKaHNrvHa2yuJzadg3120MXYEOxssnt/DoKr1xpQ=
+✔ Setting For Slipnet ✔
+
+❤️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5071
+
+<div align="center"><video src="files/post_5071_tasiyanc_5071.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5071_tasiyanc_5071.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_5071_STAR.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 STAR.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+📶
+
+برای اتصال پایدار زمان مناسب بدید
+😐
+
+@Tasiyanc 
+🩵
+</div>
+
+## tasiyanc — post 5070
+
+<div align="center"><video src="files/post_5070_tasiyanc_5070.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5070_tasiyanc_5070.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_5070_DS @tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 DS @tasiyanc.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+📶
+
+برای اتصال پایدار 5 دقیقه زمان بدید
+😐
+
+@Tasiyanc 
+🩵
+</div>
+
+## tasiyanc — post 5069
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همراه وصله💘
+</div>
 
 ## tasiyanc — post 5068
 
@@ -184,48 +238,5 @@ Mci ip🛜
 104.120.76.148
 
 @Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-19K 🐾
-
-
-🔥@Tasiyanc🔥
-</div>
-
-## tasiyanc — post 5049
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5048
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟 VyDns udp 🇷🇴
-
-slipnet-enc://AQSWGzqJIkza8mHt2reBWJXKRaB93UTOZZyBaEe4z7bVnGyMxqTzF//BCTBQL5xuYLUECmsq3x6KStRdmIB6QEx3zGWpsCuiwIf0f6P5XrTXgCDNtGEAkLu7K1tlgrMLjWe8J1JM2uMJDMboLX8JC+JX+agtNbs8DyClR9YbrHzRe7dcxGV790VQZkKYZ5ksaYYDtel/0RT90RCSBG1ddA7sz8Ybub0Chfbkdm4gtY9x890slUxRcjQPOmMzKmbQ8rC6e577vSwXj9CPtJQsAxQnHKk70uwZNtGwgFaBCLyZqP1q3tQcZ2m/NYju1aRND7HC02pUuTMgvoT0bQjcqPsz+sCgvMXlDgbh61WTcqbLKGluto7I8oKP5FxoNsC/AhIGOeqD39/zq6KPAsQ1eOnrLSOAxHJeD3S1rlK7UkT5YbbtXg4EVtyANYMpvcd1QMvWy1rXFgf/KehwSYVsVE4/bYGbuwEnvGIo6ZpbZLnP3YmmyZxD2yQs+ZoZqR3KyyrooxZsmmGc3TcGFWVoXSDGp9Z2IxOSvT3/m9FEzM1Q95bDMAEigC7QuoWV/s/x4AvnhFvCsim6++Ac1Z9+qRbJDBrgFfTnbihJGXyGR/KE1sg7teluANB7XCGZtTn79d50MXFsTuOr1zzAhou9bCKu
-
-✔ Setting For Slipnet ✔
-
-❤️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5047
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟 DNSTT 🇫🇷
-
-slipnet-enc://AQSWGzqJIkza8mHt2reBWJXKRaB93UTOZZyBaEe4z7bVnGyMxqTzF//BCTBQL5xuYLUECmsq3x6KStRdmIB6QEx3zGWpsCuiwIf0f6P5XrTXgCDNtGEAkLu7K1tlgrMLjWe8J1JM2uMJDMboLX8JC+JX+agtNbs8DyClR9YbrHzRe7dcxGV790VQZkKYZ5ksaYYDtel/0RT90RCSBG1ddA7sz8Ybub0Chfbkdm4gtY9x890slUxRcjQPOmMzKmbQ8rC6e577vSwXj9CPtJQsAxQnHKk70uwZNtGwgFaBCLyZqP1q3tQcZ2m/NYju1aRND7HC02pUuTMgvoT0bQjcqPsz+sCgvMXlDgbh61WTcqbLKGluto7I8oKP5FxoNsC/AhIGOeqD39/zq6KPAsQ1eOnrLSOAxHJeD3S1rlK7UkT5YbbtXg4EVtyANYMpvcd1QMvWy1rXFgf/KehwSYVsVE4/bYGbuwEnvGIo6ZpbZLnP3YmmyZxD2yQs+ZoZqR3KyyrooxZsmmGc3TcGFWVoXSDGp9Z2IxOSvT3/m9FEzM1Q95bDMAEigC7QuoWV/s/x4AvnhFvCsim6++Ac1Z9+qRbJDBrgFfTnbihJGXyGR/KE1sg7teluANB7XCGZtTn79d50MXFsTuOr1zzAhou9bCKu
-
-✔ Setting For Slipnet ✔
-
-❤️ @Tasiyanc ✅
 </div>
 
