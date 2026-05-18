@@ -1,12 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/28 21:48
+📅 آخرین بروزرسانی: 1405/02/28 23:40
 
 ---
 
-## tasiyanc — post 5064
+## tasiyanc — post 5065
 
-<div align="center"><a href="files/post_5064_@Tasiyanc 🚀 IP Scanner Vip ⚡.html.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🚀 IP Scanner Vip ⚡.html</a></div>
+<div align="center"><a href="files/post_5065_🩵Tasiyan.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🩵Tasiyan.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار 5 دقیقه زمان بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5064
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🐾 اسکنر فوق پیشرفته بدون خطا IP برای شیرخورشید
@@ -36,8 +46,6 @@
 </div>
 
 ## tasiyanc — post 5062
-
-<div align="center"><a href="files/post_5062_2s💙.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 2s💙.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔒Password: Navid
@@ -210,17 +218,6 @@ IPs 👑 ping 65-280 ✅
 🛜📶🛜
 
 185.208.174.167 10.114.141.78 46.32.31.30 5.144.129.174 185.89.22.73 185.89.22.10 185.89.22.66 185.88.178.196 81.12.72.218 5.160.128.142 63.141.252.203 185.143.232.122 5.160.13.85 151.101.192.223 185.200.232.43 185.200.232.42 172.234.159.58 81.91.145.2 185.200.232.56 185.200.232.25 2.23.169.105 95.38.201.199 172.234.199.15 2.23.168.174 2.23.168.250
-
-@Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑 ping 100 - 250✅ 🛜🛜📶📶
-
-
-185.89.22.73 185.89.22.210 185.89.22.10 185.89.22.71 142.54.178.211 151.101.128.223 151.101.192.223 185.200.232.42 185.200.232.50 185.89.22.66 63.141.252.203
 
 @Tasiyanc 🐾
 </div>

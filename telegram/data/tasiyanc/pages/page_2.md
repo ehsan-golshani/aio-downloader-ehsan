@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/28 21:48
+📅 آخرین بروزرسانی: 1405/02/28 23:40
 
 ---
+
+## tasiyanc — post 5043
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 ping 100 - 250✅ 🛜🛜📶📶
+
+
+185.89.22.73 185.89.22.210 185.89.22.10 185.89.22.71 142.54.178.211 151.101.128.223 151.101.192.223 185.200.232.42 185.200.232.50 185.89.22.66 63.141.252.203
+
+@Tasiyanc 🐾
+</div>
 
 ## tasiyanc — post 5042
 
@@ -319,20 +330,6 @@ IPs 👑 new all operators
 
 
 📶 اختصاصی تاسیان 3 سرور فعال 
-📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-
-📶 اختصاصی تاسیان 
 📶
 
 برای اتصال پایدار صبور باشید 😐
