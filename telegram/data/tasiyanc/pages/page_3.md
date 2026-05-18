@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/28 23:40
+📅 آخرین بروزرسانی: 1405/02/29 01:13
 
 ---
+
+## tasiyanc — post 5025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زمان بدید وصل
+</div>
+
+## tasiyanc — post 5024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: @Tasiyanc
+
+
+📶 اختصاصی تاسیان 5 سرور فعال تست شده
+📶
+
+برای اتصال پایدار صبور باشید 😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5023
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+
+📶 اختصاصی تاسیان 3 سرور فعال 
+📶
+
+برای اتصال پایدار صبور باشید 😐
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5022
 
@@ -273,30 +307,5 @@ slipnet-enc://AfGk2opsi+MrCpAC+etlraDt0dOI/3l5sdWzoTvyRPP1XqBDiuVORgBdHDoHV9kQ9E
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🕊 VyDns udp 🇮🇹 slipnet-enc://AZkgjNCARQDM5vGsYmPO4xLikQSyPviV2tGCVM41UmbfqVk+QpMxOuR6sgaeCCmBGMA9y4hzItLJUX382lGN1w2j7FZGruTuI937iQW7hla7swJaDWH/Nn0N157j2hE4lTsBoB0SKMXxoIjPvQfbT3XC0si8fUgGG+yJ2Fn/RvOjunQ8IPfODop8FHoJo9CLlmwerd4j1/OmvscgJGinuiiF3Au7ONw…
-</div>
-
-## tasiyanc — post 5004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کیا سامانتل دارن ؟
-و وصل نیستن به شیرخورشید تو گپ بگن وصلشون کنم
-</div>
-
-## tasiyanc — post 5003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🕊 VyDns udp 🇮🇹
-
-slipnet-enc://AZkgjNCARQDM5vGsYmPO4xLikQSyPviV2tGCVM41UmbfqVk+QpMxOuR6sgaeCCmBGMA9y4hzItLJUX382lGN1w2j7FZGruTuI937iQW7hla7swJaDWH/Nn0N157j2hE4lTsBoB0SKMXxoIjPvQfbT3XC0si8fUgGG+yJ2Fn/RvOjunQ8IPfODop8FHoJo9CLlmwerd4j1/OmvscgJGinuiiF3Au7ONwCGeo6f74/jFOFcHGrLidUs2VsbNA6H1jemdtYYdJUmJ6/PnJ5EP1KPoYrUgMbTKW/VsaR1c3u+2RKgd27D8tHWF3OuFH6E31+U6bEMYO90dVOBHvkxQ1/G/dWHpaKlvFczqOXIzEBZHiibboTcF9hz4+a3/vTdBYolLp0cznccTe16jgad9qEnqgm60do8ommGP9l/5iy7EHKw+cp51p2wj1weDQInGDkf65X+JcQSxQ3MBBFqB7Ss2ffP+4wMdcKGojGFUIg4+e3b2I2MuvAxmE8A6ie6Wfa/HrYEIsiOXpfoXv/S67hQiNRhhoXg1jqBisb9W4mto1dT5R+NJAzifGQ4yDcUGioTusSeJiT8OZshdU7bxPrkPZ4DYbOIWhX71DXMZTceKfwW73l0iErnJLIXmrkd3LBROTXGqVzKH0f639soroKXgvxnrU=
-
-✔ Setting For Slipnet ✔
-
-❤️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روبیکا قطع شد 😐🥺
 </div>
 

@@ -1,8 +1,31 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/28 23:38
+📅 آخرین بروزرسانی: 1405/02/29 01:11
 
 ---
+
+## ProxyMTProto — post 47485
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Когда у всех «Connecting...»
+BLYATNET уже работает ⚡
+
+🛡 Выделенные MTProxy и VPN
+🚀 Высокая скорость без рекламы
+🌍 Серверы по всему миру
+💀 Без танцев с настройками
+
+💫 От 15 ⭐ — подключился и забыл 👇
+</div>
+
+## ProxyMTProto — post 47484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ak.yourline.online
+Port: 443
+Secret: eed74b20f8b196edebcfdc6de8c8985d60616b2e796f75726c696e652e6f6e6c696e65
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47483
 
@@ -167,24 +190,6 @@ Secret: 1d704dc7fbf37924bc72f016a8f91b0d
 Server: rkn.proxytg.space
 Port: 443
 Secret: eedab8c006cdc477f71b1825b3082b1017726b6e2e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47465
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: night.nolags.pw
-Port: 443
-Secret: dddb42e911bcebf275392e32feebef9459
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47464
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: alpina.agency
-Port: 8443
-Secret: eea02597a68d4821f58d17e6405c389da16164732e78352e7275
 @ProxyMTProto
 </div>
 
