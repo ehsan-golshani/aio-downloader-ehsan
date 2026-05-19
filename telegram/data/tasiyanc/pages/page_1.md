@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/30 02:13
+📅 آخرین بروزرسانی: 1405/02/30 03:20
 
 ---
+
+## tasiyanc — post 5157
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما اندازه اینا تو چنلمون کس بگیم همه لف میدن
+</div>
+
+## tasiyanc — post 5156
+
+<div align="center"><a href="files/post_5156_🇩🇪Germany.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇩🇪Germany.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان 5مین بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5154
+
+<div align="center"><a href="files/post_5154_NED Stark.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 NED Stark.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5153
 
@@ -28,8 +58,6 @@ slipnet-enc://AT6bKWyWhFfp2kmUc5BezhfIZ/6ovcMtl0L2GneHixJ8E/qhkAqQyeb1P3xV/aCw3j
 </div>
 
 ## tasiyanc — post 5150
-
-<div align="center"><a href="files/post_5150_SiktirAbad.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 SiktirAbad.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 📶
@@ -125,29 +153,5 @@ Hot Vpn APK 🥺
 
 لینک داخلی
 @Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥Hot vpn
-
-🔹برای یه سری میگن وصله - ولی خودم تست کردم کانکت شد بالا نیورد تلگرامو
-دوس داشتید تست کنین
-https://play.google.com/store/apps/details?id=com.hotcodes.hotvpn
-
-@Tasiyanc ❤️
-</div>
-
-## tasiyanc — post 5135
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودم وصلم الان
-</div>
-
-## tasiyanc — post 5134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با این پینگها وصل نشه ۱۰۰٪ منطقه ایه
 </div>
 

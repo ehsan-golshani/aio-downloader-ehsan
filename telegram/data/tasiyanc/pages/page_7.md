@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/30 02:13
+📅 آخرین بروزرسانی: 1405/02/30 03:20
 
 ---
+
+## tasiyanc — post 5022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+
+📶 اختصاصی تاسیان 
+📶
+
+برای اتصال پایدار صبور باشید 😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5021
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+📶
+
+برای اتصال پایدار صبور باشید 😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5020
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New IPs Ping 150 - 200 👑
+
+138.201.54.122
+144.76.1.88
+94.130.70.160
+94.130.33.41
+94.130.50.12
+95.216.69.37
+185.137.25.214
+37.255.133.30
+81.91.145.2
+65.109.34.234
+185.143.232.122
+5.160.13.85
+142.54.178.211
+63.141.252.203
+2.23.168.144
+2.23.168.254
+2.23.168.250
+2.23.168.96
+50.7.5.83
+2.23.170.80
+2.23.168.47
+2.23.168.174
+2.23.168.213
+
+@Tasiyanc 😐
+</div>
 
 ## tasiyanc — post 5019
 
@@ -241,32 +298,5 @@ slipnet-enc://AZkgjNCARQDM5vGsYmPO4xLikQSyPviV2tGCVM41UmbfqVk+QpMxOuR6sgaeCCmBGM
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 روبیکا قطع شد 😐🥺
-</div>
-
-## tasiyanc — post 5001
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑
-2.23.168.213
-2.23.168.96
-2.23.168.47
-2.23.168.174
-﻿❤️ @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5000
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑6️⃣
-
-94.130.50.12 94.130.70.160 138.201.54.122 95.216.69.37 144.76.1.88 94.130.33.41 65.109.34.234 142.54.178.211 63.141.252.203 2.23.168.144 2.23.168.47 2.23.170.80 2.23.168.213
-
-@Tasiyanc 😐
-</div>
-
-## tasiyanc — post 4997
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایم بدید وصل
 </div>
 

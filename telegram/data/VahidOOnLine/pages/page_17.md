@@ -1,8 +1,80 @@
 # آرشیو کانال VahidOOnLine - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/02/30 02:11
+📅 آخرین بروزرسانی: 1405/02/30 03:18
 
 ---
+
+## VahidOOnLine — post 240658
+
+<div align="center"><video src="files/post_240658_VahidOOnLine_240658.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_240658_VahidOOnLine_240658.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لندن | بریتانیا؛ کنار دیوار جاویدنامان ـ گزارشگر یکشنبه ۲۷ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240657
+
+<div align="center"><img src="files/post_240657_VahidOOnLine_240657.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکسیوس به نقل از یک مقام اسرائیلی گزارش داد دونالد ترامپ در تماس تلفنی با بنیامین نتانیاهو درباره ایران گفت‌وگو کرده است.
+همچنین شبکه کان اسرائیل گزارش داد گفت‌وگوی تلفنی ترامپ و نتانیاهو بیش از نیم ساعت طول کشیده است.
+بر اساس این گزارش، دو طرف درباره احتمال ازسرگیری درگیری با ایران گفت‌وگو کردند و ترامپ همچنین نتانیاهو را در جریان جزئیات سفر اخیر خود به چین قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240656
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ صدو‌سی‌امین سال ترور قبله عالم، ناصرالدین شاه قاجار و تاثیر آن بر وقایع سیاسی ایران
+
+♦️دوازدهم اردیبهشت‌ماه ۱۲۷۵ خورشیدی، هنگامی که ناصرالدین‌شاه قاجار به مناسبت پنجاهمین سال سلطنتش راهی حرم عبدالعظیم در شهر ری شد و برخلاف روال همیشگی، از ملازمان خود خواست اجازه دهند مردم برای دیدار به او نزدیک شوند، شاید هرگز تصور نمی‌کرد که این سفر، واپسین سفر زندگی‌اش باشد و همان روز و در همان مکان، به دست میرزا رضای کرمانی کشته شود.
+اکنون ۱۳۰ سال از ترور ناصرالدین‌شاه می‌گذرد؛ رویدادی که تاریخ معاصر ایران را، از منظر حذف فیزیکی عالی‌ترین مقام حکومت، به پیش و پس از خود تقسیم کرد.
+میرزا رضای کرمانی که از مریدان سید جمال‌الدین اسدآبادی بود و سال‌هایی از عمر خود را در زندان گذرانده بود، در آن روز در میان زائران کمین کرد. هنگامی که شاه از کالسکه پیاده شد و به سوی صحن حرم گام برداشت، خود را به او رساند و از فاصله‌ای نزدیک گلوله‌ای به سینه او شلیک کرد.
+ناصرالدین‌شاه در همان لحظه نقش بر زمین شد. ندیمان و محافظان شاهی که غافلگیر شده بودند، بلافاصله میرزا رضا را دستگیر کردند.
+
+📌لینک پخش پادکست
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240655
+
+<div align="center"><video src="files/post_240655_VahidOOnLine_240655.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_240655_VahidOOnLine_240655.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️صدا و سیمای جمهوری اسلامی تصاویری از برگزاری دوره‌های آموزش کار با اسلحه برای زنان و مردان در مساجد نقاط مختلف کشور پخش کرده است.
+در تصاویر منتشرشده از سوی شبکه خبر جمهوری اسلامی ایران، زنان و مردان در محیط‌های مسجدی در حال شرکت در آموزش‌های دفاعی دیده می‌شوند. این گزارش همچنین شامل اظهارنظر برخی شرکت‌کنندگان درباره این برنامه‌ها است.
+جزئیات بیشتری درباره محل دقیق برگزاری این آموزش‌ها، تعداد شرکت‌کنندگان یا هدف رسمی این دوره‌ها منتشر نشده است.
+روز شنبه تفنگ دست گرفتن مجری‌های تلویزیون در ایران، خبرساز شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240654
+
+<div align="center"><video src="files/post_240654_VahidOOnLine_240654.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_240654_VahidOOnLine_240654.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌
+«صدای فاطمه سپهری باشیم» ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 240653
 
