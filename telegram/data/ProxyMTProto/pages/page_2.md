@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/29 11:35
+📅 آخرین بروزرسانی: 1405/02/29 15:06
 
 ---
+
+## ProxyMTProto — post 47473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47472
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ark.proxytg.space
+Port: 443
+Secret: eeb8df1294e7e13cd99e7a9144bae17db861726b2e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: peyk.acharbashi.info
+Port: 4515
+Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: max.telehelp.top
+Port: 443
+Secret: ee27252638159317e07b706d5114d73e0b64726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47469
 
@@ -145,42 +181,6 @@ Secret: eeb8df1294e7e13cd99e7a9144bae17db861726b2e70726f787974672e7370616365
 Server: 186.246.16.55
 Port: 443
 Secret: ee7d21ac88a75bdb5887ec4918a20386927777772e6d6963726f736f66742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47453
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dealer4-fin.dealer.ac
-Port: 8443
-Secret: ee602b25b6e94c83ec0e24fbbc83c8bc547477656e7475722e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47452
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47451
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 132.243.224.115
-Port: 443
-Secret: ee64fa232998f0194a2cc5f5d0f4d1c9ae706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47450
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: atg.proxytg.space
-Port: 443
-Secret: eef9632da3b0ea3b51ab5840f93b2ddaff6174672e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 

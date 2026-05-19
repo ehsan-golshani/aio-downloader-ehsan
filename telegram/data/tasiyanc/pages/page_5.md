@@ -1,8 +1,152 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/29 11:36
+📅 آخرین بروزرسانی: 1405/02/29 15:07
 
 ---
+
+## tasiyanc — post 5012
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این روش جدید شیر و خورشید رو تست کنید همه وصل میشین 👑 23.44.201.149 23.212.253.227 23.44.201.185 23.44.201.17 23.62.54.24 23.58.95.144 104.83.198.44 92.123.102.153 184.51.252.134 23.53.40.147 184.51.252.176 2.18.64.212 172.104.251.198 2.18.79.101 23.216.77.181…
+</div>
+
+## tasiyanc — post 5011
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این روش جدید شیر و خورشید رو تست کنید همه وصل میشین 👑 23.44.201.149 23.212.253.227 23.44.201.185 23.44.201.17 23.62.54.24 23.58.95.144 104.83.198.44 92.123.102.153 184.51.252.134 23.53.40.147 184.51.252.176 2.18.64.212 172.104.251.198 2.18.79.101 23.216.77.181…
+</div>
+
+## tasiyanc — post 5010
+
+<div align="center"><video src="files/post_5010_tasiyanc_5010.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5010_tasiyanc_5010.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این روش جدید شیر و خورشید رو تست کنید همه وصل میشین 👑
+
+23.44.201.149
+23.212.253.227
+23.44.201.185
+23.44.201.17
+23.62.54.24
+23.58.95.144
+104.83.198.44
+92.123.102.153
+184.51.252.134
+23.53.40.147
+184.51.252.176
+2.18.64.212
+172.104.251.198
+2.18.79.101
+23.216.77.181
+92.123.102.89
+23.216.77.80
+96.16.53.132
+23.53.40.139
+23.48.165.70
+2.21.20.143
+23.43.85.155
+23.48.23.184
+23.207.210.83
+23.209.125.169
+23.48.23.172
+2.21.240.22
+23.55.110.82
+23.216.77.35
+23.58.95.138
+23.33.40.149
+23.48.23.146
+23.209.125.145
+92.123.102.130
+23.53.40.121
+23.48.23.11
+23.201.248.171
+23.209.125.27
+23.48.23.176
+23.207.210.86
+23.55.161.151
+92.123.103.89
+2.23.7.34
+23.207.210.80
+23.48.23.165
+23.48.23.173
+23.48.23.156
+23.55.110.74
+173.222.107.202
+23.213.161.140
+23.48.23.134
+23.204.152.160
+2.23.97.120
+185.200.232.49
+185.200.232.50
+185.200.232.42
+185.200.232.41
+184.24.77.42
+184.24.77.32
+184.24.77.5
+184.24.77.7
+184.24.77.16
+184.24.77.36
+184.24.77.21
+184.24.77.11
+23.48.23.186
+23.48.23.133
+23.48.23.195
+23.48.23.178
+184.24.77.29
+
+این هاست و پورت رو با IP های بالا ترکیب کنید کاملا وصل میشه ✅
+
+❤️Host: 81.91.147.148
+❤️Port: 10443
+
+به ارور توجه نکنین
+
+@Tasiyanc 
+😐
+</div>
+
+## tasiyanc — post 5009
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاجی ناموسا فعالیت تعطیل کنیم؟ به خدا یه ری اکشن ساده بهمون قوت قلب و فعالیت میده دریغ میکنید از مون
+</div>
+
+## tasiyanc — post 5008
+
+<div align="center"><video src="files/post_5008_tasiyanc_5008.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5008_tasiyanc_5008.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 
+😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5007
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید ۳ دقیقه زمان لازمه🦦
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5006
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ بدجور انگار زده سیم‌اخر
+</div>
 
 ## tasiyanc — post 5005
 
@@ -116,61 +260,4 @@ Done ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ادامه کانفیگ ها ری اکشن +۱۰۰
 </div>
-
-## tasiyanc — post 4990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دان نزنید
-</div>
-
-## tasiyanc — post 4989
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن؟
-</div>
-
-## tasiyanc — post 4988
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Instagram.npvtt
-</div>
-
-## tasiyanc — post 4987
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان حجمی 📶
-
-برای اتصال پایدار صبور باشید 🦦
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 4986
-
-<div align="center"><img src="files/post_4986_tasiyanc_4986.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Margaret.npvtt
-</div>
-
-## tasiyanc — post 4985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان حجمی 📶
-
-برای اتصال پایدار صبور باشید 
-🦦
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 4984
-
-<div align="center"><img src="files/post_4984_tasiyanc_4984.jpg" alt="Photo"></div>
 
