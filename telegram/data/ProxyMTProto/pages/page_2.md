@@ -1,8 +1,30 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/29 15:06
+📅 آخرین بروزرسانی: 1405/02/29 17:49
 
 ---
+
+## ProxyMTProto — post 47475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 89.125.17.12
+Port: 45100
+Secret: eebc4dccfbda58d9f3b574dcece8cd54bf6974756e65732e6170706c652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47474
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖 Got a working proxy? Share it 🚀
+Есть рабочий прокси? Поделись 🚀
+
+Start @SProxyRobot, send it in — we’ll test & post it for everyone.
+Запусти @SProxyRobot, отправь — проверим и выложим для всех.
+
+⚡ New time slots are now open for the next days, grab yours before they fill up!
+⚡ Новые слоты на ближайшие дни уже открыты, успей занять, пока не разобрали!
+</div>
 
 ## ProxyMTProto — post 47473
 
@@ -163,24 +185,6 @@ Secret: dd1cebd1dd4f8441f8af01177087ee9918
 Server: 132.243.213.215
 Port: 443
 Secret: ee46f33d84ae85e3ad53567904d7199be7706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47455
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ark.proxytg.space
-Port: 443
-Secret: eeb8df1294e7e13cd99e7a9144bae17db861726b2e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47454
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.16.55
-Port: 443
-Secret: ee7d21ac88a75bdb5887ec4918a20386927777772e6d6963726f736f66742e636f6d
 @ProxyMTProto
 </div>
 
