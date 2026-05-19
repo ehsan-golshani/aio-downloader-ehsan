@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/29 07:50
+📅 آخرین بروزرسانی: 1405/02/29 11:36
 
 ---
+
+## tasiyanc — post 5047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟 DNSTT 🇫🇷
+
+slipnet-enc://AQSWGzqJIkza8mHt2reBWJXKRaB93UTOZZyBaEe4z7bVnGyMxqTzF//BCTBQL5xuYLUECmsq3x6KStRdmIB6QEx3zGWpsCuiwIf0f6P5XrTXgCDNtGEAkLu7K1tlgrMLjWe8J1JM2uMJDMboLX8JC+JX+agtNbs8DyClR9YbrHzRe7dcxGV790VQZkKYZ5ksaYYDtel/0RT90RCSBG1ddA7sz8Ybub0Chfbkdm4gtY9x890slUxRcjQPOmMzKmbQ8rC6e577vSwXj9CPtJQsAxQnHKk70uwZNtGwgFaBCLyZqP1q3tQcZ2m/NYju1aRND7HC02pUuTMgvoT0bQjcqPsz+sCgvMXlDgbh61WTcqbLKGluto7I8oKP5FxoNsC/AhIGOeqD39/zq6KPAsQ1eOnrLSOAxHJeD3S1rlK7UkT5YbbtXg4EVtyANYMpvcd1QMvWy1rXFgf/KehwSYVsVE4/bYGbuwEnvGIo6ZpbZLnP3YmmyZxD2yQs+ZoZqR3KyyrooxZsmmGc3TcGFWVoXSDGp9Z2IxOSvT3/m9FEzM1Q95bDMAEigC7QuoWV/s/x4AvnhFvCsim6++Ac1Z9+qRbJDBrgFfTnbihJGXyGR/KE1sg7teluANB7XCGZtTn79d50MXFsTuOr1zzAhou9bCKu
+
+✔ Setting For Slipnet ✔
+
+❤️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5046
 
@@ -206,130 +218,5 @@ IPs for 👑 - SamanTel & RighTel 🛜📶 تست شده
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Goodnight my family ❤️‍🔥
-</div>
-
-## tasiyanc — post 5026
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑 new all operators
-
-138.201.54.122
-144.76.1.88
-94.130.70.160
-94.130.33.41
-94.130.50.12
-95.216.69.37
-185.137.25.214
-37.255.133.30
-81.91.145.2
-65.109.34.234
-185.143.232.122
-5.160.13.85
-142.54.178.211
-63.141.252.203
-2.23.168.144
-2.23.168.254
-2.23.168.250
-2.23.168.96
-50.7.5.83
-2.23.170.80
-2.23.168.47
-2.23.168.174
-2.23.168.213
-23.44.201.149
-23.212.253.227
-23.44.201.185
-23.44.201.17
-23.62.54.24
-23.58.95.144
-104.83.198.44
-92.123.102.153
-184.51.252.134
-23.53.40.147
-184.51.252.176
-2.18.64.212
-172.104.251.198
-2.18.79.101
-23.216.77.181
-92.123.102.89
-23.216.77.80
-96.16.53.132
-23.53.40.139
-23.48.165.70
-2.21.20.143
-23.43.85.155
-23.48.23.184
-23.207.210.83
-23.209.125.169
-23.48.23.172
-2.21.240.22
-23.55.110.82
-23.216.77.35
-23.58.95.138
-23.33.40.149
-23.48.23.146
-23.209.125.145
-92.123.102.130
-23.53.40.121
-23.48.23.11
-23.201.248.171
-23.209.125.27
-23.48.23.176
-23.207.210.86
-23.55.161.151
-92.123.103.89
-2.23.7.34
-23.207.210.80
-23.48.23.165
-23.48.23.173
-23.48.23.156
-23.55.110.74
-173.222.107.202
-23.213.161.140
-23.48.23.134
-23.204.152.160
-2.23.97.120
-185.200.232.49
-185.200.232.50
-185.200.232.42
-185.200.232.41
-184.24.77.42
-184.24.77.32
-184.24.77.5
-184.24.77.7
-184.24.77.16
-184.24.77.36
-184.24.77.21
-184.24.77.11
-23.48.23.186
-23.48.23.133
-23.48.23.195
-23.48.23.178
-184.24.77.29
-96.16.122.146
-23.58.222.107
-185.137.25.214
-81.12.72.218
-37.255.133.30
-81.91.145.2
-185.143.232.122
-94.130.33.41
-138.201.54.122
-144.76.1.88
-95.216.69.37
-94.130.50.12
-94.130.70.160
-65.109.34.234
-142.54.178.211
-63.141.252.203
-2.19.205.34
-2.19.204.249
-50.7.5.83
-
-این هاست و پورت رو با IP های بالا ترکیب کنید ✅
-❤️Host: 81.91.147.148
-❤️Port: 10443
-به ارور توجه نکنید Ok بزنید وایستید وصل شه
-❤️@Tasiyanc ☑
 </div>
 

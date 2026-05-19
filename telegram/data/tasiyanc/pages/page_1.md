@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/29 07:50
+📅 آخرین بروزرسانی: 1405/02/29 11:36
 
 ---
+
+## tasiyanc — post 5093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش باز هست عزیزان
+@StarTasiyan ☑️
+
+همراه ساب - آیپی ثابت آلمان🇩🇪 - بدون محدودیت کاربر - استارلینک
+هر گیگ 260
+</div>
 
 ## tasiyanc — post 5092
 
@@ -12,8 +22,6 @@
 </div>
 
 ## tasiyanc — post 5091
-
-<div align="center"><a href="files/post_5091_SanSa 2sv.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 SanSa 2sv.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Password: Tasiyan
@@ -34,8 +42,6 @@ Eric.npvt
 </div>
 
 ## tasiyanc — post 5088
-
-<div align="center"><a href="files/post_5088_Eric.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Eric.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 📶
@@ -80,8 +86,6 @@ slipnet-enc://ARW5TYIc9f8Yiqf2QNOaS7YHSQobbOm2mraoEivTP6TXhJj67kK5Qqm3rOU4p/NBiI
 
 ## tasiyanc — post 5082
 
-<div align="center"><a href="files/post_5082_pith.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 pith.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 📶
 
@@ -91,8 +95,6 @@ slipnet-enc://ARW5TYIc9f8Yiqf2QNOaS7YHSQobbOm2mraoEivTP6TXhJj67kK5Qqm3rOU4p/NBiI
 </div>
 
 ## tasiyanc — post 5081
-
-<div align="center"><a href="files/post_5081_deny.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 deny.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 📶
@@ -268,11 +270,5 @@ slipnet-enc://Ad0nhhY8OuZnE4dR8AjKPZP99HTsAOHTf7SEEOG5ZMBk8T0h4knYLH9Gqtn+Ngly6B
 
 @Tasiyanc 
 🩵
-</div>
-
-## tasiyanc — post 5069
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همراه وصله💘
 </div>
 

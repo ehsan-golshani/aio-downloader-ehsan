@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/29 07:50
+📅 آخرین بروزرسانی: 1405/02/29 11:36
 
 ---
+
+## tasiyanc — post 4983
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀Slipnet Setting ✅Vpn MTU 512 ✅Max channel 64 ✅Enable split tunneling ON - only vpn، tunnel Telegram ... ✅Prevent dns fallback: OFF ✅Enable geo - bypass: ON ✅ compression : ON 🕊 Config setting 🔹 ✅Query 150 - 131 علامت مداد کنار کانفیگ بزنید بعد…
+</div>
 
 ## tasiyanc — post 4982
 
