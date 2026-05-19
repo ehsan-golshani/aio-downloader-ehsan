@@ -1,8 +1,40 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/29 23:00
+📅 آخرین بروزرسانی: 1405/02/30 00:38
 
 ---
+
+## ProxyMTProto — post 47504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 Всё упало? Наши прокси работают ⚡
+
+🎁 Бесплатный MTProto прокси 👇
+
+🚫 Без рекламы
+⚡ Быстро и стабильно
+🛡 Без ограничений
+
+👇 Получить прокси
+</div>
+
+## ProxyMTProto — post 47503
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ak.yourline.online
+Port: 443
+Secret: eed74b20f8b196edebcfdc6de8c8985d60616b2e796f75726c696e652e6f6e6c696e65
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47502
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp.webvirt.cloud
+Port: 443
+Secret: ee938dd87467bc49301de2e9765cf20f4374656c2e776562766972742e636c6f7564
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47501
 
@@ -165,32 +197,5 @@ BLYATNET уже работает ⚡
 💀 Без танцев с настройками
 
 💫 От 15 ⭐ — подключился и забыл 👇
-</div>
-
-## ProxyMTProto — post 47484
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ak.yourline.online
-Port: 443
-Secret: eed74b20f8b196edebcfdc6de8c8985d60616b2e796f75726c696e652e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47483
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rkn.prxtoday.space
-Port: 443
-Secret: eee905e5553bb4da46367bc56513a43d36726b6e2e707278746f6461792e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47482
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
-@ProxyMTProto
 </div>
 

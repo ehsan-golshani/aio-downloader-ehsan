@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/29 23:00
+📅 آخرین بروزرسانی: 1405/02/30 00:38
 
 ---
+
+## ProxyMTProto — post 47484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ak.yourline.online
+Port: 443
+Secret: eed74b20f8b196edebcfdc6de8c8985d60616b2e796f75726c696e652e6f6e6c696e65
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rkn.prxtoday.space
+Port: 443
+Secret: eee905e5553bb4da46367bc56513a43d36726b6e2e707278746f6461792e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47482
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47481
 
@@ -158,33 +185,6 @@ Secret: eedab8c006cdc477f71b1825b3082b1017726b6e2e70726f787974672e7370616365
 Server: night.nolags.pw
 Port: 443
 Secret: dddb42e911bcebf275392e32feebef9459
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47464
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: alpina.agency
-Port: 8443
-Secret: eea02597a68d4821f58d17e6405c389da16164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47463
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 132.243.213.221
-Port: 443
-Secret: eedb1bb2c2c796e681b5062a973eb05859706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tg1.tgproxy1.fun
-Port: 443
-Secret: ee9f275776f928838953db9dc7c5629ef27467312e746770726f7879312e66756e
 @ProxyMTProto
 </div>
 
