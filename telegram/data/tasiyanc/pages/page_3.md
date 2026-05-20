@@ -1,8 +1,90 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/30 11:35
+📅 آخرین بروزرسانی: 1405/02/30 14:55
 
 ---
+
+## tasiyanc — post 5135
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خودم وصلم الان
+</div>
+
+## tasiyanc — post 5134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با این پینگها وصل نشه ۱۰۰٪ منطقه ایه
+</div>
+
+## tasiyanc — post 5133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 185.143.232.122 5.160.13.85 5.160.13.85 185.137.25.214 81.91.145.2 185.137.25.214 81.91.145.2 81.12.72.218 81.91.145.2 5.160.13.85 @Tasiyanc 🐾
+</div>
+
+## tasiyanc — post 5132
+
+<div align="center"><img src="files/post_5132_tasiyanc_5132.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 185.143.232.122 5.160.13.85 5.160.13.85 185.137.25.214 81.91.145.2 185.137.25.214 81.91.145.2 81.12.72.218 81.91.145.2 5.160.13.85 @Tasiyanc 🐾
+</div>
+
+## tasiyanc — post 5131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑
+
+185.143.232.122
+5.160.13.85
+5.160.13.85
+185.137.25.214
+81.91.145.2
+185.137.25.214
+81.91.145.2
+81.12.72.218
+81.91.145.2
+5.160.13.85
+
+@Tasiyanc 🐾
+</div>
+
+## tasiyanc — post 5130
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IP new
+
+185.137.25.214
+5.160.13.85
+81.91.145.2
+5.160.13.85
+185.137.25.214
+81.91.145.2
+37.255.133.30
+172.237.127.6
+185.200.232.43
+104.103.65.5
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5129
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2.19.205.58 🛜
+Location 🇩🇪
+
+ایپی و لوکیشن سامانتل متصل شدن ۳ ثانیه 😎
+
+
+@Tasiyanc🤝
+</div>
+
+## tasiyanc — post 5128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀NEW_IP 1-🤩📶 37.98.105.146 185.137.25.214 142.54.178.211 5.160.13.85 37.255.133.30 2.23.168.254 81.91.145.2 23.221.28.5 2.21.2.65 50.7.4.243 151.101.64.223 50.7.5.85 172.237.145.27 50.7.4.107 50.7.4.244 2.188.21.240 2.23.168.47 2.23.168.250 2.16.106.11 🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺…
+</div>
 
 ## tasiyanc — post 5127
 
@@ -418,58 +500,5 @@ Ip Shiro khorshid & mahsang
 
 
 @Tasiyanc 😡
-</div>
-
-## tasiyanc — post 5115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال کوچکی پیش اومده سرورای اولمون بدون مشکل وصل هستن سرورای دوم به مشکل خورده بزودی رفع میشه ، از اینجا اطلاع رسانی میکنم
-</div>
-
-## tasiyanc — post 5114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وصلید با سایفون ؟
-</div>
-
-## tasiyanc — post 5112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ذات تاسیان :
-</div>
-
-## tasiyanc — post 5111
-
-<div align="center"><img src="files/post_5111_tasiyanc_5111.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گور بابای آیپی اسلیپ نت تاسیان رو با شیروخورشید قاطی کن وصل میشی😎
-</div>
-
-## tasiyanc — post 5110
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هنوز گپ ما جوین نشدید ؟
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 5109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال کوچکی پیش اومده
-سرورای اولمون بدون مشکل وصل هستن
-سرورای دوم به مشکل خورده بزودی رفع میشه ، از اینجا اطلاع رسانی میکنم
-</div>
-
-## tasiyanc — post 5108
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب میزاریم ری اکشن نمیزنید بدرد نمیخوره 🥺
-</div>
-
-## tasiyanc — post 5107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب اختصاصی تاسیان تست شده رو همه اپراتورها✅ اسلیپ نت تانل نشه 📶 🕊 ترکیب اسلیپ با سایفون Slip config 🔹 Slipnet setting : Http proxy ON ✅ port 8080 & 10887 Proxy mode ✅ Setting Psiphon : Host 127.0.0.1 Port 8080 & 10887 منبع اسلیپ : مسیر سفید با ذکر…
 </div>
 

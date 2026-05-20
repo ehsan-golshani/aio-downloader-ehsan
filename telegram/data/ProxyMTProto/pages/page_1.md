@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/30 11:34
+📅 آخرین بروزرسانی: 1405/02/30 14:54
 
 ---
+
+## ProxyMTProto — post 47511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: win.sosproxy.space
+Port: 443
+Secret: ee477ccce74a28c13a2ef6ec9e01510c3164726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47510
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ak.yourline.online
+Port: 443
+Secret: eed74b20f8b196edebcfdc6de8c8985d60616b2e796f75726c696e652e6f6e6c696e65
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47509
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: amorecoin.duckdns.org
+Port: 443
+Secret: 7mYW_5fPLJzJxcvUupkA3pN3d3cuZ29vZ2xlLmNvbQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47508
 
@@ -164,33 +191,6 @@ Secret: ee0fdb7b375ea7edf4d054be58763fcccc7777772e636c6f7564666c6172652e636f6d
 Server: alpina.hatecens.cc
 Port: 8443
 Secret: ee3402ba73468309ea53338f1eb8ecea0c616c70696e612e6861746563656e732e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47491
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47490
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: server4.mtproxygram.lol
-Port: 443
-Secret: ee04b03d0bacb08c4cad9c2fb59898071462726f777365722e79616e6465782e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47489
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hyper.sosproxy.space
-Port: 443
-Secret: ee44adc4da5280b196fa8192ffb712cef964726976652e676f6f676c652e636f6d
 @ProxyMTProto
 </div>
 

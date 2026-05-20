@@ -1,8 +1,34 @@
 # آرشیو کانال MehdiBudam - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/29 11:35
+📅 آخرین بروزرسانی: 1405/02/30 14:54
 
 ---
+
+## MehdiBudam — post 8028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+106
+
+
+slipnet-bundle-enc://AdsHqyzm0txyHLDf+VuZkSls3FmWDP7EjngFcQaffnAnvbqBkvL51WrLcKHXX8HpBcEkYNN3/42y7Ra6+nwB2VP/qhTdx5gm8FblYr3EgSNC2WEl5ddoY04Nob/EfnU9V64jdaiwdfYi8HndSYWW0J2C7+UR3c9QFRGc05/ZwSp143nGFgbP4W+vJgS9szyZ24yAvATcKlyd4p1GjZrVbpjKMlfa2Wef/dUsslJpO/G4knJ/gvclBXa534ZhDGjCjEKJ+osqUvibPB5Wl1opFRj+EspwimMxY4Z3+XilLYBM4Rmy8TeQ+/pFFD356eDFagbwvVzAfzvjz99zkDQyuErIhQzJDjnnsXEK6seqgkuSnMqvEbhokOanQAeV3nvpCVWOTQlSp0R+ctO/tbeI4tQmWLFyUjBZTQWzhHGAnwOSB0B7EegWK6Y6Qy2Duy9TA5PlNPc9obQ/mjgm8uXK2CgJVQXfGOTGw91gqk1hqxTowObb0q+LhDaKbhN5sywTbRIjuE8qqQ2Z/pa/pJ7Z46PVM2hrjuQb6vn4s3BLZXm29gaTG5U7QgHnKK2Y6CZzP4EwXR5yzm1yYezztax00bCybvMmA1nplJP+8bIbsZC7Qb+P+8lh+wrAYXlzrFVJvDgELX4Cmc6w4+GXAs3pYALWBKtDFbRiwjEK6ymf11SkkWpJBNS36jgYZgQ38fvRVraaOwlwF7VRve6Q/bzK3/d5dhjorQyCI6O4uLqUSN/IZxRzcFxh+fM8Y8m2xT/EJqMPJN0F9SycFpUzfp17cKBuI7WJj+bmXvVwI0hiwTBfo7/oTqmcLaGOOvWguKG+QZi3pX3RuUHX781s1VRkhGDutxkbQpm3QQF6aP+5z5lQUtn5HFsLy1q6tiz+EK7kN3dntYP2wHGCzbXZdhFkROJYDRaXz31OSyXT1TideDWDTbW/8wouDM+Yos9gsVYospKGxliSvz0PPMjpyVzppPY7e+g/J7D8tShPPfWwEqDc6b27lTJdiIdbmvt94XpQHJkqj6D9jAycskI+rEaA1k/fSPJY05rNrYx4X38U6PkBRlO7NeUp0SLOOXw/9+Pn72QRzp3/rQ==
+
+﻿
+Pass: @MehdiBudam
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+105 104 103 102 101 100 99 98 97 96 95 94 93 92 91 90 89 و بقیه وصلن .با اپراتور های مختلف تست کنید.
+</div>
+
+## MehdiBudam — post 8026
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+105 104 103 102 101 100 99 98 97 96 95 94 93 92 91 90 89 و بقیه وصلن .با اپراتور های مختلف تست کنید.
+</div>
 
 ## MehdiBudam — post 8025
 
@@ -150,35 +176,5 @@ slipnet-enc://ATOkdbb7Mf97LOPzNK6t8DJqUG+rDX58pGY+fUjZiVrCuW1thmxDzy622EORr6QKXL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 از 90 تا 98 وصلن بقیه رو خودتون تست کنید.
-</div>
-
-## MehdiBudam — post 8007
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-97 98 و بقیه وصلن.
-</div>
-
-## MehdiBudam — post 8006
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-98
-
-
-slipnet-enc://AdU0F5xwlfSPgWZL5JPem+F7C0nkaV/C0F2UXoZQzETWzbKlo8eXtnqgJcsCyS1mTbev5qfUFVDsekYj+f+SKyRvIeG4nYDB4aOf8xWx1ctSGODrnJbC3sGXxmspZT5Z3Byf+Hpcj5y5YN2PiwTfZxMc5MSqTHa+5bHJeYlluq1RcOVGmgs3468g2co8G7KjQxSENMiS245tpkiEclGlvYNm/E5QEv5iFsWxoqD1ahbbG4ZEaKsXtTsWHVSANK1NssRK/nJMMf/cnpBpO+E5sWTcMbWq8y4nuqW/1AHsnnN9E0YenqLwimIL4SZhxSNsr50B8W9CCS0v1IYDJLoijFdagJ9vpezeAqUycAhrVCqc6F4lueLqqh8gIzjbvrihA1Lu/QBPKmZ9fF1ndyAj2rev7bua++hHLOzDnK75wtNqGBnyGF8AqiDLxuwfX8qoVtdpbcZQrtt+zZYY6CPleHpDd26t2U60bHABTpX7Eoa1cPBL/SaV6XvQn7GV8E8PuMog2XhNKro5ETIc7qP3J2LtIm7LkaNM7FDFFpH318qYFb3oaeTG6oJp3NrplFfJyDcJpElGFKoRnj1I3Rq5BxW/jHvK0+hu1FlZsBzQ583bl3Ovv1f20rXtt60e12MpZbaJs4MIoEWWLz4cL5KcVWLve5orfjc8sRnvO7iqNYeJPFgtLD4NpcaSUyp0cfA71Ypplve2BIN5U5YT5sLktc8+Coo25nZxP16IuizGEroD4k9u9IXz8UtWN0JVbT6j/dPJTzgIJdTuh3yjf+0vqG3AoyMUi9xaRA==
-
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-97
-
-
-slipnet-enc://AdNa5ttZaERApGIuE0QMltTKUrPROyEud/O9AT2jz6hAJuGxD3zRz0w4Z3n47eLE0YKbmLk1VXq/kBI2g47RaWWetQAzLJkAp97vefx7/k3ZvB2jvcdwQ3Q1J6uIH0Q7kllmLduO3EUybQPgvMOY5QvLgnJPeezQhSO7J/88k0N9HBXstWeNWbKIGLCGsRbJ7W8DaZJAYxqWXX/oGI67PO3U6SxOBx1pdMNlhE423r+Y3pnXgr3HFfn33nV48FimhzK2TgJ0gtjCmi4Bfh4lcw/Hlc1f34tuxKaFeYsWp5Z0fz2jyvKCrKYYH85lBpS04LzPeoRJieB4kYA4l4pgzeORtrcldkVVnhROlIae1JDXM88yohXCrCgjBuvdt2E7PeQbI1orTu3VJS/mh77gF/c52llbF0O89C8nYKU3fE+QXTqZ9i+OHMoXETvT1/v3JHnlPXhW6b6BI38ntXoXHdoBEkkcZ+lLSHgxpXlY2I94OGkQLY8t0Xrhp5NB/xzaDZIw3DznAEc748OpFYuhXyIx5BR+v7OqhF377p7GOw43ujmhXn7lGkFMarUS3mAXgopfxMB005lCd5kfYtfDtIMF5CnkKY15e3Ora1EY2p37dXLddE/f8hg4j4+OGTLq4BUCEezxtVd5sye7H1RLoeuG+U2qXwBOnWA0ER18tAZgUAxyV8sy++wxERNRz+iDdeK1l4ZR3TQ2BIQp7VfI70UO/K2WzXSHRBSnBVNXIdhgShGjv6oNcgyzhmB2Y3cmjWkzBzYPoyHSNXsKaLLPM7t9aA4SixHVBDSo4A==
-
-
-@MehdiBudam
 </div>
 

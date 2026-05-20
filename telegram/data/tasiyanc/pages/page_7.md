@@ -1,8 +1,87 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/02/30 11:35
+📅 آخرین بروزرسانی: 1405/02/30 14:55
 
 ---
+
+## tasiyanc — post 5042
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنظیمات سیمکارت 🛜🛜🛜 APN Name Google.com APN Google.com APN protocol Just  IPv4 🐾 Shir khorshid Sni: 🔹Google.com رو ایرانسل جواب داده ، بقیه اپراتورها هم تست بزنن @Tasiyanc 🔥
+</div>
+
+## tasiyanc — post 5041
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنظیمات سیمکارت 🛜🛜🛜
+APN
+Name Google.com
+APN Google.com
+APN protocol Just  IPv4
+
+🐾 Shir khorshid Sni:
+🔹Google.com
+
+رو ایرانسل جواب داده ، بقیه اپراتورها هم تست بزنن
+@Tasiyanc 🔥
+</div>
+
+## tasiyanc — post 5040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 new all operators 185.208.174.167 31.214.169.244 185.109.61.27 5.144.129.174 37.191.76.110 81.12.72.218 185.142.158.162 185.88.178.196 63.141.252.203 109.72.197.1 80.191.243.226 142.54.178.211 185.137.25.214 81.91.145.2 5.160.13.85 185.200.232.42 185.200.232.50…
+</div>
+
+## tasiyanc — post 5038
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 new all operators 185.208.174.167 31.214.169.244 185.109.61.27 5.144.129.174 37.191.76.110 81.12.72.218 185.142.158.162 185.88.178.196 63.141.252.203 109.72.197.1 80.191.243.226 142.54.178.211 185.137.25.214 81.91.145.2 5.160.13.85 185.200.232.42 185.200.232.50…
+</div>
+
+## tasiyanc — post 5037
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 new all operators
+
+185.208.174.167 31.214.169.244 185.109.61.27 5.144.129.174 37.191.76.110 81.12.72.218 185.142.158.162 185.88.178.196 63.141.252.203 109.72.197.1 80.191.243.226 142.54.178.211 185.137.25.214 81.91.145.2 5.160.13.85 185.200.232.42 185.200.232.50 5.160.128.142 2.23.168.96 85.133.167.108 2.23.168.47 2.23.170.80 2.16.19.136 185.143.232.122 2.23.168.250 2.23.168.144 2.23.168.213 2.23.168.254 2.23.168.174
+
+اگه وصل نمیشه در حالت عادی این هاست و پورت رو با IP های بالا ترکیب کنید 
+✅
+❤️Host: 81.91.147.148
+❤️Port: 10443
+به ارور توجه نکنید Ok بزنید وایستید وصل شه
+
+❤️@Tasiyanc ☑
+</div>
+
+## tasiyanc — post 5036
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کصکشی اگه مدال داشت طلاشو به
+چوپان میدادن نقرشو به چاوشی 😐
+</div>
+
+## tasiyanc — post 5035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🕊 VyDns udp 🇫🇷
+
+slipnet-enc://AQSWGzqJIkza8mHt2reBWJXKRaB93UTOZZyBaEe4z7bVnGyMxqTzF//BCTBQL5xuYLUECmsq3x6KStRdmIB6QEx3zGWpsCuiwIf0f6P5XrTXgCDNtGEAkLu7K1tlgrMLjWe8J1JM2uMJDMboLX8JC+JX+agtNbs8DyClR9YbrHzRe7dcxGV790VQZkKYZ5ksaYYDtel/0RT90RCSBG1ddA7sz8Ybub0Chfbkdm4gtY9x890slUxRcjQPOmMzKmbQ8rC6e577vSwXj9CPtJQsAxQnHKk70uwZNtGwgFaBCLyZqP1q3tQcZ2m/NYju1aRND7HC02pUuTMgvoT0bQjcqPsz+sCgvMXlDgbh61WTcqbLKGluto7I8oKP5FxoNsC/AhIGOeqD39/zq6KPAsQ1eOnrLSOAxHJeD3S1rlK7UkT5YbbtXg4EVtyANYMpvcd1QMvWy1rXFgf/KehwSYVsVE4/bYGbuwEnvGIo6ZpbZLnP3YmmyZxD2yQs+ZoZqR3KyyrooxZsmmGc3TcGFWVoXSDGp9Z2IxOSvT3/m9FEzM1Q95bDMAEigC7QuoWV/s/x4AvnhFvCsim6++Ac1Z9+qRbJDBrgFfTnbihJGXyGR/KE1sg7teluANB7XCGZtTn79d50MXFsTuOr1zzAhou9bCKu
+
+✔ Setting For Slipnet ✔
+
+❤️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5034
+
+<div align="center"><video src="files/post_5034_tasiyanc_5034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5034_tasiyanc_5034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs for 6️⃣👑تست شده 37.148.22.51 194.33.107.34 2.188.215.67 217.219.163.159 77.104.115.190 81.91.139.18 91.106.70.14 93.118.148.30 80.210.62.146 37.148.47.131 78.157.52.0 2.189.162.250 5.160.104.6 2.188.162.76 185.141.168.12 178.173.132.86 80.210.63.203…
+</div>
 
 ## tasiyanc — post 5033
 
@@ -259,112 +338,5 @@ IPs 👑 new all operators
 برای اتصال پایدار صبور باشید 😐
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New IPs Ping 150 - 200 👑
-
-138.201.54.122
-144.76.1.88
-94.130.70.160
-94.130.33.41
-94.130.50.12
-95.216.69.37
-185.137.25.214
-37.255.133.30
-81.91.145.2
-65.109.34.234
-185.143.232.122
-5.160.13.85
-142.54.178.211
-63.141.252.203
-2.23.168.144
-2.23.168.254
-2.23.168.250
-2.23.168.96
-50.7.5.83
-2.23.170.80
-2.23.168.47
-2.23.168.174
-2.23.168.213
-
-@Tasiyanc 😐
-</div>
-
-## tasiyanc — post 5019
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡 اسکنر آیپی برای شیرخورشید👑
-
-☺️ فایل بالا رو با مرورگر باز کنید.
-
-☺️از بخش «رنج‌های آماده IP» یک رنج انتخاب کنید، یا به‌صورت دستی آیپی‌های موردنظرتون رو داخل قسمت «لیست بازه /ip» وارد کنید.
-
-☺️ اسکن رو بدون VPN شروع کنید.
-
-☺️ بعد از اتمام اسکن، لیست آیپی‌های سالم و سازگار با اینترنتتون پایین صفحه نمایش داده میشه.
-
-☺️ آیپی‌های نمایش‌داده‌شده رو کپی کنید و داخل برنامه شیر و خورشید وارد کنید.
-🤩 @Tasiyanc ✔
-</div>
-
-## tasiyanc — post 5018
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سفید ترین آدما اونایی ان ک همراه اول دارن وصلن به شیرخورشید
-</div>
-
-## tasiyanc — post 5016
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🕊 VyDns udp 🇫🇷
-
-slipnet-enc://AZ85CaorQUXoIBGuBL/VhrBZ2rs3+wyezKP4lATkMBRLT0f5syODk5/0Wg2/fy7FHQe7W3xE+ul8LQYuV0R/fMoKzqnxxBpFFk9Qael9Th6hq3qJhSUse/OHefpssWdyKQPEHY5yEVCDFxbKHCGC8ECUn+C79GNs3waGwMcwgJNmpzgwp3i0Vj9uNDDEOljZALUPW4GH5Ae8gYm1YW649PVBgBH+e/47zg6MmhD3sF9vWw4Ci2XdVbe2J2IwoRuC1x19QSukFY4mJ23NXv/QMIF2Tl7sjAn8uQyxRu2Wljgkj4FXc0bD4oibacO0PCcbnd9OFM/CLZ4zr2M+1CZyHOrqxLKIK0+WrCVhCehkFZbxRO6JELPLuOpHUaO63QN6X3/TsC5ZkM/f+Fr/tA97YuTjTAbwm5Z0DmajXLpqhXGt/dn85yAnAd2kqXDmacgPuXjjXVm6NED3z07/h2Yrtm22O+ROI8ouMsfJ7NH9ALRI/x5e/KCc44cxd6WEqZygrdKSDpJ91ZUaIpWFhLPw2hds4Gepz2fpP92el8rXoijR8sD0XtGM7fcRJMcsUT1L9iea8SjZbs9W98VteYeLbeYk6J49RBidojAcK4cEeoY48SpdLmwu3+DQy4s+5CfW+rVAAV10pv0HlvxJslqZprM51JG5xU7n7EZHCl5tpMIjQTbmln99ePtxtgDc8j798UtYUNpvgpDm+W5lqxtdCrtJV2n1kvNjsne8K3JKmdmlwiaRE0Q0RKajTOuRh+esgIk=
-
-✔ Setting For Slipnet ✔
-
-❤️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید گپ رفقا
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 5013
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🕊 VyDns udp 🇩🇪
-
-slipnet-enc://AfGk2opsi+MrCpAC+etlraDt0dOI/3l5sdWzoTvyRPP1XqBDiuVORgBdHDoHV9kQ9EH/G+VxkLGBOf3R8jpPIBtHfNKPl6P3VBOcr8Eg4P5tJ7UfxPqzBsTWg9H5QAwPnx3xGjeaUOfwD6b10uKFuNjb9G62/MTr75IFRn+5huCLQ6x/Y7aV4Qao4p9rm4hlnLzJ/AS14LlbnD1b3+iaBhZtzhWHqKWMPha5vdn1JmQ3VG5oBVDAQuhc8jQDow3J5H5gZ6r2VMIyErQVLZRC/J6bBERA9eCgiq4yGhwJ7DTt1FTWOSX+lHqTBAQ+QZpz7laHLjhu1GBbR4krbtaye0pCKeZ9njMNfA0UPlwqMYEJosAnL12VO1xs0HFpBYwtWq+yVJNtB7jubCQLgC9YgB76nC5VnbUoh3lGkuHaClpwH8johNh4s4WOj55jnDJKIsV0aDPC+SLMvafd0KuUItkOVFA0vGAfoNKtb8CjV8C5TlUTO8rJsV8/xPrIE4PNah5cC4X7HQs7FLm6jM7UrN3xbT2FyOvogU+2DQWVsgMoRkZWTQ5Eq0ADNyHYjrYESKOy1zZ/sm7a374M3UtMki4SIpVrw9++id0lv1QSIxSpRb+S/XS8pmwrByWS/EHCu8T6fW0TTQeK72KFudT7mjdLOhinlux3oppDcJw=
-
-✔ Setting For Slipnet ✔
-
-❤️ @Tasiyanc ✅
 </div>
 
