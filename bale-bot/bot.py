@@ -2,7 +2,7 @@ import telebot, os, glob, json, hashlib
 from telebot import api
 api.TELEGRAM_API_URL = 'https://tapi.bale.ai/bot{0}/{1}'
 
-from config import BOT_TOKEN, verify_password, ALLOWED_DIRS, FILES_DIR
+from config import BOT_TOKEN, verify_password, ALLOWED_DIRS
 
 bot = telebot.TeleBot(BOT_TOKEN)
 AUTH_FILE = os.path.join(os.path.dirname(__file__), 'auth.json')
@@ -24,7 +24,7 @@ def auth_required(func):
     def wrapper(m):
         if str(m.chat.id) in authorized:
             return func(m)
-        bot.reply_to(m, "🔒 لطفاً با /auth <رمز> احراز هویت کنید")
+        bot.reply_to(m, "🔒 با /auth <رمز> احراز هویت کنید")
     return wrapper
 
 @bot.message_handler(commands=['start'])
