@@ -1,8 +1,39 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/30 14:54
+📅 آخرین بروزرسانی: 1405/02/30 17:41
 
 ---
+
+## ProxyMTProto — post 47474
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖 Got a working proxy? Share it 🚀
+Есть рабочий прокси? Поделись 🚀
+
+Start @SProxyRobot, send it in — we’ll test & post it for everyone.
+Запусти @SProxyRobot, отправь — проверим и выложим для всех.
+
+⚡ New time slots are now open for the next days, grab yours before they fill up!
+⚡ Новые слоты на ближайшие дни уже открыты, успей занять, пока не разобрали!
+</div>
+
+## ProxyMTProto — post 47473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47472
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ark.proxytg.space
+Port: 443
+Secret: eeb8df1294e7e13cd99e7a9144bae17db861726b2e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47471
 
@@ -154,33 +185,6 @@ Secret: ee46f33d84ae85e3ad53567904d7199be7706574726f766963682e7275
 Server: ark.proxytg.space
 Port: 443
 Secret: eeb8df1294e7e13cd99e7a9144bae17db861726b2e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47454
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.16.55
-Port: 443
-Secret: ee7d21ac88a75bdb5887ec4918a20386927777772e6d6963726f736f66742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47453
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dealer4-fin.dealer.ac
-Port: 8443
-Secret: ee602b25b6e94c83ec0e24fbbc83c8bc547477656e7475722e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47452
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
 @ProxyMTProto
 </div>
 

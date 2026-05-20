@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/30 14:55
+📅 آخرین بروزرسانی: 1405/02/30 17:43
 
 ---
+
+## tasiyanc — post 5143
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔫🧑‍🦱 تبریک به آرسنالیا
+</div>
+
+## tasiyanc — post 5142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من نمی‌فهمم بعضی چنلا چطوری ممبراشون وصل میشن به هات وی پی ان قضیه سفید بودن و نبودنه احتمالا
+</div>
+
+## tasiyanc — post 5141
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمام سروراش پینگ‌ میده اما اصلا چیزی بالا نمیاد
+</div>
+
+## tasiyanc — post 5140
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نه رفتم با همراه و ایرانسل تست کردم وصل نشد به هیچ عنوان
+</div>
+
+## tasiyanc — post 5139
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وصله با ایرانسل
+</div>
+
+## tasiyanc — post 5138
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥Hot vpn 🔹برای یه سری میگن وصله - ولی خودم تست کردم کانکت شد بالا نیورد تلگرامو دوس داشتید تست کنین https://play.google.com/store/apps/details?id=com.hotcodes.hotvpn @Tasiyanc ❤️
+</div>
+
+## tasiyanc — post 5137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Hot Vpn APK 🥺
+
+لینک داخلی
+@Tasiyanc 🤩
+</div>
+
+## tasiyanc — post 5136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥Hot vpn
+
+🔹برای یه سری میگن وصله - ولی خودم تست کردم کانکت شد بالا نیورد تلگرامو
+دوس داشتید تست کنین
+https://play.google.com/store/apps/details?id=com.hotcodes.hotvpn
+
+@Tasiyanc ❤️
+</div>
 
 ## tasiyanc — post 5135
 
@@ -372,133 +429,5 @@ Location 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۹۰٪ بله باشه کانفیگ اختصاصی میزارم
-</div>
-
-## tasiyanc — post 5123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما که رای منفی دادیم 😂
-</div>
-
-## tasiyanc — post 5122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما که رای منفی دادیم 😂
-</div>
-
-## tasiyanc — post 5121
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی که نه میزنن تو گپ بیان دلیلشو بگن شاید اصلاح کردیم
-https://t.me/+qJ7oM-0GidY0NTY0
-</div>
-
-## tasiyanc — post 5120
-
-## tasiyanc — post 5119
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid & mahsang
-
-
-2.21.2.58
-2.21.2.89
-2.23.168.7
-5.160.13.85
-81.12.72.218
-2.23.168.96
-92.123.106.96
-2.23.168.144
-2.23.168.213
-2.23.168.254
-2.23.170.80
-37.255.133.30
-104.103.65.50
-63.141.252.203
-142.54.178.211
-185.137.25.214
-185.200.232.40
-185.200.232.41
-185.200.232.49
-
-❤️ Connected 📶📶
-
-
-@Tasiyanc 😡
-</div>
-
-## tasiyanc — post 5118
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان یه هل بدید ۲۰ کا شیم
-</div>
-
-## tasiyanc — post 5117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid & mahsang
-
-
-184.24.77.42
-184.25.28.31
-184.28.165.4
-184.51.252.4
-184.86.251.12
-184.86.251.27
-184.25.52.200
-184.28.230.87
-184.30.150.142
-184.51.252.36
-184.51.252.38
-185.200.232.40
-185.200.232.41
-185.200.232.42
-185.200.232.43
-185.200.232.49
-185.200.232.50
-184.51.252.152
-184.51.252.157
-184.86.103.210
-184.51.252.135
-
-❤️ Connected 📶📶
-
-
-@Tasiyanc 😡
-</div>
-
-## tasiyanc — post 5116
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid & mahsang
-
-
-23.207.210.80
-23.55.110.74
-94.130.33.41
-94.130.70.160
-144.76.1.88
-94.130.50.12
-94.130.13.19
-95.216.69.37
-138.201.54.122
-2.19.204.217
-142.54.178.211
-95.100.69.108
-96.16.122.158
-23.55.155.169
-23.210.73.136
-2.22.151.181
-2.21.239.10
-23.192.237.222
-95.101.181.125
-65.109.34.234
-63.141.252.203
-104.78.170.186
-
-❤️ Connected 📶📶
-
-
-@Tasiyanc 😡
 </div>
 

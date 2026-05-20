@@ -1,8 +1,50 @@
 # آرشیو کانال MehdiBudam - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/30 14:54
+📅 آخرین بروزرسانی: 1405/02/30 17:42
 
 ---
+
+## MehdiBudam — post 8032
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دایرکت یادتون نره.
+t.me/MehdiBudam?direct
+با چه شماره ای وصلید؟
+</div>
+
+## MehdiBudam — post 8031
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+TCP
+
+185.140.56.21:53,176.65.241.236:53,185.143.207.253:53,95.38.15.205:53,80.75.4.24:53,185.14.161.36:53,217.219.163.18:53,185.53.140.250:53
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8030
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+TCP
+
+81.91.146.202:53,81.12.87.115:53,81.12.121.19:53,81.16.125.21:53,94.182.56.43:53,2.144.198.247:53,2.188.225.147:53,212.80.20.98:53
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8029
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+107
+
+
+slipnet-bundle-enc://AWY5lEZjUqWpV/pWyYWWVAqbWRB83PIZZR3ZZXjf15GGh4acnPVZAa/jo2qdQ/GmCLmwiOE9iSDwS/3kk4vOWClFrHqRDwhhh9TsdS5QdzLLHHhEpckAzjZ0VC3yh0VwcIlLiGwPR4cfrPcajJAXJxnSJ2qTAvnweIoBIZtk5yBhMe2gpFNeOjHTU8rVnRDaYk36kTsDmVvXzQ29/BRVwuJUcNCNmonwh4PZFziqAkeLzCpqu/FA9UY1HpVd4tAx2LbWlpTXitZ/C9UwUW5ZjCqvlnEJDeBxhiz9SE42iLeu6LEuBQoELyIYPMvgnxSpefYdLOoDEkLUmAnXGRnrYiA0Mf8pcxoAWF8725RbEAjvsc5lpJPouW4lbwbvZbur2WuOv/2vAwaYYqOHTo11Ytw0XiucQVQNrCb9vD/Y1jmrWlv9TQl8tjZFSqN63677Spjqh4eKFzXrDxH7MUqrtDUXcGhxM7QOE2mzXyxrVPPg2Qs9zlU/teOy4Dek5npWQH5Im9Mpg557pX4npF6xrWDvw80YLUYMqt5aL2S4oYqDK/KhKwZnaaO9YHelARa0ticN5e2+f25Vd1aaDGOhbbVeWPtK5WNN8+AJNdql5wORvuvtKyIoYz6voh9it2JtQjAWsuox4BMDk8gCJOsm6g/hFcklBhn9YJxhHGDQe8o8hDUfYh2YaW14NeSCzYKHmoLM8uih2l87t0/pBx6MtwbM/N3tJ6rF6zPOCTmw6ACCl4gzTuN0lhYl2WiTzbp193TBlsN2qBrtaXoIgPvA4RBFjTByIsZP7nraMO5RYS4Z29geWGntMZJqky6H9sOJifiSXPb8LTzXS32pWwo5m5KHRc++dCB3lj4WMx8XAHBxfhMyqsgTT2Yw1uqVdpOpFWIDUxsW2PKPFz8Uh+lbF4eJ8Ih/Q9rwABY8YzH7t7nHa/XQYnppc8DkhHao9KEyN96209BZBSOn+Z0qnX10brgM26gkmIzjndiIey/RqGRVWWpc0+PobnK8BrkGDj4G+MENVZYz4C2YD7FsfDf38tdo6cRNRG1RUgBp0cAA4pCfVoGXDCLSvNBw7zTqALEf1i3oB7mwvw==
+
+﻿
+Pass: @MehdiBudam
+
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8028
 
@@ -140,41 +182,5 @@ slipnet-enc://ARWuvhyeKtZvXPsrX/TPDmcQ6RgYxholr9Q9mfeHlnyLBK2ai+lKaoX9Cy+V6B4iTG
 
 
 @MehdiBudam
-</div>
-
-## MehdiBudam — post 8011
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-100
-
-
-slipnet-enc://Ab3327bHMy6oHmM8W59BbaQYdMUpITaLz9Z4119zOvl/Nk/wYCp1okNNJYP8XXYSoxVlePgvYSVWeDMVWq71zByQxzoellfSYELVkjcEsorwtdfgtV8BCzq94DcnmFQzR3KEluZOG2Drc4uDwmGPrpiufl9zbhSBI0WEfTQMOKYHS1JJuut1wItMGYVqqU93ULfVBMANthYC+zUE075YB4Qg+Hm2gSlRnbmSkBIqPh6ptFy7nPfQNNYo91xJrRbqOCQ/w5r7L9nlDhkhsKvfacUOKo4e8gRsXZbb6wANIYztvVsg9tFahporbL+2p0hpgKp4Ayzcq+Y20V7AJ/LFQgRr1SKOheyDRohkb8RvcMC0akSDfP0mkXxZ7pN05MmqDm9WrSA8Wwih6leyaqVJPKlkRvTqV0eweNCLZpHTHj0xdBWMwAb3YGL4JLC2RyEj/2ucAvlOyMMP4bMqW3GPetGiTcN93NN760tf8/r4FdEVORH0oOwjYZ14aBIdK41QMGwskUVIECfBp5MK1EhDPR5RCCq04Ro71LuECI4fg5vblxIw6CG7GrtHU/ZBmIyNgG89DvapwWOd978t5Lgm4J6tnL5b6FZwexgU/x+38oa6lik+yTwydm3T4kBJVIJllYU0jm3pcLsLMGhDmknjzW9UEUk4x/MNBzoxQRtLUG6o7T/34IPWEEXieqeSnI4fD4yj7PS5lnG2R9Syy4u3T64bx/x65raxffYcPobjV5AQNMLdUXcYwIFGxQRS0fum3Z+717KOpNzLyAw/6mEFUKsU0cwqbO0Qky87BPeo
-
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8010
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-99
-
-
-slipnet-enc://ATOkdbb7Mf97LOPzNK6t8DJqUG+rDX58pGY+fUjZiVrCuW1thmxDzy622EORr6QKXLHUaoYsCXvwTGpX8Gfa7vQnTquxvgwuBU4M0WdwuekqGuFegW2JfKilliulrLSg94f4N5ufpO9Wnv3WnElr390qpktcgif7UIaNM5e9huEpgBkPJL9xNeTBgek8piA7aWtRhdP5QlIY55SKQseJWlRYmyyKa+iAXTyLDNDWFTw4GkcBVoG89zigEk2oPF4A7PgOeJZk6AfORkTJ/+iuW+sjwT4q45MKqSUcm/zWsc3rGBGdvF/njHn+ApPludYxHP7qG77SO+2vPSka2hIfQkrqYWFv/SmywAFWZFTrUdeJ2RuDuUc/cJt1wVBFWwJpYzfhtqUhhriEpyHTV9aKN8EH43K9bMrdblqyY20PaKQ3QZsCajy27xQtdbsBzekRzrEP1kK/idBQZQSdiVdNQ7pCaj1LHRyK7DX4CkfDrbOg+lZ83NHkJe3emeWXaP88L3s+H9x9TnfIUV/u/Yu1yk186EsMG5rXB/WmcVGP4PcOF8GaxPYZE/ZbzBLKLh9RjMwkqbAW6+m0RGmD+zL3lMrp68k9/YwwGC+TYuzooMH7Rh9IhqrlG6GfiijowEsJ4C13sqKTEeWJintfvesXAy4G1nLwYmDtH8b45rntopoikWLeQswvEAke2US4TUDcw1330n+9B4PckZ08ooj5l/LymfdHbmI5FWYl30bCCUwgraZbHbrUhp1t+/HasB3a1D00lB3bLkUv5/1WjASTjgGUb1Qx/cLlcpUJ
-
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8009
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-88 هم میگن خوب وصله.
-</div>
-
-## MehdiBudam — post 8008
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از 90 تا 98 وصلن بقیه رو خودتون تست کنید.
 </div>
 

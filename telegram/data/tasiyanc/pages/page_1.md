@@ -1,12 +1,88 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/30 14:55
+📅 آخرین بروزرسانی: 1405/02/30 17:43
 
 ---
 
-## tasiyanc — post 5183
+## tasiyanc — post 5194
 
-<div align="center"><a href="files/post_5183_Sleep💤.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Sleep💤.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نحوه حذف گواهی CA Certificate توی گروه پین کردم
+https://t.me/Ta30aan/53472
+</div>
+
+## tasiyanc — post 5193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥺چنل های پر مخاطب ازشون بعیده این روش مخرب ترکیبی سایفون که مجوز CA Certificate میخواد رو دارن تشویق میکنن مردم وصل شن .
+
+😱 مجوز CA Certificate چیست ؟
+
+اگر یک گواهی CA را نصب کنید مالک آن گواهی میتواند به اطلاعات شما مانند رمزهای عبور پیام ها یا جزئیات کارت بانکی از وب سایت هایی که بازدید می کنید یا اپلیکیشن هایی که استفاده می کنید دسترسی پیدا کند، حتی اگر آن اطلاعات رمزنگاری شده باشد.
+🔹حتما فور بزنید هیشکی این اشتباه مرتکب نشه
+Join As @Tasiyanc
+</div>
+
+## tasiyanc — post 5192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرورها نامحدود و سرعتشون شاید مورد پسندتون نباشه ولی با توجه به اختلالات شدید حتی اگر تلگرامم بیاره بالا خیلیه
+۸۰٪ کانفیگ پولیا دچار اختلالن
+</div>
+
+## tasiyanc — post 5191
+
+<div align="center"><a href="files/post_5191_Kaktus.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Kaktus.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀
+
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۲۰ کا شدیم ری اکشن نداره؟
+</div>
+
+## tasiyanc — post 5189
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💦20 K ...⚫
+</div>
+
+## tasiyanc — post 5185
+
+<div align="center"><img src="files/post_5185_tasiyanc_5185.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs Ping 56 ✅ 5.160.13.85 185.88.178.196 185.208.175.228 164.138.17.122 185.137.25.214 185.208.174.167 185.50.37.52 185.141.106.238 5.160.13.85 37.191.95.70 @Tasiyanc 🤩
+</div>
+
+## tasiyanc — post 5184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs Ping 56 ✅
+
+5.160.13.85
+185.88.178.196
+185.208.175.228
+164.138.17.122
+185.137.25.214
+185.208.174.167
+185.50.37.52
+185.141.106.238
+5.160.13.85
+37.191.95.70
+
+@Tasiyanc 🤩
+</div>
+
+## tasiyanc — post 5183
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان تست شده  📶
@@ -41,8 +117,6 @@ Join As @Tasiyanc ☑️
 
 ## tasiyanc — post 5173
 
-<div align="center"><a href="files/post_5173_Morvarid 🦪.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Morvarid 🦪.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان تست شده 📶
 
@@ -59,8 +133,6 @@ Join As @Tasiyanc ☑️
 </div>
 
 ## tasiyanc — post 5170
-
-<div align="center"><a href="files/post_5170_Panah 🌙.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Panah 🌙.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان تست شده 📶
@@ -106,84 +178,5 @@ Join As @Tasiyanc ☑️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چخبر رو به راهید؟
-</div>
-
-## tasiyanc — post 5164
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VyDns 🇩🇪
-
-slipnet-enc://AX3z8tTh/X9om0T2Ji+iBGSVRwdgrd1yorYs54KFL1IhoRved1A3EZ/8Hb6WcVweh+m9eWN2Mrd5wYJphW9Hjsh7qplzeSEiH4QszAkD7NKMM7II3abZ7zVlYTX+rPJc9zN7S/PlGqv2ZceGSYPmqpPNVPqCc1kcb4if1eY30pHiEqDz5v5v0ILRUq1xWMEKVTWL3YicdTw7m+6H4H8ZyIIJ0RNihRpUzjOssxCO2tpnNsDCBfM/DNco8NhOW6Krv0vu3UvzweQ+yhTkXC5tfpBivkEpjr0cPPFgh4zPlN4QtVsHs5t9yoBZpr+5SXlWbCuoIPV4yQL6kogJA9vRQvG+c+pEpnxQNsfY08N/1bG4VOQLlGcYaHxsQFuAeNjSk+ssOZubE4XLYs8DV0lVI6/d4SwpEmy2PB125hyiQswvjEAro2Dz+ZrChLfgUCzcAfUKMH4sVRLZ1ppaH690pdK3XZ0IoeZ/klx9KstnvUvbunCNKsn7xZwfDaHe+OJhe6C/YO+tD2iY10Db7wan/9tLPksPCZZ5Ii7663n6LYtmJERLKQPAjlBLy10xNbt3By2mNJf6qzpmAetvipL2diqkUyGytYIrMNN8ga8dtBp9eq6LInKyQOToqbcuwfUaHkb7lw==
-
-@Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5163
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان  بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5162
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان  بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥HOTVPN فایل سالم
-
-بعضی سرورهاش وصله
-البته بنظر من واسه همه اوکی نیست و منطقه ایه خودم تست کردم نتیجه نداد 😂
-
-دانلود با لینک داخلی ⬇️
-
-دانلود از گوگل پلی 🕹
-
-دانلود از اپ استور🍏
-
-راجب امنیتش اطلاعی نداریم 😍
-
-Join As @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5159
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روح بانو الهه در آرامش 🖤
-روحش شاد و یادش جاوید در دل ایرانِ تاسیان 🏴😭
-</div>
-
-## tasiyanc — post 5158
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 قاتل الهه حسین نژاد امروز صبـح اعدام شد
-@Tasiyanc
-</div>
-
-## tasiyanc — post 5157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما اندازه اینا تو چنلمون کس بگیم همه لف میدن
 </div>
 

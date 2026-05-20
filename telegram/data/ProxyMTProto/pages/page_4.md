@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/30 14:54
+📅 آخرین بروزرسانی: 1405/02/30 17:41
 
 ---
+
+## ProxyMTProto — post 47454
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.16.55
+Port: 443
+Secret: ee7d21ac88a75bdb5887ec4918a20386927777772e6d6963726f736f66742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dealer4-fin.dealer.ac
+Port: 8443
+Secret: ee602b25b6e94c83ec0e24fbbc83c8bc547477656e7475722e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47452
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47451
 
