@@ -1,647 +1,176 @@
-name: Setup Complete Bale Bot (Secure)
+name: Create Bale Bot (Simple & Reliable)
 
 on:
   workflow_dispatch:
     inputs:
       bot_token:
-        description: 'توکن ربات بله (از @BotFather بگیرید)'
+        description: 'توکن ربات بله'
         required: true
         type: string
       bot_password:
-        description: 'رمز عبور شخصی ربات (فقط شما بدانید)'
+        description: 'رمز عبور شخصی ربات'
         required: true
         type: string
 
 jobs:
-  create-secure-bot:
+  create:
     runs-on: ubuntu-latest
     permissions:
       contents: write
     
     steps:
-      - name: Checkout repository
-        uses: actions/checkout@v4
-        with:
-          fetch-depth: 0
-          persist-credentials: true
+      - uses: actions/checkout@v4
       
-      - name: Setup Git Config
+      - name: Create bot files
+        env:
+          TOKEN: ${{ github.event.inputs.bot_token }}
+          PASSWORD: ${{ github.event.inputs.bot_password }}
         run: |
-          git config --global user.name "GitHub Actions Bot"
-          git config --global user.email "actions@github.com"
-      
-      - name: Create Bale Bot Directory Structure
-        run: |
-          # ایجاد ساختار پوشه‌ها
-          mkdir -p bale-bot/handlers
-          mkdir -p bale-bot/utils
-          mkdir -p bale-bot/files/downloads
-          mkdir -p bale-bot/files/telegram
-          mkdir -p bale-bot/files/google-play
-          mkdir -p bale-bot/files/temp
-          mkdir -p bale-bot/logs
-          mkdir -p bale-bot/data
+          # ایجاد پوشه‌ها
+          mkdir -p bale-bot/files/{downloads,telegram,google-play}
           
-          echo "✅ ساختار پوشه‌ها ایجاد شد"
-          ls -la bale-bot/
-      
-      - name: Create requirements.txt
-        run: |
-          cat > bale-bot/requirements.txt << 'EOF'
-          pyTelegramBotAPI==4.16.1
-          requests==2.32.3
-          python-dotenv==1.0.1
-          aiohttp==3.9.5
-          beautifulsoup4==4.12.3
-          EOF
-      
-      - name: Create config.py with password hashing
-        run: |
-          python3 << EOF
-          import hashlib
+          # محاسبه هش رمز با openssl (بدون نیاز به Python)
+          SALT=$(openssl rand -hex 32)
+          HASH=$(echo -n "$PASSWORD$SALT" | openssl dgst -sha256 -hex | cut -d' ' -f2)
+          
+          # ذخیره هش و salt برای Secrets
+          echo "BOT_PASSWORD_HASH=$HASH" > secrets.txt
+          echo "PASSWORD_SALT=$SALT" >> secrets.txt
+          
+          # فایل requirements
+          cat > bale-bot/requirements.txt << 'REQ'
+          pyTelegramBotAPI
+          requests
+          REQ
+          
+          # فایل config.py
+          cat > bale-bot/config.py << CFG
           import os
-          
-          password = "${{ github.event.inputs.bot_password }}"
-          salt = os.urandom(32).hex()
-          password_hash = hashlib.pbkdf2_hmac('sha256', password.encode(), salt.encode(), 100000).hex()
-          
-          with open('bale-bot/config.py', 'w') as f:
-              f.write(f'''import os
           import hashlib
           
-          # توکن ربات
           BOT_TOKEN = os.environ.get('BALE_TOKEN')
+          REQUIRED_HASH = os.environ.get('BOT_PASSWORD_HASH')
+          SALT = os.environ.get('PASSWORD_SALT')
           
-          # هش رمز عبور ذخیره شده در Secrets
-          REQUIRED_PASSWORD_HASH = os.environ.get('BOT_PASSWORD_HASH')
-          PASSWORD_SALT = os.environ.get('PASSWORD_SALT')
-          
-          # پوشه ریشه ربات (فقط به همین پوشه دسترسی دارد)
           BOT_ROOT = os.path.dirname(os.path.abspath(__file__))
           FILES_DIR = os.path.join(BOT_ROOT, 'files')
           
-          # پوشه‌های مجاز داخل ربات
-          ALLOWED_DIRS = {{
+          ALLOWED_DIRS = {
               'downloads': os.path.join(FILES_DIR, 'downloads'),
               'telegram': os.path.join(FILES_DIR, 'telegram'),
               'google-play': os.path.join(FILES_DIR, 'google-play'),
-          }}
+          }
           
-          # فرمت‌های مجاز فایل
-          ALLOWED_EXTENSIONS = ['.txt', '.pdf', '.jpg', '.png', '.zip', '.md', '.json', '.html', '.apk']
-          
-          # محدودیت حجم فایل (20 مگابایت)
-          MAX_FILE_SIZE_MB = 20
-          
-          def verify_password(input_password: str) -> bool:
-              """تأیید رمز عبور"""
-              if not REQUIRED_PASSWORD_HASH or not PASSWORD_SALT:
+          def verify_password(pwd):
+              if not REQUIRED_HASH or not SALT:
                   return False
-              input_hash = hashlib.pbkdf2_hmac('sha256', input_password.encode(), PASSWORD_SALT.encode(), 100000).hex()
-              return input_hash == REQUIRED_PASSWORD_HASH
+              h = hashlib.sha256((pwd + SALT).encode()).hexdigest()
+              return h == REQUIRED_HASH
+          CFG
           
-          # دستورات ربات
-          COMMANDS = {{
-              '/start': 'شروع و احراز هویت',
-              '/auth <رمز>': 'احراز هویت با رمز عبور',
-              '/list': 'لیست فایل‌های قابل دسترس',
-              '/download <نام فایل>': 'دانلود فایل',
-              '/search <کلمه>': 'جستجو در فایل‌ها',
-              '/folders': 'نمایش پوشه‌ها',
-              '/status': 'وضعیت احراز هویت',
-              '/help': 'راهنما'
-          }}
-          ''')
-          
-          # ذخیره هش و salt برای استفاده در Secrets
-          with open('password_hash.txt', 'w') as f:
-              f.write(password_hash)
-          with open('password_salt.txt', 'w') as f:
-              f.write(salt)
-          
-          print(f"✅ Password hash created: {password_hash[:20]}...")
-          EOF
-      
-      - name: Create bot.py (Core with authentication)
-        run: |
-          cat > bale-bot/bot.py << 'EOF'
-          import telebot
-          import time
-          import os
-          import sys
-          import json
-          import glob
+          # فایل اصلی bot.py
+          cat > bale-bot/bot.py << 'BOT'
+          import telebot, os, glob, json, hashlib
           from telebot import api
-          from datetime import datetime
-          
-          # تنظیم endpoint مخصوص بله
           api.TELEGRAM_API_URL = 'https://tapi.bale.ai/bot{0}/{1}'
           
-          # اضافه کردن مسیر جاری به sys.path
-          sys.path.append(os.path.dirname(os.path.abspath(__file__)))
-          
-          from config import (
-              BOT_TOKEN, verify_password, ALLOWED_DIRS, ALLOWED_EXTENSIONS,
-              MAX_FILE_SIZE_MB, COMMANDS
-          )
-          
-          if not BOT_TOKEN:
-              print("❌ خطا: توکن ربات تنظیم نشده است!")
-              sys.exit(1)
+          from config import BOT_TOKEN, verify_password, ALLOWED_DIRS, FILES_DIR
           
           bot = telebot.TeleBot(BOT_TOKEN)
+          AUTH_FILE = os.path.join(os.path.dirname(__file__), 'auth.json')
           
-          # فایل ذخیره کاربران مجاز
-          AUTH_FILE = os.path.join(os.path.dirname(__file__), 'data', 'authorized_users.json')
-          
-          def load_authorized_users():
+          def load_auth():
               try:
-                  if os.path.exists(AUTH_FILE):
-                      with open(AUTH_FILE, 'r') as f:
-                          data = json.load(f)
-                          return set(data.get('users', []))
-              except Exception as e:
-                  print(f"خطا در بارگذاری کاربران: {e}")
-              return set()
+                  with open(AUTH_FILE, 'r') as f:
+                      return set(json.load(f).get('users', []))
+              except:
+                  return set()
           
-          def save_authorized_users(users):
-              try:
-                  os.makedirs(os.path.dirname(AUTH_FILE), exist_ok=True)
-                  with open(AUTH_FILE, 'w') as f:
-                      json.dump({'users': list(users), 'updated_at': datetime.now().isoformat()}, f)
-              except Exception as e:
-                  print(f"خطا در ذخیره کاربران: {e}")
+          def save_auth(users):
+              with open(AUTH_FILE, 'w') as f:
+                  json.dump({'users': list(users)}, f)
           
-          authorized_users = load_authorized_users()
-          
-          def is_authorized(user_id):
-              return str(user_id) in authorized_users
+          authorized = load_auth()
           
           def auth_required(func):
-              def wrapper(message):
-                  if is_authorized(message.chat.id):
-                      return func(message)
-                  else:
-                      bot.reply_to(message, "🔒 **دسترسی محدود!** لطفاً ابتدا با `/auth <رمز>` احراز هویت کنید.", parse_mode='Markdown')
-                  return None
+              def wrapper(m):
+                  if str(m.chat.id) in authorized:
+                      return func(m)
+                  bot.reply_to(m, "🔒 لطفاً با /auth <رمز> احراز هویت کنید")
               return wrapper
           
           @bot.message_handler(commands=['start'])
-          def send_welcome(message):
-              welcome_text = f"""
-          🔐 **ربات شخصی مدیریت فایل**
-          
-          سلام {message.from_user.first_name} 👋
-          
-          **برای دسترسی، ابتدا احراز هویت کنید:**
-          `/auth <رمز عبور>`
-          
-          **پس از احراز هویت، دستورات زیر در دسترس هستند:**
-          {chr(10).join([f'• `{cmd}` - {desc}' for cmd, desc in COMMANDS.items() if cmd != '/auth'])}
-          
-          📁 **پوشه‌های قابل دسترس:**
-          • downloads/ - فایل‌های دانلودی
-          • telegram/ - فایل‌های تلگرام
-          • google-play/ - فایل‌های گوگل پلی
-          
-          ⚠️ **توجه:** این ربات فقط به پوشه bale-bot/files/ دسترسی دارد.
-          """
-              bot.reply_to(message, welcome_text, parse_mode='Markdown')
+          def start(m):
+              bot.reply_to(m, "🔐 ربات شخصی\nبرای دسترسی: /auth <رمز عبور>")
           
           @bot.message_handler(commands=['auth'])
-          def authenticate(message):
-              parts = message.text.split()
+          def auth(m):
+              parts = m.text.split()
               if len(parts) != 2:
-                  bot.reply_to(message, "❌ **فرمت صحیح:** `/auth <رمز عبور>`", parse_mode='Markdown')
-                  return
-              
-              password = parts[1]
-              if verify_password(password):
-                  user_id = str(message.chat.id)
-                  authorized_users.add(user_id)
-                  save_authorized_users(authorized_users)
-                  bot.reply_to(message, "✅ **احراز هویت موفق!** اکنون به تمام دستورات دسترسی دارید.", parse_mode='Markdown')
+                  return bot.reply_to(m, "فرمت: /auth رمز")
+              if verify_password(parts[1]):
+                  authorized.add(str(m.chat.id))
+                  save_auth(authorized)
+                  bot.reply_to(m, "✅ احراز هویت شد")
               else:
-                  bot.reply_to(message, "❌ **رمز عبور اشتباه است!** دسترسی denied.", parse_mode='Markdown')
-          
-          @bot.message_handler(commands=['status'])
-          @auth_required
-          def check_status(message):
-              status_text = f"""
-          🔐 **وضعیت احراز هویت**
-          
-          • وضعیت: {'✅ مجاز' if is_authorized(message.chat.id) else '❌ غیرمجاز'}
-          • شناسه کاربری: `{message.chat.id}`
-          • تاریخ: {datetime.now().strftime('%Y-%m-%d %H:%M:%S')}
-          
-          📁 **دسترسی به پوشه‌ها:**
-          {chr(10).join([f'• {name}: {"✅" if os.path.exists(path) else "❌"}' for name, path in ALLOWED_DIRS.items()])}
-          """
-              bot.reply_to(message, status_text, parse_mode='Markdown')
-          
-          @bot.message_handler(commands=['folders'])
-          @auth_required
-          def list_folders(message):
-              response = "**📂 پوشه‌های قابل دسترس:**\n\n"
-              for name, path in ALLOWED_DIRS.items():
-                  if os.path.exists(path):
-                      file_count = 0
-                      for ext in ALLOWED_EXTENSIONS:
-                          file_count += len(glob.glob(os.path.join(path, f'*{ext}')))
-                      response += f"✅ **{name}/** - {file_count} فایل\n"
-                      response += f"   مسیر: `{path}`\n\n"
-                  else:
-                      response += f"⚠️ **{name}/** - پوشه وجود ندارد (به زودی ایجاد می‌شود)\n\n"
-              
-              response += "\n💡 **نحوه اضافه کردن فایل:**\n"
-              response += "فایل‌ها را در پوشه‌های مربوطه در مخزن قرار دهید."
-              
-              bot.reply_to(message, response, parse_mode='Markdown')
+                  bot.reply_to(m, "❌ رمز اشتباه")
           
           @bot.message_handler(commands=['list'])
           @auth_required
-          def list_files(message):
-              all_files = []
+          def list_files(m):
+              files = []
               for name, path in ALLOWED_DIRS.items():
                   if os.path.exists(path):
-                      for ext in ALLOWED_EXTENSIONS:
-                          for file_path in glob.glob(os.path.join(path, f'*{ext}')):
-                              file_name = os.path.basename(file_path)
-                              size = os.path.getsize(file_path)
-                              all_files.append({
-                                  'name': file_name,
-                                  'folder': name,
-                                  'path': file_path,
-                                  'size': size,
-                                  'size_mb': size / (1024 * 1024)
-                              })
-              
-              if not all_files:
-                  bot.reply_to(message, "📂 **هیچ فایلی یافت نشد.**\n\nبرای افزودن فایل، آن را در پوشه‌های مشخص شده در مخزن قرار دهید.", parse_mode='Markdown')
-                  return
-              
-              # گروه‌بندی بر اساس پوشه
-              response = "**📁 لیست فایل‌های قابل دسترس:**\n\n"
-              for folder in ALLOWED_DIRS.keys():
-                  folder_files = [f for f in all_files if f['folder'] == folder]
-                  if folder_files:
-                      response += f"**📂 {folder}/**\n"
-                      for f in folder_files[:15]:
-                          size_str = f"{f['size_mb']:.2f} MB" if f['size_mb'] >= 1 else f"{f['size']/1024:.1f} KB"
-                          response += f"• `{f['name']}` ({size_str})\n"
-                      if len(folder_files) > 15:
-                          response += f"• ... و {len(folder_files) - 15} فایل دیگر\n"
-                      response += "\n"
-              
-              response += "💡 **برای دانلود:** `/download <نام فایل>`"
-              bot.reply_to(message, response, parse_mode='Markdown')
-          
-          @bot.message_handler(commands=['search'])
-          @auth_required
-          def search_files(message):
-              query = ' '.join(message.text.split()[1:])
-              if not query:
-                  bot.reply_to(message, "❌ **عبارت جستجو را وارد کنید:**\n`/search <کلمه>`", parse_mode='Markdown')
-                  return
-              
-              results = []
-              for name, path in ALLOWED_DIRS.items():
-                  if os.path.exists(path):
-                      for ext in ALLOWED_EXTENSIONS:
-                          for file_path in glob.glob(os.path.join(path, f'*{ext}')):
-                              file_name = os.path.basename(file_path)
-                              if query.lower() in file_name.lower():
-                                  size = os.path.getsize(file_path)
-                                  results.append({
-                                      'name': file_name,
-                                      'folder': name,
-                                      'path': file_path,
-                                      'size_mb': size / (1024 * 1024)
-                                  })
-              
-              if not results:
-                  bot.reply_to(message, f"🔍 **نتیجه‌ای برای '{query}' یافت نشد.**", parse_mode='Markdown')
-                  return
-              
-              response = f"**🔍 نتایج جستجو برای '{query}':**\n\n"
-              for r in results[:20]:
-                  size_str = f"{r['size_mb']:.2f} MB" if r['size_mb'] >= 1 else f"{r['size']/1024:.1f} KB"
-                  response += f"• `{r['name']}` [{r['folder']}] ({size_str})\n"
-              
-              if len(results) > 20:
-                  response += f"\n... و {len(results) - 20} نتیجه دیگر"
-              
-              response += "\n\n💡 برای دانلود: `/download <نام فایل>`"
-              bot.reply_to(message, response, parse_mode='Markdown')
+                      for f in glob.glob(os.path.join(path, '*')):
+                          if os.path.isfile(f):
+                              files.append(f"📁 {name}: {os.path.basename(f)}")
+              bot.reply_to(m, "\n".join(files) if files else "هیچ فایلی نیست")
           
           @bot.message_handler(commands=['download'])
           @auth_required
-          def download_file(message):
-              filename = ' '.join(message.text.split()[1:])
-              if not filename:
-                  bot.reply_to(message, "❌ **نام فایل را وارد کنید:**\n`/download <نام فایل>`", parse_mode='Markdown')
-                  return
-              
-              # جستجوی فایل
-              found_file = None
-              for name, path in ALLOWED_DIRS.items():
-                  if os.path.exists(path):
-                      for ext in ALLOWED_EXTENSIONS:
-                          for file_path in glob.glob(os.path.join(path, f'*{ext}')):
-                              if os.path.basename(file_path) == filename:
-                                  found_file = file_path
-                                  break
-                      if found_file:
-                          break
-              
-              if not found_file:
-                  bot.reply_to(message, f"❌ **فایل '{filename}' یافت نشد.**\nاز `/list` برای مشاهده فایل‌های موجود استفاده کنید.", parse_mode='Markdown')
-                  return
-              
-              # بررسی حجم فایل
-              file_size = os.path.getsize(found_file)
-              if file_size > MAX_FILE_SIZE_MB * 1024 * 1024:
-                  bot.reply_to(message, f"⚠️ **فایل بزرگتر از {MAX_FILE_SIZE_MB} مگابایت است** و قابل ارسال نیست.", parse_mode='Markdown')
-                  return
-              
-              try:
-                  with open(found_file, 'rb') as f:
-                      bot.send_document(message.chat.id, f, caption=f"📄 **{filename}**\n📏 حجم: {file_size/(1024*1024):.2f} MB")
-              except Exception as e:
-                  bot.reply_to(message, f"❌ **خطا در ارسال فایل:** `{str(e)}`", parse_mode='Markdown')
-          
-          @bot.message_handler(commands=['help'])
-          @auth_required
-          def send_help(message):
-              help_text = """
-          📚 **راهنمای کامل ربات**
-          
-          **🔐 احراز هویت:**
-          `/auth <رمز>` - اولین بار برای فعالسازی ربات
-          
-          **📁 مدیریت فایل:**
-          `/list` - نمایش همه فایل‌ها
-          `/search <کلمه>` - جستجو در فایل‌ها
-          `/download <نام>` - دانلود فایل
-          `/folders` - نمایش پوشه‌ها
-          
-          **ℹ️ اطلاعات:**
-          `/status` - وضعیت احراز هویت
-          `/help` - همین راهنما
-          
-          **📂 نحوه افزودن فایل:**
-          1. فایل را در پوشه مناسب در مخزن قرار دهید
-          2. پوشه‌ها در: `bale-bot/files/`
-          3. صبر کنید تا ربات اجرا شود (حداکثر 2 دقیقه)
-          
-          **⚠️ محدودیت‌ها:**
-          • حداکثر حجم: 20 مگابایت
-          • فرمت‌های مجاز: txt, pdf, jpg, png, zip, md, json, html, apk
-          • ربات شخصی است و فقط شما دسترسی دارید
-          """
-              bot.reply_to(message, help_text, parse_mode='Markdown')
-          
-          @bot.message_handler(func=lambda message: True)
-          def unknown_command(message):
-              if is_authorized(message.chat.id):
-                  bot.reply_to(message, "❓ **دستور نامعتبر است.**\nبرای مشاهده راهنما از `/help` استفاده کنید.", parse_mode='Markdown')
-              else:
-                  bot.reply_to(message, "🔒 **دسترسی محدود!** لطفاً ابتدا با `/auth` احراز هویت کنید.", parse_mode='Markdown')
-          
-          def run_polling():
-              """اجرای ربات با روش Long Polling"""
-              print("✅ ربات با موفقیت شروع به کار کرد!")
-              print(f"📁 پوشه ریشه: {FILES_DIR}")
-              print(f"🔐 تعداد کاربران مجاز: {len(authorized_users)}")
-              
-              # ایجاد پوشه‌ها اگر وجود ندارند
+          def download(m):
+              name = ' '.join(m.text.split()[1:])
+              if not name:
+                  return bot.reply_to(m, "نام فایل را وارد کنید")
               for path in ALLOWED_DIRS.values():
-                  os.makedirs(path, exist_ok=True)
-              
-              try:
-                  bot.infinity_polling(timeout=30, long_polling_timeout=30)
-              except KeyboardInterrupt:
-                  print("🛑 ربات متوقف شد")
-              except Exception as e:
-                  print(f"❌ خطا: {e}")
-                  time.sleep(5)
+                  for f in glob.glob(os.path.join(path, '*')):
+                      if os.path.basename(f) == name:
+                          with open(f, 'rb') as file:
+                              bot.send_document(m.chat.id, file)
+                          return
+              bot.reply_to(m, "فایل یافت نشد")
           
-          if __name__ == '__main__':
-              run_polling()
-          EOF
+          @bot.message_handler(commands=['folders'])
+          @auth_required
+          def folders(m):
+              text = "پوشه‌ها:\n" + "\n".join([f"• {n}: {p}" for n,p in ALLOWED_DIRS.items()])
+              bot.reply_to(m, text)
+          
+          print("ربات شروع به کار کرد")
+          bot.infinity_polling()
+          BOT
+          
+          # فایل نمونه
+          echo "فایل تست" > bale-bot/files/downloads/test.txt
+          
+          # فایل README
+          cat > bale-bot/README.md << 'RD'
+          # ربات بله شخصی
+          دستورات: /auth رمز - /list - /download نام فایل - /folders
+          RD
+          
+          echo "✅ ساختار ایجاد شد"
       
-      - name: Create utility file manager
+      - name: Commit and push
         run: |
-          cat > bale-bot/utils/file_manager.py << 'EOF'
-          import os
-          import shutil
-          import glob
-          from datetime import datetime
-          
-          class FileManager:
-              def __init__(self, bot_root):
-                  self.bot_root = bot_root
-                  self.files_dir = os.path.join(bot_root, 'files')
-              
-              def copy_file_to_bot(self, source_path, target_folder):
-                  """کپی فایل از جای دیگر به پوشه ربات"""
-                  if not os.path.exists(source_path):
-                      return False, "فایل مبدأ وجود ندارد"
-                  
-                  target_dir = os.path.join(self.files_dir, target_folder)
-                  os.makedirs(target_dir, exist_ok=True)
-                  
-                  filename = os.path.basename(source_path)
-                  target_path = os.path.join(target_dir, filename)
-                  
-                  try:
-                      shutil.copy2(source_path, target_path)
-                      return True, target_path
-                  except Exception as e:
-                      return False, str(e)
-              
-              def get_files_summary(self):
-                  """گزارش خلاصه از فایل‌ها"""
-                  summary = {}
-                  for folder in ['downloads', 'telegram', 'google-play']:
-                      folder_path = os.path.join(self.files_dir, folder)
-                      if os.path.exists(folder_path):
-                          files = []
-                          for ext in ['.txt', '.pdf', '.jpg', '.png', '.zip', '.md', '.json', '.html', '.apk']:
-                              files.extend(glob.glob(os.path.join(folder_path, f'*{ext}')))
-                          summary[folder] = {
-                              'count': len(files),
-                              'size_mb': sum(os.path.getsize(f) for f in files) / (1024 * 1024)
-                          }
-                      else:
-                          summary[folder] = {'count': 0, 'size_mb': 0}
-                  return summary
-          EOF
+          git config user.name "Bot Creator"
+          git config user.email "bot@github.com"
+          git add bale-bot/ secrets.txt
+          git commit -m "➕ افزودن ربات بله" || echo "تغییری نیست"
+          git push
       
-      - name: Create sample files
-        run: |
-          echo "این یک فایل نمونه است" > bale-bot/files/downloads/sample.txt
-          echo "# نمونه فایل README" > bale-bot/files/telegram/README.md
-          echo '{"version": "1.0"}' > bale-bot/files/google-play/config.json
-          touch bale-bot/logs/.gitkeep
-          touch bale-bot/data/.gitkeep
-      
-      - name: Create GitHub Actions workflow for scheduler
-        run: |
-          mkdir -p .github/workflows
-          cat > .github/workflows/bale-bot-scheduler.yml << 'EOF'
-          name: Bale Bot Scheduler
-          
-          on:
-            schedule:
-              - cron: '*/2 * * * *'
-            workflow_dispatch:
-          
-          jobs:
-            run-bot:
-              runs-on: ubuntu-latest
-              steps:
-                - name: Checkout repository
-                  uses: actions/checkout@v4
-                
-                - name: Setup Python
-                  uses: actions/setup-python@v5
-                  with:
-                    python-version: '3.9'
-                
-                - name: Install dependencies
-                  working-directory: ./bale-bot
-                  run: |
-                    pip install -r requirements.txt
-                
-                - name: Run Bale Bot
-                  working-directory: ./bale-bot
-                  env:
-                    BALE_TOKEN: ${{ secrets.BALE_BOT_TOKEN }}
-                    BOT_PASSWORD_HASH: ${{ secrets.BOT_PASSWORD_HASH }}
-                    PASSWORD_SALT: ${{ secrets.PASSWORD_SALT }}
-                  run: |
-                    timeout 115s python bot.py || true
-          EOF
-      
-      - name: Create .gitignore entries
-        run: |
-          if ! grep -q "bale-bot/data/authorized_users.json" .gitignore 2>/dev/null; then
-            echo "" >> .gitignore
-            echo "# Bale bot" >> .gitignore
-            echo "bale-bot/data/authorized_users.json" >> .gitignore
-            echo "bale-bot/logs/*.log" >> .gitignore
-            echo "bale-bot/__pycache__/" >> .gitignore
-            echo "bale-bot/*.pyc" >> .gitignore
-            echo "password_hash.txt" >> .gitignore
-            echo "password_salt.txt" >> .gitignore
-          fi
-      
-      - name: Save password hash to environment
-        run: |
-          HASH=$(cat password_hash.txt)
-          SALT=$(cat password_salt.txt)
-          echo "BOT_PASSWORD_HASH=$HASH" >> $GITHUB_ENV
-          echo "PASSWORD_SALT=$SALT" >> $GITHUB_ENV
-      
-      - name: Create README for bot
-        run: |
-          cat > bale-bot/README.md << 'EOF'
-          # 🔐 ربات شخصی بله
-          
-          رباتی امن برای دسترسی شخصی به فایل‌های داخل مخزن گیت‌هاب.
-          
-          ## ویژگی‌های امنیتی
-          
-          - ✅ **احراز هویت با رمز عبور** - فقط شما دسترسی دارید
-          - ✅ **دسترسی محدود به پوشه ربات** - به کل مخزن دسترسی ندارد
-          - ✅ **رمز عبور هش شده** - در Secrets ذخیره می‌شود
-          
-          ## نصب و راه‌اندازی
-          
-          1. اجرای ورکفلو Setup Complete Bale Bot
-          2. وارد کردن توکن و رمز عبور
-          3. تنظیم Secrets (اتوماتیک انجام می‌شود)
-          
-          ## استفاده
-          
-          1. در بله ربات را استارت کنید
-          2. دستور `/auth <رمز عبور>` را بزنید
-          3. از دستورات استفاده کنید
-          
-          ## افزودن فایل به ربات
-          
-          فایل‌ها را در پوشه‌های زیر قرار دهید:
-          - `bale-bot/files/downloads/`
-          - `bale-bot/files/telegram/`
-          - `bale-bot/files/google-play/`
-          EOF
-      
-      - name: Commit and push all changes
-        run: |
-          git add .
-          git status
-          git commit -m "🔐 افزودن ربات شخصی بله با احراز هویت و دسترسی محدود" || echo "تغییری برای commit وجود ندارد"
-          git push origin HEAD:main --force
-      
-      - name: Create setup info artifact
-        run: |
-          cat > SETUP_INFO.txt << 'EOF'
-          ═══════════════════════════════════════════════════════════════
-          ✅ ربات شخصی بله با موفقیت ایجاد شد!
-          ═══════════════════════════════════════════════════════════════
-          
-          🔐 **ویژگی‌های امنیتی:**
-          • فقط شما با رمز عبور شخصی دسترسی دارید
-          • ربات فقط به پوشه bale-bot/files/ دسترسی دارد
-          • رمز عبور به صورت هش شده در Secrets ذخیره می‌شود
-          
-          ═══════════════════════════════════════════════════════════════
-          📝 **مراحل بعدی (اجباری):**
-          ═══════════════════════════════════════════════════════════════
-          
-          1. **دانلود فایل secrets.txt از Artifacts این اجرا**
-          
-          2. **تنظیم Secrets در مخزن:**
-             
-             به مسیر زیر بروید:
-             Settings → Secrets and variables → Actions
-             
-             این سه Secret را اضافه کنید:
-             
-             🔑 BALE_BOT_TOKEN = توکنی که در ورودی وارد کردید
-             🔒 BOT_PASSWORD_HASH = مقدار داخل secrets.txt (خط اول)
-             🧂 PASSWORD_SALT = مقدار داخل secrets.txt (خط دوم)
-          
-          3. **تست ربات:**
-             - به برگه Actions بروید
-             - workflow "Bale Bot Scheduler" را手动 اجرا کنید
-             - در بله ربات را استارت کنید
-             - دستور /auth <رمز عبور> را بزنید
-          
-          ═══════════════════════════════════════════════════════════════
-          🎯 **دستورات ربات پس از احراز هویت:**
-          ═══════════════════════════════════════════════════════════════
-          
-          /list      - نمایش همه فایل‌ها
-          /search    - جستجو در فایل‌ها
-          /download  - دانلود فایل
-          /folders   - نمایش پوشه‌ها
-          /status    - وضعیت احراز هویت
-          /help      - راهنما
-          
-          ═══════════════════════════════════════════════════════════════
-          EOF
-          
-          echo "BOT_PASSWORD_HASH=${{ env.BOT_PASSWORD_HASH }}" > secrets.txt
-          echo "PASSWORD_SALT=${{ env.PASSWORD_SALT }}" >> secrets.txt
-      
-      - name: Upload artifacts
+      - name: Upload secrets
         uses: actions/upload-artifact@v4
         with:
-          name: bale-bot-setup-info
-          path: |
-            password_hash.txt
-            password_salt.txt
-            secrets.txt
-            SETUP_INFO.txt
+          name: bot-secrets
+          path: secrets.txt
