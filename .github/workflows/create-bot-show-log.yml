@@ -1,4 +1,4 @@
-name: Auto Setup Bot with Secrets
+name: Generate Secrets File
 
 on:
   workflow_dispatch:
@@ -13,39 +13,54 @@ on:
         type: string
 
 jobs:
-  setup:
+  generate:
     runs-on: ubuntu-latest
     permissions:
       contents: write
-      secrets: write  # اجازه نوشتن Secrets
     
     steps:
       - uses: actions/checkout@v4
       
-      - name: Create bot files
+      - name: Generate password hash
         env:
-          TOKEN: ${{ github.event.inputs.bot_token }}
           PASSWORD: ${{ github.event.inputs.bot_password }}
+          TOKEN: ${{ github.event.inputs.bot_token }}
         run: |
-          # ساختار پوشه‌ها
-          mkdir -p bale-bot/files/{downloads,telegram,google-play}
-          
-          # محاسبه هش رمز
           SALT=$(openssl rand -hex 32)
           HASH=$(echo -n "$PASSWORD$SALT" | openssl dgst -sha256 -hex | cut -d' ' -f2)
           
-          # ذخیره رمزها در GitHub Secrets با استفاده از API
-          echo "HASH=$HASH" >> $GITHUB_ENV
-          echo "SALT=$SALT" >> $GITHUB_ENV
-          echo "TOKEN=$TOKEN" >> $GITHUB_ENV
+          # ایجاد فایل با مقادیر
+          cat > SECRETS_NEEDED.txt << EOF
+          ===========================================
+          این مقادیر را در Settings -> Secrets اضافه کنید
+          ===========================================
           
-          # فایل requirements
+          1. BALE_BOT_TOKEN = $TOKEN
+          
+          2. BOT_PASSWORD_HASH = $HASH
+          
+          3. PASSWORD_SALT = $SALT
+          
+          ===========================================
+          
+          رمز عبور شما: $PASSWORD
+          
+          برای تنظیم Secrets:
+          1. به Settings -> Secrets and variables -> Actions بروید
+          2. سه تا New repository secret بزنید
+          3. دقیقا همین نام‌ها و مقادیر را وارد کنید
+          EOF
+          
+          cat SECRETS_NEEDED.txt
+          
+          # ایجاد پوشه ربات
+          mkdir -p bale-bot/files/{downloads,telegram,google-play}
+          
           cat > bale-bot/requirements.txt << 'REQ'
           pyTelegramBotAPI
           requests
           REQ
           
-          # فایل config.py
           cat > bale-bot/config.py << CFG
           import os, hashlib
           BOT_TOKEN = os.environ.get('BALE_TOKEN')
@@ -53,17 +68,12 @@ jobs:
           SALT = os.environ.get('PASSWORD_SALT')
           BOT_ROOT = os.path.dirname(os.path.abspath(__file__))
           FILES_DIR = os.path.join(BOT_ROOT, 'files')
-          ALLOWED_DIRS = {
-              'downloads': os.path.join(FILES_DIR, 'downloads'),
-              'telegram': os.path.join(FILES_DIR, 'telegram'),
-              'google-play': os.path.join(FILES_DIR, 'google-play'),
-          }
+          ALLOWED_DIRS = {'downloads': os.path.join(FILES_DIR, 'downloads'),'telegram': os.path.join(FILES_DIR, 'telegram'),'google-play': os.path.join(FILES_DIR, 'google-play')}
           def verify_password(pwd):
               if not REQUIRED_HASH or not SALT: return False
               return hashlib.sha256((pwd + SALT).encode()).hexdigest() == REQUIRED_HASH
           CFG
           
-          # فایل اصلی bot.py
           cat > bale-bot/bot.py << 'BOT'
           import telebot, os, glob, json
           from telebot import api
@@ -124,9 +134,8 @@ jobs:
           BOT
           
           echo "فایل تست" > bale-bot/files/downloads/test.txt
-          echo "✅ ساختار ایجاد شد"
       
-      - name: Set up scheduler workflow
+      - name: Create scheduler
         run: |
           mkdir -p .github/workflows
           cat > .github/workflows/bale-scheduler.yml << 'SCH'
@@ -156,22 +165,10 @@ jobs:
                   run: timeout 115s python bot.py || true
           SCH
       
-      - name: Commit files
+      - name: Commit
         run: |
           git config user.name "Bot Creator"
           git config user.email "bot@github.com"
-          git add bale-bot/ .github/workflows/bale-scheduler.yml
-          git commit -m "➕ افزودن ربات بله" || echo "تغییری نیست"
+          git add bale-bot/ .github/workflows/bale-scheduler.yml SECRETS_NEEDED.txt
+          git commit -m "➕ افزودن ربات بله + فایل راهنما" || echo "تغییری نیست"
           git push
-      
-      - name: Create Secrets via GitHub API
-        env:
-          GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
-        run: |
-          # ایجاد Secret برای توکن
-          echo "${{ env.TOKEN }}" | gh secret set BALE_BOT_TOKEN --repo "${{ github.repository }}"
-          # ایجاد Secret برای هش رمز
-          echo "${{ env.HASH }}" | gh secret set BOT_PASSWORD_HASH --repo "${{ github.repository }}"
-          # ایجاد Secret برای Salt
-          echo "${{ env.SALT }}" | gh secret set PASSWORD_SALT --repo "${{ github.repository }}"
-          echo "✅ همه Secrets با موفقیت تنظیم شدند!"
