@@ -11,7 +11,6 @@ on:
         description: 'رمز عبور شخصی ربات (فقط شما بدانید)'
         required: true
         type: string
-        placeholder: 'یک رمز قوی انتخاب کنید'
 
 jobs:
   create-secure-bot:
@@ -39,7 +38,7 @@ jobs:
           mkdir -p bale-bot/files/{downloads,telegram,google-play,temp}
           
           echo "✅ ساختار پوشه‌ها ایجاد شد"
-          tree bale-bot/ -L 2 || ls -la bale-bot/
+          ls -la bale-bot/
       
       - name: Create requirements.txt
         run: |
@@ -54,7 +53,6 @@ jobs:
       
       - name: Create config.py with password hashing
         run: |
-          # هش کردن رمز عبور با استفاده از python
           python3 << EOF
           import hashlib
           import os
@@ -91,12 +89,6 @@ jobs:
           # محدودیت حجم فایل (20 مگابایت)
           MAX_FILE_SIZE_MB = 20
           
-          # وضعیت کاربران مجاز (کسانی که رمز را وارد کرده‌اند)
-          AUTHORIZED_USERS = set()
-          
-          # فایل ذخیره وضعیت
-          STATE_FILE = os.path.join(os.path.dirname(BOT_ROOT), 'data', 'authorized_users.json')
-          
           def verify_password(input_password: str) -> bool:
               """تأیید رمز عبور"""
               if not REQUIRED_PASSWORD_HASH or not PASSWORD_SALT:
@@ -126,7 +118,7 @@ jobs:
           print(f"✅ Password hash created: {password_hash[:20]}...")
           EOF
       
-      - name: Create bot.py (Core with authentication)
+      - name: Create bot.py
         run: |
           cat > bale-bot/bot.py << 'EOF'
           import telebot
@@ -146,7 +138,7 @@ jobs:
           
           from config import (
               BOT_TOKEN, verify_password, ALLOWED_DIRS, ALLOWED_EXTENSIONS,
-              MAX_FILE_SIZE_MB, AUTHORIZED_USERS, COMMANDS, FILES_DIR
+              MAX_FILE_SIZE_MB, COMMANDS
           )
           
           if not BOT_TOKEN:
@@ -159,7 +151,6 @@ jobs:
           AUTH_FILE = os.path.join(os.path.dirname(__file__), 'data', 'authorized_users.json')
           
           def load_authorized_users():
-              """بارگذاری کاربران مجاز از فایل"""
               try:
                   if os.path.exists(AUTH_FILE):
                       with open(AUTH_FILE, 'r') as f:
@@ -170,7 +161,6 @@ jobs:
               return set()
           
           def save_authorized_users(users):
-              """ذخیره کاربران مجاز در فایل"""
               try:
                   os.makedirs(os.path.dirname(AUTH_FILE), exist_ok=True)
                   with open(AUTH_FILE, 'w') as f:
@@ -178,20 +168,17 @@ jobs:
               except Exception as e:
                   print(f"خطا در ذخیره کاربران: {e}")
           
-          # بارگذاری کاربران مجاز
           authorized_users = load_authorized_users()
           
           def is_authorized(user_id):
-              """بررسی مجوز کاربر"""
               return str(user_id) in authorized_users
           
           def auth_required(func):
-              """دکوراتور برای الزام احراز هویت"""
               def wrapper(message):
                   if is_authorized(message.chat.id):
                       return func(message)
                   else:
-                      bot.reply_to(message, "🔒 **دسترسی محدود!**\n\nلطفاً ابتدا احراز هویت کنید.\n\nاز دستور `/auth <رمز عبور>` استفاده کنید.", parse_mode='Markdown')
+                      bot.reply_to(message, "🔒 **دسترسی محدود!** لطفاً ابتدا با `/auth <رمز>` احراز هویت کنید.", parse_mode='Markdown')
                   return None
               return wrapper
           
@@ -201,8 +188,6 @@ jobs:
           🔐 **ربات شخصی مدیریت فایل**
           
           سلام {message.from_user.first_name} 👋
-          
-          این ربات **فقط برای استفاده شخصی** طراحی شده است.
           
           **برای دسترسی، ابتدا احراز هویت کنید:**
           `/auth <رمز عبور>`
@@ -214,14 +199,11 @@ jobs:
           • downloads/ - فایل‌های دانلودی
           • telegram/ - فایل‌های تلگرام
           • google-play/ - فایل‌های گوگل پلی
-          
-          ⚠️ **توجه:** این ربات شخصی است و فقط شما به آن دسترسی دارید.
           """
               bot.reply_to(message, welcome_text, parse_mode='Markdown')
           
           @bot.message_handler(commands=['auth'])
           def authenticate(message):
-              """احراز هویت با رمز عبور"""
               parts = message.text.split()
               if len(parts) != 2:
                   bot.reply_to(message, "❌ **فرمت صحیح:** `/auth <رمز عبور>`", parse_mode='Markdown')
@@ -232,50 +214,39 @@ jobs:
                   user_id = str(message.chat.id)
                   authorized_users.add(user_id)
                   save_authorized_users(authorized_users)
-                  bot.reply_to(message, "✅ **احراز هویت موفق!**\n\nاکنون به تمام دستورات ربات دسترسی دارید.", parse_mode='Markdown')
+                  bot.reply_to(message, "✅ **احراز هویت موفق!** اکنون به تمام دستورات دسترسی دارید.", parse_mode='Markdown')
               else:
-                  bot.reply_to(message, "❌ **رمز عبور اشتباه است!**\n\nدسترسی denied.", parse_mode='Markdown')
+                  bot.reply_to(message, "❌ **رمز عبور اشتباه است!** دسترسی denied.", parse_mode='Markdown')
           
           @bot.message_handler(commands=['status'])
           @auth_required
           def check_status(message):
-              """بررسی وضعیت احراز هویت"""
               status_text = f"""
           🔐 **وضعیت احراز هویت**
           
           • وضعیت: {'✅ مجاز' if is_authorized(message.chat.id) else '❌ غیرمجاز'}
           • شناسه کاربری: `{message.chat.id}`
           • تاریخ: {datetime.now().strftime('%Y-%m-%d %H:%M:%S')}
-          
-          📁 **دسترسی به پوشه‌ها:**
-          {chr(10).join([f'• {name}: {"✅" if os.path.exists(path) else "❌"}' for name, path in ALLOWED_DIRS.items()])}
           """
               bot.reply_to(message, status_text, parse_mode='Markdown')
           
           @bot.message_handler(commands=['folders'])
           @auth_required
           def list_folders(message):
-              """نمایش پوشه‌های قابل دسترس"""
               response = "**📂 پوشه‌های قابل دسترس:**\n\n"
               for name, path in ALLOWED_DIRS.items():
                   if os.path.exists(path):
                       file_count = 0
                       for ext in ALLOWED_EXTENSIONS:
                           file_count += len(glob.glob(os.path.join(path, f'*{ext}')))
-                      response += f"✅ **{name}/** - {file_count} فایل\n"
-                      response += f"   مسیر: `{path}`\n\n"
+                      response += f"✅ **{name}/** - {file_count} فایل\n\n"
                   else:
-                      response += f"⚠️ **{name}/** - پوشه وجود ندارد (به زودی ایجاد می‌شود)\n\n"
-              
-              response += "\n💡 **نحوه اضافه کردن فایل:**\n"
-              response += "فایل‌ها را در پوشه‌های مربوطه در مخزن قرار دهید."
-              
+                      response += f"⚠️ **{name}/** - پوشه وجود ندارد\n\n"
               bot.reply_to(message, response, parse_mode='Markdown')
           
           @bot.message_handler(commands=['list'])
           @auth_required
           def list_files(message):
-              """لیست تمام فایل‌های قابل دسترس"""
               all_files = []
               for name, path in ALLOWED_DIRS.items():
                   if os.path.exists(path):
@@ -283,41 +254,31 @@ jobs:
                           for file_path in glob.glob(os.path.join(path, f'*{ext}')):
                               file_name = os.path.basename(file_path)
                               size = os.path.getsize(file_path)
-                              all_files.append({
-                                  'name': file_name,
-                                  'folder': name,
-                                  'path': file_path,
-                                  'size': size,
-                                  'size_mb': size / (1024 * 1024)
-                              })
+                              all_files.append({'name': file_name, 'folder': name, 'size': size, 'size_mb': size/(1024*1024)})
               
               if not all_files:
-                  bot.reply_to(message, "📂 **هیچ فایلی یافت نشد.**\n\nبرای افزودن فایل، آن را در پوشه‌های مشخص شده در مخزن قرار دهید.", parse_mode='Markdown')
+                  bot.reply_to(message, "📂 **هیچ فایلی یافت نشد.**", parse_mode='Markdown')
                   return
               
-              # گروه‌بندی بر اساس پوشه
-              response = "**📁 لیست فایل‌های قابل دسترس:**\n\n"
+              response = "**📁 لیست فایل‌ها:**\n\n"
               for folder in ALLOWED_DIRS.keys():
                   folder_files = [f for f in all_files if f['folder'] == folder]
                   if folder_files:
                       response += f"**📂 {folder}/**\n"
-                      for f in folder_files[:15]:
+                      for f in folder_files[:10]:
                           size_str = f"{f['size_mb']:.2f} MB" if f['size_mb'] >= 1 else f"{f['size']/1024:.1f} KB"
                           response += f"• `{f['name']}` ({size_str})\n"
-                      if len(folder_files) > 15:
-                          response += f"• ... و {len(folder_files) - 15} فایل دیگر\n"
                       response += "\n"
               
-              response += "💡 **برای دانلود:** `/download <نام فایل>`"
+              response += "💡 `/download <نام فایل>`"
               bot.reply_to(message, response, parse_mode='Markdown')
           
           @bot.message_handler(commands=['search'])
           @auth_required
           def search_files(message):
-              """جستجو در فایل‌ها"""
               query = ' '.join(message.text.split()[1:])
               if not query:
-                  bot.reply_to(message, "❌ **عبارت جستجو را وارد کنید:**\n`/search <کلمه>`", parse_mode='Markdown')
+                  bot.reply_to(message, "❌ `/search <کلمه>`", parse_mode='Markdown')
                   return
               
               results = []
@@ -328,12 +289,7 @@ jobs:
                               file_name = os.path.basename(file_path)
                               if query.lower() in file_name.lower():
                                   size = os.path.getsize(file_path)
-                                  results.append({
-                                      'name': file_name,
-                                      'folder': name,
-                                      'path': file_path,
-                                      'size_mb': size / (1024 * 1024)
-                                  })
+                                  results.append({'name': file_name, 'folder': name, 'size_mb': size/(1024*1024)})
               
               if not results:
                   bot.reply_to(message, f"🔍 **نتیجه‌ای برای '{query}' یافت نشد.**", parse_mode='Markdown')
@@ -341,25 +297,18 @@ jobs:
               
               response = f"**🔍 نتایج جستجو برای '{query}':**\n\n"
               for r in results[:20]:
-                  size_str = f"{r['size_mb']:.2f} MB" if r['size_mb'] >= 1 else f"{r['size']/1024:.1f} KB"
-                  response += f"• `{r['name']}` [{r['folder']}] ({size_str})\n"
-              
-              if len(results) > 20:
-                  response += f"\n... و {len(results) - 20} نتیجه دیگر"
-              
-              response += "\n\n💡 برای دانلود: `/download <نام فایل>`"
+                  response += f"• `{r['name']}` [{r['folder']}]\n"
+              response += "\n💡 `/download <نام فایل>`"
               bot.reply_to(message, response, parse_mode='Markdown')
           
           @bot.message_handler(commands=['download'])
           @auth_required
           def download_file(message):
-              """دانلود فایل درخواستی"""
               filename = ' '.join(message.text.split()[1:])
               if not filename:
-                  bot.reply_to(message, "❌ **نام فایل را وارد کنید:**\n`/download <نام فایل>`", parse_mode='Markdown')
+                  bot.reply_to(message, "❌ `/download <نام فایل>`", parse_mode='Markdown')
                   return
               
-              # جستجوی فایل
               found_file = None
               for name, path in ALLOWED_DIRS.items():
                   if os.path.exists(path):
@@ -372,73 +321,49 @@ jobs:
                           break
               
               if not found_file:
-                  bot.reply_to(message, f"❌ **فایل '{filename}' یافت نشد.**\nاز `/list` برای مشاهده فایل‌های موجود استفاده کنید.", parse_mode='Markdown')
+                  bot.reply_to(message, f"❌ **فایل '{filename}' یافت نشد.**", parse_mode='Markdown')
                   return
               
-              # بررسی حجم فایل
               file_size = os.path.getsize(found_file)
               if file_size > MAX_FILE_SIZE_MB * 1024 * 1024:
-                  bot.reply_to(message, f"⚠️ **فایل بزرگتر از {MAX_FILE_SIZE_MB} مگابایت است** و قابل ارسال نیست.", parse_mode='Markdown')
+                  bot.reply_to(message, f"⚠️ **فایل بزرگتر از {MAX_FILE_SIZE_MB} مگابایت است.**", parse_mode='Markdown')
                   return
               
               try:
                   with open(found_file, 'rb') as f:
-                      bot.send_document(message.chat.id, f, caption=f"📄 **{filename}**\n📏 حجم: {file_size/(1024*1024):.2f} MB")
+                      bot.send_document(message.chat.id, f, caption=f"📄 **{filename}**")
               except Exception as e:
-                  bot.reply_to(message, f"❌ **خطا در ارسال فایل:** `{str(e)}`", parse_mode='Markdown')
+                  bot.reply_to(message, f"❌ **خطا:** `{str(e)}`", parse_mode='Markdown')
           
           @bot.message_handler(commands=['help'])
           @auth_required
           def send_help(message):
               help_text = """
-          📚 **راهنمای کامل ربات**
+          📚 **راهنما**
           
-          **🔐 احراز هویت:**
-          `/auth <رمز>` - اولین بار برای فعالسازی ربات
-          
-          **📁 مدیریت فایل:**
-          `/list` - نمایش همه فایل‌ها
-          `/search <کلمه>` - جستجو در فایل‌ها
-          `/download <نام>` - دانلود فایل
-          `/folders` - نمایش پوشه‌ها
-          
-          **ℹ️ اطلاعات:**
-          `/status` - وضعیت احراز هویت
-          `/help` - همین راهنما
-          
-          **📂 نحوه افزودن فایل:**
-          1. فایل را در پوشه مناسب در مخزن قرار دهید
-          2. پوشه‌ها در: `bale-bot/files/`
-          3. صبر کنید تا ربات اجرا شود (حداکثر 2 دقیقه)
-          
-          **⚠️ محدودیت‌ها:**
-          • حداکثر حجم: 20 مگابایت
-          • فرمت‌های مجاز: txt, pdf, jpg, png, zip, md, json, html, apk
-          • ربات شخصی است و فقط شما دسترسی دارید
+          🔐 `/auth <رمز>` - احراز هویت
+          📁 `/list` - نمایش همه فایل‌ها
+          🔍 `/search <کلمه>` - جستجو
+          📥 `/download <نام>` - دانلود فایل
+          📂 `/folders` - نمایش پوشه‌ها
+          ℹ️ `/status` - وضعیت احراز هویت
           """
               bot.reply_to(message, help_text, parse_mode='Markdown')
           
           @bot.message_handler(func=lambda message: True)
           def unknown_command(message):
               if is_authorized(message.chat.id):
-                  bot.reply_to(message, "❓ **دستور نامعتبر است.**\nبرای مشاهده راهنما از `/help` استفاده کنید.", parse_mode='Markdown')
+                  bot.reply_to(message, "❓ دستور نامعتبر. `/help`", parse_mode='Markdown')
               else:
-                  bot.reply_to(message, "🔒 **دسترسی محدود!** لطفاً ابتدا با `/auth` احراز هویت کنید.", parse_mode='Markdown')
+                  bot.reply_to(message, "🔒 لطفاً با `/auth` احراز هویت کنید.", parse_mode='Markdown')
           
           def run_polling():
-              """اجرای ربات با روش Long Polling"""
-              print("✅ ربات با موفقیت شروع به کار کرد!")
-              print(f"📁 پوشه ریشه: {FILES_DIR}")
-              print(f"🔐 تعداد کاربران مجاز: {len(authorized_users)}")
-              
-              # ایجاد پوشه‌ها اگر وجود ندارند
+              print("✅ ربات شروع به کار کرد!")
               for path in ALLOWED_DIRS.values():
                   os.makedirs(path, exist_ok=True)
               
               try:
                   bot.infinity_polling(timeout=30, long_polling_timeout=30)
-              except KeyboardInterrupt:
-                  print("🛑 ربات متوقف شد")
               except Exception as e:
                   print(f"❌ خطا: {e}")
                   time.sleep(5)
@@ -447,56 +372,17 @@ jobs:
               run_polling()
           EOF
       
-      - name: Create utility scripts
+      - name: Create sample files
         run: |
-          cat > bale-bot/utils/file_manager.py << 'EOF'
-          import os
-          import shutil
-          import glob
-          from datetime import datetime
-          
-          class FileManager:
-              def __init__(self, bot_root):
-                  self.bot_root = bot_root
-                  self.files_dir = os.path.join(bot_root, 'files')
-              
-              def copy_file_to_bot(self, source_path, target_folder):
-                  """کپی فایل از جای دیگر به پوشه ربات"""
-                  if not os.path.exists(source_path):
-                      return False, "فایل مبدأ وجود ندارد"
-                  
-                  target_dir = os.path.join(self.files_dir, target_folder)
-                  os.makedirs(target_dir, exist_ok=True)
-                  
-                  filename = os.path.basename(source_path)
-                  target_path = os.path.join(target_dir, filename)
-                  
-                  try:
-                      shutil.copy2(source_path, target_path)
-                      return True, target_path
-                  except Exception as e:
-                      return False, str(e)
-              
-              def get_files_summary(self):
-                  """گزارش خلاصه از فایل‌ها"""
-                  summary = {}
-                  for folder in ['downloads', 'telegram', 'google-play']:
-                      folder_path = os.path.join(self.files_dir, folder)
-                      if os.path.exists(folder_path):
-                          files = []
-                          for ext in ['.txt', '.pdf', '.jpg', '.png', '.zip', '.md', '.json', '.html', '.apk']:
-                              files.extend(glob.glob(os.path.join(folder_path, f'*{ext}')))
-                          summary[folder] = {
-                              'count': len(files),
-                              'size_mb': sum(os.path.getsize(f) for f in files) / (1024 * 1024)
-                          }
-                      else:
-                          summary[folder] = {'count': 0, 'size_mb': 0}
-                  return summary
-          EOF
+          echo "این یک فایل نمونه است" > bale-bot/files/downloads/sample.txt
+          echo "# نمونه فایل README" > bale-bot/files/telegram/README.md
+          echo '{"version": "1.0"}' > bale-bot/files/google-play/config.json
+          touch bale-bot/logs/.gitkeep
+          touch bale-bot/data/.gitkeep
       
-      - name: Create GitHub Actions workflow
+      - name: Create GitHub Actions workflow for scheduler
         run: |
+          mkdir -p .github/workflows
           cat > .github/workflows/bale-bot-scheduler.yml << 'EOF'
           name: Bale Bot Scheduler
           
@@ -520,7 +406,7 @@ jobs:
                 - name: Install dependencies
                   working-directory: ./bale-bot
                   run: |
-                    pip install -r requirements.txt
+                    pip install pyTelegramBotAPI requests python-dotenv
                 
                 - name: Run Bale Bot
                   working-directory: ./bale-bot
@@ -532,221 +418,53 @@ jobs:
                     timeout 115s python bot.py || true
           EOF
       
-      - name: Create README
+      - name: Create .gitignore entries
         run: |
-          cat > bale-bot/README.md << 'EOF'
-          # 🔐 ربات شخصی بله
-          
-          رباتی امن برای دسترسی شخصی به فایل‌های داخل مخزن گیت‌هاب.
-          
-          ## ویژگی‌های امنیتی
-          
-          - ✅ **احراز هویت با رمز عبور** - فقط شما دسترسی دارید
-          - ✅ **دسترسی محدود به پوشه ربات** - به کل مخزن دسترسی ندارد
-          - ✅ **رمز عبور هش شده** - در Secrets ذخیره می‌شود
-          - ✅ **لاگین با شناسه کاربری** - هر کاربر نیاز به احراز هویت جداگانه دارد
-          
-          ## نصب و راه‌اندازی
-          
-          1. اجرای ورکفلو `Setup Complete Bale Bot`
-          2. وارد کردن توکن و رمز عبور
-          3. تنظیم Secrets (اتوماتیک انجام می‌شود)
-          
-          ## استفاده
-          
-          1. در بله ربات را استارت کنید
-          2. دستور `/auth <رمز عبور>` را بزنید
-          3. از دستورات استفاده کنید
-          
-          ## افزودن فایل به ربات
-          
-          فایل‌ها را در پوشه‌های زیر قرار دهید:
-          - `bale-bot/files/downloads/`
-          - `bale-bot/files/telegram/`
-          - `bale-bot/files/google-play/`
-          EOF
+          echo "" >> .gitignore
+          echo "# Bale bot" >> .gitignore
+          echo "bale-bot/data/authorized_users.json" >> .gitignore
+          echo "bale-bot/logs/*.log" >> .gitignore
+          echo "bale-bot/__pycache__/" >> .gitignore
+          echo "bale-bot/*.pyc" >> .gitignore
+          echo "password_hash.txt" >> .gitignore
+          echo "password_salt.txt" >> .gitignore
       
-      - name: Create sample files
+      - name: Save password hash to environment
         run: |
-          # ایجاد فایل نمونه در پوشه‌ها
-          echo "این یک فایل نمونه است" > bale-bot/files/downloads/sample.txt
-          echo "# نمونه فایل README" > bale-bot/files/telegram/README.md
-          echo '{"version": "1.0"}' > bale-bot/files/google-play/config.json
-          
-          # ایجاد فایل خالی برای لاگ‌ها
-          touch bale-bot/logs/.gitkeep
-          touch bale-bot/data/.gitkeep
-      
-      - name: Create .gitignore
-        run: |
-          cat >> .gitignore << 'EOF'
-          
-          # Bale bot
-          bale-bot/data/authorized_users.json
-          bale-bot/logs/*.log
-          bale-bot/__pycache__/
-          bale-bot/*.pyc
-          password_hash.txt
-          password_salt.txt
-          EOF
-      
-      - name: Save password hash as secret (via GitHub API)
-        env:
-          GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
-        run: |
-          # خواندن هش و salt از فایل‌ها
           HASH=$(cat password_hash.txt)
           SALT=$(cat password_salt.txt)
-          
-          # ذخیره در فایل برای نصب بعدی
           echo "BOT_PASSWORD_HASH=$HASH" >> $GITHUB_ENV
           echo "PASSWORD_SALT=$SALT" >> $GITHUB_ENV
-          
-          echo "✅ Password hash created: ${HASH:0:20}..."
       
       - name: Commit and push all changes
         run: |
           git add .
-          git commit -m "🔐 افزودن ربات شخصی بله با احراز هویت و دسترسی محدود" || echo "تغییری وجود ندارد"
-          git push || echo "خطا در push"
+          git commit -m "🔐 افزودن ربات شخصی بله با احراز هویت" || echo "تغییری وجود ندارد"
+          git push || echo "خطا در push (شاید نیازی نباشد)"
       
-      - name: Create final summary
+      - name: Create setup artifact
         run: |
-          cat << 'EOF' > FINAL_SETUP.txt
-          ═══════════════════════════════════════════════════════════════
-          ✅ ربات شخصی بله با موفقیت ایجاد شد!
-          ═══════════════════════════════════════════════════════════════
+          cat > SETUP_INFO.txt << 'EOF'
+          🔐 ربات شخصی بله با موفقیت ایجاد شد!
           
-          🔐 **ویژگی‌های امنیتی:**
-          • فقط شما با رمز عبور شخصی دسترسی دارید
-          • ربات فقط به پوشه bale-bot/files/ دسترسی دارد
-          • رمز عبور به صورت هش شده در Secrets ذخیره می‌شود
+          حالا باید این Secrets را در مخزن تنظیم کنید:
           
-          📁 **ساختار ایجاد شده:**
-          bale-bot/
-          ├── bot.py (فایل اصلی با احراز هویت)
-          ├── config.py (تنظیمات با هش رمز)
-          ├── requirements.txt
-          ├── files/ (فایل‌های قابل دسترس ربات)
-          │   ├── downloads/    ← فایل‌های دانلودی
-          │   ├── telegram/     ← فایل‌های تلگرام
-          │   └── google-play/  ← فایل‌های گوگل پلی
-          ├── data/ (ذخیره کاربران مجاز)
-          └── logs/
+          1. BALE_BOT_TOKEN = توکن ربات شما
+          2. BOT_PASSWORD_HASH = مقدار داخل password_hash.txt
+          3. PASSWORD_SALT = مقدار داخل password_salt.txt
           
-          ═══════════════════════════════════════════════════════════════
-          📝 **مراحل بعدی (اجباری):**
-          ═══════════════════════════════════════════════════════════════
-          
-          1. **تنظیم Secrets در مخزن:**
-             
-             به مسیر زیر بروید:
-             Settings → Secrets and variables → Actions
-             
-             این سه Secret را اضافه کنید:
-             
-             🔑 BALE_BOT_TOKEN = ${{ github.event.inputs.bot_token }}
-             🔒 BOT_PASSWORD_HASH = ${HASH}
-             🧂 PASSWORD_SALT = ${SALT}
-          
-          2. **تست ربات:**
-             
-             - به برگه Actions بروید
-             - workflow "Bale Bot Scheduler" را手动 اجرا کنید
-             - در بله ربات را استارت کنید
-             - دستور /auth <رمز عبور> را بزنید
-          
-          3. **اضافه کردن فایل‌ها:**
-             
-             فایل‌های خود را در پوشه‌های زیر قرار دهید:
-             - bale-bot/files/downloads/
-             - bale-bot/files/telegram/
-             - bale-bot/files/google-play/
-             
-             سپس commit و push کنید.
-          
-          ═══════════════════════════════════════════════════════════════
-          🎯 **دستورات ربات پس از احراز هویت:**
-          ═══════════════════════════════════════════════════════════════
-          
-          /list      - نمایش همه فایل‌ها
-          /search    - جستجو در فایل‌ها
-          /download  - دانلود فایل
-          /folders   - نمایش پوشه‌ها
-          /status    - وضعیت احراز هویت
-          /help      - راهنما
-          
-          ═══════════════════════════════════════════════════════════════
-          ⚠️ **نکات مهم:**
-          ═══════════════════════════════════════════════════════════════
-          
-          • ربات هر 2 دقیقه یکبار اجرا می‌شود (تاخیر حداکثر 2 دقیقه)
-          • فقط به پوشه bale-bot/files/ دسترسی دارد
-          • هر کاربر جدید باید رمز را وارد کند
-          • رمز در گیت‌هاب ذخیره نمی‌شود (فقط هش آن)
-          
-          ═══════════════════════════════════════════════════════════════
-          🔒 **امنیت: رمز عبور شما در گیت‌هاب ذخیره نمی‌شود!**
-          ═══════════════════════════════════════════════════════════════
-          
-          رمز عبور شما با الگوریتم PBKDF2 هش شده و فقط هش آن در Secrets ذخیره می‌شود.
-          حتی اگر کسی به مخزن شما دسترسی داشته باشد، نمی‌تواند رمز را پیدا کند.
-          
+          سپس در بله ربات را استارت کرده و دستور /auth <رمز> را بزنید.
           EOF
           
-          cat FINAL_SETUP.txt
+          echo "BOT_PASSWORD_HASH=${{ env.BOT_PASSWORD_HASH }}" > secrets.txt
+          echo "PASSWORD_SALT=${{ env.PASSWORD_SALT }}" >> secrets.txt
       
-      - name: Upload setup guide
+      - name: Upload artifacts
         uses: actions/upload-artifact@v4
         with:
-          name: bale-bot-secure-setup
+          name: bale-bot-secrets
           path: |
-            FINAL_SETUP.txt
             password_hash.txt
             password_salt.txt
-
-  verify-setup:
-    runs-on: ubuntu-latest
-    needs: create-secure-bot
-    steps:
-      - name: Checkout
-        uses: actions/checkout@v4
-      
-      - name: Final verification
-        run: |
-          echo "🔍 بررسی نهایی ساختار..."
-          
-          # بررسی فایل‌های کلیدی
-          required_files=(
-            "bale-bot/bot.py"
-            "bale-bot/config.py"
-            "bale-bot/requirements.txt"
-            "bale-bot/files/downloads/sample.txt"
-            ".github/workflows/bale-bot-scheduler.yml"
-          )
-          
-          for file in "${required_files[@]}"; do
-            if [ -f "$file" ]; then
-              echo "✅ $file"
-            else
-              echo "❌ $file وجود ندارد"
-              exit 1
-            fi
-          done
-          
-          # بررسی احراز هویت در کد
-          if grep -q "def verify_password" bale-bot/bot.py; then
-            echo "✅ سیستم احراز هویت در کد وجود دارد"
-          else
-            echo "❌ سیستم احراز هویت یافت نشد"
-            exit 1
-          fi
-          
-          # بررسی محدودیت دسترسی
-          if grep -q "BOT_ROOT" bale-bot/config.py; then
-            echo "✅ محدودیت دسترسی به پوشه ربات اعمال شده"
-          fi
-          
-          echo ""
-          echo "🎉 همه چیز به درستی تنظیم شده است!"
-          echo "📊 تعداد کل فایل‌ها: $(find bale-bot -type f | wc -l)"
+            secrets.txt
+            SETUP_INFO.txt
