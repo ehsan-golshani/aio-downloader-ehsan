@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/30 23:29
+📅 آخرین بروزرسانی: 1405/02/31 01:36
 
 ---
+
+## tasiyanc — post 5159
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روح بانو الهه در آرامش 🖤
+روحش شاد و یادش جاوید در دل ایرانِ تاسیان 🏴😭
+</div>
+
+## tasiyanc — post 5158
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 قاتل الهه حسین نژاد امروز صبـح اعدام شد
+@Tasiyanc
+</div>
+
+## tasiyanc — post 5157
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما اندازه اینا تو چنلمون کس بگیم همه لف میدن
+</div>
+
+## tasiyanc — post 5156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان 5مین بدید😐
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5154
 
@@ -118,38 +148,5 @@ slipnet-enc://AZWHehUAJK6RDRWDnjlb0p2ilOu+IqhbAdw5RU8uHplJBhPjCSm5mRFdeWXP4bVB7V
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وصله با ایرانسل
-</div>
-
-## tasiyanc — post 5138
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥Hot vpn 🔹برای یه سری میگن وصله - ولی خودم تست کردم کانکت شد بالا نیورد تلگرامو دوس داشتید تست کنین https://play.google.com/store/apps/details?id=com.hotcodes.hotvpn @Tasiyanc ❤️
-</div>
-
-## tasiyanc — post 5137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Hot Vpn APK 🥺
-
-لینک داخلی
-@Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥Hot vpn
-
-🔹برای یه سری میگن وصله - ولی خودم تست کردم کانکت شد بالا نیورد تلگرامو
-دوس داشتید تست کنین
-https://play.google.com/store/apps/details?id=com.hotcodes.hotvpn
-
-@Tasiyanc ❤️
-</div>
-
-## tasiyanc — post 5135
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودم وصلم الان
 </div>
 

@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/30 23:29
+📅 آخرین بروزرسانی: 1405/02/31 01:36
 
 ---
+
+## tasiyanc — post 5210
+
+<div align="center"><a href="files/post_5210_Hoşçakal.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Hoşçakal</a></div>
+
+## tasiyanc — post 5209
+
+<div align="center"><img src="files/post_5209_tasiyanc_5209.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc ✍🏻.npvt
+</div>
+
+## tasiyanc — post 5208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با وجود اختلالات شدید همچنان در تلاشیم وصل نگه داریم عزیزانو ، کانفیگ ها تست شده ان چون اختلال زیاده کمی زمان بره بیاد بالا پروکسی گذاشتم براش ، امیدوارم وصل بمونید ❤️
+</div>
+
+## tasiyanc — post 5207
+
+<div align="center"><a href="files/post_5207_@Tasiyanc ✍🏻.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ✍🏻.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 اختصاصی تاسیان تست شده 🔐
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید و از [ پروکسی ]   کمکی استفاده کنید🚀
+
+Join as @Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 5206
 
@@ -16,8 +46,6 @@ Join as @Tasiyanc ☑️
 
 ## tasiyanc — post 5205
 
-<div align="center"><a href="files/post_5205_HOT.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 HOT.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان تست شده 🛜🛜 
 
@@ -27,8 +55,6 @@ Join as @Tasiyanc ☑️
 </div>
 
 ## tasiyanc — post 5204
-
-<div align="center"><a href="files/post_5204_BarBa2s⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 BarBa2s⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان تست شده 🛜🛜 
@@ -175,49 +201,5 @@ Join As @Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۲۰ کا شدیم ری اکشن نداره؟
-</div>
-
-## tasiyanc — post 5189
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💦20 K ...⚫
-</div>
-
-## tasiyanc — post 5185
-
-<div align="center"><img src="files/post_5185_tasiyanc_5185.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs Ping 56 ✅ 5.160.13.85 185.88.178.196 185.208.175.228 164.138.17.122 185.137.25.214 185.208.174.167 185.50.37.52 185.141.106.238 5.160.13.85 37.191.95.70 @Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs Ping 56 ✅
-
-5.160.13.85
-185.88.178.196
-185.208.175.228
-164.138.17.122
-185.137.25.214
-185.208.174.167
-185.50.37.52
-185.141.106.238
-5.160.13.85
-37.191.95.70
-
-@Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده  📶
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید 🚀
-
-
-@Tasiyanc 🩵
 </div>
 

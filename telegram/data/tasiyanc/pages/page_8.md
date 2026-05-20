@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/30 23:29
+📅 آخرین بروزرسانی: 1405/02/31 01:36
 
 ---
+
+## tasiyanc — post 5045
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Hidden - Nava
+</div>
+
+## tasiyanc — post 5044
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 ping 65-280 ✅
+
+🛜📶🛜
+
+185.208.174.167 10.114.141.78 46.32.31.30 5.144.129.174 185.89.22.73 185.89.22.10 185.89.22.66 185.88.178.196 81.12.72.218 5.160.128.142 63.141.252.203 185.143.232.122 5.160.13.85 151.101.192.223 185.200.232.43 185.200.232.42 172.234.159.58 81.91.145.2 185.200.232.56 185.200.232.25 2.23.169.105 95.38.201.199 172.234.199.15 2.23.168.174 2.23.168.250
+
+@Tasiyanc 🐾
+</div>
+
+## tasiyanc — post 5043
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 ping 100 - 250✅ 🛜🛜📶📶
+
+
+185.89.22.73 185.89.22.210 185.89.22.10 185.89.22.71 142.54.178.211 151.101.128.223 151.101.192.223 185.200.232.42 185.200.232.50 185.89.22.66 63.141.252.203
+
+@Tasiyanc 🐾
+</div>
+
+## tasiyanc — post 5042
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنظیمات سیمکارت 🛜🛜🛜 APN Name Google.com APN Google.com APN protocol Just  IPv4 🐾 Shir khorshid Sni: 🔹Google.com رو ایرانسل جواب داده ، بقیه اپراتورها هم تست بزنن @Tasiyanc 🔥
+</div>
 
 ## tasiyanc — post 5041
 
@@ -290,58 +325,5 @@ IPs 👑 new all operators
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 زمان بدید وصل
-</div>
-
-## tasiyanc — post 5024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: @Tasiyanc
-
-
-📶 اختصاصی تاسیان 5 سرور فعال تست شده
-📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5023
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-
-📶 اختصاصی تاسیان 3 سرور فعال 
-📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
 </div>
 
