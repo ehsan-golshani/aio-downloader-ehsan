@@ -1,0 +1,177 @@
+name: Create Bot (Show Password in Log)
+
+on:
+  workflow_dispatch:
+    inputs:
+      bot_token:
+        description: 'توکن ربات بله'
+        required: true
+        type: string
+      bot_password:
+        description: 'رمز عبور شخصی ربات'
+        required: true
+        type: string
+
+jobs:
+  create:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+    
+    steps:
+      - uses: actions/checkout@v4
+      
+      - name: Create bot files
+        env:
+          TOKEN: ${{ github.event.inputs.bot_token }}
+          PASSWORD: ${{ github.event.inputs.bot_password }}
+        run: |
+          # ایجاد پوشه‌ها
+          mkdir -p bale-bot/files/{downloads,telegram,google-play}
+          
+          # محاسبه هش رمز
+          SALT=$(openssl rand -hex 32)
+          HASH=$(echo -n "$PASSWORD$SALT" | openssl dgst -sha256 -hex | cut -d' ' -f2)
+          
+          # نمایش رمز در لاگ (برای کپی کردن)
+          echo "══════════════════════════════════════════════════"
+          echo "🔑 برای تنظیم Secrets به این مقادیر نیاز دارید:"
+          echo "══════════════════════════════════════════════════"
+          echo ""
+          echo "BOT_PASSWORD_HASH=$HASH"
+          echo "PASSWORD_SALT=$SALT"
+          echo ""
+          echo "══════════════════════════════════════════════════"
+          echo "BALE_BOT_TOKEN=$TOKEN"
+          echo "══════════════════════════════════════════════════"
+          
+          # ذخیره در فایل (برای ایمنی)
+          echo "BOT_PASSWORD_HASH=$HASH" > secrets.txt
+          echo "PASSWORD_SALT=$SALT" >> secrets.txt
+          echo "BALE_BOT_TOKEN=$TOKEN" >> secrets.txt
+          
+          # فایل requirements
+          cat > bale-bot/requirements.txt << 'REQ'
+          pyTelegramBotAPI
+          requests
+          REQ
+          
+          # فایل config.py
+          cat > bale-bot/config.py << CFG
+          import os
+          import hashlib
+          
+          BOT_TOKEN = os.environ.get('BALE_TOKEN')
+          REQUIRED_HASH = os.environ.get('BOT_PASSWORD_HASH')
+          SALT = os.environ.get('PASSWORD_SALT')
+          
+          BOT_ROOT = os.path.dirname(os.path.abspath(__file__))
+          FILES_DIR = os.path.join(BOT_ROOT, 'files')
+          
+          ALLOWED_DIRS = {
+              'downloads': os.path.join(FILES_DIR, 'downloads'),
+              'telegram': os.path.join(FILES_DIR, 'telegram'),
+              'google-play': os.path.join(FILES_DIR, 'google-play'),
+          }
+          
+          def verify_password(pwd):
+              if not REQUIRED_HASH or not SALT:
+                  return False
+              h = hashlib.sha256((pwd + SALT).encode()).hexdigest()
+              return h == REQUIRED_HASH
+          CFG
+          
+          # فایل اصلی bot.py (کوتاه شده برای اطمینان)
+          cat > bale-bot/bot.py << 'BOT'
+          import telebot, os, glob, json, hashlib
+          from telebot import api
+          api.TELEGRAM_API_URL = 'https://tapi.bale.ai/bot{0}/{1}'
+          
+          from config import BOT_TOKEN, verify_password, ALLOWED_DIRS
+          
+          bot = telebot.TeleBot(BOT_TOKEN)
+          AUTH_FILE = os.path.join(os.path.dirname(__file__), 'auth.json')
+          
+          def load_auth():
+              try:
+                  with open(AUTH_FILE, 'r') as f:
+                      return set(json.load(f).get('users', []))
+              except:
+                  return set()
+          
+          def save_auth(users):
+              with open(AUTH_FILE, 'w') as f:
+                  json.dump({'users': list(users)}, f)
+          
+          authorized = load_auth()
+          
+          def auth_required(func):
+              def wrapper(m):
+                  if str(m.chat.id) in authorized:
+                      return func(m)
+                  bot.reply_to(m, "🔒 با /auth <رمز> احراز هویت کنید")
+              return wrapper
+          
+          @bot.message_handler(commands=['start'])
+          def start(m):
+              bot.reply_to(m, "🔐 ربات شخصی\nبرای دسترسی: /auth <رمز عبور>")
+          
+          @bot.message_handler(commands=['auth'])
+          def auth(m):
+              parts = m.text.split()
+              if len(parts) != 2:
+                  return bot.reply_to(m, "فرمت: /auth رمز")
+              if verify_password(parts[1]):
+                  authorized.add(str(m.chat.id))
+                  save_auth(authorized)
+                  bot.reply_to(m, "✅ احراز هویت شد")
+              else:
+                  bot.reply_to(m, "❌ رمز اشتباه")
+          
+          @bot.message_handler(commands=['list'])
+          @auth_required
+          def list_files(m):
+              files = []
+              for name, path in ALLOWED_DIRS.items():
+                  if os.path.exists(path):
+                      for f in glob.glob(os.path.join(path, '*')):
+                          if os.path.isfile(f):
+                              files.append(f"📁 {name}: {os.path.basename(f)}")
+              bot.reply_to(m, "\n".join(files) if files else "هیچ فایلی نیست")
+          
+          @bot.message_handler(commands=['download'])
+          @auth_required
+          def download(m):
+              name = ' '.join(m.text.split()[1:])
+              if not name:
+                  return bot.reply_to(m, "نام فایل را وارد کنید")
+              for path in ALLOWED_DIRS.values():
+                  for f in glob.glob(os.path.join(path, '*')):
+                      if os.path.basename(f) == name:
+                          with open(f, 'rb') as file:
+                              bot.send_document(m.chat.id, file)
+                          return
+              bot.reply_to(m, "فایل یافت نشد")
+          
+          @bot.message_handler(commands=['folders'])
+          @auth_required
+          def folders(m):
+              text = "پوشه‌ها:\n" + "\n".join([f"• {n}: {p}" for n,p in ALLOWED_DIRS.items()])
+              bot.reply_to(m, text)
+          
+          print("ربات شروع به کار کرد")
+          bot.infinity_polling()
+          BOT
+          
+          # فایل نمونه
+          echo "فایل تست" > bale-bot/files/downloads/test.txt
+          
+          echo "✅ ساختار ایجاد شد"
+      
+      - name: Commit and push
+        run: |
+          git config user.name "Bot Creator"
+          git config user.email "bot@github.com"
+          git add bale-bot/
+          git commit -m "➕ افزودن ربات بله" || echo "تغییری نیست"
+          git push
