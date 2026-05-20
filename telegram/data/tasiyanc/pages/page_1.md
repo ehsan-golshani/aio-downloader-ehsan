@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/30 03:20
+📅 آخرین بروزرسانی: 1405/02/30 07:50
 
 ---
+
+## tasiyanc — post 5159
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روح بانو الهه در آرامش 🖤
+روحش شاد و یادش جاوید در دل ایرانِ تاسیان 🏴😭
+</div>
+
+## tasiyanc — post 5158
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 قاتل الهه حسین نژاد امروز صبـح اعدام شد
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 5157
 
@@ -11,8 +25,6 @@
 </div>
 
 ## tasiyanc — post 5156
-
-<div align="center"><a href="files/post_5156_🇩🇪Germany.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇩🇪Germany.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 📶
@@ -23,8 +35,6 @@
 </div>
 
 ## tasiyanc — post 5154
-
-<div align="center"><a href="files/post_5154_NED Stark.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 NED Stark.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 📶
@@ -138,20 +148,5 @@ slipnet-enc://AZWHehUAJK6RDRWDnjlb0p2ilOu+IqhbAdw5RU8uHplJBhPjCSm5mRFdeWXP4bVB7V
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وصله با ایرانسل
-</div>
-
-## tasiyanc — post 5138
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥Hot vpn 🔹برای یه سری میگن وصله - ولی خودم تست کردم کانکت شد بالا نیورد تلگرامو دوس داشتید تست کنین https://play.google.com/store/apps/details?id=com.hotcodes.hotvpn @Tasiyanc ❤️
-</div>
-
-## tasiyanc — post 5137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Hot Vpn APK 🥺
-
-لینک داخلی
-@Tasiyanc 🤩
 </div>
 

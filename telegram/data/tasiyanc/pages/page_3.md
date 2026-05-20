@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/30 03:20
+📅 آخرین بروزرسانی: 1405/02/30 07:50
 
 ---
+
+## tasiyanc — post 5118
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان یه هل بدید ۲۰ کا شیم
+</div>
+
+## tasiyanc — post 5117
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid & mahsang
+
+
+184.24.77.42
+184.25.28.31
+184.28.165.4
+184.51.252.4
+184.86.251.12
+184.86.251.27
+184.25.52.200
+184.28.230.87
+184.30.150.142
+184.51.252.36
+184.51.252.38
+185.200.232.40
+185.200.232.41
+185.200.232.42
+185.200.232.43
+185.200.232.49
+185.200.232.50
+184.51.252.152
+184.51.252.157
+184.86.103.210
+184.51.252.135
+
+❤️ Connected 📶📶
+
+
+@Tasiyanc 😡
+</div>
 
 ## tasiyanc — post 5116
 
@@ -183,25 +223,5 @@ slipnet-enc://ATQGgOaJwLZBcKGgecLpcmOabBQfQfaTIA1lQK1BUTiz58ZV5PcesIxbrj+UYdsAUz
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شیرخورشید ، همراه اول منطقه ایه وصل بشو نیست برا همه؛
 الکی ترفند نگید
-</div>
-
-## tasiyanc — post 5091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Password: Tasiyan
-
-📶 اختصاصی تاسیان 2 سرور متصل 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5090
-
-<div align="center"><img src="files/post_5090_tasiyanc_5090.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Eric.npvt
 </div>
 
