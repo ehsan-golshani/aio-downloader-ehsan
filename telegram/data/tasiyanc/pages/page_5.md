@@ -1,8 +1,81 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/30 17:43
+📅 آخرین بروزرسانی: 1405/02/30 21:08
 
 ---
+
+## tasiyanc — post 5110
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هنوز گپ ما جوین نشدید ؟
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 5109
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال کوچکی پیش اومده
+سرورای اولمون بدون مشکل وصل هستن
+سرورای دوم به مشکل خورده بزودی رفع میشه ، از اینجا اطلاع رسانی میکنم
+</div>
+
+## tasiyanc — post 5108
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب میزاریم ری اکشن نمیزنید بدرد نمیخوره 🥺
+</div>
+
+## tasiyanc — post 5107
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب اختصاصی تاسیان تست شده رو همه اپراتورها✅ اسلیپ نت تانل نشه 📶 🕊 ترکیب اسلیپ با سایفون Slip config 🔹 Slipnet setting : Http proxy ON ✅ port 8080 & 10887 Proxy mode ✅ Setting Psiphon : Host 127.0.0.1 Port 8080 & 10887 منبع اسلیپ : مسیر سفید با ذکر…
+</div>
+
+## tasiyanc — post 5106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب اختصاصی تاسیان تست شده رو همه اپراتورها✅ اسلیپ نت تانل نشه 📶 🕊 ترکیب اسلیپ با سایفون Slip config 🔹 Slipnet setting : Http proxy ON ✅ port 8080 & 10887 Proxy mode ✅ Setting Psiphon : Host 127.0.0.1 Port 8080 & 10887 منبع اسلیپ : مسیر سفید با ذکر…
+</div>
+
+## tasiyanc — post 5105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاجی ناموسا برید مخاطبین خودتونو نگا کنین شاید نصفش 28 فوریه آخرین آنلاین بودنشونه ، توقع بعضیا واقن کون خر پاره کرده
+تو این وضعیت کیری که کلادفلیر ، گیت هاب و کلی منبع دیگه که نمیشه کمک گرف بسته هست وقتی کمکی میشه وصل شی حتی چند دقیقه بخدا جای سپاس داره نه اینکه بیای متلک بندازی
+ایران عالیع
+</div>
+
+## tasiyanc — post 5099
+
+<div align="center"><video src="files/post_5099_tasiyanc_5099.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5099_tasiyanc_5099.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب اختصاصی تاسیان تست شده رو همه اپراتورها✅
+
+اسلیپ نت تانل نشه
+
+📶 🕊 ترکیب اسلیپ با سایفون
+
+Slip config 🔹
+Slipnet setting :
+Http proxy ON ✅ port 8080 & 10887
+Proxy mode ✅
+
+Setting Psiphon :
+Host 127.0.0.1
+Port 8080 & 10887
+منبع اسلیپ : مسیر سفید
+با ذکر منبع فور شه 🤝
+@Tasiyanc 😐
+</div>
+
+## tasiyanc — post 5098
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن
+</div>
 
 ## tasiyanc — post 5097
 
@@ -122,139 +195,5 @@ slipnet-enc://ARW5TYIc9f8Yiqf2QNOaS7YHSQobbOm2mraoEivTP6TXhJj67kK5Qqm3rOU4p/NBiI
 برای اتصال پایدار زمان مناسب بدید😐
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns ترکیبی با نپستر و نکوباکس slipnet-enc://AQWUiXekehUioEA8QqMp3enet/bR52yS6R+DZxii7MSZwggy4Yj+WkTX1UsIOy6PR8DPOlK1Sc9G5+kT9f7wlfqOFEBgvjV1AcIU9ygPoAgrThVCvuoJKOUiwvYiVNR446bSlc7mo0sXhJJ2Qcx5gwxE/LS3/2bywXIo3tm4XX435JjDo6AFUasIeNeF4NgIK2Qi/ZWe2wF2v…
-</div>
-
-## tasiyanc — post 5079
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns
-ترکیبی با نپستر و نکوباکس
-
-slipnet-enc://AQWUiXekehUioEA8QqMp3enet/bR52yS6R+DZxii7MSZwggy4Yj+WkTX1UsIOy6PR8DPOlK1Sc9G5+kT9f7wlfqOFEBgvjV1AcIU9ygPoAgrThVCvuoJKOUiwvYiVNR446bSlc7mo0sXhJJ2Qcx5gwxE/LS3/2bywXIo3tm4XX435JjDo6AFUasIeNeF4NgIK2Qi/ZWe2wF2vI7r9UX5Bbw15FTjfl85+lG+RSJRrggRQQkmmL7ioV5ZxAJ4HpMtkkdkM4Hw01pCf+cjhpj4g6Cxg9pGrZSkYGRfWDBO/dsMtaIFWuinVWhckZQeB1fjThDxwHqe+b+oqJagtPgVJ8EhPeXK2dBnAyIdaT5G+4P4F5//Q44zolzxv03n4l66LK/OxqZheMqp3a87qK42m2WEd82BEoZPOhcCtpq9CyoXboEyvg7LwGagCb5mWJSqN62IljA/DfqOjkh7iNGIFDNFyG7Mv+CbCeUlIJL0jGs2vPaiC/TkmFVgpzex5PxY94+zPF1eno1IlL7Tl4idAbMcAmByRgkDVevOfHpmAdWAAiExoJTIyv6UKNOPf4tGEgSzRLbCwbGRZBQi+IXtFh226tcrJ34f0slN404LWB9DlyDtjTbkHi0EKl2k0UdPZWzoIGeEPqJYvPqsERPsDulQ55kR/y46r36p9GrOawJ8q+uAO50wMYdCs5Qz+VnONzEw/b073frvfu0aOsc6RsK2NmRDyWtnIxC99g54lqH8JJXSlDMBB5cxjqlWyB8gvxgm7vvQ9Dh0RCAUpkd420BihpFWfXelONc=
-آموزش اتصال 🔐
-ویدیو آموزشی 🔐
-آموزش اتصال با nekobax
-ویدیو آموزشی nekobox
-
-@Tasiyanc 🩶
-</div>
-
-## tasiyanc — post 5078
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2sv
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5077
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New IPs 👑
-
-151.101.192.223
-167.82.48.223
-185.200.232.43
-2.23.169.111
-2.23.168.213
-23.48.23.184
-184.24.77.42
-184.25.28.31
-184.28.165.4
-184.51.252.4
-184.86.251.12
-184.86.251.27
-184.25.52.200
-184.28.230.87
-184.30.150.142
-184.51.252.36
-184.51.252.152
-184.51.252.157
-184.86.103.210
-184.51.252.135
-37.255.133.30
-5.160.13.85
-185.137.25.214
-184.51.252.38
-185.200.232.40
-185.200.232.41
-185.200.232.42
-185.200.232.43
-185.200.232.49
-185.200.232.50
-81.12.72.218
-151.101.128.223
-172.237.127.6
-185.143.232.122
-185.200.232.50
-2.23.168.254
-2.23.170.80
-2.23.168.174
-185.200.232.25
-185.200.232.42
-185.200.232.11
-2.16.19.136
-185.200.232.19
-185.200.232.24
-172.234.199.15
-2.23.168.96
-2.23.168.144
-2.23.168.7
-
-🌐@Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5074
-
-<div align="center"><img src="files/post_5074_tasiyanc_5074.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 دوستانی آیفون 🍏دارن می‌تونن این برنامه رو نصب کنن و ازش استفاده کنن، راحت می‌تونید سرور‌های دیگه هم اضافه کنید و استفاده کنید
-🔺 حالت Proxy Mode با پروکسی Local به تلگرام متصل شدم!
-
-+پیش نیاز نصب برنامه TestFlight از اپ استور
-
-🪼 Download TestFlight
-
-❤️ @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 5073
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹نسخه‌ی اولیه‌ی WhiteDNS برای IOS📹
-
-https://testflight.apple.com/join/GfUqXrFz
-
-❤️ @Tasiyanc 🐾
 </div>
 

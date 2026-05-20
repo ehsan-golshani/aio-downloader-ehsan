@@ -1,8 +1,110 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/30 17:43
+📅 آخرین بروزرسانی: 1405/02/30 21:08
 
 ---
+
+## tasiyanc — post 5203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بسته اس اطلاع رسانی میشه اگه باز کنیم
+</div>
+
+## tasiyanc — post 5202
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+javidgorz-1.0.7-universal.apk
+</div>
+
+## tasiyanc — post 5201
+
+<div align="center"><a href="files/post_5201_javidgorz-1.0.7-universal.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 javidgorz-1.0.7-universal.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☄️ وی پی ان جاویدگرز نسخه 1.0.7
+
+😐 منطقه ای میگن وصله اکثر اپراتورها
+
+❗️ امنیتش تایید یا رد نمی‌شود
+
+لینک دانلود داخلی ⤵️
+https://dl.toolschi.com/view.php?f=e688f082f4a9968d.zip
+
+🔹حالت پرواز بزارید درارید وصل نشد تست کنین
+
+Join as @Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5200
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن نمیزنین؟😭
+</div>
+
+## tasiyanc — post 5199
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Ping 56 - 68
+✅
+
+23.50.180.206
+185.88.178.196
+164.138.17.122
+185.208.174.167
+185.50.37.52
+95.101.78.25
+185.141.106.238
+5.160.13.85
+5.160.13.85
+185.208.175.228
+
+Join As ﻿@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5198
+
+<div align="center"><a href="files/post_5198_super⭐.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 super⭐.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  
+📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀 صبر ندارید نزنید 
+✅
+
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5197
+
+<div align="center"><a href="files/post_5197_🌼 @Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🌼 @Tasiyanc.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  
+📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀
+
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5196
+
+<div align="center"><a href="files/post_5196_Las Vegas🇺🇲.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Las Vegas🇺🇲.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  
+📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀
+
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5194
 
@@ -31,8 +133,6 @@ Join As @Tasiyanc
 </div>
 
 ## tasiyanc — post 5191
-
-<div align="center"><a href="files/post_5191_Kaktus.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Kaktus.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان تست شده  📶
@@ -113,70 +213,5 @@ DNSTT TCP 🇩🇪
 slipnet-enc://AWPVFU23PS/+4kTSVFUhSCRjtKuCJv2Eh5qx3JWPubIXCk2bvhflTmkWzWSfZ8+v6Mn4qFm+e4RPEgyhauiHXk7FasRbjke21zCv6iF9MVgCDYzSfeJDaD9SBH1bL5hJ08KRBHICwCC0q8Ncqr8v+hkn2w4TNZLxTLlgAU65tvznlsbm6ZfZOxAAXcX3RDfWh3C85PpM5IUYclXMmOOl+MC6g6q0VJXUECM6XWhCi7FsPxZFw4tQCoGPYmFZC7HdRkAoG2bFgbTBDOfeDPfM/QZuyVAjzzXp2DxH9KuKjjcbyh77NohQBbkDh0IJbFiHaCKYRivwvIlOIO3vFd6NCX6uTvEMaZsSfZUNP0ncJcP9vBaU77be5MQ2/cvhHO2u/BLQ1zCmD1NB27D7HTurRVjzpvMvPg6QYT9sxLWyclz/vtLgo44NcLSD4zwKtdTGAne2r5dD8zJDYvWURu6MYmEfINhOPHgbs0n+rsZDpqhe+wQ0v7NWT2uGixy9GQm7tosa3wffWHio3L/vTlj6LXSfcOE9qa/qlqI0aTvFclauzDswtlKKwtrwkridlistiPtLRzlDYV2hSE7dhGFY//SrOnmKyaVMybWsGwJbL9EX1VD69qbfjuKM7BRgkp9dwxwvz0V+8Yu0k8C0DcdAF9D/G89LuOLFWT0blz/m1wNXkLeTUEAEnZV0Est7FzRCfN8zCdrEG38qXYhKuESTon9WQXrxpPn4szqB3r+Nq4/5RSdxKz0at3TaWq+Gvob0f30/lZddOKz+62kI87c=
 
 Join As @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5173
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده 📶
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید 🚀
-
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5171
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💦20 K ...⚫
-</div>
-
-## tasiyanc — post 5170
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده 📶
-
-حتما برای اتصال پایدار زمان  بدید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5169
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلامی دوباره
-</div>
-
-## tasiyanc — post 5168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای اتصال پایدار زمانی بین ۲ تا ۵ مین بدید وصله عشق کنید
-</div>
-
-## tasiyanc — post 5167
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-حتما برای اتصال پایدار زمان  بدید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5166
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-حتما برای اتصال پایدار زمان  بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5165
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چخبر رو به راهید؟
 </div>
 
