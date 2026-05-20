@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/30 21:07
+📅 آخرین بروزرسانی: 1405/02/30 23:28
 
 ---
+
+## ProxyMTProto — post 47521
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: another.life.mambabot.net
+Port: 4515
+Secret: eec485b564c0178c338d8bf4f3f17539c4613234382e652e616b616d61692e6e6574
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47520
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s3.neo-trading.org
+Port: 443
+Secret: eec3fefd89a25d37ca3af1a602c7bfd8de79612e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47519
 
@@ -173,24 +191,6 @@ Secret: eed74b20f8b196edebcfdc6de8c8985d60616b2e796f75726c696e652e6f6e6c696e65
 Server: mtp.webvirt.cloud
 Port: 443
 Secret: ee938dd87467bc49301de2e9765cf20f4374656c2e776562766972742e636c6f7564
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47501
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 193.23.199.16
-Port: 8443
-Secret: eed942e15d1c4f6a22a8c8fc1d631f6eb9646c2e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47500
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 

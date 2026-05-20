@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/30 21:08
+📅 آخرین بروزرسانی: 1405/02/30 23:29
 
 ---
+
+## tasiyanc — post 5182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آپدیت فایرواله دارن شدید میکنن فیلترو
+</div>
+
+## tasiyanc — post 5176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دو تا نپستر آخری خوب بود؟
+</div>
+
+## tasiyanc — post 5175
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DNSTT TCP 🇩🇪
+
+slipnet-enc://AWPVFU23PS/+4kTSVFUhSCRjtKuCJv2Eh5qx3JWPubIXCk2bvhflTmkWzWSfZ8+v6Mn4qFm+e4RPEgyhauiHXk7FasRbjke21zCv6iF9MVgCDYzSfeJDaD9SBH1bL5hJ08KRBHICwCC0q8Ncqr8v+hkn2w4TNZLxTLlgAU65tvznlsbm6ZfZOxAAXcX3RDfWh3C85PpM5IUYclXMmOOl+MC6g6q0VJXUECM6XWhCi7FsPxZFw4tQCoGPYmFZC7HdRkAoG2bFgbTBDOfeDPfM/QZuyVAjzzXp2DxH9KuKjjcbyh77NohQBbkDh0IJbFiHaCKYRivwvIlOIO3vFd6NCX6uTvEMaZsSfZUNP0ncJcP9vBaU77be5MQ2/cvhHO2u/BLQ1zCmD1NB27D7HTurRVjzpvMvPg6QYT9sxLWyclz/vtLgo44NcLSD4zwKtdTGAne2r5dD8zJDYvWURu6MYmEfINhOPHgbs0n+rsZDpqhe+wQ0v7NWT2uGixy9GQm7tosa3wffWHio3L/vTlj6LXSfcOE9qa/qlqI0aTvFclauzDswtlKKwtrwkridlistiPtLRzlDYV2hSE7dhGFY//SrOnmKyaVMybWsGwJbL9EX1VD69qbfjuKM7BRgkp9dwxwvz0V+8Yu0k8C0DcdAF9D/G89LuOLFWT0blz/m1wNXkLeTUEAEnZV0Est7FzRCfN8zCdrEG38qXYhKuESTon9WQXrxpPn4szqB3r+Nq4/5RSdxKz0at3TaWq+Gvob0f30/lZddOKz+62kI87c=
+
+Join As @Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 5173
 
@@ -156,27 +178,5 @@ Join As @Tasiyanc ☑️
 برای اتصال پایدار زمان 5مین بدید😐
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5153
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هات وی پی ان ویروس داره؟
-</div>
-
-## tasiyanc — post 5152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چرا برنامه هات رو گوشیم نصب نمیشه
 </div>
 

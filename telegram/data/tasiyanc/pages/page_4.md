@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/30 21:08
+📅 آخرین بروزرسانی: 1405/02/30 23:29
 
 ---
+
+## tasiyanc — post 5134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با این پینگها وصل نشه ۱۰۰٪ منطقه ایه
+</div>
+
+## tasiyanc — post 5133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 185.143.232.122 5.160.13.85 5.160.13.85 185.137.25.214 81.91.145.2 185.137.25.214 81.91.145.2 81.12.72.218 81.91.145.2 5.160.13.85 @Tasiyanc 🐾
+</div>
+
+## tasiyanc — post 5132
+
+<div align="center"><img src="files/post_5132_tasiyanc_5132.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 185.143.232.122 5.160.13.85 5.160.13.85 185.137.25.214 81.91.145.2 185.137.25.214 81.91.145.2 81.12.72.218 81.91.145.2 5.160.13.85 @Tasiyanc 🐾
+</div>
 
 ## tasiyanc — post 5131
 
@@ -480,25 +500,5 @@ Ip Shiro khorshid & mahsang
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختلال کوچکی پیش اومده سرورای اولمون بدون مشکل وصل هستن سرورای دوم به مشکل خورده بزودی رفع میشه ، از اینجا اطلاع رسانی میکنم
-</div>
-
-## tasiyanc — post 5114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وصلید با سایفون ؟
-</div>
-
-## tasiyanc — post 5112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ذات تاسیان :
-</div>
-
-## tasiyanc — post 5111
-
-<div align="center"><img src="files/post_5111_tasiyanc_5111.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گور بابای آیپی اسلیپ نت تاسیان رو با شیروخورشید قاطی کن وصل میشی😎
 </div>
 
