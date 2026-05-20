@@ -1,12 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/31 01:36
+📅 آخرین بروزرسانی: 1405/02/31 03:14
 
 ---
 
-## tasiyanc — post 5210
+## tasiyanc — post 5211
 
-<div align="center"><a href="files/post_5210_Hoşçakal.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Hoşçakal</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DNSTT 🇧🇪
+
+slipnet-enc://AeMf7mMr1HJGkag2PSChX/pjKeXDxb16uNfYxvob0gHrIthcqDq9Q+KhESEAmFqoBA7oIn2W/MOscZFxmb5GSwSs80G2A7hZRrIrlrHdrO0BRu7OnWvmtCUZ8BEYvjJoWab+ZllFgbkWKyE12qHq5fIzbnoXSCAtYAenTPV1DRjMvDFjJOdZ1Vi6VU67aLU65WVaCLXnoEKhMVNJC7tqfxZrReH68dj+G8yFLG0dV6HWxneSULjH/cWbpX22y5RzIPqEFa6XI16rADLLqYerGUJt+Rv6LHhq+sJf3LSwwvjaIcfy/9Us+kUp3QaY/4pGdeDZto6HxUt6eXR/AqE1Q/IkaMEkyeVP+fv6BLXcEGB11XGmWtZsHtxMv5llboIkwqAsgBgV83tVTCjJ5AbVUAVWG0IkTC5CZGljA47gJpW021A0pJ53sLAed34EJPdf3Oxuq2+OHfubOdkD4sho/lDOzJKnDKf7jPW1dSVdb/9IjlIdpdZR97KE1YZuNZ9NyiX8NfZybSKy55D1Tc5T56FkaHamqK+gZlCyduL9UrBsQv3NLlnzLx8j2e4hWSx0p8vlMxwuwTOuBneVSsGs7dsuxUixJyvzWFuMRSVh8rL59Vw9wT/qURSKbAka/7TyTayQ3B8RVbuzKBfQVD7UR5fQ7LiAbwq8SR7PaErA1PRdtS0CXfrn7Kee/C6UP9UClTyBU4Iy+LNRHDOpbLqBRhpbsfmXEp0iqJV2Ta37d8oEnYqnCYYA2olsaNr2ht+ly2PvPa50fZhwP9X5rEGunaoL
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5210
 
 ## tasiyanc — post 5209
 
@@ -23,8 +31,6 @@
 </div>
 
 ## tasiyanc — post 5207
-
-<div align="center"><a href="files/post_5207_@Tasiyanc ✍🏻.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ✍🏻.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 اختصاصی تاسیان تست شده 🔐
@@ -195,11 +201,5 @@ Join As @Tasiyanc
 
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۲۰ کا شدیم ری اکشن نداره؟
 </div>
 

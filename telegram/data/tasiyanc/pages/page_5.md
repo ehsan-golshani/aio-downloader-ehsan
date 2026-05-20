@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/31 01:36
+📅 آخرین بروزرسانی: 1405/02/31 03:14
 
 ---
+
+## tasiyanc — post 5119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid & mahsang
+
+
+2.21.2.58
+2.21.2.89
+2.23.168.7
+5.160.13.85
+81.12.72.218
+2.23.168.96
+92.123.106.96
+2.23.168.144
+2.23.168.213
+2.23.168.254
+2.23.170.80
+37.255.133.30
+104.103.65.50
+63.141.252.203
+142.54.178.211
+185.137.25.214
+185.200.232.40
+185.200.232.41
+185.200.232.49
+
+❤️ Connected 📶📶
+
+
+@Tasiyanc 😡
+</div>
 
 ## tasiyanc — post 5118
 
@@ -216,12 +248,5 @@ slipnet-enc://ATQGgOaJwLZBcKGgecLpcmOabBQfQfaTIA1lQK1BUTiz58ZV5PcesIxbrj+UYdsAUz
 
 همراه ساب - آیپی ثابت آلمان🇩🇪 - بدون محدودیت کاربر - استارلینک
 هر گیگ 260
-</div>
-
-## tasiyanc — post 5092
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شیرخورشید ، همراه اول منطقه ایه وصل بشو نیست برا همه؛
-الکی ترفند نگید
 </div>
 

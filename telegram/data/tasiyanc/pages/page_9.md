@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/31 01:36
+📅 آخرین بروزرسانی: 1405/02/31 03:14
 
 ---
+
+## tasiyanc — post 5025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زمان بدید وصل
+</div>
 
 ## tasiyanc — post 5024
 
@@ -301,12 +307,5 @@ slipnet-enc://AfGk2opsi+MrCpAC+etlraDt0dOI/3l5sdWzoTvyRPP1XqBDiuVORgBdHDoHV9kQ9E
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🕊 VyDns udp 🇮🇹 slipnet-enc://AZkgjNCARQDM5vGsYmPO4xLikQSyPviV2tGCVM41UmbfqVk+QpMxOuR6sgaeCCmBGMA9y4hzItLJUX382lGN1w2j7FZGruTuI937iQW7hla7swJaDWH/Nn0N157j2hE4lTsBoB0SKMXxoIjPvQfbT3XC0si8fUgGG+yJ2Fn/RvOjunQ8IPfODop8FHoJo9CLlmwerd4j1/OmvscgJGinuiiF3Au7ONw…
-</div>
-
-## tasiyanc — post 5004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کیا سامانتل دارن ؟
-و وصل نیستن به شیرخورشید تو گپ بگن وصلشون کنم
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/31 01:36
+📅 آخرین بروزرسانی: 1405/02/31 03:14
 
 ---
+
+## tasiyanc — post 5190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۲۰ کا شدیم ری اکشن نداره؟
+</div>
 
 ## tasiyanc — post 5189
 
@@ -173,24 +179,5 @@ slipnet-enc://AX3z8tTh/X9om0T2Ji+iBGSVRwdgrd1yorYs54KFL1IhoRved1A3EZ/8Hb6WcVweh+
 برای اتصال پایدار زمان بدید😐
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥HOTVPN فایل سالم
-
-بعضی سرورهاش وصله
-البته بنظر من واسه همه اوکی نیست و منطقه ایه خودم تست کردم نتیجه نداد 😂
-
-دانلود با لینک داخلی ⬇️
-
-دانلود از گوگل پلی 🕹
-
-دانلود از اپ استور🍏
-
-راجب امنیتش اطلاعی نداریم 😍
-
-Join As @Tasiyanc ☑️
 </div>
 
