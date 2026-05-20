@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/02/30 07:50
+📅 آخرین بروزرسانی: 1405/02/30 11:35
 
 ---
+
+## tasiyanc — post 4990
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دان نزنید
+</div>
+
+## tasiyanc — post 4989
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن؟
+</div>
+
+## tasiyanc — post 4988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Instagram.npvtt
+</div>
+
+## tasiyanc — post 4987
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان حجمی 📶
+
+برای اتصال پایدار صبور باشید 🦦
+
+@Tasiyanc 
+🩵
+</div>
+
+## tasiyanc — post 4986
+
+<div align="center"><img src="files/post_4986_tasiyanc_4986.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Margaret.npvtt
+</div>
+
+## tasiyanc — post 4985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان حجمی 📶
+
+برای اتصال پایدار صبور باشید 
+🦦
+
+@Tasiyanc 
+🩵
+</div>
+
+## tasiyanc — post 4984
+
+<div align="center"><img src="files/post_4984_tasiyanc_4984.jpg" alt="Photo"></div>
+
+## tasiyanc — post 4983
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀Slipnet Setting ✅Vpn MTU 512 ✅Max channel 64 ✅Enable split tunneling ON - only vpn، tunnel Telegram ... ✅Prevent dns fallback: OFF ✅Enable geo - bypass: ON ✅ compression : ON 🕊 Config setting 🔹 ✅Query 150 - 131 علامت مداد کنار کانفیگ بزنید بعد…
+</div>
+
+## tasiyanc — post 4982
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀Slipnet Setting ✅Vpn MTU 512 ✅Max channel 64 ✅Enable split tunneling ON - only vpn، tunnel Telegram ... ✅Prevent dns fallback: OFF ✅Enable geo - bypass: ON ✅ compression : ON 🕊 Config setting 🔹 ✅Query 150 - 131 علامت مداد کنار کانفیگ بزنید بعد…
+</div>
 
 ## tasiyanc — post 4981
 
@@ -392,74 +461,5 @@ Ip Shiro khorshid 🟢
 تست شده و متصل👍
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 4951
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن؟
-</div>
-
-## tasiyanc — post 4950
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای اتصال پایدار زمان بدید همه کانفیگا تست شده
-</div>
-
-## tasiyanc — post 4949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 🦦
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 4948
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 
-🦦
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 4947
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار صبور باشید 
-🦦
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 4946
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار صبور باشید 
-🦦
-
-@Tasiyanc 
-🩵
 </div>
 

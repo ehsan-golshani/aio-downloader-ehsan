@@ -1,8 +1,111 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/30 07:50
+📅 آخرین بروزرسانی: 1405/02/30 11:35
 
 ---
+
+## tasiyanc — post 5168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای اتصال پایدار زمانی بین ۲ تا ۵ مین بدید وصله عشق کنید
+</div>
+
+## tasiyanc — post 5167
+
+<div align="center"><a href="files/post_5167_🍋 lemon.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🍋 lemon.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+حتما برای اتصال پایدار زمان  بدید 🚀
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5166
+
+<div align="center"><a href="files/post_5166_Melody 🟩.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Melody 🟩.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+حتما برای اتصال پایدار زمان  بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چخبر رو به راهید؟
+</div>
+
+## tasiyanc — post 5164
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VyDns 🇩🇪
+
+slipnet-enc://AX3z8tTh/X9om0T2Ji+iBGSVRwdgrd1yorYs54KFL1IhoRved1A3EZ/8Hb6WcVweh+m9eWN2Mrd5wYJphW9Hjsh7qplzeSEiH4QszAkD7NKMM7II3abZ7zVlYTX+rPJc9zN7S/PlGqv2ZceGSYPmqpPNVPqCc1kcb4if1eY30pHiEqDz5v5v0ILRUq1xWMEKVTWL3YicdTw7m+6H4H8ZyIIJ0RNihRpUzjOssxCO2tpnNsDCBfM/DNco8NhOW6Krv0vu3UvzweQ+yhTkXC5tfpBivkEpjr0cPPFgh4zPlN4QtVsHs5t9yoBZpr+5SXlWbCuoIPV4yQL6kogJA9vRQvG+c+pEpnxQNsfY08N/1bG4VOQLlGcYaHxsQFuAeNjSk+ssOZubE4XLYs8DV0lVI6/d4SwpEmy2PB125hyiQswvjEAro2Dz+ZrChLfgUCzcAfUKMH4sVRLZ1ppaH690pdK3XZ0IoeZ/klx9KstnvUvbunCNKsn7xZwfDaHe+OJhe6C/YO+tD2iY10Db7wan/9tLPksPCZZ5Ii7663n6LYtmJERLKQPAjlBLy10xNbt3By2mNJf6qzpmAetvipL2diqkUyGytYIrMNN8ga8dtBp9eq6LInKyQOToqbcuwfUaHkb7lw==
+
+@Tasiyanc 🤩
+</div>
+
+## tasiyanc — post 5163
+
+<div align="center"><a href="files/post_5163_SaintPetersburg🇷🇺.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 SaintPetersburg🇷🇺.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان  بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5162
+
+<div align="center"><a href="files/post_5162_🖤Elahe.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🖤Elahe.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان  بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5161
+
+<div align="center"><a href="files/post_5161_Wi-Fi.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Wi-Fi.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5160
+
+<div align="center"><a href="files/post_5160_HotVpn_8.2.2.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 HotVpn_8.2.2.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥HOTVPN فایل سالم
+
+بعضی سرورهاش وصله
+البته بنظر من واسه همه اوکی نیست و منطقه ایه خودم تست کردم نتیجه نداد 😂
+
+دانلود با لینک داخلی ⬇️
+
+دانلود از گوگل پلی 🕹
+
+دانلود از اپ استور🍏
+
+راجب امنیتش اطلاعی نداریم 😍
+
+Join As @Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 5159
 
@@ -94,59 +197,5 @@ slipnet-enc://AZWHehUAJK6RDRWDnjlb0p2ilOu+IqhbAdw5RU8uHplJBhPjCSm5mRFdeWXP4bVB7V
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تعصب شمارو تو این بحثم میکشم ولاغیر
-</div>
-
-## tasiyanc — post 5147
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه وصل نمیشدید هات vpn میکردم گوه vpn
-</div>
-
-## tasiyanc — post 5146
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب ممبرای تاسیانم وصل شدن انگار
-</div>
-
-## tasiyanc — post 5145
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من با ایرانسل وصل شدم
-</div>
-
-## tasiyanc — post 5144
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم وصل شدم با همرا. سرعتش. یکم پاینه ولی خوبه
-</div>
-
-## tasiyanc — post 5143
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔫🧑‍🦱 تبریک به آرسنالیا
-</div>
-
-## tasiyanc — post 5142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من نمی‌فهمم بعضی چنلا چطوری ممبراشون وصل میشن به هات وی پی ان قضیه سفید بودن و نبودنه احتمالا
-</div>
-
-## tasiyanc — post 5141
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمام سروراش پینگ‌ میده اما اصلا چیزی بالا نمیاد
-</div>
-
-## tasiyanc — post 5140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نه رفتم با همراه و ایرانسل تست کردم وصل نشد به هیچ عنوان
-</div>
-
-## tasiyanc — post 5139
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وصله با ایرانسل
 </div>
 
