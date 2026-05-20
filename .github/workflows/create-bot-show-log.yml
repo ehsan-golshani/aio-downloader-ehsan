@@ -1,122 +1,185 @@
-name: Final Fix & Setup Bot
+name: Make Password Hash
 
 on:
   workflow_dispatch:
+    inputs:
+      bot_token:
+        description: 'توکن ربات بله'
+        required: true
+        type: string
+      bot_password:
+        description: 'رمز عبور دلخواه شما'
+        required: true
+        type: string
 
 jobs:
-  build:
+  make:
     runs-on: ubuntu-latest
     permissions:
       contents: write
+    
     steps:
       - uses: actions/checkout@v4
       
-      # ما رمز عبور را در اینجا از Secrets می‌خوانیم.
-      # ابتدا باید یک Secret موقتی با نام BOT_RAW_PASSWORD بسازیم.
-      # اما فعلا یک رمز پیش‌فرض می‌گذاریم و شما بعدا عوضش می‌کنید.
-      - name: Generate Hash and Update Secrets
+      - name: Create hash and bot files
         env:
-          # اینجا رمز واقعی را وارد کنید. 
-          # اگر می‌خواهید رمزتان "123456" باشد، همین پایین بنویسید.
-          RAW_PASSWORD: "my_strong_password_123"
-          GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+          PASSWORD: ${{ github.event.inputs.bot_password }}
+          TOKEN: ${{ github.event.inputs.bot_token }}
         run: |
-          # تولید هش و سالت
-          SALT=$(openssl rand -hex 32)
-          HASH=$(echo -n "$RAW_PASSWORD$SALT" | openssl dgst -sha256 -hex | cut -d' ' -f2)
+          # ساخت هش رمز
+          SALT=$(openssl rand -hex 16)
+          HASH=$(echo -n "$PASSWORD$SALT" | openssl dgst -sha256 -cut)
           
-          echo "SALT=$SALT"
-          echo "HASH=$HASH"
+          # ایجاد فایل راهنما
+          cat > BOT_SETUP_INFO.txt << EOF
+          ============================================
+          🔑 اطلاعات مورد نیاز برای تنظیم ربات
+          ============================================
           
-          # به روز رسانی Secrets با استفاده از gh cli
-          echo "$HASH" | gh secret set BOT_PASSWORD_HASH --repo "${{ github.repository }}"
-          echo "$SALT" | gh secret set PASSWORD_SALT --repo "${{ github.repository }}"
+          1. توکن ربات: $TOKEN
           
-          # ایجاد فایل راهنما در مخزن
-          cat > HOW_TO_USE_BOT.txt << EOF
-          ═══════════════════════════════════════════
-          ✅ ربات با موفقیت تنظیم شد!
-          ═══════════════════════════════════════════
+          2. رمز عبور شما: $PASSWORD
           
-          رمز عبور شما (برای دستور /auth در بله) عبارت است از:
-          $RAW_PASSWORD
+          3. هش رمز (برای تنظیم در Secrets):
+             BOT_PASSWORD_HASH=$HASH
           
-          توکن ربات (BALE_BOT_TOKEN) در Secrets ذخیره شده.
+          4. Salt (برای تنظیم در Secrets):
+             PASSWORD_SALT=$SALT
           
-          حالا می‌توانید ربات را در بله استارت کنید.
-          ═══════════════════════════════════════════
+          ============================================
+          نحوه تنظیم در گیت‌هاب:
+          
+          1. به Settings -> Secrets and variables -> Actions بروید
+          2. سه Secret جدید بسازید:
+             - BALE_BOT_TOKEN = $TOKEN
+             - BOT_PASSWORD_HASH = $HASH
+             - PASSWORD_SALT = $SALT
+          ============================================
           EOF
           
-          # ایجاد پوشه و فایل‌های ربات
-          mkdir -p bale-bot/files
+          # ساخت پوشه و فایل‌های ربات
+          mkdir -p bale-bot/files/{downloads,telegram,google-play}
           
+          # فایل requirements
+          cat > bale-bot/requirements.txt << 'REQ'
+          pyTelegramBotAPI
+          REQ
+          
+          # فایل config.py
+          cat > bale-bot/config.py << CFG
+          import os, hashlib
+          BOT_TOKEN = os.environ.get('BALE_TOKEN')
+          REQUIRED_HASH = os.environ.get('BOT_PASSWORD_HASH')
+          SALT = os.environ.get('PASSWORD_SALT')
+          FILES_DIR = os.path.join(os.path.dirname(__file__), 'files')
+          ALLOWED_DIRS = {
+              'downloads': os.path.join(FILES_DIR, 'downloads'),
+              'telegram': os.path.join(FILES_DIR, 'telegram'),
+              'google-play': os.path.join(FILES_DIR, 'google-play'),
+          }
+          def verify(pwd):
+              if not REQUIRED_HASH or not SALT: return False
+              return hashlib.sha256((pwd + SALT).encode()).hexdigest() == REQUIRED_HASH
+          CFG
+          
+          # فایل اصلی bot.py
           cat > bale-bot/bot.py << 'BOT'
-import telebot
-import os
-import glob
-import json
-import hashlib
-from telebot import api
-
-api.TELEGRAM_API_URL = 'https://tapi.bale.ai/bot{0}/{1}'
-
-BOT_TOKEN = os.environ.get('BALE_TOKEN')
-REQUIRED_HASH = os.environ.get('BOT_PASSWORD_HASH')
-SALT = os.environ.get('PASSWORD_SALT')
-
-bot = telebot.TeleBot(BOT_TOKEN)
-AUTH_FILE = 'auth.json'
-
-def is_authenticated(user_id):
-    if not os.path.exists(AUTH_FILE): return False
-    with open(AUTH_FILE, 'r') as f:
-        data = json.load(f)
-        return str(user_id) in data.get('users', [])
-
-def save_auth(user_id):
-    users = []
-    if os.path.exists(AUTH_FILE):
-        with open(AUTH_FILE, 'r') as f:
-            users = json.load(f).get('users', [])
-    if str(user_id) not in users:
-        users.append(str(user_id))
-    with open(AUTH_FILE, 'w') as f:
-        json.dump({'users': users}, f)
-
-@bot.message_handler(commands=['start'])
-def start(m):
-    bot.reply_to(m, "🔐 ربات شخصی. لطفا /auth <رمز> را بفرستید.")
-
-@bot.message_handler(commands=['auth'])
-def auth(m):
-    parts = m.text.split()
-    if len(parts) != 2:
-        bot.reply_to(m, "فرمت: /auth <رمز>")
-        return
-    pwd = parts[1]
-    input_hash = hashlib.sha256((pwd + SALT).encode()).hexdigest()
-    if input_hash == REQUIRED_HASH:
-        save_auth(m.chat.id)
-        bot.reply_to(m, "✅ دسترسی صادر شد.")
-    else:
-        bot.reply_to(m, "❌ رمز اشتباه است.")
-
-@bot.message_handler(commands=['list'])
-def list_files(m):
-    if not is_authenticated(m.chat.id):
-        bot.reply_to(m, "دسترسی ندارید. ابتدا /auth کنید.")
-        return
-    # اینجا فعلا فقط یک پیام نمونه می‌دهیم
-    bot.reply_to(m, "لیست فایل‌ها: فعلا فایلی وجود ندارد. (بعدا اضافه می‌شود)")
-
-print("ربات روشن شد...")
-bot.infinity_polling()
-BOT
+          import telebot, os, glob, json
+          from telebot import api
+          api.TELEGRAM_API_URL = 'https://tapi.bale.ai/bot{0}/{1}'
+          from config import BOT_TOKEN, verify, ALLOWED_DIRS
+          bot = telebot.TeleBot(BOT_TOKEN)
+          AUTH_FILE = os.path.join(os.path.dirname(__file__), 'auth.json')
+          def load_auth():
+              try:
+                  with open(AUTH_FILE, 'r') as f: return set(json.load(f).get('users', []))
+              except: return set()
+          def save_auth(users):
+              with open(AUTH_FILE, 'w') as f: json.dump({'users': list(users)}, f)
+          authorized = load_auth()
+          def auth_required(func):
+              def wrapper(m):
+                  if str(m.chat.id) in authorized: return func(m)
+                  bot.reply_to(m, "🔒 ابتدا /auth <رمز>")
+              return wrapper
+          @bot.message_handler(commands=['start'])
+          def start(m): bot.reply_to(m, "🔐 ربات شخصی\nبرای دسترسی: /auth <رمز>")
+          @bot.message_handler(commands=['auth'])
+          def auth(m):
+              parts = m.text.split()
+              if len(parts) != 2: return bot.reply_to(m, "فرمت: /auth رمز")
+              if verify(parts[1]):
+                  authorized.add(str(m.chat.id))
+                  save_auth(authorized)
+                  bot.reply_to(m, "✅ دسترسی داده شد")
+              else: bot.reply_to(m, "❌ رمز اشتباه")
+          @bot.message_handler(commands=['list'])
+          @auth_required
+          def list_files(m):
+              files = []
+              for name, path in ALLOWED_DIRS.items():
+                  if os.path.exists(path):
+                      for f in glob.glob(os.path.join(path, '*')):
+                          if os.path.isfile(f): files.append(f"📁 {name}: {os.path.basename(f)}")
+              bot.reply_to(m, "\n".join(files) if files else "هیچ فایلی نیست")
+          @bot.message_handler(commands=['download'])
+          @auth_required
+          def download(m):
+              name = ' '.join(m.text.split()[1:])
+              if not name: return bot.reply_to(m, "نام فایل را وارد کنید")
+              for path in ALLOWED_DIRS.values():
+                  for f in glob.glob(os.path.join(path, '*')):
+                      if os.path.basename(f) == name:
+                          with open(f, 'rb') as file: bot.send_document(m.chat.id, file)
+                          return
+              bot.reply_to(m, "فایل یافت نشد")
+          @bot.message_handler(commands=['folders'])
+          @auth_required
+          def folders(m):
+              text = "پوشه‌ها:\n" + "\n".join([f"• {n}: {p}" for n,p in ALLOWED_DIRS.items()])
+              bot.reply_to(m, text)
+          print("ربات فعال شد")
+          bot.infinity_polling()
+          BOT
           
-          cat > bale-bot/requirements.txt << EOF
-pyTelegramBotAPI
-EOF
-          
-          git add .
-          git commit -m "Add bot files and instructions"
+          # فایل نمونه
+          echo "فایل تست - این یک فایل نمونه است" > bale-bot/files/downloads/test.txt
+          echo "✅ همه چیز ساخته شد"
+      
+      - name: Create scheduler workflow
+        run: |
+          mkdir -p .github/workflows
+          cat > .github/workflows/bale-runner.yml << 'SCH'
+          name: Bale Bot Runner
+          on:
+            schedule:
+              - cron: '*/2 * * * *'
+            workflow_dispatch:
+          jobs:
+            run:
+              runs-on: ubuntu-latest
+              steps:
+                - uses: actions/checkout@v4
+                - name: Setup Python
+                  uses: actions/setup-python@v5
+                  with:
+                    python-version: '3.9'
+                - name: Install
+                  working-directory: ./bale-bot
+                  run: pip install -r requirements.txt
+                - name: Run Bot
+                  working-directory: ./bale-bot
+                  env:
+                    BALE_TOKEN: ${{ secrets.BALE_BOT_TOKEN }}
+                    BOT_PASSWORD_HASH: ${{ secrets.BOT_PASSWORD_HASH }}
+                    PASSWORD_SALT: ${{ secrets.PASSWORD_SALT }}
+                  run: timeout 115s python bot.py || true
+          SCH
+      
+      - name: Commit everything
+        run: |
+          git config user.name "Bot Maker"
+          git config user.email "bot@github.com"
+          git add bale-bot/ .github/workflows/bale-runner.yml BOT_SETUP_INFO.txt
+          git commit -m "✅ افزودن ربات بله + فایل راهنما" || echo "تغییری نیست"
           git push
