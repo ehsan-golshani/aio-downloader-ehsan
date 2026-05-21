@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/31 17:07
+📅 آخرین بروزرسانی: 1405/02/31 20:03
 
 ---
+
+## tasiyanc — post 5271
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش باز شد بصورت محدود 😐
+@StarTasiyan
+هر گیگ 250.000
+با ساب بدون قطعی و بدون محدودیت
+</div>
+
+## tasiyanc — post 5269
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنا کم شده که
+</div>
+
+## tasiyanc — post 5268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑SSH Slipnet 
+🌟 slipnet-enc://AciIHTjr7qI5A0k0SPqC3pnGqdcLkWuwJhHBB7KukJHavticmdAvSES5N+w+jRXgtiu8I546QJE+ZOkJtLv6DQYZBuuUuDTKv02t8crgCNEGzEk/5NjcX+SabRNWAMWV5TuDoUBmxj+iIR02f1MkV6Ke8OkTtD2+0xRkL8QUWoZ56ETRGUsOfE+U+RZ1YrkpuXpUMqyJp/SMNYIK24ppfJ5OeEv3KOqp2…
+</div>
+
+## tasiyanc — post 5267
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑SSH Slipnet 
+🌟
+
+slipnet-enc://AciIHTjr7qI5A0k0SPqC3pnGqdcLkWuwJhHBB7KukJHavticmdAvSES5N+w+jRXgtiu8I546QJE+ZOkJtLv6DQYZBuuUuDTKv02t8crgCNEGzEk/5NjcX+SabRNWAMWV5TuDoUBmxj+iIR02f1MkV6Ke8OkTtD2+0xRkL8QUWoZ56ETRGUsOfE+U+RZ1YrkpuXpUMqyJp/SMNYIK24ppfJ5OeEv3KOqp2dyYARCGdxxVr4ompJfqPQB8jPACg3k5piAWxR71fGGq0IG5nnNv0LD0OAUKvivrpQ1ttmW9XKy8mbWeMCXxb4AsF7RltMZm7dsOro/PYBxVGaIVccxMg7miZCnBAlhbruykbBQ6R3MD1lNZGx9Jj6y8Rd2lVcJ9aQbdU8FnlrtA+V2XBJEgqPFV2r7b/HrzMV+cPpd4YeF6Vo+4/7chlaA36AnWkdqqXbOR88o07cZCQJ4YdvvF5cqpqg+GT9i+YuDzqngXWJS7q4HdO316Re5ZRU5/ELEtu1xpg+Xo
+
+✅اسلیپ نت حالت پروکسی باشه و به پروکسی زیر متصل شوید
+تنظیمات خاصی نمیخواد فقط باید پروکسی مود باشه ارور داد باید چند باهم پشت هم بزنید تا اوکی شه
+https://t.me/socks?server=127.0.0.1&port=10880&user=%40Tasiyanc
+@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5265
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان باخت نمی‌ده عمو
+</div>
+
+## tasiyanc — post 5264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید گپمون خوش میگذره 😂❤️
+https://t.me/+qJ7oM-0GidY0NTY0
+</div>
 
 ## tasiyanc — post 5263
 
@@ -151,238 +201,5 @@ Join as @Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 انگشتتون درد گرفته ری اکشن نزدید؟😭😭
-</div>
-
-## tasiyanc — post 5249
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟NoizDNS SSH 🇫🇮
-
-slipnet-enc://AYcaIB7M6K/mAL8Mo6QDpqmedT7BQfYrpw+uhJVqabq3A7FcytIeFaeNj8+hp9ZyQhTwCkqOM/SwrnkHkylBLWwboJHoenYDKsDE8lIhs7sYWxepqNK4FL+t1DsxNzfHNW8EZ1K87dqoJWD8w2JfYTnkUSl9Ts9IwCjLwRs0BiqWS/P6ElEeG8mvLKWLjk0fwX4hVCTf35x/gha4XhKJthqmVL2VrlNDBZNlE1POt4UTMHFsoyRMq0AazFREVRAy9+07ddMVJedjhRPsxXd1N3n/+1vutykMIseuBdTOBaxSncuswk0PhLL6VZyaasIs4rEHj4nt+oumDvG4KyFzKMkbT9gho4CLmX3rTYecE6+iJsPxKx004fqR0qEhc/Fa8nJzGYcxKEszt6Iic20Z8lIky3tjOKptd0oAXB2bb3aWgk3IwmSLTw65jPakKwkp0A33x5Cw11zbkysG5I/nl5xBdhpRCKkRLgboG+CJIAbxXmCIFqbVoxkntMy9305RQcgkvldxIbRDSQA6f56pWyGjmrMyUFNuek64fuSTOzEgipe8sDTCBrq7co4xRcZKcoxqQEx0jrfgYcBdSh1zjrTpzv/GrvDg9kfs9hF+/2cKiTLDf5Zvavh6+5l+yuwujREfSV7IR9nzo5fXXhexinbMeirW8aDYm0OfqHL0jQfJUHBzx6cMzROauzM4+O1RZZ5DdM1b6vX+giWgoWoufl/z94bmoclrrCNhEI8wBLyKjnyfz5hBPziTfhDAnGocpG2KXCouG4cQR4hOrkGvC3+lwLUsQHie+WZABdeDyvI4uPkgmz8=
-
-Join as ❤️ @Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 5248
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان   📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-Join As 🩵@Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 5247
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان   📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-Join As 🩵@Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 5237
-
-<div align="center"><img src="files/post_5237_tasiyanc_5237.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیدی عددی اکانت طرف 7443787472
-</div>
-
-## tasiyanc — post 5236
-
-<div align="center"><img src="files/post_5236_tasiyanc_5236.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیدی عددی اکانت طرف
-7443787472
-</div>
-
-## tasiyanc — post 5221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tarkibi 🔐 📱
-
-
-{
-"dns": {
-"hosts": {
-"domain:googleapis.cn": "googleapis.com"
-},
-"servers": [
-"1.1.1.1"
-]
-},
-"inbounds": [
-{
-"listen": "127.0.0.1",
-"port": 10808,
-"protocol": "socks",
-"settings": {
-"auth": "noauth",
-"udp": true,
-"userLevel": 8
-},
-"sniffing": {
-"destOverride": [
-"http",
-"tls"
-],
-"enabled": true,
-"routeOnly": false
-},
-"tag": "socks"
-},
-{
-"listen": "127.0.0.1",
-"port": 10809,
-"protocol": "http",
-"settings": {
-"auth": "noauth",
-"udp": true,
-"allowTransparent": false
-},
-"sniffing": {
-"destOverride": [
-"http",
-"tls"
-],
-"enabled": true,
-"routeOnly": false
-},
-"tag": "http"
-},
-{
-"listen": "127.0.0.1",
-"port": 1053,
-"protocol": "dokodemo-door",
-"settings": {
-"address": "1.1.1.1",
-"network": "tcp,udp",
-"port": 53
-},
-"tag": "dns-in"
-}
-],
-"outbounds": [
-{
-"tag": "proxy",
-"protocol": "vless",
-"settings": {
-"vnext": [
-{
-"address": "bab-6.site",
-"port": 443,
-"users": [
-{
-"id": "b585dc5e-55bf-4a8b-913a-27c9ccac05c3",
-"alterId": 0,
-"email": "t@t.tt",
-"security": "auto",
-"encryption": "none",
-"flow": ""
-}
-]
-}
-]
-},
-"streamSettings": {
-"network": "ws",
-"security": "tls",
-"tlsSettings": {
-"allowInsecure": false,
-"alpn": [
-"http/1.1"
-],
-"fingerprint": "chrome",
-"serverName": "bab-6.site",
-"show": false
-},
-"wsSettings": {
-"headers": {
-"Host": "bab-6.site"
-},
-"path": "/vws/"
-},
-"sockopt": {
-"tcpNoDelay": true,
-"tcpKeepAliveIdle": 60
-}
-}
-},
-{
-"tag": "fragment",
-"protocol": "freedom",
-"settings": {
-"domainStrategy": "AsIs",
-"fragment": {
-"packets": "1-3",
-"length": "8-12",
-"interval": "2-4"
-}
-},
-"streamSettings": {
-"sockopt": {
-"tcpNoDelay": true,
-"tcpKeepAliveIdle": 60
-}
-}
-},
-{
-"protocol": "freedom",
-"settings": {
-"domainStrategy": "UseIP"
-},
-"tag": "direct"
-},
-{
-"protocol": "blackhole",
-"settings": {
-"response": {
-"type": "http"
-}
-},
-"tag": "block"
-}
-],
-"policy": {
-"levels": {
-"8": {
-"connIdle": 300,
-"downlinkOnly": 1,
-"handshake": 4,
-"uplinkOnly": 1
-}
-},
-"system": {
-"statsOutboundUplink": true,
-"statsOutboundDownlink": true
-}
-},
-"remarks": "Tasiyanc tkb",
-"routing": {
-"domainStrategy": "IPIfNonMatch",
-"rules": [
-{
-"ip": [
-"1.1.1.1"
-],
-"outboundTag": "proxy",
-"port": "53",
-"type": "field"
-}
-]
-},
-"entryDomain": "bab-6.site:443"
-}
-
-تست کنین ترکیبی بهم بگید
-Join As 🩵@Tasiyanc 
-☑️
 </div>
 

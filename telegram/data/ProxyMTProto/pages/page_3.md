@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/31 17:06
+📅 آخرین بروزرسانی: 1405/02/31 20:02
 
 ---
+
+## ProxyMTProto — post 47496
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sex.etherealvpn.uk
+Port: 443
+Secret: ee0701bd90bfa663c01c08d1e293209e287777772e6d6963726f736f66742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47495
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: win.sosproxy.space
+Port: 443
+Secret: ee477ccce74a28c13a2ef6ec9e01510c3164726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47494
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 2.27.12.116
+Port: 443
+Secret: ee19130c695cf699d93f5a31ecf380d4426d742e736b6f746f62617a2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47493
 
@@ -160,36 +187,5 @@ Server: 178.105.137.152
 Port: 443
 Secret: eeabf13064a3bf0851a02ad67114f842ce676f6f676c65617069732e636f6d
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowaboost.com
-Port: 853
-Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 89.125.17.12
-Port: 45100
-Secret: eebc4dccfbda58d9f3b574dcece8cd54bf6974756e65732e6170706c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47474
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤖 Got a working proxy? Share it 🚀
-Есть рабочий прокси? Поделись 🚀
-
-Start @SProxyRobot, send it in — we’ll test & post it for everyone.
-Запусти @SProxyRobot, отправь — проверим и выложим для всех.
-
-⚡ New time slots are now open for the next days, grab yours before they fill up!
-⚡ Новые слоты на ближайшие дни уже открыты, успей занять, пока не разобрали!
 </div>
 

@@ -1,8 +1,64 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/31 17:07
+📅 آخرین بروزرسانی: 1405/02/31 20:03
 
 ---
+
+## tasiyanc — post 5154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5153
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هات وی پی ان ویروس داره؟
+</div>
+
+## tasiyanc — post 5152
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چرا برنامه هات رو گوشیم نصب نمیشه
+</div>
+
+## tasiyanc — post 5151
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Slipstream 🌟
+
+
+slipnet-enc://AT6bKWyWhFfp2kmUc5BezhfIZ/6ovcMtl0L2GneHixJ8E/qhkAqQyeb1P3xV/aCw3jeBaZ+1v5Z79WMyUjkctQGY4b9ALNjXJLxVEBkDEzr5xo2mw6/Y41qP2RSdBxIxFoY++Fa1KI4PpVv3AEyhOIGjPaSN+fPi7j2HlvmANpdZo68FYyalPK7fzAdgzLiYZJRMaMlFdvxeDWLkp7a8eBk51i6L7oGrYJJduLL+ybHEnacqM2VPHhtdpTRM3D4MvE8DxaDqhTN7JyKtM01GEAx1/70ai6R00zKT2qQ4mxslTAgUf5P+lQnhD2AV4pidaVrJSNafEU0S4/JJ0ZVEg3fjAA6sZW6Nk1frB0XVKg4QHbrAzFHt93YtIOYrKRIKF1d/E/BUhtw1zQUaFXmteu0521mDFXIQpTkv+q4SY/EhCE6mGpKl7gEpa72eZxlfeAdVA3sLuyN8SMZWxNAL0zJAyWey/oj9J8JrGl0WIirlqlSv6TdLvHEae/xBWD8dbsNDshZ5NTMogiRlkMiVAuWRKebOrbN/pFIbafT+VIaOndRZJypWC4pSFNd3pZlJ8txZKw9Q+mEHDySWmnXXTVjziitfc6R1bJwSVFdxg/JHP66L7/2wfCAQyTHnWQK5hQgWaI+Sh+Swmg==
+
+@Tasiyanc 🤩
+</div>
+
+## tasiyanc — post 5150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5149
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛡 🌟
+
+slipnet-enc://AT6nzi8QS96ebf5YPviKL3DIi0URVVoA9fKcTUQfjOpRCQrrh/xh/45cASeRvmTI62I/MZkALJ2tMwgq3CFxAAP5AmzcW0lw369tYLvO++gS69z9waESl/VU1DARtOujlHArhpb2QuIEsYJY6Vi3DSSkCvH6IJIkMpZ9Hl/jbjJeWgWEN8QbIsGVqpXezKm0odfAw6pZM4iuJe8O1GANa38qxI2N1/osHiL0VV5q5Qql9njt9MchLKs0a0ne/PK7QyU3JHqpwA7ANOhfjcbNdm+JKxwumqcuKgJHaoiHeXYiVqB2Yf+uY3x4CEIRYi+NQYp6xv8n+bn4jdij81EllqYB/6obT5itU8diWzlVMJZNLroJvFwy/HqOz1IBSeHZ6fp2Jcd4IQ9qhfeoRHBBTmc+gqguAzlZxyIlU9VovZ155v9vMOLFDaftb9eDuKiO3Jtdj27nPTgN+sizmEYUypRcTLG1SyBpks/8RSRuUhSpBR4T//HoHcZwNkxaFLM87byx3Ss8L1D4JVz46x758hepvoxyqwsXuzOfW+driTDNLpsM9LYyJu2xi8GWzc5/jVHHCYnlwV0JDtrWwRWUTisu5AHD0h+3Qo9TVPg1FcqiJ95aLf9jBMe4a1dTCoS7RFJYoL0Cnw9MJGRInsvUTFu/6kgVa5RxTMM7LqPjytEVNlvMGSbBn5WWP37wPYBRJnDddwAuwtQNjJexUceB1ysfXT7fZ4vv9xvRLphOlFTkRkX9OcUsQKBe+G3t+vkuXBnO7GM=
+
+slipnet-enc://AZWHehUAJK6RDRWDnjlb0p2ilOu+IqhbAdw5RU8uHplJBhPjCSm5mRFdeWXP4bVB7VnXxGkhyF4HwexONkyEKBqcE5MUkENxiq/c4AiH2l8wVXeMxjlA9lUxCUi//VQKSttPLuZUwI4b9Uz+PkGEk9ZyNLiad09qxhC7jqk9poL2zGE0vnoj0NmnfdGUnMyuSDi4hiO21Shy2Jdtc7B1jCKLPGjQzucHVS+If/pUwWHhw6NTTfsd0dDrSSpdWRfZQugAIkyFXtyfu3SRwwMOeGQaUBM2ylRI7UmwyUvmQxfZ1dvK8Imu563xrP4IrCECoYg+DsGXucCx20U9C9WRunA/QdOruZ2t9t0E0mx99AbbGQTdhdCyipSGrlvP3WFuOP3JObeF+hVb6ExEv+KKyCGv+6UBtEdMnO9Njo+v0w9fHy/lolS5P5J6bSq1GEsj3vjt+qVoFKY6opmlpOoSHlHFmW2uspyYcaEERoSuoIr1ja8HgJ4Ls6u6kbJxMC2dqRqKWJTCgAv6u+dJnTfKVDty4iCnX2byXctBKWDHHsklR1Vs2/BC9zp+V5vxX5p0Dh/JnZGbVtF0YSlGzg6RU1QMFfNSWMx7Ozfo6wXYNvwjAqnFLvPDmmAflwFxVCXusD1mNBZ2mzUlaJQLfLvoVUVdYJ//t5o+5Isky2Eqt8WM2OWqABQJp6AdlMMmNx3NusgI6+OXadGt8cJSaJYdnR94DiNH4VGNH6igypzFY6A8M8X75KWjN174vZohPt4SNyhK
+
+آموزش سایفون
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 5148
 
@@ -95,75 +151,5 @@ https://play.google.com/store/apps/details?id=com.hotcodes.hotvpn
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خودم وصلم الان
-</div>
-
-## tasiyanc — post 5134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با این پینگها وصل نشه ۱۰۰٪ منطقه ایه
-</div>
-
-## tasiyanc — post 5133
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑 185.143.232.122 5.160.13.85 5.160.13.85 185.137.25.214 81.91.145.2 185.137.25.214 81.91.145.2 81.12.72.218 81.91.145.2 5.160.13.85 @Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5132
-
-<div align="center"><img src="files/post_5132_tasiyanc_5132.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑 185.143.232.122 5.160.13.85 5.160.13.85 185.137.25.214 81.91.145.2 185.137.25.214 81.91.145.2 81.12.72.218 81.91.145.2 5.160.13.85 @Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑
-
-185.143.232.122
-5.160.13.85
-5.160.13.85
-185.137.25.214
-81.91.145.2
-185.137.25.214
-81.91.145.2
-81.12.72.218
-81.91.145.2
-5.160.13.85
-
-@Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5130
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IP new
-
-185.137.25.214
-5.160.13.85
-81.91.145.2
-5.160.13.85
-185.137.25.214
-81.91.145.2
-37.255.133.30
-172.237.127.6
-185.200.232.43
-104.103.65.5
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5129
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2.19.205.58 🛜
-Location 🇩🇪
-
-ایپی و لوکیشن سامانتل متصل شدن ۳ ثانیه 😎
-
-
-@Tasiyanc🤝
 </div>
 
