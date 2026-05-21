@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/02/31 20:03
+📅 آخرین بروزرسانی: 1405/02/31 22:00
 
 ---
+
+## tasiyanc — post 5001
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑
+2.23.168.213
+2.23.168.96
+2.23.168.47
+2.23.168.174
+﻿❤️ @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5000
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑6️⃣
+
+94.130.50.12 94.130.70.160 138.201.54.122 95.216.69.37 144.76.1.88 94.130.33.41 65.109.34.234 142.54.178.211 63.141.252.203 2.23.168.144 2.23.168.47 2.23.170.80 2.23.168.213
+
+@Tasiyanc 😐
+</div>
 
 ## tasiyanc — post 4997
 
@@ -166,24 +187,5 @@ Margaret.npvtt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🕊 VyDns udp 🇮🇹 VPN mode slipnet-enc://Ads5sx+yoqI9uH2GLG5T7vJ3TUf/4Aq7gBGkHrXzLTr6zNLSDkyzW3TFUDiQm8BD9Y5Wtbn9D+P1M1R+m7YKSIRGreyo9Cpco1wq9srvSuTweVesC+M0lPo0e+L4nh30bTy0+t6vMKTX772cg943uf/HGl4Bh7Blt2hB7Es85DwcXSSEmq5sD4DimMW+D4vUKr3HUrqVmQ4aV0KR3PcA…
-</div>
-
-## tasiyanc — post 4979
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🕊 VyDns udp 🇮🇹 VPN mode
-
-slipnet-enc://Ads5sx+yoqI9uH2GLG5T7vJ3TUf/4Aq7gBGkHrXzLTr6zNLSDkyzW3TFUDiQm8BD9Y5Wtbn9D+P1M1R+m7YKSIRGreyo9Cpco1wq9srvSuTweVesC+M0lPo0e+L4nh30bTy0+t6vMKTX772cg943uf/HGl4Bh7Blt2hB7Es85DwcXSSEmq5sD4DimMW+D4vUKr3HUrqVmQ4aV0KR3PcA9g6DJ6H3NoxHn9m2awG3f71ko9WrTI+YOtku+/wzwjYUPvBjw6mu3KmarlXMlbDu3JhYPTKU6O4pGSZ4nK0r8kk80fVML3kjX/DfDjD2pA0fWUjIKmz/SjDcA3y/kNIyhCTfF31aHHzvv0NVKtNSm+FytIYYILk/jmTIQGDYkmjVuRFSn2gRHVs0KIZpUv3gHiMcE0LtJE2F7e+iF6ZKHp09JoccKoMtwGSGWNWviYS4BUVuPg0bzerHvpUlyJ0iYp6pv4nwQi09R6kz2DB8OkulgFt+5wiwtTY0QRO576tbRA5pWqI8v9WVWUwTz6hvYTIRK0SXvv2fgSa/LZwEVLWqybn4gYzZAD/DySrA/mlhzitSpmhb4UlKpkmoBoG/X/5QWgsJsSveN+UjxEz6VTux40L9JegE9EIYRiwUQRRyY/hMIL+pwHUJ5+loiLnPy+y4c9bHDiinvFbtvnYwJPVxCUtsSlPor21bRYfn+K1lDNtoDAPy0/HGhdYjKe2bNB2wZ27nDCTC0+IVXmTqh6MHdGpsFoEb1IbBE8bE41472E9sjLst1sL3
-
-✔ Setting For Slipnet ✔
-
-❤️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 4978
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه روشی هست تست کنم روی شیرخورشید جواب داد میگم
-شبیه ترکیبیه
 </div>
 

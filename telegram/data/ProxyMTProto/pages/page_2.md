@@ -1,8 +1,22 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/31 20:02
+📅 آخرین بروزرسانی: 1405/02/31 21:58
 
 ---
+
+## ProxyMTProto — post 47517
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 Хотите клиентов, а не просто просмотры? Want real users, not just views?
+
+📊 Тысячи активных пользователей каждый день / Thousands of active users daily
+🎯 Реклама, которая реально даёт результат / Ads that actually convert
+
+🚀 Ограниченное количество мест / Limited ad slots
+
+📨 Напишите сейчас и забронируйте размещение / Contact now to book
+👉 @Ads_ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47516
 
@@ -183,14 +197,5 @@ BLYATNET всё ещё онлайн ⚡
 💀 Подключился и забыл
 
 💫 От 5 ⭐ — дешевле чем стикер
-</div>
-
-## ProxyMTProto — post 47497
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rkn.prxtoday.space
-Port: 443
-Secret: eee905e5553bb4da46367bc56513a43d36726b6e2e707278746f6461792e7370616365
-@ProxyMTProto
 </div>
 

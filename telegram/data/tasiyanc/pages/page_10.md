@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/02/31 20:03
+📅 آخرین بروزرسانی: 1405/02/31 22:00
 
 ---
+
+## tasiyanc — post 5043
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 ping 100 - 250✅ 🛜🛜📶📶
+
+
+185.89.22.73 185.89.22.210 185.89.22.10 185.89.22.71 142.54.178.211 151.101.128.223 151.101.192.223 185.200.232.42 185.200.232.50 185.89.22.66 63.141.252.203
+
+@Tasiyanc 🐾
+</div>
+
+## tasiyanc — post 5042
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنظیمات سیمکارت 🛜🛜🛜 APN Name Google.com APN Google.com APN protocol Just  IPv4 🐾 Shir khorshid Sni: 🔹Google.com رو ایرانسل جواب داده ، بقیه اپراتورها هم تست بزنن @Tasiyanc 🔥
+</div>
 
 ## tasiyanc — post 5041
 
@@ -313,31 +330,6 @@ IPs 👑 new all operators
 
 
 📶 اختصاصی تاسیان 3 سرور فعال 
-📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
 📶
 
 برای اتصال پایدار صبور باشید 😐

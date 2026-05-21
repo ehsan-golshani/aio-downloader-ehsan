@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/31 20:03
+📅 آخرین بروزرسانی: 1405/02/31 22:00
 
 ---
+
+## tasiyanc — post 5251
+
+<div align="center"><img src="files/post_5251_tasiyanc_5251.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این تبلیغات ها متعلق به ما نیست و کلاهبرداریه مراقب باشین
+</div>
+
+## tasiyanc — post 5250
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انگشتتون درد گرفته ری اکشن نزدید؟😭😭
+</div>
 
 ## tasiyanc — post 5249
 
@@ -350,21 +364,5 @@ slipnet-enc://AeMf7mMr1HJGkag2PSChX/pjKeXDxb16uNfYxvob0gHrIthcqDq9Q+KhESEAmFqoBA
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc ✍🏻.npvt
-</div>
-
-## tasiyanc — post 5208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با وجود اختلالات شدید همچنان در تلاشیم وصل نگه داریم عزیزانو ، کانفیگ ها تست شده ان چون اختلال زیاده کمی زمان بره بیاد بالا پروکسی گذاشتم براش ، امیدوارم وصل بمونید ❤️
-</div>
-
-## tasiyanc — post 5207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 اختصاصی تاسیان تست شده 🔐
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید و از [ پروکسی ]   کمکی استفاده کنید🚀
-
-Join as @Tasiyanc ☑️
 </div>
 

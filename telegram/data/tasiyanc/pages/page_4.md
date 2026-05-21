@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/31 20:03
+📅 آخرین بروزرسانی: 1405/02/31 22:00
 
 ---
+
+## tasiyanc — post 5184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs Ping 56 ✅
+
+5.160.13.85
+185.88.178.196
+185.208.175.228
+164.138.17.122
+185.137.25.214
+185.208.174.167
+185.50.37.52
+185.141.106.238
+5.160.13.85
+37.191.95.70
+
+@Tasiyanc 🤩
+</div>
+
+## tasiyanc — post 5183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید 🚀
+
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5182
 
@@ -162,21 +192,5 @@ Join As @Tasiyanc ☑️
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🆕 قاتل الهه حسین نژاد امروز صبـح اعدام شد
 @Tasiyanc
-</div>
-
-## tasiyanc — post 5157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما اندازه اینا تو چنلمون کس بگیم همه لف میدن
-</div>
-
-## tasiyanc — post 5156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان 5مین بدید😐
-
-@Tasiyanc 🩵
 </div>
 

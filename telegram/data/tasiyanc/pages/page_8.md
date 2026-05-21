@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/31 20:03
+📅 آخرین بروزرسانی: 1405/02/31 22:00
 
 ---
+
+## tasiyanc — post 5088
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5085
+
+<div align="center"><img src="files/post_5085_tasiyanc_5085.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داداش دمت گرم ، خیلی خیلی درجه یکی
+پولی ها هم اینجوری نیستن ، خدایی خیلی خفنی
+سر سلامت
+</div>
 
 ## tasiyanc — post 5084
 
@@ -258,36 +278,5 @@ slipnet-enc://AQ/qrKVKYlb8eSFGTSbNS4J31e4prUy7HsbAD4q0rioEpBn8aUlOXJvtoYH+5VqiBA
 
 
 ❤️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5065
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار 5 دقیقه زمان بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🐾 اسکنر فوق پیشرفته بدون خطا IP برای شیرخورشید
-
-✅ دارای لیست رنج‌های آماده و پریست‌های اسکن
-✅قابلیت انتخاب CDN های مختلف و هاست‌نیم‌های SNI
-✅خروجی راحت به صورت متن، فایل اکسل و بارکد (QR)
-
-1⃣ فایل بالا رو با مرورگر و بدون VPN باز کنید.
-
-2⃣ از بخش «انتخاب CDN» سرویس موردنظر و هاست‌نیم SNI پیشنهادی رو انتخاب کنید
-
-3⃣ از بخش «رنج‌های آماده IP» یک رنج انتخاب کنید، یا به‌صورت دستی آیپی‌های موردنظرتون رو داخل قسمت «لیست بازه /ip» وارد کنید.
-
-4⃣بعد از اتمام اسکن، لیست آیپی‌های سالم در پایین صفحه نمایش داده می‌شود. آیپی‌ها را کپی کنید و داخل برنامه شیر و خورشید وارد کنید
-اسکنر قبلی 🤩
-
-🐾 @Tasiyanc ☑️
 </div>
 

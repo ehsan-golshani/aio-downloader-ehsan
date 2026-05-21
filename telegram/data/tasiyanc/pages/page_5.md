@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/31 20:03
+📅 آخرین بروزرسانی: 1405/02/31 22:00
 
 ---
+
+## tasiyanc — post 5157
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما اندازه اینا تو چنلمون کس بگیم همه لف میدن
+</div>
+
+## tasiyanc — post 5156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان 5مین بدید😐
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5154
 
@@ -133,23 +149,5 @@ Hot Vpn APK 🥺
 
 لینک داخلی
 @Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥Hot vpn
-
-🔹برای یه سری میگن وصله - ولی خودم تست کردم کانکت شد بالا نیورد تلگرامو
-دوس داشتید تست کنین
-https://play.google.com/store/apps/details?id=com.hotcodes.hotvpn
-
-@Tasiyanc ❤️
-</div>
-
-## tasiyanc — post 5135
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودم وصلم الان
 </div>
 

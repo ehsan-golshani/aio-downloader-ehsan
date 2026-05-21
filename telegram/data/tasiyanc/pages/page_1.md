@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/31 20:03
+📅 آخرین بروزرسانی: 1405/02/31 22:00
 
 ---
+
+## tasiyanc — post 5273
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💩WhatsApp proxy
+
+https://wa.me/proxy?host=127.0.0.1&chatPort=10880&mediaPort=10880&chatTLS=true
+بعد اینکه به اسلیپ ما وصل شدید ( واتس اپ حتما تانل باشه) میتونید برید استفاده کنین
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5272
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+21 k ❤️‍🔥
+</div>
 
 ## tasiyanc — post 5271
 
@@ -187,19 +203,5 @@ Port: 8080
 
 Join as @Tasiyanc 
 ☑️
-</div>
-
-## tasiyanc — post 5251
-
-<div align="center"><img src="files/post_5251_tasiyanc_5251.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این تبلیغات ها متعلق به ما نیست و کلاهبرداریه مراقب باشین
-</div>
-
-## tasiyanc — post 5250
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انگشتتون درد گرفته ری اکشن نزدید؟😭😭
 </div>
 

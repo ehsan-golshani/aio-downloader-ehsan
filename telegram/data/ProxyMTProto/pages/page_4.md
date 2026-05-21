@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/31 20:02
+📅 آخرین بروزرسانی: 1405/02/31 21:58
 
 ---
+
+## ProxyMTProto — post 47477
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 178.105.137.152
+Port: 443
+Secret: eeabf13064a3bf0851a02ad67114f842ce676f6f676c65617069732e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47476
 
@@ -176,15 +185,6 @@ Secret: bfb063cc6d861de10f6a39c795fc66e4
 Server: 186.246.16.55
 Port: 443
 Secret: ee7d21ac88a75bdb5887ec4918a20386927777772e6d6963726f736f66742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47457
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy.nexorabust.ru
-Port: 443
-Secret: dd1cebd1dd4f8441f8af01177087ee9918
 @ProxyMTProto
 </div>
 
