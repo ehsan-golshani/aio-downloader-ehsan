@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/31 21:58
+📅 آخرین بروزرسانی: 1405/02/31 23:55
 
 ---
+
+## ProxyMTProto — post 47519
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hop3.proxytg.space
+Port: 443
+Secret: ee8e8e148190ecbc4cda5090ec52e9613e6d61782e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47518
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowaboost.com
+Port: 853
+Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47517
 
@@ -174,28 +192,5 @@ Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47499
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: alpina.hatecens.cc
-Port: 8443
-Secret: ee3402ba73468309ea53338f1eb8ecea0c616c70696e612e6861746563656e732e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47498
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Telegram снова лёг?
-BLYATNET всё ещё онлайн ⚡
-
-🚀 Быстрые VPN и MTProxy
-🛡 Стабильный доступ 24/7
-🌍 Нормальные сервера, а не помойка
-💀 Подключился и забыл
-
-💫 От 5 ⭐ — дешевле чем стикер
 </div>
 

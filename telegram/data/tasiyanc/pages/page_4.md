@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/31 22:00
+📅 آخرین بروزرسانی: 1405/02/31 23:56
 
 ---
+
+## tasiyanc — post 5192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرورها نامحدود و سرعتشون شاید مورد پسندتون نباشه ولی با توجه به اختلالات شدید حتی اگر تلگرامم بیاره بالا خیلیه
+۸۰٪ کانفیگ پولیا دچار اختلالن
+</div>
+
+## tasiyanc — post 5191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀
+
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۲۰ کا شدیم ری اکشن نداره؟
+</div>
+
+## tasiyanc — post 5189
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💦20 K ...⚫
+</div>
+
+## tasiyanc — post 5185
+
+<div align="center"><img src="files/post_5185_tasiyanc_5185.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs Ping 56 ✅ 5.160.13.85 185.88.178.196 185.208.175.228 164.138.17.122 185.137.25.214 185.208.174.167 185.50.37.52 185.141.106.238 5.160.13.85 37.191.95.70 @Tasiyanc 🤩
+</div>
 
 ## tasiyanc — post 5184
 
@@ -139,58 +177,5 @@ slipnet-enc://AX3z8tTh/X9om0T2Ji+iBGSVRwdgrd1yorYs54KFL1IhoRved1A3EZ/8Hb6WcVweh+
 برای اتصال پایدار زمان  بدید😐
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5162
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان  بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥HOTVPN فایل سالم
-
-بعضی سرورهاش وصله
-البته بنظر من واسه همه اوکی نیست و منطقه ایه خودم تست کردم نتیجه نداد 😂
-
-دانلود با لینک داخلی ⬇️
-
-دانلود از گوگل پلی 🕹
-
-دانلود از اپ استور🍏
-
-راجب امنیتش اطلاعی نداریم 😍
-
-Join As @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5159
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روح بانو الهه در آرامش 🖤
-روحش شاد و یادش جاوید در دل ایرانِ تاسیان 🏴😭
-</div>
-
-## tasiyanc — post 5158
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 قاتل الهه حسین نژاد امروز صبـح اعدام شد
-@Tasiyanc
 </div>
 

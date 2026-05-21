@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/31 21:58
+📅 آخرین بروزرسانی: 1405/02/31 23:55
 
 ---
+
+## ProxyMTProto — post 47539
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: alpinavpn.hatecens.cc
+Port: 7443
+Secret: eef8dc254a4c2af8afcab54c8a5f9bb4fb616c70696e6176706e2e6861746563656e732e6363
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47538
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowabst.com
+Port: 853
+Secret: 7t16ej1vTPH3w_rpz_KLc3lhZHMueDUucnU
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47537
 
@@ -168,24 +186,6 @@ Secret: eec485b564c0178c338d8bf4f3f17539c4613234382e652e616b616d61692e6e6574
 Server: s3.neo-trading.org
 Port: 443
 Secret: eec3fefd89a25d37ca3af1a602c7bfd8de79612e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47519
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hop3.proxytg.space
-Port: 443
-Secret: ee8e8e148190ecbc4cda5090ec52e9613e6d61782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47518
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowaboost.com
-Port: 853
-Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
 @ProxyMTProto
 </div>
 

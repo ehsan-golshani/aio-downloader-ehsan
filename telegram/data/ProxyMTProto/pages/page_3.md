@@ -1,8 +1,31 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/02/31 21:58
+📅 آخرین بروزرسانی: 1405/02/31 23:55
 
 ---
+
+## ProxyMTProto — post 47499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: alpina.hatecens.cc
+Port: 8443
+Secret: ee3402ba73468309ea53338f1eb8ecea0c616c70696e612e6861746563656e732e6363
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47498
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Telegram снова лёг?
+BLYATNET всё ещё онлайн ⚡
+
+🚀 Быстрые VPN и MTProxy
+🛡 Стабильный доступ 24/7
+🌍 Нормальные сервера, а не помойка
+💀 Подключился и забыл
+
+💫 От 5 ⭐ — дешевле чем стикер
+</div>
 
 ## ProxyMTProto — post 47497
 
@@ -168,24 +191,6 @@ Secret: dd2ed7517b077ef414e24b106e0729335d
 Server: 78.17.71.42
 Port: 443
 Secret: eeec75b855ebcc01c982f3e013af8ed92a7777772e79616e6465782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47479
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hl.routefastnet.online
-Port: 443
-Secret: eea9a5f5674069d982088b5ad27dca4584686c2e726f757465666173746e65742e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47478
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.16.221
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c99617669746f2e7275
 @ProxyMTProto
 </div>
 

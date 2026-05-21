@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/31 22:00
+📅 آخرین بروزرسانی: 1405/02/31 23:56
 
 ---
+
+## tasiyanc — post 5256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟DNSTT Tcp 🇮🇹
+
+slipnet-enc://AZI/N8P2QvvBOkua2/ZRsw0uM+1AfPidnFO1H+SgljhmT414J6+24lu4HSBQIOgxqVMVgrNCGm6KJKZQrosHcmiatAeY7yags9/pDR62r3D3T9r5ZWug7dJRefVUse/EI15oOv2kjJZ+1M5w8a8+Wi54ZrZJomYXMcDJtwp/H7tVyU9gpTRvcU36BcT3dxFRcWAaBwiqHYm5PDFrqMdKSWeDdRcu0lkZkVA95QAOoqWcW/SBIZb+cFbkPXJ6Ru3RZWNf5mOgwxFr63zg++2Il7qpxyKWl+GUEv+KlNs4R9e8la3Besne2JvTa9Gfc+a5Bc3P4txQd1oF8FaPQPg3KisJ0KDyqOzK2EpNLmpn8uF2pcMasMyEWpWf6nP9lh6s8QcmLApfS9WpFZiuCrnVuV3wEHHy9fQy28imb1sI93HuGYpIzoEOGghO1ihE3+GyXVsFwbRmkgmvMbeGzF6ZERmvRy0RFm5EbsvhWI700s6ins7Tvmy9FG9cuUnruZ+zYfI5v2VI+2gkmTOYuhqrI9PJoLbWw9yc59WDe1Ni1/F2pzkzShRqpXHfmIwgSj9L1KUE0QvjWguX8Rho7eSMNtAmxw2v6WAVecNF+8+IuYtrSwGZH7iVZrfphzF2bcQwPpr6kIkWwNwhQyraJZXhKbf3e9HA6lk1WRUt+Gs/ITTJ9WmPRbdd9et3teakWGQRfIUqNM9NGSwwfg9snTbr1mpimkfqrkf9gvOYczuVPz3RkRAQUtAGkaIM6e7gLpNovQefdrI1/MVX6YhcfGGlse7cgJhrgRGm55xk
+
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs - ping 67+
+
+93.118.137.14
+80.210.57.117
+185.55.224.103
+185.192.113.108
+185.120.221.84
+178.22.122.102
+87.236.211.119
+185.140.4.66
+81.16.121.124
+5.160.211.218
+
+اسکن ۳۰۰۰ هزار آیپی و بهتریناش خدمت شما
+Join As @Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5254
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+MCI IPs Ping +80 🦦 92.123.106.90 92.123.106.43 92.123.106.11 92.123.106.42 5.160.13.85 78.157.41.60 37.191.95.70 37.191.76.110 80.191.243.226 5.160.128.142 ✅Proxy setting Hostname: 217.219.133.161 Port: 8080 Join as @Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5253
+
+<div align="center"><img src="files/post_5253_tasiyanc_5253.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+MCI IPs Ping +80 🦦 92.123.106.90 92.123.106.43 92.123.106.11 92.123.106.42 5.160.13.85 78.157.41.60 37.191.95.70 37.191.76.110 80.191.243.226 5.160.128.142 ✅Proxy setting Hostname: 217.219.133.161 Port: 8080 Join as @Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5252
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+MCI IPs Ping +80 🦦
+
+92.123.106.90
+92.123.106.43
+92.123.106.11
+92.123.106.42
+5.160.13.85
+78.157.41.60
+37.191.95.70
+37.191.76.110
+80.191.243.226
+5.160.128.142
+
+✅Proxy setting
+Hostname: 217.219.133.161
+Port: 8080
+
+Join as @Tasiyanc 
+☑️
+</div>
 
 ## tasiyanc — post 5251
 
@@ -318,51 +389,5 @@ Join as @Tasiyanc ☑️
 slipnet-enc://ATf7my1QlphNrQKA889SRsGki4AZvSLx4SDmE515JrRJP0/EgyXdR+YxlPrdDrfEZ4j2dwMLGq+/lK2F6LCDA5jjJjzPnxl5nzW2n8RVU9qq4aSzE92Zeumrsv06uydZD5lMrDt50lu5YpPDtrlw0RGW3499XZBI1gol0Tzhk5uKQ2ORy4Wt1s7+y/LlCrWy/hgVgF09GaFzTg47WHxd0Cs+B3tv5m4qOHMhnAx/UH4amgqB7D8bDm8d+DiHA8WLP7uLbVEbPREMWSw3PTCwFYgn1ZMOJYXhzWDzXBzzCMp9qyUoLVvZT0V6scm//TRWnqtgO6IE98wGwH8MN6ROsr7awGgmX/iEvIJp4mH0cDapt+gb/BZKysJBhFSAp5wwV9SCpDRfr4wL49dBIJyGPuvijJUdT7hhCRwsrdejICQEW4HJJS+ZTUB1b4pNdF3yFayMoqKMrCzyISW+onPYCbAOz89Gn4D/1O1rEPU6P71Rh+KkmYVAo/vjU+s6eg==
 
 Join as @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛡 🌟
-
-slipnet-enc://AVE7PohoSt6uWpl0QeAEtPG5bxVDAPlYcE1llXvA07obK3p9Dsq+eOXsO71j+KVLSOYSQCUIGT8vZBUzsX18MW6Hki6ORP0j/H5AsYI8wDg7PXD+7Gn53MvECyaq8P60WglUC/lhiI44/pV8EdaX4ueaC5JqTchJD9k3orRk7Goagc6GbpT/ji+UVq3TohdsLITtDTshOBpgDlXdwTLvpYBiqlPRKFbL8ley3ebEZBV7yM//XzHZZjOPpRwAtWVYWGRGK2kjqiXwHGwQbSzGOdBNn8jOF//65YDYRPfhKjBY2DAXmHrTCRxTjrnYgaZfXVLT6ZWHF8JiOYHzm3JEckLUur/I4TjC56l2W2sYU9M3rETHXy3RmoljEaoBntZ9Ye0cuqMr+sTI0VP68d0iVtWiohHZbKut6FEygSiSR7YTuQPHBA9Tf2QkmpcoDtTiwJlZVM/aPnZc5UGK8npKC7qxSn/aqkjBOuiku6AC3bnntbed/FX0KTJPsjuRutskErUF+XH7Cdn6mtZGb3hR/GAOa2IIYN0uEv12eOthBcXwisA30/sLFNG4CLcfEDazZ9zFpAoyb8gstxhr1LoMGrXvGDX+94E9ZWSgAmTmg7+1Kc802pBXSv/MPUTuNKcS+JTK5KUAFWIcj0fTgHBec+OYXmJ88ikVRG6JX5ZEWCtO2ZBkWxN7aJbxw3yoxiNI6WTybsh7y2B7v4U2eYImSSuNIoOdnOwzNqfF9zGut3PZRhMvHekz6M0m8PzrO4ZR2wcgz+5FspM1
-
-slipnet-enc://Ae1bdKnKMaAVkhaVFC0tbxojRNyFsnzAJMmpy2J6CMVK9pr2XDYzhVKFtggjvaqZptGN8hBUKLoRaToIiq9j/7NfMygv6iyp4vlge+HVX4OJiQNOhLjr+8srmXWvPl+LFpxxETJxsrC+PAy88KyAK1lSMK+3Yih4zwYyJc5NKK5+fROZC0BlCTcF8Qc2NghIi9clKifxepEF9/4JPoH5m/CAXmaR8jv+5qPE3bUOZGXbDpeE4lIXKNNRRc6NP828x1WV488NnDy9YIoaA5u3jzLg0TMpEVOP8cDx6sF5NWd6KRQOc8TTxSZbV6f+Muj8R/gWUxilJ+0uPQCYXqUPE863iaA8hMDVtSKMe8lpx634HLEzAexonsY+ILhzj2rlcPDoPzC7neH28xZMCZsJl82ensR02/LSp2DUeVMlwtWPF3Bn1vH8600GBj3QFK2NvtieZ9w+nLmpm24IP7aCca8a0rYecupB0ZZr0jhUOxpUbcxC6FOIUcB9PiRPVv6K5Ie5AGi6ZUDsq3dc0en0s/mFVqz7HtkelrBDT2jf/zLrXNgVQVEZBNev0lVYLlEerXAzXKkprSYzIc09MB0m3Ie4ZM8bdwr2BQ+jWuhPUanyUM9JVFlFsFha3udIz95MnaHTyP1F3C0yUoZJrJiim+BTXOgM7w62j7oTumXSmgTRiCFhOefgeDpgagFlEbMyhjgxjwAbGphX14bPzr6zjq9X+TE4UEUopO072L4iSAKyS6dW9EdQPOzcxrsaO8W98YtwUu+3
-
-آموزش سایفون
-
-🤩ترکیبی بزنید با سایفون اگه وصل نشد مود پراکسی یا vpn تست کنین
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 5212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان وای‌فای 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5211
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DNSTT 🇧🇪
-
-slipnet-enc://AeMf7mMr1HJGkag2PSChX/pjKeXDxb16uNfYxvob0gHrIthcqDq9Q+KhESEAmFqoBA7oIn2W/MOscZFxmb5GSwSs80G2A7hZRrIrlrHdrO0BRu7OnWvmtCUZ8BEYvjJoWab+ZllFgbkWKyE12qHq5fIzbnoXSCAtYAenTPV1DRjMvDFjJOdZ1Vi6VU67aLU65WVaCLXnoEKhMVNJC7tqfxZrReH68dj+G8yFLG0dV6HWxneSULjH/cWbpX22y5RzIPqEFa6XI16rADLLqYerGUJt+Rv6LHhq+sJf3LSwwvjaIcfy/9Us+kUp3QaY/4pGdeDZto6HxUt6eXR/AqE1Q/IkaMEkyeVP+fv6BLXcEGB11XGmWtZsHtxMv5llboIkwqAsgBgV83tVTCjJ5AbVUAVWG0IkTC5CZGljA47gJpW021A0pJ53sLAed34EJPdf3Oxuq2+OHfubOdkD4sho/lDOzJKnDKf7jPW1dSVdb/9IjlIdpdZR97KE1YZuNZ9NyiX8NfZybSKy55D1Tc5T56FkaHamqK+gZlCyduL9UrBsQv3NLlnzLx8j2e4hWSx0p8vlMxwuwTOuBneVSsGs7dsuxUixJyvzWFuMRSVh8rL59Vw9wT/qURSKbAka/7TyTayQ3B8RVbuzKBfQVD7UR5fQ7LiAbwq8SR7PaErA1PRdtS0CXfrn7Kee/C6UP9UClTyBU4Iy+LNRHDOpbLqBRhpbsfmXEp0iqJV2Ta37d8oEnYqnCYYA2olsaNr2ht+ly2PvPa50fZhwP9X5rEGunaoL
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5210
-
-## tasiyanc — post 5209
-
-<div align="center"><img src="files/post_5209_tasiyanc_5209.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ✍🏻.npvt
 </div>
 
