@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/31 23:56
+📅 آخرین بروزرسانی: 1405/03/01 01:36
 
 ---
+
+## tasiyanc — post 5146
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب ممبرای تاسیانم وصل شدن انگار
+</div>
+
+## tasiyanc — post 5145
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من با ایرانسل وصل شدم
+</div>
+
+## tasiyanc — post 5144
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم وصل شدم با همرا. سرعتش. یکم پاینه ولی خوبه
+</div>
+
+## tasiyanc — post 5143
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔫🧑‍🦱 تبریک به آرسنالیا
+</div>
+
+## tasiyanc — post 5142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من نمی‌فهمم بعضی چنلا چطوری ممبراشون وصل میشن به هات وی پی ان قضیه سفید بودن و نبودنه احتمالا
+</div>
 
 ## tasiyanc — post 5141
 
@@ -345,89 +375,5 @@ Location 🇩🇪
 ۹۰٪ این آیپی ها متصلن و حدود ۳۰ ثانیه تا یک دقیقه صبر کنین کانکت بشید
 
 @Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5126
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-İPs 🦦
-
-185.109.61.27
-31.214.169.244
-2.21.2.58
-2.21.2.89
-2.23.168.7
-5.160.13.85
-81.12.72.218
-2.23.168.96
-92.123.106.96
-2.23.168.144
-2.23.168.213
-2.23.168.254
-2.23.170.80
-37.255.133.30
-104.103.65.50
-63.141.252.203
-142.54.178.211
-185.137.25.214
-185.200.232.40
-185.200.232.41
-185.200.232.49
-185.208.174.167
-178.252.128.66
-185.88.178.196
-185.142.158.162
-185.53.142.174
-164.138.17.122
-37.191.95.70
-185.208.175.228
-85.133.167.108
-185.50.37.52
-109.230.206.175
-5.160.128.142
-78.39.234.140
-185.141.105.139
-185.37.55.30
-94.232.173.28
-78.157.41.60
-2.186.121.65
-158.58.184.147
-93.115.127.9
-185.255.91.60
-2.188.21.138
-185.137.25.146
-185.141.106.238
-109.72.197.1
-89.32.197.226
-78.38.174.2
-2.188.21.58
-217.219.162.200
-46.32.31.30
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5125
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به قول یه نفر کامفیگ
-</div>
-
-## tasiyanc — post 5124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۰٪ بله باشه کانفیگ اختصاصی میزارم
-</div>
-
-## tasiyanc — post 5123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما که رای منفی دادیم 😂
-</div>
-
-## tasiyanc — post 5122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما که رای منفی دادیم 😂
 </div>
 

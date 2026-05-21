@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/02/31 23:56
+📅 آخرین بروزرسانی: 1405/03/01 01:36
 
 ---
+
+## tasiyanc — post 5105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاجی ناموسا برید مخاطبین خودتونو نگا کنین شاید نصفش 28 فوریه آخرین آنلاین بودنشونه ، توقع بعضیا واقن کون خر پاره کرده
+تو این وضعیت کیری که کلادفلیر ، گیت هاب و کلی منبع دیگه که نمیشه کمک گرف بسته هست وقتی کمکی میشه وصل شی حتی چند دقیقه بخدا جای سپاس داره نه اینکه بیای متلک بندازی
+ایران عالیع
+</div>
+
+## tasiyanc — post 5099
+
+<div align="center"><video src="files/post_5099_tasiyanc_5099.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5099_tasiyanc_5099.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب اختصاصی تاسیان تست شده رو همه اپراتورها✅
+
+اسلیپ نت تانل نشه
+
+📶 🕊 ترکیب اسلیپ با سایفون
+
+Slip config 🔹
+Slipnet setting :
+Http proxy ON ✅ port 8080 & 10887
+Proxy mode ✅
+
+Setting Psiphon :
+Host 127.0.0.1
+Port 8080 & 10887
+منبع اسلیپ : مسیر سفید
+با ذکر منبع فور شه 🤝
+@Tasiyanc 😐
+</div>
+
+## tasiyanc — post 5098
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن
+</div>
+
+## tasiyanc — post 5097
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب اختصاصی تاسیان تو راهه
+</div>
+
+## tasiyanc — post 5096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 VyDns 🌟 ترکیبی با نپستر و نکوباکس🚀 slipnet-enc://AQ04v8kA3vzNDvWV6A+LtPLYuZD6OPp8L9FzZmSrkrRQE4N17vHZR+OVfauEjsXEjF2CKn7j76W275SbPjmT14/8QWE9x6AArQi6jELwvW5shrH4yLR00aJkFHJ4rHxv+DfUf9XPKXkFV6jCnXNl76nROardAX2irGWYuz+kleLuVZq1QvpNw0j5xv9OBDLiaHen6UL6yQu…
+</div>
 
 ## tasiyanc — post 5095
 
@@ -162,114 +214,5 @@ slipnet-enc://AQWUiXekehUioEA8QqMp3enet/bR52yS6R+DZxii7MSZwggy4Yj+WkTX1UsIOy6PR8
 برای اتصال پایدار زمان مناسب بدید😐
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New IPs 👑
-
-151.101.192.223
-167.82.48.223
-185.200.232.43
-2.23.169.111
-2.23.168.213
-23.48.23.184
-184.24.77.42
-184.25.28.31
-184.28.165.4
-184.51.252.4
-184.86.251.12
-184.86.251.27
-184.25.52.200
-184.28.230.87
-184.30.150.142
-184.51.252.36
-184.51.252.152
-184.51.252.157
-184.86.103.210
-184.51.252.135
-37.255.133.30
-5.160.13.85
-185.137.25.214
-184.51.252.38
-185.200.232.40
-185.200.232.41
-185.200.232.42
-185.200.232.43
-185.200.232.49
-185.200.232.50
-81.12.72.218
-151.101.128.223
-172.237.127.6
-185.143.232.122
-185.200.232.50
-2.23.168.254
-2.23.170.80
-2.23.168.174
-185.200.232.25
-185.200.232.42
-185.200.232.11
-2.16.19.136
-185.200.232.19
-185.200.232.24
-172.234.199.15
-2.23.168.96
-2.23.168.144
-2.23.168.7
-
-🌐@Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5074
-
-<div align="center"><img src="files/post_5074_tasiyanc_5074.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 دوستانی آیفون 🍏دارن می‌تونن این برنامه رو نصب کنن و ازش استفاده کنن، راحت می‌تونید سرور‌های دیگه هم اضافه کنید و استفاده کنید
-🔺 حالت Proxy Mode با پروکسی Local به تلگرام متصل شدم!
-
-+پیش نیاز نصب برنامه TestFlight از اپ استور
-
-🪼 Download TestFlight
-
-❤️ @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 5073
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹نسخه‌ی اولیه‌ی WhiteDNS برای IOS📹
-
-https://testflight.apple.com/join/GfUqXrFz
-
-❤️ @Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5072
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟 VyDns 🇨🇦
-slipnet-enc://Ad0nhhY8OuZnE4dR8AjKPZP99HTsAOHTf7SEEOG5ZMBk8T0h4knYLH9Gqtn+Ngly6BGiBe6lQ+UqT8gEKdoaGMWhg8htAho/ItHVi/sRa6zPHf69Sp1noH55Rvp2syyAKVk1GwzHb7uMSUO/rcO9gyUaqjG++BSXhBzBCg9OBeMN5n5uXbq+Wz1nEYLeNYkhsbiH8RZn0dg9BtP0rxWog8+dmhBMv8iaDkFKm2H5J6aiqP/utdo8rLisFMybe4fmN4GeIxL8U+lzbyeTT14LFmyeF6PgDX3Jddr1zPNlf8Ga7I5TSmp93wQY2kRFWUqY+mZ06l6FRtocN4paEmRIKHIxWq6afTPsjLGrtwnfpX58VZkwyYBe1uaTFrh04o6n4KDzDLBAWJ7nh8JNdS1zyH4BZVld5XMz6SNjRCSfs2HoxL3/t+NWfupm/vs2MhA8g51/5kWyCp6Wm5SDeIYhH/ML+GVHLuko2YcRZuaA+at8gSY4EPz9lH55dAh8agh/Y+zDurI08sOJVKDqTBuRDs8Z/skozQcz/k7cS10Vaw1acEyaTeDfYTAnSrDtIiJlDZso16JXbYy2tBFQU//NKaHNrvHa2yuJzadg3120MXYEOxssnt/DoKr1xpQ=
-✔ Setting For Slipnet ✔
-
-❤️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5071
-
-<div align="center"><video src="files/post_5071_tasiyanc_5071.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_5071_tasiyanc_5071.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار زمان مناسب بدید
-😐
-
-@Tasiyanc 
-🩵
 </div>
 

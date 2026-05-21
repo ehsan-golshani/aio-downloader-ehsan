@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/02/31 23:56
+📅 آخرین بروزرسانی: 1405/03/01 01:36
 
 ---
+
+## tasiyanc — post 4989
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن؟
+</div>
+
+## tasiyanc — post 4988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Instagram.npvtt
+</div>
+
+## tasiyanc — post 4987
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان حجمی 📶
+
+برای اتصال پایدار صبور باشید 🦦
+
+@Tasiyanc 
+🩵
+</div>
+
+## tasiyanc — post 4986
+
+<div align="center"><img src="files/post_4986_tasiyanc_4986.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Margaret.npvtt
+</div>
+
+## tasiyanc — post 4985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان حجمی 📶
+
+برای اتصال پایدار صبور باشید 
+🦦
+
+@Tasiyanc 
+🩵
+</div>
 
 ## tasiyanc — post 4984
 
@@ -414,68 +461,5 @@ Ip Shiro khorshid 🟢
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشن؟
-</div>
-
-## tasiyanc — post 4950
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای اتصال پایدار زمان بدید همه کانفیگا تست شده
-</div>
-
-## tasiyanc — post 4949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 🦦
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 4948
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 
-🦦
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 4947
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار صبور باشید 
-🦦
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 4946
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار صبور باشید 
-🦦
-
-@Tasiyanc 
-🩵
 </div>
 

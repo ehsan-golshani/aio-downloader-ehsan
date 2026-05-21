@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/31 23:55
+📅 آخرین بروزرسانی: 1405/03/01 01:35
 
 ---
+
+## ProxyMTProto — post 47481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.corph.ru
+Port: 443
+Secret: dd2ed7517b077ef414e24b106e0729335d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47480
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 78.17.71.42
+Port: 443
+Secret: eeec75b855ebcc01c982f3e013af8ed92a7777772e79616e6465782e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47479
 
@@ -167,24 +185,6 @@ Secret: eedb1bb2c2c796e681b5062a973eb05859706574726f766963682e7275
 Server: tg1.tgproxy1.fun
 Port: 443
 Secret: ee9f275776f928838953db9dc7c5629ef27467312e746770726f7879312e66756e
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47461
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ark.proxytg.space
-Port: 443
-Secret: eeb8df1294e7e13cd99e7a9144bae17db861726b2e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: atg.proxytg.space
-Port: 443
-Secret: eef9632da3b0ea3b51ab5840f93b2ddaff6174672e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 

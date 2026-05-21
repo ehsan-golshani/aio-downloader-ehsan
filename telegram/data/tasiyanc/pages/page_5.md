@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/31 23:56
+📅 آخرین بروزرسانی: 1405/03/01 01:36
 
 ---
+
+## tasiyanc — post 5167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+حتما برای اتصال پایدار زمان  بدید 🚀
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+حتما برای اتصال پایدار زمان  بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چخبر رو به راهید؟
+</div>
+
+## tasiyanc — post 5164
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VyDns 🇩🇪
+
+slipnet-enc://AX3z8tTh/X9om0T2Ji+iBGSVRwdgrd1yorYs54KFL1IhoRved1A3EZ/8Hb6WcVweh+m9eWN2Mrd5wYJphW9Hjsh7qplzeSEiH4QszAkD7NKMM7II3abZ7zVlYTX+rPJc9zN7S/PlGqv2ZceGSYPmqpPNVPqCc1kcb4if1eY30pHiEqDz5v5v0ILRUq1xWMEKVTWL3YicdTw7m+6H4H8ZyIIJ0RNihRpUzjOssxCO2tpnNsDCBfM/DNco8NhOW6Krv0vu3UvzweQ+yhTkXC5tfpBivkEpjr0cPPFgh4zPlN4QtVsHs5t9yoBZpr+5SXlWbCuoIPV4yQL6kogJA9vRQvG+c+pEpnxQNsfY08N/1bG4VOQLlGcYaHxsQFuAeNjSk+ssOZubE4XLYs8DV0lVI6/d4SwpEmy2PB125hyiQswvjEAro2Dz+ZrChLfgUCzcAfUKMH4sVRLZ1ppaH690pdK3XZ0IoeZ/klx9KstnvUvbunCNKsn7xZwfDaHe+OJhe6C/YO+tD2iY10Db7wan/9tLPksPCZZ5Ii7663n6LYtmJERLKQPAjlBLy10xNbt3By2mNJf6qzpmAetvipL2diqkUyGytYIrMNN8ga8dtBp9eq6LInKyQOToqbcuwfUaHkb7lw==
+
+@Tasiyanc 🤩
+</div>
+
+## tasiyanc — post 5163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان  بدید😐
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5162
 
@@ -139,35 +185,5 @@ slipnet-enc://AZWHehUAJK6RDRWDnjlb0p2ilOu+IqhbAdw5RU8uHplJBhPjCSm5mRFdeWXP4bVB7V
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اگه وصل نمیشدید هات vpn میکردم گوه vpn
-</div>
-
-## tasiyanc — post 5146
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب ممبرای تاسیانم وصل شدن انگار
-</div>
-
-## tasiyanc — post 5145
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من با ایرانسل وصل شدم
-</div>
-
-## tasiyanc — post 5144
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم وصل شدم با همرا. سرعتش. یکم پاینه ولی خوبه
-</div>
-
-## tasiyanc — post 5143
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔫🧑‍🦱 تبریک به آرسنالیا
-</div>
-
-## tasiyanc — post 5142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من نمی‌فهمم بعضی چنلا چطوری ممبراشون وصل میشن به هات وی پی ان قضیه سفید بودن و نبودنه احتمالا
 </div>
 

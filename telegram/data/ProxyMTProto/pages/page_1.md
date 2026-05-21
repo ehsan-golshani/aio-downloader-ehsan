@@ -1,8 +1,31 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/31 23:55
+📅 آخرین بروزرسانی: 1405/03/01 01:35
 
 ---
+
+## ProxyMTProto — post 47541
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 Всё упало? Наши прокси работают ⚡
+
+🎁 Бесплатный MTProto прокси 👇
+
+🚫 Без рекламы
+⚡ Быстро и стабильно
+🛡 Без ограничений
+
+👇 Получить прокси
+</div>
+
+## ProxyMTProto — post 47540
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hop1.proxytg.space
+Port: 443
+Secret: ee7e6c3f99b8b56d5aece5326877a3793a6d61782e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47539
 
@@ -168,24 +191,6 @@ Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
 Server: hop2.proxytg.space
 Port: 443
 Secret: eec5428740a808240ccf21f21547fc843f6d61782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47521
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: another.life.mambabot.net
-Port: 4515
-Secret: eec485b564c0178c338d8bf4f3f17539c4613234382e652e616b616d61692e6e6574
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47520
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s3.neo-trading.org
-Port: 443
-Secret: eec3fefd89a25d37ca3af1a602c7bfd8de79612e7275
 @ProxyMTProto
 </div>
 
