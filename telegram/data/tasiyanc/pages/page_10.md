@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/02/31 03:14
+📅 آخرین بروزرسانی: 1405/02/31 05:22
 
 ---
+
+## tasiyanc — post 5009
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاجی ناموسا فعالیت تعطیل کنیم؟ به خدا یه ری اکشن ساده بهمون قوت قلب و فعالیت میده دریغ میکنید از مون
+</div>
+
+## tasiyanc — post 5008
+
+<div align="center"><video src="files/post_5008_tasiyanc_5008.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5008_tasiyanc_5008.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 
+😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5007
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید ۳ دقیقه زمان لازمه🦦
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5006
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ بدجور انگار زده سیم‌اخر
+</div>
+
+## tasiyanc — post 5005
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🕊 VyDns udp 🇮🇹 slipnet-enc://AZkgjNCARQDM5vGsYmPO4xLikQSyPviV2tGCVM41UmbfqVk+QpMxOuR6sgaeCCmBGMA9y4hzItLJUX382lGN1w2j7FZGruTuI937iQW7hla7swJaDWH/Nn0N157j2hE4lTsBoB0SKMXxoIjPvQfbT3XC0si8fUgGG+yJ2Fn/RvOjunQ8IPfODop8FHoJo9CLlmwerd4j1/OmvscgJGinuiiF3Au7ONw…
+</div>
 
 ## tasiyanc — post 5004
 
@@ -127,50 +174,5 @@ Done ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Instagram.npvtt
-</div>
-
-## tasiyanc — post 4987
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان حجمی 📶
-
-برای اتصال پایدار صبور باشید 🦦
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 4986
-
-<div align="center"><img src="files/post_4986_tasiyanc_4986.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Margaret.npvtt
-</div>
-
-## tasiyanc — post 4985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان حجمی 📶
-
-برای اتصال پایدار صبور باشید 
-🦦
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 4984
-
-<div align="center"><img src="files/post_4984_tasiyanc_4984.jpg" alt="Photo"></div>
-
-## tasiyanc — post 4983
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀Slipnet Setting ✅Vpn MTU 512 ✅Max channel 64 ✅Enable split tunneling ON - only vpn، tunnel Telegram ... ✅Prevent dns fallback: OFF ✅Enable geo - bypass: ON ✅ compression : ON 🕊 Config setting 🔹 ✅Query 150 - 131 علامت مداد کنار کانفیگ بزنید بعد…
 </div>
 

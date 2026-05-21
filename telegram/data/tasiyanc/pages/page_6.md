@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/02/31 03:14
+📅 آخرین بروزرسانی: 1405/02/31 05:22
 
 ---
+
+## tasiyanc — post 5098
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن
+</div>
+
+## tasiyanc — post 5097
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب اختصاصی تاسیان تو راهه
+</div>
+
+## tasiyanc — post 5096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 VyDns 🌟 ترکیبی با نپستر و نکوباکس🚀 slipnet-enc://AQ04v8kA3vzNDvWV6A+LtPLYuZD6OPp8L9FzZmSrkrRQE4N17vHZR+OVfauEjsXEjF2CKn7j76W275SbPjmT14/8QWE9x6AArQi6jELwvW5shrH4yLR00aJkFHJ4rHxv+DfUf9XPKXkFV6jCnXNl76nROardAX2irGWYuz+kleLuVZq1QvpNw0j5xv9OBDLiaHen6UL6yQu…
+</div>
+
+## tasiyanc — post 5095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 VyDns 🌟
+ترکیبی با نپستر و نکوباکس🚀
+
+
+slipnet-enc://AQ04v8kA3vzNDvWV6A+LtPLYuZD6OPp8L9FzZmSrkrRQE4N17vHZR+OVfauEjsXEjF2CKn7j76W275SbPjmT14/8QWE9x6AArQi6jELwvW5shrH4yLR00aJkFHJ4rHxv+DfUf9XPKXkFV6jCnXNl76nROardAX2irGWYuz+kleLuVZq1QvpNw0j5xv9OBDLiaHen6UL6yQu22L/niPIWiT1TewecjScUPFlHDbkoWMtn9JKA8BctF1e4mUiB5ngbrAYrwYP1XyzIrv2I3duU/2fUKqcU+fJuMmCMKJSL++EB5pWua2NqRTBG+jE1hVVmeqmfbPrWlvqahAbYKNObqbXZxqPbFbVcwm8XKwXxv77K/Qi7JxQM5Q7DHDNKqkPyfpyeGCDeil/Lu8WiX5TfZQ8WbWPpJ471/fr6n+CJrirmEV0M5MiX9wnMWvt6x0z1r39kerVnLcZdHtqynHPp4S4ZB81TkssX2WIkeclWkweb79ZF9H/+TlATkdmNCkPQPKJwE1lmEIzD4F6iUVF+1r+QN60H6QMFvsS2+nIQxr06+8lK9Fdkn3s8S2qGDFw8RgX6XODFjLKU4htEpKJAh8sLpATi8UZl1sl76kO7pw8lgrOYwiF4+HrMtpjgjkeefyJ92O5iRMfhy358No1OK2aGC5UQWk2m6qA22jgZhBEc9LtdlpFh5YMHpRFqcDiO/mqU2uRiiMYhljHcL7tjcRYAfwFo+F1G8vaVgsk22xkQppXIZL8JcNhTglFId+2fntDl7bsa05LEb72t
+slipnet-enc://ATQGgOaJwLZBcKGgecLpcmOabBQfQfaTIA1lQK1BUTiz58ZV5PcesIxbrj+UYdsAUzrVj1slAVo1yiQFXb9LuxfWsPKZLstUJx6i9cmOfGWNdfLySHjaUnHjrMbrTTZYa7KS3mwDap22KnX/ET2ah5oLTiKJBzR3evQ39oqu+PKRUhqvUGeDwOWzbC2jhN308s+smIP/WqO6Cq3hKcBbGdQIvLY9QBUAFtQDG4EnC4uDnyUADX2VJzshdvf74eYqiKbGsgeD3hSVi3WW+M5zM0cPjMLRJhMkSUq7axbEG30PUQw010plH8d//JjaDQtu3iK0kk+BlooGcgpEV+egMVNWN2m4mZPwbnUoccNx12mgsebCLZrHuJBqiumfp325HczXYgRIjmQqMV7t2/9Eoupa2pdnxrV9Hu0FeioovEtq6YVH+bImBQtsDwQS8f4pxYf+GcNWi7G7q9RcijH0n87gkDzqNTvxQuyt8ldGExr4t6SRhAQKNRs4ewY7ATVwT8MFX3MefzN7Gx4AB6kUg8a2b+DkRacG2gPNAJ1Qltg9rPWR7lnzXE3xQK3qyyNHq8U0c8hE0ihzPAD1bekXJ6UqDIR1NiVMAsa3RbM7LeT5QGGqhGvBe5VCrenIBRxUopu2vI2NE4H0jNCKTUZTSZYo5FYt5VyfufVFsIkYxLJ4LcZ/wmRgHo6fRs3g7asiSj2JUN5dPA3jauoAY6zLHxr4LBWigP3bjXvBwhxucbJMdJpjBf7TRaQ3oHqxX6g7wcPKQrF/IeLaj+X+6g==
+
+آموزش اتصال 🔐
+ویدیو آموزشی 🔐
+آموزش اتصال با nekobax
+ویدیو آموزشی nekobox
+
+@Tasiyanc 🩶
+</div>
+
+## tasiyanc — post 5093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش باز هست عزیزان
+@StarTasiyan ☑️
+
+همراه ساب - آیپی ثابت آلمان🇩🇪 - بدون محدودیت کاربر - استارلینک
+هر گیگ 260
+</div>
 
 ## tasiyanc — post 5092
 
@@ -206,65 +252,5 @@ New IPs 👑
 🪼 Download TestFlight
 
 ❤️ @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 5073
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹نسخه‌ی اولیه‌ی WhiteDNS برای IOS📹
-
-https://testflight.apple.com/join/GfUqXrFz
-
-❤️ @Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5072
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟 VyDns 🇨🇦
-slipnet-enc://Ad0nhhY8OuZnE4dR8AjKPZP99HTsAOHTf7SEEOG5ZMBk8T0h4knYLH9Gqtn+Ngly6BGiBe6lQ+UqT8gEKdoaGMWhg8htAho/ItHVi/sRa6zPHf69Sp1noH55Rvp2syyAKVk1GwzHb7uMSUO/rcO9gyUaqjG++BSXhBzBCg9OBeMN5n5uXbq+Wz1nEYLeNYkhsbiH8RZn0dg9BtP0rxWog8+dmhBMv8iaDkFKm2H5J6aiqP/utdo8rLisFMybe4fmN4GeIxL8U+lzbyeTT14LFmyeF6PgDX3Jddr1zPNlf8Ga7I5TSmp93wQY2kRFWUqY+mZ06l6FRtocN4paEmRIKHIxWq6afTPsjLGrtwnfpX58VZkwyYBe1uaTFrh04o6n4KDzDLBAWJ7nh8JNdS1zyH4BZVld5XMz6SNjRCSfs2HoxL3/t+NWfupm/vs2MhA8g51/5kWyCp6Wm5SDeIYhH/ML+GVHLuko2YcRZuaA+at8gSY4EPz9lH55dAh8agh/Y+zDurI08sOJVKDqTBuRDs8Z/skozQcz/k7cS10Vaw1acEyaTeDfYTAnSrDtIiJlDZso16JXbYy2tBFQU//NKaHNrvHa2yuJzadg3120MXYEOxssnt/DoKr1xpQ=
-✔ Setting For Slipnet ✔
-
-❤️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5071
-
-<div align="center"><video src="files/post_5071_tasiyanc_5071.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_5071_tasiyanc_5071.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار زمان مناسب بدید
-😐
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 5070
-
-<div align="center"><video src="files/post_5070_tasiyanc_5070.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_5070_tasiyanc_5070.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار 5 دقیقه زمان بدید
-😐
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 5069
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همراه وصله💘
 </div>
 

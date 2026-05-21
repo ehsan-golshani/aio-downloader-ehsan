@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/02/31 03:14
+📅 آخرین بروزرسانی: 1405/02/31 05:22
 
 ---
+
+## tasiyanc — post 5124
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۰٪ بله باشه کانفیگ اختصاصی میزارم
+</div>
+
+## tasiyanc — post 5123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما که رای منفی دادیم 😂
+</div>
+
+## tasiyanc — post 5122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما که رای منفی دادیم 😂
+</div>
+
+## tasiyanc — post 5121
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی که نه میزنن تو گپ بیان دلیلشو بگن شاید اصلاح کردیم
+https://t.me/+qJ7oM-0GidY0NTY0
+</div>
+
+## tasiyanc — post 5120
 
 ## tasiyanc — post 5119
 
@@ -202,51 +229,5 @@ Port 8080 & 10887
 منبع اسلیپ : مسیر سفید
 با ذکر منبع فور شه 🤝
 @Tasiyanc 😐
-</div>
-
-## tasiyanc — post 5098
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن
-</div>
-
-## tasiyanc — post 5097
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب اختصاصی تاسیان تو راهه
-</div>
-
-## tasiyanc — post 5096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns 🌟 ترکیبی با نپستر و نکوباکس🚀 slipnet-enc://AQ04v8kA3vzNDvWV6A+LtPLYuZD6OPp8L9FzZmSrkrRQE4N17vHZR+OVfauEjsXEjF2CKn7j76W275SbPjmT14/8QWE9x6AArQi6jELwvW5shrH4yLR00aJkFHJ4rHxv+DfUf9XPKXkFV6jCnXNl76nROardAX2irGWYuz+kleLuVZq1QvpNw0j5xv9OBDLiaHen6UL6yQu…
-</div>
-
-## tasiyanc — post 5095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns 🌟
-ترکیبی با نپستر و نکوباکس🚀
-
-
-slipnet-enc://AQ04v8kA3vzNDvWV6A+LtPLYuZD6OPp8L9FzZmSrkrRQE4N17vHZR+OVfauEjsXEjF2CKn7j76W275SbPjmT14/8QWE9x6AArQi6jELwvW5shrH4yLR00aJkFHJ4rHxv+DfUf9XPKXkFV6jCnXNl76nROardAX2irGWYuz+kleLuVZq1QvpNw0j5xv9OBDLiaHen6UL6yQu22L/niPIWiT1TewecjScUPFlHDbkoWMtn9JKA8BctF1e4mUiB5ngbrAYrwYP1XyzIrv2I3duU/2fUKqcU+fJuMmCMKJSL++EB5pWua2NqRTBG+jE1hVVmeqmfbPrWlvqahAbYKNObqbXZxqPbFbVcwm8XKwXxv77K/Qi7JxQM5Q7DHDNKqkPyfpyeGCDeil/Lu8WiX5TfZQ8WbWPpJ471/fr6n+CJrirmEV0M5MiX9wnMWvt6x0z1r39kerVnLcZdHtqynHPp4S4ZB81TkssX2WIkeclWkweb79ZF9H/+TlATkdmNCkPQPKJwE1lmEIzD4F6iUVF+1r+QN60H6QMFvsS2+nIQxr06+8lK9Fdkn3s8S2qGDFw8RgX6XODFjLKU4htEpKJAh8sLpATi8UZl1sl76kO7pw8lgrOYwiF4+HrMtpjgjkeefyJ92O5iRMfhy358No1OK2aGC5UQWk2m6qA22jgZhBEc9LtdlpFh5YMHpRFqcDiO/mqU2uRiiMYhljHcL7tjcRYAfwFo+F1G8vaVgsk22xkQppXIZL8JcNhTglFId+2fntDl7bsa05LEb72t
-slipnet-enc://ATQGgOaJwLZBcKGgecLpcmOabBQfQfaTIA1lQK1BUTiz58ZV5PcesIxbrj+UYdsAUzrVj1slAVo1yiQFXb9LuxfWsPKZLstUJx6i9cmOfGWNdfLySHjaUnHjrMbrTTZYa7KS3mwDap22KnX/ET2ah5oLTiKJBzR3evQ39oqu+PKRUhqvUGeDwOWzbC2jhN308s+smIP/WqO6Cq3hKcBbGdQIvLY9QBUAFtQDG4EnC4uDnyUADX2VJzshdvf74eYqiKbGsgeD3hSVi3WW+M5zM0cPjMLRJhMkSUq7axbEG30PUQw010plH8d//JjaDQtu3iK0kk+BlooGcgpEV+egMVNWN2m4mZPwbnUoccNx12mgsebCLZrHuJBqiumfp325HczXYgRIjmQqMV7t2/9Eoupa2pdnxrV9Hu0FeioovEtq6YVH+bImBQtsDwQS8f4pxYf+GcNWi7G7q9RcijH0n87gkDzqNTvxQuyt8ldGExr4t6SRhAQKNRs4ewY7ATVwT8MFX3MefzN7Gx4AB6kUg8a2b+DkRacG2gPNAJ1Qltg9rPWR7lnzXE3xQK3qyyNHq8U0c8hE0ihzPAD1bekXJ6UqDIR1NiVMAsa3RbM7LeT5QGGqhGvBe5VCrenIBRxUopu2vI2NE4H0jNCKTUZTSZYo5FYt5VyfufVFsIkYxLJ4LcZ/wmRgHo6fRs3g7asiSj2JUN5dPA3jauoAY6zLHxr4LBWigP3bjXvBwhxucbJMdJpjBf7TRaQ3oHqxX6g7wcPKQrF/IeLaj+X+6g==
-
-آموزش اتصال 🔐
-ویدیو آموزشی 🔐
-آموزش اتصال با nekobax
-ویدیو آموزشی nekobox
-
-@Tasiyanc 🩶
-</div>
-
-## tasiyanc — post 5093
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش باز هست عزیزان
-@StarTasiyan ☑️
-
-همراه ساب - آیپی ثابت آلمان🇩🇪 - بدون محدودیت کاربر - استارلینک
-هر گیگ 260
 </div>
 

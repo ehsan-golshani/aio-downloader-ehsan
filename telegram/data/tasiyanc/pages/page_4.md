@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/02/31 03:14
+📅 آخرین بروزرسانی: 1405/02/31 05:22
 
 ---
+
+## tasiyanc — post 5144
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم وصل شدم با همرا. سرعتش. یکم پاینه ولی خوبه
+</div>
+
+## tasiyanc — post 5143
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔫🧑‍🦱 تبریک به آرسنالیا
+</div>
+
+## tasiyanc — post 5142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من نمی‌فهمم بعضی چنلا چطوری ممبراشون وصل میشن به هات وی پی ان قضیه سفید بودن و نبودنه احتمالا
+</div>
+
+## tasiyanc — post 5141
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمام سروراش پینگ‌ میده اما اصلا چیزی بالا نمیاد
+</div>
+
+## tasiyanc — post 5140
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نه رفتم با همراه و ایرانسل تست کردم وصل نشد به هیچ عنوان
+</div>
 
 ## tasiyanc — post 5139
 
@@ -400,31 +430,4 @@ Location 🇩🇪
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 به قول یه نفر کامفیگ
 </div>
-
-## tasiyanc — post 5124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۰٪ بله باشه کانفیگ اختصاصی میزارم
-</div>
-
-## tasiyanc — post 5123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما که رای منفی دادیم 😂
-</div>
-
-## tasiyanc — post 5122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما که رای منفی دادیم 😂
-</div>
-
-## tasiyanc — post 5121
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی که نه میزنن تو گپ بیان دلیلشو بگن شاید اصلاح کردیم
-https://t.me/+qJ7oM-0GidY0NTY0
-</div>
-
-## tasiyanc — post 5120
 
