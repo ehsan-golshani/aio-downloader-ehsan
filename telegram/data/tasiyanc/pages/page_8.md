@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/03/01 01:36
+📅 آخرین بروزرسانی: 1405/03/01 02:51
 
 ---
+
+## tasiyanc — post 5108
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب میزاریم ری اکشن نمیزنید بدرد نمیخوره 🥺
+</div>
+
+## tasiyanc — post 5107
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب اختصاصی تاسیان تست شده رو همه اپراتورها✅ اسلیپ نت تانل نشه 📶 🕊 ترکیب اسلیپ با سایفون Slip config 🔹 Slipnet setting : Http proxy ON ✅ port 8080 & 10887 Proxy mode ✅ Setting Psiphon : Host 127.0.0.1 Port 8080 & 10887 منبع اسلیپ : مسیر سفید با ذکر…
+</div>
+
+## tasiyanc — post 5106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب اختصاصی تاسیان تست شده رو همه اپراتورها✅ اسلیپ نت تانل نشه 📶 🕊 ترکیب اسلیپ با سایفون Slip config 🔹 Slipnet setting : Http proxy ON ✅ port 8080 & 10887 Proxy mode ✅ Setting Psiphon : Host 127.0.0.1 Port 8080 & 10887 منبع اسلیپ : مسیر سفید با ذکر…
+</div>
 
 ## tasiyanc — post 5105
 
@@ -178,41 +196,5 @@ slipnet-enc://ARW5TYIc9f8Yiqf2QNOaS7YHSQobbOm2mraoEivTP6TXhJj67kK5Qqm3rOU4p/NBiI
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😎 VyDns ترکیبی با نپستر و نکوباکس slipnet-enc://AQWUiXekehUioEA8QqMp3enet/bR52yS6R+DZxii7MSZwggy4Yj+WkTX1UsIOy6PR8DPOlK1Sc9G5+kT9f7wlfqOFEBgvjV1AcIU9ygPoAgrThVCvuoJKOUiwvYiVNR446bSlc7mo0sXhJJ2Qcx5gwxE/LS3/2bywXIo3tm4XX435JjDo6AFUasIeNeF4NgIK2Qi/ZWe2wF2v…
-</div>
-
-## tasiyanc — post 5079
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns
-ترکیبی با نپستر و نکوباکس
-
-slipnet-enc://AQWUiXekehUioEA8QqMp3enet/bR52yS6R+DZxii7MSZwggy4Yj+WkTX1UsIOy6PR8DPOlK1Sc9G5+kT9f7wlfqOFEBgvjV1AcIU9ygPoAgrThVCvuoJKOUiwvYiVNR446bSlc7mo0sXhJJ2Qcx5gwxE/LS3/2bywXIo3tm4XX435JjDo6AFUasIeNeF4NgIK2Qi/ZWe2wF2vI7r9UX5Bbw15FTjfl85+lG+RSJRrggRQQkmmL7ioV5ZxAJ4HpMtkkdkM4Hw01pCf+cjhpj4g6Cxg9pGrZSkYGRfWDBO/dsMtaIFWuinVWhckZQeB1fjThDxwHqe+b+oqJagtPgVJ8EhPeXK2dBnAyIdaT5G+4P4F5//Q44zolzxv03n4l66LK/OxqZheMqp3a87qK42m2WEd82BEoZPOhcCtpq9CyoXboEyvg7LwGagCb5mWJSqN62IljA/DfqOjkh7iNGIFDNFyG7Mv+CbCeUlIJL0jGs2vPaiC/TkmFVgpzex5PxY94+zPF1eno1IlL7Tl4idAbMcAmByRgkDVevOfHpmAdWAAiExoJTIyv6UKNOPf4tGEgSzRLbCwbGRZBQi+IXtFh226tcrJ34f0slN404LWB9DlyDtjTbkHi0EKl2k0UdPZWzoIGeEPqJYvPqsERPsDulQ55kR/y46r36p9GrOawJ8q+uAO50wMYdCs5Qz+VnONzEw/b073frvfu0aOsc6RsK2NmRDyWtnIxC99g54lqH8JJXSlDMBB5cxjqlWyB8gvxgm7vvQ9Dh0RCAUpkd420BihpFWfXelONc=
-آموزش اتصال 🔐
-ویدیو آموزشی 🔐
-آموزش اتصال با nekobax
-ویدیو آموزشی nekobox
-
-@Tasiyanc 🩶
-</div>
-
-## tasiyanc — post 5078
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2sv
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5077
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
 </div>
 

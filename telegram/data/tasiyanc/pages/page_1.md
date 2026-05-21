@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/01 01:36
+📅 آخرین بروزرسانی: 1405/03/01 02:51
 
 ---
+
+## tasiyanc — post 5298
+
+<div align="center"><video src="files/post_5298_tasiyanc_5298.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5298_tasiyanc_5298.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## tasiyanc — post 5297
+
+<div align="center"><a href="files/post_5297_Tasiyan 🖤⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Tasiyan 🖤⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5296
+
+<div align="center"><a href="files/post_5296_@Tasiyanc Paris.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc Paris.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 5295
 
@@ -11,8 +41,6 @@
 </div>
 
 ## tasiyanc — post 5294
-
-<div align="center"><a href="files/post_5294_@zyyro خدا بیامرزه مادرتو 🤝.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @zyyro خدا بیامرزه مادرتو 🤝.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان   📶
@@ -23,8 +51,6 @@ Join As 🩵@Tasiyanc ☑️
 </div>
 
 ## tasiyanc — post 5293
-
-<div align="center"><a href="files/post_5293_@zyyro کص مادر این شخص.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @zyyro کص مادر این شخص.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان   📶
@@ -41,8 +67,6 @@ Join As 🩵@Tasiyanc ☑️
 </div>
 
 ## tasiyanc — post 5291
-
-<div align="center"><a href="files/post_5291_🟩 Tasiyan.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🟩 Tasiyan.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان   📶
@@ -148,25 +172,5 @@ https://t.me/socks?server=127.0.0.1&port=10880&user=%40Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تاسیان باخت نمی‌ده عمو
-</div>
-
-## tasiyanc — post 5264
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید گپمون خوش میگذره 😂❤️
-https://t.me/+qJ7oM-0GidY0NTY0
-</div>
-
-## tasiyanc — post 5263
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیا میدونید ۹۰٪ سرورهای پولی قطعه از دیروز ؟
-پس چرا توقع های زیادی دارید از یه سرور بدبخت که بیاد ۲۰۰۰ هزار نفر با سرعت نور وصل کنه به یوتوب و اینستا ؟ بخدا به چی قسم بخورم همینکه وصل میشه تل بالا میاد یعنی راه درستیم
-</div>
-
-## tasiyanc — post 5262
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ذات نوید
 </div>
 

@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/03/01 01:36
+📅 آخرین بروزرسانی: 1405/03/01 02:51
 
 ---
+
+## tasiyanc — post 5014
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید گپ رفقا
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 5013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🕊 VyDns udp 🇩🇪
+
+slipnet-enc://AfGk2opsi+MrCpAC+etlraDt0dOI/3l5sdWzoTvyRPP1XqBDiuVORgBdHDoHV9kQ9EH/G+VxkLGBOf3R8jpPIBtHfNKPl6P3VBOcr8Eg4P5tJ7UfxPqzBsTWg9H5QAwPnx3xGjeaUOfwD6b10uKFuNjb9G62/MTr75IFRn+5huCLQ6x/Y7aV4Qao4p9rm4hlnLzJ/AS14LlbnD1b3+iaBhZtzhWHqKWMPha5vdn1JmQ3VG5oBVDAQuhc8jQDow3J5H5gZ6r2VMIyErQVLZRC/J6bBERA9eCgiq4yGhwJ7DTt1FTWOSX+lHqTBAQ+QZpz7laHLjhu1GBbR4krbtaye0pCKeZ9njMNfA0UPlwqMYEJosAnL12VO1xs0HFpBYwtWq+yVJNtB7jubCQLgC9YgB76nC5VnbUoh3lGkuHaClpwH8johNh4s4WOj55jnDJKIsV0aDPC+SLMvafd0KuUItkOVFA0vGAfoNKtb8CjV8C5TlUTO8rJsV8/xPrIE4PNah5cC4X7HQs7FLm6jM7UrN3xbT2FyOvogU+2DQWVsgMoRkZWTQ5Eq0ADNyHYjrYESKOy1zZ/sm7a374M3UtMki4SIpVrw9++id0lv1QSIxSpRb+S/XS8pmwrByWS/EHCu8T6fW0TTQeK72KFudT7mjdLOhinlux3oppDcJw=
+
+✔ Setting For Slipnet ✔
+
+❤️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5012
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این روش جدید شیر و خورشید رو تست کنید همه وصل میشین 👑 23.44.201.149 23.212.253.227 23.44.201.185 23.44.201.17 23.62.54.24 23.58.95.144 104.83.198.44 92.123.102.153 184.51.252.134 23.53.40.147 184.51.252.176 2.18.64.212 172.104.251.198 2.18.79.101 23.216.77.181…
+</div>
 
 ## tasiyanc — post 5011
 
@@ -241,23 +266,5 @@ APN 127.0.0.1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Done ✅
-</div>
-
-## tasiyanc — post 4992
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بای.
-</div>
-
-## tasiyanc — post 4991
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه کانفیگ ها ری اکشن +۱۰۰
-</div>
-
-## tasiyanc — post 4990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دان نزنید
 </div>
 
