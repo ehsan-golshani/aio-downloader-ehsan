@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/31 13:44
+📅 آخرین بروزرسانی: 1405/02/31 17:06
 
 ---
+
+## MehdiBudam — post 8020
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+101 99 76 67 65 64 45 41 34 رو از دست ندین.
+</div>
+
+## MehdiBudam — post 8019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+102 101 99 97 95 92 91 89 88 85 79 77 76 75 74 71 67 66 65 64 61 59 58 57 48 47 46 45 41 37 34 31 22 19 و بقیه وصلن.
+</div>
 
 ## MehdiBudam — post 8018
 
