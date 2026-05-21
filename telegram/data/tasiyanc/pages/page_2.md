@@ -1,8 +1,132 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/31 05:22
+📅 آخرین بروزرسانی: 1405/02/31 13:44
 
 ---
+
+## tasiyanc — post 5207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 اختصاصی تاسیان تست شده 🔐
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید و از [ پروکسی ]   کمکی استفاده کنید🚀
+
+Join as @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 VyDns SSH 🇷🇺
+
+slipnet-enc://Aaww8PvxLPFu0vkE/TIjc9hYWkVu7OWWdAqZv8BojMszVKFG748E1qv3vVdom8HPa589CsF2TckXpJuxMfZHtxnkJtVzlxR8FEDWSioSqQKLdnMNg8O3+PYW3IC+BjTEAC+SIkVvO7WaIKbFmyVlSkQ576KjLtvJ5sSJIVxbvJz9tWWsUwrmVozg+4O8XpdXFYw9l5iu9IzRs901XONAkpZwDUTun5PG1sXDkINFt4bcglFq7+6EywRK8PuuGftRXd44mxb2sAnk+QRzZS81jN2KS2Go7nfb7N5Ge3g4Wmj2SC9xJlqfKEbwsGVqISPxYSx5zRhRQfl/+sVQ3UytJyFHkRy2HKwuNmdQeHCx7WilpVssGk+bvkbhH3Get3gXEtfT0Z+5YRzl5dISEI3DLTMqgzhPBaWHkoQgZrQOu5NdelJLE33BmM805XTdOIPlcYA0kfpBaOL+kdnd0lG99zt5bXVcuelgmJPxkBhAXA5S8kWlDN+603DsCtwNYgto8Z+3VG2+I9suL4ICkubGf3nC1DP/q3q28/GU2088Z0IR5Zzv0SrHDMGhMezI5+oHwKbgtvRLHXL0OG5BUKD/PmJJFeUMi2lVzXuYjMhVmBkkEiuzFH3jP1erzRTMozQa3wiaPCZBlVQsBqpfo6gs/ujhJT9WPoz5HYHHjSi1qb7qdjAcP7IahMMln55ZCSJE15Yj3qeJSNmtLRZdw5cIrcO5E0UTdCn43W2+UQo6lldt6FzGDqfC4tvAtXxK4fF0ju5GfhLdxtVdIL6nErqMIzF0a8b2IctWdrz/+QuM7xmZFS4b4K9m4sffPqpzskmIa/csfWwFzOLy67uyDjFtQNXvUiZjw4K2//Tdog==
+
+Join as @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده 🛜🛜 
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید و از [ پروکسی ] کمکی استفاده کنید🚀
+
+Join as @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده 🛜🛜 
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀 صبر ندارید نزنید 
+✅
+
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بسته اس اطلاع رسانی میشه اگه باز کنیم
+</div>
+
+## tasiyanc — post 5202
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+javidgorz-1.0.7-universal.apk
+</div>
+
+## tasiyanc — post 5201
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☄️ وی پی ان جاویدگرز نسخه 1.0.7
+
+😐 منطقه ای میگن وصله اکثر اپراتورها
+
+❗️ امنیتش تایید یا رد نمی‌شود
+
+لینک دانلود داخلی ⤵️
+https://dl.toolschi.com/view.php?f=e688f082f4a9968d.zip
+
+🔹حالت پرواز بزارید درارید وصل نشد تست کنین
+
+Join as @Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5200
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن نمیزنین؟😭
+</div>
+
+## tasiyanc — post 5199
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Ping 56 - 68
+✅
+
+23.50.180.206
+185.88.178.196
+164.138.17.122
+185.208.174.167
+185.50.37.52
+95.101.78.25
+185.141.106.238
+5.160.13.85
+5.160.13.85
+185.208.175.228
+
+Join As ﻿@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5198
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  
+📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀 صبر ندارید نزنید 
+✅
+
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5197
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  
+📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀
+
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5196
 
@@ -90,97 +214,5 @@ IPs Ping 56 ✅
 37.191.95.70
 
 @Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده  📶
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید 🚀
-
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5182
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آپدیت فایرواله دارن شدید میکنن فیلترو
-</div>
-
-## tasiyanc — post 5176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو تا نپستر آخری خوب بود؟
-</div>
-
-## tasiyanc — post 5175
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DNSTT TCP 🇩🇪
-
-slipnet-enc://AWPVFU23PS/+4kTSVFUhSCRjtKuCJv2Eh5qx3JWPubIXCk2bvhflTmkWzWSfZ8+v6Mn4qFm+e4RPEgyhauiHXk7FasRbjke21zCv6iF9MVgCDYzSfeJDaD9SBH1bL5hJ08KRBHICwCC0q8Ncqr8v+hkn2w4TNZLxTLlgAU65tvznlsbm6ZfZOxAAXcX3RDfWh3C85PpM5IUYclXMmOOl+MC6g6q0VJXUECM6XWhCi7FsPxZFw4tQCoGPYmFZC7HdRkAoG2bFgbTBDOfeDPfM/QZuyVAjzzXp2DxH9KuKjjcbyh77NohQBbkDh0IJbFiHaCKYRivwvIlOIO3vFd6NCX6uTvEMaZsSfZUNP0ncJcP9vBaU77be5MQ2/cvhHO2u/BLQ1zCmD1NB27D7HTurRVjzpvMvPg6QYT9sxLWyclz/vtLgo44NcLSD4zwKtdTGAne2r5dD8zJDYvWURu6MYmEfINhOPHgbs0n+rsZDpqhe+wQ0v7NWT2uGixy9GQm7tosa3wffWHio3L/vTlj6LXSfcOE9qa/qlqI0aTvFclauzDswtlKKwtrwkridlistiPtLRzlDYV2hSE7dhGFY//SrOnmKyaVMybWsGwJbL9EX1VD69qbfjuKM7BRgkp9dwxwvz0V+8Yu0k8C0DcdAF9D/G89LuOLFWT0blz/m1wNXkLeTUEAEnZV0Est7FzRCfN8zCdrEG38qXYhKuESTon9WQXrxpPn4szqB3r+Nq4/5RSdxKz0at3TaWq+Gvob0f30/lZddOKz+62kI87c=
-
-Join As @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5173
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده 📶
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید 🚀
-
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5171
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💦20 K ...⚫
-</div>
-
-## tasiyanc — post 5170
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده 📶
-
-حتما برای اتصال پایدار زمان  بدید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5169
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلامی دوباره
-</div>
-
-## tasiyanc — post 5168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای اتصال پایدار زمانی بین ۲ تا ۵ مین بدید وصله عشق کنید
-</div>
-
-## tasiyanc — post 5167
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-حتما برای اتصال پایدار زمان  بدید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5166
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-حتما برای اتصال پایدار زمان  بدید😐
-
-@Tasiyanc 🩵
 </div>
 
