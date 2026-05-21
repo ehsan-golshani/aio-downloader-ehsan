@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/31 01:35
+📅 آخرین بروزرسانی: 1405/02/31 09:50
 
 ---
+
+## ProxyMTProto — post 47525
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hop1.proxytg.space
+Port: 443
+Secret: ee7e6c3f99b8b56d5aece5326877a3793a6d61782e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47524
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fastproxy.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47523
 
@@ -174,28 +192,5 @@ Server: He.jlpoKcu.cloud
 Port: 443
 Secret: ee3f8a91c2d7e04b6a9f12c5e8370bd4aa786170692e6f7a6f6e2e7275
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47505
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fastproxy.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47504
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 Всё упало? Наши прокси работают ⚡
-
-🎁 Бесплатный MTProto прокси 👇
-
-🚫 Без рекламы
-⚡ Быстро и стабильно
-🛡 Без ограничений
-
-👇 Получить прокси
 </div>
 

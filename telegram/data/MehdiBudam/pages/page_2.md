@@ -1,8 +1,15 @@
 # آرشیو کانال MehdiBudam - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/02/31 01:36
+📅 آخرین بروزرسانی: 1405/02/31 09:50
 
 ---
+
+## MehdiBudam — post 8016
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+54-56-80-89-87-92
+اینارو هم یکی از دوستان تست کرده.
+</div>
 
 ## MehdiBudam — post 8015
 
