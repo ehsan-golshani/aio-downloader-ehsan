@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/03/01 18:59
+📅 آخرین بروزرسانی: 1405/03/01 20:59
 
 ---
+
+## tasiyanc — post 5175
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DNSTT TCP 🇩🇪
+
+slipnet-enc://AWPVFU23PS/+4kTSVFUhSCRjtKuCJv2Eh5qx3JWPubIXCk2bvhflTmkWzWSfZ8+v6Mn4qFm+e4RPEgyhauiHXk7FasRbjke21zCv6iF9MVgCDYzSfeJDaD9SBH1bL5hJ08KRBHICwCC0q8Ncqr8v+hkn2w4TNZLxTLlgAU65tvznlsbm6ZfZOxAAXcX3RDfWh3C85PpM5IUYclXMmOOl+MC6g6q0VJXUECM6XWhCi7FsPxZFw4tQCoGPYmFZC7HdRkAoG2bFgbTBDOfeDPfM/QZuyVAjzzXp2DxH9KuKjjcbyh77NohQBbkDh0IJbFiHaCKYRivwvIlOIO3vFd6NCX6uTvEMaZsSfZUNP0ncJcP9vBaU77be5MQ2/cvhHO2u/BLQ1zCmD1NB27D7HTurRVjzpvMvPg6QYT9sxLWyclz/vtLgo44NcLSD4zwKtdTGAne2r5dD8zJDYvWURu6MYmEfINhOPHgbs0n+rsZDpqhe+wQ0v7NWT2uGixy9GQm7tosa3wffWHio3L/vTlj6LXSfcOE9qa/qlqI0aTvFclauzDswtlKKwtrwkridlistiPtLRzlDYV2hSE7dhGFY//SrOnmKyaVMybWsGwJbL9EX1VD69qbfjuKM7BRgkp9dwxwvz0V+8Yu0k8C0DcdAF9D/G89LuOLFWT0blz/m1wNXkLeTUEAEnZV0Est7FzRCfN8zCdrEG38qXYhKuESTon9WQXrxpPn4szqB3r+Nq4/5RSdxKz0at3TaWq+Gvob0f30/lZddOKz+62kI87c=
+
+Join As @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده 📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید 🚀
+
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5171
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💦20 K ...⚫
+</div>
 
 ## tasiyanc — post 5170
 
@@ -155,32 +182,5 @@ Join As @Tasiyanc ☑️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هات وی پی ان ویروس داره؟
-</div>
-
-## tasiyanc — post 5152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چرا برنامه هات رو گوشیم نصب نمیشه
-</div>
-
-## tasiyanc — post 5151
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Slipstream 🌟
-
-
-slipnet-enc://AT6bKWyWhFfp2kmUc5BezhfIZ/6ovcMtl0L2GneHixJ8E/qhkAqQyeb1P3xV/aCw3jeBaZ+1v5Z79WMyUjkctQGY4b9ALNjXJLxVEBkDEzr5xo2mw6/Y41qP2RSdBxIxFoY++Fa1KI4PpVv3AEyhOIGjPaSN+fPi7j2HlvmANpdZo68FYyalPK7fzAdgzLiYZJRMaMlFdvxeDWLkp7a8eBk51i6L7oGrYJJduLL+ybHEnacqM2VPHhtdpTRM3D4MvE8DxaDqhTN7JyKtM01GEAx1/70ai6R00zKT2qQ4mxslTAgUf5P+lQnhD2AV4pidaVrJSNafEU0S4/JJ0ZVEg3fjAA6sZW6Nk1frB0XVKg4QHbrAzFHt93YtIOYrKRIKF1d/E/BUhtw1zQUaFXmteu0521mDFXIQpTkv+q4SY/EhCE6mGpKl7gEpa72eZxlfeAdVA3sLuyN8SMZWxNAL0zJAyWey/oj9J8JrGl0WIirlqlSv6TdLvHEae/xBWD8dbsNDshZ5NTMogiRlkMiVAuWRKebOrbN/pFIbafT+VIaOndRZJypWC4pSFNd3pZlJ8txZKw9Q+mEHDySWmnXXTVjziitfc6R1bJwSVFdxg/JHP66L7/2wfCAQyTHnWQK5hQgWaI+Sh+Swmg==
-
-@Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5150
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
 </div>
 

@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/01 18:59
+📅 آخرین بروزرسانی: 1405/03/01 20:59
 
 ---
+
+## tasiyanc — post 5268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑SSH Slipnet 
+🌟 slipnet-enc://AciIHTjr7qI5A0k0SPqC3pnGqdcLkWuwJhHBB7KukJHavticmdAvSES5N+w+jRXgtiu8I546QJE+ZOkJtLv6DQYZBuuUuDTKv02t8crgCNEGzEk/5NjcX+SabRNWAMWV5TuDoUBmxj+iIR02f1MkV6Ke8OkTtD2+0xRkL8QUWoZ56ETRGUsOfE+U+RZ1YrkpuXpUMqyJp/SMNYIK24ppfJ5OeEv3KOqp2…
+</div>
+
+## tasiyanc — post 5267
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑SSH Slipnet 
+🌟
+
+slipnet-enc://AciIHTjr7qI5A0k0SPqC3pnGqdcLkWuwJhHBB7KukJHavticmdAvSES5N+w+jRXgtiu8I546QJE+ZOkJtLv6DQYZBuuUuDTKv02t8crgCNEGzEk/5NjcX+SabRNWAMWV5TuDoUBmxj+iIR02f1MkV6Ke8OkTtD2+0xRkL8QUWoZ56ETRGUsOfE+U+RZ1YrkpuXpUMqyJp/SMNYIK24ppfJ5OeEv3KOqp2dyYARCGdxxVr4ompJfqPQB8jPACg3k5piAWxR71fGGq0IG5nnNv0LD0OAUKvivrpQ1ttmW9XKy8mbWeMCXxb4AsF7RltMZm7dsOro/PYBxVGaIVccxMg7miZCnBAlhbruykbBQ6R3MD1lNZGx9Jj6y8Rd2lVcJ9aQbdU8FnlrtA+V2XBJEgqPFV2r7b/HrzMV+cPpd4YeF6Vo+4/7chlaA36AnWkdqqXbOR88o07cZCQJ4YdvvF5cqpqg+GT9i+YuDzqngXWJS7q4HdO316Re5ZRU5/ELEtu1xpg+Xo
+
+✅اسلیپ نت حالت پروکسی باشه و به پروکسی زیر متصل شوید
+تنظیمات خاصی نمیخواد فقط باید پروکسی مود باشه ارور داد باید چند باهم پشت هم بزنید تا اوکی شه
+https://t.me/socks?server=127.0.0.1&port=10880&user=%40Tasiyanc
+@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5265
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان باخت نمی‌ده عمو
+</div>
 
 ## tasiyanc — post 5264
 
@@ -180,33 +208,5 @@ Join as ❤️ @Tasiyanc
 
 Join As 🩵@Tasiyanc 
 ☑️
-</div>
-
-## tasiyanc — post 5247
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان   📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-Join As 🩵@Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 5237
-
-<div align="center"><img src="files/post_5237_tasiyanc_5237.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیدی عددی اکانت طرف 7443787472
-</div>
-
-## tasiyanc — post 5236
-
-<div align="center"><img src="files/post_5236_tasiyanc_5236.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیدی عددی اکانت طرف
-7443787472
 </div>
 

@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/01 18:59
+📅 آخرین بروزرسانی: 1405/03/01 20:59
 
 ---
+
+## tasiyanc — post 5247
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5237
+
+<div align="center"><img src="files/post_5237_tasiyanc_5237.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیدی عددی اکانت طرف 7443787472
+</div>
+
+## tasiyanc — post 5236
+
+<div align="center"><img src="files/post_5236_tasiyanc_5236.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیدی عددی اکانت طرف
+7443787472
+</div>
 
 ## tasiyanc — post 5221
 
@@ -336,29 +364,5 @@ Join as @Tasiyanc ☑️
 حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید و از [ پروکسی ] کمکی استفاده کنید🚀
 
 Join as @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده 🛜🛜 
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀 صبر ندارید نزنید 
-✅
-
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بسته اس اطلاع رسانی میشه اگه باز کنیم
-</div>
-
-## tasiyanc — post 5202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-javidgorz-1.0.7-universal.apk
 </div>
 

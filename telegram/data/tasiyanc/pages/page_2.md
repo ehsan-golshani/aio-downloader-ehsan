@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/01 18:59
+📅 آخرین بروزرسانی: 1405/03/01 20:59
 
 ---
+
+## tasiyanc — post 5301
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 VyDns 🇧🇬
+
+slipnet-enc://AZb3kbmR0Ojb+sUJQiuU4rTx3in4qXIaCWY4bLeg7Al7U7G69r2OcSguoqPu+/y8xvvAuvM3a30s4DZ1oz84a1LF0slSHm5mqMX7ZVQb3D56YDApAtj3/80ZHeNMmEFozpn36z/3ddmwKT6amAcCbq+K4j1IvsVCeP2PPLMsJDArlK5uSWAbHFa3zKyT1xY52CIJBJ1GFLizsfZSIh1avPhv5Dp+iLLBWwaI0soR52x6wWTJa8sAkaZ7F7YsqhidPirc+JW5lAnAUQeuR+qureAmS+bEpAz7UUEMPpy7g4m8556DSR6yRqItvnr1vbeDkUNVpQpTDBNlObTbS2dBI74wXB2MlLX+zLzqw1iVBMMq3OA6B+7KAkciHxWIk6IGWvHw1sX5+KMxk6NUDDJLiA+XoEAL3Sk8iywKt2lj0Cp1n6du2AhxTulkq37wOp4hJaFHtUJTrfr38+JZwunAxozhPKglQnNmeaHsi4TmgKt7I1P9JUH8bjxQQMl5U84Vfw2u1ese7AdaaFn7QvWmS8GV1IT8D1iUlexQ5+Sb1z1LwkEPsPhOPx+InsfKzf4pGr4QAUtWZwp+Uxn7S2zpUz0KkkxFd+VCDEwWzLf6lkA5NdjFSg6Z9jNiak3pJElb6sbGN0WQODlFYb5hOn3QJBx9mm9Xx4Cl9d810lAN6iPMimQF4X7W4flbboS14LIkFOXD1Zh2LHF7G4AAkQEXBMXFpC94WPjOBPBXrW/feFy0HSxPiKHyTfSalkOqOjOCDrwLwn3h
+
+Join as @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5300
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ❤️
+</div>
+
+## tasiyanc — post 5299
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc 
+☑️
+</div>
 
 ## tasiyanc — post 5298
 
@@ -140,33 +167,5 @@ https://wa.me/proxy?host=127.0.0.1&chatPort=10880&mediaPort=10880&chatTLS=true
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشنا کم شده که
-</div>
-
-## tasiyanc — post 5268
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑SSH Slipnet 
-🌟 slipnet-enc://AciIHTjr7qI5A0k0SPqC3pnGqdcLkWuwJhHBB7KukJHavticmdAvSES5N+w+jRXgtiu8I546QJE+ZOkJtLv6DQYZBuuUuDTKv02t8crgCNEGzEk/5NjcX+SabRNWAMWV5TuDoUBmxj+iIR02f1MkV6Ke8OkTtD2+0xRkL8QUWoZ56ETRGUsOfE+U+RZ1YrkpuXpUMqyJp/SMNYIK24ppfJ5OeEv3KOqp2…
-</div>
-
-## tasiyanc — post 5267
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑SSH Slipnet 
-🌟
-
-slipnet-enc://AciIHTjr7qI5A0k0SPqC3pnGqdcLkWuwJhHBB7KukJHavticmdAvSES5N+w+jRXgtiu8I546QJE+ZOkJtLv6DQYZBuuUuDTKv02t8crgCNEGzEk/5NjcX+SabRNWAMWV5TuDoUBmxj+iIR02f1MkV6Ke8OkTtD2+0xRkL8QUWoZ56ETRGUsOfE+U+RZ1YrkpuXpUMqyJp/SMNYIK24ppfJ5OeEv3KOqp2dyYARCGdxxVr4ompJfqPQB8jPACg3k5piAWxR71fGGq0IG5nnNv0LD0OAUKvivrpQ1ttmW9XKy8mbWeMCXxb4AsF7RltMZm7dsOro/PYBxVGaIVccxMg7miZCnBAlhbruykbBQ6R3MD1lNZGx9Jj6y8Rd2lVcJ9aQbdU8FnlrtA+V2XBJEgqPFV2r7b/HrzMV+cPpd4YeF6Vo+4/7chlaA36AnWkdqqXbOR88o07cZCQJ4YdvvF5cqpqg+GT9i+YuDzqngXWJS7q4HdO316Re5ZRU5/ELEtu1xpg+Xo
-
-✅اسلیپ نت حالت پروکسی باشه و به پروکسی زیر متصل شوید
-تنظیمات خاصی نمیخواد فقط باید پروکسی مود باشه ارور داد باید چند باهم پشت هم بزنید تا اوکی شه
-https://t.me/socks?server=127.0.0.1&port=10880&user=%40Tasiyanc
-@Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 5265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاسیان باخت نمی‌ده عمو
 </div>
 

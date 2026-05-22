@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/03/01 18:59
+📅 آخرین بروزرسانی: 1405/03/01 20:59
 
 ---
+
+## tasiyanc — post 5018
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سفید ترین آدما اونایی ان ک همراه اول دارن وصلن به شیرخورشید
+</div>
+
+## tasiyanc — post 5016
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🕊 VyDns udp 🇫🇷
+
+slipnet-enc://AZ85CaorQUXoIBGuBL/VhrBZ2rs3+wyezKP4lATkMBRLT0f5syODk5/0Wg2/fy7FHQe7W3xE+ul8LQYuV0R/fMoKzqnxxBpFFk9Qael9Th6hq3qJhSUse/OHefpssWdyKQPEHY5yEVCDFxbKHCGC8ECUn+C79GNs3waGwMcwgJNmpzgwp3i0Vj9uNDDEOljZALUPW4GH5Ae8gYm1YW649PVBgBH+e/47zg6MmhD3sF9vWw4Ci2XdVbe2J2IwoRuC1x19QSukFY4mJ23NXv/QMIF2Tl7sjAn8uQyxRu2Wljgkj4FXc0bD4oibacO0PCcbnd9OFM/CLZ4zr2M+1CZyHOrqxLKIK0+WrCVhCehkFZbxRO6JELPLuOpHUaO63QN6X3/TsC5ZkM/f+Fr/tA97YuTjTAbwm5Z0DmajXLpqhXGt/dn85yAnAd2kqXDmacgPuXjjXVm6NED3z07/h2Yrtm22O+ROI8ouMsfJ7NH9ALRI/x5e/KCc44cxd6WEqZygrdKSDpJ91ZUaIpWFhLPw2hds4Gepz2fpP92el8rXoijR8sD0XtGM7fcRJMcsUT1L9iea8SjZbs9W98VteYeLbeYk6J49RBidojAcK4cEeoY48SpdLmwu3+DQy4s+5CfW+rVAAV10pv0HlvxJslqZprM51JG5xU7n7EZHCl5tpMIjQTbmln99ePtxtgDc8j798UtYUNpvgpDm+W5lqxtdCrtJV2n1kvNjsne8K3JKmdmlwiaRE0Q0RKajTOuRh+esgIk=
+
+✔ Setting For Slipnet ✔
+
+❤️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5014
 
@@ -235,36 +263,5 @@ IPs 👑6️⃣
 برای اتصال پایدار صبور باشید 🦦
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 4995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 🦦
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 4994
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New APN All Operators 🐾
-
-Name 127.0.0.1
-APN 127.0.0.1
-
-@Tasiyanc 😐
-</div>
-
-## tasiyanc — post 4993
-
-<div align="center"><img src="files/post_4993_tasiyanc_4993.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Done ✅
 </div>
 

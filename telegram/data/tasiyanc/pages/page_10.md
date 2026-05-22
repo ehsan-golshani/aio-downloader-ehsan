@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/03/01 18:59
+📅 آخرین بروزرسانی: 1405/03/01 20:59
 
 ---
+
+## tasiyanc — post 5082
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5081
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 VyDns ترکیبی با نپستر و نکوباکس slipnet-enc://AQWUiXekehUioEA8QqMp3enet/bR52yS6R+DZxii7MSZwggy4Yj+WkTX1UsIOy6PR8DPOlK1Sc9G5+kT9f7wlfqOFEBgvjV1AcIU9ygPoAgrThVCvuoJKOUiwvYiVNR446bSlc7mo0sXhJJ2Qcx5gwxE/LS3/2bywXIo3tm4XX435JjDo6AFUasIeNeF4NgIK2Qi/ZWe2wF2v…
+</div>
 
 ## tasiyanc — post 5079
 
@@ -260,38 +286,5 @@ slipnet-enc://AQ/qrKVKYlb8eSFGTSbNS4J31e4prUy7HsbAD4q0rioEpBn8aUlOXJvtoYH+5VqiBA
 برای اتصال پایدار صبور باشید 😐
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5061
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns
-ترکیبی با نپستر و نکوباکس
-
-
-slipnet-enc://ATI+7R2iY5cLr8FNOh487X+7Y/DtS5GSiEoxzPKKG/rpZ6OX98v5+dCH6iFvbvpnQC200zYKQqajP5lCYikPU4NLQsA83cZnac7O2oEQ/Ft/vZufffVMdCiqT0CDpFor2XN4dWa9D8md0NYFw3GIwpG/dhrQeYX66NsueDcqP+4Srk3pOMrC2S+HdlHPYFm3nz4jL7pC3tlH0z7nNnz371tvEnA5qbIvNHwL7tmz+QayFYNbXEXqk2HeTCGFfk+euzVlX9Wh5JLny1qxVXF6VnVPhhVsfAUJfnNgTgmyIAZeg7m5DaTfP1wq8QifMltpa5vaYjy9plEvgrIVWch1xSj4iaQU/g6zZLYAUb4GOYZx4DJR/UnBaBLOiP7AD/22t+OCwg+pTJVJBv3TKkxjZMrsfBgopDII1Rj2s90ZnZnCOtgyAGuu+kGAMjqdXLKv0cD/JyOGq/ji1TgWC0lkHw2Xn3rH7VIC5sz/3srvWC3KtT4T/e/gGjBmkq5QXSfz2Y3b3Syqiw3WOco7/aUQKR5c0ttdNVk5414SmwRa9K8Oa0nVY29Y0EavuUFokdzmbO2UPwyvZ3VPPuVwztc5gD9TQefEZ4bqb3H/F82OCsTZOwAv2ptqAnBrJ/jdwSe95f2u5gP3XcQzOKgdmVz/pUN3yGn62UDau153yrVbJtX5A2ydz5M8dOSHt11d7DLf7nE7Y/i//5yIWwykBGXPLtvV2SpXPD3Bd8Du4NqhUNR2bcYEc9Dw9ZkhboY4/nXL/eSi4QgC/fxp1ArHtoGrlkaWUm2mbA7ED/1CaIuq
-
-slipnet-enc://AaAnFxUNMlav65SkhjhTCQv5gN7vpBPTTtKoGjWhQVZu7r6yxFCYxI+JYYCkfpdfBcP3eEaCkktvCIiVCnLH+PT74W0MHxKGLqiT6I/ZCK1lDW4ZrNaBfEAPNVBZ2TGq1d83E7E2iWti4LxA52HhlRJ8QKTClW5pniWkpF9eaIMS6gbC653sh4UzNK39lNANHRBS+PYmNV8d1vXVBjSKAEWTx4nSQ70dzO3qZAO9nQcbw2ClpXNYe1BQTmyPkL0sS0buYsykBWE0OttZxXKhbHnwn6rIdCVAquzNWkbk8BFofA4pIoZHy8YaHd0Mm9KRpSkzG3foksW+NHizYCkMufZjq+U7XINTKnyTXLHZdezKp1kNpcZstamR0tRypL4aO018M55X0lyBNwFaukJMMYDCKU6X/erZvmX4+GrHrS2kFIfDAz8BWR3ZYLz0bJgMz/lygsvFq5mKrL9TBe4ZRjQzwH6GlRXgUAQHnzhpSRJTi/jCnIXPc9AAwzSL057e9kus6kzhRC3NS2HOVGJ2qFQEr4SQbvFOxO6fjLm0qEJi8SfTaO1WTEyHaU1FBwDfGFJiHj7pYRL0/vSSTfRu3uUX7OUqJk/seXkgVDUDi7cVPgnnvdVhpkx6lG1g0FU4G3BztPYOMsJ3fl7Kq/kkMxxEjOj8iY7PMqhIo4e7pV8V7d1Mt59/Ejjpph3IvNmL9xGQR4rGWEhMrJJrhSzVEC9qOa7pvYV+KZMEebYvjzYJtA65MxREX6HbJfj+CThRv8gtz7dHuhX1yClbOkRp24c9DEHMXd7blFK4Ts7M
-
-slipnet-enc://AQjmttI+jAEcY5GBZjlh/34gzSCVK4Nt5oYXAy+kfSb/VtuAFlnzc37w5Ot1Wtz/+nV1ZH3MbdLqv+wjZVs0RJCsS9pFPetFir0jhexNbbdT175PrsC2mmHFnFOmW4vsWUqjCBUpqbOPXAwhhvlo9Cwm/Kqxvjt2WPX+xXgtowcDNQMIJtjdGaR8Fx7J9YyiHrKqdiMtmIfVTNbNqAy3cP1nO4dsNkRhAs0CSV/3joT1EhVEORwr3d53J2IEoN/dnxc/JDvisPvKxqKkViAwWmJwswaQCfczDGJvqAWpP4uQcSGl28mEvCEivFCQs0s8IQl1bEaT8ZktmPgFA8JoeLt43okVddcazADknjaYQkqVAYCiuUDqe1En9AUbd9KHqr7VaNbZovJZLF9sqs+fY0cGkSdLWTCSBju2EeRMpBWcW1Ih/TWqcc5Op2KbQeNHLB6KSXTAGvCVSYDp7zl5CSXji9JTZ55PWo2mMh6BUwrYgEIlk2oM4Lf/86lL55J4VsHsl5BiGwYuDfo+SRzgM3DyI/NSEeFYKdhLr0i5utKcqj8GGWJey73xhpIdRrf5bsE/9CkPU5XT4IBYgAkyU95VfokyI6Wt2dCFdjZT2vlsYk94fQw8nrp7ktAfVyJd1aQ2ZrRh7UEP0JYTQEaZ5EYZ5nuoXXPNYoK01MMwJp7UrZWLISjlYenjSliWgMIksVhfrNZHJ4KFxpU3Xlgrcwv4gzQBkAeW3PK9RC3lmZ0mkTar1xDTdstW2PZAWuc0PE+b2L1g/VKRtiRVE01GDwvaC2NI+o3tMsH5lixs
-
-آموزش اتصال 🔐
-ویدیو آموزشی 🔐
-آموزش اتصال با nekobax
-ویدیو آموزشی nekobox
-
-@Tasiyanc 🩶
-</div>
-
-## tasiyanc — post 5060
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودمم با 127.0.0.1 وصل
-</div>
-
-## tasiyanc — post 5059
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودمم با 127.0.0.1 وصل
 </div>
 

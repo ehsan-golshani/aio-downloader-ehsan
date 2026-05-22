@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/03/01 18:59
+📅 آخرین بروزرسانی: 1405/03/01 20:59
 
 ---
+
+## tasiyanc — post 4995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 🦦
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 4994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New APN All Operators 🐾
+
+Name 127.0.0.1
+APN 127.0.0.1
+
+@Tasiyanc 😐
+</div>
+
+## tasiyanc — post 4993
+
+<div align="center"><img src="files/post_4993_tasiyanc_4993.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Done ✅
+</div>
 
 ## tasiyanc — post 4992
 
@@ -390,23 +421,5 @@ Mci - 👑6️⃣
 اگر نتتون پایدار نیست پروکسی بزنید
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 4969
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@adolfazI1005_مادر_ایشون_جنده_تاسیان_میباشد.npvt
-</div>
-
-## tasiyanc — post 4967
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@adolfazI1005
-</div>
-
-## tasiyanc — post 4954
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بازه 📶 ✅ @StarTasiyan 1 Gb 275 - 2Gb 530
 </div>
 

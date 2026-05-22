@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/03/01 18:59
+📅 آخرین بروزرسانی: 1405/03/01 20:59
 
 ---
+
+## tasiyanc — post 5038
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 new all operators 185.208.174.167 31.214.169.244 185.109.61.27 5.144.129.174 37.191.76.110 81.12.72.218 185.142.158.162 185.88.178.196 63.141.252.203 109.72.197.1 80.191.243.226 142.54.178.211 185.137.25.214 81.91.145.2 5.160.13.85 185.200.232.42 185.200.232.50…
+</div>
+
+## tasiyanc — post 5037
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 new all operators
+
+185.208.174.167 31.214.169.244 185.109.61.27 5.144.129.174 37.191.76.110 81.12.72.218 185.142.158.162 185.88.178.196 63.141.252.203 109.72.197.1 80.191.243.226 142.54.178.211 185.137.25.214 81.91.145.2 5.160.13.85 185.200.232.42 185.200.232.50 5.160.128.142 2.23.168.96 85.133.167.108 2.23.168.47 2.23.170.80 2.16.19.136 185.143.232.122 2.23.168.250 2.23.168.144 2.23.168.213 2.23.168.254 2.23.168.174
+
+اگه وصل نمیشه در حالت عادی این هاست و پورت رو با IP های بالا ترکیب کنید 
+✅
+❤️Host: 81.91.147.148
+❤️Port: 10443
+به ارور توجه نکنید Ok بزنید وایستید وصل شه
+
+❤️@Tasiyanc ☑
+</div>
+
+## tasiyanc — post 5036
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کصکشی اگه مدال داشت طلاشو به
+چوپان میدادن نقرشو به چاوشی 😐
+</div>
 
 ## tasiyanc — post 5035
 
@@ -341,33 +370,5 @@ New IPs Ping 150 - 200 👑
 
 ☺️ آیپی‌های نمایش‌داده‌شده رو کپی کنید و داخل برنامه شیر و خورشید وارد کنید.
 🤩 @Tasiyanc ✔
-</div>
-
-## tasiyanc — post 5018
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سفید ترین آدما اونایی ان ک همراه اول دارن وصلن به شیرخورشید
-</div>
-
-## tasiyanc — post 5016
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🕊 VyDns udp 🇫🇷
-
-slipnet-enc://AZ85CaorQUXoIBGuBL/VhrBZ2rs3+wyezKP4lATkMBRLT0f5syODk5/0Wg2/fy7FHQe7W3xE+ul8LQYuV0R/fMoKzqnxxBpFFk9Qael9Th6hq3qJhSUse/OHefpssWdyKQPEHY5yEVCDFxbKHCGC8ECUn+C79GNs3waGwMcwgJNmpzgwp3i0Vj9uNDDEOljZALUPW4GH5Ae8gYm1YW649PVBgBH+e/47zg6MmhD3sF9vWw4Ci2XdVbe2J2IwoRuC1x19QSukFY4mJ23NXv/QMIF2Tl7sjAn8uQyxRu2Wljgkj4FXc0bD4oibacO0PCcbnd9OFM/CLZ4zr2M+1CZyHOrqxLKIK0+WrCVhCehkFZbxRO6JELPLuOpHUaO63QN6X3/TsC5ZkM/f+Fr/tA97YuTjTAbwm5Z0DmajXLpqhXGt/dn85yAnAd2kqXDmacgPuXjjXVm6NED3z07/h2Yrtm22O+ROI8ouMsfJ7NH9ALRI/x5e/KCc44cxd6WEqZygrdKSDpJ91ZUaIpWFhLPw2hds4Gepz2fpP92el8rXoijR8sD0XtGM7fcRJMcsUT1L9iea8SjZbs9W98VteYeLbeYk6J49RBidojAcK4cEeoY48SpdLmwu3+DQy4s+5CfW+rVAAV10pv0HlvxJslqZprM51JG5xU7n7EZHCl5tpMIjQTbmln99ePtxtgDc8j798UtYUNpvgpDm+W5lqxtdCrtJV2n1kvNjsne8K3JKmdmlwiaRE0Q0RKajTOuRh+esgIk=
-
-✔ Setting For Slipnet ✔
-
-❤️ @Tasiyanc ✅
 </div>
 

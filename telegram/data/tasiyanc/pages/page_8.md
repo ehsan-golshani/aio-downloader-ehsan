@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/03/01 18:59
+📅 آخرین بروزرسانی: 1405/03/01 20:59
 
 ---
+
+## tasiyanc — post 5132
+
+<div align="center"><img src="files/post_5132_tasiyanc_5132.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 185.143.232.122 5.160.13.85 5.160.13.85 185.137.25.214 81.91.145.2 185.137.25.214 81.91.145.2 81.12.72.218 81.91.145.2 5.160.13.85 @Tasiyanc 🐾
+</div>
+
+## tasiyanc — post 5131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑
+
+185.143.232.122
+5.160.13.85
+5.160.13.85
+185.137.25.214
+81.91.145.2
+185.137.25.214
+81.91.145.2
+81.12.72.218
+81.91.145.2
+5.160.13.85
+
+@Tasiyanc 🐾
+</div>
+
+## tasiyanc — post 5130
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IP new
+
+185.137.25.214
+5.160.13.85
+81.91.145.2
+5.160.13.85
+185.137.25.214
+81.91.145.2
+37.255.133.30
+172.237.127.6
+185.200.232.43
+104.103.65.5
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5129
 
@@ -454,28 +500,5 @@ Ip Shiro khorshid & mahsang
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ذات تاسیان :
-</div>
-
-## tasiyanc — post 5111
-
-<div align="center"><img src="files/post_5111_tasiyanc_5111.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گور بابای آیپی اسلیپ نت تاسیان رو با شیروخورشید قاطی کن وصل میشی😎
-</div>
-
-## tasiyanc — post 5110
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هنوز گپ ما جوین نشدید ؟
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 5109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال کوچکی پیش اومده
-سرورای اولمون بدون مشکل وصل هستن
-سرورای دوم به مشکل خورده بزودی رفع میشه ، از اینجا اطلاع رسانی میکنم
 </div>
 

@@ -1,8 +1,98 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/01 18:59
+📅 آخرین بروزرسانی: 1405/03/01 20:59
 
 ---
+
+## tasiyanc — post 5323
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang 6️⃣
+
+
+5.160.13.85
+2.16.53.11
+2.16.53.50
+167.82.48.223
+2.16.221.37
+167.82.48.223
+151.101.192.223
+2.16.19.136
+172.237.127.6
+2.21.2.104
+185.200.232.43
+2.23.168.7
+2.23.169.111
+151.101.128.223
+185.200.232.25
+2.23.169.105
+185.200.232.24
+2.23.169.105
+2.16.53.50
+2.16.53.11
+185.200.232.50
+185.200.232.42
+95.101.133.42
+151.101.128.223
+2.23.168.254
+2.16.19.136
+2.23.168.213
+2.23.168.144
+151.101.192.223
+2.23.169.12
+2.23.168.174
+185.200.232.11
+2.23.168.254
+2.23.169.111
+2.23.168.174
+2.23.168.213
+2.23.168.213
+2.23.168.174
+185.200.232.43
+185.200.232.43
+2.23.168.144
+2.23.169.42
+2.23.168.144
+185.200.232.43
+104.103.65.5
+2.23.168.7
+172.234.159.58
+172.234.159.58
+172.234.159.58
+172.234.199.15
+172.234.199.15
+172.234.199.15
+184.84.221.34
+2.23.41.22
+
+❤️ تست شده 📶 📶
+
+اموزش اتصال 👈
+
+برنامه مورد نیاز🔑
+
+Join @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5322
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 📱
+
+
+vless://f9aeba2c-4c68-11f1-8d30-2ddfba49052f@185.143.234.235:8080?type=ws&path=%2F%3Fed%3D2560&host=sv-1.jservices.ir&security=none#%40Tasiyanc%20Trkbi
+copy☝
+
+⚪️⚪️⚪️⚪️⚪️⚪️⚪️⚪️⚪️⚪️⚪️⚪️
+
+Join @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5320
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیش از دو هزار ساعت از قطعی نت گذشت ...
+</div>
 
 ## tasiyanc — post 5319
 
@@ -234,32 +324,5 @@ Join As 🩵@Tasiyanc ☑️
 برای اتصال پایدار زمان مناسب بدید😐
 
 Join As 🩵@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns 🇧🇬
-
-slipnet-enc://AZb3kbmR0Ojb+sUJQiuU4rTx3in4qXIaCWY4bLeg7Al7U7G69r2OcSguoqPu+/y8xvvAuvM3a30s4DZ1oz84a1LF0slSHm5mqMX7ZVQb3D56YDApAtj3/80ZHeNMmEFozpn36z/3ddmwKT6amAcCbq+K4j1IvsVCeP2PPLMsJDArlK5uSWAbHFa3zKyT1xY52CIJBJ1GFLizsfZSIh1avPhv5Dp+iLLBWwaI0soR52x6wWTJa8sAkaZ7F7YsqhidPirc+JW5lAnAUQeuR+qureAmS+bEpAz7UUEMPpy7g4m8556DSR6yRqItvnr1vbeDkUNVpQpTDBNlObTbS2dBI74wXB2MlLX+zLzqw1iVBMMq3OA6B+7KAkciHxWIk6IGWvHw1sX5+KMxk6NUDDJLiA+XoEAL3Sk8iywKt2lj0Cp1n6du2AhxTulkq37wOp4hJaFHtUJTrfr38+JZwunAxozhPKglQnNmeaHsi4TmgKt7I1P9JUH8bjxQQMl5U84Vfw2u1ese7AdaaFn7QvWmS8GV1IT8D1iUlexQ5+Sb1z1LwkEPsPhOPx+InsfKzf4pGr4QAUtWZwp+Uxn7S2zpUz0KkkxFd+VCDEwWzLf6lkA5NdjFSg6Z9jNiak3pJElb6sbGN0WQODlFYb5hOn3QJBx9mm9Xx4Cl9d810lAN6iPMimQF4X7W4flbboS14LIkFOXD1Zh2LHF7G4AAkQEXBMXFpC94WPjOBPBXrW/feFy0HSxPiKHyTfSalkOqOjOCDrwLwn3h
-
-Join as @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5300
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر ❤️
-</div>
-
-## tasiyanc — post 5299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان   📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-Join As 🩵@Tasiyanc 
-☑️
 </div>
 

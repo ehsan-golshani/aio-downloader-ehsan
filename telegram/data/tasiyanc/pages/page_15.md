@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/03/01 18:59
+📅 آخرین بروزرسانی: 1405/03/01 20:59
 
 ---
+
+## tasiyanc — post 4969
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@adolfazI1005_مادر_ایشون_جنده_تاسیان_میباشد.npvt
+</div>
+
+## tasiyanc — post 4967
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@adolfazI1005
+</div>
+
+## tasiyanc — post 4954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بازه 📶 ✅ @StarTasiyan 1 Gb 275 - 2Gb 530
+</div>
 
 ## tasiyanc — post 4953
 

@@ -1,8 +1,26 @@
 # آرشیو کانال MehdiBudam - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/01 18:59
+📅 آخرین بروزرسانی: 1405/03/01 20:58
 
 ---
+
+## MehdiBudam — post 8009
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+88 هم میگن خوب وصله.
+</div>
+
+## MehdiBudam — post 8008
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از 90 تا 98 وصلن بقیه رو خودتون تست کنید.
+</div>
+
+## MehdiBudam — post 8007
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+97 98 و بقیه وصلن.
+</div>
 
 ## MehdiBudam — post 8006
 
