@@ -1,8 +1,14 @@
 # آرشیو کانال MehdiBudam - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/02/31 20:03
+📅 آخرین بروزرسانی: 1405/03/01 13:15
 
 ---
+
+## MehdiBudam — post 8042
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنظیمات پیشنهادی برای اسلیپنت Auto-connect on boot ❌️ Proxy-only mode✅️ (درصورت استفاده از برنامه هایی که از پروکسی پشتیبانی نمیکنند این گزینه خاموش باشه حتما.) (اگه این گزینه روشن باشه باید به یکی از پروکسی های زیر وصل بشید.) https://t.me/socks?se…
+</div>
 
 ## MehdiBudam — post 8041
 
@@ -174,17 +180,5 @@ Pass: MehdiBudam@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 104 103 102 101 100 99 98 97 96 95 94 93 92 91 90 89 88 76 75 71 70 67 66 64 61 59 58 45 41 32 31 22 و بقیه وصلن.
-</div>
-
-## MehdiBudam — post 8022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-104
-
-
-slipnet-enc://AQCJ+li1RKrqTLYDy0gcGmHmMFj1o6zFuXB9NaixFwFlGCf4y3w/jYJek430/11khUjlXbiLpt/R9shHxD9qewx7aIi1ZzwovK5ZFesx0yLZ0FOD9zK7L0eqxuHYFWv/BuIelpkRjUgnNogmSs/jGClPHke37RKM32Mnq9XdRDIwRlAfBcMtvLVUIaJvVHVPXYHSICamHUFMKKk6jpWlpRpesKBWuWG1oa1cQxknfAQq5j/guv62l5y67t7vL82VLLyD4TBAaXONy1AGCPcOeBI3JMpTR2Rme8AW9cqf7R7haYQo/qI3i8qah5ACyJqTR85tIDxouTvoNZx31bTfwdRKgayQIk6J8+JdnF2sqkBxNYh7n7qJaBc4RsecirfoYJ1oJ/TLzXxrLTcg760TOfTfc9S2TtYsTWgx4/siBPY0288X97Iy+VUNExaYc1JUpgNfRgZChI2lt1bMObpjIAtHnUVi+1NLTGaQHyve6MVMNhxRkxTCkwmnZ4JD6Uo6JwKTwKVDBDB7hxJ9ZrqWIx4bi74LTRSz4OlorruQYqR3WI00Q1ROupq5/RHx1TBKMR4poBQ/JmZbGgUIihTXM2ZrkFZbH9ZrXztM3X+eRs1WQOdxvrnexe5UJIVx86BL/HMIedabv1Q5AANLHfSq05UTg/O86lf4R8VuTht9Q2ZjPHExxkmkUrVn/DuM3nBtWswQbzm34vypah0G+trJt4dXIyYy47hoADTu6Rl1aZrDwXHeOKMelI5sTSx04bkkXrDsEJSiXIzExDnPPtoS9AGgHCiwlEAquujJWg==
-
-
-@MehdiBudam
 </div>
 

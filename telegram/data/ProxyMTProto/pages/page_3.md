@@ -1,8 +1,49 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/01 09:23
+📅 آخرین بروزرسانی: 1405/03/01 13:15
 
 ---
+
+## ProxyMTProto — post 47507
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.18.175
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c97617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47506
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: He.jlpoKcu.cloud
+Port: 443
+Secret: ee3f8a91c2d7e04b6a9f12c5e8370bd4aa786170692e6f7a6f6e2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47505
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fastproxy.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 Всё упало? Наши прокси работают ⚡
+
+🎁 Бесплатный MTProto прокси 👇
+
+🚫 Без рекламы
+⚡ Быстро и стабильно
+🛡 Без ограничений
+
+👇 Получить прокси
+</div>
 
 ## ProxyMTProto — post 47503
 
@@ -150,47 +191,6 @@ Secret: ee44adc4da5280b196fa8192ffb712cef964726976652e676f6f676c652e636f6d
 Server: 186.246.20.121
 Port: 443
 Secret: eec11798ab008831b474066c9e1ebf5c99617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47487
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 178.105.168.17
-Port: 443
-Secret: eeb67e98429f3ba8896ff33ab9ff9d18a1676f6f676c65617069732e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47486
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rn.quantadc.online
-Port: 443
-Secret: ee526f153573c253113db8d64dfd69baf0726e2e7175616e746164632e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47485
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Когда у всех «Connecting...»
-BLYATNET уже работает ⚡
-
-🛡 Выделенные MTProxy и VPN
-🚀 Высокая скорость без рекламы
-🌍 Серверы по всему миру
-💀 Без танцев с настройками
-
-💫 От 15 ⭐ — подключился и забыл 👇
-</div>
-
-## ProxyMTProto — post 47484
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ak.yourline.online
-Port: 443
-Secret: eed74b20f8b196edebcfdc6de8c8985d60616b2e796f75726c696e652e6f6e6c696e65
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,157 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/03/01 05:05
+📅 آخرین بروزرسانی: 1405/03/01 13:16
 
 ---
+
+## tasiyanc — post 5121
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی که نه میزنن تو گپ بیان دلیلشو بگن شاید اصلاح کردیم
+https://t.me/+qJ7oM-0GidY0NTY0
+</div>
+
+## tasiyanc — post 5120
+
+## tasiyanc — post 5119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid & mahsang
+
+
+2.21.2.58
+2.21.2.89
+2.23.168.7
+5.160.13.85
+81.12.72.218
+2.23.168.96
+92.123.106.96
+2.23.168.144
+2.23.168.213
+2.23.168.254
+2.23.170.80
+37.255.133.30
+104.103.65.50
+63.141.252.203
+142.54.178.211
+185.137.25.214
+185.200.232.40
+185.200.232.41
+185.200.232.49
+
+❤️ Connected 📶📶
+
+
+@Tasiyanc 😡
+</div>
+
+## tasiyanc — post 5118
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان یه هل بدید ۲۰ کا شیم
+</div>
+
+## tasiyanc — post 5117
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid & mahsang
+
+
+184.24.77.42
+184.25.28.31
+184.28.165.4
+184.51.252.4
+184.86.251.12
+184.86.251.27
+184.25.52.200
+184.28.230.87
+184.30.150.142
+184.51.252.36
+184.51.252.38
+185.200.232.40
+185.200.232.41
+185.200.232.42
+185.200.232.43
+185.200.232.49
+185.200.232.50
+184.51.252.152
+184.51.252.157
+184.86.103.210
+184.51.252.135
+
+❤️ Connected 📶📶
+
+
+@Tasiyanc 😡
+</div>
+
+## tasiyanc — post 5116
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid & mahsang
+
+
+23.207.210.80
+23.55.110.74
+94.130.33.41
+94.130.70.160
+144.76.1.88
+94.130.50.12
+94.130.13.19
+95.216.69.37
+138.201.54.122
+2.19.204.217
+142.54.178.211
+95.100.69.108
+96.16.122.158
+23.55.155.169
+23.210.73.136
+2.22.151.181
+2.21.239.10
+23.192.237.222
+95.101.181.125
+65.109.34.234
+63.141.252.203
+104.78.170.186
+
+❤️ Connected 📶📶
+
+
+@Tasiyanc 😡
+</div>
+
+## tasiyanc — post 5115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال کوچکی پیش اومده سرورای اولمون بدون مشکل وصل هستن سرورای دوم به مشکل خورده بزودی رفع میشه ، از اینجا اطلاع رسانی میکنم
+</div>
+
+## tasiyanc — post 5114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وصلید با سایفون ؟
+</div>
+
+## tasiyanc — post 5112
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات تاسیان :
+</div>
+
+## tasiyanc — post 5111
+
+<div align="center"><img src="files/post_5111_tasiyanc_5111.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گور بابای آیپی اسلیپ نت تاسیان رو با شیروخورشید قاطی کن وصل میشی😎
+</div>
+
+## tasiyanc — post 5110
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هنوز گپ ما جوین نشدید ؟
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 5109
 
@@ -80,123 +229,5 @@ Port 8080 & 10887
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😎 VyDns 🌟 ترکیبی با نپستر و نکوباکس🚀 slipnet-enc://AQ04v8kA3vzNDvWV6A+LtPLYuZD6OPp8L9FzZmSrkrRQE4N17vHZR+OVfauEjsXEjF2CKn7j76W275SbPjmT14/8QWE9x6AArQi6jELwvW5shrH4yLR00aJkFHJ4rHxv+DfUf9XPKXkFV6jCnXNl76nROardAX2irGWYuz+kleLuVZq1QvpNw0j5xv9OBDLiaHen6UL6yQu…
-</div>
-
-## tasiyanc — post 5095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns 🌟
-ترکیبی با نپستر و نکوباکس🚀
-
-
-slipnet-enc://AQ04v8kA3vzNDvWV6A+LtPLYuZD6OPp8L9FzZmSrkrRQE4N17vHZR+OVfauEjsXEjF2CKn7j76W275SbPjmT14/8QWE9x6AArQi6jELwvW5shrH4yLR00aJkFHJ4rHxv+DfUf9XPKXkFV6jCnXNl76nROardAX2irGWYuz+kleLuVZq1QvpNw0j5xv9OBDLiaHen6UL6yQu22L/niPIWiT1TewecjScUPFlHDbkoWMtn9JKA8BctF1e4mUiB5ngbrAYrwYP1XyzIrv2I3duU/2fUKqcU+fJuMmCMKJSL++EB5pWua2NqRTBG+jE1hVVmeqmfbPrWlvqahAbYKNObqbXZxqPbFbVcwm8XKwXxv77K/Qi7JxQM5Q7DHDNKqkPyfpyeGCDeil/Lu8WiX5TfZQ8WbWPpJ471/fr6n+CJrirmEV0M5MiX9wnMWvt6x0z1r39kerVnLcZdHtqynHPp4S4ZB81TkssX2WIkeclWkweb79ZF9H/+TlATkdmNCkPQPKJwE1lmEIzD4F6iUVF+1r+QN60H6QMFvsS2+nIQxr06+8lK9Fdkn3s8S2qGDFw8RgX6XODFjLKU4htEpKJAh8sLpATi8UZl1sl76kO7pw8lgrOYwiF4+HrMtpjgjkeefyJ92O5iRMfhy358No1OK2aGC5UQWk2m6qA22jgZhBEc9LtdlpFh5YMHpRFqcDiO/mqU2uRiiMYhljHcL7tjcRYAfwFo+F1G8vaVgsk22xkQppXIZL8JcNhTglFId+2fntDl7bsa05LEb72t
-slipnet-enc://ATQGgOaJwLZBcKGgecLpcmOabBQfQfaTIA1lQK1BUTiz58ZV5PcesIxbrj+UYdsAUzrVj1slAVo1yiQFXb9LuxfWsPKZLstUJx6i9cmOfGWNdfLySHjaUnHjrMbrTTZYa7KS3mwDap22KnX/ET2ah5oLTiKJBzR3evQ39oqu+PKRUhqvUGeDwOWzbC2jhN308s+smIP/WqO6Cq3hKcBbGdQIvLY9QBUAFtQDG4EnC4uDnyUADX2VJzshdvf74eYqiKbGsgeD3hSVi3WW+M5zM0cPjMLRJhMkSUq7axbEG30PUQw010plH8d//JjaDQtu3iK0kk+BlooGcgpEV+egMVNWN2m4mZPwbnUoccNx12mgsebCLZrHuJBqiumfp325HczXYgRIjmQqMV7t2/9Eoupa2pdnxrV9Hu0FeioovEtq6YVH+bImBQtsDwQS8f4pxYf+GcNWi7G7q9RcijH0n87gkDzqNTvxQuyt8ldGExr4t6SRhAQKNRs4ewY7ATVwT8MFX3MefzN7Gx4AB6kUg8a2b+DkRacG2gPNAJ1Qltg9rPWR7lnzXE3xQK3qyyNHq8U0c8hE0ihzPAD1bekXJ6UqDIR1NiVMAsa3RbM7LeT5QGGqhGvBe5VCrenIBRxUopu2vI2NE4H0jNCKTUZTSZYo5FYt5VyfufVFsIkYxLJ4LcZ/wmRgHo6fRs3g7asiSj2JUN5dPA3jauoAY6zLHxr4LBWigP3bjXvBwhxucbJMdJpjBf7TRaQ3oHqxX6g7wcPKQrF/IeLaj+X+6g==
-
-آموزش اتصال 🔐
-ویدیو آموزشی 🔐
-آموزش اتصال با nekobax
-ویدیو آموزشی nekobox
-
-@Tasiyanc 🩶
-</div>
-
-## tasiyanc — post 5093
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش باز هست عزیزان
-@StarTasiyan ☑️
-
-همراه ساب - آیپی ثابت آلمان🇩🇪 - بدون محدودیت کاربر - استارلینک
-هر گیگ 260
-</div>
-
-## tasiyanc — post 5092
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شیرخورشید ، همراه اول منطقه ایه وصل بشو نیست برا همه؛
-الکی ترفند نگید
-</div>
-
-## tasiyanc — post 5091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Password: Tasiyan
-
-📶 اختصاصی تاسیان 2 سرور متصل 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5090
-
-<div align="center"><img src="files/post_5090_tasiyanc_5090.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Eric.npvt
-</div>
-
-## tasiyanc — post 5088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5085
-
-<div align="center"><img src="files/post_5085_tasiyanc_5085.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داداش دمت گرم ، خیلی خیلی درجه یکی
-پولی ها هم اینجوری نیستن ، خدایی خیلی خفنی
-سر سلامت
-</div>
-
-## tasiyanc — post 5084
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns ترکیبی با نپستر و نکوباکس slipnet-enc://ARW5TYIc9f8Yiqf2QNOaS7YHSQobbOm2mraoEivTP6TXhJj67kK5Qqm3rOU4p/NBiIVE0ATtWrhZnuHJQ4fKNoeqtlpfbF//VbWbT4jXmXNHRemafUeMiUKzNrEX2PAMb+zqca0iEERuervYcThrjR0WLeMSn/Bvtir/4hdP46SX5m692QZr8n4AEVzttr9F4ma58pml2TiWX…
-</div>
-
-## tasiyanc — post 5083
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns
-ترکیبی با نپستر و نکوباکس
-
-
-slipnet-enc://ARW5TYIc9f8Yiqf2QNOaS7YHSQobbOm2mraoEivTP6TXhJj67kK5Qqm3rOU4p/NBiIVE0ATtWrhZnuHJQ4fKNoeqtlpfbF//VbWbT4jXmXNHRemafUeMiUKzNrEX2PAMb+zqca0iEERuervYcThrjR0WLeMSn/Bvtir/4hdP46SX5m692QZr8n4AEVzttr9F4ma58pml2TiWXdlanBJZhhDJP2xCIXyZqN0pTNTIt6I+qHjqpMaYm9mhl2b42qrWFnGMQEGvTfjXqCWYnFny8pjkq+ilhksxvwbDjzGtk2XP0eFR+kWUJUxUpxJY/js++lPA4zG6sgurmrVlQjdSHOr+HusatWIQjkuQs/LRiPT3G8uILmLp1DhjZtQon5FEeh7SUiPd6GIRFscSVLWijnpNsVwCMPjRb2Day9srn9wnQlHNADykS9Ka4KkePJ1GQivbh+f0hSYO91b++cUkZBtHhjGD2OfVwB9fefMGD2T0U9PeaGRO+/21dbV5z8N2JDV34J+myYRouPW/xLqWGbprefS7C9WKP0cTfUqqhAVUk+Avhmq3vxNP9Fl7z9hdZGApjBvkkvA+v31P63oRwdkfZNH8kObuF5sFledZ6yITeZsItt9sMEVPz+mjOt3+UGTwlC4k0m7OsAuhP47bXuLiVnaAX2YnQuIaLl8DN3hgMjFQ70Clu10YWnJjA9QiGKBbXPAl8de3+/cfOcfWuT/dQgHpGW4Bn8lXQWYZWzX9S6m50+1zFZXZ8mWVPW1sLMov7dFwWeV2wQ0KbAUP2BQcTJjRfL47bYAx
-
-آموزش اتصال 🔐
-ویدیو آموزشی 🔐
-آموزش اتصال با nekobax
-ویدیو آموزشی nekobox
-
-@Tasiyanc 🩶
-</div>
-
-## tasiyanc — post 5082
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
 </div>
 

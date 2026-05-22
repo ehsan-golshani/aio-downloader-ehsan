@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/01 09:23
+📅 آخرین بروزرسانی: 1405/03/01 13:15
 
 ---
+
+## ProxyMTProto — post 47547
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: peyk.acharbashi.info
+Port: 4515
+Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47546
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: win.sosproxy.space
+Port: 443
+Secret: ee477ccce74a28c13a2ef6ec9e01510c3164726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47545
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: artt.proxytg.space
+Port: 443
+Secret: ee859265446d8bb72e53291612281d57e26d61782e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47544
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 94.241.175.144
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c89617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47543
 
@@ -150,42 +186,6 @@ Secret: 7kd_O40bfqH7vBqnDK2iL5R3d3cuZ29vZ2xlLmNvbQ
 Server: free.proproxies.top
 Port: 443
 Secret: ee4fb60224ec3ba77691889623ffd44dc8667265652e70726f70726f786965732e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47527
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: win.sosproxy.space
-Port: 443
-Secret: ee477ccce74a28c13a2ef6ec9e01510c3164726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47526
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 87.120.244.129
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c95617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hop1.proxytg.space
-Port: 443
-Secret: ee7e6c3f99b8b56d5aece5326877a3793a6d61782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47524
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fastproxy.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
 @ProxyMTProto
 </div>
 

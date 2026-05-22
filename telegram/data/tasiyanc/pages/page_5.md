@@ -1,8 +1,109 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/01 05:05
+📅 آخرین بروزرسانی: 1405/03/01 13:16
 
 ---
+
+## tasiyanc — post 5192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرورها نامحدود و سرعتشون شاید مورد پسندتون نباشه ولی با توجه به اختلالات شدید حتی اگر تلگرامم بیاره بالا خیلیه
+۸۰٪ کانفیگ پولیا دچار اختلالن
+</div>
+
+## tasiyanc — post 5191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀
+
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۲۰ کا شدیم ری اکشن نداره؟
+</div>
+
+## tasiyanc — post 5189
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💦20 K ...⚫
+</div>
+
+## tasiyanc — post 5185
+
+<div align="center"><img src="files/post_5185_tasiyanc_5185.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs Ping 56 ✅ 5.160.13.85 185.88.178.196 185.208.175.228 164.138.17.122 185.137.25.214 185.208.174.167 185.50.37.52 185.141.106.238 5.160.13.85 37.191.95.70 @Tasiyanc 🤩
+</div>
+
+## tasiyanc — post 5184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs Ping 56 ✅
+
+5.160.13.85
+185.88.178.196
+185.208.175.228
+164.138.17.122
+185.137.25.214
+185.208.174.167
+185.50.37.52
+185.141.106.238
+5.160.13.85
+37.191.95.70
+
+@Tasiyanc 🤩
+</div>
+
+## tasiyanc — post 5183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید 🚀
+
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آپدیت فایرواله دارن شدید میکنن فیلترو
+</div>
+
+## tasiyanc — post 5176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دو تا نپستر آخری خوب بود؟
+</div>
+
+## tasiyanc — post 5175
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DNSTT TCP 🇩🇪
+
+slipnet-enc://AWPVFU23PS/+4kTSVFUhSCRjtKuCJv2Eh5qx3JWPubIXCk2bvhflTmkWzWSfZ8+v6Mn4qFm+e4RPEgyhauiHXk7FasRbjke21zCv6iF9MVgCDYzSfeJDaD9SBH1bL5hJ08KRBHICwCC0q8Ncqr8v+hkn2w4TNZLxTLlgAU65tvznlsbm6ZfZOxAAXcX3RDfWh3C85PpM5IUYclXMmOOl+MC6g6q0VJXUECM6XWhCi7FsPxZFw4tQCoGPYmFZC7HdRkAoG2bFgbTBDOfeDPfM/QZuyVAjzzXp2DxH9KuKjjcbyh77NohQBbkDh0IJbFiHaCKYRivwvIlOIO3vFd6NCX6uTvEMaZsSfZUNP0ncJcP9vBaU77be5MQ2/cvhHO2u/BLQ1zCmD1NB27D7HTurRVjzpvMvPg6QYT9sxLWyclz/vtLgo44NcLSD4zwKtdTGAne2r5dD8zJDYvWURu6MYmEfINhOPHgbs0n+rsZDpqhe+wQ0v7NWT2uGixy9GQm7tosa3wffWHio3L/vTlj6LXSfcOE9qa/qlqI0aTvFclauzDswtlKKwtrwkridlistiPtLRzlDYV2hSE7dhGFY//SrOnmKyaVMybWsGwJbL9EX1VD69qbfjuKM7BRgkp9dwxwvz0V+8Yu0k8C0DcdAF9D/G89LuOLFWT0blz/m1wNXkLeTUEAEnZV0Est7FzRCfN8zCdrEG38qXYhKuESTon9WQXrxpPn4szqB3r+Nq4/5RSdxKz0at3TaWq+Gvob0f30/lZddOKz+62kI87c=
+
+Join As @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده 📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید 🚀
+
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5171
 
@@ -76,107 +177,5 @@ slipnet-enc://AX3z8tTh/X9om0T2Ji+iBGSVRwdgrd1yorYs54KFL1IhoRved1A3EZ/8Hb6WcVweh+
 برای اتصال پایدار زمان  بدید😐
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5162
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان  بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥HOTVPN فایل سالم
-
-بعضی سرورهاش وصله
-البته بنظر من واسه همه اوکی نیست و منطقه ایه خودم تست کردم نتیجه نداد 😂
-
-دانلود با لینک داخلی ⬇️
-
-دانلود از گوگل پلی 🕹
-
-دانلود از اپ استور🍏
-
-راجب امنیتش اطلاعی نداریم 😍
-
-Join As @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5159
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روح بانو الهه در آرامش 🖤
-روحش شاد و یادش جاوید در دل ایرانِ تاسیان 🏴😭
-</div>
-
-## tasiyanc — post 5158
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 قاتل الهه حسین نژاد امروز صبـح اعدام شد
-@Tasiyanc
-</div>
-
-## tasiyanc — post 5157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما اندازه اینا تو چنلمون کس بگیم همه لف میدن
-</div>
-
-## tasiyanc — post 5156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان 5مین بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5153
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هات وی پی ان ویروس داره؟
-</div>
-
-## tasiyanc — post 5152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چرا برنامه هات رو گوشیم نصب نمیشه
-</div>
-
-## tasiyanc — post 5151
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Slipstream 🌟
-
-
-slipnet-enc://AT6bKWyWhFfp2kmUc5BezhfIZ/6ovcMtl0L2GneHixJ8E/qhkAqQyeb1P3xV/aCw3jeBaZ+1v5Z79WMyUjkctQGY4b9ALNjXJLxVEBkDEzr5xo2mw6/Y41qP2RSdBxIxFoY++Fa1KI4PpVv3AEyhOIGjPaSN+fPi7j2HlvmANpdZo68FYyalPK7fzAdgzLiYZJRMaMlFdvxeDWLkp7a8eBk51i6L7oGrYJJduLL+ybHEnacqM2VPHhtdpTRM3D4MvE8DxaDqhTN7JyKtM01GEAx1/70ai6R00zKT2qQ4mxslTAgUf5P+lQnhD2AV4pidaVrJSNafEU0S4/JJ0ZVEg3fjAA6sZW6Nk1frB0XVKg4QHbrAzFHt93YtIOYrKRIKF1d/E/BUhtw1zQUaFXmteu0521mDFXIQpTkv+q4SY/EhCE6mGpKl7gEpa72eZxlfeAdVA3sLuyN8SMZWxNAL0zJAyWey/oj9J8JrGl0WIirlqlSv6TdLvHEae/xBWD8dbsNDshZ5NTMogiRlkMiVAuWRKebOrbN/pFIbafT+VIaOndRZJypWC4pSFNd3pZlJ8txZKw9Q+mEHDySWmnXXTVjziitfc6R1bJwSVFdxg/JHP66L7/2wfCAQyTHnWQK5hQgWaI+Sh+Swmg==
-
-@Tasiyanc 🤩
 </div>
 

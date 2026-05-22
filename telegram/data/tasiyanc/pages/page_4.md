@@ -1,8 +1,108 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/01 05:05
+📅 آخرین بروزرسانی: 1405/03/01 13:16
 
 ---
+
+## tasiyanc — post 5213
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛡 🌟
+
+slipnet-enc://AVE7PohoSt6uWpl0QeAEtPG5bxVDAPlYcE1llXvA07obK3p9Dsq+eOXsO71j+KVLSOYSQCUIGT8vZBUzsX18MW6Hki6ORP0j/H5AsYI8wDg7PXD+7Gn53MvECyaq8P60WglUC/lhiI44/pV8EdaX4ueaC5JqTchJD9k3orRk7Goagc6GbpT/ji+UVq3TohdsLITtDTshOBpgDlXdwTLvpYBiqlPRKFbL8ley3ebEZBV7yM//XzHZZjOPpRwAtWVYWGRGK2kjqiXwHGwQbSzGOdBNn8jOF//65YDYRPfhKjBY2DAXmHrTCRxTjrnYgaZfXVLT6ZWHF8JiOYHzm3JEckLUur/I4TjC56l2W2sYU9M3rETHXy3RmoljEaoBntZ9Ye0cuqMr+sTI0VP68d0iVtWiohHZbKut6FEygSiSR7YTuQPHBA9Tf2QkmpcoDtTiwJlZVM/aPnZc5UGK8npKC7qxSn/aqkjBOuiku6AC3bnntbed/FX0KTJPsjuRutskErUF+XH7Cdn6mtZGb3hR/GAOa2IIYN0uEv12eOthBcXwisA30/sLFNG4CLcfEDazZ9zFpAoyb8gstxhr1LoMGrXvGDX+94E9ZWSgAmTmg7+1Kc802pBXSv/MPUTuNKcS+JTK5KUAFWIcj0fTgHBec+OYXmJ88ikVRG6JX5ZEWCtO2ZBkWxN7aJbxw3yoxiNI6WTybsh7y2B7v4U2eYImSSuNIoOdnOwzNqfF9zGut3PZRhMvHekz6M0m8PzrO4ZR2wcgz+5FspM1
+
+slipnet-enc://Ae1bdKnKMaAVkhaVFC0tbxojRNyFsnzAJMmpy2J6CMVK9pr2XDYzhVKFtggjvaqZptGN8hBUKLoRaToIiq9j/7NfMygv6iyp4vlge+HVX4OJiQNOhLjr+8srmXWvPl+LFpxxETJxsrC+PAy88KyAK1lSMK+3Yih4zwYyJc5NKK5+fROZC0BlCTcF8Qc2NghIi9clKifxepEF9/4JPoH5m/CAXmaR8jv+5qPE3bUOZGXbDpeE4lIXKNNRRc6NP828x1WV488NnDy9YIoaA5u3jzLg0TMpEVOP8cDx6sF5NWd6KRQOc8TTxSZbV6f+Muj8R/gWUxilJ+0uPQCYXqUPE863iaA8hMDVtSKMe8lpx634HLEzAexonsY+ILhzj2rlcPDoPzC7neH28xZMCZsJl82ensR02/LSp2DUeVMlwtWPF3Bn1vH8600GBj3QFK2NvtieZ9w+nLmpm24IP7aCca8a0rYecupB0ZZr0jhUOxpUbcxC6FOIUcB9PiRPVv6K5Ie5AGi6ZUDsq3dc0en0s/mFVqz7HtkelrBDT2jf/zLrXNgVQVEZBNev0lVYLlEerXAzXKkprSYzIc09MB0m3Ie4ZM8bdwr2BQ+jWuhPUanyUM9JVFlFsFha3udIz95MnaHTyP1F3C0yUoZJrJiim+BTXOgM7w62j7oTumXSmgTRiCFhOefgeDpgagFlEbMyhjgxjwAbGphX14bPzr6zjq9X+TE4UEUopO072L4iSAKyS6dW9EdQPOzcxrsaO8W98YtwUu+3
+
+آموزش سایفون
+
+🤩ترکیبی بزنید با سایفون اگه وصل نشد مود پراکسی یا vpn تست کنین
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 5212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان وای‌فای 📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5211
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DNSTT 🇧🇪
+
+slipnet-enc://AeMf7mMr1HJGkag2PSChX/pjKeXDxb16uNfYxvob0gHrIthcqDq9Q+KhESEAmFqoBA7oIn2W/MOscZFxmb5GSwSs80G2A7hZRrIrlrHdrO0BRu7OnWvmtCUZ8BEYvjJoWab+ZllFgbkWKyE12qHq5fIzbnoXSCAtYAenTPV1DRjMvDFjJOdZ1Vi6VU67aLU65WVaCLXnoEKhMVNJC7tqfxZrReH68dj+G8yFLG0dV6HWxneSULjH/cWbpX22y5RzIPqEFa6XI16rADLLqYerGUJt+Rv6LHhq+sJf3LSwwvjaIcfy/9Us+kUp3QaY/4pGdeDZto6HxUt6eXR/AqE1Q/IkaMEkyeVP+fv6BLXcEGB11XGmWtZsHtxMv5llboIkwqAsgBgV83tVTCjJ5AbVUAVWG0IkTC5CZGljA47gJpW021A0pJ53sLAed34EJPdf3Oxuq2+OHfubOdkD4sho/lDOzJKnDKf7jPW1dSVdb/9IjlIdpdZR97KE1YZuNZ9NyiX8NfZybSKy55D1Tc5T56FkaHamqK+gZlCyduL9UrBsQv3NLlnzLx8j2e4hWSx0p8vlMxwuwTOuBneVSsGs7dsuxUixJyvzWFuMRSVh8rL59Vw9wT/qURSKbAka/7TyTayQ3B8RVbuzKBfQVD7UR5fQ7LiAbwq8SR7PaErA1PRdtS0CXfrn7Kee/C6UP9UClTyBU4Iy+LNRHDOpbLqBRhpbsfmXEp0iqJV2Ta37d8oEnYqnCYYA2olsaNr2ht+ly2PvPa50fZhwP9X5rEGunaoL
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5210
+
+## tasiyanc — post 5209
+
+<div align="center"><img src="files/post_5209_tasiyanc_5209.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc ✍🏻.npvt
+</div>
+
+## tasiyanc — post 5208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با وجود اختلالات شدید همچنان در تلاشیم وصل نگه داریم عزیزانو ، کانفیگ ها تست شده ان چون اختلال زیاده کمی زمان بره بیاد بالا پروکسی گذاشتم براش ، امیدوارم وصل بمونید ❤️
+</div>
+
+## tasiyanc — post 5207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 اختصاصی تاسیان تست شده 🔐
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید و از [ پروکسی ]   کمکی استفاده کنید🚀
+
+Join as @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 VyDns SSH 🇷🇺
+
+slipnet-enc://Aaww8PvxLPFu0vkE/TIjc9hYWkVu7OWWdAqZv8BojMszVKFG748E1qv3vVdom8HPa589CsF2TckXpJuxMfZHtxnkJtVzlxR8FEDWSioSqQKLdnMNg8O3+PYW3IC+BjTEAC+SIkVvO7WaIKbFmyVlSkQ576KjLtvJ5sSJIVxbvJz9tWWsUwrmVozg+4O8XpdXFYw9l5iu9IzRs901XONAkpZwDUTun5PG1sXDkINFt4bcglFq7+6EywRK8PuuGftRXd44mxb2sAnk+QRzZS81jN2KS2Go7nfb7N5Ge3g4Wmj2SC9xJlqfKEbwsGVqISPxYSx5zRhRQfl/+sVQ3UytJyFHkRy2HKwuNmdQeHCx7WilpVssGk+bvkbhH3Get3gXEtfT0Z+5YRzl5dISEI3DLTMqgzhPBaWHkoQgZrQOu5NdelJLE33BmM805XTdOIPlcYA0kfpBaOL+kdnd0lG99zt5bXVcuelgmJPxkBhAXA5S8kWlDN+603DsCtwNYgto8Z+3VG2+I9suL4ICkubGf3nC1DP/q3q28/GU2088Z0IR5Zzv0SrHDMGhMezI5+oHwKbgtvRLHXL0OG5BUKD/PmJJFeUMi2lVzXuYjMhVmBkkEiuzFH3jP1erzRTMozQa3wiaPCZBlVQsBqpfo6gs/ujhJT9WPoz5HYHHjSi1qb7qdjAcP7IahMMln55ZCSJE15Yj3qeJSNmtLRZdw5cIrcO5E0UTdCn43W2+UQo6lldt6FzGDqfC4tvAtXxK4fF0ju5GfhLdxtVdIL6nErqMIzF0a8b2IctWdrz/+QuM7xmZFS4b4K9m4sffPqpzskmIa/csfWwFzOLy67uyDjFtQNXvUiZjw4K2//Tdog==
+
+Join as @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده 🛜🛜 
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید و از [ پروکسی ] کمکی استفاده کنید🚀
+
+Join as @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده 🛜🛜 
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀 صبر ندارید نزنید 
+✅
+
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بسته اس اطلاع رسانی میشه اگه باز کنیم
+</div>
 
 ## tasiyanc — post 5202
 
@@ -109,106 +209,5 @@ https://t.me/Ta30aan/53472
 اگر یک گواهی CA را نصب کنید مالک آن گواهی میتواند به اطلاعات شما مانند رمزهای عبور پیام ها یا جزئیات کارت بانکی از وب سایت هایی که بازدید می کنید یا اپلیکیشن هایی که استفاده می کنید دسترسی پیدا کند، حتی اگر آن اطلاعات رمزنگاری شده باشد.
 🔹حتما فور بزنید هیشکی این اشتباه مرتکب نشه
 Join As @Tasiyanc
-</div>
-
-## tasiyanc — post 5192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرورها نامحدود و سرعتشون شاید مورد پسندتون نباشه ولی با توجه به اختلالات شدید حتی اگر تلگرامم بیاره بالا خیلیه
-۸۰٪ کانفیگ پولیا دچار اختلالن
-</div>
-
-## tasiyanc — post 5191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده  📶
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀
-
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۲۰ کا شدیم ری اکشن نداره؟
-</div>
-
-## tasiyanc — post 5189
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💦20 K ...⚫
-</div>
-
-## tasiyanc — post 5185
-
-<div align="center"><img src="files/post_5185_tasiyanc_5185.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs Ping 56 ✅ 5.160.13.85 185.88.178.196 185.208.175.228 164.138.17.122 185.137.25.214 185.208.174.167 185.50.37.52 185.141.106.238 5.160.13.85 37.191.95.70 @Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs Ping 56 ✅
-
-5.160.13.85
-185.88.178.196
-185.208.175.228
-164.138.17.122
-185.137.25.214
-185.208.174.167
-185.50.37.52
-185.141.106.238
-5.160.13.85
-37.191.95.70
-
-@Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده  📶
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید 🚀
-
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5182
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آپدیت فایرواله دارن شدید میکنن فیلترو
-</div>
-
-## tasiyanc — post 5176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو تا نپستر آخری خوب بود؟
-</div>
-
-## tasiyanc — post 5175
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DNSTT TCP 🇩🇪
-
-slipnet-enc://AWPVFU23PS/+4kTSVFUhSCRjtKuCJv2Eh5qx3JWPubIXCk2bvhflTmkWzWSfZ8+v6Mn4qFm+e4RPEgyhauiHXk7FasRbjke21zCv6iF9MVgCDYzSfeJDaD9SBH1bL5hJ08KRBHICwCC0q8Ncqr8v+hkn2w4TNZLxTLlgAU65tvznlsbm6ZfZOxAAXcX3RDfWh3C85PpM5IUYclXMmOOl+MC6g6q0VJXUECM6XWhCi7FsPxZFw4tQCoGPYmFZC7HdRkAoG2bFgbTBDOfeDPfM/QZuyVAjzzXp2DxH9KuKjjcbyh77NohQBbkDh0IJbFiHaCKYRivwvIlOIO3vFd6NCX6uTvEMaZsSfZUNP0ncJcP9vBaU77be5MQ2/cvhHO2u/BLQ1zCmD1NB27D7HTurRVjzpvMvPg6QYT9sxLWyclz/vtLgo44NcLSD4zwKtdTGAne2r5dD8zJDYvWURu6MYmEfINhOPHgbs0n+rsZDpqhe+wQ0v7NWT2uGixy9GQm7tosa3wffWHio3L/vTlj6LXSfcOE9qa/qlqI0aTvFclauzDswtlKKwtrwkridlistiPtLRzlDYV2hSE7dhGFY//SrOnmKyaVMybWsGwJbL9EX1VD69qbfjuKM7BRgkp9dwxwvz0V+8Yu0k8C0DcdAF9D/G89LuOLFWT0blz/m1wNXkLeTUEAEnZV0Est7FzRCfN8zCdrEG38qXYhKuESTon9WQXrxpPn4szqB3r+Nq4/5RSdxKz0at3TaWq+Gvob0f30/lZddOKz+62kI87c=
-
-Join As @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5173
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده 📶
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید 🚀
-
-
-@Tasiyanc 🩵
 </div>
 
