@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/01 15:42
+📅 آخرین بروزرسانی: 1405/03/01 18:59
 
 ---
+
+## tasiyanc — post 5298
+
+<div align="center"><video src="files/post_5298_tasiyanc_5298.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5298_tasiyanc_5298.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## tasiyanc — post 5297
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5296
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5295
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگا وصله ✅
+</div>
+
+## tasiyanc — post 5294
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 5293
 
@@ -126,49 +168,5 @@ https://t.me/socks?server=127.0.0.1&port=10880&user=%40Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تاسیان باخت نمی‌ده عمو
-</div>
-
-## tasiyanc — post 5264
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید گپمون خوش میگذره 😂❤️
-https://t.me/+qJ7oM-0GidY0NTY0
-</div>
-
-## tasiyanc — post 5263
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیا میدونید ۹۰٪ سرورهای پولی قطعه از دیروز ؟
-پس چرا توقع های زیادی دارید از یه سرور بدبخت که بیاد ۲۰۰۰ هزار نفر با سرعت نور وصل کنه به یوتوب و اینستا ؟ بخدا به چی قسم بخورم همینکه وصل میشه تل بالا میاد یعنی راه درستیم
-</div>
-
-## tasiyanc — post 5262
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ذات نوید
-</div>
-
-## tasiyanc — post 5261
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SSH Method Slipnet 🌟
-
-slipnet-enc://AcF+yWITGeU/ZHgOfbKgRnZQJ4YUQapWxnDuZdKui8CPih0yj2WmBuA8zZzGvJSjuNsWCOq/lO7dZW6ywO7Fr9kd52KCWLkseRsOE4ot7N3smQrP/UsHuHHq/EbT6jPZdlOY7RLKYTuNnL+p6k4znS8jt331oOi0t/PsGqtCdGSinHe8Rt+BpHfb0DgCGCc06nm88/w+he6j3jOAL9JUodP5ZpJ6mBvJmGzahAl2QBwIXGQGRLr3PBN+clyrL53QgeOuwcw5yukfTNxCtokLvhVn8J5LPvKgqWPo9qQWhuI14EK4stJ36FkJxLMzY8HSR5o4vuEcp9LVskSQQWeqNGkGMVWiNNXjZiNLKYxNLjQh2eSPxmWrjhM454TkfjTHDBQHEUuQyA4xkdxdmgax5GVDiDCSOH4+36UvS/IV1RbAFsjPjf3D/Knhu8DVf6FrI7gEC0/gcOnYvT/xsSgvvgMGOnP6lclwRVsxGdhsOLDH4blCcdpPkoLhKy7GM69qSbM4BN7fFkZP
-
-😐 متد SSH - اسلیپ نت حالت پروکسی باشه و به پروکسی زیر متصل شوید
-تنظیمات خاصی نمیخواد فقط باید پروکسی مود باشه ارور داد باید چند بار پشت هم بزنید تا اوکی شه
-https://t.me/socks?server=127.0.0.1&port=10880&user=%40Tasiyanc
-@Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 5260
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنظیمات خاصی نمیخواد
-حتی پیشفرض باشه
-فقط اسلیپ نتتون رو حالت پروکسی باشه
-
-بخاطر شلوغ بودن سرور اگر ارور داد پشت هم باید بزنید ، متد ssh فرق می‌کنه ولی خب پایداریش بیشتره
 </div>
 

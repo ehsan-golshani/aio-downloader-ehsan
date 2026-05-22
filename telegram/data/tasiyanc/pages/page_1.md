@@ -1,12 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/01 15:42
+📅 آخرین بروزرسانی: 1405/03/01 18:59
 
 ---
 
-## tasiyanc — post 5314
+## tasiyanc — post 5319
 
-<div align="center"><a href="files/post_5314_Weed⚡🌱.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Weed⚡🌱.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang 6️⃣
+
+
+
+78.157.41.60
+2.23.168.254
+92.122.166.232
+2.17.251.98
+23.39.148.245
+23.58.223.225
+95.101.111.138
+185.141.106.238
+185.208.174.167
+185.53.142.174
+158.58.184.147
+185.137.25.146
+94.232.173.28
+185.208.175.228
+164.138.17.122
+80.191.243.226
+37.191.76.110
+85.133.167.108
+37.191.95.70
+185.255.91.60
+78.39.234.140
+109.72.197.1
+5.160.128.142
+5.160.13.85
+
+
+
+❤️ تست شده 📶 📶
+
+اموزش اتصال 👈
+
+برنامه مورد نیاز🔑
+
+Join @Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5318
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانسل
+</div>
+
+## tasiyanc — post 5317
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وصله
+</div>
+
+## tasiyanc — post 5316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همراه وصله سرور رو آلمان گذاشتم ip جدید وصل شد
+</div>
+
+## tasiyanc — post 5315
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وصله دمت گرم
+</div>
+
+## tasiyanc — post 5314
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 
@@ -195,47 +261,5 @@ Join as @Tasiyanc ☑️
 
 Join As 🩵@Tasiyanc 
 ☑️
-</div>
-
-## tasiyanc — post 5298
-
-<div align="center"><video src="files/post_5298_tasiyanc_5298.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_5298_tasiyanc_5298.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-## tasiyanc — post 5297
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان   📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-Join As 🩵@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان   📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-Join As 🩵@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5295
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگا وصله ✅
-</div>
-
-## tasiyanc — post 5294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان   📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-Join As 🩵@Tasiyanc ☑️
 </div>
 

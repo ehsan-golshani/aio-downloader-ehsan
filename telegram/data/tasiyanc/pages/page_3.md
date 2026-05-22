@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/01 15:42
+📅 آخرین بروزرسانی: 1405/03/01 18:59
 
 ---
+
+## tasiyanc — post 5264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید گپمون خوش میگذره 😂❤️
+https://t.me/+qJ7oM-0GidY0NTY0
+</div>
+
+## tasiyanc — post 5263
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا میدونید ۹۰٪ سرورهای پولی قطعه از دیروز ؟
+پس چرا توقع های زیادی دارید از یه سرور بدبخت که بیاد ۲۰۰۰ هزار نفر با سرعت نور وصل کنه به یوتوب و اینستا ؟ بخدا به چی قسم بخورم همینکه وصل میشه تل بالا میاد یعنی راه درستیم
+</div>
+
+## tasiyanc — post 5262
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات نوید
+</div>
+
+## tasiyanc — post 5261
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SSH Method Slipnet 🌟
+
+slipnet-enc://AcF+yWITGeU/ZHgOfbKgRnZQJ4YUQapWxnDuZdKui8CPih0yj2WmBuA8zZzGvJSjuNsWCOq/lO7dZW6ywO7Fr9kd52KCWLkseRsOE4ot7N3smQrP/UsHuHHq/EbT6jPZdlOY7RLKYTuNnL+p6k4znS8jt331oOi0t/PsGqtCdGSinHe8Rt+BpHfb0DgCGCc06nm88/w+he6j3jOAL9JUodP5ZpJ6mBvJmGzahAl2QBwIXGQGRLr3PBN+clyrL53QgeOuwcw5yukfTNxCtokLvhVn8J5LPvKgqWPo9qQWhuI14EK4stJ36FkJxLMzY8HSR5o4vuEcp9LVskSQQWeqNGkGMVWiNNXjZiNLKYxNLjQh2eSPxmWrjhM454TkfjTHDBQHEUuQyA4xkdxdmgax5GVDiDCSOH4+36UvS/IV1RbAFsjPjf3D/Knhu8DVf6FrI7gEC0/gcOnYvT/xsSgvvgMGOnP6lclwRVsxGdhsOLDH4blCcdpPkoLhKy7GM69qSbM4BN7fFkZP
+
+😐 متد SSH - اسلیپ نت حالت پروکسی باشه و به پروکسی زیر متصل شوید
+تنظیمات خاصی نمیخواد فقط باید پروکسی مود باشه ارور داد باید چند بار پشت هم بزنید تا اوکی شه
+https://t.me/socks?server=127.0.0.1&port=10880&user=%40Tasiyanc
+@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5260
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنظیمات خاصی نمیخواد
+حتی پیشفرض باشه
+فقط اسلیپ نتتون رو حالت پروکسی باشه
+
+بخاطر شلوغ بودن سرور اگر ارور داد پشت هم باید بزنید ، متد ssh فرق می‌کنه ولی خب پایداریش بیشتره
+</div>
 
 ## tasiyanc — post 5259
 
@@ -164,227 +208,5 @@ Join As 🩵@Tasiyanc
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آیدی عددی اکانت طرف
 7443787472
-</div>
-
-## tasiyanc — post 5221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tarkibi 🔐 📱
-
-
-{
-"dns": {
-"hosts": {
-"domain:googleapis.cn": "googleapis.com"
-},
-"servers": [
-"1.1.1.1"
-]
-},
-"inbounds": [
-{
-"listen": "127.0.0.1",
-"port": 10808,
-"protocol": "socks",
-"settings": {
-"auth": "noauth",
-"udp": true,
-"userLevel": 8
-},
-"sniffing": {
-"destOverride": [
-"http",
-"tls"
-],
-"enabled": true,
-"routeOnly": false
-},
-"tag": "socks"
-},
-{
-"listen": "127.0.0.1",
-"port": 10809,
-"protocol": "http",
-"settings": {
-"auth": "noauth",
-"udp": true,
-"allowTransparent": false
-},
-"sniffing": {
-"destOverride": [
-"http",
-"tls"
-],
-"enabled": true,
-"routeOnly": false
-},
-"tag": "http"
-},
-{
-"listen": "127.0.0.1",
-"port": 1053,
-"protocol": "dokodemo-door",
-"settings": {
-"address": "1.1.1.1",
-"network": "tcp,udp",
-"port": 53
-},
-"tag": "dns-in"
-}
-],
-"outbounds": [
-{
-"tag": "proxy",
-"protocol": "vless",
-"settings": {
-"vnext": [
-{
-"address": "bab-6.site",
-"port": 443,
-"users": [
-{
-"id": "b585dc5e-55bf-4a8b-913a-27c9ccac05c3",
-"alterId": 0,
-"email": "t@t.tt",
-"security": "auto",
-"encryption": "none",
-"flow": ""
-}
-]
-}
-]
-},
-"streamSettings": {
-"network": "ws",
-"security": "tls",
-"tlsSettings": {
-"allowInsecure": false,
-"alpn": [
-"http/1.1"
-],
-"fingerprint": "chrome",
-"serverName": "bab-6.site",
-"show": false
-},
-"wsSettings": {
-"headers": {
-"Host": "bab-6.site"
-},
-"path": "/vws/"
-},
-"sockopt": {
-"tcpNoDelay": true,
-"tcpKeepAliveIdle": 60
-}
-}
-},
-{
-"tag": "fragment",
-"protocol": "freedom",
-"settings": {
-"domainStrategy": "AsIs",
-"fragment": {
-"packets": "1-3",
-"length": "8-12",
-"interval": "2-4"
-}
-},
-"streamSettings": {
-"sockopt": {
-"tcpNoDelay": true,
-"tcpKeepAliveIdle": 60
-}
-}
-},
-{
-"protocol": "freedom",
-"settings": {
-"domainStrategy": "UseIP"
-},
-"tag": "direct"
-},
-{
-"protocol": "blackhole",
-"settings": {
-"response": {
-"type": "http"
-}
-},
-"tag": "block"
-}
-],
-"policy": {
-"levels": {
-"8": {
-"connIdle": 300,
-"downlinkOnly": 1,
-"handshake": 4,
-"uplinkOnly": 1
-}
-},
-"system": {
-"statsOutboundUplink": true,
-"statsOutboundDownlink": true
-}
-},
-"remarks": "Tasiyanc tkb",
-"routing": {
-"domainStrategy": "IPIfNonMatch",
-"rules": [
-{
-"ip": [
-"1.1.1.1"
-],
-"outboundTag": "proxy",
-"port": "53",
-"type": "field"
-}
-]
-},
-"entryDomain": "bab-6.site:443"
-}
-
-تست کنین ترکیبی بهم بگید
-Join As 🩵@Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 5220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان   📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-Join As 🩵@Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 5219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇 DNSTT Tcp 🇩🇪
-
-slipnet-enc://AcNagZVmSOeXnC5m8fl/SxZp1519lU/0c05yrGx71EVPzJ5DBuJpWMc002i+Qqxocfm2IbyxubP+rzzD3d1pElmwLEyHXcZ+xb68XE/1SCQmQ61TFWv+hbfwFbVXHqvikWFjvWw+/N2ai4prlQHLlJ275QNtzDph/AFGAgudFgtB21JIn0XWhXRnFg2z8w5J0o6GDGRr1Ngus8cz+41EbYGXpk7GU4zyOJijzZjXdiWRH9Z3SHuvsS2jnOg/ObhJ+Ngapw34BqhwxME2/c+b+eewEDEh/4VD8cOmnpqWSpB8rPs+IB9MvxFN+hcTdhE3hEA55nijuARMm06Pukk2e/2Z0aQmBKa4Gl14mqosRJE8nCFVYAL6ZHQpyh7chhRol5bKm/bK6qxnL43LSur6VirpaZYo2+KmYfRJE6YnYzph664QwKC5A3IDBHHVPctQvAfcOe00b0MYb5SWklJkZMosa7+jZ/VEwfu1mI0vpQ92Am5HIm5U2bGpE+JrL9bO5plbkpeXYzTSAtrymXXkZ1e8oxW/uf7qztAYvTNkaGJDBZpxBc0rTnw0p9GhLnah+kaK7rxxZYJ0cRayDUADW0WXLb6TSJ6olvBM1rOAoy2jRuBkT0ndpsXliVCRIn7O55sR801uPxrjIMFHnYWZs/UqWaEiORxsXEuC03dt2TlUy7IBYmSyiQ0Btn5AcyM2rm+okZ5KcKrDCXkh558q+igXvtcjGFpgULI5utVhxUVTr4FUF59SlZpULBWBdONk1TSOjWDpIQu0+5KMdhfelPzaNVE=
-
-Join as @Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 5218
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان   📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-Join As 🩵@Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 5217
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیرررر
 </div>
 

@@ -1,8 +1,46 @@
 # آرشیو کانال MehdiBudam - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/01 13:15
+📅 آخرین بروزرسانی: 1405/03/01 18:59
 
 ---
+
+## MehdiBudam — post 8027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+105 104 103 102 101 100 99 98 97 96 95 94 93 92 91 90 89 و بقیه وصلن .با اپراتور های مختلف تست کنید.
+</div>
+
+## MehdiBudam — post 8026
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+105 104 103 102 101 100 99 98 97 96 95 94 93 92 91 90 89 و بقیه وصلن .با اپراتور های مختلف تست کنید.
+</div>
+
+## MehdiBudam — post 8025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Pass: MehdiBudam@
+</div>
+
+## MehdiBudam — post 8024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+105
+
+
+slipnet-bundle-enc://ATLYdkSC/02fiUHfy3OCQD1ylZmIkRbrkWHWhX8QYZCAUNeIvom2nByOEGdbMelc0xGhYCuAfxuV4GggdDjTD+P6Ojp4UhPi57mLa1uttTbkoyD5gWUPtJebFbYe5J2u8hloQQoXPe6J/vro+cnthJC56XAxKiZ5S0vZJrpZR5gcbqLr4s/92Kw1nFo+tGOj591TvcqQSbtuowp/SVSV7/m5LZM/m6S25wNn7TnCid7WMVqI92KB40N3e2Zw1Hph7wFEOD0XdgbB96ys7rWg+CwwELdpBRRuG6Qdt5MofwlpJZhGIrz9SdGHrptEyZms3oPAG05qlegXBlrvhel4MaQ1RRMw5sgVr2mDppGLmzGpia8NS+mSNhzj47EquH0ceridJEtVnl+g/T/ul29vFL0as74TdiTy5ZwqoOwlc392TZ2pn4QiPZ2ESH8+OdoUZw6RuwRfGDriyUdWhdtrIULCtKSkwxCqE2ylO1X32E4NIiLNID4M8YYOe307duT4kCwYqt90bN64+oCyMMEZedD7KO/XY3K02y/5xhamHg3mLkbjzOV7AzWozWGvDcj4/CN/LPokP9lcp1jsE72OYmWZizMUSDjZ73I+2wviwnxdA1s5yH49VVOXMKipjky3N4UEZbnNmTmlrDBe1g76DEERS2QLFPK9GgJTIWeJ9BuPrXcSqq9o3BdvMXyzzo4wvMFpCFDFIMmcsV7SjNTlXssGYelZLI1HKkP2PWjEIC9zTlLGftsB+N0Roh613Tf+4vRNszp9o1sGxe2Ypax40Zx4ZgjxPlGbbRQdWet6MGylsBXuo9JUNZwea5m2Hjn+q8WaEHM5IrGUCLlePUi2w6vzNAvAzdYFRdGWaERmqfm9s/c57LC8FZ5RO/5U29GKsWyCtEi+dJherbk5xdpobrw3A5yPsjt0vRQfP0+oO3KagsnJIZ6r9JvPUqJXQ7nYuR3HWZq1wgF9N4UVROJkTZvSPtqi2iKd82OA3ZL0ch1kJAwHdNb+lrBve3ysJut+Ak02r2wAS4GUm9TVWF+Moi8ISKwligaPcCumDnJAMy58wgQW4bao
+
+
+Pass: MehdiBudam@
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8023
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+104 103 102 101 100 99 98 97 96 95 94 93 92 91 90 89 88 76 75 71 70 67 66 64 61 59 58 45 41 32 31 22 و بقیه وصلن.
+</div>
 
 ## MehdiBudam — post 8022
 
@@ -130,48 +168,5 @@ slipnet-enc://ATOkdbb7Mf97LOPzNK6t8DJqUG+rDX58pGY+fUjZiVrCuW1thmxDzy622EORr6QKXL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 97 98 و بقیه وصلن.
-</div>
-
-## MehdiBudam — post 8006
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-98
-
-
-slipnet-enc://AdU0F5xwlfSPgWZL5JPem+F7C0nkaV/C0F2UXoZQzETWzbKlo8eXtnqgJcsCyS1mTbev5qfUFVDsekYj+f+SKyRvIeG4nYDB4aOf8xWx1ctSGODrnJbC3sGXxmspZT5Z3Byf+Hpcj5y5YN2PiwTfZxMc5MSqTHa+5bHJeYlluq1RcOVGmgs3468g2co8G7KjQxSENMiS245tpkiEclGlvYNm/E5QEv5iFsWxoqD1ahbbG4ZEaKsXtTsWHVSANK1NssRK/nJMMf/cnpBpO+E5sWTcMbWq8y4nuqW/1AHsnnN9E0YenqLwimIL4SZhxSNsr50B8W9CCS0v1IYDJLoijFdagJ9vpezeAqUycAhrVCqc6F4lueLqqh8gIzjbvrihA1Lu/QBPKmZ9fF1ndyAj2rev7bua++hHLOzDnK75wtNqGBnyGF8AqiDLxuwfX8qoVtdpbcZQrtt+zZYY6CPleHpDd26t2U60bHABTpX7Eoa1cPBL/SaV6XvQn7GV8E8PuMog2XhNKro5ETIc7qP3J2LtIm7LkaNM7FDFFpH318qYFb3oaeTG6oJp3NrplFfJyDcJpElGFKoRnj1I3Rq5BxW/jHvK0+hu1FlZsBzQ583bl3Ovv1f20rXtt60e12MpZbaJs4MIoEWWLz4cL5KcVWLve5orfjc8sRnvO7iqNYeJPFgtLD4NpcaSUyp0cfA71Ypplve2BIN5U5YT5sLktc8+Coo25nZxP16IuizGEroD4k9u9IXz8UtWN0JVbT6j/dPJTzgIJdTuh3yjf+0vqG3AoyMUi9xaRA==
-
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-97
-
-
-slipnet-enc://AdNa5ttZaERApGIuE0QMltTKUrPROyEud/O9AT2jz6hAJuGxD3zRz0w4Z3n47eLE0YKbmLk1VXq/kBI2g47RaWWetQAzLJkAp97vefx7/k3ZvB2jvcdwQ3Q1J6uIH0Q7kllmLduO3EUybQPgvMOY5QvLgnJPeezQhSO7J/88k0N9HBXstWeNWbKIGLCGsRbJ7W8DaZJAYxqWXX/oGI67PO3U6SxOBx1pdMNlhE423r+Y3pnXgr3HFfn33nV48FimhzK2TgJ0gtjCmi4Bfh4lcw/Hlc1f34tuxKaFeYsWp5Z0fz2jyvKCrKYYH85lBpS04LzPeoRJieB4kYA4l4pgzeORtrcldkVVnhROlIae1JDXM88yohXCrCgjBuvdt2E7PeQbI1orTu3VJS/mh77gF/c52llbF0O89C8nYKU3fE+QXTqZ9i+OHMoXETvT1/v3JHnlPXhW6b6BI38ntXoXHdoBEkkcZ+lLSHgxpXlY2I94OGkQLY8t0Xrhp5NB/xzaDZIw3DznAEc748OpFYuhXyIx5BR+v7OqhF377p7GOw43ujmhXn7lGkFMarUS3mAXgopfxMB005lCd5kfYtfDtIMF5CnkKY15e3Ora1EY2p37dXLddE/f8hg4j4+OGTLq4BUCEezxtVd5sye7H1RLoeuG+U2qXwBOnWA0ER18tAZgUAxyV8sy++wxERNRz+iDdeK1l4ZR3TQ2BIQp7VfI70UO/K2WzXSHRBSnBVNXIdhgShGjv6oNcgyzhmB2Y3cmjWkzBzYPoyHSNXsKaLLPM7t9aA4SixHVBDSo4A==
-
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-47 69 77 رو از دست ندین.
-</div>
-
-## MehdiBudam — post 8003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-95 94 92 88 86 84 81 78 77 75 74 72 71 69 67 65 59 58 57 49 47 34 30 27 و بقیه رو تست کنید.
-</div>
-
-## MehdiBudam — post 8002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دایرکت یادتون نره.
-t.me/MehdiBudam?direct
 </div>
 

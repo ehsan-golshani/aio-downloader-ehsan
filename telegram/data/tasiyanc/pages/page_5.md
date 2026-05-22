@@ -1,8 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/01 15:42
+📅 آخرین بروزرسانی: 1405/03/01 18:59
 
 ---
+
+## tasiyanc — post 5201
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☄️ وی پی ان جاویدگرز نسخه 1.0.7
+
+😐 منطقه ای میگن وصله اکثر اپراتورها
+
+❗️ امنیتش تایید یا رد نمی‌شود
+
+لینک دانلود داخلی ⤵️
+https://dl.toolschi.com/view.php?f=e688f082f4a9968d.zip
+
+🔹حالت پرواز بزارید درارید وصل نشد تست کنین
+
+Join as @Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5200
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن نمیزنین؟😭
+</div>
+
+## tasiyanc — post 5199
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Ping 56 - 68
+✅
+
+23.50.180.206
+185.88.178.196
+164.138.17.122
+185.208.174.167
+185.50.37.52
+95.101.78.25
+185.141.106.238
+5.160.13.85
+5.160.13.85
+185.208.175.228
+
+Join As ﻿@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5198
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  
+📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀 صبر ندارید نزنید 
+✅
+
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5197
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  
+📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀
+
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5196
 
@@ -140,47 +210,5 @@ Join As @Tasiyanc ☑️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💦20 K ...⚫
-</div>
-
-## tasiyanc — post 5170
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده 📶
-
-حتما برای اتصال پایدار زمان  بدید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5169
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلامی دوباره
-</div>
-
-## tasiyanc — post 5168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای اتصال پایدار زمانی بین ۲ تا ۵ مین بدید وصله عشق کنید
-</div>
-
-## tasiyanc — post 5167
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-حتما برای اتصال پایدار زمان  بدید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5166
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-حتما برای اتصال پایدار زمان  بدید😐
-
-@Tasiyanc 🩵
 </div>
 
