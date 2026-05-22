@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/03/01 02:51
+📅 آخرین بروزرسانی: 1405/03/01 05:05
 
 ---
+
+## tasiyanc — post 5130
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IP new
+
+185.137.25.214
+5.160.13.85
+81.91.145.2
+5.160.13.85
+185.137.25.214
+81.91.145.2
+37.255.133.30
+172.237.127.6
+185.200.232.43
+104.103.65.5
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5129
 
@@ -469,13 +488,5 @@ Ip Shiro khorshid & mahsang
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هنوز گپ ما جوین نشدید ؟
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 5109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال کوچکی پیش اومده
-سرورای اولمون بدون مشکل وصل هستن
-سرورای دوم به مشکل خورده بزودی رفع میشه ، از اینجا اطلاع رسانی میکنم
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/03/01 02:51
+📅 آخرین بروزرسانی: 1405/03/01 05:05
 
 ---
+
+## tasiyanc — post 4993
+
+<div align="center"><img src="files/post_4993_tasiyanc_4993.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Done ✅
+</div>
 
 ## tasiyanc — post 4992
 
@@ -402,11 +410,5 @@ Mci - 👑6️⃣
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @adolfazI1005
-</div>
-
-## tasiyanc — post 4954
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بازه 📶 ✅ @StarTasiyan 1 Gb 275 - 2Gb 530
 </div>
 

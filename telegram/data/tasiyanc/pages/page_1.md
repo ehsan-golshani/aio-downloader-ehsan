@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/01 02:51
+📅 آخرین بروزرسانی: 1405/03/01 05:05
 
 ---
+
+## tasiyanc — post 5299
+
+<div align="center"><a href="files/post_5299_🔥Hell.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🔥Hell.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc 
+☑️
+</div>
 
 ## tasiyanc — post 5298
 
@@ -11,8 +24,6 @@
 <div align="center"><a href="files/post_5298_tasiyanc_5298.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 ## tasiyanc — post 5297
-
-<div align="center"><a href="files/post_5297_Tasiyan 🖤⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Tasiyan 🖤⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان   📶
@@ -23,8 +34,6 @@ Join As 🩵@Tasiyanc ☑️
 </div>
 
 ## tasiyanc — post 5296
-
-<div align="center"><a href="files/post_5296_@Tasiyanc Paris.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc Paris.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان   📶
@@ -166,11 +175,5 @@ slipnet-enc://AciIHTjr7qI5A0k0SPqC3pnGqdcLkWuwJhHBB7KukJHavticmdAvSES5N+w+jRXgti
 https://t.me/socks?server=127.0.0.1&port=10880&user=%40Tasiyanc
 @Tasiyanc 
 ☑️
-</div>
-
-## tasiyanc — post 5265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاسیان باخت نمی‌ده عمو
 </div>
 

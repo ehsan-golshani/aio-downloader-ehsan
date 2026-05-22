@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/01 02:51
+📅 آخرین بروزرسانی: 1405/03/01 05:05
 
 ---
+
+## tasiyanc — post 5236
+
+<div align="center"><img src="files/post_5236_tasiyanc_5236.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیدی عددی اکانت طرف
+7443787472
+</div>
 
 ## tasiyanc — post 5221
 
@@ -354,11 +363,5 @@ Join as @Tasiyanc ☑️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فروش بسته اس اطلاع رسانی میشه اگه باز کنیم
-</div>
-
-## tasiyanc — post 5202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-javidgorz-1.0.7-universal.apk
 </div>
 

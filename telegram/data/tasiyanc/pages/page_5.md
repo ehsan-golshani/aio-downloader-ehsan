@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/01 02:51
+📅 آخرین بروزرسانی: 1405/03/01 05:05
 
 ---
+
+## tasiyanc — post 5171
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💦20 K ...⚫
+</div>
 
 ## tasiyanc — post 5170
 
@@ -172,15 +178,5 @@ Slipstream 🌟
 slipnet-enc://AT6bKWyWhFfp2kmUc5BezhfIZ/6ovcMtl0L2GneHixJ8E/qhkAqQyeb1P3xV/aCw3jeBaZ+1v5Z79WMyUjkctQGY4b9ALNjXJLxVEBkDEzr5xo2mw6/Y41qP2RSdBxIxFoY++Fa1KI4PpVv3AEyhOIGjPaSN+fPi7j2HlvmANpdZo68FYyalPK7fzAdgzLiYZJRMaMlFdvxeDWLkp7a8eBk51i6L7oGrYJJduLL+ybHEnacqM2VPHhtdpTRM3D4MvE8DxaDqhTN7JyKtM01GEAx1/70ai6R00zKT2qQ4mxslTAgUf5P+lQnhD2AV4pidaVrJSNafEU0S4/JJ0ZVEg3fjAA6sZW6Nk1frB0XVKg4QHbrAzFHt93YtIOYrKRIKF1d/E/BUhtw1zQUaFXmteu0521mDFXIQpTkv+q4SY/EhCE6mGpKl7gEpa72eZxlfeAdVA3sLuyN8SMZWxNAL0zJAyWey/oj9J8JrGl0WIirlqlSv6TdLvHEae/xBWD8dbsNDshZ5NTMogiRlkMiVAuWRKebOrbN/pFIbafT+VIaOndRZJypWC4pSFNd3pZlJ8txZKw9Q+mEHDySWmnXXTVjziitfc6R1bJwSVFdxg/JHP66L7/2wfCAQyTHnWQK5hQgWaI+Sh+Swmg==
 
 @Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5150
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
 </div>
 

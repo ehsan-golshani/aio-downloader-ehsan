@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/03/01 02:51
+📅 آخرین بروزرسانی: 1405/03/01 05:05
 
 ---
+
+## tasiyanc — post 5150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5149
 
@@ -147,24 +157,5 @@ IPs 👑
 5.160.13.85
 
 @Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5130
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IP new
-
-185.137.25.214
-5.160.13.85
-81.91.145.2
-5.160.13.85
-185.137.25.214
-81.91.145.2
-37.255.133.30
-172.237.127.6
-185.200.232.43
-104.103.65.5
-
-@Tasiyanc ✅
 </div>
 

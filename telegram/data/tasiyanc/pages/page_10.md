@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/03/01 02:51
+📅 آخرین بروزرسانی: 1405/03/01 05:05
 
 ---
+
+## tasiyanc — post 5059
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خودمم با 127.0.0.1 وصل
+</div>
 
 ## tasiyanc — post 5058
 
@@ -195,12 +201,5 @@ IPs 👑 new all operators
 به ارور توجه نکنید Ok بزنید وایستید وصل شه
 
 ❤️@Tasiyanc ☑
-</div>
-
-## tasiyanc — post 5036
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کصکشی اگه مدال داشت طلاشو به
-چوپان میدادن نقرشو به چاوشی 😐
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/03/01 02:51
+📅 آخرین بروزرسانی: 1405/03/01 05:05
 
 ---
+
+## tasiyanc — post 4954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بازه 📶 ✅ @StarTasiyan 1 Gb 275 - 2Gb 530
+</div>
 
 ## tasiyanc — post 4953
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/01 02:51
+📅 آخرین بروزرسانی: 1405/03/01 05:05
 
 ---
+
+## tasiyanc — post 5265
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان باخت نمی‌ده عمو
+</div>
 
 ## tasiyanc — post 5264
 
@@ -199,14 +205,5 @@ Join As 🩵@Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آیدی عددی اکانت طرف 7443787472
-</div>
-
-## tasiyanc — post 5236
-
-<div align="center"><img src="files/post_5236_tasiyanc_5236.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیدی عددی اکانت طرف
-7443787472
 </div>
 
