@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/01 01:35
+📅 آخرین بروزرسانی: 1405/03/01 09:23
 
 ---
+
+## ProxyMTProto — post 47543
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tg.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47542
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: pepel.help
+Port: 443
+Secret: eea890920f5ac6ba5834725e150d06c4aa64726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47541
 
@@ -168,29 +186,6 @@ Secret: ee7e6c3f99b8b56d5aece5326877a3793a6d61782e7275
 Server: fastproxy.chunkycorp.shop
 Port: 443
 Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 Всё упало? Наши прокси работают ⚡
-
-🎁 Бесплатный MTProto прокси 👇
-
-🚫 Без рекламы
-⚡ Быстро и стабильно
-🛡 Без ограничений
-
-👇 Получить прокси
-</div>
-
-## ProxyMTProto — post 47522
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hop2.proxytg.space
-Port: 443
-Secret: eec5428740a808240ccf21f21547fc843f6d61782e7275
 @ProxyMTProto
 </div>
 

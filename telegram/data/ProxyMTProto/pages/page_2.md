@@ -1,8 +1,31 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/01 01:35
+📅 آخرین بروزرسانی: 1405/03/01 09:23
 
 ---
+
+## ProxyMTProto — post 47523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 Всё упало? Наши прокси работают ⚡
+
+🎁 Бесплатный MTProto прокси 👇
+
+🚫 Без рекламы
+⚡ Быстро и стабильно
+🛡 Без ограничений
+
+👇 Получить прокси
+</div>
+
+## ProxyMTProto — post 47522
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hop2.proxytg.space
+Port: 443
+Secret: eec5428740a808240ccf21f21547fc843f6d61782e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47521
 
@@ -174,23 +197,5 @@ Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
 🛡 Без ограничений
 
 👇 Получить прокси
-</div>
-
-## ProxyMTProto — post 47503
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ak.yourline.online
-Port: 443
-Secret: eed74b20f8b196edebcfdc6de8c8985d60616b2e796f75726c696e652e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47502
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp.webvirt.cloud
-Port: 443
-Secret: ee938dd87467bc49301de2e9765cf20f4374656c2e776562766972742e636c6f7564
-@ProxyMTProto
 </div>
 

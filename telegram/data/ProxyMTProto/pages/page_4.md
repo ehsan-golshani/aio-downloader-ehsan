@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/01 01:35
+📅 آخرین بروزرسانی: 1405/03/01 09:23
 
 ---
+
+## ProxyMTProto — post 47483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rkn.prxtoday.space
+Port: 443
+Secret: eee905e5553bb4da46367bc56513a43d36726b6e2e707278746f6461792e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47482
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47481
 
@@ -167,24 +185,6 @@ Secret: dddb42e911bcebf275392e32feebef9459
 Server: alpina.agency
 Port: 8443
 Secret: eea02597a68d4821f58d17e6405c389da16164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47463
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 132.243.213.221
-Port: 443
-Secret: eedb1bb2c2c796e681b5062a973eb05859706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tg1.tgproxy1.fun
-Port: 443
-Secret: ee9f275776f928838953db9dc7c5629ef27467312e746770726f7879312e66756e
 @ProxyMTProto
 </div>
 
