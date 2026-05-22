@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/01 20:57
+📅 آخرین بروزرسانی: 1405/03/01 22:46
 
 ---
+
+## ProxyMTProto — post 47478
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.16.221
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c99617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47477
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 178.105.137.152
+Port: 443
+Secret: eeabf13064a3bf0851a02ad67114f842ce676f6f676c65617069732e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47476
 
@@ -167,24 +185,6 @@ Secret: eef9632da3b0ea3b51ab5840f93b2ddaff6174672e70726f787974672e7370616365
 Server: 144.31.221.15
 Port: 443
 Secret: bfb063cc6d861de10f6a39c795fc66e4
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.16.55
-Port: 443
-Secret: ee7d21ac88a75bdb5887ec4918a20386927777772e6d6963726f736f66742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47457
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy.nexorabust.ru
-Port: 443
-Secret: dd1cebd1dd4f8441f8af01177087ee9918
 @ProxyMTProto
 </div>
 

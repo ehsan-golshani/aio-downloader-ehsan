@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/01 20:57
+📅 آخرین بروزرسانی: 1405/03/01 22:46
 
 ---
+
+## ProxyMTProto — post 47538
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowabst.com
+Port: 853
+Secret: 7t16ej1vTPH3w_rpz_KLc3lhZHMueDUucnU
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hop3.proxytg.space
+Port: 443
+Secret: ee8e8e148190ecbc4cda5090ec52e9613e6d61782e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47536
 
@@ -169,28 +187,5 @@ Server: hop3.proxytg.space
 Port: 443
 Secret: ee8e8e148190ecbc4cda5090ec52e9613e6d61782e7275
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47518
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowaboost.com
-Port: 853
-Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 Хотите клиентов, а не просто просмотры? Want real users, not just views?
-
-📊 Тысячи активных пользователей каждый день / Thousands of active users daily
-🎯 Реклама, которая реально даёт результат / Ads that actually convert
-
-🚀 Ограниченное количество мест / Limited ad slots
-
-📨 Напишите сейчас и забронируйте размещение / Contact now to book
-👉 @Ads_ProxyMTProto
 </div>
 
