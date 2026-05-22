@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/01 13:15
+📅 آخرین بروزرسانی: 1405/03/01 15:41
 
 ---
+
+## ProxyMTProto — post 47509
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: amorecoin.duckdns.org
+Port: 443
+Secret: 7mYW_5fPLJzJxcvUupkA3pN3d3cuZ29vZ2xlLmNvbQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47508
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 103.110.64.212
+Port: 443
+Secret: eeb4559cb6722f727d849090621e7aba8f79616e6465782e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47507
 
@@ -173,24 +191,6 @@ Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
 Server: server4.mtproxygram.lol
 Port: 443
 Secret: ee04b03d0bacb08c4cad9c2fb59898071462726f777365722e79616e6465782e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47489
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hyper.sosproxy.space
-Port: 443
-Secret: ee44adc4da5280b196fa8192ffb712cef964726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47488
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.20.121
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c99617669746f2e7275
 @ProxyMTProto
 </div>
 

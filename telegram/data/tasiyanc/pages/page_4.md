@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/01 13:16
+📅 آخرین بروزرسانی: 1405/03/01 15:42
 
 ---
+
+## tasiyanc — post 5216
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎VyDns 🇩🇰
+
+slipnet-enc://AWxKUtwcMohoM20dWSihPh/zDfSR6mpUYrSUkfDsDR172SODbMbh3ELmq9sQTRLbAsX5Z8Cvryvb8QzQgZtfqSuNeDcpTiW76Uky+OmvLADNJAFBNeGh2m2vcbXpy6ojPDAW8hLbgADLqG2PHpS8qvMwRffpUWiK7dV58ZPGZCeMf7ULklZhF+PLnKymYyCoY9Ibsq/9EF80t+DW8XSu+FWCot72SJ6KcYeWm7Bhq+f1LU2blpfTyAPKYiMXwToaSgEv0hseYbtRQCe9goLoiBfcayYqowHgrfk4VKtIUAYofFMnogOTOYNU4D1LezT0Q93F4oFlnqUrVWEkK3/ypYkA4Q7h6d0rmsl3oN8bcaz/Y1uaAypmzAl6I7wsQBWxAp4lQL1s8RjU+xYw03mj5u6zwp+QwcltINGCVz55WB6uoJabeQl1uKs/kqPP9efBeQmXFcb34kO4YEanCO1bLwTEhfJxfpyzZJDcz1uIqOAGm/5kNM6B/Gw53jezm/Nq5NiB0gcWQrqxeeSruP9i1zgI6wuewzKrJyYZxnnRxgEpz/+aEEcOA5nARDFgznGNeOuhTRIgWol/5lJSuhFGpoW+O2PGWZGIAN0QCwKZtD1agmoa3enJ1drBY380jgmH+3VY1nXpVkmligFkv/glP38hH/Vddttv1J6Xnw3WDO47tgHWeBN+gCPa3lkGskVvXB16piCir5w/DOoDcvZtbqq7vDNLT1ln3rtOeNsTjAWyj8KhXoM2MRWBnnTlAOScEHN3wAOOv/ZmqZL3tg==
+
+Join as @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5215
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان وای‌فای  📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5214
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟SSH - New method 🤩
+
+slipnet-enc://ATf7my1QlphNrQKA889SRsGki4AZvSLx4SDmE515JrRJP0/EgyXdR+YxlPrdDrfEZ4j2dwMLGq+/lK2F6LCDA5jjJjzPnxl5nzW2n8RVU9qq4aSzE92Zeumrsv06uydZD5lMrDt50lu5YpPDtrlw0RGW3499XZBI1gol0Tzhk5uKQ2ORy4Wt1s7+y/LlCrWy/hgVgF09GaFzTg47WHxd0Cs+B3tv5m4qOHMhnAx/UH4amgqB7D8bDm8d+DiHA8WLP7uLbVEbPREMWSw3PTCwFYgn1ZMOJYXhzWDzXBzzCMp9qyUoLVvZT0V6scm//TRWnqtgO6IE98wGwH8MN6ROsr7awGgmX/iEvIJp4mH0cDapt+gb/BZKysJBhFSAp5wwV9SCpDRfr4wL49dBIJyGPuvijJUdT7hhCRwsrdejICQEW4HJJS+ZTUB1b4pNdF3yFayMoqKMrCzyISW+onPYCbAOz89Gn4D/1O1rEPU6P71Rh+KkmYVAo/vjU+s6eg==
+
+Join as @Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 5213
 
@@ -178,36 +208,5 @@ Join As ﻿@Tasiyanc
 
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده  
-📶
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀
-
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5194
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نحوه حذف گواهی CA Certificate توی گروه پین کردم
-https://t.me/Ta30aan/53472
-</div>
-
-## tasiyanc — post 5193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥺چنل های پر مخاطب ازشون بعیده این روش مخرب ترکیبی سایفون که مجوز CA Certificate میخواد رو دارن تشویق میکنن مردم وصل شن .
-
-😱 مجوز CA Certificate چیست ؟
-
-اگر یک گواهی CA را نصب کنید مالک آن گواهی میتواند به اطلاعات شما مانند رمزهای عبور پیام ها یا جزئیات کارت بانکی از وب سایت هایی که بازدید می کنید یا اپلیکیشن هایی که استفاده می کنید دسترسی پیدا کند، حتی اگر آن اطلاعات رمزنگاری شده باشد.
-🔹حتما فور بزنید هیشکی این اشتباه مرتکب نشه
-Join As @Tasiyanc
 </div>
 

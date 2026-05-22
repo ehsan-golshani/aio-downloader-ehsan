@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/01 13:15
+📅 آخرین بروزرسانی: 1405/03/01 15:41
 
 ---
+
+## ProxyMTProto — post 47549
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.20.144
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c87617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47548
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: amoreszi2.duckdns.org
+Port: 8443
+Secret: 7kd_O40bfqH7vBqnDK2iL5R3d3cuZ29vZ2xlLmNvbQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47547
 
@@ -168,24 +186,6 @@ Secret: eec5428740a808240ccf21f21547fc843f6d61782e7275
 Server: 2.26.86.207
 Port: 8443
 Secret: 7d805a0e2fcc89a731277cd098634fcc
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47529
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: amoreszi2.duckdns.org
-Port: 8443
-Secret: 7kd_O40bfqH7vBqnDK2iL5R3d3cuZ29vZ2xlLmNvbQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47528
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: free.proproxies.top
-Port: 443
-Secret: ee4fb60224ec3ba77691889623ffd44dc8667265652e70726f70726f786965732e746f70
 @ProxyMTProto
 </div>
 

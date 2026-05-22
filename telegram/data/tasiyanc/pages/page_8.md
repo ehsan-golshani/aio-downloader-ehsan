@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/03/01 13:16
+📅 آخرین بروزرسانی: 1405/03/01 15:42
 
 ---
+
+## tasiyanc — post 5124
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۰٪ بله باشه کانفیگ اختصاصی میزارم
+</div>
+
+## tasiyanc — post 5123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما که رای منفی دادیم 😂
+</div>
+
+## tasiyanc — post 5122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما که رای منفی دادیم 😂
+</div>
 
 ## tasiyanc — post 5121
 
@@ -211,23 +229,5 @@ Port 8080 & 10887
 منبع اسلیپ : مسیر سفید
 با ذکر منبع فور شه 🤝
 @Tasiyanc 😐
-</div>
-
-## tasiyanc — post 5098
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن
-</div>
-
-## tasiyanc — post 5097
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب اختصاصی تاسیان تو راهه
-</div>
-
-## tasiyanc — post 5096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns 🌟 ترکیبی با نپستر و نکوباکس🚀 slipnet-enc://AQ04v8kA3vzNDvWV6A+LtPLYuZD6OPp8L9FzZmSrkrRQE4N17vHZR+OVfauEjsXEjF2CKn7j76W275SbPjmT14/8QWE9x6AArQi6jELwvW5shrH4yLR00aJkFHJ4rHxv+DfUf9XPKXkFV6jCnXNl76nROardAX2irGWYuz+kleLuVZq1QvpNw0j5xv9OBDLiaHen6UL6yQu…
 </div>
 

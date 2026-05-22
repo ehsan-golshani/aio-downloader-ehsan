@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/03/01 13:16
+📅 آخرین بروزرسانی: 1405/03/01 15:42
 
 ---
+
+## tasiyanc — post 5030
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs for 👑 - SamanTel & RighTel 🛜📶 تست شده
+
+184.24.77
+184.24.77.42
+184.24.77.32
+184.24.77.5
+184.24.77.7
+184.24.77.16
+184.24.77.36
+184.24.77.21
+184.24.77.11
+185.200.232.49
+185.200.232.50
+185.200.232.42
+185.200.232.41
+23.48.23.186
+23.48.23.133
+23.48.23.195
+23.48.23.178
+184.24.77.29
+23.65.119.52
+23.73.2.141
+104.110.138.190
+104.83.5.202
+92.122.166.236
+92.122.166.234
+92.122.166.237
+96.16.122.70
+23.67.136.200
+23.67.136.200
+
+🌐@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5029
+
+<div align="center"><video src="files/post_5029_tasiyanc_5029.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5029_tasiyanc_5029.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## tasiyanc — post 5028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار صبور باشید 😐
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5027
 
@@ -391,40 +444,5 @@ slipnet-enc://AfGk2opsi+MrCpAC+etlraDt0dOI/3l5sdWzoTvyRPP1XqBDiuVORgBdHDoHV9kQ9E
 
 @Tasiyanc 
 😐
-</div>
-
-## tasiyanc — post 5009
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاجی ناموسا فعالیت تعطیل کنیم؟ به خدا یه ری اکشن ساده بهمون قوت قلب و فعالیت میده دریغ میکنید از مون
-</div>
-
-## tasiyanc — post 5008
-
-<div align="center"><video src="files/post_5008_tasiyanc_5008.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_5008_tasiyanc_5008.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید 
-😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5007
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: Navid
-
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار صبور باشید ۳ دقیقه زمان لازمه🦦
-
-@Tasiyanc 🩵
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/01 13:16
+📅 آخرین بروزرسانی: 1405/03/01 15:42
 
 ---
+
+## tasiyanc — post 5293
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5292
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال شدید ...
+</div>
+
+## tasiyanc — post 5291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 5286
 
@@ -144,32 +170,5 @@ https://t.me/socks?server=127.0.0.1&port=10880&user=%40Tasiyanc
 فقط اسلیپ نتتون رو حالت پروکسی باشه
 
 بخاطر شلوغ بودن سرور اگر ارور داد پشت هم باید بزنید ، متد ssh فرق می‌کنه ولی خب پایداریش بیشتره
-</div>
-
-## tasiyanc — post 5259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حیف ری اکشن کمه میخواستم یکی دیگه بزارم
-</div>
-
-## tasiyanc — post 5258
-
-<div align="center"><img src="files/post_5258_tasiyanc_5258.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خیلی گاده حتما تست کنین متد جدیدو
-</div>
-
-## tasiyanc — post 5257
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SSH Method Slipnet 🌟
-
-slipnet-enc://AZn1ag4Hjg9T2cN4kFlAWAhQy+Af4sezLKPbqWXiuhsNSKzFv/8pRq+9Y1iQgUq4Lom/D0wDkOl6jy07W0Tp9381fFYwIwqQxyHH8PGiN/WxLM+NLOtJBLy0n/UqParhmQFjmpkU5Hd/IARciFrh1lpNpzmSK7IhMghAWts70CKQ3Z71K+JcV+NfTFvB62xqU4kkUoOhQpBLUvpewqXyGUoBU5NzL8jm6Bp9oRSePOeKGHQMlKwwbWdjUDHOyuJ4yLnjeCoTIwdZhLKMSSgqImLBU6k6IxgbenLqr23nDL6gaS1ctTGmR7Yk13yRK62RNGW+uRkAXw41wtcJOuFnELbxBXR9e5e1qZfqome9YJZ4dI/2rYuQ+63AlX8hq1AtRuIBujgTlD7ruhG5Ff9oCBZ3B97/tg3dkpzMS325Eh49AhM6WegoXsivrQ3sXMmSnqRpN+YeQzNLK3kMEyAbGQ4RDXENuemxeyztQVssPPyLaBb8O1vgphglbigFT+CH6XmEN1Koqw==
-
-متد SSH - اسلیپ نت حالت پروکسی باشه و به پروکسی زیر متصل شوید
-https://t.me/socks?server=127.0.0.1&port=10880&user=%40Tasiyanc
-@Tasiyanc 
-☑️
 </div>
 

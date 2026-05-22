@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/03/01 13:16
+📅 آخرین بروزرسانی: 1405/03/01 15:42
 
 ---
+
+## tasiyanc — post 5144
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم وصل شدم با همرا. سرعتش. یکم پاینه ولی خوبه
+</div>
+
+## tasiyanc — post 5143
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔫🧑‍🦱 تبریک به آرسنالیا
+</div>
+
+## tasiyanc — post 5142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من نمی‌فهمم بعضی چنلا چطوری ممبراشون وصل میشن به هات وی پی ان قضیه سفید بودن و نبودنه احتمالا
+</div>
 
 ## tasiyanc — post 5141
 
@@ -411,23 +429,5 @@ Location 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 به قول یه نفر کامفیگ
-</div>
-
-## tasiyanc — post 5124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۰٪ بله باشه کانفیگ اختصاصی میزارم
-</div>
-
-## tasiyanc — post 5123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما که رای منفی دادیم 😂
-</div>
-
-## tasiyanc — post 5122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما که رای منفی دادیم 😂
 </div>
 
