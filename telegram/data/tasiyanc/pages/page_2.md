@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/01 20:59
+📅 آخرین بروزرسانی: 1405/03/02 00:25
 
 ---
+
+## tasiyanc — post 5305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5304
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنازم چقد ری اکشن😍
+</div>
+
+## tasiyanc — post 5303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5302
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان wifi  📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 5301
 
@@ -136,36 +172,5 @@ SSH - 🍋.npvt
 بعد اتصال سریع بیاید تلگرام و منتظر پینگ نباشید🚀
 
 Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5273
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💩WhatsApp proxy
-
-https://wa.me/proxy?host=127.0.0.1&chatPort=10880&mediaPort=10880&chatTLS=true
-بعد اینکه به اسلیپ ما وصل شدید ( واتس اپ حتما تانل باشه) میتونید برید استفاده کنین
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5272
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-21 k ❤️‍🔥
-</div>
-
-## tasiyanc — post 5271
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش باز شد بصورت محدود 😐
-@StarTasiyan
-هر گیگ 250.000
-با ساب بدون قطعی و بدون محدودیت
-</div>
-
-## tasiyanc — post 5269
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنا کم شده که
 </div>
 

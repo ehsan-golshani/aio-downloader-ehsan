@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/01 22:46
+📅 آخرین بروزرسانی: 1405/03/02 00:23
 
 ---
+
+## ProxyMTProto — post 47560
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hop.proxytg.space
+Port: 8443
+Secret: eeabb8cea3a48990152aacc55985a913116262632e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47559
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: alpinavpn.hatecens.cc
+Port: 7443
+Secret: eef8dc254a4c2af8afcab54c8a5f9bb4fb616c70696e6176706e2e6861746563656e732e6363
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47558
 
@@ -168,23 +186,5 @@ Secret: eea890920f5ac6ba5834725e150d06c4aa64726976652e676f6f676c652e636f6d
 🛡 Без ограничений
 
 👇 Получить прокси
-</div>
-
-## ProxyMTProto — post 47540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hop1.proxytg.space
-Port: 443
-Secret: ee7e6c3f99b8b56d5aece5326877a3793a6d61782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47539
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: alpinavpn.hatecens.cc
-Port: 7443
-Secret: eef8dc254a4c2af8afcab54c8a5f9bb4fb616c70696e6176706e2e6861746563656e732e6363
-@ProxyMTProto
 </div>
 

@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/03/01 20:59
+📅 آخرین بروزرسانی: 1405/03/02 00:25
 
 ---
+
+## tasiyanc — post 5065
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار 5 دقیقه زمان بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🐾 اسکنر فوق پیشرفته بدون خطا IP برای شیرخورشید
+
+✅ دارای لیست رنج‌های آماده و پریست‌های اسکن
+✅قابلیت انتخاب CDN های مختلف و هاست‌نیم‌های SNI
+✅خروجی راحت به صورت متن، فایل اکسل و بارکد (QR)
+
+1⃣ فایل بالا رو با مرورگر و بدون VPN باز کنید.
+
+2⃣ از بخش «انتخاب CDN» سرویس موردنظر و هاست‌نیم SNI پیشنهادی رو انتخاب کنید
+
+3⃣ از بخش «رنج‌های آماده IP» یک رنج انتخاب کنید، یا به‌صورت دستی آیپی‌های موردنظرتون رو داخل قسمت «لیست بازه /ip» وارد کنید.
+
+4⃣بعد از اتمام اسکن، لیست آیپی‌های سالم در پایین صفحه نمایش داده می‌شود. آیپی‌ها را کپی کنید و داخل برنامه شیر و خورشید وارد کنید
+اسکنر قبلی 🤩
+
+🐾 @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5063
+
+<div align="center"><img src="files/post_5063_tasiyanc_5063.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ آخر شبی که گذاشتین تا امروز ظهر وصل بود بعد قطع شد دیگه ولی عااالی بود🥹
+</div>
+
+## tasiyanc — post 5062
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔒Password: Navid
+
+📶 اختصاصی تاسیان 2 سرور فعال 📶
+
+برای اتصال پایدار صبور باشید 😐
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5061
 
@@ -167,44 +218,5 @@ IPs 👑 ping 65-280 ✅
 185.208.174.167 10.114.141.78 46.32.31.30 5.144.129.174 185.89.22.73 185.89.22.10 185.89.22.66 185.88.178.196 81.12.72.218 5.160.128.142 63.141.252.203 185.143.232.122 5.160.13.85 151.101.192.223 185.200.232.43 185.200.232.42 172.234.159.58 81.91.145.2 185.200.232.56 185.200.232.25 2.23.169.105 95.38.201.199 172.234.199.15 2.23.168.174 2.23.168.250
 
 @Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑 ping 100 - 250✅ 🛜🛜📶📶
-
-
-185.89.22.73 185.89.22.210 185.89.22.10 185.89.22.71 142.54.178.211 151.101.128.223 151.101.192.223 185.200.232.42 185.200.232.50 185.89.22.66 63.141.252.203
-
-@Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5042
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنظیمات سیمکارت 🛜🛜🛜 APN Name Google.com APN Google.com APN protocol Just  IPv4 🐾 Shir khorshid Sni: 🔹Google.com رو ایرانسل جواب داده ، بقیه اپراتورها هم تست بزنن @Tasiyanc 🔥
-</div>
-
-## tasiyanc — post 5041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنظیمات سیمکارت 🛜🛜🛜
-APN
-Name Google.com
-APN Google.com
-APN protocol Just  IPv4
-
-🐾 Shir khorshid Sni:
-🔹Google.com
-
-رو ایرانسل جواب داده ، بقیه اپراتورها هم تست بزنن
-@Tasiyanc 🔥
-</div>
-
-## tasiyanc — post 5040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑 new all operators 185.208.174.167 31.214.169.244 185.109.61.27 5.144.129.174 37.191.76.110 81.12.72.218 185.142.158.162 185.88.178.196 63.141.252.203 109.72.197.1 80.191.243.226 142.54.178.211 185.137.25.214 81.91.145.2 5.160.13.85 185.200.232.42 185.200.232.50…
 </div>
 

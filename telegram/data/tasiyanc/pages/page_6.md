@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/03/01 20:59
+📅 آخرین بروزرسانی: 1405/03/02 00:25
 
 ---
+
+## tasiyanc — post 5184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs Ping 56 ✅
+
+5.160.13.85
+185.88.178.196
+185.208.175.228
+164.138.17.122
+185.137.25.214
+185.208.174.167
+185.50.37.52
+185.141.106.238
+5.160.13.85
+37.191.95.70
+
+@Tasiyanc 🤩
+</div>
+
+## tasiyanc — post 5183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده  📶
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید 🚀
+
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آپدیت فایرواله دارن شدید میکنن فیلترو
+</div>
+
+## tasiyanc — post 5176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دو تا نپستر آخری خوب بود؟
+</div>
 
 ## tasiyanc — post 5175
 
@@ -150,37 +192,5 @@ Join As @Tasiyanc ☑️
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🆕 قاتل الهه حسین نژاد امروز صبـح اعدام شد
 @Tasiyanc
-</div>
-
-## tasiyanc — post 5157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما اندازه اینا تو چنلمون کس بگیم همه لف میدن
-</div>
-
-## tasiyanc — post 5156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان 5مین بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5153
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هات وی پی ان ویروس داره؟
 </div>
 

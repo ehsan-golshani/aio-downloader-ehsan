@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/03/01 20:59
+📅 آخرین بروزرسانی: 1405/03/02 00:25
 
 ---
+
+## tasiyanc — post 5116
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid & mahsang
+
+
+23.207.210.80
+23.55.110.74
+94.130.33.41
+94.130.70.160
+144.76.1.88
+94.130.50.12
+94.130.13.19
+95.216.69.37
+138.201.54.122
+2.19.204.217
+142.54.178.211
+95.100.69.108
+96.16.122.158
+23.55.155.169
+23.210.73.136
+2.22.151.181
+2.21.239.10
+23.192.237.222
+95.101.181.125
+65.109.34.234
+63.141.252.203
+104.78.170.186
+
+❤️ Connected 📶📶
+
+
+@Tasiyanc 😡
+</div>
+
+## tasiyanc — post 5115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال کوچکی پیش اومده سرورای اولمون بدون مشکل وصل هستن سرورای دوم به مشکل خورده بزودی رفع میشه ، از اینجا اطلاع رسانی میکنم
+</div>
+
+## tasiyanc — post 5114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وصلید با سایفون ؟
+</div>
+
+## tasiyanc — post 5112
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات تاسیان :
+</div>
 
 ## tasiyanc — post 5111
 
@@ -150,48 +203,5 @@ Password: Tasiyan
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Eric.npvt
-</div>
-
-## tasiyanc — post 5088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5085
-
-<div align="center"><img src="files/post_5085_tasiyanc_5085.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داداش دمت گرم ، خیلی خیلی درجه یکی
-پولی ها هم اینجوری نیستن ، خدایی خیلی خفنی
-سر سلامت
-</div>
-
-## tasiyanc — post 5084
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns ترکیبی با نپستر و نکوباکس slipnet-enc://ARW5TYIc9f8Yiqf2QNOaS7YHSQobbOm2mraoEivTP6TXhJj67kK5Qqm3rOU4p/NBiIVE0ATtWrhZnuHJQ4fKNoeqtlpfbF//VbWbT4jXmXNHRemafUeMiUKzNrEX2PAMb+zqca0iEERuervYcThrjR0WLeMSn/Bvtir/4hdP46SX5m692QZr8n4AEVzttr9F4ma58pml2TiWX…
-</div>
-
-## tasiyanc — post 5083
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns
-ترکیبی با نپستر و نکوباکس
-
-
-slipnet-enc://ARW5TYIc9f8Yiqf2QNOaS7YHSQobbOm2mraoEivTP6TXhJj67kK5Qqm3rOU4p/NBiIVE0ATtWrhZnuHJQ4fKNoeqtlpfbF//VbWbT4jXmXNHRemafUeMiUKzNrEX2PAMb+zqca0iEERuervYcThrjR0WLeMSn/Bvtir/4hdP46SX5m692QZr8n4AEVzttr9F4ma58pml2TiWXdlanBJZhhDJP2xCIXyZqN0pTNTIt6I+qHjqpMaYm9mhl2b42qrWFnGMQEGvTfjXqCWYnFny8pjkq+ilhksxvwbDjzGtk2XP0eFR+kWUJUxUpxJY/js++lPA4zG6sgurmrVlQjdSHOr+HusatWIQjkuQs/LRiPT3G8uILmLp1DhjZtQon5FEeh7SUiPd6GIRFscSVLWijnpNsVwCMPjRb2Day9srn9wnQlHNADykS9Ka4KkePJ1GQivbh+f0hSYO91b++cUkZBtHhjGD2OfVwB9fefMGD2T0U9PeaGRO+/21dbV5z8N2JDV34J+myYRouPW/xLqWGbprefS7C9WKP0cTfUqqhAVUk+Avhmq3vxNP9Fl7z9hdZGApjBvkkvA+v31P63oRwdkfZNH8kObuF5sFledZ6yITeZsItt9sMEVPz+mjOt3+UGTwlC4k0m7OsAuhP47bXuLiVnaAX2YnQuIaLl8DN3hgMjFQ70Clu10YWnJjA9QiGKBbXPAl8de3+/cfOcfWuT/dQgHpGW4Bn8lXQWYZWzX9S6m50+1zFZXZ8mWVPW1sLMov7dFwWeV2wQ0KbAUP2BQcTJjRfL47bYAx
-
-آموزش اتصال 🔐
-ویدیو آموزشی 🔐
-آموزش اتصال با nekobax
-ویدیو آموزشی nekobox
-
-@Tasiyanc 🩶
 </div>
 

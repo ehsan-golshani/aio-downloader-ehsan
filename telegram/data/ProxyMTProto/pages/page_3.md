@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/01 22:46
+📅 آخرین بروزرسانی: 1405/03/02 00:23
 
 ---
+
+## ProxyMTProto — post 47520
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s3.neo-trading.org
+Port: 443
+Secret: eec3fefd89a25d37ca3af1a602c7bfd8de79612e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47519
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hop3.proxytg.space
+Port: 443
+Secret: ee8e8e148190ecbc4cda5090ec52e9613e6d61782e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47518
 
@@ -173,24 +191,6 @@ Secret: ee938dd87467bc49301de2e9765cf20f4374656c2e776562766972742e636c6f7564
 Server: 193.23.199.16
 Port: 8443
 Secret: eed942e15d1c4f6a22a8c8fc1d631f6eb9646c2e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47500
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47499
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: alpina.hatecens.cc
-Port: 8443
-Secret: ee3402ba73468309ea53338f1eb8ecea0c616c70696e612e6861746563656e732e6363
 @ProxyMTProto
 </div>
 

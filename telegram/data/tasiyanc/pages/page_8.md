@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/03/01 20:59
+📅 آخرین بروزرسانی: 1405/03/02 00:25
 
 ---
+
+## tasiyanc — post 5136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥Hot vpn
+
+🔹برای یه سری میگن وصله - ولی خودم تست کردم کانکت شد بالا نیورد تلگرامو
+دوس داشتید تست کنین
+https://play.google.com/store/apps/details?id=com.hotcodes.hotvpn
+
+@Tasiyanc ❤️
+</div>
+
+## tasiyanc — post 5135
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خودم وصلم الان
+</div>
+
+## tasiyanc — post 5134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با این پینگها وصل نشه ۱۰۰٪ منطقه ایه
+</div>
+
+## tasiyanc — post 5133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs 👑 185.143.232.122 5.160.13.85 5.160.13.85 185.137.25.214 81.91.145.2 185.137.25.214 81.91.145.2 81.12.72.218 81.91.145.2 5.160.13.85 @Tasiyanc 🐾
+</div>
 
 ## tasiyanc — post 5132
 
@@ -447,58 +477,5 @@ Ip Shiro khorshid & mahsang
 
 
 @Tasiyanc 😡
-</div>
-
-## tasiyanc — post 5116
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid & mahsang
-
-
-23.207.210.80
-23.55.110.74
-94.130.33.41
-94.130.70.160
-144.76.1.88
-94.130.50.12
-94.130.13.19
-95.216.69.37
-138.201.54.122
-2.19.204.217
-142.54.178.211
-95.100.69.108
-96.16.122.158
-23.55.155.169
-23.210.73.136
-2.22.151.181
-2.21.239.10
-23.192.237.222
-95.101.181.125
-65.109.34.234
-63.141.252.203
-104.78.170.186
-
-❤️ Connected 📶📶
-
-
-@Tasiyanc 😡
-</div>
-
-## tasiyanc — post 5115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال کوچکی پیش اومده سرورای اولمون بدون مشکل وصل هستن سرورای دوم به مشکل خورده بزودی رفع میشه ، از اینجا اطلاع رسانی میکنم
-</div>
-
-## tasiyanc — post 5114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وصلید با سایفون ؟
-</div>
-
-## tasiyanc — post 5112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ذات تاسیان :
 </div>
 

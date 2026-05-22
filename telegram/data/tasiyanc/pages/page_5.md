@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/01 20:59
+📅 آخرین بروزرسانی: 1405/03/02 00:25
 
 ---
+
+## tasiyanc — post 5208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با وجود اختلالات شدید همچنان در تلاشیم وصل نگه داریم عزیزانو ، کانفیگ ها تست شده ان چون اختلال زیاده کمی زمان بره بیاد بالا پروکسی گذاشتم براش ، امیدوارم وصل بمونید ❤️
+</div>
+
+## tasiyanc — post 5207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 اختصاصی تاسیان تست شده 🔐
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید و از [ پروکسی ]   کمکی استفاده کنید🚀
+
+Join as @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 VyDns SSH 🇷🇺
+
+slipnet-enc://Aaww8PvxLPFu0vkE/TIjc9hYWkVu7OWWdAqZv8BojMszVKFG748E1qv3vVdom8HPa589CsF2TckXpJuxMfZHtxnkJtVzlxR8FEDWSioSqQKLdnMNg8O3+PYW3IC+BjTEAC+SIkVvO7WaIKbFmyVlSkQ576KjLtvJ5sSJIVxbvJz9tWWsUwrmVozg+4O8XpdXFYw9l5iu9IzRs901XONAkpZwDUTun5PG1sXDkINFt4bcglFq7+6EywRK8PuuGftRXd44mxb2sAnk+QRzZS81jN2KS2Go7nfb7N5Ge3g4Wmj2SC9xJlqfKEbwsGVqISPxYSx5zRhRQfl/+sVQ3UytJyFHkRy2HKwuNmdQeHCx7WilpVssGk+bvkbhH3Get3gXEtfT0Z+5YRzl5dISEI3DLTMqgzhPBaWHkoQgZrQOu5NdelJLE33BmM805XTdOIPlcYA0kfpBaOL+kdnd0lG99zt5bXVcuelgmJPxkBhAXA5S8kWlDN+603DsCtwNYgto8Z+3VG2+I9suL4ICkubGf3nC1DP/q3q28/GU2088Z0IR5Zzv0SrHDMGhMezI5+oHwKbgtvRLHXL0OG5BUKD/PmJJFeUMi2lVzXuYjMhVmBkkEiuzFH3jP1erzRTMozQa3wiaPCZBlVQsBqpfo6gs/ujhJT9WPoz5HYHHjSi1qb7qdjAcP7IahMMln55ZCSJE15Yj3qeJSNmtLRZdw5cIrcO5E0UTdCn43W2+UQo6lldt6FzGDqfC4tvAtXxK4fF0ju5GfhLdxtVdIL6nErqMIzF0a8b2IctWdrz/+QuM7xmZFS4b4K9m4sffPqpzskmIa/csfWwFzOLy67uyDjFtQNXvUiZjw4K2//Tdog==
+
+Join as @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان تست شده 🛜🛜 
+
+حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید و از [ پروکسی ] کمکی استفاده کنید🚀
+
+Join as @Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 5204
 
@@ -165,47 +201,5 @@ Join As @Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 IPs Ping 56 ✅ 5.160.13.85 185.88.178.196 185.208.175.228 164.138.17.122 185.137.25.214 185.208.174.167 185.50.37.52 185.141.106.238 5.160.13.85 37.191.95.70 @Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs Ping 56 ✅
-
-5.160.13.85
-185.88.178.196
-185.208.175.228
-164.138.17.122
-185.137.25.214
-185.208.174.167
-185.50.37.52
-185.141.106.238
-5.160.13.85
-37.191.95.70
-
-@Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده  📶
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید 🚀
-
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5182
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آپدیت فایرواله دارن شدید میکنن فیلترو
-</div>
-
-## tasiyanc — post 5176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو تا نپستر آخری خوب بود؟
 </div>
 
