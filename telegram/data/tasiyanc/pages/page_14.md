@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/03/02 01:48
+📅 آخرین بروزرسانی: 1405/03/02 03:08
 
 ---
+
+## tasiyanc — post 5011
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این روش جدید شیر و خورشید رو تست کنید همه وصل میشین 👑 23.44.201.149 23.212.253.227 23.44.201.185 23.44.201.17 23.62.54.24 23.58.95.144 104.83.198.44 92.123.102.153 184.51.252.134 23.53.40.147 184.51.252.176 2.18.64.212 172.104.251.198 2.18.79.101 23.216.77.181…
+</div>
 
 ## tasiyanc — post 5010
 
@@ -253,11 +259,5 @@ Done ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دان نزنید
-</div>
-
-## tasiyanc — post 4989
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن؟
 </div>
 

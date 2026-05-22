@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/03/02 01:48
+📅 آخرین بروزرسانی: 1405/03/02 03:08
 
 ---
+
+## tasiyanc — post 4950
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای اتصال پایدار زمان بدید همه کانفیگا تست شده
+</div>
 
 ## tasiyanc — post 4949
 

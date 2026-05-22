@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/02 01:48
+📅 آخرین بروزرسانی: 1405/03/02 03:08
 
 ---
+
+## tasiyanc — post 5295
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگا وصله ✅
+</div>
 
 ## tasiyanc — post 5294
 
@@ -156,19 +162,5 @@ https://t.me/+qJ7oM-0GidY0NTY0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ذات نوید
-</div>
-
-## tasiyanc — post 5261
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SSH Method Slipnet 🌟
-
-slipnet-enc://AcF+yWITGeU/ZHgOfbKgRnZQJ4YUQapWxnDuZdKui8CPih0yj2WmBuA8zZzGvJSjuNsWCOq/lO7dZW6ywO7Fr9kd52KCWLkseRsOE4ot7N3smQrP/UsHuHHq/EbT6jPZdlOY7RLKYTuNnL+p6k4znS8jt331oOi0t/PsGqtCdGSinHe8Rt+BpHfb0DgCGCc06nm88/w+he6j3jOAL9JUodP5ZpJ6mBvJmGzahAl2QBwIXGQGRLr3PBN+clyrL53QgeOuwcw5yukfTNxCtokLvhVn8J5LPvKgqWPo9qQWhuI14EK4stJ36FkJxLMzY8HSR5o4vuEcp9LVskSQQWeqNGkGMVWiNNXjZiNLKYxNLjQh2eSPxmWrjhM454TkfjTHDBQHEUuQyA4xkdxdmgax5GVDiDCSOH4+36UvS/IV1RbAFsjPjf3D/Knhu8DVf6FrI7gEC0/gcOnYvT/xsSgvvgMGOnP6lclwRVsxGdhsOLDH4blCcdpPkoLhKy7GM69qSbM4BN7fFkZP
-
-😐 متد SSH - اسلیپ نت حالت پروکسی باشه و به پروکسی زیر متصل شوید
-تنظیمات خاصی نمیخواد فقط باید پروکسی مود باشه ارور داد باید چند بار پشت هم بزنید تا اوکی شه
-https://t.me/socks?server=127.0.0.1&port=10880&user=%40Tasiyanc
-@Tasiyanc 
-☑️
 </div>
 

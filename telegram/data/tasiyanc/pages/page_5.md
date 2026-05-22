@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/02 01:48
+📅 آخرین بروزرسانی: 1405/03/02 03:08
 
 ---
+
+## tasiyanc — post 5218
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc 
+☑️
+</div>
 
 ## tasiyanc — post 5217
 
@@ -189,18 +200,5 @@ Ip Ping 56 - 68
 
 Join As ﻿@Tasiyanc 
 ☑️
-</div>
-
-## tasiyanc — post 5198
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده  
-📶
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀 صبر ندارید نزنید 
-✅
-
-
-@Tasiyanc 🩵
 </div>
 

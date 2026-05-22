@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/02 01:48
+📅 آخرین بروزرسانی: 1405/03/02 03:08
 
 ---
+
+## tasiyanc — post 5261
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SSH Method Slipnet 🌟
+
+slipnet-enc://AcF+yWITGeU/ZHgOfbKgRnZQJ4YUQapWxnDuZdKui8CPih0yj2WmBuA8zZzGvJSjuNsWCOq/lO7dZW6ywO7Fr9kd52KCWLkseRsOE4ot7N3smQrP/UsHuHHq/EbT6jPZdlOY7RLKYTuNnL+p6k4znS8jt331oOi0t/PsGqtCdGSinHe8Rt+BpHfb0DgCGCc06nm88/w+he6j3jOAL9JUodP5ZpJ6mBvJmGzahAl2QBwIXGQGRLr3PBN+clyrL53QgeOuwcw5yukfTNxCtokLvhVn8J5LPvKgqWPo9qQWhuI14EK4stJ36FkJxLMzY8HSR5o4vuEcp9LVskSQQWeqNGkGMVWiNNXjZiNLKYxNLjQh2eSPxmWrjhM454TkfjTHDBQHEUuQyA4xkdxdmgax5GVDiDCSOH4+36UvS/IV1RbAFsjPjf3D/Knhu8DVf6FrI7gEC0/gcOnYvT/xsSgvvgMGOnP6lclwRVsxGdhsOLDH4blCcdpPkoLhKy7GM69qSbM4BN7fFkZP
+
+😐 متد SSH - اسلیپ نت حالت پروکسی باشه و به پروکسی زیر متصل شوید
+تنظیمات خاصی نمیخواد فقط باید پروکسی مود باشه ارور داد باید چند بار پشت هم بزنید تا اوکی شه
+https://t.me/socks?server=127.0.0.1&port=10880&user=%40Tasiyanc
+@Tasiyanc 
+☑️
+</div>
 
 ## tasiyanc — post 5260
 
@@ -378,17 +392,6 @@ Join As 🩵@Tasiyanc
 slipnet-enc://AcNagZVmSOeXnC5m8fl/SxZp1519lU/0c05yrGx71EVPzJ5DBuJpWMc002i+Qqxocfm2IbyxubP+rzzD3d1pElmwLEyHXcZ+xb68XE/1SCQmQ61TFWv+hbfwFbVXHqvikWFjvWw+/N2ai4prlQHLlJ275QNtzDph/AFGAgudFgtB21JIn0XWhXRnFg2z8w5J0o6GDGRr1Ngus8cz+41EbYGXpk7GU4zyOJijzZjXdiWRH9Z3SHuvsS2jnOg/ObhJ+Ngapw34BqhwxME2/c+b+eewEDEh/4VD8cOmnpqWSpB8rPs+IB9MvxFN+hcTdhE3hEA55nijuARMm06Pukk2e/2Z0aQmBKa4Gl14mqosRJE8nCFVYAL6ZHQpyh7chhRol5bKm/bK6qxnL43LSur6VirpaZYo2+KmYfRJE6YnYzph664QwKC5A3IDBHHVPctQvAfcOe00b0MYb5SWklJkZMosa7+jZ/VEwfu1mI0vpQ92Am5HIm5U2bGpE+JrL9bO5plbkpeXYzTSAtrymXXkZ1e8oxW/uf7qztAYvTNkaGJDBZpxBc0rTnw0p9GhLnah+kaK7rxxZYJ0cRayDUADW0WXLb6TSJ6olvBM1rOAoy2jRuBkT0ndpsXliVCRIn7O55sR801uPxrjIMFHnYWZs/UqWaEiORxsXEuC03dt2TlUy7IBYmSyiQ0Btn5AcyM2rm+okZ5KcKrDCXkh558q+igXvtcjGFpgULI5utVhxUVTr4FUF59SlZpULBWBdONk1TSOjWDpIQu0+5KMdhfelPzaNVE=
 
 Join as @Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 5218
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان   📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-Join As 🩵@Tasiyanc 
 ☑️
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/02 01:48
+📅 آخرین بروزرسانی: 1405/03/02 03:08
 
 ---
+
+## tasiyanc — post 5316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همراه وصله سرور رو آلمان گذاشتم ip جدید وصل شد
+</div>
 
 ## tasiyanc — post 5315
 
@@ -225,11 +231,5 @@ Join As 🩵@Tasiyanc ☑️
 برای اتصال پایدار زمان مناسب بدید😐
 
 Join As 🩵@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5295
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگا وصله ✅
 </div>
 

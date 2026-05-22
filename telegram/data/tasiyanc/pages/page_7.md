@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/03/02 01:48
+📅 آخرین بروزرسانی: 1405/03/02 03:08
 
 ---
+
+## tasiyanc — post 5167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+حتما برای اتصال پایدار زمان  بدید 🚀
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5166
 
@@ -175,11 +185,5 @@ slipnet-enc://AZWHehUAJK6RDRWDnjlb0p2ilOu+IqhbAdw5RU8uHplJBhPjCSm5mRFdeWXP4bVB7V
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اگه وصل نمیشدید هات vpn میکردم گوه vpn
-</div>
-
-## tasiyanc — post 5146
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب ممبرای تاسیانم وصل شدن انگار
 </div>
 
