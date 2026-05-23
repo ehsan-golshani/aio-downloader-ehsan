@@ -16,16 +16,23 @@ jobs:
     steps:
     - name: Checkout
       uses: actions/checkout@v4
+      with:
+        token: ${{ secrets.GITHUB_TOKEN }}  # استفاده از توکن پیش‌فرض
     
     - name: Remove folder
       run: |
-        rm -rf "${{ github.event.inputs.folder_name }}"
-        echo "پوشه ${{ github.event.inputs.folder_name }} حذف شد"
+        if [ -d "${{ github.event.inputs.folder_name }}" ]; then
+          rm -rf "${{ github.event.inputs.folder_name }}"
+          echo "✅ پوشه حذف شد"
+        else
+          echo "⚠️ پوشه وجود ندارد"
+          exit 0
+        fi
     
-    - name: Push changes
+    - name: Commit and push changes
       run: |
-        git config user.name "GitHub Actions"
-        git config user.email "actions@github.com"
+        git config --global user.name "github-actions[bot]"
+        git config --global user.email "github-actions[bot]@users.noreply.github.com"
         git add -A
-        git commit -m "Remove ${{ github.event.inputs.folder_name }}" || echo "تغییری وجود ندارد"
+        git diff --quiet && git diff --staged --quiet || git commit -m "Remove ${{ github.event.inputs.folder_name }}"
         git push
