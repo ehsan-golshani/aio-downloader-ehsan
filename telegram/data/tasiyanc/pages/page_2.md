@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/02 19:18
+📅 آخرین بروزرسانی: 1405/03/02 21:21
 
 ---
+
+## tasiyanc — post 5347
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جدیدا یه روش سسشر برا 👑 بولد شده 😂
+میگن باید 100 بار حالت پرواز بزاری آیپی ۲۶ برا ایرانسل ، آیپی همراه ۲۹ تغییر کنه وصل میشه
+شخصا تست کردم یه 🍌 ورداشتم
+</div>
+
+## tasiyanc — post 5346
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟 DNSTT
+
+slipnet-enc://AWONur2OOs1Y+AArw+/8I/SDMEsRqm83KL/AHstUX3vMuAJUMGjp1SvKDYlXX6CmimobIPstlZUt8HUBKZKam/pLr/qcYKvWs/LERQ3JbVgBlqkm8fSskc7aDuUfGuDi186T0zEZSB1cY7GR+RRuN1bnw4UYqVxfXYq9kIGkJccWgUDUdZlnhcqzkHetZK1xnfYrlV/ORawfiqvMrFm02g+jz67kdz+EQEZ+DhHyovcJ0FmtctvGCTBwYLJGnpqVcnDcwnw68s8FKKXRvxv91R9ylKahjOLEdRVlJj4yalwKspLSeVQL7CLy8fGqHq/jOU/f7jgMDq2TpdluVGhk7gVnRxbH247JsCnLZJbBcXEEM5ZjR+cy1R7PiOuzbwlxzTMwUCaxV8Sno6xxFrf/9emMY205d8NOpIfk2ICZxR0oh+B63PHjhYGAZyFB9/eP9YDgdEAz0HOaUZbMZwcEAYzt5+wjJNfcCNtXeNakegutCEXnG5hd4/9p3Sk1yelP7orn/2sUXtUJ4CK+3BHAX3xFQ7GFZ2CwwP3lJY9bhQIq4QG/jD7Vv4u1xi3MKvQgJsAQEUZ+ixb+a5SIyYsTM/0bzO5q9iuTCYXCrgDvqQ0fynpJyrOQwffa34gIaFgfjFQx2xEALv/KUgd6L0PsLlNjfNiVusafK796m1nUKIoFj8UnvYbLUPHFKCyllFpTC0LqacXxXA4QrJns2tpfsDnRxjwQPaq3G5WPQ4aFnKQAYvzTFrzo+x/BBKl3fK9HJJnFL4UfDyEvl2AuuEAkBm3SwXzHId/7t3dR0w==
+
+Join as @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5345
 
