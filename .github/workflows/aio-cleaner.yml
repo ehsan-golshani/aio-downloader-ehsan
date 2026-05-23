@@ -4,7 +4,7 @@ on:
   workflow_dispatch:
     inputs:
       clean_all:
-        description: 'پاک کردن همه چیز (telegram, youtube, x, instagram, website, leecher)'
+        description: 'پاک کردن همه چیز (telegram, youtube, x, instagram, website, leecher, bale-bot)'
         required: false
         type: boolean
         default: false
@@ -48,6 +48,11 @@ on:
         required: false
         type: boolean
         default: false
+      clean_bale_bot:
+        description: 'پاک کردن Bale Bot'
+        required: false
+        type: boolean
+        default: false
 
 jobs:
   clean:
@@ -75,6 +80,7 @@ jobs:
           CLEAN_LEECHER: ${{ github.event.inputs.clean_leecher }}
           CLEAN_GOOGLE_PLAY: ${{ github.event.inputs.clean_google_play }}
           CLEAN_DIRECT: ${{ github.event.inputs.clean_direct }}
+          CLEAN_BALE_BOT: ${{ github.event.inputs.clean_bale_bot }}
         run: |
           python << 'EOF'
           import shutil, os
@@ -84,7 +90,7 @@ jobs:
           platforms = []
           
           if clean_all:
-              platforms = ["telegram", "youtube", "x", "instagram", "website", "leecher", "google-play", "direct"]
+              platforms = ["telegram", "youtube", "x", "instagram", "website", "leecher", "google-play", "direct", "bale-bot"]
           else:
               if os.environ.get("CLEAN_TELEGRAM") == "true":
                   platforms.append("telegram")
@@ -102,6 +108,8 @@ jobs:
                   platforms.append("google-play")
               if os.environ.get("CLEAN_DIRECT") == "true":
                   platforms.append("direct")
+              if os.environ.get("CLEAN_BALE_BOT") == "true":
+                  platforms.append("bale-bot")
 
           if not platforms:
               print("ℹ️ هیچ پلتفرمی انتخاب نشده")
@@ -143,6 +151,13 @@ jobs:
                       shutil.rmtree(folder)
                       print("🧹 Deleted direct/")
                       cleaned.append("direct")
+                  
+              elif platform == "bale-bot":
+                  folder = Path("bale-bot")
+                  if folder.exists():
+                      shutil.rmtree(folder)
+                      print("🧹 Deleted bale-bot/")
+                      cleaned.append("bale-bot")
                   
               else:
                   folder = Path(platform)
