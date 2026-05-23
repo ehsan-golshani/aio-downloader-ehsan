@@ -1,8 +1,36 @@
 # آرشیو کانال MehdiBudam - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/02 08:57
+📅 آخرین بروزرسانی: 1405/03/02 11:28
 
 ---
+
+## MehdiBudam — post 8053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+115
+﻿
+
+slipnet-bundle-enc://AdgXnd0TpH4xHolufTdFiMfNAV5JAaZF9FqtP4Ey2h2uyYmJv4tf33hmh9qETEcbbaMVPKImGJSb2puKDHFT057lLG4+eza+zx7LgFBSuvxwz22lqjqbRRPn+rcoJLD543owX8uo8FTg+x1GXYITIEOF5KHkgZqUJfqiVtw8bdCMSA03woEvl9vDawpmXofomuBCEjLDorlR5XUV8l5a+miYcTYCU068cvOYNeYLVNQxUyogk+LNMHALVtDVgB9097PPv9aG0R3RCcXvC2QLz6KyVwvxd/NP4vMEESVlEp50v1BnP6x5hljTE4tXdFZCFs00U7fsfsdHanNQlggphWCxz8jclp08mz//oY8Z1Ed15wycwcLL0CPToEseMdZNph49Ojl+THZuvtwpGGfmi4y5O3xK5GzRJIWV8Ud+FIf4Mq+n8D4sP9X8ZLmNeKXVpn3ewU7S4vG9hVly49zg9wBEuvu8/CR7Q8qhHnOSJB60dwHnjQzGgucZ2sqPhxqw65RiZKkjSOP1JLUHLSbOyHSjqoYNdcLF9SGTi457PtOvr/wJr3yKzMRqPmXbamqEcA2wRAwBm08Tu657JUfLhXcD8TDtu/35s/Mc878cMzHywWH/4ReKDBt1wOQmjucZvmwjUNbvWNkoIYZoR7eQ6j1KC2zsOpwtcUF3uLiKfQ3DKtEb+NV7Ydh4c5HYFEHK0tGi6lCiaMX20a6SIBBGnqHhU4Whr7FbCWQVPFhDGKm8bNftCyiB2ik5HnCj4XcuD6supx96MMFiHMvKUpKIxqG+Y7TkstQETrJHAbG1TcXsQf787xLPVZWEPvj83v2LjuNIihwr42vrkPDqaBBYese0MwWYnudprLdU/r05UR6rRW6Oa/fAQIgzFYc5zpQiTmPD/0OMFwX4a3u6xIJREXITLino8q2tCBzgDDzP7uEHI/96lJKkFD5xBNipnRfbtTiBZdquedaiF4ykB8jcPbGwyv7kUQaM3VnTHIQcpwTMwrXpbMGXosLNkP3VfpFOItFhHMBuSlZvhOmYsUthTKscS9u6L4c/mGi4a24Yujck3QFNX+AVTbNnt51hFR6gCnwfT6uyV4m0ztg=
+
+
+Pass: @MehdiBudam
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+114
+﻿
+
+slipnet-bundle-enc://AVcHi/SyV9RFkbgQ08myKwZ5DTK3Fi8l7yHlCeJLxTUhapjr71QKwAuIqFYZId4FqkQ/1+ICN6XEgx5g9RdOagE4FMPAb/f/Vi7s7+KKhoiMQosYtopbHuwc+1wwjJSJuXkWg6PKNWGZx3RnYFuOlWg2SCDnHn6OmEc3igDmpTQcuyGS2Y9MHOmg/0MTYhy3zycJF2Bc+noyWiVSFEbjCQGvMlScrTlhimpO0iTCJU1DxV2bDGEqa3rwFJvf8cnhEhASlICbFFBq86LCy+qLMDJzX2eVh4RMh4X3QYFV5DiL3QY0iTxfuAr2HM+EP+BbkxRKvy5V0vO2dwWp+3IAW3PdXOTVgRx+1KjiqkJ6UksQM7+YRwfTi6ewvHkIWW1622RTZ+b0f5Xz1tjqsfzfsYuXsHcuweafVaW6JKpr/AFXgJQkO0QtY2Ey2AX9cUnEJfn3JPxBu+h2vCEq3biVjtqrkY03LinVO5jdHScDcpLFaDWQg7fGDu2mFd0rnWaEYytNlqxMvfIm3GkXmcXaiWkcj+vfZ540CkLNSSRJqdHug1UprITl9kpJ1NPu0w5CbwpJoRM+FljVVY/6PE8XcP6icymXxODWcFZ51HTR4BPFfrU6yQO0zzLhQgLXcpm9vEP5SbHtsDNzq9/N1YJEPvkCbYfzY8VpEQkLJCeqGTxvMywSdfs1td+Wg60AM4iY7bkKGdlWM/Hs1ENC1LDv3WFLVAOBXKVsOjzGNAHGzkWXPfVa7Uxnj6ihWNY13meNdHBxBiv8qBoriisOzP0F5/Tujnlz/zc3CWI5mxBGzyjRSlECQhfJspGsEB04otBw96KCJu7/BrOap0vefJHdZ3V9UT4+K6kGXLlxQMwZJrUoTLuYV+SVopCaB1A3h1oXZbzAhTerWadQXvqD9m5F9SbwtEPOi2aFbTCQP0kCXIVUYv4hk1rdseNHYdCpwStbAfmJHhe/+AdqWDBSp2mv3yfqyo49gyBSE0HkBpJfyjpt8T95HvUioMY8W+nwBXG+wOx8qbwbWe1ZZZe3jPzwjLvOdzKYzggtjt6CNVQwqPX7dPG+yARjM+4IcDWVZGIzY7xq
+
+
+Pass: @MehdiBudam
+
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8051
 
@@ -159,19 +187,5 @@ Pass: @MehdiBudam
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 106 107 رو هم میگن وصلن.
-</div>
-
-## MehdiBudam — post 8033
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-و 85 81 75 72 71 67 57 54 48 46 37 32.
-</div>
-
-## MehdiBudam — post 8032
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دایرکت یادتون نره.
-t.me/MehdiBudam?direct
-با چه شماره ای وصلید؟
 </div>
 

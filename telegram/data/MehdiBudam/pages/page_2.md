@@ -1,8 +1,22 @@
 # آرشیو کانال MehdiBudam - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/02 08:57
+📅 آخرین بروزرسانی: 1405/03/02 11:28
 
 ---
+
+## MehdiBudam — post 8033
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+و 85 81 75 72 71 67 57 54 48 46 37 32.
+</div>
+
+## MehdiBudam — post 8032
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دایرکت یادتون نره.
+t.me/MehdiBudam?direct
+با چه شماره ای وصلید؟
+</div>
 
 ## MehdiBudam — post 8031
 
@@ -162,29 +176,5 @@ slipnet-enc://AQjVAGEW3NRYKzAje3hWoiVnoGN8BiV7LCpxnYoGHgsvPNwOFlXxuv190gLEuWTShC
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 88 تا 101 وصلن بقیه رو خودتون تست کنید.
-</div>
-
-## MehdiBudam — post 8012
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-101
-
-
-slipnet-enc://ARWuvhyeKtZvXPsrX/TPDmcQ6RgYxholr9Q9mfeHlnyLBK2ai+lKaoX9Cy+V6B4iTGsYadhFXmQWpukuw7qea6RdLG3DBWWiP1/CXk3JRnmjkA+MKfXJqi5gVbB4q3fqVb5qQcrHeMxvcU4FSY0Xvg59m244AWk7VbL4qFFoZX/xIeb90zLekM7k6oWzaKMcoAgjJRHQvxeiStubJ/HIiIWNwQ+nZKwsIEt1C/uy3jafTmSJdoXRzipizjcpPAj2wMUHkRG/xddzYHJ+rMUpi82nqcgtEpXN1z7NgsFPdU5h4R/6r+nzwQWxfaZCbCepD3yRCDROdpwU8ufbZTDRJFcJ9FMvg7qUcs+lkrYVf5WfpO93a+mVVODLrBPQVT23zSfqQDaPnfGPVV1YdzLoKvh9l0m1AnMLEE4v+FcISWu2MVVphdjF5G+RVsHMdSi6gBKUnh0UweiPdlu0B6bVFV7waIZ2lKnVekHRHl/puyxmJG+7/8IrIQROEg5dQpcwXpdTfm+3i5YQMSe+s7P8EpohMnnGf5/giARRw0V57HiUgFOWkfvW+uOt0SIPXiKuQxoYccZYXc2O1Om+gW2kjjsBf+6eQFuQC9TWmDqpzYNvPTUF/AXM3i+hfKexvfvy9b7nlkXgcpdBRI7l+a+1lvxfuaD+Y/rnVCE/4NC/ycENeuwbRewrHGvzsxce6M8zDiAQLRpF0kdMwlayko8EOarplADqvl4ODO0Ny0D+6CDm/dfJllnhZ3s7ByV25Z6Xq4/e79z37muST8pT3miL8GCuKoRjx4bIRA==
-
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8011
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-100
-
-
-slipnet-enc://Ab3327bHMy6oHmM8W59BbaQYdMUpITaLz9Z4119zOvl/Nk/wYCp1okNNJYP8XXYSoxVlePgvYSVWeDMVWq71zByQxzoellfSYELVkjcEsorwtdfgtV8BCzq94DcnmFQzR3KEluZOG2Drc4uDwmGPrpiufl9zbhSBI0WEfTQMOKYHS1JJuut1wItMGYVqqU93ULfVBMANthYC+zUE075YB4Qg+Hm2gSlRnbmSkBIqPh6ptFy7nPfQNNYo91xJrRbqOCQ/w5r7L9nlDhkhsKvfacUOKo4e8gRsXZbb6wANIYztvVsg9tFahporbL+2p0hpgKp4Ayzcq+Y20V7AJ/LFQgRr1SKOheyDRohkb8RvcMC0akSDfP0mkXxZ7pN05MmqDm9WrSA8Wwih6leyaqVJPKlkRvTqV0eweNCLZpHTHj0xdBWMwAb3YGL4JLC2RyEj/2ucAvlOyMMP4bMqW3GPetGiTcN93NN760tf8/r4FdEVORH0oOwjYZ14aBIdK41QMGwskUVIECfBp5MK1EhDPR5RCCq04Ro71LuECI4fg5vblxIw6CG7GrtHU/ZBmIyNgG89DvapwWOd978t5Lgm4J6tnL5b6FZwexgU/x+38oa6lik+yTwydm3T4kBJVIJllYU0jm3pcLsLMGhDmknjzW9UEUk4x/MNBzoxQRtLUG6o7T/34IPWEEXieqeSnI4fD4yj7PS5lnG2R9Syy4u3T64bx/x65raxffYcPobjV5AQNMLdUXcYwIFGxQRS0fum3Z+717KOpNzLyAw/6mEFUKsU0cwqbO0Qky87BPeo
-
-
-@MehdiBudam
 </div>
 

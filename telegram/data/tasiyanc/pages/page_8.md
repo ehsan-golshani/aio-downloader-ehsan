@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/03/02 03:08
+📅 آخرین بروزرسانی: 1405/03/02 11:29
 
 ---
+
+## tasiyanc — post 5153
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هات وی پی ان ویروس داره؟
+</div>
+
+## tasiyanc — post 5152
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چرا برنامه هات رو گوشیم نصب نمیشه
+</div>
+
+## tasiyanc — post 5151
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Slipstream 🌟
+
+
+slipnet-enc://AT6bKWyWhFfp2kmUc5BezhfIZ/6ovcMtl0L2GneHixJ8E/qhkAqQyeb1P3xV/aCw3jeBaZ+1v5Z79WMyUjkctQGY4b9ALNjXJLxVEBkDEzr5xo2mw6/Y41qP2RSdBxIxFoY++Fa1KI4PpVv3AEyhOIGjPaSN+fPi7j2HlvmANpdZo68FYyalPK7fzAdgzLiYZJRMaMlFdvxeDWLkp7a8eBk51i6L7oGrYJJduLL+ybHEnacqM2VPHhtdpTRM3D4MvE8DxaDqhTN7JyKtM01GEAx1/70ai6R00zKT2qQ4mxslTAgUf5P+lQnhD2AV4pidaVrJSNafEU0S4/JJ0ZVEg3fjAA6sZW6Nk1frB0XVKg4QHbrAzFHt93YtIOYrKRIKF1d/E/BUhtw1zQUaFXmteu0521mDFXIQpTkv+q4SY/EhCE6mGpKl7gEpa72eZxlfeAdVA3sLuyN8SMZWxNAL0zJAyWey/oj9J8JrGl0WIirlqlSv6TdLvHEae/xBWD8dbsNDshZ5NTMogiRlkMiVAuWRKebOrbN/pFIbafT+VIaOndRZJypWC4pSFNd3pZlJ8txZKw9Q+mEHDySWmnXXTVjziitfc6R1bJwSVFdxg/JHP66L7/2wfCAQyTHnWQK5hQgWaI+Sh+Swmg==
+
+@Tasiyanc 🤩
+</div>
+
+## tasiyanc — post 5150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5149
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛡 🌟
+
+slipnet-enc://AT6nzi8QS96ebf5YPviKL3DIi0URVVoA9fKcTUQfjOpRCQrrh/xh/45cASeRvmTI62I/MZkALJ2tMwgq3CFxAAP5AmzcW0lw369tYLvO++gS69z9waESl/VU1DARtOujlHArhpb2QuIEsYJY6Vi3DSSkCvH6IJIkMpZ9Hl/jbjJeWgWEN8QbIsGVqpXezKm0odfAw6pZM4iuJe8O1GANa38qxI2N1/osHiL0VV5q5Qql9njt9MchLKs0a0ne/PK7QyU3JHqpwA7ANOhfjcbNdm+JKxwumqcuKgJHaoiHeXYiVqB2Yf+uY3x4CEIRYi+NQYp6xv8n+bn4jdij81EllqYB/6obT5itU8diWzlVMJZNLroJvFwy/HqOz1IBSeHZ6fp2Jcd4IQ9qhfeoRHBBTmc+gqguAzlZxyIlU9VovZ155v9vMOLFDaftb9eDuKiO3Jtdj27nPTgN+sizmEYUypRcTLG1SyBpks/8RSRuUhSpBR4T//HoHcZwNkxaFLM87byx3Ss8L1D4JVz46x758hepvoxyqwsXuzOfW+driTDNLpsM9LYyJu2xi8GWzc5/jVHHCYnlwV0JDtrWwRWUTisu5AHD0h+3Qo9TVPg1FcqiJ95aLf9jBMe4a1dTCoS7RFJYoL0Cnw9MJGRInsvUTFu/6kgVa5RxTMM7LqPjytEVNlvMGSbBn5WWP37wPYBRJnDddwAuwtQNjJexUceB1ysfXT7fZ4vv9xvRLphOlFTkRkX9OcUsQKBe+G3t+vkuXBnO7GM=
+
+slipnet-enc://AZWHehUAJK6RDRWDnjlb0p2ilOu+IqhbAdw5RU8uHplJBhPjCSm5mRFdeWXP4bVB7VnXxGkhyF4HwexONkyEKBqcE5MUkENxiq/c4AiH2l8wVXeMxjlA9lUxCUi//VQKSttPLuZUwI4b9Uz+PkGEk9ZyNLiad09qxhC7jqk9poL2zGE0vnoj0NmnfdGUnMyuSDi4hiO21Shy2Jdtc7B1jCKLPGjQzucHVS+If/pUwWHhw6NTTfsd0dDrSSpdWRfZQugAIkyFXtyfu3SRwwMOeGQaUBM2ylRI7UmwyUvmQxfZ1dvK8Imu563xrP4IrCECoYg+DsGXucCx20U9C9WRunA/QdOruZ2t9t0E0mx99AbbGQTdhdCyipSGrlvP3WFuOP3JObeF+hVb6ExEv+KKyCGv+6UBtEdMnO9Njo+v0w9fHy/lolS5P5J6bSq1GEsj3vjt+qVoFKY6opmlpOoSHlHFmW2uspyYcaEERoSuoIr1ja8HgJ4Ls6u6kbJxMC2dqRqKWJTCgAv6u+dJnTfKVDty4iCnX2byXctBKWDHHsklR1Vs2/BC9zp+V5vxX5p0Dh/JnZGbVtF0YSlGzg6RU1QMFfNSWMx7Ozfo6wXYNvwjAqnFLvPDmmAflwFxVCXusD1mNBZ2mzUlaJQLfLvoVUVdYJ//t5o+5Isky2Eqt8WM2OWqABQJp6AdlMMmNx3NusgI6+OXadGt8cJSaJYdnR94DiNH4VGNH6igypzFY6A8M8X75KWjN174vZohPt4SNyhK
+
+آموزش سایفون
+@Tasiyanc
+</div>
+
+## tasiyanc — post 5148
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعصب شمارو تو این بحثم میکشم ولاغیر
+</div>
+
+## tasiyanc — post 5147
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه وصل نمیشدید هات vpn میکردم گوه vpn
+</div>
 
 ## tasiyanc — post 5146
 
@@ -89,291 +147,5 @@ https://play.google.com/store/apps/details?id=com.hotcodes.hotvpn
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 با این پینگها وصل نشه ۱۰۰٪ منطقه ایه
-</div>
-
-## tasiyanc — post 5133
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑 185.143.232.122 5.160.13.85 5.160.13.85 185.137.25.214 81.91.145.2 185.137.25.214 81.91.145.2 81.12.72.218 81.91.145.2 5.160.13.85 @Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5132
-
-<div align="center"><img src="files/post_5132_tasiyanc_5132.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑 185.143.232.122 5.160.13.85 5.160.13.85 185.137.25.214 81.91.145.2 185.137.25.214 81.91.145.2 81.12.72.218 81.91.145.2 5.160.13.85 @Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IPs 👑
-
-185.143.232.122
-5.160.13.85
-5.160.13.85
-185.137.25.214
-81.91.145.2
-185.137.25.214
-81.91.145.2
-81.12.72.218
-81.91.145.2
-5.160.13.85
-
-@Tasiyanc 🐾
-</div>
-
-## tasiyanc — post 5130
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-IP new
-
-185.137.25.214
-5.160.13.85
-81.91.145.2
-5.160.13.85
-185.137.25.214
-81.91.145.2
-37.255.133.30
-172.237.127.6
-185.200.232.43
-104.103.65.5
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5129
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2.19.205.58 🛜
-Location 🇩🇪
-
-ایپی و لوکیشن سامانتل متصل شدن ۳ ثانیه 😎
-
-
-@Tasiyanc🤝
-</div>
-
-## tasiyanc — post 5128
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀NEW_IP 1-🤩📶 37.98.105.146 185.137.25.214 142.54.178.211 5.160.13.85 37.255.133.30 2.23.168.254 81.91.145.2 23.221.28.5 2.21.2.65 50.7.4.243 151.101.64.223 50.7.5.85 172.237.145.27 50.7.4.107 50.7.4.244 2.188.21.240 2.23.168.47 2.23.168.250 2.16.106.11 🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺…
-</div>
-
-## tasiyanc — post 5127
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀NEW_IP
-
-1-🤩📶
-
-37.98.105.146
-185.137.25.214
-142.54.178.211
-5.160.13.85
-37.255.133.30
-2.23.168.254
-81.91.145.2
-23.221.28.5
-2.21.2.65
-50.7.4.243
-151.101.64.223
-50.7.5.85
-172.237.145.27
-50.7.4.107
-50.7.4.244
-2.188.21.240
-2.23.168.47
-2.23.168.250
-2.16.106.11
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-
-2- 📶🤩
-
-23.207.210.80
-23.55.110.74
-94.130.33.41
-94.130.70.160
-144.76.1.88
-94.130.50.12
-94.130.13.19
-95.216.69.37
-138.201.54.122
-2.19.204.217
-142.54.178.211
-95.100.69.108
-96.16.122.158
-23.55.155.169
-23.210.73.136
-2.22.151.181
-2.21.239.10
-23.192.237.222
-95.101.181.125
-65.109.34.234
-63.141.252.203
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-
-3- 📶📶🤩
-
-184.86.103.210
-96.16.248.183
-92.122.16.5
-96.16.249.60
-96.16.249.9
-23.12.156.115
-23.216.77.16
-23.62.61.53
-23.39.148.245
-23.210.73.133
-23.44.201.136
-23.205.46.167
-184.30.150.142
-23.220.161.217
-184.28.165.4
-23.46.230.133
-88.221.168.204
-104.96.158.174
-184.51.252.4
-172.234.199.15
-104.85.26.14
-172.237.145.27
-92.123.103.24
-172.234.159.58
-185.200.232.43  
-2.17.100.200
-2.19.205.42
-2.19.205.50
-2.19.252.134
-2.20.169.70
-2.20.170.91
-95.101.111.144
-2.16.245.188
-2.18.69.150
-2.16.106.4
-23.58.222.107
-184.25.28.31
-23.47.124.134
-23.50.131.147
-23.46.190.18
-23.58.222.147
-23.56.162.186
-23.44.203.68
-37.98.105.146
-185.137.25.214
-142.54.178.211
-5.160.13.85
-37.255.133.30
-2.23.168.254
-81.91.145.2
-23.221.28.5
-2.21.2.65
-50.7.4.243
-151.101.64.223
-50.7.5.85
-172.237.145.27
-50.7.4.107
-50.7.4.244
-2.188.21.240
-2.23.168.47
-2.23.168.250
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-
-4- all operators 🤩
-
-23.58.222.136
-23.73.2.148
-92.122.166.175
-172.237.127.6
-104.81.104.13
-96.17.207.137
-92.123.112.7
-96.16.122.75
-96.17.207.142
-96.17.207.143
-92.122.166.182
-104.109.128.153
-104.96.143.134
-23.73.2.141
-104.83.5.202
-23.67.136.200
-23.67.136.202
-23.65.119.52
-96.16.122.70
-92.122.166.236
-92.122.166.234
-92.122.166.237
-104.110.138.190
-173.222.200.5
-184.51.252.36
-184.51.252.38
-104.83.5.208
-96.16.122.146
-96.17.206.214
-92.122.166.197
-104.94.100.73
-104.83.15.66
-88.221.213.81
-172.239.57.117
-104.117.76.40
-184.51.252.4
-96.17.207.30
-96.16.122.83
-96.16.122.150
-23.73.207.11
-96.16.122.77
-96.17.207.155
-92.123.189.82
-96.16.122.82
-96.16.122.66
-96.7.218.219
-96.16.122.137
-184.51.252.157
-92.123.189.41
-184.86.251.12
-96.16.122.154
-96.16.122.157
-184.51.252.152
-96.17.207.12
-23.79.48.162
-96.16.122.74
-104.109.250.232
-92.123.104.7
-104.110.191.57
-184.51.233.146
-173.222.201.77
-96.16.53.134
-96.16.122.140
-184.51.252.135
-172.234.24.211
-96.16.122.149
-104.122.213.129
-104.103.72.97
-104.103.65.5
-104.83.5.210
-104.117.76.152
-104.83.5.176
-184.86.251.26
-96.16.122.133
-96.16.53.152
-96.16.53.147
-96.16.122.152
-104.126.37.162
-23.73.0.64
-96.16.122.141
-104.117.76.10
-96.16.53.158
-92.123.157.46
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-
-⭕️لیست آیپی های قدیمی را پاک کنین
-
-۹۰٪ این آیپی ها متصلن و حدود ۳۰ ثانیه تا یک دقیقه صبر کنین کانکت بشید
-
-@Tasiyanc 🤩
 </div>
 

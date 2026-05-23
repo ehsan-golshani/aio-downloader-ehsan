@@ -1,8 +1,252 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/02 03:08
+📅 آخرین بروزرسانی: 1405/03/02 11:29
 
 ---
+
+## tasiyanc — post 5248
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5247
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5237
+
+<div align="center"><img src="files/post_5237_tasiyanc_5237.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیدی عددی اکانت طرف 7443787472
+</div>
+
+## tasiyanc — post 5236
+
+<div align="center"><img src="files/post_5236_tasiyanc_5236.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیدی عددی اکانت طرف
+7443787472
+</div>
+
+## tasiyanc — post 5221
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tarkibi 🔐 📱
+
+
+{
+"dns": {
+"hosts": {
+"domain:googleapis.cn": "googleapis.com"
+},
+"servers": [
+"1.1.1.1"
+]
+},
+"inbounds": [
+{
+"listen": "127.0.0.1",
+"port": 10808,
+"protocol": "socks",
+"settings": {
+"auth": "noauth",
+"udp": true,
+"userLevel": 8
+},
+"sniffing": {
+"destOverride": [
+"http",
+"tls"
+],
+"enabled": true,
+"routeOnly": false
+},
+"tag": "socks"
+},
+{
+"listen": "127.0.0.1",
+"port": 10809,
+"protocol": "http",
+"settings": {
+"auth": "noauth",
+"udp": true,
+"allowTransparent": false
+},
+"sniffing": {
+"destOverride": [
+"http",
+"tls"
+],
+"enabled": true,
+"routeOnly": false
+},
+"tag": "http"
+},
+{
+"listen": "127.0.0.1",
+"port": 1053,
+"protocol": "dokodemo-door",
+"settings": {
+"address": "1.1.1.1",
+"network": "tcp,udp",
+"port": 53
+},
+"tag": "dns-in"
+}
+],
+"outbounds": [
+{
+"tag": "proxy",
+"protocol": "vless",
+"settings": {
+"vnext": [
+{
+"address": "bab-6.site",
+"port": 443,
+"users": [
+{
+"id": "b585dc5e-55bf-4a8b-913a-27c9ccac05c3",
+"alterId": 0,
+"email": "t@t.tt",
+"security": "auto",
+"encryption": "none",
+"flow": ""
+}
+]
+}
+]
+},
+"streamSettings": {
+"network": "ws",
+"security": "tls",
+"tlsSettings": {
+"allowInsecure": false,
+"alpn": [
+"http/1.1"
+],
+"fingerprint": "chrome",
+"serverName": "bab-6.site",
+"show": false
+},
+"wsSettings": {
+"headers": {
+"Host": "bab-6.site"
+},
+"path": "/vws/"
+},
+"sockopt": {
+"tcpNoDelay": true,
+"tcpKeepAliveIdle": 60
+}
+}
+},
+{
+"tag": "fragment",
+"protocol": "freedom",
+"settings": {
+"domainStrategy": "AsIs",
+"fragment": {
+"packets": "1-3",
+"length": "8-12",
+"interval": "2-4"
+}
+},
+"streamSettings": {
+"sockopt": {
+"tcpNoDelay": true,
+"tcpKeepAliveIdle": 60
+}
+}
+},
+{
+"protocol": "freedom",
+"settings": {
+"domainStrategy": "UseIP"
+},
+"tag": "direct"
+},
+{
+"protocol": "blackhole",
+"settings": {
+"response": {
+"type": "http"
+}
+},
+"tag": "block"
+}
+],
+"policy": {
+"levels": {
+"8": {
+"connIdle": 300,
+"downlinkOnly": 1,
+"handshake": 4,
+"uplinkOnly": 1
+}
+},
+"system": {
+"statsOutboundUplink": true,
+"statsOutboundDownlink": true
+}
+},
+"remarks": "Tasiyanc tkb",
+"routing": {
+"domainStrategy": "IPIfNonMatch",
+"rules": [
+{
+"ip": [
+"1.1.1.1"
+],
+"outboundTag": "proxy",
+"port": "53",
+"type": "field"
+}
+]
+},
+"entryDomain": "bab-6.site:443"
+}
+
+تست کنین ترکیبی بهم بگید
+Join As 🩵@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5220
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5219
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇 DNSTT Tcp 🇩🇪
+
+slipnet-enc://AcNagZVmSOeXnC5m8fl/SxZp1519lU/0c05yrGx71EVPzJ5DBuJpWMc002i+Qqxocfm2IbyxubP+rzzD3d1pElmwLEyHXcZ+xb68XE/1SCQmQ61TFWv+hbfwFbVXHqvikWFjvWw+/N2ai4prlQHLlJ275QNtzDph/AFGAgudFgtB21JIn0XWhXRnFg2z8w5J0o6GDGRr1Ngus8cz+41EbYGXpk7GU4zyOJijzZjXdiWRH9Z3SHuvsS2jnOg/ObhJ+Ngapw34BqhwxME2/c+b+eewEDEh/4VD8cOmnpqWSpB8rPs+IB9MvxFN+hcTdhE3hEA55nijuARMm06Pukk2e/2Z0aQmBKa4Gl14mqosRJE8nCFVYAL6ZHQpyh7chhRol5bKm/bK6qxnL43LSur6VirpaZYo2+KmYfRJE6YnYzph664QwKC5A3IDBHHVPctQvAfcOe00b0MYb5SWklJkZMosa7+jZ/VEwfu1mI0vpQ92Am5HIm5U2bGpE+JrL9bO5plbkpeXYzTSAtrymXXkZ1e8oxW/uf7qztAYvTNkaGJDBZpxBc0rTnw0p9GhLnah+kaK7rxxZYJ0cRayDUADW0WXLb6TSJ6olvBM1rOAoy2jRuBkT0ndpsXliVCRIn7O55sR801uPxrjIMFHnYWZs/UqWaEiORxsXEuC03dt2TlUy7IBYmSyiQ0Btn5AcyM2rm+okZ5KcKrDCXkh558q+igXvtcjGFpgULI5utVhxUVTr4FUF59SlZpULBWBdONk1TSOjWDpIQu0+5KMdhfelPzaNVE=
+
+Join as @Tasiyanc 
+☑️
+</div>
 
 ## tasiyanc — post 5218
 
@@ -121,84 +365,5 @@ Join as @Tasiyanc ☑️
 slipnet-enc://Aaww8PvxLPFu0vkE/TIjc9hYWkVu7OWWdAqZv8BojMszVKFG748E1qv3vVdom8HPa589CsF2TckXpJuxMfZHtxnkJtVzlxR8FEDWSioSqQKLdnMNg8O3+PYW3IC+BjTEAC+SIkVvO7WaIKbFmyVlSkQ576KjLtvJ5sSJIVxbvJz9tWWsUwrmVozg+4O8XpdXFYw9l5iu9IzRs901XONAkpZwDUTun5PG1sXDkINFt4bcglFq7+6EywRK8PuuGftRXd44mxb2sAnk+QRzZS81jN2KS2Go7nfb7N5Ge3g4Wmj2SC9xJlqfKEbwsGVqISPxYSx5zRhRQfl/+sVQ3UytJyFHkRy2HKwuNmdQeHCx7WilpVssGk+bvkbhH3Get3gXEtfT0Z+5YRzl5dISEI3DLTMqgzhPBaWHkoQgZrQOu5NdelJLE33BmM805XTdOIPlcYA0kfpBaOL+kdnd0lG99zt5bXVcuelgmJPxkBhAXA5S8kWlDN+603DsCtwNYgto8Z+3VG2+I9suL4ICkubGf3nC1DP/q3q28/GU2088Z0IR5Zzv0SrHDMGhMezI5+oHwKbgtvRLHXL0OG5BUKD/PmJJFeUMi2lVzXuYjMhVmBkkEiuzFH3jP1erzRTMozQa3wiaPCZBlVQsBqpfo6gs/ujhJT9WPoz5HYHHjSi1qb7qdjAcP7IahMMln55ZCSJE15Yj3qeJSNmtLRZdw5cIrcO5E0UTdCn43W2+UQo6lldt6FzGDqfC4tvAtXxK4fF0ju5GfhLdxtVdIL6nErqMIzF0a8b2IctWdrz/+QuM7xmZFS4b4K9m4sffPqpzskmIa/csfWwFzOLy67uyDjFtQNXvUiZjw4K2//Tdog==
 
 Join as @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده 🛜🛜 
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید و از [ پروکسی ] کمکی استفاده کنید🚀
-
-Join as @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده 🛜🛜 
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید در صورت ناپایداری پروکسی بزنید 🚀 صبر ندارید نزنید 
-✅
-
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بسته اس اطلاع رسانی میشه اگه باز کنیم
-</div>
-
-## tasiyanc — post 5202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-javidgorz-1.0.7-universal.apk
-</div>
-
-## tasiyanc — post 5201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☄️ وی پی ان جاویدگرز نسخه 1.0.7
-
-😐 منطقه ای میگن وصله اکثر اپراتورها
-
-❗️ امنیتش تایید یا رد نمی‌شود
-
-لینک دانلود داخلی ⤵️
-https://dl.toolschi.com/view.php?f=e688f082f4a9968d.zip
-
-🔹حالت پرواز بزارید درارید وصل نشد تست کنین
-
-Join as @Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 5200
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن نمیزنین؟😭
-</div>
-
-## tasiyanc — post 5199
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Ping 56 - 68
-✅
-
-23.50.180.206
-185.88.178.196
-164.138.17.122
-185.208.174.167
-185.50.37.52
-95.101.78.25
-185.141.106.238
-5.160.13.85
-5.160.13.85
-185.208.175.228
-
-Join As ﻿@Tasiyanc 
-☑️
 </div>
 
