@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/02 22:54
+📅 آخرین بروزرسانی: 1405/03/02 23:58
 
 ---
+
+## ProxyMTProto — post 47558
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: FREE.edgeCDN-static.com
+Port: 443
+Secret: eea1b2c3d4e5f6a7b8c9d0e1f2a3b4c5d66564676563646e2d7374617469632e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47557
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 80.96.112.222
+Port: 443
+Secret: ee2e7fcf4666472ebd58e4fea75357105f7777772e79616e6465782e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47556
 
