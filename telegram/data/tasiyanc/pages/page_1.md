@@ -1,8 +1,155 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/02 17:55
+📅 آخرین بروزرسانی: 1405/03/02 19:18
 
 ---
+
+## tasiyanc — post 5373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه بوس نمی‌رسه بما
+</div>
+
+## tasiyanc — post 5372
+
+<div align="center"><a href="files/post_5372_WiFi (1).npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 WiFi (1).npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+📶
+
+برای اتصال پایدار صبور باشید 
+🚀
+
+@Tasiyanc 
+🩵
+</div>
+
+## tasiyanc — post 5371
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang 6️⃣ 185.141.106.238 185.50.37.52 185.208.174.167 5.160.13.85 37.191.95.70 164.138.17.122 5.144.129.174 37.191.95.70 185.208.174.167 5.160.13.85 5.160.13.85 185.141.106.238 185.50.37.52 185.141.106.238 185.208.174.167 164.138.17.122…
+</div>
+
+## tasiyanc — post 5370
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang 6️⃣
+
+
+185.141.106.238
+185.50.37.52
+185.208.174.167
+5.160.13.85
+37.191.95.70
+164.138.17.122
+5.144.129.174
+37.191.95.70
+185.208.174.167
+5.160.13.85
+5.160.13.85
+185.141.106.238
+185.50.37.52
+185.141.106.238
+185.208.174.167
+164.138.17.122
+78.157.41.60
+94.232.173.28
+185.255.91.60
+158.58.184.147
+80.191.243.226
+164.138.17.122
+185.88.178.196
+185.137.25.146
+185.137.25.146
+78.157.41.60
+78.157.41.60
+185.208.175.228
+80.191.243.226
+5.160.13.85
+185.141.106.238
+185.141.106.238
+185.50.37.52
+164.138.17.122
+5.160.13.85
+185.89.22.71
+185.141.106.238
+185.208.175.228
+109.72.197.1
+78.157.41.60
+185.137.25.146
+5.160.128.142
+37.191.95.70
+185.255.91.60
+193.148.67.117
+78.157.41.60
+109.72.197.1
+5.160.13.85
+185.255.91.60
+185.208.175.228
+185.208.174.167
+185.88.178.196
+5.160.128.142
+164.138.17.122
+185.50.37.52
+78.39.234.140
+185.141.106.238
+185.208.174.167
+185.208.175.228
+185.255.91.60
+5.160.13.85
+5.160.128.142
+5.160.13.85
+95.101.23.82
+65.109.34.234
+185.88.178.196
+185.50.37.52
+63.141.252.203
+37.191.95.70
+142.54.178.211
+142.54.178.211
+50.7.5.83
+37.191.95.70
+5.160.13.85
+78.157.41.60
+78.157.41.60
+185.141.106.238
+185.53.142.174
+5.160.13.85
+78.157.41.60
+37.191.95.70
+37.191.95.70
+80.191.243.226
+78.157.41.60
+185.141.106.238
+78.157.41.60
+78.157.41.60
+164.138.17.122
+5.160.13.85
+185.208.175.228
+109.72.197.1
+37.191.95.70
+78.39.234.140
+5.160.128.142
+78.39.234.140
+164.138.17.122
+2.16.53.65
+164.138.17.122
+78.39.234.140
+185.255.91.60
+5.160.13.85
+185.88.178.196
+185.141.106.238
+63.141.252.203
+
+❤️ تست شده 📶 📶
+
+اموزش اتصال 👈
+
+برنامه مورد نیاز🔑
+
+Join @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5369
 
@@ -11,8 +158,6 @@
 </div>
 
 ## tasiyanc — post 5368
-
-<div align="center"><a href="files/post_5368_🥝kivi.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🥝kivi.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان  تست شده تمام اپراتور ها📶
@@ -23,8 +168,6 @@
 </div>
 
 ## tasiyanc — post 5367
-
-<div align="center"><a href="files/post_5367_Sabr 💤.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Sabr 💤.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان  تست شده📶
@@ -180,47 +323,5 @@ Join @Tasiyanc ✅
 slipnet-enc://AWONur2OOs1Y+AArw+/8I/SDMEsRqm83KL/AHstUX3vMuAJUMGjp1SvKDYlXX6CmimobIPstlZUt8HUBKZKam/pLr/qcYKvWs/LERQ3JbVgBlqkm8fSskc7aDuUfGuDi186T0zEZSB1cY7GR+RRuN1bnw4UYqVxfXYq9kIGkJccWgUDUdZlnhcqzkHetZK1xnfYrlV/ORawfiqvMrFm02g+jz67kdz+EQEZ+DhHyovcJ0FmtctvGCTBwYLJGnpqVcnDcwnw68s8FKKXRvxv91R9ylKahjOLEdRVlJj4yalwKspLSeVQL7CLy8fGqHq/jOU/f7jgMDq2TpdluVGhk7gVnRxbH247JsCnLZJbBcXEEM5ZjR+cy1R7PiOuzbwlxzTMwUCaxV8Sno6xxFrf/9emMY205d8NOpIfk2ICZxR0oh+B63PHjhYGAZyFB9/eP9YDgdEAz0HOaUZbMZwcEAYzt5+wjJNfcCNtXeNakegutCEXnG5hd4/9p3Sk1yelP7orn/2sUXtUJ4CK+3BHAX3xFQ7GFZ2CwwP3lJY9bhQIq4QG/jD7Vv4u1xi3MKvQgJsAQEUZ+ixb+a5SIyYsTM/0bzO5q9iuTCYXCrgDvqQ0fynpJyrOQwffa34gIaFgfjFQx2xEALv/KUgd6L0PsLlNjfNiVusafK796m1nUKIoFj8UnvYbLUPHFKCyllFpTC0LqacXxXA4QrJns2tpfsDnRxjwQPaq3G5WPQ4aFnKQAYvzTFrzo+x/BBKl3fK9HJJnFL4UfDyEvl2AuuEAkBm3SwXzHId/7t3dR0w==
 
 Join as @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان  تست شده📶
-
-برای اتصال پایدار صبور باشید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5344
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان  تست شده📶
-
-برای اتصال پایدار صبور باشید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5343
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥈sv VyDns 🇩🇪
-
-
-slipnet-enc://AXaP/sbdo4rTrjN5DJ0ZACvANBE4woFO0GQMMuYCXTbHX/kR+bnmXPc9+cPZnEkmTyIVUlFh5bHQXq+uG3SusWf8zwubsE6htg4RLAbSR2QX+RqS6CS0YfVT+mrD4tSO1iI07xZEut2G/0zBuiwyJXupF23LPn3uYNOZxRbxmhF4u0EfaYydfmKa3b4sbbpcDN3xmN1/W4C2bGGuhJqFBkXHkShawx5dmpeqVmq1y0yQixSNJCiG88VQH8LmH48G9+iYhs34+u/u/Mr+bvTbR6zhEXQEb78AmUuu7Yp20t4eLfljjpmWwMWEGGQysn7to+inlYtULISM21yZdpWo+IGyAQDyd/tSO2OKgdOyUPRPwakP3LwaPBD9eRLX/cA3PLBRKIekEqPdOcS2rkyX21p+tv1BS00rmXMq6XlsAS6+5MeQTywAq8ZC8pvxhOTVYRIs/x+ATH+6qAFAnTvk5qIqlPiYTwv047iOUfLmqjddEzoB6PHAoa4cYw9o5UgDn4yVAXCM/eUnxgSsovaubyoeqzsMF9N/5/ERElpKNnTzsMiil9ywv7B6PjwbBSaD3fx8SLZjsefc0GE1L4nwv935ERbtu/niP+salhJONCasSVM+Hs+sxd7vgzZfkRJeU4aiwxWBdYp/atOaYdTgpXnB4NyyMu6FIuitAlDMprTIf7Dn1q9jQ/4Rz6YjYVnDvzVDHQZp8GyI2b7ttYZ8lG9xlBnDVlvjUZAa1ZzFRCrugm1xtN8qBD0I8NeDjvFEWBI1xE6nPstYWscd7MXDTw==
-slipnet-enc://AelGs//uJN5sSz/5M5Nx3OcqoQDTVgmexbMVPjy52+dRHN3z2Siexy5bjH0+TCa7bH7GUNVBYOcR9KlSF5Pqx8Qwcc34tD/3aHcRhTKWYQsSHmS29nctmU4ueXmQdK73g+qE3iVX7bShngG81ZuBBJFf/6DlitU3FKJbp2uE0r6bpVsMG+sRYAhdUIvbypFBVlTnTpypYWNG918P67JMScwgOjgCBft1RDMz3zV/ptmFJgQFXHU63J8wIMvk1gJlS/7YOXzwwHJ1WO3UVm38hDGk7vsl1L71yL1W7zQSejpn5fkW6abSEY4Oc9m3K0d5jBPGu2DUgYbyXx2Pn6bDb8jYhipKHJQ45ykeaSIcIAacMTFIIc5At9FFNTRdXJ1qmt5k+6t2fm4E/oKPm0f17DYhKDSYL/rJboIcx3cbuODfmTfT20SAFXIPNgEDfI6h327Hpjblf3bNWAJKWIINilKe3xt41DWiKuqbPyTCCF3hjXjBQl4tTlpN0sVpdZ3WZFlMB6iAwUzTZbT3wS2ykgCks8Bj/1lcSwk93tp6Fy4L0YQXeoHO9bOs03CCPlDFW+2AxZUinS57P3mtivyVwNBsx/jMvaVqpcARU4ohUOwsyynL1Ml612qaQe9An+xkk7949egZIs1Kr7Ntlo3YFdU9kV0Adzv52vbDj4ISz4N7MjGh2p5Cnsyvjea/+qbZqTkJBxlJM3986OouoUJ2En5QUrtLptTmIL8GaViT1axAvUPEMTnQjWfOT2t3+YT84ZC2xBw/Jzb782lTV6Ecd9ZEFaYtKWyG3YKAv+qoughZkQ==
-
-Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان  تست شده📶
-
-برای اتصال پایدار صبور باشید 🚀
-
-@Tasiyanc 🩵
 </div>
 
