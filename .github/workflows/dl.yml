@@ -1,0 +1,20 @@
+name: Clean Old Bot
+
+on:
+  workflow_dispatch:
+
+jobs:
+  clean:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+    steps:
+      - uses: actions/checkout@v4
+      - name: Remove bale-bot folder
+        run: |
+          rm -rf bale-bot
+          git config user.name "Cleaner"
+          git config user.email "clean@bot.com"
+          git add .
+          git commit -m "🗑️ حذف پوشه قدیمی bale-bot" || echo "تغییری نیست"
+          git push
