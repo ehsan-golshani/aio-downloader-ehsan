@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/02 00:23
+📅 آخرین بروزرسانی: 1405/03/02 08:56
 
 ---
+
+## ProxyMTProto — post 47561
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fastproxy.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47560
 
@@ -172,19 +181,5 @@ Server: pepel.help
 Port: 443
 Secret: eea890920f5ac6ba5834725e150d06c4aa64726976652e676f6f676c652e636f6d
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47541
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 Всё упало? Наши прокси работают ⚡
-
-🎁 Бесплатный MTProto прокси 👇
-
-🚫 Без рекламы
-⚡ Быстро и стабильно
-🛡 Без ограничений
-
-👇 Получить прокси
 </div>
 
