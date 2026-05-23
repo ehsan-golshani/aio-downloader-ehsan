@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/02 23:58
+📅 آخرین بروزرسانی: 1405/03/03 01:01
 
 ---
+
+## ProxyMTProto — post 47560
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hop.proxytg.space
+Port: 8443
+Secret: eeabb8cea3a48990152aacc55985a913116262632e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47559
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: alpinavpn.hatecens.cc
+Port: 7443
+Secret: eef8dc254a4c2af8afcab54c8a5f9bb4fb616c70696e6176706e2e6861746563656e732e6363
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47558
 

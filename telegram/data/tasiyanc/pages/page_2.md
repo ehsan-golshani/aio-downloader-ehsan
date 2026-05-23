@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/02 22:56
+📅 آخرین بروزرسانی: 1405/03/03 01:03
 
 ---
+
+## tasiyanc — post 5364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅فروش بازه
+@Startasiyan
+
+هر گیگ استارلینک مناسب ترید و کار های مهم 290
+هر گیگ معمولی سرعت خوب مناسب وب‌گردی - اینستاگرام یوتوب تلگرام 220
+جهت خرید ثبت سفارش کنین
+</div>
+
+## tasiyanc — post 5363
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛡 proxy
+
+🔘Host 188.121.112.175
+🔘Port   8080
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5361
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+100.000 هزار بار حالت پرواز بزارید
+آیپی ۲۶ بیوفته
+</div>
+
+## tasiyanc — post 5360
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ع بین ۹۲۷ آیپی این آیپی ها با نتورک اسکنر اسکن شده پینگ عالی دادن ، امیدوارم وصل بشید ❤️
+</div>
+
+## tasiyanc — post 5355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang 6️⃣ 185.141.106.238 185.208.175.228 5.160.13.85 78.157.41.60 37.191.95.70 5.160.13.85 5.160.13.85 80.191.243.226 109.72.197.1 80.191.243.226 ❤️ تست شده 🚀🛜 اموزش اتصال 👈 برنامه مورد نیاز🔑 Join @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5354
 
@@ -182,14 +223,4 @@ Nigan (1).npvt
 
 @Tasiyanc 🩵
 </div>
-
-## tasiyanc — post 5333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینستا هم باز کرد
-</div>
-
-## tasiyanc — post 5332
-
-<div align="center"><img src="files/post_5332_tasiyanc_5332.jpg" alt="Photo"></div>
 

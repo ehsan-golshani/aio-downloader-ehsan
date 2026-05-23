@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/02 22:56
+📅 آخرین بروزرسانی: 1405/03/03 01:03
 
 ---
+
+## tasiyanc — post 5390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 Config for whiteDns 3️⃣ 🟡 mode stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiMSBAVGFzaXlhbmMiLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwNS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaX…
+</div>
+
+## tasiyanc — post 5387
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️فوری ترامپ
+پیش‌نویس تفاهم‌نامه‌ای با ایران تا حد زیادی مذاکره شده، در حال نهایی شدن است و به زودی اعلام خواهد شد.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️فوری تنگه هرمز باز شد و مذاکرات هسته ای تا دوماه آینده تمدید شد .
+تایید نشده
+</div>
+
+## tasiyanc — post 5385
+
+<div align="center"><a href="files/post_5385_Resolver 839 @Tasiyanc.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Resolver 839 @Tasiyanc.txt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+839 Resolver WhiteDns 3️⃣
+
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 Config for whiteDns 3️⃣
+🟡 mode
+
+
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiMSBAVGFzaXlhbmMiLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwNS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaXJfU2VmaWQiLCJlbmNyeXB0aW9uX21ldGhvZCI6MX19fQ
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiMiBAVGFzaXlhbmMiLCJzZXJ2ZXIiOnsiZG9tYWluIjoidmlwLm1hc2lyLXNlZmlkLm15IiwiZW5jcnlwdGlvbl9rZXkiOiJUZWxlZ3JhbS1DaGFubmVsLS0tPkBNYXNpcl9TZWZpZCIsImVuY3J5cHRpb25fbWV0aG9kIjoxfX19
+
+🎚 آموزش اتصال 🎚
+
+برنامه مورد نیاز 👈
+Join As @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5383
 
@@ -528,46 +575,5 @@ Join @Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✅فروش بازه @Startasiyan هر گیگ استارلینک مناسب ترید و کار های مهم 290 هر گیگ معمولی سرعت خوب مناسب وب‌گردی - اینستاگرام یوتوب تلگرام 220 جهت خرید ثبت سفارش کنین
-</div>
-
-## tasiyanc — post 5364
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅فروش بازه
-@Startasiyan
-
-هر گیگ استارلینک مناسب ترید و کار های مهم 290
-هر گیگ معمولی سرعت خوب مناسب وب‌گردی - اینستاگرام یوتوب تلگرام 220
-جهت خرید ثبت سفارش کنین
-</div>
-
-## tasiyanc — post 5363
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛡 proxy
-
-🔘Host 188.121.112.175
-🔘Port   8080
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5361
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-100.000 هزار بار حالت پرواز بزارید
-آیپی ۲۶ بیوفته
-</div>
-
-## tasiyanc — post 5360
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ع بین ۹۲۷ آیپی این آیپی ها با نتورک اسکنر اسکن شده پینگ عالی دادن ، امیدوارم وصل بشید ❤️
-</div>
-
-## tasiyanc — post 5355
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid 🟢 & mahsang 6️⃣ 185.141.106.238 185.208.175.228 5.160.13.85 78.157.41.60 37.191.95.70 5.160.13.85 5.160.13.85 80.191.243.226 109.72.197.1 80.191.243.226 ❤️ تست شده 🚀🛜 اموزش اتصال 👈 برنامه مورد نیاز🔑 Join @Tasiyanc ✅
 </div>
 
