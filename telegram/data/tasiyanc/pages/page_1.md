@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/02 13:02
+📅 آخرین بروزرسانی: 1405/03/02 13:35
 
 ---
+
+## tasiyanc — post 5365
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅فروش بازه @Startasiyan هر گیگ استارلینک مناسب ترید و کار های مهم 290 هر گیگ معمولی سرعت خوب مناسب وب‌گردی - اینستاگرام یوتوب تلگرام 220 جهت خرید ثبت سفارش کنین
+</div>
+
+## tasiyanc — post 5364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅فروش بازه
+@Startasiyan
+
+هر گیگ استارلینک مناسب ترید و کار های مهم 290
+هر گیگ معمولی سرعت خوب مناسب وب‌گردی - اینستاگرام یوتوب تلگرام 220
+جهت خرید ثبت سفارش کنین
+</div>
+
+## tasiyanc — post 5363
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛡 proxy
+
+🔘Host 188.121.112.175
+🔘Port   8080
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5361
 
@@ -120,8 +148,6 @@ Join as @Tasiyanc ✅
 
 ## tasiyanc — post 5345
 
-<div align="center"><a href="files/post_5345_GM🌤️🌱.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 GM🌤️🌱.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان  تست شده📶
 
@@ -131,8 +157,6 @@ Join as @Tasiyanc ✅
 </div>
 
 ## tasiyanc — post 5344
-
-<div align="center"><a href="files/post_5344_LUKA.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 LUKA.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان  تست شده📶
@@ -156,8 +180,6 @@ Join @Tasiyanc ✅
 
 ## tasiyanc — post 5342
 
-<div align="center"><a href="files/post_5342_CR7.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 CR7.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان  تست شده📶
 
@@ -180,8 +202,6 @@ Nigan (1).npvt
 
 ## tasiyanc — post 5338
 
-<div align="center"><a href="files/post_5338_Nigan (1).npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Nigan (1).npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان  تست شده📶
 
@@ -197,28 +217,4 @@ Nigan (1).npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💘 @Tasiyanc.npvt
 </div>
-
-## tasiyanc — post 5334
-
-<div align="center"><a href="files/post_5334_💘 @Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 💘 @Tasiyanc.npvt</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔒Password: @Tasiyanc
-
-📶 اختصاصی تاسیان 2 سرور فعال تست شده📶
-
-برای اتصال پایدار صبور باشید 😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینستا هم باز کرد
-</div>
-
-## tasiyanc — post 5332
-
-<div align="center"><img src="files/post_5332_tasiyanc_5332.jpg" alt="Photo"></div>
 
