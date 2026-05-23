@@ -1,4 +1,4 @@
-name: Delete Specific Folder
+name: Delete Custom Folder
 
 on:
   workflow_dispatch:
@@ -6,39 +6,26 @@ on:
       folder_name:
         description: 'نام پوشه برای حذف'
         required: true
-        type: choice
-        options:
-          - 'node_modules'
-          - 'dist'
-          - 'build'
-          - 'temp'
-          - 'old-assets'
-          - 'cache'
-          - 'logs'
-        default: 'node_modules'
+        type: string
+        default: 'temp'
 
 jobs:
   delete-folder:
     runs-on: ubuntu-latest
+    
     steps:
-      - name: Checkout repository
-        uses: actions/checkout@v4
-
-      - name: Delete folder from root
-        run: |
-          FOLDER_NAME="${{ github.event.inputs.folder_name }}"
-          if [ -d "$FOLDER_NAME" ]; then
-            echo "🗑️ Removing ./$FOLDER_NAME ..."
-            rm -rf "./$FOLDER_NAME"
-            echo "✅ Deleted successfully."
-          else
-            echo "⚠️ Folder './$FOLDER_NAME' does not exist."
-          fi
-
-      - name: Commit and push changes
-        run: |
-          git config user.name "github-actions[bot]"
-          git config user.email "github-actions[bot]@users.noreply.github.com"
-          git add .
-          git diff --staged --quiet || git commit -m "chore: delete folder ${{ github.event.inputs.folder_name }}"
-          git push
+    - name: Checkout
+      uses: actions/checkout@v4
+    
+    - name: Remove folder
+      run: |
+        rm -rf "${{ github.event.inputs.folder_name }}"
+        echo "پوشه ${{ github.event.inputs.folder_name }} حذف شد"
+    
+    - name: Push changes
+      run: |
+        git config user.name "GitHub Actions"
+        git config user.email "actions@github.com"
+        git add -A
+        git commit -m "Remove ${{ github.event.inputs.folder_name }}" || echo "تغییری وجود ندارد"
+        git push
