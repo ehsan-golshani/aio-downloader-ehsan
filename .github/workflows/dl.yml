@@ -1,26 +1,25 @@
-name: Delete Folder
+name: Delete Folder from Repo
 
 on:
   workflow_dispatch:
     inputs:
       folder_name:
-        description: 'پوشه مورد نظر'
+        description: 'نام پوشه'
         required: true
-        type: choice
-        options:
-          - 'temp'
-          - 'cache'
-          - 'logs'
-          - 'node_modules'
-          - 'dist'
 
 jobs:
   delete:
     runs-on: ubuntu-latest
+    permissions:
+      contents: write
     
     steps:
-    - name: Checkout
-      uses: actions/checkout@v4
+    - uses: actions/checkout@v4
     
-    - name: Delete folder
-      run: rm -rf ${{ github.event.inputs.folder_name }}
+    - run: |
+        rm -rf "${{ github.inputs.folder_name }}"
+        git config user.name "bot"
+        git config user.email "bot@users.noreply.github.com"
+        git add -A
+        git commit -m "delete folder" || echo "no changes"
+        git push
