@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/02 13:35
+📅 آخرین بروزرسانی: 1405/03/02 15:10
 
 ---
+
+## tasiyanc — post 5366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بسته شد اتمام حجم
+</div>
 
 ## tasiyanc — post 5365
 
@@ -208,13 +214,5 @@ Nigan (1).npvt
 برای اتصال پایدار صبور باشید 😐
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5336
-
-<div align="center"><img src="files/post_5336_tasiyanc_5336.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💘 @Tasiyanc.npvt
 </div>
 

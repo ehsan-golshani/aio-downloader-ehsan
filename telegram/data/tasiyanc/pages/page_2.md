@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/02 13:35
+📅 آخرین بروزرسانی: 1405/03/02 15:10
 
 ---
+
+## tasiyanc — post 5336
+
+<div align="center"><img src="files/post_5336_tasiyanc_5336.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💘 @Tasiyanc.npvt
+</div>
 
 ## tasiyanc — post 5334
 
