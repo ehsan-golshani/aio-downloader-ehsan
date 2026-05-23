@@ -1,38 +1,26 @@
-name: Delete Custom Folder
+name: Delete Folder
 
 on:
   workflow_dispatch:
     inputs:
       folder_name:
-        description: 'نام پوشه برای حذف'
+        description: 'پوشه مورد نظر'
         required: true
-        type: string
-        default: 'temp'
+        type: choice
+        options:
+          - 'temp'
+          - 'cache'
+          - 'logs'
+          - 'node_modules'
+          - 'dist'
 
 jobs:
-  delete-folder:
+  delete:
     runs-on: ubuntu-latest
     
     steps:
     - name: Checkout
       uses: actions/checkout@v4
-      with:
-        token: ${{ secrets.GITHUB_TOKEN }}  # استفاده از توکن پیش‌فرض
     
-    - name: Remove folder
-      run: |
-        if [ -d "${{ github.event.inputs.folder_name }}" ]; then
-          rm -rf "${{ github.event.inputs.folder_name }}"
-          echo "✅ پوشه حذف شد"
-        else
-          echo "⚠️ پوشه وجود ندارد"
-          exit 0
-        fi
-    
-    - name: Commit and push changes
-      run: |
-        git config --global user.name "github-actions[bot]"
-        git config --global user.email "github-actions[bot]@users.noreply.github.com"
-        git add -A
-        git diff --quiet && git diff --staged --quiet || git commit -m "Remove ${{ github.event.inputs.folder_name }}"
-        git push
+    - name: Delete folder
+      run: rm -rf ${{ github.event.inputs.folder_name }}
