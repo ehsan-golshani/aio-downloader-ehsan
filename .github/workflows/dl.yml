@@ -1,20 +1,44 @@
-name: Clean Old Bot
+name: Delete Specific Folder
 
 on:
   workflow_dispatch:
+    inputs:
+      folder_name:
+        description: 'نام پوشه برای حذف'
+        required: true
+        type: choice
+        options:
+          - 'node_modules'
+          - 'dist'
+          - 'build'
+          - 'temp'
+          - 'old-assets'
+          - 'cache'
+          - 'logs'
+        default: 'node_modules'
 
 jobs:
-  clean:
+  delete-folder:
     runs-on: ubuntu-latest
-    permissions:
-      contents: write
     steps:
-      - uses: actions/checkout@v4
-      - name: Remove bale-bot folder
+      - name: Checkout repository
+        uses: actions/checkout@v4
+
+      - name: Delete folder from root
         run: |
-          rm -rf bale-bot
-          git config user.name "Cleaner"
-          git config user.email "clean@bot.com"
+          FOLDER_NAME="${{ github.event.inputs.folder_name }}"
+          if [ -d "$FOLDER_NAME" ]; then
+            echo "🗑️ Removing ./$FOLDER_NAME ..."
+            rm -rf "./$FOLDER_NAME"
+            echo "✅ Deleted successfully."
+          else
+            echo "⚠️ Folder './$FOLDER_NAME' does not exist."
+          fi
+
+      - name: Commit and push changes
+        run: |
+          git config user.name "github-actions[bot]"
+          git config user.email "github-actions[bot]@users.noreply.github.com"
           git add .
-          git commit -m "🗑️ حذف پوشه قدیمی bale-bot" || echo "تغییری نیست"
+          git diff --staged --quiet || git commit -m "chore: delete folder ${{ github.event.inputs.folder_name }}"
           git push
