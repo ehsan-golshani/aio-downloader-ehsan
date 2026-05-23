@@ -1,8 +1,135 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/03 02:05
+📅 آخرین بروزرسانی: 1405/03/03 03:16
 
 ---
+
+## tasiyanc — post 5360
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ع بین ۹۲۷ آیپی این آیپی ها با نتورک اسکنر اسکن شده پینگ عالی دادن ، امیدوارم وصل بشید ❤️
+</div>
+
+## tasiyanc — post 5355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang 6️⃣ 185.141.106.238 185.208.175.228 5.160.13.85 78.157.41.60 37.191.95.70 5.160.13.85 5.160.13.85 80.191.243.226 109.72.197.1 80.191.243.226 ❤️ تست شده 🚀🛜 اموزش اتصال 👈 برنامه مورد نیاز🔑 Join @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5354
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang 6️⃣
+
+
+185.141.106.238
+185.208.175.228
+5.160.13.85
+78.157.41.60
+37.191.95.70
+5.160.13.85
+5.160.13.85
+80.191.243.226
+109.72.197.1
+80.191.243.226
+
+❤️ تست شده 🚀🛜
+
+اموزش اتصال 👈
+
+برنامه مورد نیاز🔑
+
+Join @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5353
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang 6️⃣ 2.17.35.217 2.17.35.40 2.17.35.24 2.17.100.234 2.17.97.137 2.17.106.118 2.17.35.163 2.17.106.137 5.160.13.85 185.208.175.228 78.157.41.60 5.160.13.85 185.141.106.238 5.160.13.85 37.191.95.70 185.255.91.60 109.72.197.1 80.191.243.226…
+</div>
+
+## tasiyanc — post 5352
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang 6️⃣
+
+
+2.17.35.217
+2.17.35.40
+2.17.35.24
+2.17.100.234
+2.17.97.137
+2.17.106.118
+2.17.35.163
+2.17.106.137
+5.160.13.85
+185.208.175.228
+78.157.41.60
+5.160.13.85
+185.141.106.238
+5.160.13.85
+37.191.95.70
+185.255.91.60
+109.72.197.1
+80.191.243.226
+80.191.243.226
+2.16.53.57
+2.16.53.65
+78.39.234.140
+5.160.128.142
+
+❤️ تست شده 📶 📶
+
+اموزش اتصال 👈
+
+برنامه مورد نیاز🔑
+
+Join @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وصل شدین با این روش فوق ت*ماتیک؟ کامنتا بگید
+</div>
+
+## tasiyanc — post 5347
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جدیدا یه روش سسشر برا 👑 بولد شده 😂
+میگن باید 100 بار حالت پرواز بزاری آیپی ۲۶ برا ایرانسل ، آیپی همراه ۲۹ تغییر کنه وصل میشه
+شخصا تست کردم یه 🍌 ورداشتم
+</div>
+
+## tasiyanc — post 5346
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟 DNSTT
+
+slipnet-enc://AWONur2OOs1Y+AArw+/8I/SDMEsRqm83KL/AHstUX3vMuAJUMGjp1SvKDYlXX6CmimobIPstlZUt8HUBKZKam/pLr/qcYKvWs/LERQ3JbVgBlqkm8fSskc7aDuUfGuDi186T0zEZSB1cY7GR+RRuN1bnw4UYqVxfXYq9kIGkJccWgUDUdZlnhcqzkHetZK1xnfYrlV/ORawfiqvMrFm02g+jz67kdz+EQEZ+DhHyovcJ0FmtctvGCTBwYLJGnpqVcnDcwnw68s8FKKXRvxv91R9ylKahjOLEdRVlJj4yalwKspLSeVQL7CLy8fGqHq/jOU/f7jgMDq2TpdluVGhk7gVnRxbH247JsCnLZJbBcXEEM5ZjR+cy1R7PiOuzbwlxzTMwUCaxV8Sno6xxFrf/9emMY205d8NOpIfk2ICZxR0oh+B63PHjhYGAZyFB9/eP9YDgdEAz0HOaUZbMZwcEAYzt5+wjJNfcCNtXeNakegutCEXnG5hd4/9p3Sk1yelP7orn/2sUXtUJ4CK+3BHAX3xFQ7GFZ2CwwP3lJY9bhQIq4QG/jD7Vv4u1xi3MKvQgJsAQEUZ+ixb+a5SIyYsTM/0bzO5q9iuTCYXCrgDvqQ0fynpJyrOQwffa34gIaFgfjFQx2xEALv/KUgd6L0PsLlNjfNiVusafK796m1nUKIoFj8UnvYbLUPHFKCyllFpTC0LqacXxXA4QrJns2tpfsDnRxjwQPaq3G5WPQ4aFnKQAYvzTFrzo+x/BBKl3fK9HJJnFL4UfDyEvl2AuuEAkBm3SwXzHId/7t3dR0w==
+
+Join as @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5345
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5343
 
