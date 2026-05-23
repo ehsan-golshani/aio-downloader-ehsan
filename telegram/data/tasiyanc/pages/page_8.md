@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/03/02 11:29
+📅 آخرین بروزرسانی: 1405/03/02 12:46
 
 ---
+
+## tasiyanc — post 5161
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5160
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥HOTVPN فایل سالم
+
+بعضی سرورهاش وصله
+البته بنظر من واسه همه اوکی نیست و منطقه ایه خودم تست کردم نتیجه نداد 😂
+
+دانلود با لینک داخلی ⬇️
+
+دانلود از گوگل پلی 🕹
+
+دانلود از اپ استور🍏
+
+راجب امنیتش اطلاعی نداریم 😍
+
+Join As @Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5159
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روح بانو الهه در آرامش 🖤
+روحش شاد و یادش جاوید در دل ایرانِ تاسیان 🏴😭
+</div>
+
+## tasiyanc — post 5158
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 قاتل الهه حسین نژاد امروز صبـح اعدام شد
+@Tasiyanc
+</div>
+
+## tasiyanc — post 5157
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما اندازه اینا تو چنلمون کس بگیم همه لف میدن
+</div>
+
+## tasiyanc — post 5156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان 5مین بدید😐
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5153
 
@@ -96,56 +165,5 @@ slipnet-enc://AZWHehUAJK6RDRWDnjlb0p2ilOu+IqhbAdw5RU8uHplJBhPjCSm5mRFdeWXP4bVB7V
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تمام سروراش پینگ‌ میده اما اصلا چیزی بالا نمیاد
-</div>
-
-## tasiyanc — post 5140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نه رفتم با همراه و ایرانسل تست کردم وصل نشد به هیچ عنوان
-</div>
-
-## tasiyanc — post 5139
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وصله با ایرانسل
-</div>
-
-## tasiyanc — post 5138
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥Hot vpn 🔹برای یه سری میگن وصله - ولی خودم تست کردم کانکت شد بالا نیورد تلگرامو دوس داشتید تست کنین https://play.google.com/store/apps/details?id=com.hotcodes.hotvpn @Tasiyanc ❤️
-</div>
-
-## tasiyanc — post 5137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Hot Vpn APK 🥺
-
-لینک داخلی
-@Tasiyanc 🤩
-</div>
-
-## tasiyanc — post 5136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥Hot vpn
-
-🔹برای یه سری میگن وصله - ولی خودم تست کردم کانکت شد بالا نیورد تلگرامو
-دوس داشتید تست کنین
-https://play.google.com/store/apps/details?id=com.hotcodes.hotvpn
-
-@Tasiyanc ❤️
-</div>
-
-## tasiyanc — post 5135
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودم وصلم الان
-</div>
-
-## tasiyanc — post 5134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با این پینگها وصل نشه ۱۰۰٪ منطقه ایه
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/02 11:28
+📅 آخرین بروزرسانی: 1405/03/02 12:44
 
 ---
+
+## ProxyMTProto — post 47565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: in.mythical.house
+Port: 443
+Secret: eeecc03a8eabe3443a254a09bcd5681d75696e2e6d7974686963616c2e686f757365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47564
 
@@ -171,15 +180,6 @@ Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e63
 Server: win.sosproxy.space
 Port: 443
 Secret: ee477ccce74a28c13a2ef6ec9e01510c3164726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47545
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: artt.proxytg.space
-Port: 443
-Secret: ee859265446d8bb72e53291612281d57e26d61782e7275
 @ProxyMTProto
 </div>
 

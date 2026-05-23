@@ -1,8 +1,22 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/02 11:28
+📅 آخرین بروزرسانی: 1405/03/02 12:44
 
 ---
+
+## ProxyMTProto — post 47485
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Когда у всех «Connecting...»
+BLYATNET уже работает ⚡
+
+🛡 Выделенные MTProxy и VPN
+🚀 Высокая скорость без рекламы
+🌍 Серверы по всему миру
+💀 Без танцев с настройками
+
+💫 От 15 ⭐ — подключился и забыл 👇
+</div>
 
 ## ProxyMTProto — post 47484
 
@@ -176,15 +190,6 @@ Secret: 1d704dc7fbf37924bc72f016a8f91b0d
 Server: rkn.proxytg.space
 Port: 443
 Secret: eedab8c006cdc477f71b1825b3082b1017726b6e2e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47465
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: night.nolags.pw
-Port: 443
-Secret: dddb42e911bcebf275392e32feebef9459
 @ProxyMTProto
 </div>
 

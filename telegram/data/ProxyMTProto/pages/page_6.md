@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/03/02 11:28
+📅 آخرین بروزرسانی: 1405/03/02 12:44
 
 ---
+
+## ProxyMTProto — post 47465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: night.nolags.pw
+Port: 443
+Secret: dddb42e911bcebf275392e32feebef9459
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47464
 
@@ -167,15 +176,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 </div>
 
 ## ProxyMTProto — post 47446
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: pika.proxytg.space
-Port: 443
-Secret: ee09ca9424322894efa56ebc7e6c88f87b70696b612e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47445
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: pika.proxytg.space

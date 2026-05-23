@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/02 11:28
+📅 آخرین بروزرسانی: 1405/03/02 12:44
 
 ---
+
+## ProxyMTProto — post 47505
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fastproxy.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47504
 
@@ -183,19 +192,5 @@ Server: rn.quantadc.online
 Port: 443
 Secret: ee526f153573c253113db8d64dfd69baf0726e2e7175616e746164632e6f6e6c696e65
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47485
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Когда у всех «Connecting...»
-BLYATNET уже работает ⚡
-
-🛡 Выделенные MTProxy и VPN
-🚀 Высокая скорость без рекламы
-🌍 Серверы по всему миру
-💀 Без танцев с настройками
-
-💫 От 15 ⭐ — подключился и забыл 👇
 </div>
 

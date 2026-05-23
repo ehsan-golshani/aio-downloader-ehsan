@@ -1,8 +1,94 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/02 11:29
+📅 آخرین بروزرسانی: 1405/03/02 12:46
 
 ---
+
+## tasiyanc — post 5255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+IPs - ping 67+
+
+93.118.137.14
+80.210.57.117
+185.55.224.103
+185.192.113.108
+185.120.221.84
+178.22.122.102
+87.236.211.119
+185.140.4.66
+81.16.121.124
+5.160.211.218
+
+اسکن ۳۰۰۰ هزار آیپی و بهتریناش خدمت شما
+Join As @Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5254
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+MCI IPs Ping +80 🦦 92.123.106.90 92.123.106.43 92.123.106.11 92.123.106.42 5.160.13.85 78.157.41.60 37.191.95.70 37.191.76.110 80.191.243.226 5.160.128.142 ✅Proxy setting Hostname: 217.219.133.161 Port: 8080 Join as @Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5253
+
+<div align="center"><img src="files/post_5253_tasiyanc_5253.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+MCI IPs Ping +80 🦦 92.123.106.90 92.123.106.43 92.123.106.11 92.123.106.42 5.160.13.85 78.157.41.60 37.191.95.70 37.191.76.110 80.191.243.226 5.160.128.142 ✅Proxy setting Hostname: 217.219.133.161 Port: 8080 Join as @Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5252
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+MCI IPs Ping +80 🦦
+
+92.123.106.90
+92.123.106.43
+92.123.106.11
+92.123.106.42
+5.160.13.85
+78.157.41.60
+37.191.95.70
+37.191.76.110
+80.191.243.226
+5.160.128.142
+
+✅Proxy setting
+Hostname: 217.219.133.161
+Port: 8080
+
+Join as @Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 5251
+
+<div align="center"><img src="files/post_5251_tasiyanc_5251.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این تبلیغات ها متعلق به ما نیست و کلاهبرداریه مراقب باشین
+</div>
+
+## tasiyanc — post 5250
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انگشتتون درد گرفته ری اکشن نزدید؟😭😭
+</div>
+
+## tasiyanc — post 5249
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟NoizDNS SSH 🇫🇮
+
+slipnet-enc://AYcaIB7M6K/mAL8Mo6QDpqmedT7BQfYrpw+uhJVqabq3A7FcytIeFaeNj8+hp9ZyQhTwCkqOM/SwrnkHkylBLWwboJHoenYDKsDE8lIhs7sYWxepqNK4FL+t1DsxNzfHNW8EZ1K87dqoJWD8w2JfYTnkUSl9Ts9IwCjLwRs0BiqWS/P6ElEeG8mvLKWLjk0fwX4hVCTf35x/gha4XhKJthqmVL2VrlNDBZNlE1POt4UTMHFsoyRMq0AazFREVRAy9+07ddMVJedjhRPsxXd1N3n/+1vutykMIseuBdTOBaxSncuswk0PhLL6VZyaasIs4rEHj4nt+oumDvG4KyFzKMkbT9gho4CLmX3rTYecE6+iJsPxKx004fqR0qEhc/Fa8nJzGYcxKEszt6Iic20Z8lIky3tjOKptd0oAXB2bb3aWgk3IwmSLTw65jPakKwkp0A33x5Cw11zbkysG5I/nl5xBdhpRCKkRLgboG+CJIAbxXmCIFqbVoxkntMy9305RQcgkvldxIbRDSQA6f56pWyGjmrMyUFNuek64fuSTOzEgipe8sDTCBrq7co4xRcZKcoxqQEx0jrfgYcBdSh1zjrTpzv/GrvDg9kfs9hF+/2cKiTLDf5Zvavh6+5l+yuwujREfSV7IR9nzo5fXXhexinbMeirW8aDYm0OfqHL0jQfJUHBzx6cMzROauzM4+O1RZZ5DdM1b6vX+giWgoWoufl/z94bmoclrrCNhEI8wBLyKjnyfz5hBPziTfhDAnGocpG2KXCouG4cQR4hOrkGvC3+lwLUsQHie+WZABdeDyvI4uPkgmz8=
+
+Join as ❤️ @Tasiyanc 
+☑️
+</div>
 
 ## tasiyanc — post 5248
 
@@ -309,61 +395,5 @@ slipnet-enc://Ae1bdKnKMaAVkhaVFC0tbxojRNyFsnzAJMmpy2J6CMVK9pr2XDYzhVKFtggjvaqZpt
 🤩ترکیبی بزنید با سایفون اگه وصل نشد مود پراکسی یا vpn تست کنین
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 5212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان وای‌فای 📶
-
-برای اتصال پایدار زمان مناسب بدید😐
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5211
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DNSTT 🇧🇪
-
-slipnet-enc://AeMf7mMr1HJGkag2PSChX/pjKeXDxb16uNfYxvob0gHrIthcqDq9Q+KhESEAmFqoBA7oIn2W/MOscZFxmb5GSwSs80G2A7hZRrIrlrHdrO0BRu7OnWvmtCUZ8BEYvjJoWab+ZllFgbkWKyE12qHq5fIzbnoXSCAtYAenTPV1DRjMvDFjJOdZ1Vi6VU67aLU65WVaCLXnoEKhMVNJC7tqfxZrReH68dj+G8yFLG0dV6HWxneSULjH/cWbpX22y5RzIPqEFa6XI16rADLLqYerGUJt+Rv6LHhq+sJf3LSwwvjaIcfy/9Us+kUp3QaY/4pGdeDZto6HxUt6eXR/AqE1Q/IkaMEkyeVP+fv6BLXcEGB11XGmWtZsHtxMv5llboIkwqAsgBgV83tVTCjJ5AbVUAVWG0IkTC5CZGljA47gJpW021A0pJ53sLAed34EJPdf3Oxuq2+OHfubOdkD4sho/lDOzJKnDKf7jPW1dSVdb/9IjlIdpdZR97KE1YZuNZ9NyiX8NfZybSKy55D1Tc5T56FkaHamqK+gZlCyduL9UrBsQv3NLlnzLx8j2e4hWSx0p8vlMxwuwTOuBneVSsGs7dsuxUixJyvzWFuMRSVh8rL59Vw9wT/qURSKbAka/7TyTayQ3B8RVbuzKBfQVD7UR5fQ7LiAbwq8SR7PaErA1PRdtS0CXfrn7Kee/C6UP9UClTyBU4Iy+LNRHDOpbLqBRhpbsfmXEp0iqJV2Ta37d8oEnYqnCYYA2olsaNr2ht+ly2PvPa50fZhwP9X5rEGunaoL
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5210
-
-## tasiyanc — post 5209
-
-<div align="center"><img src="files/post_5209_tasiyanc_5209.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ✍🏻.npvt
-</div>
-
-## tasiyanc — post 5208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با وجود اختلالات شدید همچنان در تلاشیم وصل نگه داریم عزیزانو ، کانفیگ ها تست شده ان چون اختلال زیاده کمی زمان بره بیاد بالا پروکسی گذاشتم براش ، امیدوارم وصل بمونید ❤️
-</div>
-
-## tasiyanc — post 5207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 اختصاصی تاسیان تست شده 🔐
-
-حتما برای اتصال پایدار دو الی پنج دقیقه زمان  بدید و از [ پروکسی ]   کمکی استفاده کنید🚀
-
-Join as @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 VyDns SSH 🇷🇺
-
-slipnet-enc://Aaww8PvxLPFu0vkE/TIjc9hYWkVu7OWWdAqZv8BojMszVKFG748E1qv3vVdom8HPa589CsF2TckXpJuxMfZHtxnkJtVzlxR8FEDWSioSqQKLdnMNg8O3+PYW3IC+BjTEAC+SIkVvO7WaIKbFmyVlSkQ576KjLtvJ5sSJIVxbvJz9tWWsUwrmVozg+4O8XpdXFYw9l5iu9IzRs901XONAkpZwDUTun5PG1sXDkINFt4bcglFq7+6EywRK8PuuGftRXd44mxb2sAnk+QRzZS81jN2KS2Go7nfb7N5Ge3g4Wmj2SC9xJlqfKEbwsGVqISPxYSx5zRhRQfl/+sVQ3UytJyFHkRy2HKwuNmdQeHCx7WilpVssGk+bvkbhH3Get3gXEtfT0Z+5YRzl5dISEI3DLTMqgzhPBaWHkoQgZrQOu5NdelJLE33BmM805XTdOIPlcYA0kfpBaOL+kdnd0lG99zt5bXVcuelgmJPxkBhAXA5S8kWlDN+603DsCtwNYgto8Z+3VG2+I9suL4ICkubGf3nC1DP/q3q28/GU2088Z0IR5Zzv0SrHDMGhMezI5+oHwKbgtvRLHXL0OG5BUKD/PmJJFeUMi2lVzXuYjMhVmBkkEiuzFH3jP1erzRTMozQa3wiaPCZBlVQsBqpfo6gs/ujhJT9WPoz5HYHHjSi1qb7qdjAcP7IahMMln55ZCSJE15Yj3qeJSNmtLRZdw5cIrcO5E0UTdCn43W2+UQo6lldt6FzGDqfC4tvAtXxK4fF0ju5GfhLdxtVdIL6nErqMIzF0a8b2IctWdrz/+QuM7xmZFS4b4K9m4sffPqpzskmIa/csfWwFzOLy67uyDjFtQNXvUiZjw4K2//Tdog==
-
-Join as @Tasiyanc ☑️
 </div>
 

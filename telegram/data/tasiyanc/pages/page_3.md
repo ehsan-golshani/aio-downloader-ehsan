@@ -1,8 +1,131 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/02 11:29
+📅 آخرین بروزرسانی: 1405/03/02 12:46
 
 ---
+
+## tasiyanc — post 5310
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Pass Tasiyan
+📶 اختصاصی تاسیان دو سرور فعال 📶
+
+برای اتصال پایدار زمان مناسب بدید 🚀
+
+Join As 🩵@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5308
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang
+
+
+23.210.73.133
+23.44.201.136
+23.205.46.167
+37.191.76.110
+5.160.13.85
+92.123.106.42
+92.123.106.90
+92.123.106.43
+80.191.243.226
+5.160.128.142
+78.157.41.60
+37.191.95.70
+184.28.165.4
+23.46.230.133
+88.221.168.204
+104.96.158.174
+184.51.252.4
+172.234.199.15
+104.85.26.14
+172.237.145.27
+92.123.103.24
+172.234.159.58
+184.86.103.210
+96.16.248.183
+92.122.16.5
+96.16.249.60
+96.16.249.9
+184.26.57.149
+2.17.211.216
+2.19.205.66
+2.20.135.163
+2.21.176.57
+2.21.239.16
+2.21.240.15
+2.23.169.12
+2.23.97.122
+23.12.147.134
+23.193.117.5
+184.30.150.142
+23.220.161.217
+
+
+❤️ تست شده 📶📶
+
+اموزش اتصال 👈
+
+برنامه مورد نیاز🔑
+
+@Tasiyanc 😡
+</div>
+
+## tasiyanc — post 5307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang 37.191.76.110 78.157.41.60 37.191.95.70 5.160.13.85 92.123.106.42 92.123.106.90 92.123.106.43 80.191.243.226 5.160.128.142 ❤️ Connected 📶📶 @Tasiyanc 😡
+</div>
+
+## tasiyanc — post 5306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang
+
+
+37.191.76.110
+78.157.41.60
+37.191.95.70
+5.160.13.85
+92.123.106.42
+92.123.106.90
+92.123.106.43
+80.191.243.226
+5.160.128.142
+
+
+❤️ Connected 📶📶
+
+
+@Tasiyanc 😡
+</div>
+
+## tasiyanc — post 5305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5304
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنازم چقد ری اکشن😍
+</div>
+
+## tasiyanc — post 5303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان   📶
+
+برای اتصال پایدار زمان مناسب بدید😐
+
+Join As 🩵@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 5302
 
@@ -116,60 +239,5 @@ Join As 🩵@Tasiyanc ☑️
 @zyyro
 
 هر ری اکشن یه چیز تو مادرش
-</div>
-
-## tasiyanc — post 5278
-
-<div align="center"><img src="files/post_5278_tasiyanc_5278.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SSH - 🍋.npvt
-</div>
-
-## tasiyanc — post 5277
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وصل شدید؟
-</div>
-
-## tasiyanc — post 5276
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SSH - 🍋.npvt
-</div>
-
-## tasiyanc — post 5275
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان تست شده 📶
-
-بعد اتصال سریع بیاید تلگرام و منتظر پینگ نباشید🚀
-
-Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5273
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💩WhatsApp proxy
-
-https://wa.me/proxy?host=127.0.0.1&chatPort=10880&mediaPort=10880&chatTLS=true
-بعد اینکه به اسلیپ ما وصل شدید ( واتس اپ حتما تانل باشه) میتونید برید استفاده کنین
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5272
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-21 k ❤️‍🔥
-</div>
-
-## tasiyanc — post 5271
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش باز شد بصورت محدود 😐
-@StarTasiyan
-هر گیگ 250.000
-با ساب بدون قطعی و بدون محدودیت
 </div>
 
