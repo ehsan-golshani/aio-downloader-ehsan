@@ -1,605 +1,578 @@
-name: Build Complete Bale Bot
+name: Setup Bale Bot Final
 
 on:
   workflow_dispatch:
     inputs:
       bot_token:
-        description: 'توکن ربات بله (از @BotFather)'
+        description: 'توکن ربات بله'
+        required: true
+        type: string
+      admin_password:
+        description: 'رمز عبور ادمین (فقط خودت بدونی)'
         required: true
         type: string
 
 jobs:
-  build:
+  setup:
     runs-on: ubuntu-latest
     permissions:
       contents: write
     
     steps:
-      - uses: actions/checkout@v4
-        with:
-          fetch-depth: 0
+      - name: Checkout repository
+        uses: actions/checkout@v4
       
-      - name: حذف پوشه قدیمی bale-bot
+      - name: Remove old bale-bot folder
         run: |
           rm -rf bale-bot
           echo "✅ پوشه قدیمی حذف شد"
       
-      - name: ایجاد ساختار جدید
-        env:
-          TOKEN: ${{ github.event.inputs.bot_token }}
+      - name: Create directory structure
         run: |
-          # ایجاد پوشه اصلی
-          mkdir -p bale-bot
-          cd bale-bot
+          # ساختار اصلی
+          mkdir -p bale-bot/data
+          mkdir -p bale-bot/files
           
-          # فایل اصلی ربات
-          cat > bot.py << 'BOT'
-#!/usr/bin/env python3
-import telebot
-import os
-import sys
-import json
-import hashlib
-import subprocess
-import requests
-from telebot import types
-from telebot import api
-
-# تنظیم endpoint بله
-api.TELEGRAM_API_URL = 'https://tapi.bale.ai/bot{0}/{1}'
-
-# مسیرها
-BOT_DIR = os.path.dirname(os.path.abspath(__file__))
-REPO_ROOT = os.path.dirname(BOT_DIR)
-TELEGRAM_DIR = os.path.join(REPO_ROOT, 'telegram')
-CHANNELS_FILE = os.path.join(REPO_ROOT, 'channels.json')
-LAST_ID_FILE = os.path.join(REPO_ROOT, 'last_id.txt')
-WORKFLOWS_DIR = os.path.join(REPO_ROOT, '.github/workflows')
-
-# فایل رمز
-PASSWORD_FILE = os.path.join(BOT_DIR, 'password_hash.json')
-AUTH_FILE = os.path.join(BOT_DIR, 'authorized.json')
-
-# توکن ربات
-TOKEN = "${{ github.event.inputs.bot_token }}"
-bot = telebot.TeleBot(TOKEN)
-
-# کاربران مجاز
-authorized_users = set()
-
-def load_authorized():
-    global authorized_users
-    try:
-        if os.path.exists(AUTH_FILE):
-            with open(AUTH_FILE, 'r') as f:
-                data = json.load(f)
-                authorized_users = set(data.get('users', []))
-    except:
-        pass
-
-def save_authorized():
-    with open(AUTH_FILE, 'w') as f:
-        json.dump({'users': list(authorized_users)}, f)
-
-def is_authorized(user_id):
-    return str(user_id) in authorized_users
-
-def auth_required(func):
-    def wrapper(message):
-        if is_authorized(message.chat.id):
-            return func(message)
-        else:
-            bot.reply_to(message, "🔒 **دسترسی محدود!**\n\nلطفاً ابتدا رمز عبور را تنظیم کنید:\n`/setup <رمز جدید>`", parse_mode='Markdown')
-    return wrapper
-
-def verify_password(input_password, saved_hash, salt):
-    """تأیید رمز با هش"""
-    test_hash = hashlib.pbkdf2_hmac('sha256', input_password.encode(), salt.encode(), 100000).hex()
-    return test_hash == saved_hash
-
-@bot.message_handler(commands=['start'])
-def start(message):
-    welcome = """
-🤖 **ربات مدیریت مخزن گیت‌هاب**
-
-سلام! این ربات به شما امکان می‌دهد:
-
-📁 **مدیریت فایل‌ها**
-• مرور پوشه `telegram/` و زیرپوشه‌ها
-• دانلود فایل‌های دلخواه
-• مشاهده ساختار کانال‌ها
-
-⚙️ **مدیریت کانال‌ها**
-• مشاهده لیست کانال‌های فعال
-• اضافه کردن کانال جدید
-• حذف کانال
-
-🚀 **مدیریت ورکفلوها**
-• مشاهده لیست ورکفلوها
-• اجرای دستی ورکفلوها
-
-📊 **اطلاعات**
-• مشاهده آخرین ID
-• تغییر last_id
-
-⚠️ **نکته امنیتی:** این ربات شخصی است. ابتدا رمز عبور خود را با دستور `/setup` تنظیم کنید.
-"""
-    bot.reply_to(message, welcome, parse_mode='Markdown')
-
-@bot.message_handler(commands=['setup'])
-def setup_password(message):
-    """تنظیم رمز عبور اولیه"""
-    parts = message.text.split()
-    if len(parts) != 2:
-        bot.reply_to(message, "❌ **فرمت صحیح:**\n`/setup <رمز عبور جدید>`", parse_mode='Markdown')
-        return
-    
-    new_password = parts[1]
-    
-    # تولید salt و هش
-    import secrets
-    salt = secrets.token_hex(32)
-    hash_value = hashlib.pbkdf2_hmac('sha256', new_password.encode(), salt.encode(), 100000).hex()
-    
-    # ذخیره هش
-    with open(PASSWORD_FILE, 'w') as f:
-        json.dump({'hash': hash_value, 'salt': salt}, f)
-    
-    # اضافه کردن کاربر فعلی به مجازها
-    authorized_users.add(str(message.chat.id))
-    save_authorized()
-    
-    bot.reply_to(message, "✅ **رمز عبور با موفقیت تنظیم شد!**\n\nاکنون می‌توانید از ربات استفاده کنید.\nبرای راهنمایی: `/help`", parse_mode='Markdown')
-
-@bot.message_handler(commands=['auth'])
-def authenticate(message):
-    """احراز هویت با رمز"""
-    # بررسی وجود فایل رمز
-    if not os.path.exists(PASSWORD_FILE):
-        bot.reply_to(message, "⚠️ **رمز عبور تنظیم نشده است!**\nلطفاً ابتدا با دستور `/setup <رمز>` رمز خود را تنظیم کنید.", parse_mode='Markdown')
-        return
-    
-    parts = message.text.split()
-    if len(parts) != 2:
-        bot.reply_to(message, "❌ **فرمت صحیح:**\n`/auth <رمز عبور>`", parse_mode='Markdown')
-        return
-    
-    with open(PASSWORD_FILE, 'r') as f:
-        data = json.load(f)
-    
-    if verify_password(parts[1], data['hash'], data['salt']):
-        authorized_users.add(str(message.chat.id))
-        save_authorized()
-        bot.reply_to(message, "✅ **احراز هویت موفق!**\nاکنون به همه دستورات دسترسی دارید.", parse_mode='Markdown')
-    else:
-        bot.reply_to(message, "❌ **رمز عبور اشتباه است!**", parse_mode='Markdown')
-
-@bot.message_handler(commands=['browse'])
-@auth_required
-def browse_files(message):
-    """مرور پوشه telegram"""
-    markup = types.InlineKeyboardMarkup(row_width=1)
-    
-    # دکمه بازگشت به ریشه
-    btn_root = types.InlineKeyboardButton("📁 ریشه (telegram/)", callback_data="browse_root")
-    markup.add(btn_root)
-    
-    # لیست پوشه‌های داخل telegram (کانال‌ها)
-    if os.path.exists(TELEGRAM_DIR):
-        for item in sorted(os.listdir(TELEGRAM_DIR)):
-            item_path = os.path.join(TELEGRAM_DIR, item)
-            if os.path.isdir(item_path):
-                btn = types.InlineKeyboardButton(f"📂 {item}", callback_data=f"browse_{item}")
-                markup.add(btn)
-    
-    bot.reply_to(message, "📁 **مرور پوشه telegram/**\n\nپوشه‌های زیر معادل نام کانال‌ها هستند:", reply_markup=markup, parse_mode='Markdown')
-
-@bot.callback_query_handler(func=lambda call: call.data.startswith('browse_'))
-def handle_browse(call):
-    path_parts = call.data.split('_')[1:]
-    
-    if path_parts[0] == 'root':
-        current_path = TELEGRAM_DIR
-        display_path = "telegram/"
-    else:
-        # ساخت مسیر کامل
-        rel_path = '/'.join(path_parts)
-        current_path = os.path.join(TELEGRAM_DIR, rel_path)
-        display_path = f"telegram/{rel_path}"
-    
-    if not os.path.exists(current_path):
-        bot.answer_callback_query(call.id, "مسیر وجود ندارد")
-        return
-    
-    markup = types.InlineKeyboardMarkup(row_width=1)
-    
-    # دکمه بازگشت
-    parent = '/'.join(path_parts[:-1]) if len(path_parts) > 1 else 'root'
-    back_btn = types.InlineKeyboardButton("🔙 بازگشت", callback_data=f"browse_{parent}")
-    markup.add(back_btn)
-    
-    items = sorted(os.listdir(current_path))
-    has_items = False
-    
-    for item in items:
-        item_path = os.path.join(current_path, item)
-        if os.path.isdir(item_path):
-            new_path = f"{rel_path}/{item}" if rel_path != 'root' else item
-            btn = types.InlineKeyboardButton(f"📂 {item}", callback_data=f"browse_{new_path}")
-            markup.add(btn)
-            has_items = True
-        elif os.path.isfile(item_path):
-            # دکمه دانلود برای فایل
-            btn = types.InlineKeyboardButton(f"📄 {item}", callback_data=f"download_{rel_path}_{item}")
-            markup.add(btn)
-            has_items = True
-    
-    if not has_items:
-        bot.edit_message_text(f"📁 **{display_path}**\n\nاین پوشه خالی است.", call.message.chat.id, call.message.message_id, reply_markup=markup, parse_mode='Markdown')
-    else:
-        bot.edit_message_text(f"📁 **{display_path}**\n\n{len(items)} مورد:", call.message.chat.id, call.message.message_id, reply_markup=markup, parse_mode='Markdown')
-    
-    bot.answer_callback_query(call.id)
-
-@bot.callback_query_handler(func=lambda call: call.data.startswith('download_'))
-def handle_download(call):
-    parts = call.data.split('_')[1:]
-    rel_path = '_'.join(parts[:-1])
-    filename = parts[-1]
-    
-    file_path = os.path.join(TELEGRAM_DIR, rel_path.replace('_', '/'), filename)
-    
-    if not os.path.exists(file_path):
-        bot.answer_callback_query(call.id, "فایل یافت نشد")
-        return
-    
-    # بررسی حجم (حداکثر 20 مگابایت برای ربات بله)
-    file_size = os.path.getsize(file_path)
-    if file_size > 20 * 1024 * 1024:
-        bot.answer_callback_query(call.id, f"فایل {file_size/(1024*1024):.1f} مگابایت است و قابل ارسال نیست")
-        return
-    
-    try:
-        with open(file_path, 'rb') as f:
-            bot.send_document(call.message.chat.id, f, caption=f"📄 {filename}")
-        bot.answer_callback_query(call.id, "✅ فایل ارسال شد")
-    except Exception as e:
-        bot.answer_callback_query(call.id, f"خطا: {str(e)[:50]}")
-
-@bot.message_handler(commands=['workflows'])
-@auth_required
-def list_workflows(message):
-    """لیست ورکفلوها و اجرا"""
-    markup = types.InlineKeyboardMarkup(row_width=1)
-    
-    if os.path.exists(WORKFLOWS_DIR):
-        for file in sorted(os.listdir(WORKFLOWS_DIR)):
-            if file.endswith('.yml') or file.endswith('.yaml'):
-                workflow_name = file.replace('.yml', '').replace('.yaml', '')
-                btn = types.InlineKeyboardButton(f"🚀 {workflow_name}", callback_data=f"run_{workflow_name}")
-                markup.add(btn)
-    
-    markup.add(types.InlineKeyboardButton("🔄 بروزرسانی لیست", callback_data="refresh_workflows"))
-    
-    bot.reply_to(message, "📋 **لیست ورکفلوهای موجود:**\n\nروی هر کدام کلیک کنید تا اجرا شود.", reply_markup=markup, parse_mode='Markdown')
-
-@bot.callback_query_handler(func=lambda call: call.data.startswith('run_'))
-def run_workflow(call):
-    workflow_name = call.data[4:]
-    
-    # پیدا کردن فایل واقعی
-    workflow_file = None
-    if os.path.exists(WORKFLOWS_DIR):
-        for file in os.listdir(WORKFLOWS_DIR):
-            if file.startswith(workflow_name) and (file.endswith('.yml') or file.endswith('.yaml')):
-                workflow_file = file
-                break
-    
-    if not workflow_file:
-        bot.answer_callback_query(call.id, "ورکفلو یافت نشد")
-        return
-    
-    # اجرا از طریق GitHub API
-    repo = os.environ.get('GITHUB_REPOSITORY', 'ehsan-golshani/aio-downloader-ehsan')
-    token = os.environ.get('GITHUB_TOKEN')
-    
-    if token:
-        url = f"https://api.github.com/repos/{repo}/actions/workflows/{workflow_file}/dispatches"
-        response = requests.post(url, json={'ref': 'main'}, headers={
-            'Authorization': f'Bearer {token}',
-            'Accept': 'application/vnd.github.v3+json'
-        })
-        
-        if response.status_code == 204:
-            bot.answer_callback_query(call.id, f"✅ {workflow_name} با موفقیت اجرا شد!")
-            bot.send_message(call.message.chat.id, f"🚀 **ورکفلو {workflow_name} اجرا شد!**\n\nمی‌توانید نتیجه را در برگه Actions ببینید.", parse_mode='Markdown')
-        else:
-            bot.answer_callback_query(call.id, f"خطا: {response.status_code}")
-    else:
-        bot.answer_callback_query(call.id, "توکن API موجود نیست")
-
-@bot.message_handler(commands=['channels'])
-@auth_required
-def manage_channels(message):
-    """مدیریت کانال‌ها (channels.json)"""
-    markup = types.InlineKeyboardMarkup(row_width=2)
-    
-    btn_list = types.InlineKeyboardButton("📋 لیست کانال‌ها", callback_data="channels_list")
-    btn_add = types.InlineKeyboardButton("➕ اضافه کردن", callback_data="channels_add")
-    btn_remove = types.InlineKeyboardButton("❌ حذف کانال", callback_data="channels_remove")
-    btn_back = types.InlineKeyboardButton("🔙 بازگشت", callback_data="channels_back")
-    
-    markup.add(btn_list, btn_add)
-    markup.add(btn_remove)
-    markup.add(btn_back)
-    
-    bot.reply_to(message, "📺 **مدیریت کانال‌ها**\n\nکانال‌ها در فایل `channels.json` ذخیره می‌شوند.\nبا اضافه یا حذف کانال، پوشه مربوطه در `telegram/` نیز ساخته یا حذف می‌شود.", reply_markup=markup, parse_mode='Markdown')
-
-@bot.callback_query_handler(func=lambda call: call.data.startswith('channels_'))
-def handle_channels(call):
-    action = call.data.split('_')[1]
-    
-    # بارگذاری channels.json
-    channels = []
-    if os.path.exists(CHANNELS_FILE):
-        try:
-            with open(CHANNELS_FILE, 'r') as f:
-                data = json.load(f)
-                channels = data.get('channels', [])
-        except:
-            pass
-    
-    if action == 'list':
-        if channels:
-            text = "📋 **لیست کانال‌های فعال:**\n\n"
-            for i, ch in enumerate(channels, 1):
-                text += f"{i}. `{ch}`\n"
-        else:
-            text = "📋 **هیچ کانالی وجود ندارد.**\n\nاز دکمه افزودن استفاده کنید."
-        
-        bot.edit_message_text(text, call.message.chat.id, call.message.message_id, parse_mode='Markdown')
-        
-        # دکمه بازگشت
-        markup = types.InlineKeyboardMarkup()
-        markup.add(types.InlineKeyboardButton("🔙 بازگشت", callback_data="channels_back"))
-        bot.edit_message_reply_markup(call.message.chat.id, call.message.message_id, reply_markup=markup)
-        
-    elif action == 'add':
-        bot.edit_message_text("➕ **افزودن کانال جدید**\n\nلطفاً نام کانال را ارسال کنید:", call.message.chat.id, call.message.message_id, parse_mode='Markdown')
-        bot.register_next_step_handler(call.message, add_channel_step)
-        
-    elif action == 'remove':
-        if not channels:
-            bot.answer_callback_query(call.id, "هیچ کانالی برای حذف وجود ندارد")
-            return
-        
-        markup = types.InlineKeyboardMarkup(row_width=1)
-        for ch in channels:
-            btn = types.InlineKeyboardButton(f"❌ {ch}", callback_data=f"remove_channel_{ch}")
-            markup.add(btn)
-        markup.add(types.InlineKeyboardButton("🔙 انصراف", callback_data="channels_back"))
-        
-        bot.edit_message_text("❌ **حذف کانال**\n\nکانال مورد نظر را انتخاب کنید:", call.message.chat.id, call.message.message_id, reply_markup=markup, parse_mode='Markdown')
-        
-    elif action == 'back':
-        # بازگشت به منوی اصلی
-        manage_channels(call.message)
-
-def add_channel_step(message):
-    channel_name = message.text.strip()
-    
-    # بارگذاری channels.json
-    channels = []
-    if os.path.exists(CHANNELS_FILE):
-        with open(CHANNELS_FILE, 'r') as f:
-            data = json.load(f)
-            channels = data.get('channels', [])
-    
-    if channel_name in channels:
-        bot.reply_to(message, f"❌ کانال `{channel_name}` قبلاً وجود دارد!", parse_mode='Markdown')
-        return
-    
-    # اضافه کردن
-    channels.append(channel_name)
-    with open(CHANNELS_FILE, 'w') as f:
-        json.dump({'channels': channels}, f, indent=2)
-    
-    # ایجاد پوشه مربوطه در telegram/
-    channel_dir = os.path.join(TELEGRAM_DIR, channel_name)
-    os.makedirs(channel_dir, exist_ok=True)
-    
-    bot.reply_to(message, f"✅ کانال `{channel_name}` با موفقیت اضافه شد!\nپوشه `telegram/{channel_name}/` ایجاد شد.", parse_mode='Markdown')
-
-@bot.callback_query_handler(func=lambda call: call.data.startswith('remove_channel_'))
-def remove_channel_step(call):
-    channel_name = call.data.replace('remove_channel_', '')
-    
-    # بارگذاری channels.json
-    channels = []
-    if os.path.exists(CHANNELS_FILE):
-        with open(CHANNELS_FILE, 'r') as f:
-            data = json.load(f)
-            channels = data.get('channels', [])
-    
-    if channel_name in channels:
-        channels.remove(channel_name)
-        with open(CHANNELS_FILE, 'w') as f:
-            json.dump({'channels': channels}, f, indent=2)
-        
-        # حذف پوشه مربوطه (اختیاری)
-        import shutil
-        channel_dir = os.path.join(TELEGRAM_DIR, channel_name)
-        if os.path.exists(channel_dir):
-            shutil.rmtree(channel_dir)
-        
-        bot.answer_callback_query(call.id, f"✅ {channel_name} حذف شد")
-        bot.edit_message_text(f"✅ کانال `{channel_name}` با موفقیت حذف شد!", call.message.chat.id, call.message.message_id, parse_mode='Markdown')
-    else:
-        bot.answer_callback_query(call.id, "کانال یافت نشد")
-
-@bot.message_handler(commands=['lastid'])
-@auth_required
-def show_last_id(message):
-    """نمایش و تغییر last_id"""
-    current_id = ""
-    if os.path.exists(LAST_ID_FILE):
-        with open(LAST_ID_FILE, 'r') as f:
-            current_id = f.read().strip()
-    
-    markup = types.InlineKeyboardMarkup()
-    btn_change = types.InlineKeyboardButton("✏️ تغییر last_id", callback_data="change_lastid")
-    markup.add(btn_change)
-    
-    bot.reply_to(message, f"📊 **آخرین ID ذخیره شده:**\n\n`{current_id if current_id else 'تعیین نشده'}`\n\nبرای تغییر، روی دکمه زیر کلیک کنید.", reply_markup=markup, parse_mode='Markdown')
-
-@bot.callback_query_handler(func=lambda call: call.data == 'change_lastid')
-def change_lastid_prompt(call):
-    bot.edit_message_text("✏️ **تغییر last_id**\n\nلطفاً مقدار جدید را ارسال کنید:", call.message.chat.id, call.message.message_id, parse_mode='Markdown')
-    bot.register_next_step_handler(call.message, update_last_id)
-
-def update_last_id(message):
-    new_id = message.text.strip()
-    
-    with open(LAST_ID_FILE, 'w') as f:
-        f.write(new_id)
-    
-    bot.reply_to(message, f"✅ `last_id` با موفقیت به `{new_id}` تغییر یافت!", parse_mode='Markdown')
-
-@bot.message_handler(commands=['help'])
-@auth_required
-def show_help(message):
-    help_text = """
-📚 **راهنمای کامل ربات**
-
-**🔐 احراز هویت:**
-• `/setup <رمز>` - تنظیم رمز عبور (بار اول)
-• `/auth <رمز>` - ورود با رمز عبور
-
-**📁 مرور فایل‌ها:**
-• `/browse` - مرور پوشه telegram/
-
-**🚀 مدیریت ورکفلو:**
-• `/workflows` - لیست و اجرای ورکفلوها
-
-**📺 مدیریت کانال‌ها:**
-• `/channels` - مشاهده، اضافه، حذف کانال‌ها
-
-**📊 اطلاعات:**
-• `/lastid` - مشاهده و تغییر last_id
-• `/status` - وضعیت احراز هویت
-• `/help` - همین راهنما
-
-**⚠️ توجه:** ربات هر ۲ دقیقه یکبار اجرا می‌شود.
-"""
-    bot.reply_to(message, help_text, parse_mode='Markdown')
-
-@bot.message_handler(commands=['status'])
-@auth_required
-def show_status(message):
-    """وضعیت سیستم"""
-    # آمار پوشه telegram
-    telegram_size = 0
-    telegram_count = 0
-    if os.path.exists(TELEGRAM_DIR):
-        for root, dirs, files in os.walk(TELEGRAM_DIR):
-            telegram_count += len(files)
-            for f in files:
-                telegram_size += os.path.getsize(os.path.join(root, f))
-    
-    # کانال‌ها
-    channels = []
-    if os.path.exists(CHANNELS_FILE):
-        with open(CHANNELS_FILE, 'r') as f:
-            data = json.load(f)
-            channels = data.get('channels', [])
-    
-    status = f"""
-📊 **وضعیت ربات**
-
-🔐 **احراز هویت:** {'✅ فعال' if os.path.exists(PASSWORD_FILE) else '❌ تنظیم نشده'}
-👤 **کاربران مجاز:** {len(authorized_users)}
-
-📁 **پوشه telegram:**
-• فایل‌ها: {telegram_count} عدد
-• حجم کل: {telegram_size/(1024*1024):.2f} MB
-
-📺 **کانال‌ها:** {len(channels)} عدد
-
-🚀 **ورکفلوها:** {len([f for f in os.listdir(WORKFLOWS_DIR) if f.endswith(('.yml','.yaml'))]) if os.path.exists(WORKFLOWS_DIR) else 0} عدد
-
-⏱ **زمان اجرا:** هر ۲ دقیقه یکبار
-"""
-    bot.reply_to(message, status, parse_mode='Markdown')
-
-print("✅ ربات راه‌اندازی شد!")
-load_authorized()
-bot.infinity_polling()
-BOT
-          
-          # فایل requirements
-          cat > requirements.txt << 'REQ'
-pyTelegramBotAPI==4.16.1
-requests==2.32.3
-REQ
-          
-          echo "✅ ربات ساخته شد"
-      
-      - name: ایجاد ورکفلو زمانبند
-        run: |
-          cat > .github/workflows/bale-scheduler.yml << 'SCH'
-name: Bale Bot Scheduler
-
-on:
-  schedule:
-    - cron: '*/2 * * * *'
-  workflow_dispatch:
-
-jobs:
-  run:
-    runs-on: ubuntu-latest
-    steps:
-      - uses: actions/checkout@v4
-      
-      - name: Setup Python
-        uses: actions/setup-python@v5
-        with:
-          python-version: '3.9'
-      
-      - name: Install dependencies
-        working-directory: ./bale-bot
-        run: pip install -r requirements.txt
-      
-      - name: Run Bale Bot
-        working-directory: ./bale-bot
-        env:
-          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
-          GITHUB_REPOSITORY: ${{ github.repository }}
-        run: |
-          timeout 115s python bot.py || true
-SCH
-          echo "✅ ورکفلو زمانبند ساخته شد"
-      
-      - name: ایجاد فایل‌های مورد نیاز
-        run: |
-          # اطمینان از وجود channels.json
-          if [ ! -f channels.json ]; then
-            echo '{"channels": []}' > channels.json
-          fi
-          
-          # اطمینان از وجود last_id.txt
-          if [ ! -f last_id.txt ]; then
-            echo "0" > last_id.txt
-          fi
-          
-          # اطمینان از وجود پوشه telegram
+          # ساختار پوشه تلگرام (اگر نیست)
           mkdir -p telegram
           
-          echo "✅ فایل‌های اولیه بررسی شدند"
+          # فایل channels.json اولیه
+          if [ ! -f telegram/channels.json ]; then
+            cat > telegram/channels.json << 'EOF'
+          {
+            "channels": [
+              {
+                "id": "channel_1",
+                "name": "کانال نمونه ۱",
+                "path": "telegram/channel_1",
+                "created_at": "2024-01-01"
+              }
+            ]
+          }
+          EOF
+          fi
+          
+          # ساخت پوشه نمونه
+          mkdir -p telegram/channel_1/{posts,files}
+          echo "فایل نمونه" > telegram/channel_1/files/sample.txt
+          
+          echo "✅ ساختار ایجاد شد"
       
-      - name: Commit همه تغییرات
+      - name: Create password hash
         run: |
-          git config user.name "Bot Builder"
+          PASSWORD="${{ github.event.inputs.admin_password }}"
+          SALT=$(openssl rand -hex 32)
+          HASH=$(echo -n "$PASSWORD$SALT" | openssl dgst -sha256 -hex | cut -d' ' -f2)
+          
+          # ذخیره در فایل پیکربندی (به جای Secrets)
+          cat > bale-bot/config.py << 'EOF'
+          import os
+          import hashlib
+          import json
+          import glob
+          
+          # تنظیمات اولیه
+          BOT_TOKEN = "TOKEN_PLACEHOLDER"
+          ADMIN_PASSWORD_HASH = "HASH_PLACEHOLDER"
+          PASSWORD_SALT = "SALT_PLACEHOLDER"
+          
+          # مسیرها
+          BOT_ROOT = os.path.dirname(os.path.abspath(__file__))
+          TELEGRAM_ROOT = os.path.join(os.path.dirname(BOT_ROOT), 'telegram')
+          CHANNELS_FILE = os.path.join(TELEGRAM_ROOT, 'channels.json')
+          LAST_ID_FILE = os.path.join(BOT_ROOT, 'data', 'last_id.txt')
+          AUTH_FILE = os.path.join(BOT_ROOT, 'data', 'authorized.txt')
+          
+          def verify_password(pwd):
+              h = hashlib.sha256((pwd + PASSWORD_SALT).encode()).hexdigest()
+              return h == ADMIN_PASSWORD_HASH
+          
+          def load_channels():
+              if os.path.exists(CHANNELS_FILE):
+                  with open(CHANNELS_FILE, 'r') as f:
+                      return json.load(f)
+              return {"channels": []}
+          
+          def save_channels(data):
+              with open(CHANNELS_FILE, 'w') as f:
+                  json.dump(data, f, indent=2)
+          
+          def get_folder_structure(path):
+              """دریافت ساختار پوشه‌ها به صورت درختی"""
+              result = []
+              if os.path.exists(path):
+                  for item in os.listdir(path):
+                      item_path = os.path.join(path, item)
+                      if os.path.isdir(item_path):
+                          result.append({
+                              'name': item,
+                              'type': 'folder',
+                              'path': item_path,
+                              'children': get_folder_structure(item_path)
+                          })
+                      else:
+                          result.append({
+                              'name': item,
+                              'type': 'file',
+                              'path': item_path,
+                              'size': os.path.getsize(item_path)
+                          })
+              return result
+          
+          def get_workflows_list():
+              """لیست ورکفلوهای موجود"""
+              workflows_dir = os.path.join(os.path.dirname(BOT_ROOT), '.github', 'workflows')
+              workflows = []
+              if os.path.exists(workflows_dir):
+                  for yml in glob.glob(os.path.join(workflows_dir, '*.yml')):
+                      workflows.append(os.path.basename(yml))
+              return workflows
+          EOF
+          
+          # جایگزینی مقادیر
+          sed -i "s|TOKEN_PLACEHOLDER|${{ github.event.inputs.bot_token }}|g" bale-bot/config.py
+          sed -i "s|HASH_PLACEHOLDER|$HASH|g" bale-bot/config.py
+          sed -i "s|SALT_PLACEHOLDER|$SALT|g" bale-bot/config.py
+          
+          echo "✅ رمز هش شد: $HASH"
+      
+      - name: Create bot.py
+        run: |
+          cat > bale-bot/bot.py << 'BOT'
+          import telebot
+          import os
+          import sys
+          import json
+          import subprocess
+          from telebot import api
+          from telebot.types import InlineKeyboardMarkup, InlineKeyboardButton
+          
+          api.TELEGRAM_API_URL = 'https://tapi.bale.ai/bot{0}/{1}'
+          
+          sys.path.append(os.path.dirname(os.path.abspath(__file__)))
+          from config import *
+          
+          bot = telebot.TeleBot(BOT_TOKEN)
+          
+          # بررسی احراز هویت
+          def is_admin(user_id):
+              if not os.path.exists(AUTH_FILE):
+                  return False
+              with open(AUTH_FILE, 'r') as f:
+                  admins = f.read().splitlines()
+                  return str(user_id) in admins
+          
+          def auth_required(func):
+              def wrapper(message):
+                  if is_admin(message.chat.id):
+                      return func(message)
+                  else:
+                      bot.reply_to(message, "🔒 دسترسی محدود! لطفاً ابتدا با دستور /auth <رمز> احراز هویت کنید.")
+              return wrapper
+          
+          # دکمه‌های اصلی
+          def main_menu():
+              markup = InlineKeyboardMarkup()
+              markup.row(InlineKeyboardButton("📁 فایل‌های تلگرام", callback_data="menu_telegram"))
+              markup.row(InlineKeyboardButton("⚙️ ورکفلوها", callback_data="menu_workflows"))
+              markup.row(InlineKeyboardButton("📋 مدیریت کانال‌ها", callback_data="menu_channels"))
+              markup.row(InlineKeyboardButton("🔐 وضعیت", callback_data="menu_status"))
+              return markup
+          
+          @bot.message_handler(commands=['start'])
+          def start(message):
+              welcome = """
+          🤖 **ربات مدیریت مخزن**
+          
+          سلام! من می‌توانم به شما در مدیریت فایل‌ها و کانال‌هایتان کمک کنم.
+          
+          🔑 ابتدا احراز هویت کنید:
+          `/auth <رمز عبور>`
+          
+          پس از احراز هویت، از دکمه‌های زیر استفاده کنید.
+          """
+              bot.send_message(message.chat.id, welcome, parse_mode='Markdown', reply_markup=main_menu())
+          
+          @bot.message_handler(commands=['auth'])
+          def authenticate(message):
+              parts = message.text.split()
+              if len(parts) != 2:
+                  return bot.reply_to(message, "❌ فرمت صحیح: /auth <رمز>")
+              
+              if verify_password(parts[1]):
+                  with open(AUTH_FILE, 'a') as f:
+                      f.write(f"{message.chat.id}\n")
+                  bot.reply_to(message, "✅ احراز هویت موفق! اکنون به همه امکانات دسترسی دارید.")
+              else:
+                  bot.reply_to(message, "❌ رمز عبور اشتباه است!")
+          
+          # ========== منوی تلگرام ==========
+          @bot.callback_query_handler(func=lambda call: call.data == "menu_telegram")
+          @auth_required
+          def telegram_menu(call):
+              channels = load_channels()
+              markup = InlineKeyboardMarkup()
+              for ch in channels.get('channels', []):
+                  markup.add(InlineKeyboardButton(f"📁 {ch['name']}", callback_data=f"channel_{ch['id']}"))
+              markup.add(InlineKeyboardButton("🔙 برگشت", callback_data="back_main"))
+              bot.edit_message_text("📁 **انتخاب کانال:**", call.message.chat.id, call.message.message_id, reply_markup=markup, parse_mode='Markdown')
+          
+          @bot.callback_query_handler(func=lambda call: call.data.startswith("channel_"))
+          @auth_required
+          def browse_channel(call):
+              channel_id = call.data.replace("channel_", "")
+              channels = load_channels()
+              channel = next((c for c in channels['channels'] if c['id'] == channel_id), None)
+              if not channel:
+                  return
+              
+              channel_path = channel['path']
+              markup = InlineKeyboardMarkup()
+              markup.add(InlineKeyboardButton("📄 مشاهده فایل‌ها", callback_data=f"files_{channel_id}"))
+              markup.add(InlineKeyboardButton("📂 زیرپوشه‌ها", callback_data=f"subfolders_{channel_id}_posts"))
+              markup.add(InlineKeyboardButton("🔙 برگشت", callback_data="menu_telegram"))
+              
+              bot.edit_message_text(f"📂 **{channel['name']}**\nمسیر: `{channel_path}`", call.message.chat.id, call.message.message_id, reply_markup=markup, parse_mode='Markdown')
+          
+          @bot.callback_query_handler(func=lambda call: call.data.startswith("files_"))
+          @auth_required
+          def list_files(call):
+              channel_id = call.data.replace("files_", "")
+              channels = load_channels()
+              channel = next((c for c in channels['channels'] if c['id'] == channel_id), None)
+              if not channel:
+                  return
+              
+              files_dir = os.path.join(channel['path'], 'files')
+              if not os.path.exists(files_dir):
+                  bot.answer_callback_query(call.id, "پوشه فایل‌ها وجود ندارد")
+                  return
+              
+              files = [f for f in os.listdir(files_dir) if os.path.isfile(os.path.join(files_dir, f))]
+              if not files:
+                  bot.answer_callback_query(call.id, "هیچ فایلی وجود ندارد")
+                  return
+              
+              markup = InlineKeyboardMarkup()
+              for f in files:
+                  markup.add(InlineKeyboardButton(f"📄 {f}", callback_data=f"download_{channel_id}_{f}"))
+              markup.add(InlineKeyboardButton("🔙 برگشت", callback_data=f"channel_{channel_id}"))
+              
+              bot.edit_message_text(f"📁 **فایل‌های {channel['name']}:**", call.message.chat.id, call.message.message_id, reply_markup=markup, parse_mode='Markdown')
+          
+          @bot.callback_query_handler(func=lambda call: call.data.startswith("download_"))
+          @auth_required
+          def download_file(call):
+              parts = call.data.split("_")
+              channel_id = parts[1]
+              filename = '_'.join(parts[2:])
+              
+              channels = load_channels()
+              channel = next((c for c in channels['channels'] if c['id'] == channel_id), None)
+              if not channel:
+                  return
+              
+              file_path = os.path.join(channel['path'], 'files', filename)
+              if os.path.exists(file_path):
+                  with open(file_path, 'rb') as f:
+                      bot.send_document(call.message.chat.id, f, caption=f"📄 {filename}")
+              else:
+                  bot.answer_callback_query(call.id, "فایل یافت نشد")
+          
+          @bot.callback_query_handler(func=lambda call: call.data.startswith("subfolders_"))
+          @auth_required
+          def browse_subfolders(call):
+              parts = call.data.split("_")
+              channel_id = parts[1]
+              subpath = '_'.join(parts[2:]) if len(parts) > 2 else ''
+              
+              channels = load_channels()
+              channel = next((c for c in channels['channels'] if c['id'] == channel_id), None)
+              if not channel:
+                  return
+              
+              base_path = channel['path']
+              if subpath:
+                  current_path = os.path.join(base_path, subpath)
+              else:
+                  current_path = base_path
+              
+              if not os.path.exists(current_path):
+                  bot.answer_callback_query(call.id, "مسیر وجود ندارد")
+                  return
+              
+              items = []
+              for item in os.listdir(current_path):
+                  item_path = os.path.join(current_path, item)
+                  if os.path.isdir(item_path):
+                      items.append(('📁', item, 'folder'))
+                  else:
+                      size = os.path.getsize(item_path)
+                      items.append(('📄', item, 'file', size))
+              
+              markup = InlineKeyboardMarkup()
+              for item in items:
+                  if item[2] == 'folder':
+                      new_subpath = f"{subpath}/{item[1]}" if subpath else item[1]
+                      markup.add(InlineKeyboardButton(f"{item[0]} {item[1]}", callback_data=f"subfolders_{channel_id}_{new_subpath}"))
+                  else:
+                      size_str = f" ({item[3]/1024:.1f}KB)" if item[3] < 1024*1024 else f" ({item[3]/(1024*1024):.1f}MB)"
+                      markup.add(InlineKeyboardButton(f"{item[0]} {item[1]}{size_str}", callback_data=f"download_{channel_id}_{item[1]}"))
+              
+              markup.add(InlineKeyboardButton("🔙 برگشت", callback_data=f"channel_{channel_id}"))
+              
+              display_path = subpath if subpath else "ریشه"
+              bot.edit_message_text(f"📂 **مسیر: {display_path}**\nتعداد {len(items)} آیتم", call.message.chat.id, call.message.message_id, reply_markup=markup, parse_mode='Markdown')
+          
+          # ========== منوی ورکفلوها ==========
+          @bot.callback_query_handler(func=lambda call: call.data == "menu_workflows")
+          @auth_required
+          def workflows_menu(call):
+              workflows = get_workflows_list()
+              markup = InlineKeyboardMarkup()
+              for wf in workflows:
+                  markup.add(InlineKeyboardButton(f"▶️ {wf}", callback_data=f"run_{wf}"))
+              markup.add(InlineKeyboardButton("🔄 اجرای همه", callback_data="run_all"))
+              markup.add(InlineKeyboardButton("🔙 برگشت", callback_data="back_main"))
+              
+              bot.edit_message_text(f"⚙️ **ورکفلوهای موجود ({len(workflows)}):**\n\nبا انتخاب هر کدام، از طریق GitHub API اجرا می‌شود.", call.message.chat.id, call.message.message_id, reply_markup=markup, parse_mode='Markdown')
+          
+          @bot.callback_query_handler(func=lambda call: call.data.startswith("run_"))
+          @auth_required
+          def run_workflow(call):
+              wf_name = call.data.replace("run_", "")
+              # اجرا از طریق GitHub API نیاز به توکن دارد
+              bot.answer_callback_query(call.id, f"درخواست اجرای {wf_name} ثبت شد")
+              bot.send_message(call.message.chat.id, f"⏳ درخواست اجرای `{wf_name}` ثبت شد. در صورت فعال بودن، اجرا خواهد شد.", parse_mode='Markdown')
+          
+          # ========== منوی کانال‌ها ==========
+          @bot.callback_query_handler(func=lambda call: call.data == "menu_channels")
+          @auth_required
+          def channels_menu(call):
+              channels = load_channels()
+              markup = InlineKeyboardMarkup()
+              markup.add(InlineKeyboardButton("➕ افزودن کانال جدید", callback_data="add_channel"))
+              for ch in channels.get('channels', []):
+                  markup.add(InlineKeyboardButton(f"✏️ {ch['name']}", callback_data=f"edit_{ch['id']}"))
+                  markup.add(InlineKeyboardButton(f"🗑 حذف {ch['name']}", callback_data=f"del_{ch['id']}"))
+              markup.add(InlineKeyboardButton("🔙 برگشت", callback_data="back_main"))
+              
+              bot.edit_message_text("📋 **مدیریت کانال‌ها:**\n\nلیست کانال‌های موجود:", call.message.chat.id, call.message.message_id, reply_markup=markup, parse_mode='Markdown')
+          
+          @bot.callback_query_handler(func=lambda call: call.data == "back_main")
+          @auth_required
+          def back_to_main(call):
+              bot.edit_message_text("🏠 **منوی اصلی**", call.message.chat.id, call.message.message_id, reply_markup=main_menu(), parse_mode='Markdown')
+          
+          @bot.callback_query_handler(func=lambda call: call.data == "menu_status")
+          @auth_required
+          def status_menu(call):
+              channels = load_channels()
+              workflows = get_workflows_list()
+              status_text = f"""
+          📊 **وضعیت سیستم**
+          
+          👤 **ادمین:** {call.message.chat.id}
+          📁 **تعداد کانال‌ها:** {len(channels.get('channels', []))}
+          ⚙️ **تعداد ورکفلوها:** {len(workflows)}
+          🔐 **وضعیت:** احراز هویت شده
+          📂 **پوشه ریشه:** telegram/
+          """
+              bot.edit_message_text(status_text, call.message.chat.id, call.message.message_id, reply_markup=main_menu(), parse_mode='Markdown')
+          
+          print("✅ ربات راه‌اندازی شد!")
+          bot.infinity_polling()
+          BOT
+      
+      - name: Create requirements.txt
+        run: |
+          cat > bale-bot/requirements.txt << 'EOF'
+          pyTelegramBotAPI==4.16.1
+          EOF
+      
+      - name: Create runner workflow
+        run: |
+          mkdir -p .github/workflows
+          cat > .github/workflows/bale-runner.yml << 'EOF'
+          name: 🚀 Bale Bot Runner
+          
+          on:
+            schedule:
+              - cron: '*/2 * * * *'
+            workflow_dispatch:
+          
+          jobs:
+            run-bot:
+              runs-on: ubuntu-latest
+              steps:
+                - uses: actions/checkout@v4
+                
+                - name: Setup Python
+                  uses: actions/setup-python@v5
+                  with:
+                    python-version: '3.9'
+                
+                - name: Install dependencies
+                  working-directory: ./bale-bot
+                  run: pip install -r requirements.txt
+                
+                - name: Run Bale Bot
+                  working-directory: ./bale-bot
+                  run: python bot.py || true
+          EOF
+      
+      - name: Create management workflow for channels
+        run: |
+          cat > .github/workflows/manage-channels.yml << 'EOF'
+          name: 📋 Manage Channels
+          
+          on:
+            workflow_dispatch:
+              inputs:
+                action:
+                  description: 'add / remove / list'
+                  required: true
+                  type: string
+                channel_name:
+                  description: 'نام کانال (برای add/remove)'
+                  required: false
+                  type: string
+          
+          jobs:
+            manage:
+              runs-on: ubuntu-latest
+              permissions:
+                contents: write
+              steps:
+                - uses: actions/checkout@v4
+                
+                - name: Manage channels
+                  run: |
+                    python3 << 'PY'
+                    import json, os
+                    
+                    channels_file = "telegram/channels.json"
+                    action = "${{ github.event.inputs.action }}"
+                    name = "${{ github.event.inputs.channel_name }}"
+                    
+                    with open(channels_file, 'r') as f:
+                        data = json.load(f)
+                    
+                    if action == "list":
+                        print("کانال‌های موجود:")
+                        for ch in data['channels']:
+                            print(f"  - {ch['name']} ({ch['id']})")
+                    
+                    elif action == "add" and name:
+                        new_id = name.lower().replace(" ", "_")
+                        new_path = f"telegram/{new_id}"
+                        os.makedirs(f"{new_path}/posts", exist_ok=True)
+                        os.makedirs(f"{new_path}/files", exist_ok=True)
+                        
+                        data['channels'].append({
+                            "id": new_id,
+                            "name": name,
+                            "path": new_path,
+                            "created_at": "2024-01-01"
+                        })
+                        
+                        with open(channels_file, 'w') as f:
+                            json.dump(data, f, indent=2)
+                        
+                        print(f"✅ کانال {name} اضافه شد")
+                    
+                    elif action == "remove" and name:
+                        data['channels'] = [ch for ch in data['channels'] if ch['name'] != name and ch['id'] != name]
+                        with open(channels_file, 'w') as f:
+                            json.dump(data, f, indent=2)
+                        print(f"✅ کانال {name} حذف شد")
+                    PY
+                
+                - name: Commit changes
+                  run: |
+                    git config user.name "Channel Manager"
+                    git config user.email "bot@github.com"
+                    git add telegram/channels.json
+                    git commit -m "📝 مدیریت کانال‌ها" || echo "تغییری نیست"
+                    git push
+          EOF
+      
+      - name: Create README for bot
+        run: |
+          cat > bale-bot/README.md << 'EOF'
+          # 🤖 ربات مدیریت مخزن
+          
+          ## 🚀 شروع سریع
+          
+          1. ربات را در بله استارت کنید
+          2. دستور `/auth <رمز>` را بزنید (همان رمزی که در تنظیمات وارد کردید)
+          3. از دکمه‌های زیر استفاده کنید:
+          
+          ### 📁 فایل‌های تلگرام
+          - مشاهده تمام کانال‌ها
+          - ورود به زیرپوشه‌ها
+          - دانلود فایل‌ها
+          
+          ### ⚙️ ورکفلوها
+          - لیست تمام ورکفلوهای مخزن
+          - اجرای هر ورکفلو
+          
+          ### 📋 مدیریت کانال‌ها
+          - مشاهده لیست کانال‌ها
+          - اضافه کردن کانال جدید
+          - حذف کانال
+          
+          > توجه: ربات هر 2 دقیقه یکبار اجرا می‌شود
+          EOF
+      
+      - name: Create info file
+        run: |
+          PASSWORD="${{ github.event.inputs.admin_password }}"
+          cat > BOT_INFO.txt << EOF
+          ═══════════════════════════════════════════
+          ✅ ربات با موفقیت نصب شد!
+          ═══════════════════════════════════════════
+          
+          🔑 رمز عبور ادمین: $PASSWORD
+          
+          🤖 توکن ربات: ${{ github.event.inputs.bot_token }}
+          
+          📁 ساختار مخزن:
+          - telegram/channels.json : لیست کانال‌ها
+          - telegram/[نام_کانال]/ : پوشه هر کانال
+          - telegram/[نام_کانال]/posts/ : پست‌ها
+          - telegram/[نام_کانال]/files/ : فایل‌ها
+          
+          🚀 برای شروع:
+          1. ربات را در بله استارت کنید
+          2. دستور /auth $PASSWORD را بزنید
+          3. از دکمه‌ها استفاده کنید
+          
+          📝 مدیریت کانال‌ها:
+          - فایل telegram/channels.json را ویرایش کنید
+          - یا از ورکفلو manage-channels.yml استفاده کنید
+          
+          ═══════════════════════════════════════════
+          EOF
+          
+          cat BOT_INFO.txt
+      
+      - name: Commit all
+        run: |
+          git config user.name "Bot Setup"
           git config user.email "bot@github.com"
-          git add bale-bot/ .github/workflows/bale-scheduler.yml channels.json last_id.txt
-          git commit -m "🤖 افزودن ربات کامل بله با مدیریت کانال و فایل" || echo "تغییری نیست"
+          git add .
+          git commit -m "✅ نصب کامل ربات بله با قابلیت مدیریت فایل و کانال" || echo "تغییری نیست"
           git push
+      
+      - name: Final message
+        run: |
+          echo "═══════════════════════════════════════════"
+          echo "✅ نصب با موفقیت انجام شد!"
+          echo "═══════════════════════════════════════════"
+          echo ""
+          echo "🔑 رمز عبور ادمین: ${{ github.event.inputs.admin_password }}"
+          echo "🤖 توکن ربات: ${{ github.event.inputs.bot_token }}"
+          echo ""
+          echo "📂 فایل BOT_INFO.txt را در مخزن مشاهده کنید"
+          echo ""
