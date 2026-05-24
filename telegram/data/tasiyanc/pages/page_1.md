@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 23:00
+📅 آخرین بروزرسانی: 1405/03/04 01:14
 
 ---
+
+## tasiyanc — post 5461
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گپمون حتما عضو باشین ادمینا کانفیگ اینا میزارن وقتی نیستم
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 5460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🛡 Tarkib
+vless://5b34187f-f811-58b1-7e68-3cc63df5df3b@meli.masterdadeh.ir:80?type=ws&path=%2F&security=none#%40Tasiyanc%20Tarkib
+
+آموزش ترکیبی 👈
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کی وصل شد با هات؟
+</div>
+
+## tasiyanc — post 5458
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+HOT VPN
+سروراش فعال شده تست کنین
+و اینکه نسخه مود شده این vpn هرگز دانلود نکنین ک مخربه
+Link dawnload 👈
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5457
 
@@ -23,8 +57,6 @@ Join As @Tasiyanc ✅
 
 ## tasiyanc — post 5455
 
-<div align="center"><a href="files/post_5455_🐉 Dragons.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🐉 Dragons.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶اختصاصی تاسیان سرور  تست شده📶
 
@@ -44,8 +76,6 @@ vless://b8718a25-e3ad-43b1-b4ef-0bcc4732f381@snapp.ir:8880?type=ws&path=%2F&host
 </div>
 
 ## tasiyanc — post 5452
-
-<div align="center"><a href="files/post_5452_@Tasiyanc 💕.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 💕.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶اختصاصی تاسیان سرور  تست شده📶
@@ -142,41 +172,5 @@ Join As @Tasiyanc ✅
 برای اتصال پایدار صبور باشید 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5439
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بسته هست
-</div>
-
-## tasiyanc — post 5438
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 سرور  تست شده📶
-
-برای اتصال پایدار صبور باشید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5434
-
-<div align="center"><img src="files/post_5434_tasiyanc_5434.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅3server VyDns proxy mode ⭕️
-🌟اسلیپ نت باز کنین ، قسمت import profile بزنید گزینه Qr code اسکن کنید کانفیگ ها اد شن وصل بشید
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5433
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لینک داخلی اسلیپ نت نسخه نهایی✅
-
-🌟 Slipnet 👈
-
-Password file : @Tasiyanc
 </div>
 

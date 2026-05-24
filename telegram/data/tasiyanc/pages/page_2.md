@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/03 23:00
+📅 آخرین بروزرسانی: 1405/03/04 01:14
 
 ---
+
+## tasiyanc — post 5439
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بسته هست
+</div>
+
+## tasiyanc — post 5438
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5434
+
+<div align="center"><img src="files/post_5434_tasiyanc_5434.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅3server VyDns proxy mode ⭕️
+🌟اسلیپ نت باز کنین ، قسمت import profile بزنید گزینه Qr code اسکن کنید کانفیگ ها اد شن وصل بشید
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5433
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لینک داخلی اسلیپ نت نسخه نهایی✅
+
+🌟 Slipnet 👈
+
+Password file : @Tasiyanc
+</div>
 
 ## tasiyanc — post 5432
 
@@ -134,70 +170,5 @@ Join @Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 لینک داخلی قرار داده شد
-</div>
-
-## tasiyanc — post 5414
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New update 👑
-لینک دانلود داخلی
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5410
-
-<div align="center"><img src="files/post_5410_tasiyanc_5410.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آپدیت جدید کلاینت شیر و خورشید 2026.05.24:
-
-- آپدیت Beast Mode برای درست کار کردن روی CDN Fronting
-
-- اضافه شدن اسکنر ای‌پی. برنامه لیست خیلی بزرگی از ای‌پی های ممکن را داره٬ پس اگر در اتصال مشکلی دارید پیشنهاد میکنم تنظیمات قدیمی ای‌پی ها و SNI رو از قسمت settings برنامه حذف کنید (خالی باشه)‌ و اجازه بدید برنامه خودش کار رو انجام بده. دقت کنید ممکن هست بار اول خیلی طول بکشه٬ حتی چند ساعت!
-
-- اضافه شدن پروتکل های بیشتری که با CDN Fronting کار میکنند. احتمال اتصالتون و سرعت باید یکمی بهتر باشه الان
-
-- قابلیت غیر فعال کردن سایتی که زمان اتصال٬ سایفون باز میکنه!
-
-- قابلیت تنظیم پورت مورد نظر خودتون برای LAN Proxy ها.
-
-- قابلیت تنظیم username و password مورد نظر خودتون برای LAN Proxy ها. این تنظیم دلخواه است و اگر تنظیم کنید فقط با این username و password در شبکه خانگی میتونن به شما وصل بشوند.
-
-- آپدیت شدن هسته سایفون
-
-میتونید از اینجا دانلود و نصب کنید و ممنون میشم اگه به اشتراک بگذارید که تعداد بیشتری ببینند:
-
-https://github.com/shirokhorshid/shirokhorshid-android/releases/tag/v2026.05.24-a3b91cf
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5409
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 Config for whiteDns 3️⃣
-🟡 mode
-
-
-stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiwrMgQFRhc2l5YW5jIPCfqr0iLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwMS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaXJfU2VmaWQiLCJlbmNyeXB0aW9uX21ldGhvZCI6MX19fQ
-
-stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoi4oG0IEBUYXNpeWFuYyIsInNlcnZlciI6eyJkb21haW4iOiJjaXAyLm1hc2lyLXNlZmlkLm15IiwiZW5jcnlwdGlvbl9rZXkiOiJUZWxlZ3JhbS1DaGFubmVsLS0tPkBNYXNpcl9TZWZpZCIsImVuY3J5cHRpb25fbWV0aG9kIjoxfX19
-
-🎚 آموزش اتصال 🎚
-برنامه مورد نیاز 👈
-Resolvers 👈
-
-Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5407
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶   تست شده📶
-
-برای اتصال پایدار صبور باشید 🚀
-
-Join As @Tasiyanc ✅
 </div>
 

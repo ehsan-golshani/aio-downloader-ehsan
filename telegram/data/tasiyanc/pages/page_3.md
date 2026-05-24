@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/03 23:00
+📅 آخرین بروزرسانی: 1405/03/04 01:14
 
 ---
+
+## tasiyanc — post 5414
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New update 👑
+لینک دانلود داخلی
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5410
+
+<div align="center"><img src="files/post_5410_tasiyanc_5410.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آپدیت جدید کلاینت شیر و خورشید 2026.05.24:
+
+- آپدیت Beast Mode برای درست کار کردن روی CDN Fronting
+
+- اضافه شدن اسکنر ای‌پی. برنامه لیست خیلی بزرگی از ای‌پی های ممکن را داره٬ پس اگر در اتصال مشکلی دارید پیشنهاد میکنم تنظیمات قدیمی ای‌پی ها و SNI رو از قسمت settings برنامه حذف کنید (خالی باشه)‌ و اجازه بدید برنامه خودش کار رو انجام بده. دقت کنید ممکن هست بار اول خیلی طول بکشه٬ حتی چند ساعت!
+
+- اضافه شدن پروتکل های بیشتری که با CDN Fronting کار میکنند. احتمال اتصالتون و سرعت باید یکمی بهتر باشه الان
+
+- قابلیت غیر فعال کردن سایتی که زمان اتصال٬ سایفون باز میکنه!
+
+- قابلیت تنظیم پورت مورد نظر خودتون برای LAN Proxy ها.
+
+- قابلیت تنظیم username و password مورد نظر خودتون برای LAN Proxy ها. این تنظیم دلخواه است و اگر تنظیم کنید فقط با این username و password در شبکه خانگی میتونن به شما وصل بشوند.
+
+- آپدیت شدن هسته سایفون
+
+میتونید از اینجا دانلود و نصب کنید و ممنون میشم اگه به اشتراک بگذارید که تعداد بیشتری ببینند:
+
+https://github.com/shirokhorshid/shirokhorshid-android/releases/tag/v2026.05.24-a3b91cf
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5409
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 Config for whiteDns 3️⃣
+🟡 mode
+
+
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiwrMgQFRhc2l5YW5jIPCfqr0iLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwMS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaXJfU2VmaWQiLCJlbmNyeXB0aW9uX21ldGhvZCI6MX19fQ
+
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoi4oG0IEBUYXNpeWFuYyIsInNlcnZlciI6eyJkb21haW4iOiJjaXAyLm1hc2lyLXNlZmlkLm15IiwiZW5jcnlwdGlvbl9rZXkiOiJUZWxlZ3JhbS1DaGFubmVsLS0tPkBNYXNpcl9TZWZpZCIsImVuY3J5cHRpb25fbWV0aG9kIjoxfX19
+
+🎚 آموزش اتصال 🎚
+برنامه مورد نیاز 👈
+Resolvers 👈
+
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5407
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶   تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+Join As @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5406
 
@@ -129,34 +194,5 @@ Proxy mode
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رسمی خبرگذاری فارس وابسته به سپاه تکذیب کرد ادعاهای ترامپو
-</div>
-
-## tasiyanc — post 5390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 Config for whiteDns 3️⃣ 🟡 mode stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiMSBAVGFzaXlhbmMiLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwNS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaX…
-</div>
-
-## tasiyanc — post 5387
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️فوری ترامپ
-پیش‌نویس تفاهم‌نامه‌ای با ایران تا حد زیادی مذاکره شده، در حال نهایی شدن است و به زودی اعلام خواهد شد.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5386
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️فوری تنگه هرمز باز شد و مذاکرات هسته ای تا دوماه آینده تمدید شد .
-تایید نشده
-</div>
-
-## tasiyanc — post 5385
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-839 Resolver WhiteDns 3️⃣
-
-Join As @Tasiyanc ✅
 </div>
 

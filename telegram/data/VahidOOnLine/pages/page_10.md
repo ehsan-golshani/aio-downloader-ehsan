@@ -1,8 +1,69 @@
 # آرشیو کانال VahidOOnLine - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/03/04 00:03
+📅 آخرین بروزرسانی: 1405/03/04 01:11
 
 ---
+
+## VahidOOnLine — post 241808
+
+<div align="center"><img src="files/post_241808_VahidOOnLine_241808.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در بخشی از پیام روز جمعه خود در شبکه اجتماعی «تروث سوشال» مبنی بر نزدیک شدن به توافق با ایران، به رایزنی‌های دیپلماتیک با اسرائیل اشاره کرد و نوشت: «به طور جداگانه، تماسی با بنیامین نتانیاهو، نخست‌وزیر اسرائیل داشتم که آن هم بسیار خوب پیش رفت.» او با تاکید بر اینکه جنبه‌ها و جزئیات نهایی توافق با ایران در حال حاضر در دست بحث است و به‌زودی اعلام خواهد شد، شرایط گفتگو با نخست‌وزیر اسرائیل را مثبت ارزیابی کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241807
+
+<div align="center"><img src="files/post_241807_VahidOOnLine_241807.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس جمهوری ایالات متحده در شبکه تروث سوشال نوشت: «یک توافق میان ایالات متحده آمریکا، جمهوری اسلامی تنظیم شده و اکنون در انتظار نهایی شدن است. جنبه‌ها و جزییات نهایی توافق در دست بررسی است و به‌زودی اعلام خواهد شد.»
+
+دونالد ترامپ افزود: «علاوه بر بسیاری از بندهای دیگر توافق، تنگه هرمز نیز بازگشایی خواهد شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241806
+
+<div align="center"><video src="files/post_241806_VahidOOnLine_241806.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_241806_VahidOOnLine_241806.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماسی از سن‌فرانسیسکو:
+«می‌گفت با شنیدن صدای شما احساس می‌کنم تو ایرانم…
+و از سال‌هایی گفت که با برنامه‌های منوتو خندیده، گریه کرده و زندگی کرده بود.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241805
+
+<div align="center"><img src="files/post_241805_VahidOOnLine_241805.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاهزاده رضا پهلوی در دیدار با جاش گاتهایمر، عضو حزب دموکرات در مجلس نمایندگان آمریکا، بر اهمیت حمایت دوحزبی کنگره ایالات متحده از مردم ایران تاکید کرد و گفت: ایرانیان نه‌تنها برای آزادی خود، بلکه برای پایان دادن به تروریسم جمهوری اسلامی علیه جهان مبارزه می‌کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241804
+
+<div align="center"><img src="files/post_241804_VahidOOnLine_241804.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش «وای‌نت»، مقامات اورشلیم به شدت نگران آن هستند که هرگونه توافق یا تفاهم موقت واشنگتن با تهران، جنگ را بدون دستاورد پایدار متوقف کند. این نگرانی وجود دارد که چنین توافقی بدون برچیدن زیرساخت‌های هسته‌ای جمهوری اسلامی، محدود کردن برنامه‌های موشک‌های بالستیک و پهپادی این کشور، و همچنین بدون مهار فعالیت گروه‌های نیابتی تهران در منطقه، به‌ویژه حزب‌الله در لبنان و حوثی‌ها در یمن، حاصل شود و عملا تهدیدهای اصلی را پابرجا باقی بگذارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 241803
 
@@ -212,74 +273,6 @@
 
 آیشواریا با پوشیدن پیراهنی آبی و مجسمه‌گونه از «آمیت آگاروال»، روی فرش قرمز درخشید و ثابت کرد که همچنان نماد بیانی از اصالت و شکوه است. او پس از مراسم، با توقفی کوتاه و صمیمانه در میان هواداران، بار دیگر نشان داد چرا پس از دو دهه، همچنان قلب‌ها را تسخیر می‌کند. این لحظات که به سرعت در شبکه‌های اجتماعی دست‌به‌دست شد، پایانی بود بر شایعات و تاییدی بر جایگاه تزلزل‌ناپذیر او در دنیای مد و سینما.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 241788
-
-<div align="center"><img src="files/post_241788_VahidOOnLine_241788.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ منابع آگاه به خبرگزاری رویترز اعلام کردند که چارچوب پیشنهادی برای حل بحران شامل سه مرحله است: پایان رسمی جنگ، حل بحران در تنگه هرمز، و ایجاد یک بازه زمانی ۳۰ روزه و قابل تمدید برای آغاز مذاکرات جهت دستیابی به توافقی گسترده‌تر.
-
-یکی از این منابع پاکستانی تاکید کرد که هیچ تضمینی برای پذیرش این تفاهم‌نامه از سوی ایالات متحده وجود ندارد. با این حال، در صورت موافقت تهران و واشنگتن، این تفاهم‌نامه بستر مناسبی را فراهم می‌کند تا مذاکرات تکمیلی پس از پایان تعطیلات عید [قربان] در روز جمعه، از سر گرفته شود.
-
-این گمانه‌زنی‌ها در حالی مطرح می‌شود که به گزارش آکسیوس، دونالد ترامپ، رئیس‌جمهور آمریکا، اعلام کرده است اواخر امروز پیش‌نویس توافق با جمهوری اسلامی را با مشاورانش بررسی می‌کند و احتمالا روز یکشنبه درباره پذیرش آن یا از سرگیری حملات تصمیم خواهد گرفت. ترامپ با لحنی هشداری افزود: «یا به یک توافق خوب می‌رسیم، یا آن‌ها را نابود می‌کنم.»
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 241787
-
-<div align="center"><img src="files/post_241787_VahidOOnLine_241787.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکسیوس به نقل از یک مقام آمریکایی گزارش داد: «ترامپ هنوز هیچ تصمیم نهایی در مورد توافق با جمهوری اسلامی نگرفته است.»
-
-اکسیوس نوشت که ترامپ و مشاورانش در مراحل قبلی جنگ نیز چندین بار تصور می‌کردند به توافق نزدیک شده‌اند، اما هیچ‌یک به نتیجه نرسید.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 241786
-
-<div align="center"><video src="files/post_241786_VahidOOnLine_241786.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_241786_VahidOOnLine_241786.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-راهپیمایی ایرانیان برلین
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 241785
-
-<div align="center"><video src="files/post_241785_VahidOOnLine_241785.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_241785_VahidOOnLine_241785.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصاویر جاویدنامان انقلاب ملی در بوردو فرانسه، دوم خرداد ۱۴۰۵
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 241784
-
-<div align="center"><video src="files/post_241784_VahidOOnLine_241784.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_241784_VahidOOnLine_241784.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تماسی از ایران؛
-«من پر از بغضم از رفتن شما»
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>
