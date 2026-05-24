@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/04 01:14
+📅 آخرین بروزرسانی: 1405/03/04 02:16
 
 ---
+
+## tasiyanc — post 5447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر ری اکشن یه هیزوم تو شاشدون مادر شهیاد ک تو گپ ناموسی داد
+</div>
+
+## tasiyanc — post 5446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر ری اکشن یه هیزوم تو شاشدون مادر شهیاد ک تو گپ ناموسی داد
+</div>
+
+## tasiyanc — post 5444
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آمدم نبودی رفتم
+</div>
+
+## tasiyanc — post 5443
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5442
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال زیاده 😐
+</div>
+
+## tasiyanc — post 5441
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5440
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5439
 
@@ -119,56 +173,5 @@ Join as @Tasiyanc ✅
 Configs ✅
 
 Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5423
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-639 IPs For Shiro khorshid New Upd 🟢
-
-❤️ تست شده 🛜🛜
-
-اموزش اتصال 👈
-
-برنامه مورد نیاز🔑
-
-Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5422
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بصورت محدود 25 گیگ بازه
-@startasiyan
-</div>
-
-## tasiyanc — post 5421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بدون اینکه آیپی بزنید استارت کنین تست کنید خودش اسکن می‌کنه شاید این فرایند یکم طول میکشه تا بهترین آیپی برا منطقه شما پیدا شه
-</div>
-
-## tasiyanc — post 5420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کسی همراه اول وصل شد به آپدیت جدید؟
-</div>
-
-## tasiyanc — post 5419
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در حال اسکن آیپی ها هستیم
-</div>
-
-## tasiyanc — post 5418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کلا اونایی آپدیت کنن ک وصل نمیشدن
-</div>
-
-## tasiyanc — post 5415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لینک داخلی قرار داده شد
 </div>
 

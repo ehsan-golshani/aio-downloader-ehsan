@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/04 01:14
+📅 آخرین بروزرسانی: 1405/03/04 02:16
 
 ---
+
+## tasiyanc — post 5423
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+639 IPs For Shiro khorshid New Upd 🟢
+
+❤️ تست شده 🛜🛜
+
+اموزش اتصال 👈
+
+برنامه مورد نیاز🔑
+
+Join @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5422
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بصورت محدود 25 گیگ بازه
+@startasiyan
+</div>
+
+## tasiyanc — post 5421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بدون اینکه آیپی بزنید استارت کنین تست کنید خودش اسکن می‌کنه شاید این فرایند یکم طول میکشه تا بهترین آیپی برا منطقه شما پیدا شه
+</div>
+
+## tasiyanc — post 5420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کسی همراه اول وصل شد به آپدیت جدید؟
+</div>
+
+## tasiyanc — post 5419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در حال اسکن آیپی ها هستیم
+</div>
+
+## tasiyanc — post 5418
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کلا اونایی آپدیت کنن ک وصل نمیشدن
+</div>
+
+## tasiyanc — post 5415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لینک داخلی قرار داده شد
+</div>
 
 ## tasiyanc — post 5414
 
@@ -139,60 +190,5 @@ slipnet-enc://ARZgT1Sc3rmT/BllzsZ0j1Hrgysz0VuofrxYrHydZb5sa4krL5RGNtHnsWUajYPocW
 برای اتصال پایدار صبور باشید 🚀
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5397
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VyDns 🇩🇪
-
-slipnet-enc://AbihOiKlY0j3lZnJ06AHqM6/85waRkkBqXqfFqiWmkrJZKpWdkRHGKJUe8MXeK7wTZ8Qb0BiWhZDl2pcLr6u7/G6IO17ZZCywTJGliRQ1ETwtLJZ4iLzsLOBccvfy3rVlC8Gc7W+py4MYon7rjlMLqq28Kqsbe0aqLEhJNfxyRg02FMooheYynEuSUYrIRJvY6RmF+GWnQ2qdTyM7MhWYImgoHmp5EaSNOfEZaKYsKDlzrHgZsJmdbI4ksFFlfuEnVyKYvs4de5hccP0rXtRtDrOfslIS/s54MIzfZgpygq+zXRHPOqJ2gsmaaWkvSfRUE3ax8D+1YtXTXnuRlvYUePLJMyk+Y6cp/nH56pRgpaAWnqXZHyzz+nMpMcmsCGJZlygNZACBYmJLoYJgZv30zX17W8nJN/5yuFnjXkX9IG2yQ8UN5/cZT3o27HjqB+PkLVCUGMKqov5UM/771Aazj5tcRWQhoQjTiIEwWlSlmG0HinowYgRCbZIxQnyXn2jGt+Oc3UoAaI9xWxkLfY1/EInF9GZ+NibUDofNgHqdc3sWqA75JLc9KB/3n8qmH95CkvkMPRZ9GVngzWzI2PAE88tT5v4Pmk4/XOY5/hF4VgkGgJ/QaFnbi0DeiV7uSHuehgOG5VcORUL9HIZR9GdiU8QMSPBrYROY4lR3g==
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tarkibi 🔐🛡
-
-ss://MjAyMi1ibGFrZTMtYWVzLTI1Ni1nY206ZGMvQmF4clBTNS91Wk5UVFB4djVJM2hoUk5Sd2hUYjhxNzlVR1RzYURjYz06Nk5CMUcxMEtPaVoyRVJ5RDJSaWdCSlpBVnE3RHMyakdKWXUxc3lmakM2OD0@185.165.118.73:4646#%40Tasiyanc%20Tarkib
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5395
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VyDns 🇦🇷
-
-slipnet-enc://AUEZ8GZ+5etS7DBIgZOLPsK9kGEa+1Z57Si5SafUxg7uN9xr1Q+NtjXrg+lokY/aw9yGrwXezrWM43SO0tjlVG2MhUzHfgiEOsidJuLbgj/NfWzG22428CcTfmAxjjrxkI/Jq40P+mfoxfYE2wHHz5ZigUN4jgLXHCMmXbhdvpi2Qr+U+yI7HMFPcyAkIlCgenyX3L3CjjamEX1DWl72BcZP0v0rrW//41hVKE2CmxjueSabKSdTF86X4lyv95bO7RXA9ebh83qqOninqojBBzuScOLVH1jdGYXVr1OKtEeTuXzft7XIUI5o5blknjfj3Lzpb7tca5jKi83x27EU6NBFjqHXNjlVrOGKY1vARFbVjlgyNXwmaVdpCxJrRdQSXHgiA4FGu3vzvPf6kEUei49J8tamRWpvJYa3amjho/4Fg3qeckT4zSLdkpX8KF3z+tAcIkELO7i1nZ/IQRQns2BMCZpI6bYk/2iUCS6kLnWc6UIgrWAD8ZGCdbI3XzPpUtjpYTkxPdsxMVq44ePhXdzLn+6OXE503JUyjPaSriB+Iu5FPTlOVp2X3cPB3JzsSV9OnWOnZqmPMqmCwGzGiS+KcwRBm1H0zHVgLAzSLVtGzGQsqz4l10Q7aLO8R6iSBx+UTX1ckotvbuuYBKoque6iyWmFPBmpl+YCGXguB8GqUWUztsESlLa/vYFR9NIhHQroUimpr9ehOCWZmhPd1PFIyLMGY5HTaie6jvO0KC3xbP+d8ZcRyj4iKD5CAtDA1a1Iz8UiAEAVHcyt
-
-Proxy mode
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5394
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آکسیوس وابسته به دموکرات‌ها : توافق نامه امضا شد
-</div>
-
-## tasiyanc — post 5393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آکسیوس وابسته به دموکرات‌ها : توافق نامه امضا شد
-</div>
-
-## tasiyanc — post 5392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فارس : ادعای های ترامپ بخاطر کنترل قیمت بازار جهانیه
-</div>
-
-## tasiyanc — post 5391
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسمی خبرگذاری فارس وابسته به سپاه تکذیب کرد ادعاهای ترامپو
 </div>
 
