@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/03 19:07
+📅 آخرین بروزرسانی: 1405/03/03 20:16
 
 ---
+
+## ProxyMTProto — post 47574
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tproxy.mom
+Port: 8090
+Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47573
 
@@ -173,13 +182,5 @@ Server: r1.newr1.co.uk
 Port: 85
 Secret: FgMBAgABAAH8AxOG4kw63Q
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47554
-
-<div align="center"><img src="files/post_47554_ProxyMTProto_47554.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2000 hours.
 </div>
 

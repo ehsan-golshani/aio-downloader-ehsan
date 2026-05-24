@@ -1,8 +1,90 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/03 19:09
+📅 آخرین بروزرسانی: 1405/03/03 20:18
 
 ---
+
+## tasiyanc — post 5400
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VyDns 🇫🇷 2 server
+
+slipnet-enc://AXC6vqBBilLFPfG9jfC0mownyPrs0/KWGXVGhkEvTq1/ud5/unuDLIQBFp5KlVRcFUqTVHOcNAPxEX4WjV1Bvr0Pv0/t54ufKsR2ne4Ukkj+juRb2w6lOgdKydp2lIOT1wxjV++XRy2WrV1gdmIS8WaCYznf6yPYVr4SKt2ZDvuziExcKuoYbwkTMFqmJyMXuFtCy/WWLlRmt9NPauruvaKJ5ZYUaVczaEIQIrs6xrXbRxXxt12TIXVGQIcG2BCU5VxOfi+nmOtrPQg+hMjKLVAGurs16p+fZ9X8aCoyYxmomq2yrSLXmmSwe5qpfI0UuCd3dAMnzpO2PM8uYYtewx45tjrbnJQmS3Wq1fkjyK+kdpRVcSNKDpaHivsIi8fE42D2QtmXiAOMg8yIWU9zctHvacJ2v8glcWzxh6FFcOSjBhergo9pEjeI4UqfKF/wFtpGSGRWYNIIG+1dD1MPOizdoiSMhOHBt8Sfwcp3gRuf4tcxVGDv4xoIzUK1vx4D6FCPQroBm0ZbLrISv4FMUsF5GYIDlwJKcVzmQjTuiG22NhxxVW6gai5LHDQs9AhNYXQ4/eUcqoUodqIZbEqJX5/TRxNADQgV1L8G2RI2HL1sTDdOnV5KU4g9+XeW7DHbmYbZS/TQI8U0Oe//ql5DcpLaqpFK1Yd8XacuxxNvgcHaESgIVMB0DAKRp2f9Ar/I1mqXgF2nm4Xu3bYquSqZdjzQ2HR2C2YWIyyqW4RxK9tqmnr9HwYvrPTLOJAMZm+4HYkCxBmvDaCGZi0RfgxPCUE/GuOIy7vCkiQu99hg3BZuk173xq21bAsJ3m6IraQyPYiq381Gf18/SHEjY0d+rgc6tVLzqvuVxwS/YTPszQ==
+slipnet-enc://ARZgT1Sc3rmT/BllzsZ0j1Hrgysz0VuofrxYrHydZb5sa4krL5RGNtHnsWUajYPocWJywnBxpKv0bpSON/A5FmqvMGbEeXXBvtmzgLbEY4pF2r7MMrTIoJkv/otqz5ZDDcCittZjY/UNsr67JX+n+QeYs3yyXg+EepxMO/ezLT+YKpAexcFSbk3Z+OG3KsbAa5bkA6l8uVhKztdXXlNsTSlAVYnBL0jm/yB0I5YEuHkvRy3hoK8ZtY0x7Ee5lZk3Jo4uKzoN9X5LGHLNkv0B6k43Dr9keRd3ODLNKGzR/1yPmJjUbcwEGgI0RacJxoiIRy901mfblX/DntQWdIZBdZ5jhvWbyDetW0pCSqT2qlzD+moDVoo1a/G9wpz91wytRK1v+3ngVYAjRSJQLG+S1Bjj9xfeiJ5qx1IEuHmfLXDFCKFSF+Z+xzYluXKMHZXzWgc5I5Iw1XzfVrd9EQh1A5j35DgweK+UmlVf1MKhh+65sIDEjN4oAtUF5pxkU6bm2m7ID0qCsaO8xgVMXViyXL8W8sg6M/NJxZUf5FpYku2Ymc9fKB0w9kmUZy/aN9nGda6UhewZtDRfD+ZlCBSg6QTAzmqZGqlKOOK2zt3j+9gdphCBFL0njnhawhD8z8MDOJQbBbIneuEizHxYob79mKokYfKTEpjZ0fpAEHOOuuUCjEGchkKcs4xUrDxLBzLVQzqxjvIUqyqwjtlt8ofiRe5l2q2nU1bffpMD7AkP4AiWrj2G0J1fLeH1UfzMoNzOHkdn8jnlYwfgl8vVM2cwJAclkaDBSqI=
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5399
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دهنتو املاکی
+</div>
+
+## tasiyanc — post 5398
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶   تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5397
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VyDns 🇩🇪
+
+slipnet-enc://AbihOiKlY0j3lZnJ06AHqM6/85waRkkBqXqfFqiWmkrJZKpWdkRHGKJUe8MXeK7wTZ8Qb0BiWhZDl2pcLr6u7/G6IO17ZZCywTJGliRQ1ETwtLJZ4iLzsLOBccvfy3rVlC8Gc7W+py4MYon7rjlMLqq28Kqsbe0aqLEhJNfxyRg02FMooheYynEuSUYrIRJvY6RmF+GWnQ2qdTyM7MhWYImgoHmp5EaSNOfEZaKYsKDlzrHgZsJmdbI4ksFFlfuEnVyKYvs4de5hccP0rXtRtDrOfslIS/s54MIzfZgpygq+zXRHPOqJ2gsmaaWkvSfRUE3ax8D+1YtXTXnuRlvYUePLJMyk+Y6cp/nH56pRgpaAWnqXZHyzz+nMpMcmsCGJZlygNZACBYmJLoYJgZv30zX17W8nJN/5yuFnjXkX9IG2yQ8UN5/cZT3o27HjqB+PkLVCUGMKqov5UM/771Aazj5tcRWQhoQjTiIEwWlSlmG0HinowYgRCbZIxQnyXn2jGt+Oc3UoAaI9xWxkLfY1/EInF9GZ+NibUDofNgHqdc3sWqA75JLc9KB/3n8qmH95CkvkMPRZ9GVngzWzI2PAE88tT5v4Pmk4/XOY5/hF4VgkGgJ/QaFnbi0DeiV7uSHuehgOG5VcORUL9HIZR9GdiU8QMSPBrYROY4lR3g==
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5396
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tarkibi 🔐🛡
+
+ss://MjAyMi1ibGFrZTMtYWVzLTI1Ni1nY206ZGMvQmF4clBTNS91Wk5UVFB4djVJM2hoUk5Sd2hUYjhxNzlVR1RzYURjYz06Nk5CMUcxMEtPaVoyRVJ5RDJSaWdCSlpBVnE3RHMyakdKWXUxc3lmakM2OD0@185.165.118.73:4646#%40Tasiyanc%20Tarkib
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5395
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VyDns 🇦🇷
+
+slipnet-enc://AUEZ8GZ+5etS7DBIgZOLPsK9kGEa+1Z57Si5SafUxg7uN9xr1Q+NtjXrg+lokY/aw9yGrwXezrWM43SO0tjlVG2MhUzHfgiEOsidJuLbgj/NfWzG22428CcTfmAxjjrxkI/Jq40P+mfoxfYE2wHHz5ZigUN4jgLXHCMmXbhdvpi2Qr+U+yI7HMFPcyAkIlCgenyX3L3CjjamEX1DWl72BcZP0v0rrW//41hVKE2CmxjueSabKSdTF86X4lyv95bO7RXA9ebh83qqOninqojBBzuScOLVH1jdGYXVr1OKtEeTuXzft7XIUI5o5blknjfj3Lzpb7tca5jKi83x27EU6NBFjqHXNjlVrOGKY1vARFbVjlgyNXwmaVdpCxJrRdQSXHgiA4FGu3vzvPf6kEUei49J8tamRWpvJYa3amjho/4Fg3qeckT4zSLdkpX8KF3z+tAcIkELO7i1nZ/IQRQns2BMCZpI6bYk/2iUCS6kLnWc6UIgrWAD8ZGCdbI3XzPpUtjpYTkxPdsxMVq44ePhXdzLn+6OXE503JUyjPaSriB+Iu5FPTlOVp2X3cPB3JzsSV9OnWOnZqmPMqmCwGzGiS+KcwRBm1H0zHVgLAzSLVtGzGQsqz4l10Q7aLO8R6iSBx+UTX1ckotvbuuYBKoque6iyWmFPBmpl+YCGXguB8GqUWUztsESlLa/vYFR9NIhHQroUimpr9ehOCWZmhPd1PFIyLMGY5HTaie6jvO0KC3xbP+d8ZcRyj4iKD5CAtDA1a1Iz8UiAEAVHcyt
+
+Proxy mode
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5394
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آکسیوس وابسته به دموکرات‌ها : توافق نامه امضا شد
+</div>
+
+## tasiyanc — post 5393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آکسیوس وابسته به دموکرات‌ها : توافق نامه امضا شد
+</div>
+
+## tasiyanc — post 5392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فارس : ادعای های ترامپ بخاطر کنترل قیمت بازار جهانیه
+</div>
+
+## tasiyanc — post 5391
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسمی خبرگذاری فارس وابسته به سپاه تکذیب کرد ادعاهای ترامپو
+</div>
 
 ## tasiyanc — post 5390
 
@@ -249,329 +331,5 @@ Join @Tasiyanc ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Ip Shiro khorshid 
 🟢 & mahsang 6️⃣ 37.191.95.70 185.137.25.146 78.157.41.60 185.141.106.238 185.88.178.196 78.157.41.60 185.50.37.52 185.208.175.228 5.144.129.174 185.208.174.167 185.141.106.238 164.138.17.122 164.138.17.122 5.160.13.85 164.138.17.122 185.141.106.238…
-</div>
-
-## tasiyanc — post 5378
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid 
-🟢 & mahsang 6️⃣
-
-
-37.191.95.70
-185.137.25.146
-78.157.41.60
-185.141.106.238
-185.88.178.196
-78.157.41.60
-185.50.37.52
-185.208.175.228
-5.144.129.174
-185.208.174.167
-185.141.106.238
-164.138.17.122
-164.138.17.122
-5.160.13.85
-164.138.17.122
-185.141.106.238
-185.141.106.238
-185.50.37.52
-185.208.174.167
-5.160.13.85
-164.138.17.122
-5.160.13.85
-5.160.13.85
-185.50.37.52
-185.208.174.167
-80.191.243.226
-185.255.91.60
-109.72.197.1
-5.160.13.85
-164.138.17.122
-164.138.17.122
-185.88.178.196
-78.157.41.60
-164.138.17.122
-185.141.106.238
-5.160.13.85
-5.160.13.85
-164.138.17.122
-78.157.41.60
-164.138.17.122
-185.88.178.196
-185.208.175.228
-37.191.95.70
-185.88.178.196
-37.191.95.70
-94.232.173.28
-185.137.25.146
-185.137.25.146
-78.157.41.60
-185.141.106.238
-109.72.197.1
-5.160.13.85
-185.208.175.228
-78.157.41.60
-185.255.91.60
-164.138.17.122
-164.138.17.122
-78.157.41.60
-185.208.175.228
-80.191.243.226
-5.160.13.85
-185.141.106.238
-185.50.37.52
-80.191.243.226
-158.58.184.147
-78.39.234.140
-2.16.53.65
-5.160.128.142
-185.50.37.52
-109.72.197.1
-185.255.91.60
-185.50.37.52
-185.141.106.238
-2.16.53.65
-78.39.234.140
-78.39.234.140
-78.39.234.140
-2.16.53.65
-5.160.128.142
-5.160.13.85
-78.157.41.60
-80.191.243.226
-23.58.95.138
-164.138.17.122
-164.138.17.122
-185.88.178.196
-5.160.13.85
-78.157.41.60
-142.54.178.211
-185.208.175.228
-185.141.106.238
-185.50.37.52
-185.255.91.60
-2.16.53.65
-5.160.128.142
-63.141.252.203
-78.39.234.140
-37.191.95.70
-78.157.41.60
-185.137.25.146
-185.141.106.238
-185.89.22.71
-37.191.95.70
-95.101.23.82
-185.208.175.228
-37.191.95.70
-109.72.197.1
-109.72.197.1
-185.141.106.238
-78.157.41.60
-185.88.178.196
-78.157.41.60
-78.157.41.60
-185.208.174.167
-78.157.41.60
-5.160.13.85
-185.255.91.60
-185.255.91.60
-78.39.234.140
-80.191.243.226
-185.255.91.60
-142.54.178.211
-142.54.178.211
-63.141.252.203
-
-❤️ تست شده 🛜🛜
-
-اموزش اتصال 👈
-
-برنامه مورد نیاز🔑
-
-Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5373
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه بوس نمی‌رسه بما
-</div>
-
-## tasiyanc — post 5372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار صبور باشید 
-🚀
-
-@Tasiyanc 
-🩵
-</div>
-
-## tasiyanc — post 5371
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid 🟢 & mahsang 6️⃣ 185.141.106.238 185.50.37.52 185.208.174.167 5.160.13.85 37.191.95.70 164.138.17.122 5.144.129.174 37.191.95.70 185.208.174.167 5.160.13.85 5.160.13.85 185.141.106.238 185.50.37.52 185.141.106.238 185.208.174.167 164.138.17.122…
-</div>
-
-## tasiyanc — post 5370
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid 🟢 & mahsang 6️⃣
-
-
-185.141.106.238
-185.50.37.52
-185.208.174.167
-5.160.13.85
-37.191.95.70
-164.138.17.122
-5.144.129.174
-37.191.95.70
-185.208.174.167
-5.160.13.85
-5.160.13.85
-185.141.106.238
-185.50.37.52
-185.141.106.238
-185.208.174.167
-164.138.17.122
-78.157.41.60
-94.232.173.28
-185.255.91.60
-158.58.184.147
-80.191.243.226
-164.138.17.122
-185.88.178.196
-185.137.25.146
-185.137.25.146
-78.157.41.60
-78.157.41.60
-185.208.175.228
-80.191.243.226
-5.160.13.85
-185.141.106.238
-185.141.106.238
-185.50.37.52
-164.138.17.122
-5.160.13.85
-185.89.22.71
-185.141.106.238
-185.208.175.228
-109.72.197.1
-78.157.41.60
-185.137.25.146
-5.160.128.142
-37.191.95.70
-185.255.91.60
-193.148.67.117
-78.157.41.60
-109.72.197.1
-5.160.13.85
-185.255.91.60
-185.208.175.228
-185.208.174.167
-185.88.178.196
-5.160.128.142
-164.138.17.122
-185.50.37.52
-78.39.234.140
-185.141.106.238
-185.208.174.167
-185.208.175.228
-185.255.91.60
-5.160.13.85
-5.160.128.142
-5.160.13.85
-95.101.23.82
-65.109.34.234
-185.88.178.196
-185.50.37.52
-63.141.252.203
-37.191.95.70
-142.54.178.211
-142.54.178.211
-50.7.5.83
-37.191.95.70
-5.160.13.85
-78.157.41.60
-78.157.41.60
-185.141.106.238
-185.53.142.174
-5.160.13.85
-78.157.41.60
-37.191.95.70
-37.191.95.70
-80.191.243.226
-78.157.41.60
-185.141.106.238
-78.157.41.60
-78.157.41.60
-164.138.17.122
-5.160.13.85
-185.208.175.228
-109.72.197.1
-37.191.95.70
-78.39.234.140
-5.160.128.142
-78.39.234.140
-164.138.17.122
-2.16.53.65
-164.138.17.122
-78.39.234.140
-185.255.91.60
-5.160.13.85
-185.88.178.196
-185.141.106.238
-63.141.252.203
-
-❤️ تست شده 📶 📶
-
-اموزش اتصال 👈
-
-برنامه مورد نیاز🔑
-
-Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما که قطیم
-</div>
-
-## tasiyanc — post 5368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان  تست شده تمام اپراتور ها📶
-
-برای اتصال پایدار صبور باشید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5367
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان  تست شده📶
-
-برای اتصال پایدار صبور باشید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بسته شد اتمام حجم
-</div>
-
-## tasiyanc — post 5365
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅فروش بازه @Startasiyan هر گیگ استارلینک مناسب ترید و کار های مهم 290 هر گیگ معمولی سرعت خوب مناسب وب‌گردی - اینستاگرام یوتوب تلگرام 220 جهت خرید ثبت سفارش کنین
 </div>
 

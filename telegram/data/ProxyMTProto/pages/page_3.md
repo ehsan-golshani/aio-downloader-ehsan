@@ -1,8 +1,16 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/03 19:07
+📅 آخرین بروزرسانی: 1405/03/03 20:16
 
 ---
+
+## ProxyMTProto — post 47554
+
+<div align="center"><img src="files/post_47554_ProxyMTProto_47554.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2000 hours.
+</div>
 
 ## ProxyMTProto — post 47553
 

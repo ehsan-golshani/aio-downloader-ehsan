@@ -1,8 +1,94 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 19:09
+📅 آخرین بروزرسانی: 1405/03/03 20:18
 
 ---
+
+## tasiyanc — post 5450
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 620 resolver.txt
+</div>
+
+## tasiyanc — post 5449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 620 resolver.txt
+</div>
+
+## tasiyanc — post 5448
+
+<div align="center"><a href="files/post_5448_@Tasiyanc 620 resolver.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 620 resolver.txt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+620 resolver for WhiteDns 2️⃣
+
+🎚 آموزش اتصال  🎚
+    برنامه مورد نیاز 👈
+Configs ✅
+
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر ری اکشن یه هیزوم تو شاشدون مادر شهیاد ک تو گپ ناموسی داد
+</div>
+
+## tasiyanc — post 5446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر ری اکشن یه هیزوم تو شاشدون مادر شهیاد ک تو گپ ناموسی داد
+</div>
+
+## tasiyanc — post 5444
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آمدم نبودی رفتم
+</div>
+
+## tasiyanc — post 5443
+
+<div align="center"><a href="files/post_5443_RİRA.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 RİRA.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5442
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال زیاده 😐
+</div>
+
+## tasiyanc — post 5441
+
+<div align="center"><a href="files/post_5441_Tufan (1).npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Tufan (1).npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5440
+
+<div align="center"><a href="files/post_5440_JohnWick.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 JohnWick.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5439
 
@@ -91,84 +177,5 @@ Join as @Tasiyanc ✅
 برای اتصال پایدار صبور باشید 🚀
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5426
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 2 سرور  تست شده📶
-
-برای اتصال پایدار صبور باشید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نسخه جدید شیرخورشید خیلی باگ داره امیدوارم تیم خوبش تو آپدیت بعدی برطرف کنند ، توصیه به دانلود نمیکنم
-</div>
-
-## tasiyanc — post 5424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-502 resolver for WhiteDns 2️⃣
-
-🎚 آموزش اتصال  🎚
-    برنامه مورد نیاز 👈
-Configs ✅
-
-Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5423
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-639 IPs For Shiro khorshid New Upd 🟢
-
-❤️ تست شده 🛜🛜
-
-اموزش اتصال 👈
-
-برنامه مورد نیاز🔑
-
-Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5422
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بصورت محدود 25 گیگ بازه
-@startasiyan
-</div>
-
-## tasiyanc — post 5421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بدون اینکه آیپی بزنید استارت کنین تست کنید خودش اسکن می‌کنه شاید این فرایند یکم طول میکشه تا بهترین آیپی برا منطقه شما پیدا شه
-</div>
-
-## tasiyanc — post 5420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کسی همراه اول وصل شد به آپدیت جدید؟
-</div>
-
-## tasiyanc — post 5419
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در حال اسکن آیپی ها هستیم
-</div>
-
-## tasiyanc — post 5418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کلا اونایی آپدیت کنن ک وصل نمیشدن
-</div>
-
-## tasiyanc — post 5415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لینک داخلی قرار داده شد
 </div>
 
