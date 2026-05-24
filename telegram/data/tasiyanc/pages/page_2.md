@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/04 02:16
+📅 آخرین بروزرسانی: 1405/03/04 03:18
 
 ---
+
+## tasiyanc — post 5449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 620 resolver.txt
+</div>
+
+## tasiyanc — post 5448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+620 resolver for WhiteDns 2️⃣
+
+🎚 آموزش اتصال  🎚
+    برنامه مورد نیاز 👈
+Configs ✅
+
+Join As @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5447
 
@@ -155,23 +173,5 @@ Join as @Tasiyanc ✅
 برای اتصال پایدار صبور باشید 🚀
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نسخه جدید شیرخورشید خیلی باگ داره امیدوارم تیم خوبش تو آپدیت بعدی برطرف کنند ، توصیه به دانلود نمیکنم
-</div>
-
-## tasiyanc — post 5424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-502 resolver for WhiteDns 2️⃣
-
-🎚 آموزش اتصال  🎚
-    برنامه مورد نیاز 👈
-Configs ✅
-
-Join As @Tasiyanc ✅
 </div>
 

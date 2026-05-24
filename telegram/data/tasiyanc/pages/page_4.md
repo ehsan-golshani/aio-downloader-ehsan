@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/04 02:16
+📅 آخرین بروزرسانی: 1405/03/04 03:18
 
 ---
+
+## tasiyanc — post 5399
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دهنتو املاکی
+</div>
+
+## tasiyanc — post 5398
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶   تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5397
 
@@ -445,24 +461,5 @@ Ip Shiro khorshid
 برنامه مورد نیاز🔑
 
 Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5373
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه بوس نمی‌رسه بما
-</div>
-
-## tasiyanc — post 5372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-📶
-
-برای اتصال پایدار صبور باشید 
-🚀
-
-@Tasiyanc 
-🩵
 </div>
 

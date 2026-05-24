@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/04 02:16
+📅 آخرین بروزرسانی: 1405/03/04 03:18
 
 ---
+
+## tasiyanc — post 5425
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نسخه جدید شیرخورشید خیلی باگ داره امیدوارم تیم خوبش تو آپدیت بعدی برطرف کنند ، توصیه به دانلود نمیکنم
+</div>
+
+## tasiyanc — post 5424
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+502 resolver for WhiteDns 2️⃣
+
+🎚 آموزش اتصال  🎚
+    برنامه مورد نیاز 👈
+Configs ✅
+
+Join As @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5423
 
@@ -174,21 +192,5 @@ slipnet-enc://AXC6vqBBilLFPfG9jfC0mownyPrs0/KWGXVGhkEvTq1/ud5/unuDLIQBFp5KlVRcFU
 slipnet-enc://ARZgT1Sc3rmT/BllzsZ0j1Hrgysz0VuofrxYrHydZb5sa4krL5RGNtHnsWUajYPocWJywnBxpKv0bpSON/A5FmqvMGbEeXXBvtmzgLbEY4pF2r7MMrTIoJkv/otqz5ZDDcCittZjY/UNsr67JX+n+QeYs3yyXg+EepxMO/ezLT+YKpAexcFSbk3Z+OG3KsbAa5bkA6l8uVhKztdXXlNsTSlAVYnBL0jm/yB0I5YEuHkvRy3hoK8ZtY0x7Ee5lZk3Jo4uKzoN9X5LGHLNkv0B6k43Dr9keRd3ODLNKGzR/1yPmJjUbcwEGgI0RacJxoiIRy901mfblX/DntQWdIZBdZ5jhvWbyDetW0pCSqT2qlzD+moDVoo1a/G9wpz91wytRK1v+3ngVYAjRSJQLG+S1Bjj9xfeiJ5qx1IEuHmfLXDFCKFSF+Z+xzYluXKMHZXzWgc5I5Iw1XzfVrd9EQh1A5j35DgweK+UmlVf1MKhh+65sIDEjN4oAtUF5pxkU6bm2m7ID0qCsaO8xgVMXViyXL8W8sg6M/NJxZUf5FpYku2Ymc9fKB0w9kmUZy/aN9nGda6UhewZtDRfD+ZlCBSg6QTAzmqZGqlKOOK2zt3j+9gdphCBFL0njnhawhD8z8MDOJQbBbIneuEizHxYob79mKokYfKTEpjZ0fpAEHOOuuUCjEGchkKcs4xUrDxLBzLVQzqxjvIUqyqwjtlt8ofiRe5l2q2nU1bffpMD7AkP4AiWrj2G0J1fLeH1UfzMoNzOHkdn8jnlYwfgl8vVM2cwJAclkaDBSqI=
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5399
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دهنتو املاکی
-</div>
-
-## tasiyanc — post 5398
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶   تست شده📶
-
-برای اتصال پایدار صبور باشید 🚀
-
-@Tasiyanc 🩵
 </div>
 

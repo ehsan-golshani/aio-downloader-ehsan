@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/04 02:16
+📅 آخرین بروزرسانی: 1405/03/04 03:18
 
 ---
+
+## tasiyanc — post 5470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🛡 tarkib
+
+
+trojan://humanity@37.32.6.56:40443?security=tls&type=ws&host=www.ignitelimit.com&path=%2Fassignment&sni=www.ignitelimit.com&allowInsecure=1#%40Tasiyanc%20Tarkib%E2%9A%A1
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5469
+
+<div align="center"><a href="files/post_5469_Alone @Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Alone @Tasiyanc.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5468
 
@@ -19,8 +42,6 @@ TS ARMY🤝.npvt
 </div>
 
 ## tasiyanc — post 5466
-
-<div align="center"><a href="files/post_5466_TS ARMY🤝.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 TS ARMY🤝.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶اختصاصی تاسیان سرور  تست شده📶
@@ -44,8 +65,6 @@ Mylady
 
 ## tasiyanc — post 5463
 
-<div align="center"><a href="files/post_5463_sh💘.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 sh💘.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶دو سرور فعال اختصاصی تاسیان تست شده📶
 
@@ -55,8 +74,6 @@ Mylady
 </div>
 
 ## tasiyanc — post 5462
-
-<div align="center"><a href="files/post_5462_SHAKIRA.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 SHAKIRA.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶اختصاصی تاسیان سرور  تست شده📶
@@ -162,23 +179,5 @@ vless://b8718a25-e3ad-43b1-b4ef-0bcc4732f381@snapp.ir:8880?type=ws&path=%2F&host
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 620 resolver.txt
-</div>
-
-## tasiyanc — post 5449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 620 resolver.txt
-</div>
-
-## tasiyanc — post 5448
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-620 resolver for WhiteDns 2️⃣
-
-🎚 آموزش اتصال  🎚
-    برنامه مورد نیاز 👈
-Configs ✅
-
-Join As @Tasiyanc ✅
 </div>
 
