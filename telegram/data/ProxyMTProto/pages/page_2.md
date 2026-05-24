@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/03 21:18
+📅 آخرین بروزرسانی: 1405/03/03 22:58
 
 ---
+
+## ProxyMTProto — post 47577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dream.nolags.pw
+Port: 443
+Secret: dd9b8378a9bc2bfc1eb0bed0c2b3ba7584
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47576
 
@@ -172,15 +181,6 @@ Secret: eef8dc254a4c2af8afcab54c8a5f9bb4fb616c70696e6176706e2e6861746563656e732e
 Server: FREE.edgeCDN-static.com
 Port: 443
 Secret: eea1b2c3d4e5f6a7b8c9d0e1f2a3b4c5d66564676563646e2d7374617469632e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47557
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 80.96.112.222
-Port: 443
-Secret: ee2e7fcf4666472ebd58e4fea75357105f7777772e79616e6465782e7275
 @ProxyMTProto
 </div>
 

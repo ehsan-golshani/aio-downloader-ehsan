@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/03 21:20
+📅 آخرین بروزرسانی: 1405/03/03 23:00
 
 ---
+
+## tasiyanc — post 5432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VyDns Ssh 🎚
+
+slipnet-enc://AbLeCDLj5Ngcq3E6+j2nH0KOwpgNmlQ745LVh6ESAqXmAXjbAMHlOtBuYmzpFNLa7jL67x3bw+Sfw4iFW7GBOOhvuMMPmtZG/2HDOBTaqgxuURqLjnCCh3Rnx9XFGKPtUOpK0ORDpC/SnqgtLLb78WbmTirq+edyE9OJ5b040PxNvFU8UjeRVhhRybC0Ev5ftoEPFbZPx71DNSoljfqTAYiUEHsWqdstKXZyHm+xoeKdj7wmPb5Ksx7y0AC4vu6OVB0iMLzveXTCaLQrQjJQ+Tc7PHcMb7+UK11qRQoP5SOYm3V7JdyGqhpzzFDZ7zMNed/XRrKyOPSuSu7/D+236LQs9QUD91wVNr1JcHVg4fjIJMjts373PG0tS1FL/rR/G7AcRR/ZokHi/B3FUxMxdJJhtJ7yAbUptu1m9unhBHPnpV9q9fx+g5xMFL0KE+PyrpGLqL+UJvcHUtK6I+YC+IDLfAxiWuRnol1OMvOKW6JxW2sbOewyjVwyc2gEMQ2TIVilD59wuP9BsSxbxzHC9YmH8lzXYJEmgqpt7lgM6SiidgjQiAz9U/YlQIh+oNnDZ17AurUhGLa6EZYD5sRPf8kE5ERd2QQhGU1n5Ft/l8Cx+gH4z2qnJ6Hf2NbD2xfq2jLE9YPAYFhkTiPmUzKuT/TUdjiEywKZbDJptBa2ljPuhZ4yHTWibXulpnG6z3h71AntAF5UPaNuUSguHt3bnlJDNkziU5ZX2NcoEs07roFp3wx2oebaxWvTiKxePufAV4V9WoZGQx2Nn9M72loYEfQGQS7gMl+G6qoHpFfdz5rnkDOS
+
+
+Join as @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آدم کسخل نفهم باشه ولی مثل ادمین من ثنا خانم پررو و بی ذات و طلبکار نباشه ، کل پیام‌های مالک گروه پاک کرده طلبکارم هست جا اینکه بگه *وه خوردم
+</div>
+
+## tasiyanc — post 5430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا این همه ری اکشن حق من است؟
+</div>
+
+## tasiyanc — post 5428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5427
 
@@ -156,44 +199,5 @@ Join As @Tasiyanc ✅
 برای اتصال پایدار صبور باشید 🚀
 
 Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5406
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-White dns Resolver & config
-
-بزاریم ❤️ نزاریم 🍌
-</div>
-
-## tasiyanc — post 5405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گذاشتن آیپی را ادامه بدیم یا نه؟
-آره ❤️
-نه 🍌
-</div>
-
-## tasiyanc — post 5404
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید گپ حوصلم سر رفته
-https://t.me/+qJ7oM-0GidY0NTY0
-</div>
-
-## tasiyanc — post 5403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبید انشااله؟
-</div>
-
-## tasiyanc — post 5402
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶   تست شده📶
-
-برای اتصال پایدار صبور باشید 🚀
-
-@Tasiyanc 🩵
 </div>
 
