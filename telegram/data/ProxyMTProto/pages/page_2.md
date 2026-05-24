@@ -1,8 +1,40 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/03 22:58
+📅 آخرین بروزرسانی: 1405/03/04 00:04
 
 ---
+
+## ProxyMTProto — post 47580
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Telegram опять еле дышит?
+
+BLYATNET фиксит это за минуту ⚡
+
+🚀 Быстрые MTProxy и VPN
+🛡 Стабильный доступ без мусора
+👨‍💻 Серверы по всему миру
+
+👾 От 5 ⭐ — дешевле чем стикер 👇
+</div>
+
+## ProxyMTProto — post 47579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: m.proxytg.space
+Port: 8443
+Secret: ee80ef2a7832ccab1a02cdad0a958a027a6d2e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47578
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www.tproxy.monster
+Port: 2053
+Secret: ee104462821249bd7ac519130220c25d096d61696c2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47577
 
@@ -154,33 +186,6 @@ Secret: 7kd_O40bfqH7vBqnDK2iL5R3d3cuZ29vZ2xlLmNvbQ
 Server: fastproxy.chunkycorp.shop
 Port: 443
 Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47560
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hop.proxytg.space
-Port: 8443
-Secret: eeabb8cea3a48990152aacc55985a913116262632e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47559
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: alpinavpn.hatecens.cc
-Port: 7443
-Secret: eef8dc254a4c2af8afcab54c8a5f9bb4fb616c70696e6176706e2e6861746563656e732e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47558
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: FREE.edgeCDN-static.com
-Port: 443
-Secret: eea1b2c3d4e5f6a7b8c9d0e1f2a3b4c5d66564676563646e2d7374617469632e636f6d
 @ProxyMTProto
 </div>
 

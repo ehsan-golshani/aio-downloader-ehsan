@@ -1,8 +1,40 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 22:58
+📅 آخرین بروزرسانی: 1405/03/04 00:04
 
 ---
+
+## ProxyMTProto — post 47600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tproxy.mom
+Port: 8090
+Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47599
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Telegram опять еле дышит?
+
+BLYATNET фиксит это за минуту ⚡
+
+🚀 Быстрые MTProxy и VPN
+🛡 Стабильный доступ без мусора
+🌍 Серверы по всему миру
+
+💫 От 5 ⭐ — дешевле чем стикер 👇
+</div>
+
+## ProxyMTProto — post 47598
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dreams.nolags.pw
+Port: 443
+Secret: dd2d558135931b5e0c5da5e7501724b32c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47597
 
@@ -154,38 +186,6 @@ Secret: eec11798ab008831b474066c9e1ebf5c81617669746f2e7275
 Server: fastproxy.chunkycorp.shop
 Port: 443
 Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47580
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Telegram опять еле дышит?
-
-BLYATNET фиксит это за минуту ⚡
-
-🚀 Быстрые MTProxy и VPN
-🛡 Стабильный доступ без мусора
-👨‍💻 Серверы по всему миру
-
-👾 От 5 ⭐ — дешевле чем стикер 👇
-</div>
-
-## ProxyMTProto — post 47579
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: m.proxytg.space
-Port: 8443
-Secret: ee80ef2a7832ccab1a02cdad0a958a027a6d2e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47578
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: www.tproxy.monster
-Port: 2053
-Secret: ee104462821249bd7ac519130220c25d096d61696c2e7275
 @ProxyMTProto
 </div>
 
