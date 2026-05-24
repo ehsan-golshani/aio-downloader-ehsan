@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 20:16
+📅 آخرین بروزرسانی: 1405/03/03 21:18
 
 ---
+
+## ProxyMTProto — post 47596
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: server-1.shustrik.world
+Port: 443
+Secret: ee53fed7a45b8fcb2ef5a2e0223c76bb4e766b766964656f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47595
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47594
 
@@ -168,24 +186,6 @@ Secret: ee104462821249bd7ac519130220c25d096d61696c2e7275
 Server: dream.nolags.pw
 Port: 443
 Secret: dd9b8378a9bc2bfc1eb0bed0c2b3ba7584
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47576
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 2.26.99.245
-Port: 8443
-Secret: ee17263409876123456712342349876554322e32362e39392e323435
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47575
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 176.125.240.195
-Port: 443
-Secret: eeae49fc0cb49514612b72494665fffa167777772e79616e6465782e7275
 @ProxyMTProto
 </div>
 

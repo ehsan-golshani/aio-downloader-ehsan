@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 20:18
+📅 آخرین بروزرسانی: 1405/03/03 21:20
 
 ---
+
+## tasiyanc — post 5451
+
+<div align="center"><a href="files/post_5451_JOCKER.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 JOCKER.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦦🤡
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5450
 
@@ -17,8 +30,6 @@
 </div>
 
 ## tasiyanc — post 5448
-
-<div align="center"><a href="files/post_5448_@Tasiyanc 620 resolver.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 620 resolver.txt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 620 resolver for WhiteDns 2️⃣
@@ -50,8 +61,6 @@ Join As @Tasiyanc ✅
 
 ## tasiyanc — post 5443
 
-<div align="center"><a href="files/post_5443_RİRA.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 RİRA.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 سرور  تست شده📶
 
@@ -68,8 +77,6 @@ Join As @Tasiyanc ✅
 
 ## tasiyanc — post 5441
 
-<div align="center"><a href="files/post_5441_Tufan (1).npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Tufan (1).npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 سرور  تست شده📶
 
@@ -79,8 +86,6 @@ Join As @Tasiyanc ✅
 </div>
 
 ## tasiyanc — post 5440
-
-<div align="center"><a href="files/post_5440_JohnWick.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 JohnWick.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 سرور  تست شده📶
@@ -160,16 +165,6 @@ Join as @Tasiyanc ✅
 </div>
 
 ## tasiyanc — post 5428
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 سرور  تست شده📶
-
-برای اتصال پایدار صبور باشید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5427
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 سرور  تست شده📶

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/03 20:18
+📅 آخرین بروزرسانی: 1405/03/03 21:20
 
 ---
+
+## tasiyanc — post 5401
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VyDns 🇫🇷 2 server slipnet-enc://AXC6vqBBilLFPfG9jfC0mownyPrs0/KWGXVGhkEvTq1/ud5/unuDLIQBFp5KlVRcFUqTVHOcNAPxEX4WjV1Bvr0Pv0/t54ufKsR2ne4Ukkj+juRb2w6lOgdKydp2lIOT1wxjV++XRy2WrV1gdmIS8WaCYznf6yPYVr4SKt2ZDvuziExcKuoYbwkTMFqmJyMXuFtCy/WWLlRmt9NPauruvaKJ5ZYUaVc…
+</div>
 
 ## tasiyanc — post 5400
 
@@ -324,12 +330,5 @@ Ip Shiro khorshid 🟢 & mahsang 6️⃣
 برنامه مورد نیاز🔑
 
 Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5379
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid 
-🟢 & mahsang 6️⃣ 37.191.95.70 185.137.25.146 78.157.41.60 185.141.106.238 185.88.178.196 78.157.41.60 185.50.37.52 185.208.175.228 5.144.129.174 185.208.174.167 185.141.106.238 164.138.17.122 164.138.17.122 5.160.13.85 164.138.17.122 185.141.106.238…
 </div>
 

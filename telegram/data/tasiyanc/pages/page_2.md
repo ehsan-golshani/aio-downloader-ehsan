@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/03 20:18
+📅 آخرین بروزرسانی: 1405/03/03 21:20
 
 ---
+
+## tasiyanc — post 5427
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc 🩵
+</div>
 
 ## tasiyanc — post 5426
 
@@ -185,11 +195,5 @@ https://t.me/+qJ7oM-0GidY0NTY0
 برای اتصال پایدار صبور باشید 🚀
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5401
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VyDns 🇫🇷 2 server slipnet-enc://AXC6vqBBilLFPfG9jfC0mownyPrs0/KWGXVGhkEvTq1/ud5/unuDLIQBFp5KlVRcFUqTVHOcNAPxEX4WjV1Bvr0Pv0/t54ufKsR2ne4Ukkj+juRb2w6lOgdKydp2lIOT1wxjV++XRy2WrV1gdmIS8WaCYznf6yPYVr4SKt2ZDvuziExcKuoYbwkTMFqmJyMXuFtCy/WWLlRmt9NPauruvaKJ5ZYUaVc…
 </div>
 
