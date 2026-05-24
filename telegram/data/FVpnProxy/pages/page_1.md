@@ -1,8 +1,17 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/02 13:02
+📅 آخرین بروزرسانی: 1405/03/03 14:20
 
 ---
+
+## FVpnProxy — post 479
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SecureID: 09giHff67ZGRUia1vMAehoKCe6zzqewTVcSIxfDMw=
+
+Encryption key:
+efb3f9c59c479e4aaef4f95587951a8d
+</div>
 
 ## FVpnProxy — post 478
 
@@ -673,11 +682,5 @@ Encryption key:
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چقد فشار بهش اومده نتونسته با کلاینت دیگه ای وصل بشه. رفته attack میزنه به سرور 😂😂😂
 چخه دو ریالی
-</div>
-
-## FVpnProxy — post 459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب مصرف از 100 گیگ گذشت. بابا سرور نامحدود نیست اینجور دانلود میکنید.
 </div>
 

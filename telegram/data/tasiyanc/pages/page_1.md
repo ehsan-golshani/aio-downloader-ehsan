@@ -1,12 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 12:19
+📅 آخرین بروزرسانی: 1405/03/03 14:20
 
 ---
 
-## tasiyanc — post 5424
+## tasiyanc — post 5431
 
-<div align="center"><a href="files/post_5424_@Tasiyanc 502 resolver .txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 502 resolver .txt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آدم کسخل نفهم باشه ولی مثل ادمین من ثنا خانم پررو و بی ذات و طلبکار نباشه ، کل پیام‌های مالک گروه پاک کرده طلبکارم هست جا اینکه بگه *وه خوردم
+</div>
+
+## tasiyanc — post 5430
+
+<div align="center"><a href="files/post_5430_niche ✍🏻.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 niche ✍🏻.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا این همه ری اکشن حق من است؟
+</div>
+
+## tasiyanc — post 5428
+
+<div align="center"><a href="files/post_5428_bivafa.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 bivafa.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5427
+
+<div align="center"><a href="files/post_5427_Hitman ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Hitman ⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5426
+
+<div align="center"><a href="files/post_5426_@Tasiyanc 🌱🌤️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🌱🌤️.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 2 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5425
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نسخه جدید شیرخورشید خیلی باگ داره امیدوارم تیم خوبش تو آپدیت بعدی برطرف کنند ، توصیه به دانلود نمیکنم
+</div>
+
+## tasiyanc — post 5424
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 502 resolver for WhiteDns 2️⃣
@@ -19,8 +83,6 @@ Join As @Tasiyanc ✅
 </div>
 
 ## tasiyanc — post 5423
-
-<div align="center"><a href="files/post_5423_@Tasiyanc 639 ip.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 639 ip.txt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 639 IPs For Shiro khorshid New Upd 🟢
@@ -72,8 +134,6 @@ Join @Tasiyanc ✅
 </div>
 
 ## tasiyanc — post 5414
-
-<div align="center"><a href="files/post_5414_ShirOKhorshid-2026.05.24.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ShirOKhorshid-2026.05.24.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 New update 👑
@@ -144,59 +204,5 @@ Join As @Tasiyanc ✅
 White dns Resolver & config
 
 بزاریم ❤️ نزاریم 🍌
-</div>
-
-## tasiyanc — post 5405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گذاشتن آیپی را ادامه بدیم یا نه؟
-آره ❤️
-نه 🍌
-</div>
-
-## tasiyanc — post 5404
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید گپ حوصلم سر رفته
-https://t.me/+qJ7oM-0GidY0NTY0
-</div>
-
-## tasiyanc — post 5403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبید انشااله؟
-</div>
-
-## tasiyanc — post 5402
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶   تست شده📶
-
-برای اتصال پایدار صبور باشید 🚀
-
-@Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5401
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VyDns 🇫🇷 2 server slipnet-enc://AXC6vqBBilLFPfG9jfC0mownyPrs0/KWGXVGhkEvTq1/ud5/unuDLIQBFp5KlVRcFUqTVHOcNAPxEX4WjV1Bvr0Pv0/t54ufKsR2ne4Ukkj+juRb2w6lOgdKydp2lIOT1wxjV++XRy2WrV1gdmIS8WaCYznf6yPYVr4SKt2ZDvuziExcKuoYbwkTMFqmJyMXuFtCy/WWLlRmt9NPauruvaKJ5ZYUaVc…
-</div>
-
-## tasiyanc — post 5400
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VyDns 🇫🇷 2 server
-
-slipnet-enc://AXC6vqBBilLFPfG9jfC0mownyPrs0/KWGXVGhkEvTq1/ud5/unuDLIQBFp5KlVRcFUqTVHOcNAPxEX4WjV1Bvr0Pv0/t54ufKsR2ne4Ukkj+juRb2w6lOgdKydp2lIOT1wxjV++XRy2WrV1gdmIS8WaCYznf6yPYVr4SKt2ZDvuziExcKuoYbwkTMFqmJyMXuFtCy/WWLlRmt9NPauruvaKJ5ZYUaVczaEIQIrs6xrXbRxXxt12TIXVGQIcG2BCU5VxOfi+nmOtrPQg+hMjKLVAGurs16p+fZ9X8aCoyYxmomq2yrSLXmmSwe5qpfI0UuCd3dAMnzpO2PM8uYYtewx45tjrbnJQmS3Wq1fkjyK+kdpRVcSNKDpaHivsIi8fE42D2QtmXiAOMg8yIWU9zctHvacJ2v8glcWzxh6FFcOSjBhergo9pEjeI4UqfKF/wFtpGSGRWYNIIG+1dD1MPOizdoiSMhOHBt8Sfwcp3gRuf4tcxVGDv4xoIzUK1vx4D6FCPQroBm0ZbLrISv4FMUsF5GYIDlwJKcVzmQjTuiG22NhxxVW6gai5LHDQs9AhNYXQ4/eUcqoUodqIZbEqJX5/TRxNADQgV1L8G2RI2HL1sTDdOnV5KU4g9+XeW7DHbmYbZS/TQI8U0Oe//ql5DcpLaqpFK1Yd8XacuxxNvgcHaESgIVMB0DAKRp2f9Ar/I1mqXgF2nm4Xu3bYquSqZdjzQ2HR2C2YWIyyqW4RxK9tqmnr9HwYvrPTLOJAMZm+4HYkCxBmvDaCGZi0RfgxPCUE/GuOIy7vCkiQu99hg3BZuk173xq21bAsJ3m6IraQyPYiq381Gf18/SHEjY0d+rgc6tVLzqvuVxwS/YTPszQ==
-slipnet-enc://ARZgT1Sc3rmT/BllzsZ0j1Hrgysz0VuofrxYrHydZb5sa4krL5RGNtHnsWUajYPocWJywnBxpKv0bpSON/A5FmqvMGbEeXXBvtmzgLbEY4pF2r7MMrTIoJkv/otqz5ZDDcCittZjY/UNsr67JX+n+QeYs3yyXg+EepxMO/ezLT+YKpAexcFSbk3Z+OG3KsbAa5bkA6l8uVhKztdXXlNsTSlAVYnBL0jm/yB0I5YEuHkvRy3hoK8ZtY0x7Ee5lZk3Jo4uKzoN9X5LGHLNkv0B6k43Dr9keRd3ODLNKGzR/1yPmJjUbcwEGgI0RacJxoiIRy901mfblX/DntQWdIZBdZ5jhvWbyDetW0pCSqT2qlzD+moDVoo1a/G9wpz91wytRK1v+3ngVYAjRSJQLG+S1Bjj9xfeiJ5qx1IEuHmfLXDFCKFSF+Z+xzYluXKMHZXzWgc5I5Iw1XzfVrd9EQh1A5j35DgweK+UmlVf1MKhh+65sIDEjN4oAtUF5pxkU6bm2m7ID0qCsaO8xgVMXViyXL8W8sg6M/NJxZUf5FpYku2Ymc9fKB0w9kmUZy/aN9nGda6UhewZtDRfD+ZlCBSg6QTAzmqZGqlKOOK2zt3j+9gdphCBFL0njnhawhD8z8MDOJQbBbIneuEizHxYob79mKokYfKTEpjZ0fpAEHOOuuUCjEGchkKcs4xUrDxLBzLVQzqxjvIUqyqwjtlt8ofiRe5l2q2nU1bffpMD7AkP4AiWrj2G0J1fLeH1UfzMoNzOHkdn8jnlYwfgl8vVM2cwJAclkaDBSqI=
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5399
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دهنتو املاکی
 </div>
 

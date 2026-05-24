@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/03 12:17
+📅 آخرین بروزرسانی: 1405/03/03 14:18
 
 ---
+
+## ProxyMTProto — post 47568
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 94.125.102.217
+Port: 443
+Secret: ee244217408227effcd6234e992d9bd9827777772e77702e706c
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: premium1.fsproxy.site
+Port: 443
+Secret: eed29605852bf2e034c63c6f866062600f696e2e6d7974686963616c2e686f757365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47566
 
@@ -162,24 +180,6 @@ Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
 Server: 186.246.20.144
 Port: 443
 Secret: eec11798ab008831b474066c9e1ebf5c87617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47548
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: amoreszi2.duckdns.org
-Port: 8443
-Secret: 7kd_O40bfqH7vBqnDK2iL5R3d3cuZ29vZ2xlLmNvbQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47547
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: peyk.acharbashi.info
-Port: 4515
-Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
