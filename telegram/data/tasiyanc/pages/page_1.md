@@ -1,12 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 03:16
+📅 آخرین بروزرسانی: 1405/03/03 05:23
 
 ---
 
-## tasiyanc — post 5407
+## tasiyanc — post 5409
 
-<div align="center"><a href="files/post_5407_Mylady.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Mylady.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 Config for whiteDns 3️⃣
+🟡 mode
+
+
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiwrMgQFRhc2l5YW5jIPCfqr0iLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwMS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaXJfU2VmaWQiLCJlbmNyeXB0aW9uX21ldGhvZCI6MX19fQ
+
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoi4oG0IEBUYXNpeWFuYyIsInNlcnZlciI6eyJkb21haW4iOiJjaXAyLm1hc2lyLXNlZmlkLm15IiwiZW5jcnlwdGlvbl9rZXkiOiJUZWxlZ3JhbS1DaGFubmVsLS0tPkBNYXNpcl9TZWZpZCIsImVuY3J5cHRpb25fbWV0aG9kIjoxfX19
+
+🎚 آموزش اتصال 🎚
+برنامه مورد نیاز 👈
+Resolvers 👈
+
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5407
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶   تست شده📶
@@ -47,8 +63,6 @@ https://t.me/+qJ7oM-0GidY0NTY0
 
 ## tasiyanc — post 5402
 
-<div align="center"><a href="files/post_5402_🪽@Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🪽@Tasiyanc.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶   تست شده📶
 
@@ -81,8 +95,6 @@ slipnet-enc://ARZgT1Sc3rmT/BllzsZ0j1Hrgysz0VuofrxYrHydZb5sa4krL5RGNtHnsWUajYPocW
 </div>
 
 ## tasiyanc — post 5398
-
-<div align="center"><a href="files/post_5398_Tasiyanc baby.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Tasiyanc baby.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶   تست شده📶
@@ -159,12 +171,5 @@ Proxy mode
 ⭕️فوری ترامپ
 پیش‌نویس تفاهم‌نامه‌ای با ایران تا حد زیادی مذاکره شده، در حال نهایی شدن است و به زودی اعلام خواهد شد.
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5386
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️فوری تنگه هرمز باز شد و مذاکرات هسته ای تا دوماه آینده تمدید شد .
-تایید نشده
 </div>
 

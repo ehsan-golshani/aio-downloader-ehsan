@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/03 03:16
+📅 آخرین بروزرسانی: 1405/03/03 05:23
 
 ---
+
+## tasiyanc — post 5361
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+100.000 هزار بار حالت پرواز بزارید
+آیپی ۲۶ بیوفته
+</div>
 
 ## tasiyanc — post 5360
 

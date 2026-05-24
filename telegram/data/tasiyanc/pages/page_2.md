@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/03 03:16
+📅 آخرین بروزرسانی: 1405/03/03 05:23
 
 ---
+
+## tasiyanc — post 5386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️فوری تنگه هرمز باز شد و مذاکرات هسته ای تا دوماه آینده تمدید شد .
+تایید نشده
+</div>
 
 ## tasiyanc — post 5385
 
@@ -574,12 +581,5 @@ Join @Tasiyanc ✅
 🔘Port   8080
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5361
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-100.000 هزار بار حالت پرواز بزارید
-آیپی ۲۶ بیوفته
 </div>
 
