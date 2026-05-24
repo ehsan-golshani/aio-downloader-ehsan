@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/03 14:20
+📅 آخرین بروزرسانی: 1405/03/03 15:39
 
 ---
+
+## tasiyanc — post 5409
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 Config for whiteDns 3️⃣
+🟡 mode
+
+
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiwrMgQFRhc2l5YW5jIPCfqr0iLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwMS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaXJfU2VmaWQiLCJlbmNyeXB0aW9uX21ldGhvZCI6MX19fQ
+
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoi4oG0IEBUYXNpeWFuYyIsInNlcnZlciI6eyJkb21haW4iOiJjaXAyLm1hc2lyLXNlZmlkLm15IiwiZW5jcnlwdGlvbl9rZXkiOiJUZWxlZ3JhbS1DaGFubmVsLS0tPkBNYXNpcl9TZWZpZCIsImVuY3J5cHRpb25fbWV0aG9kIjoxfX19
+
+🎚 آموزش اتصال 🎚
+برنامه مورد نیاز 👈
+Resolvers 👈
+
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5407
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶   تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+White dns Resolver & config
+
+بزاریم ❤️ نزاریم 🍌
+</div>
 
 ## tasiyanc — post 5405
 
@@ -135,36 +171,5 @@ Proxy mode
 ⭕️فوری ترامپ
 پیش‌نویس تفاهم‌نامه‌ای با ایران تا حد زیادی مذاکره شده، در حال نهایی شدن است و به زودی اعلام خواهد شد.
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5386
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️فوری تنگه هرمز باز شد و مذاکرات هسته ای تا دوماه آینده تمدید شد .
-تایید نشده
-</div>
-
-## tasiyanc — post 5385
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-839 Resolver WhiteDns 3️⃣
-
-Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5384
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 Config for whiteDns 3️⃣
-🟡 mode
-
-
-stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiMSBAVGFzaXlhbmMiLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwNS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaXJfU2VmaWQiLCJlbmNyeXB0aW9uX21ldGhvZCI6MX19fQ
-stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiMiBAVGFzaXlhbmMiLCJzZXJ2ZXIiOnsiZG9tYWluIjoidmlwLm1hc2lyLXNlZmlkLm15IiwiZW5jcnlwdGlvbl9rZXkiOiJUZWxlZ3JhbS1DaGFubmVsLS0tPkBNYXNpcl9TZWZpZCIsImVuY3J5cHRpb25fbWV0aG9kIjoxfX19
-
-🎚 آموزش اتصال 🎚
-
-برنامه مورد نیاز 👈
-Join As @Tasiyanc ✅
 </div>
 

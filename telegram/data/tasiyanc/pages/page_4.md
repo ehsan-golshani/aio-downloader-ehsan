@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/03 14:20
+📅 آخرین بروزرسانی: 1405/03/03 15:39
 
 ---
+
+## tasiyanc — post 5361
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+100.000 هزار بار حالت پرواز بزارید
+آیپی ۲۶ بیوفته
+</div>
+
+## tasiyanc — post 5360
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ع بین ۹۲۷ آیپی این آیپی ها با نتورک اسکنر اسکن شده پینگ عالی دادن ، امیدوارم وصل بشید ❤️
+</div>
+
+## tasiyanc — post 5355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ip Shiro khorshid 🟢 & mahsang 6️⃣ 185.141.106.238 185.208.175.228 5.160.13.85 78.157.41.60 37.191.95.70 5.160.13.85 5.160.13.85 80.191.243.226 109.72.197.1 80.191.243.226 ❤️ تست شده 🚀🛜 اموزش اتصال 👈 برنامه مورد نیاز🔑 Join @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5354
 

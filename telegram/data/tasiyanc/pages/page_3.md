@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/03 14:20
+📅 آخرین بروزرسانی: 1405/03/03 15:39
 
 ---
+
+## tasiyanc — post 5386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️فوری تنگه هرمز باز شد و مذاکرات هسته ای تا دوماه آینده تمدید شد .
+تایید نشده
+</div>
+
+## tasiyanc — post 5385
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+839 Resolver WhiteDns 3️⃣
+
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 Config for whiteDns 3️⃣
+🟡 mode
+
+
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiMSBAVGFzaXlhbmMiLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwNS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaXJfU2VmaWQiLCJlbmNyeXB0aW9uX21ldGhvZCI6MX19fQ
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiMiBAVGFzaXlhbmMiLCJzZXJ2ZXIiOnsiZG9tYWluIjoidmlwLm1hc2lyLXNlZmlkLm15IiwiZW5jcnlwdGlvbl9rZXkiOiJUZWxlZ3JhbS1DaGFubmVsLS0tPkBNYXNpcl9TZWZpZCIsImVuY3J5cHRpb25fbWV0aG9kIjoxfX19
+
+🎚 آموزش اتصال 🎚
+
+برنامه مورد نیاز 👈
+Join As @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5383
 
@@ -550,24 +581,5 @@ Join @Tasiyanc ✅
 🔘Port   8080
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5361
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-100.000 هزار بار حالت پرواز بزارید
-آیپی ۲۶ بیوفته
-</div>
-
-## tasiyanc — post 5360
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ع بین ۹۲۷ آیپی این آیپی ها با نتورک اسکنر اسکن شده پینگ عالی دادن ، امیدوارم وصل بشید ❤️
-</div>
-
-## tasiyanc — post 5355
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid 🟢 & mahsang 6️⃣ 185.141.106.238 185.208.175.228 5.160.13.85 78.157.41.60 37.191.95.70 5.160.13.85 5.160.13.85 80.191.243.226 109.72.197.1 80.191.243.226 ❤️ تست شده 🚀🛜 اموزش اتصال 👈 برنامه مورد نیاز🔑 Join @Tasiyanc ✅
 </div>
 

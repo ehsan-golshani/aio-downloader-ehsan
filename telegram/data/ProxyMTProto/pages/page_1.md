@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 14:18
+📅 آخرین بروزرسانی: 1405/03/03 15:37
 
 ---
+
+## ProxyMTProto — post 47589
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dreams.nolags.pw
+Port: 443
+Secret: dd2d558135931b5e0c5da5e7501724b32c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47588
 
@@ -177,15 +186,6 @@ Secret: eec11798ab008831b474066c9e1ebf5c85617669746f2e7275
 Server: speed.chunkycorp.shop
 Port: 443
 Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: plg-proxy.duckdns.org
-Port: 9443
-Secret: 7nI_RL0Z_1CkMYeMay0LRqBwbGctcHJveHkuZHVja2Rucy5vcmc
 @ProxyMTProto
 </div>
 
