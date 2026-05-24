@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/03 17:37
+📅 آخرین بروزرسانی: 1405/03/03 19:09
 
 ---
+
+## tasiyanc — post 5364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅فروش بازه
+@Startasiyan
+
+هر گیگ استارلینک مناسب ترید و کار های مهم 290
+هر گیگ معمولی سرعت خوب مناسب وب‌گردی - اینستاگرام یوتوب تلگرام 220
+جهت خرید ثبت سفارش کنین
+</div>
 
 ## tasiyanc — post 5363
 
@@ -211,11 +222,5 @@ Nigan (1).npvt
 برای اتصال پایدار صبور باشید 😐
 
 @Tasiyanc 🩵
-</div>
-
-## tasiyanc — post 5333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینستا هم باز کرد
 </div>
 

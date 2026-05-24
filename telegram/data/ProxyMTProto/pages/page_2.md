@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/03 17:35
+📅 آخرین بروزرسانی: 1405/03/03 19:07
 
 ---
+
+## ProxyMTProto — post 47573
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 89.35.131.217
+Port: 443
+Secret: ee21406fa1321a733a9fe7edd39ddbe4fe7777772e79616e6465782e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47572
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wave.proxyu.site
+Port: 8443
+Secret: ee38a4d5d648d6af5196c71c2018eb6fa6776176652e70726f7879752e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47571
 
@@ -163,23 +181,5 @@ Secret: FgMBAgABAAH8AxOG4kw63Q
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 2000 hours.
-</div>
-
-## ProxyMTProto — post 47553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: artt.proxytg.space
-Port: 443
-Secret: ee859265446d8bb72e53291612281d57e26d61782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: win.sosproxy.space
-Port: 443
-Secret: ee477ccce74a28c13a2ef6ec9e01510c3164726976652e676f6f676c652e636f6d
-@ProxyMTProto
 </div>
 

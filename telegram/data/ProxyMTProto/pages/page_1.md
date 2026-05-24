@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 17:35
+📅 آخرین بروزرسانی: 1405/03/03 19:07
 
 ---
+
+## ProxyMTProto — post 47593
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s.proxytg.space
+Port: 8443
+Secret: eefefc4f17248e59437bb451447a9170b2732e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47592
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 195.133.20.10
+Port: 443
+Secret: 7sEXmKsAiDG0dAZsnh6_XIJhdml0by5ydQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47591
 
@@ -168,24 +186,6 @@ Secret: eeae49fc0cb49514612b72494665fffa167777772e79616e6465782e7275
 Server: tproxy.mom
 Port: 8090
 Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47573
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 89.35.131.217
-Port: 443
-Secret: ee21406fa1321a733a9fe7edd39ddbe4fe7777772e79616e6465782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47572
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: wave.proxyu.site
-Port: 8443
-Secret: ee38a4d5d648d6af5196c71c2018eb6fa6776176652e70726f7879752e73697465
 @ProxyMTProto
 </div>
 

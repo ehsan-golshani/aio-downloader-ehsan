@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/03 17:37
+📅 آخرین بروزرسانی: 1405/03/03 19:09
 
 ---
+
+## tasiyanc — post 5414
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New update 👑
+لینک دانلود داخلی
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5410
 
@@ -185,11 +194,5 @@ Proxy mode
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رسمی خبرگذاری فارس وابسته به سپاه تکذیب کرد ادعاهای ترامپو
-</div>
-
-## tasiyanc — post 5390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 Config for whiteDns 3️⃣ 🟡 mode stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiMSBAVGFzaXlhbmMiLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwNS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaX…
 </div>
 

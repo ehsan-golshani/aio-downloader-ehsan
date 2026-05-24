@@ -1,12 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 17:37
+📅 آخرین بروزرسانی: 1405/03/03 19:09
 
 ---
 
-## tasiyanc — post 5438
+## tasiyanc — post 5439
 
-<div align="center"><a href="files/post_5438_Rasu ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Rasu ⚡.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بسته هست
+</div>
+
+## tasiyanc — post 5438
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 سرور  تست شده📶
@@ -166,14 +170,5 @@ Join @Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 لینک داخلی قرار داده شد
-</div>
-
-## tasiyanc — post 5414
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New update 👑
-لینک دانلود داخلی
-
-@Tasiyanc ✅
 </div>
 
