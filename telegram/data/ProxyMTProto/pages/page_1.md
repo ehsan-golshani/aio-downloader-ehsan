@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 09:41
+📅 آخرین بروزرسانی: 1405/03/03 12:17
 
 ---
+
+## ProxyMTProto — post 47586
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: amoreszi.duckdns.org
+Port: 443
+Secret: 7uZ0yg4fr7vIQ5i_MUfeWQB3d3cuYXBwbGUuY29t
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47585
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tproxy.ink
+Port: 443
+Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47584
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: public4.mtproxygram.lol
+Port: 443
+Secret: ee09839bacb75811a19dec37d274273f8f62726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47583
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 79.137.196.223
+Port: 5443
+Secret: eeee1b84950935ebf99951bc30e394445c9b7777772e636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47582
 
@@ -150,42 +186,6 @@ Secret: ee244217408227effcd6234e992d9bd9827777772e77702e706c
 Server: premium1.fsproxy.site
 Port: 443
 Secret: eed29605852bf2e034c63c6f866062600f696e2e6d7974686963616c2e686f757365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47566
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hop.proxytg.space
-Port: 8443
-Secret: eeabb8cea3a48990152aacc55985a913116262632e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47565
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: in.mythical.house
-Port: 443
-Secret: eeecc03a8eabe3443a254a09bcd5681d75696e2e6d7974686963616c2e686f757365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47564
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 178.105.168.17
-Port: 443
-Secret: eeb67e98429f3ba8896ff33ab9ff9d18a1676f6f676c65617069732e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47563
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.16.232
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c85617669746f2e7275
 @ProxyMTProto
 </div>
 
