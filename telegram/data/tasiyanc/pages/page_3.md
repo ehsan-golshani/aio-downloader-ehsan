@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/03 15:39
+📅 آخرین بروزرسانی: 1405/03/03 17:37
 
 ---
+
+## tasiyanc — post 5387
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️فوری ترامپ
+پیش‌نویس تفاهم‌نامه‌ای با ایران تا حد زیادی مذاکره شده، در حال نهایی شدن است و به زودی اعلام خواهد شد.
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5386
 
@@ -570,16 +578,5 @@ Join @Tasiyanc ✅
 هر گیگ استارلینک مناسب ترید و کار های مهم 290
 هر گیگ معمولی سرعت خوب مناسب وب‌گردی - اینستاگرام یوتوب تلگرام 220
 جهت خرید ثبت سفارش کنین
-</div>
-
-## tasiyanc — post 5363
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛡 proxy
-
-🔘Host 188.121.112.175
-🔘Port   8080
-
-@Tasiyanc ✅
 </div>
 

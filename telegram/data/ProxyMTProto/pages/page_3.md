@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/03 15:37
+📅 آخرین بروزرسانی: 1405/03/03 17:35
 
 ---
+
+## ProxyMTProto — post 47551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ru.vip.mambabot.net
+Port: 443
+Secret: eeeb1d43653f046c18653280379226bee17275747562652e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47550
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tg.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47549
 

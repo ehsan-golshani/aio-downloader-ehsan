@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/03 15:37
+📅 آخرین بروزرسانی: 1405/03/03 17:35
 
 ---
+
+## ProxyMTProto — post 47571
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 72.56.41.35
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c85617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47570
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: speed.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47569
 
@@ -162,24 +180,6 @@ Secret: ee859265446d8bb72e53291612281d57e26d61782e7275
 Server: win.sosproxy.space
 Port: 443
 Secret: ee477ccce74a28c13a2ef6ec9e01510c3164726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ru.vip.mambabot.net
-Port: 443
-Secret: eeeb1d43653f046c18653280379226bee17275747562652e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47550
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tg.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
 @ProxyMTProto
 </div>
 

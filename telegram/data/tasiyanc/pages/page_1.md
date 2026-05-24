@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 15:39
+📅 آخرین بروزرسانی: 1405/03/03 17:37
 
 ---
+
+## tasiyanc — post 5438
+
+<div align="center"><a href="files/post_5438_Rasu ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Rasu ⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 سرور  تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5434
 
@@ -161,34 +173,6 @@ Join @Tasiyanc ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 New update 👑
 لینک دانلود داخلی
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5410
-
-<div align="center"><img src="files/post_5410_tasiyanc_5410.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آپدیت جدید کلاینت شیر و خورشید 2026.05.24:
-
-- آپدیت Beast Mode برای درست کار کردن روی CDN Fronting
-
-- اضافه شدن اسکنر ای‌پی. برنامه لیست خیلی بزرگی از ای‌پی های ممکن را داره٬ پس اگر در اتصال مشکلی دارید پیشنهاد میکنم تنظیمات قدیمی ای‌پی ها و SNI رو از قسمت settings برنامه حذف کنید (خالی باشه)‌ و اجازه بدید برنامه خودش کار رو انجام بده. دقت کنید ممکن هست بار اول خیلی طول بکشه٬ حتی چند ساعت!
-
-- اضافه شدن پروتکل های بیشتری که با CDN Fronting کار میکنند. احتمال اتصالتون و سرعت باید یکمی بهتر باشه الان
-
-- قابلیت غیر فعال کردن سایتی که زمان اتصال٬ سایفون باز میکنه!
-
-- قابلیت تنظیم پورت مورد نظر خودتون برای LAN Proxy ها.
-
-- قابلیت تنظیم username و password مورد نظر خودتون برای LAN Proxy ها. این تنظیم دلخواه است و اگر تنظیم کنید فقط با این username و password در شبکه خانگی میتونن به شما وصل بشوند.
-
-- آپدیت شدن هسته سایفون
-
-میتونید از اینجا دانلود و نصب کنید و ممنون میشم اگه به اشتراک بگذارید که تعداد بیشتری ببینند:
-
-https://github.com/shirokhorshid/shirokhorshid-android/releases/tag/v2026.05.24-a3b91cf
 
 @Tasiyanc ✅
 </div>

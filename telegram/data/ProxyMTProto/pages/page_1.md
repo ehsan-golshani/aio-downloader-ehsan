@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/03 15:37
+📅 آخرین بروزرسانی: 1405/03/03 17:35
 
 ---
+
+## ProxyMTProto — post 47591
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: speed.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47590
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 31.207.5.58
+Port: 443
+Secret: ee997f8741c0919f7b1e8a2c47d9bc1b106d61782e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47589
 
@@ -168,24 +186,6 @@ Secret: ee21406fa1321a733a9fe7edd39ddbe4fe7777772e79616e6465782e7275
 Server: wave.proxyu.site
 Port: 8443
 Secret: ee38a4d5d648d6af5196c71c2018eb6fa6776176652e70726f7879752e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47571
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 72.56.41.35
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c85617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47570
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: speed.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
 @ProxyMTProto
 </div>
 
