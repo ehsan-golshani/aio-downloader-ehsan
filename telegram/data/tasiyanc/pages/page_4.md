@@ -1,8 +1,129 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/04 03:18
+📅 آخرین بروزرسانی: 1405/03/04 05:29
 
 ---
+
+## tasiyanc — post 5414
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New update 👑
+لینک دانلود داخلی
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5410
+
+<div align="center"><img src="files/post_5410_tasiyanc_5410.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آپدیت جدید کلاینت شیر و خورشید 2026.05.24:
+
+- آپدیت Beast Mode برای درست کار کردن روی CDN Fronting
+
+- اضافه شدن اسکنر ای‌پی. برنامه لیست خیلی بزرگی از ای‌پی های ممکن را داره٬ پس اگر در اتصال مشکلی دارید پیشنهاد میکنم تنظیمات قدیمی ای‌پی ها و SNI رو از قسمت settings برنامه حذف کنید (خالی باشه)‌ و اجازه بدید برنامه خودش کار رو انجام بده. دقت کنید ممکن هست بار اول خیلی طول بکشه٬ حتی چند ساعت!
+
+- اضافه شدن پروتکل های بیشتری که با CDN Fronting کار میکنند. احتمال اتصالتون و سرعت باید یکمی بهتر باشه الان
+
+- قابلیت غیر فعال کردن سایتی که زمان اتصال٬ سایفون باز میکنه!
+
+- قابلیت تنظیم پورت مورد نظر خودتون برای LAN Proxy ها.
+
+- قابلیت تنظیم username و password مورد نظر خودتون برای LAN Proxy ها. این تنظیم دلخواه است و اگر تنظیم کنید فقط با این username و password در شبکه خانگی میتونن به شما وصل بشوند.
+
+- آپدیت شدن هسته سایفون
+
+میتونید از اینجا دانلود و نصب کنید و ممنون میشم اگه به اشتراک بگذارید که تعداد بیشتری ببینند:
+
+https://github.com/shirokhorshid/shirokhorshid-android/releases/tag/v2026.05.24-a3b91cf
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5409
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 Config for whiteDns 3️⃣
+🟡 mode
+
+
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiwrMgQFRhc2l5YW5jIPCfqr0iLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwMS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaXJfU2VmaWQiLCJlbmNyeXB0aW9uX21ldGhvZCI6MX19fQ
+
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoi4oG0IEBUYXNpeWFuYyIsInNlcnZlciI6eyJkb21haW4iOiJjaXAyLm1hc2lyLXNlZmlkLm15IiwiZW5jcnlwdGlvbl9rZXkiOiJUZWxlZ3JhbS1DaGFubmVsLS0tPkBNYXNpcl9TZWZpZCIsImVuY3J5cHRpb25fbWV0aG9kIjoxfX19
+
+🎚 آموزش اتصال 🎚
+برنامه مورد نیاز 👈
+Resolvers 👈
+
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5407
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶   تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+White dns Resolver & config
+
+بزاریم ❤️ نزاریم 🍌
+</div>
+
+## tasiyanc — post 5405
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گذاشتن آیپی را ادامه بدیم یا نه؟
+آره ❤️
+نه 🍌
+</div>
+
+## tasiyanc — post 5404
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید گپ حوصلم سر رفته
+https://t.me/+qJ7oM-0GidY0NTY0
+</div>
+
+## tasiyanc — post 5403
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید انشااله؟
+</div>
+
+## tasiyanc — post 5402
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶   تست شده📶
+
+برای اتصال پایدار صبور باشید 🚀
+
+@Tasiyanc 🩵
+</div>
+
+## tasiyanc — post 5401
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VyDns 🇫🇷 2 server slipnet-enc://AXC6vqBBilLFPfG9jfC0mownyPrs0/KWGXVGhkEvTq1/ud5/unuDLIQBFp5KlVRcFUqTVHOcNAPxEX4WjV1Bvr0Pv0/t54ufKsR2ne4Ukkj+juRb2w6lOgdKydp2lIOT1wxjV++XRy2WrV1gdmIS8WaCYznf6yPYVr4SKt2ZDvuziExcKuoYbwkTMFqmJyMXuFtCy/WWLlRmt9NPauruvaKJ5ZYUaVc…
+</div>
+
+## tasiyanc — post 5400
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VyDns 🇫🇷 2 server
+
+slipnet-enc://AXC6vqBBilLFPfG9jfC0mownyPrs0/KWGXVGhkEvTq1/ud5/unuDLIQBFp5KlVRcFUqTVHOcNAPxEX4WjV1Bvr0Pv0/t54ufKsR2ne4Ukkj+juRb2w6lOgdKydp2lIOT1wxjV++XRy2WrV1gdmIS8WaCYznf6yPYVr4SKt2ZDvuziExcKuoYbwkTMFqmJyMXuFtCy/WWLlRmt9NPauruvaKJ5ZYUaVczaEIQIrs6xrXbRxXxt12TIXVGQIcG2BCU5VxOfi+nmOtrPQg+hMjKLVAGurs16p+fZ9X8aCoyYxmomq2yrSLXmmSwe5qpfI0UuCd3dAMnzpO2PM8uYYtewx45tjrbnJQmS3Wq1fkjyK+kdpRVcSNKDpaHivsIi8fE42D2QtmXiAOMg8yIWU9zctHvacJ2v8glcWzxh6FFcOSjBhergo9pEjeI4UqfKF/wFtpGSGRWYNIIG+1dD1MPOizdoiSMhOHBt8Sfwcp3gRuf4tcxVGDv4xoIzUK1vx4D6FCPQroBm0ZbLrISv4FMUsF5GYIDlwJKcVzmQjTuiG22NhxxVW6gai5LHDQs9AhNYXQ4/eUcqoUodqIZbEqJX5/TRxNADQgV1L8G2RI2HL1sTDdOnV5KU4g9+XeW7DHbmYbZS/TQI8U0Oe//ql5DcpLaqpFK1Yd8XacuxxNvgcHaESgIVMB0DAKRp2f9Ar/I1mqXgF2nm4Xu3bYquSqZdjzQ2HR2C2YWIyyqW4RxK9tqmnr9HwYvrPTLOJAMZm+4HYkCxBmvDaCGZi0RfgxPCUE/GuOIy7vCkiQu99hg3BZuk173xq21bAsJ3m6IraQyPYiq381Gf18/SHEjY0d+rgc6tVLzqvuVxwS/YTPszQ==
+slipnet-enc://ARZgT1Sc3rmT/BllzsZ0j1Hrgysz0VuofrxYrHydZb5sa4krL5RGNtHnsWUajYPocWJywnBxpKv0bpSON/A5FmqvMGbEeXXBvtmzgLbEY4pF2r7MMrTIoJkv/otqz5ZDDcCittZjY/UNsr67JX+n+QeYs3yyXg+EepxMO/ezLT+YKpAexcFSbk3Z+OG3KsbAa5bkA6l8uVhKztdXXlNsTSlAVYnBL0jm/yB0I5YEuHkvRy3hoK8ZtY0x7Ee5lZk3Jo4uKzoN9X5LGHLNkv0B6k43Dr9keRd3ODLNKGzR/1yPmJjUbcwEGgI0RacJxoiIRy901mfblX/DntQWdIZBdZ5jhvWbyDetW0pCSqT2qlzD+moDVoo1a/G9wpz91wytRK1v+3ngVYAjRSJQLG+S1Bjj9xfeiJ5qx1IEuHmfLXDFCKFSF+Z+xzYluXKMHZXzWgc5I5Iw1XzfVrd9EQh1A5j35DgweK+UmlVf1MKhh+65sIDEjN4oAtUF5pxkU6bm2m7ID0qCsaO8xgVMXViyXL8W8sg6M/NJxZUf5FpYku2Ymc9fKB0w9kmUZy/aN9nGda6UhewZtDRfD+ZlCBSg6QTAzmqZGqlKOOK2zt3j+9gdphCBFL0njnhawhD8z8MDOJQbBbIneuEizHxYob79mKokYfKTEpjZ0fpAEHOOuuUCjEGchkKcs4xUrDxLBzLVQzqxjvIUqyqwjtlt8ofiRe5l2q2nU1bffpMD7AkP4AiWrj2G0J1fLeH1UfzMoNzOHkdn8jnlYwfgl8vVM2cwJAclkaDBSqI=
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5399
 
@@ -73,393 +194,5 @@ Proxy mode
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رسمی خبرگذاری فارس وابسته به سپاه تکذیب کرد ادعاهای ترامپو
-</div>
-
-## tasiyanc — post 5390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 Config for whiteDns 3️⃣ 🟡 mode stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiMSBAVGFzaXlhbmMiLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwNS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaX…
-</div>
-
-## tasiyanc — post 5387
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️فوری ترامپ
-پیش‌نویس تفاهم‌نامه‌ای با ایران تا حد زیادی مذاکره شده، در حال نهایی شدن است و به زودی اعلام خواهد شد.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5386
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️فوری تنگه هرمز باز شد و مذاکرات هسته ای تا دوماه آینده تمدید شد .
-تایید نشده
-</div>
-
-## tasiyanc — post 5385
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-839 Resolver WhiteDns 3️⃣
-
-Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5384
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 Config for whiteDns 3️⃣
-🟡 mode
-
-
-stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiMSBAVGFzaXlhbmMiLCJzZXJ2ZXIiOnsiZG9tYWluIjoiY2lwNS5tYXNpci1zZWZpZC5teSIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW0tQ2hhbm5lbC0tLT5ATWFzaXJfU2VmaWQiLCJlbmNyeXB0aW9uX21ldGhvZCI6MX19fQ
-stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiMiBAVGFzaXlhbmMiLCJzZXJ2ZXIiOnsiZG9tYWluIjoidmlwLm1hc2lyLXNlZmlkLm15IiwiZW5jcnlwdGlvbl9rZXkiOiJUZWxlZ3JhbS1DaGFubmVsLS0tPkBNYXNpcl9TZWZpZCIsImVuY3J5cHRpb25fbWV0aG9kIjoxfX19
-
-🎚 آموزش اتصال 🎚
-
-برنامه مورد نیاز 👈
-Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5383
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid 🟢 & mahsang 6️⃣ 185.208.174.167 185.50.37.52 185.50.37.52 164.138.17.122 78.157.41.60 185.88.178.196 185.255.91.60 185.208.175.228 109.72.197.1 5.160.13.85 ❤️ تست شده WiFi اموزش اتصال 👈 برنامه مورد نیاز🔑 Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5382
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid 🟢 & mahsang 6️⃣
-
-
-185.208.174.167
-185.50.37.52
-185.50.37.52
-164.138.17.122
-78.157.41.60
-185.88.178.196
-185.255.91.60
-185.208.175.228
-109.72.197.1
-5.160.13.85
-
-❤️ تست شده WiFi
-
-اموزش اتصال 👈
-
-برنامه مورد نیاز🔑
-
-Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5381
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid 🟢 & mahsang 6️⃣ 81.12.34.188 23.58.95.138 185.208.174.167 185.50.37.52 185.141.106.238 94.232.173.28 5.160.13.85 164.138.17.122 5.144.129.174 185.141.106.238 185.50.37.52 185.208.174.167 164.138.17.122 78.157.41.60 185.208.174.167 37.191.95.70…
-</div>
-
-## tasiyanc — post 5380
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid 🟢 & mahsang 6️⃣
-
-
-81.12.34.188
-23.58.95.138
-185.208.174.167
-185.50.37.52
-185.141.106.238
-94.232.173.28
-5.160.13.85
-164.138.17.122
-5.144.129.174
-185.141.106.238
-185.50.37.52
-185.208.174.167
-164.138.17.122
-78.157.41.60
-185.208.174.167
-37.191.95.70
-37.191.95.70
-158.58.184.147
-185.10.73.10
-5.160.13.85
-93.118.125.5
-80.191.243.226
-5.160.13.85
-185.88.178.196
-185.137.25.146
-185.137.25.146
-78.157.41.60
-78.157.41.60
-185.208.175.228
-185.128.136.185
-164.138.17.122
-185.116.160.73
-93.118.127.60
-109.72.197.1
-46.100.21.22
-5.159.55.225
-84.241.15.5
-185.141.106.238
-185.88.178.196
-80.191.241.210
-5.160.13.85
-164.138.17.122
-185.141.106.238
-185.141.106.238
-185.50.37.52
-193.228.90.25
-85.185.206.226
-78.38.91.164
-89.32.197.139
-185.55.226.226
-185.173.129.200
-80.191.243.226
-5.160.13.85
-2.17.106.118
-2.17.97.137
-2.17.35.163
-185.209.42.88
-95.38.27.53
-2.17.100.234
-2.17.106.137
-2.17.35.24
-2.17.35.40
-2.17.35.217
-2.17.35.40
-78.157.41.60
-2.17.35.24
-2.17.100.234
-2.17.97.137
-2.17.106.118
-2.17.35.163
-2.17.106.137
-37.191.95.70
-2.17.35.217
-185.137.25.146
-80.191.243.226
-188.75.95.66
-31.47.55.198
-80.75.14.108
-5.160.128.142
-89.35.58.46
-78.157.41.60
-5.160.128.142
-5.160.13.85
-5.202.177.195
-37.191.95.70
-80.191.243.226
-2.16.53.65
-5.160.128.142
-95.101.23.82
-188.121.105.164
-185.208.174.167
-185.141.106.238
-185.88.178.196
-185.208.175.228
-78.157.41.60
-31.214.174.113
-185.3.124.206
-185.10.73.12
-5.160.13.85
-185.208.174.167
-185.50.37.52
-164.138.17.122
-5.160.13.85
-185.208.175.228
-5.160.13.85
-185.137.25.146
-185.141.106.238
-185.255.91.60
-185.89.22.71
-185.208.175.228
-78.157.41.60
-185.255.91.60
-193.148.67.117
-5.160.13.85
-37.191.95.70
-185.255.91.60
-95.38.224.202
-109.72.197.1
-46.34.160.35
-185.134.98.166
-185.255.91.60
-93.115.151.136
-80.191.241.195
-79.175.169.57
-109.72.197.1
-164.138.17.122
-78.39.234.140
-5.160.79.219
-5.160.128.142
-5.160.128.142
-80.75.14.70
-185.255.91.60
-89.32.248.77
-89.42.211.80
-78.39.234.140
-217.219.202.62
-5.160.128.142
-78.39.234.140
-89.32.248.195
-37.202.181.222
-109.230.91.228
-
-❤️ تست شده 🛜🛜
-
-اموزش اتصال 👈
-
-برنامه مورد نیاز🔑
-
-Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5379
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid 
-🟢 & mahsang 6️⃣ 37.191.95.70 185.137.25.146 78.157.41.60 185.141.106.238 185.88.178.196 78.157.41.60 185.50.37.52 185.208.175.228 5.144.129.174 185.208.174.167 185.141.106.238 164.138.17.122 164.138.17.122 5.160.13.85 164.138.17.122 185.141.106.238…
-</div>
-
-## tasiyanc — post 5378
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ip Shiro khorshid 
-🟢 & mahsang 6️⃣
-
-
-37.191.95.70
-185.137.25.146
-78.157.41.60
-185.141.106.238
-185.88.178.196
-78.157.41.60
-185.50.37.52
-185.208.175.228
-5.144.129.174
-185.208.174.167
-185.141.106.238
-164.138.17.122
-164.138.17.122
-5.160.13.85
-164.138.17.122
-185.141.106.238
-185.141.106.238
-185.50.37.52
-185.208.174.167
-5.160.13.85
-164.138.17.122
-5.160.13.85
-5.160.13.85
-185.50.37.52
-185.208.174.167
-80.191.243.226
-185.255.91.60
-109.72.197.1
-5.160.13.85
-164.138.17.122
-164.138.17.122
-185.88.178.196
-78.157.41.60
-164.138.17.122
-185.141.106.238
-5.160.13.85
-5.160.13.85
-164.138.17.122
-78.157.41.60
-164.138.17.122
-185.88.178.196
-185.208.175.228
-37.191.95.70
-185.88.178.196
-37.191.95.70
-94.232.173.28
-185.137.25.146
-185.137.25.146
-78.157.41.60
-185.141.106.238
-109.72.197.1
-5.160.13.85
-185.208.175.228
-78.157.41.60
-185.255.91.60
-164.138.17.122
-164.138.17.122
-78.157.41.60
-185.208.175.228
-80.191.243.226
-5.160.13.85
-185.141.106.238
-185.50.37.52
-80.191.243.226
-158.58.184.147
-78.39.234.140
-2.16.53.65
-5.160.128.142
-185.50.37.52
-109.72.197.1
-185.255.91.60
-185.50.37.52
-185.141.106.238
-2.16.53.65
-78.39.234.140
-78.39.234.140
-78.39.234.140
-2.16.53.65
-5.160.128.142
-5.160.13.85
-78.157.41.60
-80.191.243.226
-23.58.95.138
-164.138.17.122
-164.138.17.122
-185.88.178.196
-5.160.13.85
-78.157.41.60
-142.54.178.211
-185.208.175.228
-185.141.106.238
-185.50.37.52
-185.255.91.60
-2.16.53.65
-5.160.128.142
-63.141.252.203
-78.39.234.140
-37.191.95.70
-78.157.41.60
-185.137.25.146
-185.141.106.238
-185.89.22.71
-37.191.95.70
-95.101.23.82
-185.208.175.228
-37.191.95.70
-109.72.197.1
-109.72.197.1
-185.141.106.238
-78.157.41.60
-185.88.178.196
-78.157.41.60
-78.157.41.60
-185.208.174.167
-78.157.41.60
-5.160.13.85
-185.255.91.60
-185.255.91.60
-78.39.234.140
-80.191.243.226
-185.255.91.60
-142.54.178.211
-142.54.178.211
-63.141.252.203
-
-❤️ تست شده 🛜🛜
-
-اموزش اتصال 👈
-
-برنامه مورد نیاز🔑
-
-Join @Tasiyanc ✅
 </div>
 
