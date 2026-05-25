@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/05 02:17
+📅 آخرین بروزرسانی: 1405/03/05 03:25
 
 ---
+
+## tasiyanc — post 5576
+
+<div align="center"><a href="files/post_5576_sleep 💤¹.².npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 sleep 💤¹.².npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Password @Tasiyanc
+
+🌐 اختصاصی تاسیان 2 سرور تست شده  تمام اپراتورها  🌐
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5575
 
@@ -22,8 +36,6 @@
 </div>
 
 ## tasiyanc — post 5573
-
-<div align="center"><a href="files/post_5573_25 K 🍃.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 25 K 🍃.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔑Password @Tasiyanc
@@ -92,8 +104,6 @@ WAR 🔥.npvt
 
 ## tasiyanc — post 5564
 
-<div align="center"><a href="files/post_5564_🚀 4 SRVR.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🚀 4 SRVR.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✅Password @Tasiyanc
 
@@ -111,8 +121,6 @@ WAR 🔥.npvt
 </div>
 
 ## tasiyanc — post 5562
-
-<div align="center"><a href="files/post_5562_WAR 🔥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 WAR 🔥.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶اختصاصی تاسیان  تمام اپراتورها  📶
@@ -157,11 +165,5 @@ WAR 🔥.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨به گزارش استانداری بندرعباس منشأ صدا های انفجار در دست بررسی است
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هم اکنون فعالیت پدافند بندرعباس (احتمالا تست هست)
 </div>
 
