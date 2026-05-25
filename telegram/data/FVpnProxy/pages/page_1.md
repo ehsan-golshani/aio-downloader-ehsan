@@ -1,8 +1,77 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/04 01:13
+📅 آخرین بروزرسانی: 1405/03/04 10:17
 
 ---
+
+## FVpnProxy — post 487
+
+<div align="center"><img src="files/post_487_FVpnProxy_487.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی کلید بهتون داده میشه طبق عکس برنامه حاوی دو کلید SecureID و Encryption key هست.
+خیلی راحت این فیلد با چیزی که بهتون داده شده پرکنید.
+توضیحات اتصال با تلگرام هم که تو عکس هست
+یک پروکسی بسازید و تمام
+</div>
+
+## FVpnProxy — post 486
+
+<div align="center"><img src="files/post_486_FVpnProxy_486.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بابا این یعنی دسترسی بستیم کسی نتونه spam بزنه. خطا بن نیست
+وجدانن اذیت نکنید 🤣😅🤪
+</div>
+
+## FVpnProxy — post 485
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعداد 29 نفر که بیشترین تعداد اسپم زدن به ربات بن شدن.
+
+فعلا بخاطر spam این افراد که حدود 27 هاست ربات محدود شده😐😑
+فعلا چند صد نفری که تونستن کلید بگیرن استفاده کنن تا یه فکری به حال اینایی که spam میزنن بکنیم
+</div>
+
+## FVpnProxy — post 484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت اطلاع اونایی که میان فحش میدن چون کلید بات بهشون نداده!
+اولا سرور رایگان هست و پول ندادی که طلبکاری
+دوما سرور تحمل این همه آدم نداره پس باید یکجوری تعداد در هر دفعه کاهش بدیم تا اگه کسی وصل میشه بتونه یه دیتا ریز بگیره. هرچند همین 50 درصد هم خیلی بیشتر از توان هست!!!
+
+از الان هرکس ناراضی هست بیاد سرور اهدا کنه با دامنه. ما اون برای همه میذاریم کف کانال. همه بدون هیچ محدودیتی وصل بشن.
+فاکتور میدیم پرداخت بزنید.
+❤️😘
+</div>
+
+## FVpnProxy — post 483
+
+<div align="center"><img src="files/post_483_FVpnProxy_483.jpg" alt="Photo"></div>
+
+## FVpnProxy — post 482
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدایی یعنی چی اسپم میزنن بعضیا که ربات بیاد پایین؟
+فعلا قطع میکنم تا اینایی که اسپم زدن بن کنم
+
+آپدیت: فعلا دسترسی ربات قطع شد. به محض بن شدن تمام کسایی که اسپم زدن ربات باز میشه مجددا
+</div>
+
+## FVpnProxy — post 481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبح همگی بخیر
+از امروز بطور آزمایشی میخواییم کانفیگ از طریق ربات بدیم.
+اینجور که 50 درصد از ممبرهای کانال بصورت کاملا تصادفی ربات بهشون کانفیگ میده
+لیست با هربار ریست سرور و تغییر کلید خالی میشه تا کسایی که نتونستن مجددا درخواست کلید بدن.
+
+
+@fvpnproxybot
+
+
+لطفا روی ربات اسپم نزنید.
+</div>
 
 ## FVpnProxy — post 480
 
@@ -613,77 +682,5 @@ Encryption key:
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دوستان ما فروش نداریم لطفا نپرسید ممنون
-</div>
-
-## FVpnProxy — post 467
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کلید جدید
-💋به هیترهای حروم زاده
-SecureID:
-86ru/cBwQMSnmwRpHr4maxjQ==
-
-Encryption key:
-2nb8490813f1pfe591b4563blrae0dfj
-</div>
-
-## FVpnProxy — post 466
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کلید جدید
-💋به هیترهای حروم زاده
-SecureID:
-86ru/cBwQMSnmwRpHr4maxjQ==
-
-Encryption key:
-2nb8430813f1ofe591b4483bb6ae0dfk
-</div>
-
-## FVpnProxy — post 465
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان
-گفتم که هر زمان ببینم سرور خیلی شلوغ شده کلید عوض میکنم ک بقیه بتونن وصل شن
-کچلم نکنین تو pv👨🏻‍🦲
-</div>
-
-## FVpnProxy — post 464
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کلید جدید💋
-SecureID:
-86ru/cBwQMSnmwRpHr4maxjQ==
-
-Encryption key:
-7fb2850813f1ofe683b4483bb6ae0f7h
-</div>
-
-## FVpnProxy — post 463
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور خیلی شلوغ شد باید ریست کنم:
-SecureID:
-86ru/cBwQMSnmwRpHr4maxjQ==
-
-Encryption key:
-7fb2856813f16fe683a4483bb6ae0f71
-</div>
-
-## FVpnProxy — post 462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این دلقک ک رفته عکس یکی گذاشته میگه منم 😂😂😂
-</div>
-
-## FVpnProxy — post 461
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان ظرفیت سرور پر شده دیگه توان اتصال گوشی جدید نداره.
-از طرفی هم دارن به سرور attack میزنن بیارن پایین
-پس لطفا تک تک نیایید بگید من وصل نشدم.
-این سرور ظرفیت نداره. برای همین راس ساعت 21 سرور ریست میکنیم تا افراد جدید سریع با کلید جدید وصل بشن.
-این روند هر 4 ساعت تکرار میکنیم تا بقیه هم بتونن استفاده کنند
-
-خواهشا دانلود نکنید . طرف اومده میگه میخوام دانلود کنم الان دانلود کنم یا بذارم شب تا صبح!!
 </div>
 
