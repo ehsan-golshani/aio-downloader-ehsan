@@ -1,12 +1,108 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/05 21:19
+📅 آخرین بروزرسانی: 1405/03/05 23:57
 
 ---
 
-## tasiyanc — post 5681
+## tasiyanc — post 5693
 
-<div align="center"><a href="files/post_5681_[29] 🇦🇹.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [29] 🇦🇹.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با بازگشت اینترنت بین المللی، جهت اتصالِ راحت‌ شما براتون یک فایل نپسترنت با ۶ تا کانفیگ آماده کردیم ❤️
+
+دریافت کانفیگ نپسترنت ( کاملا رایگان )
+</div>
+
+## tasiyanc — post 5692
+
+<div align="center"><a href="files/post_5692_[ 33] vip ⚡🚀.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [ 33] vip ⚡🚀.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈2 سرور vip تست شده همراه اول⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5691
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 Config _ 🥇 sv 🇰🇿
+
+vless://6202b230-417c-4d8e-b624-0f71afa9c75d@31.43.179.191:2096?security=tls&encryption=none&insecure=1&host=sni.my111000.tech&type=ws&allowInsecure=1&sni=sni.my111000.tech#%40Tasiyanc%20%F0%9F%87%B0%F0%9F%87%BF
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5690
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 Config - vip sv 🇬🇧
+
+vless://6202b230-417c-4d8e-b624-0f71afa9c75d@5.10.245.191:443?path=Telegram%40WangCai2%2F&security=tls&encryption=none&insecure=1&host=sni.my111000.tech&fp=chrome&type=ws&allowInsecure=1&sni=sni.my111000.tech#%40Tasiyanc%20%F0%9F%87%AC%F0%9F%87%A7
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5689
+
+<div align="center"><a href="files/post_5689_[31] Vip 🔥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [31] Vip 🔥.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass @Tasiyanc
+
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip تست شده همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5688
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅V2rayNG 3 vip server 🔐 vless://bafacd98-136a-4530-838d-4e5c51838dac@188.226.180.209:443?path=%2Fshows%2Fregister%2Fjuzibaipiao&security=tls&encryption=none&insecure=0&host=juzi8186.qea.ccwu.cc&type=ws&allowInsecure=0&sni=juzi8186.qea.ccwu.cc#%40Tasiyanc…
+</div>
+
+## tasiyanc — post 5687
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅V2rayNG 3 vip server 🔐
+vless://bafacd98-136a-4530-838d-4e5c51838dac@188.226.180.209:443?path=%2Fshows%2Fregister%2Fjuzibaipiao&security=tls&encryption=none&insecure=0&host=juzi8186.qea.ccwu.cc&type=ws&allowInsecure=0&sni=juzi8186.qea.ccwu.cc#%40Tasiyanc%20%F0%9F%87%B3%F0%9F%87%B1
+vmess://eyJhZGQiOiIxNzIuMjMzLjE3Ljc2IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiIiLCJpZCI6IjA0NjIxYmFlLWFiMzYtMTFlYy1iOTA5LTAyNDJhYzEyMDAwMiIsImluc2VjdXJlIjoiMCIsIm5ldCI6InRjcCIsInBhdGgiOiIvIiwicG9ydCI6IjIyMzI0IiwicHMiOiJAVGFzaXlhbmMgQnJhemlsIHZpcCIsInNjeSI6ImF1dG8iLCJzbmkiOiIiLCJ0bHMiOiIiLCJ0eXBlIjoibm9uZSIsInYiOiIyIn0
+vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=tls&encryption=none&insecure=0&host=uin-ape.pages.dev&type=ws&allowInsecure=0&sni=uin-ape.pages.dev#%40Tasiyanc%20%E2%9A%A1
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ ویتوری یکی دوتا بزارم بعدش بریم سمت نپستر
+</div>
+
+## tasiyanc — post 5685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+27 k 🥹🫂
+ممنون که با تاسیان همراهید
+</div>
+
+## tasiyanc — post 5684
+
+<div align="center"><a href="files/post_5684_[30] vip.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [30] vip.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip هلند ، فرانسه  همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5681
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اختصاصی تاسیان  نامحدود📱
@@ -19,8 +115,6 @@
 
 ## tasiyanc — post 5680
 
-<div align="center"><a href="files/post_5680_MCI @Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MCI @Tasiyanc.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اختصاصی تاسیان برای همراه اول 📶
 
@@ -30,8 +124,6 @@
 </div>
 
 ## tasiyanc — post 5679
-
-<div align="center"><a href="files/post_5679_CODM.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 CODM.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اختصاصی تاسیان برا دوستانی ک مشکل ورود به گیم دارن📱
@@ -50,8 +142,6 @@
 
 ## tasiyanc — post 5677
 
-<div align="center"><a href="files/post_5677_[27] 🇳🇱&🇺🇸.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [27] 🇳🇱&🇺🇸.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اختصاصی تاسیان  نامحدود📱
 
@@ -62,8 +152,6 @@
 </div>
 
 ## tasiyanc — post 5676
-
-<div align="center"><a href="files/post_5676_🇩🇪🚀Hit ler (1).npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇩🇪🚀Hit ler (1).npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اختصاصی تاسیان  نامحدود📱
@@ -88,8 +176,6 @@
 
 ## tasiyanc — post 5673
 
-<div align="center"><a href="files/post_5673_[26] BOMB.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [26] BOMB.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اختصاصی تاسیان نامحدود📱
 
@@ -101,8 +187,6 @@
 
 ## tasiyanc — post 5672
 
-<div align="center"><a href="files/post_5672_[24] all operators 🚀.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [24] all operators 🚀.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اختصاصی تاسیان 📱
 
@@ -110,99 +194,5 @@
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5671
-
-<div align="center"><a href="files/post_5671_تمام اپراتورا.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 تمام اپراتورا.npvt</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان 📱
-
-⛈سرور سرور تست شده همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5670
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وایفای بزارم ؟
-</div>
-
-## tasiyanc — post 5669
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-{"remarks":"@Tasiyanc ترکیب","log":{"loglevel":"warning"},"inbounds":[{"tag":"socks","port":10808,"protocol":"socks","settings":{"auth":"noauth","udp":true,"userLevel":8},"sniffing":{"enabled":true,"destOverride":["http","tls"],"routeOnly":false}}],"outbounds":[{"tag":"proxy","protocol":"trojan","settings":{"servers":[{"address":"2.144.4.115","ota":false,"password":"humanity","port":40443,"level":8}]},"streamSettings":{"network":"ws","security":"tls","wsSettings":{"path":"/assignment","headers":{"Host":"www.creationlong.org"}},"tlsSettings":{"allowInsecure":true,"serverName":"www.creationlong.org","show":false}},"mux":{"enabled":false,"concurrency":-1,"xudpConcurrency":8,"xudpProxyUDP443":""}},{"tag":"direct","protocol":"freedom","settings":{"domainStrategy":"UseIP"},"mux":{"enabled":false,"concurrency":8,"xudpConcurrency":8,"xudpProxyUDP443":""}},{"tag":"block","protocol":"blackhole","settings":{"response":{"type":"http"}},"mux":{"enabled":false,"concurrency":8,"xudpConcurrency":8,"xudpProxyUDP443":""}}],"dns":{"servers":["1.1.1.1"],"hosts":{"domain:googleapis.cn":"googleapis.com","dns.alidns.com":["223.5.5.5","223.6.6.6","2400:3200::1","2400:3200:baba::1"],"one.one.one.one":["1.1.1.1","1.0.0.1","2606:4700:4700::1111","2606:4700:4700::1001"],"dot.pub":["1.12.12.12","120.53.53.53"],"dns.google":["8.8.8.8","8.8.4.4","2001:4860:4860::8888","2001:4860:4860::8844"],"dns.quad9.net":["9.9.9.9","149.112.112.112","2620:fe::fe","2620:fe::9"],"common.dot.dns.yandex.net":["77.88.8.8","77.88.8.1","2a02:6b8::feed:0ff","2a02:6b8:0:1::feed:0ff"]}},"routing":{"domainStrategy":"IPIfNonMatch","rules":[{"type":"field","ip":["1.1.1.1"],"outboundTag":"proxy","port":"53"},{"type":"field","ip":["223.5.5.5"],"outboundTag":"direct","port":"53"},{"type":"field","ip":["1.1.1.1"],"outboundTag":"proxy","port":"53"},{"type":"field","ip":["223.5.5.5"],"outboundTag":"direct","port":"53"}]}}
-
-ترکیبی ✅
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5668
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Mci [22].npvt
-</div>
-
-## tasiyanc — post 5667
-
-<div align="center"><a href="files/post_5667_Mci [22].npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Mci [22].npvt</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان 📱
-
-⛈سرور سرور تست شده همراه بقیه اپراتورا تست کنن⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5666
-
-<div align="center"><a href="files/post_5666_[20] 3server For Wifi.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [20] 3server For Wifi.npvt</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 🇸🇦
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈3 سرور وی ای پی تست شده وای‌فای ⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 V2RayNG wifi
-
-vless://d37a75db-76b6-4db8-b213-0d5b044d138d@172.64.152.100:443?path=%2F&security=tls&encryption=none&insecure=0&host=hio-awx.pages.dev&type=ws&allowInsecure=0&sni=hio-awx.pages.dev#%40Tasiyanc%20%F0%9F%87%BA%F0%9F%87%B8
-
-﻿@Tasiyanc ☑
-</div>
-
-## tasiyanc — post 5664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-WİFİ موشک.npvt
-</div>
-
-## tasiyanc — post 5663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گوشه ای از محبت مردم عزیز وطنم ❤️ همه رو نمیشه بزارم ، سپاس از همتون
-</div>
-
-## tasiyanc — post 5662
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود به دوستان گلم
-خسته نباشید میگم بهتون
-جا داره ازتون تشکر کنم بابت زحمات زیادی که کشیدید من به شخصه یادم میمونه که تو چه شرایطی پشت مردمتون بودید
-دم معرفتتون گرم
-امیدوارم بتونیم جبران کنیم 💙💙
 </div>
 
