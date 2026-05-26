@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/06 01:41
+📅 آخرین بروزرسانی: 1405/03/06 03:08
 
 ---
+
+## tasiyanc — post 5709
+
+<div align="center"><a href="files/post_5709_[42] @Tasiyanc ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [42] @Tasiyanc ⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈ سرور تست شده تمام اپراتورا ⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5708
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجموعه تاسیان تلاش خواهد کرد بصورت رایگان بهترین سرور ها و بهترین کانفیگارو براتون ارائه بده تا بصورت امن در این فضا فعالیت خوبی داشته باشید نه اپ های مخرب و vpn های نا امنی ک اطلاعات شمارو تو خطر میندازه
+</div>
+
+## tasiyanc — post 5707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc - FULL VASL 🍃.npvt
+</div>
+
+## tasiyanc — post 5706
+
+<div align="center"><a href="files/post_5706_@Tasiyanc - FULL VASL 🍃.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc - FULL VASL 🍃.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈4 سرور تمام اپراتورا متصل سرعت نور ⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5705
 
@@ -18,8 +58,6 @@
 
 ## tasiyanc — post 5703
 
-<div align="center"><a href="files/post_5703_🔥 [40 ].npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🔥 [40 ].npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اختصاصی تاسیان  نامحدود
 📱
@@ -31,8 +69,6 @@
 </div>
 
 ## tasiyanc — post 5701
-
-<div align="center"><a href="files/post_5701_[ 38 ] Sefareshi 🇫🇮.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [ 38 ] Sefareshi 🇫🇮.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اختصاصی تاسیان  نامحدود
@@ -51,8 +87,6 @@
 </div>
 
 ## tasiyanc — post 5699
-
-<div align="center"><a href="files/post_5699_[37] SuperStar Servers⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [37] SuperStar Servers⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔑Pass @Tasiyanc
@@ -87,8 +121,6 @@ vless://6202b230-417c-4d8e-b624-0f71afa9c75d@91.193.58.140:443?path=%2F%3Fhttps%
 </div>
 
 ## tasiyanc — post 5695
-
-<div align="center"><a href="files/post_5695_[36] Premium servers.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [36] Premium servers.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اختصاصی تاسیان  نامحدود
@@ -166,40 +198,5 @@ vless://bafacd98-136a-4530-838d-4e5c51838dac@188.226.180.209:443?path=%2Fshows%2
 vmess://eyJhZGQiOiIxNzIuMjMzLjE3Ljc2IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiIiLCJpZCI6IjA0NjIxYmFlLWFiMzYtMTFlYy1iOTA5LTAyNDJhYzEyMDAwMiIsImluc2VjdXJlIjoiMCIsIm5ldCI6InRjcCIsInBhdGgiOiIvIiwicG9ydCI6IjIyMzI0IiwicHMiOiJAVGFzaXlhbmMgQnJhemlsIHZpcCIsInNjeSI6ImF1dG8iLCJzbmkiOiIiLCJ0bHMiOiIiLCJ0eXBlIjoibm9uZSIsInYiOiIyIn0
 vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=tls&encryption=none&insecure=0&host=uin-ape.pages.dev&type=ws&allowInsecure=0&sni=uin-ape.pages.dev#%40Tasiyanc%20%E2%9A%A1
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ ویتوری یکی دوتا بزارم بعدش بریم سمت نپستر
-</div>
-
-## tasiyanc — post 5685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-27 k 🥹🫂
-ممنون که با تاسیان همراهید
-</div>
-
-## tasiyanc — post 5684
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود📱
-
-⛈سرور vip هلند ، فرانسه  همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5681
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود📱
-
-⛈سرور vip اتریش گاد همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
 </div>
 
