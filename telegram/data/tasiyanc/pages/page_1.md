@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/06 21:15
+📅 آخرین بروزرسانی: 1405/03/06 23:24
 
 ---
+
+## tasiyanc — post 5766
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریکشن 😐😐?
+</div>
+
+## tasiyanc — post 5765
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+PREMIUM 💥.npvt
+</div>
+
+## tasiyanc — post 5764
+
+<div align="center"><a href="files/post_5764_PREMIUM 💥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 PREMIUM 💥.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈4 سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید 
+✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5763
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Box 🔐 RighTel
+
+vless://da2ab05b-6b96-4d0c-96eb-7b320b343fc0@zdas.zeabur.app:443?path=%2Fsecurity%3Dtls&security=tls&encryption=none&insecure=0&host=zdas.zeabur.app&type=ws&allowInsecure=0#%40Tasiyanc%20RighTel%20%E2%9B%93%EF%B8%8F
+
+@Tasiyanc ✔️
+</div>
+
+## tasiyanc — post 5762
+
+<div align="center"><a href="files/post_5762_Boooom 🚀💥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Boooom 🚀💥.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5761
 
@@ -29,8 +83,6 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 </div>
 
 ## tasiyanc — post 5758
-
-<div align="center"><a href="files/post_5758_King 👑 2Sv.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 King 👑 2Sv.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  
@@ -59,8 +111,6 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 </div>
 
 ## tasiyanc — post 5755
-
-<div align="center"><a href="files/post_5755_🍓 4 server 🔥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🍓 4 server 🔥.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  
@@ -93,8 +143,6 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 
 ## tasiyanc — post 5752
 
-<div align="center"><a href="files/post_5752_🌹Red Rose.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🌹Red Rose.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  
 📱
@@ -113,8 +161,6 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 </div>
 
 ## tasiyanc — post 5750
-
-<div align="center"><a href="files/post_5750_🇫🇷 - 🇩🇪 Hot servers.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇫🇷 - 🇩🇪 Hot servers.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  
@@ -188,34 +234,4 @@ Crocodile 🐊 VIP.npvt
 
 🚀 @Tasiyanc ✅
 </div>
-
-## tasiyanc — post 5743
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🌟 MCI - WiFi
-
-vless://0dc22208-cea4-4423-b3c3-a36957e23233@91.225.217.26:443?security=reality&encryption=none&pbk=Zd5BqaW-kyJqZANUH2cIARr466QZw09pNngYjsEK1w8&headerType=none&fp=chrome&type=tcp&sni=yahoo.com&sid=30fa#%40Tasiyanc%20%E2%80%A2%20MCI
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5742
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حجم پیام زیاده ، عشقید لذت ببرید ❤️
-</div>
-
-## tasiyanc — post 5741
-
-<div align="center"><img src="files/post_5741_tasiyanc_5741.jpg" alt="Photo"></div>
-
-## tasiyanc — post 5740
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/Tasiyanc/5733
-</div>
-
-## tasiyanc — post 5739
-
-<div align="center"><img src="files/post_5739_tasiyanc_5739.jpg" alt="Photo"></div>
 

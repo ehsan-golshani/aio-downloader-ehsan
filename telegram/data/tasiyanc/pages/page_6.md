@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/03/06 21:15
+📅 آخرین بروزرسانی: 1405/03/06 23:24
 
 ---
+
+## tasiyanc — post 5639
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منو چقد دوس؟
+</div>
+
+## tasiyanc — post 5637
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈۲ سرور وی ای پی سرور تست شده نت خانگی⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5636
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈4 سرور وی ای پی تست شده نت خانگی⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5634
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور تست شده همه اپراتورا⛈
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5633
 
@@ -138,45 +195,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc [02] WiFi ⚡ (1).npvt
-</div>
-
-## tasiyanc — post 5606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈سرور تست شده wifi⛈
-
-برای اتصال پایدار صبور باشید🚀
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5605
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حجم پیام زیاده
-
-قربون همتون عشقید ❤️‍🔥💋
-</div>
-
-## tasiyanc — post 5604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حرف نداری پسر/دختر🫶😂
-</div>
-
-## tasiyanc — post 5603
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یدونه هستش درست ۲ هفته وصلم 😂😂
-</div>
-
-## tasiyanc — post 5602
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اقا واقعا وصل ممنون تاسيان♥️♥️♥️
 </div>
 
