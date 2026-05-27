@@ -1,8 +1,37 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/05 21:18
+📅 آخرین بروزرسانی: 1405/03/06 05:26
 
 ---
+
+## FVpnProxy — post 480
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طرف به خودش زحمت نمیده نه کانال بخونه، نه دو خط که تو برنامه نوشته شده!
+
+یعنی چی هی میایین تو تلگرام آدرس و پورت چی بزنم؟!
+اگه برات سخته دو خط بخونی آقا استفاده نکن
+به فارسی نوشتیم زیر دکمه start چیکار کنی. از این واضح تر
+</div>
+
+## FVpnProxy — post 479
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SecureID: 09giHff67ZGRUia1vMAehoKCe6zzqewTVcSIxfDMw=
+
+Encryption key:
+efb3f9c59c479e4aaef4f95587951a8d
+</div>
+
+## FVpnProxy — post 478
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کلید جدید:
+SecureID: 98j3YelC4343MIMwowFH5AF+pvRmpkDFfHBPpn7A==
+
+Encryption key:
+38f9dcd63df1a5ffdec6ea5f0d56f1b2
+</div>
 
 ## FVpnProxy — post 477
 

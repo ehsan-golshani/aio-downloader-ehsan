@@ -1,8 +1,31 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/05 21:18
+📅 آخرین بروزرسانی: 1405/03/06 05:26
 
 ---
+
+## FVpnProxy — post 501
+
+## FVpnProxy — post 500
+
+## FVpnProxy — post 499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تشکر بابت همه پیام هاتون
+تا جایی ک تونستم تک تک جواب دادم و خواهم داد
+
+از حالا که نت بین الملل فیلتره شده وصل شده. برای اونایی که نمیخوان پول بدن بابت vpn سعی میکنم بازم رایگان سرور بذارم.
+
+دو راه داریم برای ادامه فعالیت (کاملا رایگان)
+
+1- از طریق ربات کلید خصوصی بدیم با حجم محدود روزانه حداکثر 500 مگ. همه چیز باز کنه . تعداد زیاده همین خودش خیلی میدونم بعد یه مدت مشکل ساز میشه همه بخوان استفاده کنن
+
+
+2- حجم نامحدود ولی فقط برای چند برنامه خاص ، مثل تلگرام، chatgpt، واتساپ - البته بازم کلید روزانه باید از ربات بگیرید.
+
+
+حالا نظرسنجی میذارم ببینم کدوم بیشترین طرفدار داره
+</div>
 
 ## FVpnProxy — post 498
 
@@ -166,34 +189,5 @@
 
 
 لطفا روی ربات اسپم نزنید.
-</div>
-
-## FVpnProxy — post 480
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طرف به خودش زحمت نمیده نه کانال بخونه، نه دو خط که تو برنامه نوشته شده!
-
-یعنی چی هی میایین تو تلگرام آدرس و پورت چی بزنم؟!
-اگه برات سخته دو خط بخونی آقا استفاده نکن
-به فارسی نوشتیم زیر دکمه start چیکار کنی. از این واضح تر
-</div>
-
-## FVpnProxy — post 479
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SecureID: 09giHff67ZGRUia1vMAehoKCe6zzqewTVcSIxfDMw=
-
-Encryption key:
-efb3f9c59c479e4aaef4f95587951a8d
-</div>
-
-## FVpnProxy — post 478
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کلید جدید:
-SecureID: 98j3YelC4343MIMwowFH5AF+pvRmpkDFfHBPpn7A==
-
-Encryption key:
-38f9dcd63df1a5ffdec6ea5f0d56f1b2
 </div>
 
