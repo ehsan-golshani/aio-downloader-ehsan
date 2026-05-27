@@ -1,8 +1,108 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/07 01:37
+📅 آخرین بروزرسانی: 1405/03/07 03:12
 
 ---
+
+## tasiyanc — post 5798
+
+<div align="center"><a href="files/post_5798_@Tasiyanc 💝.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 💝.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور سرعتی اختصاصی تاسیان  📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5797
+
+<div align="center"><a href="files/post_5797_⚡Fast3.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡Fast3.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡.npvt
+</div>
+
+## tasiyanc — post 5796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡.npvt
+</div>
+
+## tasiyanc — post 5795
+
+<div align="center"><a href="files/post_5795_Fast ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast ⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈2سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5794
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️خبرگذاری فارس سه انفجار مهیب در بندرعباس را تایید کرد
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♨️ | آواکس‌های E-3G نیروی هوایی ایالات متحده از عربستان سعودی، P-8A Poseidon از اردن، تانکرهای سوخت از اسرائیل و جت‌های جنگنده بر فراز خلیج فارس فعال هستند
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♨️ فعال شدن پدافند در بندرعباس
+</div>
+
+## tasiyanc — post 5791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارشات از صدای انفجار در بندرعباس
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5790
+
+<div align="center"><a href="files/post_5790_@Tasiyanc Bronz🩸.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc Bronz🩸.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈3سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5789
+
+<div align="center"><a href="files/post_5789_@Tasiyanc ⚡2 Server vip.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ⚡2 Server vip.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈2سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5788
 
@@ -19,8 +119,6 @@ Panda 🐼.npvt
 </div>
 
 ## tasiyanc — post 5786
-
-<div align="center"><a href="files/post_5786_Panda 🐼.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Panda 🐼.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  📱
@@ -56,8 +154,6 @@ kiwi Speed 🥝.npvt
 
 ## tasiyanc — post 5782
 
-<div align="center"><a href="files/post_5782_kiwi Speed 🥝.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 kiwi Speed 🥝.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  📱
 
@@ -70,8 +166,6 @@ kiwi Speed 🥝.npvt
 </div>
 
 ## tasiyanc — post 5780
-
-<div align="center"><a href="files/post_5780_Orange 🍊 server.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Orange 🍊 server.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  📱
@@ -94,99 +188,5 @@ kiwi Speed 🥝.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اینترنت سرش یکم گرد شد
-</div>
-
-## tasiyanc — post 5775
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-CHATGBT ✅
-هم گویا رفع فیلتر شده
-</div>
-
-## tasiyanc — post 5774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی
-Chatgpt Grok
-برای ایرانسل الان باز شد
-</div>
-
-## tasiyanc — post 5771
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🔐 MCI - tst
-vless://4dc0eec9-f0e1-4755-be7e-7ba628522d1b@91.99.145.207:443?path=%2F&security=none&encryption=none&type=ws#%40Tasiyanc%20%F0%9F%A6%82
-@Tasiyanc
-</div>
-
-## tasiyanc — post 5768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگا روی رایتل تست شدن و همشون مثل موشک کار میدن بقیه هم تست کنن 💋
-</div>
-
-## tasiyanc — post 5767
-
-<div align="center"><a href="files/post_5767_uuuuuuuf 🔥🥂.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 uuuuuuuf 🔥🥂.npvt</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈4 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن 😐😐?
-</div>
-
-## tasiyanc — post 5765
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-PREMIUM 💥.npvt
-</div>
-
-## tasiyanc — post 5764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈4 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید 
-✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5763
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🔐 RighTel
-
-vless://da2ab05b-6b96-4d0c-96eb-7b320b343fc0@zdas.zeabur.app:443?path=%2Fsecurity%3Dtls&security=tls&encryption=none&insecure=0&host=zdas.zeabur.app&type=ws&allowInsecure=0#%40Tasiyanc%20RighTel%20%E2%9B%93%EF%B8%8F
-
-@Tasiyanc ✔️
-</div>
-
-## tasiyanc — post 5762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-
-🚀 @Tasiyanc ✅
 </div>
 
