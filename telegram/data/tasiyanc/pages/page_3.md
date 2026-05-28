@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/07 13:53
+📅 آخرین بروزرسانی: 1405/03/07 17:45
 
 ---
+
+## tasiyanc — post 5779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نگران نباشید منو دارین منم شمارو ❤️
+</div>
+
+## tasiyanc — post 5778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینترنت سرش یکم گرد شد
+</div>
+
+## tasiyanc — post 5775
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+CHATGBT ✅
+هم گویا رفع فیلتر شده
+</div>
+
+## tasiyanc — post 5774
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارسالی
+Chatgpt Grok
+برای ایرانسل الان باز شد
+</div>
+
+## tasiyanc — post 5771
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Box 🔐 MCI - tst
+vless://4dc0eec9-f0e1-4755-be7e-7ba628522d1b@91.99.145.207:443?path=%2F&security=none&encryption=none&type=ws#%40Tasiyanc%20%F0%9F%A6%82
+@Tasiyanc
+</div>
+
+## tasiyanc — post 5768
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگا روی رایتل تست شدن و همشون مثل موشک کار میدن بقیه هم تست کنن 💋
+</div>
+
+## tasiyanc — post 5767
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈4 سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5766
 
@@ -135,99 +189,5 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اینستا بهتر از تلگرام بالا میاد ، کانکت شدید برید اینستا ببینین سرعتو
-</div>
-
-## tasiyanc — post 5752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
-
-
-
-🚀 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 5750
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
-
-
-
-🚀 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 5748
-
-<div align="center"><img src="files/post_5748_tasiyanc_5748.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-براتون یه فایل نپسترنت با ۶ تا کانفیگ درست کردیم ( عکس تستو ببینید برگاتون بریزه ) ❤️‍🔥
-
-دریافت کانفیگ نپسترنت ( رایگان )
-</div>
-
-## tasiyanc — post 5747
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5746
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام این شات مال منه، من با همراه وصلم، منم مث شماها نتم قط و وصل میشه ، ولی خب دس نمیزنم تا پر شه، چن بار هواپیما بزنید باز کنید ، تاسیان چندین کانفیگ از هر نامی میزاره، مثلا اینکه نوشته تاسیان پرو چار تا میزاره، یکیشو فقد امتحان نکنید ، یکی یکی بزارید ولی هر بار که انتخاب کردید یه بار هواپیما بزنید بعد منتظر باشید ببینید وصل میشه یا نه، اینم بگم اکثرن همراه اولیا فعال شدن، ولی غمتون نباشه، مال همه وصل میشه ایشالا ، من خودم از اینکه نت پرو نخریدم و با اینا وصل شدم حالم خوبه،درسته که زیاد قط میشه اما بازم برکت بیفته توش و هممون از این حق لذت ببریم انشالا☺️🤲
-</div>
-
-## tasiyanc — post 5745
-
-<div align="center"><img src="files/post_5745_tasiyanc_5745.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Crocodile 🐊 VIP.npvt
-</div>
-
-## tasiyanc — post 5744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده روی همراه اول - رایتل ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
-
-
-🚀 @Tasiyanc ✅
 </div>
 

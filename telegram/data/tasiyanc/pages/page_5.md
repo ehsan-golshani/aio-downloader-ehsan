@@ -1,8 +1,80 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/07 13:53
+📅 آخرین بروزرسانی: 1405/03/07 17:45
 
 ---
+
+## tasiyanc — post 5729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده ⛈ 
+
+رمز : ″ @Tasiyanc ″
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5728
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Box 🏳 vip
+
+trojan://2238e2f3-1a01-485e-8c22-24b65764c68b@172.64.152.23:443?path=%2F51.91.253.83&security=tls&insecure=0&host=gzjx.dpdns.org&type=ws&allowInsecure=0&sni=gzjx.dpdns.org#%40Tasiyanc%20USS%E2%9A%A1
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5727
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده همه اپراتور ها ⛈ 
+
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5726
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده همه اپراتور ها ⛈ 
+
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5724
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گپ تاسیان - خودمم هستم بیاید
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 5723
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡Test سرعتی⚡.npvt
+</div>
+
+## tasiyanc — post 5722
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده ⛈ 
+
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5721
 
@@ -124,75 +196,5 @@ sv Country 🇬🇧
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc - FULL VASL 🍃.npvt
-</div>
-
-## tasiyanc — post 5706
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈4 سرور تمام اپراتورا متصل سرعت نور ⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5705
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارو 😐
-</div>
-
-## tasiyanc — post 5704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 [40 ].npvt
-</div>
-
-## tasiyanc — post 5703
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈ تمام اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5701
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈ سرور 🇫🇮 vip تست شده روی همراه بقیه اپراتورا تست کنن⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5700
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[37] SuperStar Servers⚡.npvt
-</div>
-
-## tasiyanc — post 5699
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass @Tasiyanc
-
-
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈5 سرور vip تست شده روی همراه بقیه اپراتورا تست کنن⛈ 
-
-Country: 🇩🇪🇫🇷🇺🇸
-
-🚀 @Tasiyanc ✅
 </div>
 
