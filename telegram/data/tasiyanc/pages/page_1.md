@@ -1,12 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/07 03:12
+📅 آخرین بروزرسانی: 1405/03/07 05:00
 
 ---
 
-## tasiyanc — post 5798
+## tasiyanc — post 5803
 
-<div align="center"><a href="files/post_5798_@Tasiyanc 💝.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 💝.npvt</a></div>
+<div align="center"><a href="files/post_5803_@Tasiyanc 🦋VIP¹².npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🦋VIP¹².npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  ۲ سرور vip سرعتی  اختصاصی تاسیان  📱
+
+✅ تست شده روی همه اپراتورا ✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود اپلیکیشن NPV tunnel  ⏩
+
+نحوه اتصال به سرورهای تاسیان ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5801
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن چقد زیاده 😐
+</div>
+
+## tasiyanc — post 5800
+
+<div align="center"><a href="files/post_5800_سرعتی ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 سرعتی ⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  ۲ سرور سرعتی  اختصاصی تاسیان  📱
+
+✅ تست شده روی همه اپراتورا ✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود اپلیکیشن NPV tunnel  ⏩
+
+نحوه اتصال به سرورهای تاسیان ⏩
+
+
+🦁 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 💝.npvt
+</div>
+
+## tasiyanc — post 5798
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور سرعتی اختصاصی تاسیان  📱
@@ -19,8 +67,6 @@
 
 ## tasiyanc — post 5797
 
-<div align="center"><a href="files/post_5797_⚡Fast3.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡Fast3.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fast ⚡.npvt
 </div>
@@ -32,8 +78,6 @@ Fast ⚡.npvt
 </div>
 
 ## tasiyanc — post 5795
-
-<div align="center"><a href="files/post_5795_Fast ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast ⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  📱
@@ -76,8 +120,6 @@ Fast ⚡.npvt
 
 ## tasiyanc — post 5790
 
-<div align="center"><a href="files/post_5790_@Tasiyanc Bronz🩸.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc Bronz🩸.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  📱
 
@@ -90,8 +132,6 @@ Fast ⚡.npvt
 </div>
 
 ## tasiyanc — post 5789
-
-<div align="center"><a href="files/post_5789_@Tasiyanc ⚡2 Server vip.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ⚡2 Server vip.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  📱
@@ -150,43 +190,5 @@ kiwi Speed 🥝.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختلال گسترده در داده های همراه
-</div>
-
-## tasiyanc — post 5782
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈2 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5780
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈2 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5779
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نگران نباشید منو دارین منم شمارو ❤️
-</div>
-
-## tasiyanc — post 5778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینترنت سرش یکم گرد شد
 </div>
 

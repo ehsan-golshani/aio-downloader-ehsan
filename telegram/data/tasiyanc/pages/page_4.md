@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/07 03:12
+📅 آخرین بروزرسانی: 1405/03/07 05:00
 
 ---
+
+## tasiyanc — post 5731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 SamanTel
+trojan://7aXwJPnpAJ@yespaintstudio.rav-kraski.ru:50824?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%F0%9F%8C%A4%EF%B8%8F
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5730
+
+<div align="center"><img src="files/post_5730_tasiyanc_5730.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🌱2 server.npvt
+</div>
+
+## tasiyanc — post 5729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده ⛈ 
+
+رمز : ″ @Tasiyanc ″
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5728
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Box 🏳 vip
+
+trojan://2238e2f3-1a01-485e-8c22-24b65764c68b@172.64.152.23:443?path=%2F51.91.253.83&security=tls&insecure=0&host=gzjx.dpdns.org&type=ws&allowInsecure=0&sni=gzjx.dpdns.org#%40Tasiyanc%20USS%E2%9A%A1
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5727
 
@@ -161,35 +200,5 @@ sv Country 🇬🇧
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5708
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجموعه تاسیان تلاش خواهد کرد بصورت رایگان بهترین سرور ها و بهترین کانفیگارو براتون ارائه بده تا بصورت امن در این فضا فعالیت خوبی داشته باشید نه اپ های مخرب و vpn های نا امنی ک اطلاعات شمارو تو خطر میندازه
-</div>
-
-## tasiyanc — post 5707
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc - FULL VASL 🍃.npvt
-</div>
-
-## tasiyanc — post 5706
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈4 سرور تمام اپراتورا متصل سرعت نور ⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5705
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارو 😐
 </div>
 
