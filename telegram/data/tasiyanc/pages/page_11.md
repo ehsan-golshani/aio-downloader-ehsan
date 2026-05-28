@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/03/08 01:57
+📅 آخرین بروزرسانی: 1405/03/08 03:25
 
 ---
+
+## tasiyanc — post 5612
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گوگل پلی برا بعضیا باز شده و اکثرا باز نشده ( طبق گزارش ممبرهای عزیزمون)
+</div>
+
+## tasiyanc — post 5611
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ گوگل پلی رفع فیلتر شد
+</div>
+
+## tasiyanc — post 5610
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ وزیر ارتباطات:
+با دستور رئیس‌جمهوری و پس از برگزاری ۳ جلسه فشرده کارشناسی، فرایند بازگرداندن اینترنت کشور به وضعیت قبل از دی‌ماه ۱۴۰۴ آغاز شده است.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5609
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوری 🚨
+صفحه خرید و درخواست اینترنت پرو از سایت همراه اول حذف شد
+
+و همچنین جی‌میل در دسترس قرار گرفت
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دارن وصل میکنن؟
+</div>
+
+## tasiyanc — post 5607
+
+<div align="center"><img src="files/post_5607_tasiyanc_5607.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc [02] WiFi ⚡ (1).npvt
+</div>
 
 ## tasiyanc — post 5606
 
@@ -102,72 +146,5 @@
 برای اتصال پایدار صبور باشید
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈دو سرور تست شده همه اپراتورها⛈
-
-برای اتصال پایدار صبور باشید
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5583
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ اموزش ویدیویی ترکیبی سایفون با کلاینت MahsaNg 1 - وارد بخش get EMS  config شوید گزینه Mahsa repo رو بزنید بعد روی get emergency config بزنید تا کانفیگ ها اضافه بشن 2 - وارد تنظیمات سایفون شوید protocol روی Auto قرار بدید و aggressive هم ON باشه 3 -…
-</div>
-
-## tasiyanc — post 5580
-
-<div align="center"><video src="files/post_5580_tasiyanc_5580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_5580_tasiyanc_5580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ اموزش ویدیویی ترکیبی سایفون با کلاینت MahsaNg
-
-1 - وارد بخش get EMS  config شوید گزینه Mahsa repo رو بزنید بعد روی get emergency config بزنید تا کانفیگ ها اضافه بشن
-
-2 - وارد تنظیمات سایفون شوید protocol روی Auto قرار بدید و aggressive هم ON باشه
-
-3 - تو منوی اصلی F رو بزنید و فقط گزینه Psiphon after روشن کنین
-
-4 - برگردید و به اولین سروری که هست کانکت بشید بعد ۲۰ ثانیه شما کانکت میشوید ✅
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5579
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن یادتون نره 💋
-</div>
-
-## tasiyanc — post 5578
-
-<div align="center"><img src="files/post_5578_tasiyanc_5578.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc _ وای‌فای.npvt
-</div>
-
-## tasiyanc — post 5577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password @Tasiyanc
-
-🌐 اختصاصی تاسیان 2 سرور تست شده  وای‌فای   🌐
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 
