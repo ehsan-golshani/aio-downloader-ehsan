@@ -1,8 +1,17 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/07 03:12
+📅 آخرین بروزرسانی: 1405/03/07 09:26
 
 ---
+
+## FVpnProxy — post 518
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان اگر تمایل داشتید میتونید داخل اینستاگرام فالو کنید.
+
+
+https://www.instagram.com/fvpnproxy
+</div>
 
 ## FVpnProxy — post 517
 
@@ -246,21 +255,5 @@ vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@fr-tx.sbrf-cdn342.ru:443?encryption
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ایرانسل و همراه وصل شدن
-</div>
-
-## FVpnProxy — post 497
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط برام یک چیز سوال شده!
-
-اگر جاسوس موساد، سیا، ام ای 6
-تو کانال داریم بیاد توضیح بده چرا نمیتونن نت خانگی بگیرن؟ یعنی براتون با این همه بودجه و امکانات سخته گرفتن یه نت خونگی؟
-
-
-الان تکلیف ایرانسل و همراه اول چیه، نت همه وصل شد جز ما!
-
-آقایون و خانم های جاسوس خارجی، لطفا نت خونگی بگیرید، اکثر مردم عادی با نت تلفن همراه میان.
-
-بخدا زشته برای دستگاه امنیتی خارجی نمیتونه نت خونگی برای جاسوس هاش بگیره
 </div>
 
