@@ -1,8 +1,21 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/08 19:35
+📅 آخرین بروزرسانی: 1405/03/09 02:16
 
 ---
+
+## FVpnProxy — post 521
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینم هدیه امشب
+حالش ببرید تا تموم بشه 500 گیگ
+
+
+trojan://fvpnproxy@95.163.152.104:26913?path=%2F&security=none&type=ws#Telegram:@FvpnProxy
+
+آپدیت:
+آقا این v2ray هست دیگه چرا میگید با چی بزنم برنامه بفرست!؟
+</div>
 
 ## FVpnProxy — post 520
 
@@ -257,6 +270,4 @@ vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@fr-tx.sbrf-cdn342.ru:443?encryption
 </div>
 
 ## FVpnProxy — post 501
-
-## FVpnProxy — post 500
 

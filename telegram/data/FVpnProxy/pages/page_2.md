@@ -1,8 +1,10 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/08 19:35
+📅 آخرین بروزرسانی: 1405/03/09 02:16
 
 ---
+
+## FVpnProxy — post 500
 
 ## FVpnProxy — post 499
 
@@ -195,14 +197,5 @@
 یعنی چی هی میایین تو تلگرام آدرس و پورت چی بزنم؟!
 اگه برات سخته دو خط بخونی آقا استفاده نکن
 به فارسی نوشتیم زیر دکمه start چیکار کنی. از این واضح تر
-</div>
-
-## FVpnProxy — post 479
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SecureID: 09giHff67ZGRUia1vMAehoKCe6zzqewTVcSIxfDMw=
-
-Encryption key:
-efb3f9c59c479e4aaef4f95587951a8d
 </div>
 
