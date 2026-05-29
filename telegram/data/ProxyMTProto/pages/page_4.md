@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/08 00:05
+📅 آخرین بروزرسانی: 1405/03/08 11:58
 
 ---
+
+## ProxyMTProto — post 47629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s15.proxyru.top
+Port: 993
+Secret: eefe281d2bfa13f991ed6be43138e5e14c7777772e636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47628
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 2.26.252.43
+Port: 443
+Secret: ee6cc9e422a51432ca4df25293389adef06172746c6562656465762e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47627
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r9.proxytg.space
+Port: 8443
+Secret: ee3e77e6aa740bda96a1dabd06717f51b272392e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47626
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: amorecoin.duckdns.org
+Port: 443
+Secret: 7mYW_5fPLJzJxcvUupkA3pN3d3cuZ29vZ2xlLmNvbQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47625
 
@@ -148,42 +184,6 @@ Secret: eec11798ab008831b474066c9e1ebf5c76617669746f2e7275
 Server: s11.neo-trading.org
 Port: 993
 Secret: ee17b59d905a546c7bf7355cf95c4ecfed7777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47609
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s15.proxyru.top
-Port: 993
-Secret: eefe281d2bfa13f991ed6be43138e5e14c7777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: offni-vpn.nolags.pw
-Port: 443
-Secret: dda69632d86d88061ea6e94523027b0470
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47607
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s.proxytg.space
-Port: 8443
-Secret: eefefc4f17248e59437bb451447a9170b2732e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rus1.mtproxygram.pro
-Port: 443
-Secret: eefbee6e61d427a84d26b97590a8f63bab62726f777365722e79616e6465782e636f6d
 @ProxyMTProto
 </div>
 
