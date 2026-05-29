@@ -1,8 +1,36 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/07 09:26
+📅 آخرین بروزرسانی: 1405/03/08 19:35
 
 ---
+
+## FVpnProxy — post 520
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀 پروکسی جدید پرسرعت
+
+📍 لوکیشن : 🇩🇪 Germany
+📡 اپراتور : همه اپراتورها
+⚙️ پروتکل : MTProto
+
+✅ برای اتصال ضربه بزنید
+
+🆔 @FVPNPRoxy
+</div>
+
+## FVpnProxy — post 519
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀 پروکسی جدید پرسرعت
+
+📍 لوکیشن : 🇩🇪 Germany
+📡 اپراتور : همه اپراتورها
+⚙️ پروتکل : MTProto
+
+✅ برای اتصال ضربه بزنید
+
+🆔 @FVPNProxy
+</div>
 
 ## FVpnProxy — post 518
 
@@ -231,29 +259,4 @@ vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@fr-tx.sbrf-cdn342.ru:443?encryption
 ## FVpnProxy — post 501
 
 ## FVpnProxy — post 500
-
-## FVpnProxy — post 499
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تشکر بابت همه پیام هاتون
-تا جایی ک تونستم تک تک جواب دادم و خواهم داد
-
-از حالا که نت بین الملل فیلتره شده وصل شده. برای اونایی که نمیخوان پول بدن بابت vpn سعی میکنم بازم رایگان سرور بذارم.
-
-دو راه داریم برای ادامه فعالیت (کاملا رایگان)
-
-1- از طریق ربات کلید خصوصی بدیم با حجم محدود روزانه حداکثر 500 مگ. همه چیز باز کنه . تعداد زیاده همین خودش خیلی میدونم بعد یه مدت مشکل ساز میشه همه بخوان استفاده کنن
-
-
-2- حجم نامحدود ولی فقط برای چند برنامه خاص ، مثل تلگرام، chatgpt، واتساپ - البته بازم کلید روزانه باید از ربات بگیرید.
-
-
-حالا نظرسنجی میذارم ببینم کدوم بیشترین طرفدار داره
-</div>
-
-## FVpnProxy — post 498
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانسل و همراه وصل شدن
-</div>
 
