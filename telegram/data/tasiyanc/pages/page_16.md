@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/03/09 03:31
+📅 آخرین بروزرسانی: 1405/03/09 10:56
 
 ---
+
+## tasiyanc — post 5563
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب بعدی در راه
+</div>
 
 ## tasiyanc — post 5562
 
@@ -280,15 +286,5 @@ Join @Tasiyanc
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 5532
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده 📶
-
-برای اتصال پایدار زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,71 @@
 # آرشیو کانال FVpnProxy - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/09 07:45
+📅 آخرین بروزرسانی: 1405/03/09 10:56
 
 ---
+
+## FVpnProxy — post 490
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرهایی میاد که اینترنت قرار خیلی خیلی زود باز بشه.
+
+الان هم اگر ani-spoof بلد هستید استفاده کنید از دیروز باز شده، از الان بگم مثلا دو خط ایرانسل در یک مکان یکی کار میکنه یکی نمیکنه (نگید چرا برای من کار نمیکنه)
+
+برای sni-spoof به یک کامپیوتر نیاز هست و یک کانفیگ v2ray که با cloudflare کار میکنه.
+
+دوستان اگر کسی کانفیگ نامحدود روی cloudflare داره بفرسته تا بدیم بقیه با این روش وصل بشن
+</div>
+
+## FVpnProxy — post 489
+
+<div align="center"><video src="files/post_489_FVpnProxy_489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_489_FVpnProxy_489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قبلا از اینکه spam بزنن عادی و راحت
+</div>
+
+## FVpnProxy — post 487
+
+<div align="center"><img src="files/post_487_FVpnProxy_487.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی کلید بهتون داده میشه طبق عکس برنامه حاوی دو کلید SecureID و Encryption key هست.
+خیلی راحت این فیلد با چیزی که بهتون داده شده پرکنید.
+توضیحات اتصال با تلگرام هم که تو عکس هست
+یک پروکسی بسازید و تمام
+</div>
+
+## FVpnProxy — post 486
+
+<div align="center"><img src="files/post_486_FVpnProxy_486.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بابا این یعنی دسترسی بستیم کسی نتونه spam بزنه. خطا بن نیست
+وجدانن اذیت نکنید 🤣😅🤪
+</div>
+
+## FVpnProxy — post 485
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعداد 29 نفر که بیشترین تعداد اسپم زدن به ربات بن شدن.
+
+فعلا بخاطر spam این افراد که حدود 27 هاست ربات محدود شده😐😑
+فعلا چند صد نفری که تونستن کلید بگیرن استفاده کنن تا یه فکری به حال اینایی که spam میزنن بکنیم
+</div>
+
+## FVpnProxy — post 484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت اطلاع اونایی که میان فحش میدن چون کلید بات بهشون نداده!
+اولا سرور رایگان هست و پول ندادی که طلبکاری
+دوما سرور تحمل این همه آدم نداره پس باید یکجوری تعداد در هر دفعه کاهش بدیم تا اگه کسی وصل میشه بتونه یه دیتا ریز بگیره. هرچند همین 50 درصد هم خیلی بیشتر از توان هست!!!
+
+از الان هرکس ناراضی هست بیاد سرور اهدا کنه با دامنه. ما اون برای همه میذاریم کف کانال. همه بدون هیچ محدودیتی وصل بشن.
+فاکتور میدیم پرداخت بزنید.
+❤️😘
+</div>
 
 ## FVpnProxy — post 483
 
@@ -609,31 +672,5 @@ Encryption key:
 2.188.21.58
 217.219.162.200
 46.32.31.30
-</div>
-
-## FVpnProxy — post 469
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دی ان اس اسکن شده و متصل شیروخورشید
-
-2.21.2.58
-2.21.2.89
-2.23.168.7
-5.160.13.85
-81.12.72.218
-2.23.168.96
-92.123.106.96
-2.23.168.144
-2.23.168.213
-2.23.168.254
-2.23.170.80
-37.255.133.30
-104.103.65.50
-63.141.252.203
-142.54.178.211
-185.137.25.214
-185.200.232.40
-185.200.232.41
-185.200.232.49
 </div>
 
