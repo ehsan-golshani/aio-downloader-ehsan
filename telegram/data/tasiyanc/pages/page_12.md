@@ -1,189 +1,193 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/03/09 23:32
+📅 آخرین بروزرسانی: 1405/03/10 00:45
 
 ---
 
-## tasiyanc — post 5726
+## tasiyanc — post 5750
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
+
+
+
+🚀 @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 5748
+
+<div align="center"><img src="files/post_5748_tasiyanc_5748.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+براتون یه فایل نپسترنت با ۶ تا کانفیگ درست کردیم ( عکس تستو ببینید برگاتون بریزه ) ❤️‍🔥
+
+دریافت کانفیگ نپسترنت ( رایگان )
+</div>
+
+## tasiyanc — post 5747
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  📱
 
-⛈ تست شده همه اپراتور ها ⛈ 
+⛈ تست شده روی همه اپراتورا ⛈ 
 
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
 
 
 🚀 @Tasiyanc ✅
 </div>
 
-## tasiyanc — post 5724
+## tasiyanc — post 5746
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گپ تاسیان - خودمم هستم بیاید
-https://t.me/+RTGtcYWb8HdkNjdk
+سلام این شات مال منه، من با همراه وصلم، منم مث شماها نتم قط و وصل میشه ، ولی خب دس نمیزنم تا پر شه، چن بار هواپیما بزنید باز کنید ، تاسیان چندین کانفیگ از هر نامی میزاره، مثلا اینکه نوشته تاسیان پرو چار تا میزاره، یکیشو فقد امتحان نکنید ، یکی یکی بزارید ولی هر بار که انتخاب کردید یه بار هواپیما بزنید بعد منتظر باشید ببینید وصل میشه یا نه، اینم بگم اکثرن همراه اولیا فعال شدن، ولی غمتون نباشه، مال همه وصل میشه ایشالا ، من خودم از اینکه نت پرو نخریدم و با اینا وصل شدم حالم خوبه،درسته که زیاد قط میشه اما بازم برکت بیفته توش و هممون از این حق لذت ببریم انشالا☺️🤲
 </div>
 
-## tasiyanc — post 5723
+## tasiyanc — post 5745
+
+<div align="center"><img src="files/post_5745_tasiyanc_5745.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡Test سرعتی⚡.npvt
+Crocodile 🐊 VIP.npvt
 </div>
 
-## tasiyanc — post 5722
+## tasiyanc — post 5744
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده روی همراه اول - رایتل ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5743
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Box 🌟 MCI - WiFi
+
+vless://0dc22208-cea4-4423-b3c3-a36957e23233@91.225.217.26:443?security=reality&encryption=none&pbk=Zd5BqaW-kyJqZANUH2cIARr466QZw09pNngYjsEK1w8&headerType=none&fp=chrome&type=tcp&sni=yahoo.com&sid=30fa#%40Tasiyanc%20%E2%80%A2%20MCI
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5742
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حجم پیام زیاده ، عشقید لذت ببرید ❤️
+</div>
+
+## tasiyanc — post 5741
+
+<div align="center"><img src="files/post_5741_tasiyanc_5741.jpg" alt="Photo"></div>
+
+## tasiyanc — post 5740
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/Tasiyanc/5733
+</div>
+
+## tasiyanc — post 5739
+
+<div align="center"><img src="files/post_5739_tasiyanc_5739.jpg" alt="Photo"></div>
+
+## tasiyanc — post 5738
+
+<div align="center"><img src="files/post_5738_tasiyanc_5738.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام، از زیبا بودن این صفحه چیزی نمیگم،خودتون ببینین 🥰
+</div>
+
+## tasiyanc — post 5737
+
+<div align="center"><img src="files/post_5737_tasiyanc_5737.jpg" alt="Photo"></div>
+
+## tasiyanc — post 5736
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده روی تمام اپراتورها ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5734
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده روی رایتل و ایرانسل - بقیه اپراتورا تست کنن ⛈ 
+
+رمز : ″ @Tasiyanc ″
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5733
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 RighTel - Moscow
+vless://079c1b04-7ef9-4c49-8a7a-849a18ba7b9b@83.222.20.64:17910?security=reality&encryption=none&pbk=KUhrhiJBplVCVCrAKP2KjIA_asOgkkvEEAxUJVofjgc&headerType=none&fp=chrome&spx=%2F&type=tcp&sni=yahoo.com&sid=8c09fb78b12f#%40Tasiyanc%20%E2%9C%A8%20Rightel
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💘💘💘
+</div>
+
+## tasiyanc — post 5731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 SamanTel
+trojan://7aXwJPnpAJ@yespaintstudio.rav-kraski.ru:50824?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%F0%9F%8C%A4%EF%B8%8F
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5730
+
+<div align="center"><img src="files/post_5730_tasiyanc_5730.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🌱2 server.npvt
+</div>
+
+## tasiyanc — post 5729
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  📱
 
 ⛈ تست شده ⛈ 
 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5721
-
-<div align="center"><img src="files/post_5721_tasiyanc_5721.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box & V2Ray 📶 vless://40bf709c-4353-4552-ba26-406d2bf7821d@fr.gryaz-vpn.com:20567?security=reality&encryption=none&pbk=1WOtQYIQ-3sJtbrhSA1LW6gAnO-wG0Z5aCnlL_zoiXQ&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=cloudflare.com&sid=b82d7208fe…
-</div>
-
-## tasiyanc — post 5720
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box & V2Ray 📶
-vless://40bf709c-4353-4552-ba26-406d2bf7821d@fr.gryaz-vpn.com:20567?security=reality&encryption=none&pbk=1WOtQYIQ-3sJtbrhSA1LW6gAnO-wG0Z5aCnlL_zoiXQ&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=cloudflare.com&sid=b82d7208fe23#paris%20%40Tasiyanc
-
-vless://20ecee51-1044-4be3-89a9-f3c700425ead@45.67.230.230:443?security=reality&encryption=none&pbk=qYg2nPdLpBYWM7-9leTq43SoqAc5nT90gFH-AHAMShY&headerType=none&fp=chrome&type=tcp&sni=yahoo.com&sid=abb1#Russia%20%40Tasiyanc
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده با همراه اول , بقیه تست کنن⛈ 
-
 رمز : ″ @Tasiyanc ″
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه جور نتارو باز کردن دوباره مردم میرن کانفیگ میخرن ، تف به شرفتون
-</div>
-
-## tasiyanc — post 5715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده با همراه اول ⛈ 
-
-رمز : ″ @Tasiyanc ″
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5714
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🥝.npvt
-</div>
-
-## tasiyanc — post 5713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد اتصال در Npv tunnel
-وارد تلگرام یا .. شوید نیاز نی پینگ بگیرید ❤️‍🔥
-</div>
-
-## tasiyanc — post 5712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 دو سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده با همراه اول و وایفای بقیه هم تست کنن⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5711
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ 📶 🔐
-
-vless://0f4d41cf-0be1-4fcc-ac41-53b843ba0752@172.66.44.118:443?path=%2F&security=tls&encryption=none&insecure=0&host=H7-83W.pAgeS.deV&type=ws&allowInsecure=0&sni=H7-83W.pAgeS.deV#%40Tasiyanc%20%7C%20%D8%AA%D8%A7%D8%B3%DB%8C%D8%A7%D9%86
-vless://ce069292-c8bf-40dd-a6b1-87818a1e64e9@ip.sb:443?path=%2F&security=tls&encryption=none&insecure=1&host=3-7ny.pages.dev&fp=chrome&type=ws&allowInsecure=1&sni=3-7ny.pages.dev#%40Tasiyanc%20%7C%20%D8%AA%D8%A7%D8%B3%DB%8C%D8%A7%D9%86
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5710
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈2 سرور تست شده vip تمام اپراتورا ⛈ 
-sv Country 🇬🇧
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5709
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈ سرور تست شده تمام اپراتورا ⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5708
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجموعه تاسیان تلاش خواهد کرد بصورت رایگان بهترین سرور ها و بهترین کانفیگارو براتون ارائه بده تا بصورت امن در این فضا فعالیت خوبی داشته باشید نه اپ های مخرب و vpn های نا امنی ک اطلاعات شمارو تو خطر میندازه
-</div>
-
-## tasiyanc — post 5707
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc - FULL VASL 🍃.npvt
-</div>
-
-## tasiyanc — post 5706
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈4 سرور تمام اپراتورا متصل سرعت نور ⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5705
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارو 😐
-</div>
-
-## tasiyanc — post 5704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 [40 ].npvt
 </div>
 

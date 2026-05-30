@@ -1,200 +1,214 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/03/09 23:32
+📅 آخرین بروزرسانی: 1405/03/10 00:45
 
 ---
 
-## tasiyanc — post 5886
+## tasiyanc — post 5912
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر کدوم بیشتر رای بیاره از اون بیشتر میزاریم
+v2Ray کانفیگ
+هم بزاریم پس راضی هستید فکنم
 </div>
 
-## tasiyanc — post 5885
+## tasiyanc — post 5911
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیشتر با ovpn تا حالا وصل شدید یا با npv ؟ زمان قطعی کدوم به دادتون رسیده یادتون رفت؟
-
-Npv ❤️
-
-Ovpn 🔥
+🔐 🔐 متصل تموم اپراتورا ✅ vless://4e93e8e6-8cc1-4a5b-b577-3d5bcae6ada0@104.17.121.238:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=irdiplomacy.ir.rajanews.com.parstoday.com.donya-e-eqtesad.com…
 </div>
 
-## tasiyanc — post 5884
+## tasiyanc — post 5910
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید قبول کنیم نپستر سرعتش بیشتره از اوپنه ، زمان اتصالش سریعه و کلی موارد دیگه
-سرور ovpn شلوغ باشه ارور متعدد روبرو میشید و و و
-</div>
+🔐 🔐
+متصل تموم اپراتورا ✅
 
-## tasiyanc — post 5883
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده روی رایتل ـ سامانتل _ ایرانسل🚀
+vless://4e93e8e6-8cc1-4a5b-b577-3d5bcae6ada0@104.17.121.238:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=irdiplomacy.ir.rajanews.com.parstoday.com.donya-e-eqtesad.com.alalamtv.net.yjc.ir.tehrantimes.com&allowInsecure=0&sni=FAiNT-beliEFst4dReAkTi.WINdler.Co.Uk#%40Tasiyanc
 
 @Tasiyanc ✅
 </div>
 
-## tasiyanc — post 5882
+## tasiyanc — post 5909
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SamanTel 🛜 🏳
-vless://394f6981-a782-4779-9a85-e6cf22935d93@152.233.28.198:8443?security=tls&alpn=h2&encryption=none&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=uk1.fromblancwithlove.com#%F0%9F%8F%B3%EF%B8%8F%20Samantel%20-%20%40Tasiyanc
-
-@Tasiyanc ✅
+New⚡Fast.npvt
 </div>
 
-## tasiyanc — post 5881
+## tasiyanc — post 5908
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-GANG 🌙 10 SERVER FAST.npvt
+2Vip🇩🇪.npvt
 </div>
 
-## tasiyanc — post 5880
+## tasiyanc — post 5906
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
-10سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
+2Vip🇩🇪.npvt
 </div>
 
-## tasiyanc — post 5879
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-تست کنین بگین
-@Tasiyanc
-</div>
-
-## tasiyanc — post 5878
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد اتصال بدون گرفتن پینگ سریع به تلگرام بیاید خودش را میوفته
-</div>
-
-## tasiyanc — post 5877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
- سه سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5873
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب خب.. یه کانفیگ اوکی کردیم برای همه اپراتور ها جوابه و همه چیو پرسرعت میاره. فقط برای 500 نفر اولی که سریعترن در دسترسه! ⚠️ دریافت رایگان کانفیگ اختصاصی
-</div>
-
-## tasiyanc — post 5872
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب خب..
-یه کانفیگ اوکی کردیم برای همه اپراتور ها جوابه
-و همه چیو پرسرعت میاره.
-
-فقط برای 500 نفر اولی که سریعترن در دسترسه! ⚠️
-
-دریافت رایگان کانفیگ اختصاصی
-</div>
-
-## tasiyanc — post 5871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN ♻️
-
-تست شده روی همه اپراتورا🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5869
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ OpenVPN ♻️
-
-تست شده روی همه اپراتورا🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5868
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوکی کنم میفرسم
-</div>
-
-## tasiyanc — post 5865
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد اتصال ۲۰ تا ۳۰ ثانیه زمان بدید . و بیاید تلگرام یا برید اینستاگرام
-</div>
-
-## tasiyanc — post 5864
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
- 2 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5863
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+RTGtcYWb8HdkNjdk
-
-گروه تاسیان
-</div>
-
-## tasiyanc — post 5862
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 💫 4Server vip.npvt
-</div>
-
-## tasiyanc — post 5861
+## tasiyanc — post 5905
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔑 رمز @Tasiyanc ″
 
 📶  اختصاصی تاسیان  📶
 
- 4 سرور  سرعتی🚀
+ 2 سرور  سرعتی
+🚀
 
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
 
 دانلود  NPV tunnel  🌐
 
 نحوه اتصال به سرورها ⏩
+
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5903
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همه اپراتور ها 🎚
+🔐🔐
+vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.101:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=donya-e-eqtesad.com.tasnimnews.com.alef.ir.en.mehrnews.com.entekhab.ir.tasnimnews.com.tehrantimes.com&allowInsecure=0&sni=Humble-FigUREFnHk81kxjx.CarboNblaCkBmw.iR#%40Tasiyanc%20%E2%9A%A1
+ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5902
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+channel@TASIYANC.ovpn
+</div>
+
+## tasiyanc — post 5901
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New⚡Fast.npvt
+</div>
+
+## tasiyanc — post 5900
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+سرور  سرعتی
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  ⚡️
+
+نحوه اتصال به سرورها ⏩
+
+🛜🛜
+
+
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5899
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Fast ⚡💗.npvt
+</div>
+
+## tasiyanc — post 5898
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+سرور  سرعتی
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  ⚡️
+
+نحوه اتصال به سرورها ⏩
+
+🛜
+
+
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5897
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌊fast.npvt
+</div>
+
+## tasiyanc — post 5896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  
+🌐
+
+نحوه اتصال به سرورها 
+⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5894
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+channel@TASIYANC.ovpn
+</div>
+
+## tasiyanc — post 5893
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  
+♻️
+
+تست شده 
+🚀
+Username vpnbook
+Password 8zw5j9h
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5891
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوباره باید بگیم؟
+</div>
+
+## tasiyanc — post 5890
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Melli shekan 🪐.npvt
+</div>
+
+## tasiyanc — post 5889
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+2سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  
+🌐
+
+نحوه اتصال به سرورها 
+⏩
 
 
 🦁  @Tasiyanc ✅
