@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/09 17:49
+📅 آخرین بروزرسانی: 1405/03/09 19:22
 
 ---
+
+## tasiyanc — post 5939
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بس کن تاسیان علی
+</div>
+
+## tasiyanc — post 5937
+
+<div align="center"><img src="files/post_5937_tasiyanc_5937.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+-FAST MCI & MTN & RighTel 🔥.npvt
+</div>
 
 ## tasiyanc — post 5936
 
@@ -179,30 +193,5 @@ vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.254:2096?mode=gun&securi
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5915
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  🛜🛜🛜
-
-سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5914
-
-<div align="center"><img src="files/post_5914_tasiyanc_5914.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💙@Tasiyanc🚀Jet.npvt
 </div>
 
