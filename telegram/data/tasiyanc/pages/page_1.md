@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/09 22:15
+📅 آخرین بروزرسانی: 1405/03/09 23:32
 
 ---
+
+## tasiyanc — post 6014
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک فیلتر شکن استفاده میکنن امروز شنیدم هرکی با jumpjump وصل شده رفته اینستا ، اکانتش از دسترس خارج شده و نیاز به احراز هویت ( فیلم) داره تا اکانتش برگرده ، مراقب باشید با هر فیلترشکنی وصل نشید پ ن : نمی‌دونم درسته یا نه ولی دو سه نفر بهم گفتن @Tasiyanc…
+</div>
+
+## tasiyanc — post 6008
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاریس لوئیز انریکه قهرمان جام باشگاه های اروپا شد
+</div>
 
 ## tasiyanc — post 6007
 
@@ -40,8 +52,6 @@ VİP 🔥.npvt
 </div>
 
 ## tasiyanc — post 6002
-
-<div align="center"><a href="files/post_6002_⚡@tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡@tasiyanc.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ جدید OpenVPN  ♻️
@@ -159,17 +169,5 @@ VİP 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خلاصه این تلگرامو کانفینگاشم میرسه به یه خرداد ماهی 😉😉😉
-</div>
-
-## tasiyanc — post 5979
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عشق تولدت مبارک ، تو گروه هم برات فرستادم ❤️ دوباره با متود جدید وصل شدم ، دمت گرم عالیهههههه
-</div>
-
-## tasiyanc — post 5978
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متد جدید 🔥.npvt
 </div>
 
