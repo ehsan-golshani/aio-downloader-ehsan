@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/03/10 01:49
+📅 آخرین بروزرسانی: 1405/03/10 03:05
 
 ---
+
+## tasiyanc — post 5610
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ وزیر ارتباطات:
+با دستور رئیس‌جمهوری و پس از برگزاری ۳ جلسه فشرده کارشناسی، فرایند بازگرداندن اینترنت کشور به وضعیت قبل از دی‌ماه ۱۴۰۴ آغاز شده است.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5609
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوری 🚨
+صفحه خرید و درخواست اینترنت پرو از سایت همراه اول حذف شد
+
+و همچنین جی‌میل در دسترس قرار گرفت
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5608
 
@@ -136,32 +154,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✅ اموزش ویدیویی ترکیبی سایفون با کلاینت MahsaNg 1 - وارد بخش get EMS  config شوید گزینه Mahsa repo رو بزنید بعد روی get emergency config بزنید تا کانفیگ ها اضافه بشن 2 - وارد تنظیمات سایفون شوید protocol روی Auto قرار بدید و aggressive هم ON باشه 3 -…
-</div>
-
-## tasiyanc — post 5580
-
-<div align="center"><video src="files/post_5580_tasiyanc_5580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_5580_tasiyanc_5580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ اموزش ویدیویی ترکیبی سایفون با کلاینت MahsaNg
-
-1 - وارد بخش get EMS  config شوید گزینه Mahsa repo رو بزنید بعد روی get emergency config بزنید تا کانفیگ ها اضافه بشن
-
-2 - وارد تنظیمات سایفون شوید protocol روی Auto قرار بدید و aggressive هم ON باشه
-
-3 - تو منوی اصلی F رو بزنید و فقط گزینه Psiphon after روشن کنین
-
-4 - برگردید و به اولین سروری که هست کانکت بشید بعد ۲۰ ثانیه شما کانکت میشوید ✅
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5579
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن یادتون نره 💋
 </div>
 
