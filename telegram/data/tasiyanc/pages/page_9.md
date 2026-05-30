@@ -1,8 +1,81 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/03/09 20:52
+📅 آخرین بروزرسانی: 1405/03/09 22:15
 
 ---
+
+## tasiyanc — post 5795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈2سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5794
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️خبرگذاری فارس سه انفجار مهیب در بندرعباس را تایید کرد
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♨️ | آواکس‌های E-3G نیروی هوایی ایالات متحده از عربستان سعودی، P-8A Poseidon از اردن، تانکرهای سوخت از اسرائیل و جت‌های جنگنده بر فراز خلیج فارس فعال هستند
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♨️ فعال شدن پدافند در بندرعباس
+</div>
+
+## tasiyanc — post 5791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارشات از صدای انفجار در بندرعباس
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5790
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈3سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈2سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبلیغاتی ک زیر پستها میاد متعلق به ما نیست از طرف تلگرامه
+</div>
 
 ## tasiyanc — post 5787
 
@@ -105,86 +178,5 @@ Chatgpt Grok
 V2Box 🔐 MCI - tst
 vless://4dc0eec9-f0e1-4755-be7e-7ba628522d1b@91.99.145.207:443?path=%2F&security=none&encryption=none&type=ws#%40Tasiyanc%20%F0%9F%A6%82
 @Tasiyanc
-</div>
-
-## tasiyanc — post 5768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگا روی رایتل تست شدن و همشون مثل موشک کار میدن بقیه هم تست کنن 💋
-</div>
-
-## tasiyanc — post 5767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈4 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن 😐😐?
-</div>
-
-## tasiyanc — post 5765
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-PREMIUM 💥.npvt
-</div>
-
-## tasiyanc — post 5764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈4 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید 
-✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5763
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🔐 RighTel
-
-vless://da2ab05b-6b96-4d0c-96eb-7b320b343fc0@zdas.zeabur.app:443?path=%2Fsecurity%3Dtls&security=tls&encryption=none&insecure=0&host=zdas.zeabur.app&type=ws&allowInsecure=0#%40Tasiyanc%20RighTel%20%E2%9B%93%EF%B8%8F
-
-@Tasiyanc ✔️
-</div>
-
-## tasiyanc — post 5762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5761
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🔐 وای‌فای
-
-vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2Fdl&security=tls&encryption=none&insecure=0&host=pagescm.freen29.cc.cd&fp=chrome&type=ws&allowInsecure=0&sni=pagescm.freen29.cc.cd#%40Tasiyanc%20%E2%9A%99%EF%B8%8F
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpFUjJ4Q2NKa21SMXBmdG1OMzAwQ05K@62.60.233.226:62763#%40Tasiyanc%20%F0%9F%A7%A0
-vless://900ca7c5-6c69-4536-b0f8-efa4e3976016@51.79.89.68:443?security=&encryption=none&headerType=none&type=tcp#%20By%20EbraSha%20%E2%99%A0%EF%B8%8F
-
-@Tasiyanc 💙
 </div>
 
