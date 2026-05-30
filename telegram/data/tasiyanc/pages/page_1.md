@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/09 19:22
+📅 آخرین بروزرسانی: 1405/03/09 20:52
 
 ---
+
+## tasiyanc — post 5999
+
+<div align="center"><a href="files/post_5999_(02)@tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 (02)@tasiyanc.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده 🚀
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5998
+
+<div align="center"><a href="files/post_5998_@Tasiyanc 🇫🇷.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🇫🇷.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5996
+
+<div align="center"><a href="files/post_5996_VİP 🔥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 VİP 🔥.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+2سرور  سرعتی قدرتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروکسی ۱
+پروکسی ۲
+پروکسی ۳
+پروکسی ۴
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور جدید با متد جدید ساعت ۸
+</div>
 
 ## tasiyanc — post 5988
 
@@ -132,39 +199,5 @@ Create openvpn
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گپ تاسیان 🦦
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 5967
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور ها چک میشن هر نیم ساعت
-ضعیف شن جدیدشو میزاریم ، با قدرت وصلیم ❤️
-</div>
-
-## tasiyanc — post 5966
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Gold🥇Vip servers.npvt
-</div>
-
-## tasiyanc — post 5965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی - 🇫🇷
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5963
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ npv سرعت بالا (تست)
-@Tasiyanc
 </div>
 
