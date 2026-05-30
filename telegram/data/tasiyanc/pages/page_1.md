@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/09 02:17
+📅 آخرین بروزرسانی: 1405/03/09 03:31
 
 ---
+
+## tasiyanc — post 5957
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎉 امروز تولدمه!
+
+یه کیک بما نمیرسه؟🎂
+30May - 9 خرداد
+
+💘💘💘 💘💘 💘💘
+</div>
 
 ## tasiyanc — post 5956
 
@@ -11,8 +22,6 @@ TS premium Servers 🌲⚡.npvt
 </div>
 
 ## tasiyanc — post 5955
-
-<div align="center"><a href="files/post_5955_🇫🇷⚡pre.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇫🇷⚡pre.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرعتی تست
@@ -145,22 +154,5 @@ TS premium Servers 🌲⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 -FAST MCI & MTN & RighTel 🔥.npvt
-</div>
-
-## tasiyanc — post 5934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
-
-5سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 

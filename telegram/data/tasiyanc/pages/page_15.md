@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/03/09 02:17
+📅 آخرین بروزرسانی: 1405/03/09 03:31
 
 ---
+
+## tasiyanc — post 5584
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان 📱
+
+⛈دو سرور تست شده همه اپراتورها⛈
+
+برای اتصال پایدار صبور باشید
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5583
 
@@ -169,15 +183,5 @@ WAR 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بمب بعدی در راه
-</div>
-
-## tasiyanc — post 5562
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان  تمام اپراتورها  📶
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 
