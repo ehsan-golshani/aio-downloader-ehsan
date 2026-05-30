@@ -1,8 +1,10 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/09 03:30
+📅 آخرین بروزرسانی: 1405/03/09 07:45
 
 ---
+
+## FVpnProxy — post 505
 
 ## FVpnProxy — post 504
 
@@ -187,8 +189,4 @@
 فاکتور میدیم پرداخت بزنید.
 ❤️😘
 </div>
-
-## FVpnProxy — post 483
-
-<div align="center"><img src="files/post_483_FVpnProxy_483.jpg" alt="Photo"></div>
 
