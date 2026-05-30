@@ -1,8 +1,150 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/10 00:45
+📅 آخرین بروزرسانی: 1405/03/10 01:49
 
 ---
+
+## tasiyanc — post 6007
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک فیلتر شکن استفاده میکنن
+امروز شنیدم هرکی با jumpjump وصل شده رفته اینستا ، اکانتش از دسترس خارج شده و نیاز به احراز هویت ( فیلم) داره تا اکانتش برگرده ، مراقب باشید با هر فیلترشکنی وصل نشید
+پ ن : نمی‌دونم درسته یا نه ولی دو سه نفر بهم گفتن
+</div>
+
+## tasiyanc — post 6006
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VİP 🔥.npvt
+</div>
+
+## tasiyanc — post 6005
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🇫🇷.npvt
+</div>
+
+## tasiyanc — post 6004
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کی قهرمان میشه ؟
+
+🔴 آرسنال ❤️
+🇫🇷 پاریس 🔥
+</div>
+
+## tasiyanc — post 6003
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هردو کانفیگ اوپن وصله برید حالشو ببرید
+</div>
+
+## tasiyanc — post 6002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده 🚀
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6001
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۴۰ هزار نفر ۲ تا ریکشن🤣🤣
+</div>
+
+## tasiyanc — post 6000
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریکشن میبینم خندم میگیره🤣
+</div>
+
+## tasiyanc — post 5999
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده 🚀
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5998
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5996
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+2سرور  سرعتی قدرتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروکسی ۱
+پروکسی ۲
+پروکسی ۳
+پروکسی ۴
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور جدید با متد جدید ساعت ۸
+</div>
+
+## tasiyanc — post 5988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حتی ماه هم داخل خرداد مودی شده 😂
+خودمم خردادی ام ❤️❤️
+</div>
+
+## tasiyanc — post 5987
+
+<div align="center"><img src="files/post_5987_tasiyanc_5987.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭐ قراره تو تاریخ 31 و 30 May (10و 9 خرداد 1405) ماه به مرحله کامل (بدر) برسه و پدیده ماه آبی به وجود میاد
+
+از برکات تولد مالک تاسیان😂❤️
+</div>
+
+## tasiyanc — post 5982
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عشقید به مولا
+</div>
 
 ## tasiyanc — post 5981
 
@@ -27,153 +169,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 متد جدید 🔥.npvt
-</div>
-
-## tasiyanc — post 5977
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بازه 5 GB 170 10 GB 310 20 GB 580 30 GB 900 @StarTasiyan ثبت سفارش
-</div>
-
-## tasiyanc — post 5976
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بازه
-5 GB 170
-10 GB 310
-20 GB 580
-30 GB 900
-@StarTasiyan ثبت سفارش
-</div>
-
-## tasiyanc — post 5975
-
-<div align="center"><img src="files/post_5975_tasiyanc_5975.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متد جدید 🔥.npvt
-</div>
-
-## tasiyanc — post 5973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان 
-
-۷سرور  سرعتی قدرتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5972
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک سرور شخصی openvpn می‌خوان برن سایت
-vpnbook.com
-Create openvpn
-پورت روی 443 یا 80 بزارید
-کشورهای اروپایی بهتر جواب میدن .
-@Tasiyanc
-</div>
-
-## tasiyanc — post 5971
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور های vip بعدی با متد جدید ساعت ۴ در حال تستشم جواب بده میزارم
-</div>
-
-## tasiyanc — post 5970
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پینگ نگیرید ، کانکت شدید بیاید تل یا اینستا بالا میاد خودش
-</div>
-
-## tasiyanc — post 5969
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان 
-
-5سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گپ تاسیان 🦦
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 5967
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور ها چک میشن هر نیم ساعت
-ضعیف شن جدیدشو میزاریم ، با قدرت وصلیم ❤️
-</div>
-
-## tasiyanc — post 5966
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Gold🥇Vip servers.npvt
-</div>
-
-## tasiyanc — post 5965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی - 🇫🇷
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5963
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ npv سرعت بالا (تست)
-@Tasiyanc
-</div>
-
-## tasiyanc — post 5960
-
-<div align="center"><img src="files/post_5960_tasiyanc_5960.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Gold🥇Vip servers.npvt
-</div>
-
-## tasiyanc — post 5959
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان 
-
-8سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5958
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرسی از تبریک های قشنگتون 🥹❤️‍🔥
-بهترین ها نصیبتون شه ایشالا مرسی که هستید ❤️
 </div>
 
