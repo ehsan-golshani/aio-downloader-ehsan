@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/03/11 01:09
+📅 آخرین بروزرسانی: 1405/03/11 02:17
 
 ---
+
+## tasiyanc — post 5780
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈2 سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نگران نباشید منو دارین منم شمارو ❤️
+</div>
+
+## tasiyanc — post 5778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینترنت سرش یکم گرد شد
+</div>
+
+## tasiyanc — post 5775
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+CHATGBT ✅
+هم گویا رفع فیلتر شده
+</div>
 
 ## tasiyanc — post 5774
 
@@ -164,59 +196,5 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بمب بعدی تو راهه
-</div>
-
-## tasiyanc — post 5753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینستا بهتر از تلگرام بالا میاد ، کانکت شدید برید اینستا ببینین سرعتو
-</div>
-
-## tasiyanc — post 5752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
-
-
-
-🚀 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 5750
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
-
-
-
-🚀 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 5748
-
-<div align="center"><img src="files/post_5748_tasiyanc_5748.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-براتون یه فایل نپسترنت با ۶ تا کانفیگ درست کردیم ( عکس تستو ببینید برگاتون بریزه ) ❤️‍🔥
-
-دریافت کانفیگ نپسترنت ( رایگان )
 </div>
 
