@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/03/10 13:09
+📅 آخرین بروزرسانی: 1405/03/10 16:34
 
 ---
+
+## tasiyanc — post 5858
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عالیهههه خدا خیرتون بده
+</div>
+
+## tasiyanc — post 5857
+
+<div align="center"><img src="files/post_5857_tasiyanc_5857.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این سرعتی هم عالیه
+</div>
+
+## tasiyanc — post 5856
+
+<div align="center"><img src="files/post_5856_tasiyanc_5856.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشتی همین الان وصل کردم ببین سرعت دانلود
+</div>
+
+## tasiyanc — post 5855
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدایی دمتون گرم هرچی بگم کم گفتم همیشه قوی پر سرعت پایدار مرسی بابت زحماتتون
+</div>
+
+## tasiyanc — post 5854
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بهرحال ما ک قطعیم
+</div>
 
 ## tasiyanc — post 5853
 
@@ -124,65 +158,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚀 VIP SPEEEEEEEED.npvt
-</div>
-
-## tasiyanc — post 5817
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوباره بگم؟
-</div>
-
-## tasiyanc — post 5816
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-″رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- 3 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5815
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-″رمز @Tasiyanc ″
-
-📱 4 سرور  سرعتی  اختصاصی تاسیان  📱
-
-✅ تست شده روی همه اپراتورا ✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5814
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium Fast servers 🔥🌱.npvt
-</div>
-
-## tasiyanc — post 5813
-
-<div align="center"><img src="files/post_5813_tasiyanc_5813.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانسل
-
-گوشیم رو بروز کردم
 </div>
 

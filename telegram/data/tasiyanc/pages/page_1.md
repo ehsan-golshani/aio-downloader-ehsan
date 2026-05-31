@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/10 13:09
+📅 آخرین بروزرسانی: 1405/03/10 16:34
 
 ---
+
+## tasiyanc — post 6088
+
+<div align="center"><a href="files/post_6088_سرعتی تست وای‌فای⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 سرعتی تست وای‌فای⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرمیوم سرعتی ⚡.npvt
+</div>
+
+## tasiyanc — post 6087
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Channel@Tasiyanc.ovpn
+</div>
+
+## tasiyanc — post 6086
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنا بالا باشه❤️
+</div>
+
+## tasiyanc — post 6085
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی برای وای‌فای تا دقایقی دیگه میزارم به درخواست اعضای تاسیان
+</div>
+
+## tasiyanc — post 6084
+
+<div align="center"><a href="files/post_6084_پرمیوم سرعتی ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 پرمیوم سرعتی ⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+۴سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6082
 
@@ -11,8 +55,6 @@
 </div>
 
 ## tasiyanc — post 6081
-
-<div align="center"><a href="files/post_6081_🚀🇮🇹🇳🇱 سرعتی - VIP.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🚀🇮🇹🇳🇱 سرعتی - VIP.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  متد جدید
@@ -174,38 +216,5 @@ Hot Servers 🔥🌶️.npvt
 چون شما مثل خانواده من هستید و من اجازه نمیدم هیچکس هیچکس به خانواده عزیز من توهین بکنه
 
 دوستتون دارم❤️
-</div>
-
-## tasiyanc — post 6056
-
-<div align="center"><img src="files/post_6056_tasiyanc_6056.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife
-اوبی کونی پدر با من در میوفتی🤣
-</div>
-
-## tasiyanc — post 6055
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۵ مین دیگه میزارم
-</div>
-
-## tasiyanc — post 6054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اماده باشین
-</div>
-
-## tasiyanc — post 6053
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه چیزای دستم رسیده نمی‌دونم بزارم نزارم🤣
-</div>
-
-## tasiyanc — post 6052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عکس و ..؟
 </div>
 
