@@ -1,12 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/10 03:05
+📅 آخرین بروزرسانی: 1405/03/10 05:27
 
 ---
 
-## tasiyanc — post 6062
+## tasiyanc — post 6069
 
-<div align="center"><a href="files/post_6062_Hot Servers 🔥🌶️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Hot Servers 🔥🌶️.npvt</a></div>
+<div align="center"><img src="files/post_6069_tasiyanc_6069.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FastVip⚡.npvt
+</div>
+
+## tasiyanc — post 6068
+
+<div align="center"><a href="files/post_6068_FastVip⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 FastVip⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+6سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
+✅
+
+دانلود  NPV tunnel  
+🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Hot Servers 🔥🌶️.npvt
+</div>
+
+## tasiyanc — post 6062
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  متد جدید
@@ -140,23 +173,5 @@
 ادبش کردید ؟
 @ineedknife
 اگه ادبش کردید یه ری اکشن بزنید بره همون جایی ک میدونین 😂
-</div>
-
-## tasiyanc — post 6040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور های جدید نپستر ساعت ۱.۳۰
-</div>
-
-## tasiyanc — post 6036
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام مردم بالا ببینید راجب این فیلترشکن
-</div>
-
-## tasiyanc — post 6035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باز الان یکی میاد چرت چند میگه نه اینجور نیست خب پاره شدیم تحقیق کردیم جامپ مخربه و ربطی به آیپی نداره بری فعال یا غیر فعال کنی ، بقیه فیلترشکنا چنین چیزی گزارش نشده
 </div>
 

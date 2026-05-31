@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/10 03:05
+📅 آخرین بروزرسانی: 1405/03/10 05:27
 
 ---
+
+## tasiyanc — post 6017
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید پارتی داریم ( گپ تاسیان)
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6016
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🇬🇧.npvt
+</div>
+
+## tasiyanc — post 6015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+سرور  سرعتی
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
+✅
+
+دانلود  NPV tunnel  
+🌐
+
+نحوه اتصال به سرورها 
+⏩
+
+
+
+🦁  @Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6014
 
@@ -150,24 +186,5 @@ VİP 🔥.npvt
 ⭐ قراره تو تاریخ 31 و 30 May (10و 9 خرداد 1405) ماه به مرحله کامل (بدر) برسه و پدیده ماه آبی به وجود میاد
 
 از برکات تولد مالک تاسیان😂❤️
-</div>
-
-## tasiyanc — post 5982
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عشقید به مولا
-</div>
-
-## tasiyanc — post 5981
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنها کسی ک مارو ب نت جهانی وصل کرد در سخت ترین شرایط شما بودی و خدا خیر بده اون کسی ک فقط ی دونه از کانف شمارو فرستاد تو روبیکا و من تونستم حداقل ۲۰نفرو با شما ب نت وصل کنم اونا دعاگوی من و منم دعاگوی شما
-دمتگرم ادم حسابی🙏🏻❤️
-</div>
-
-## tasiyanc — post 5980
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خلاصه این تلگرامو کانفینگاشم میرسه به یه خرداد ماهی 😉😉😉
 </div>
 
