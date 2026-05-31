@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/03/10 16:34
+📅 آخرین بروزرسانی: 1405/03/10 18:27
 
 ---
+
+## tasiyanc — post 5677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip هلند و آمریکا همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5676
 
@@ -166,18 +177,5 @@ WİFİ موشک.npvt
 
 همه باهم ، برای هم 🤝
 کوچیک شما مالک چنل نوید 💙
-</div>
-
-## tasiyanc — post 5642
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
-
-
-🚀 @Tasiyanc ✅
 </div>
 
