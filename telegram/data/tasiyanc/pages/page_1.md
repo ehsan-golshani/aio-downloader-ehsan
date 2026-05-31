@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/10 05:27
+📅 آخرین بروزرسانی: 1405/03/10 10:01
 
 ---
+
+## tasiyanc — post 6076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+150 گیگ تو گپ تاسیان کانفیگ ویتوری
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6075
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FastVip⚡.npvt
+</div>
+
+## tasiyanc — post 6074
+
+<div align="center"><a href="files/post_6074_Channel@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Channel@Tasiyanc.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی همه اپراتورا🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میخواستم کانفیگ اوپن دیگه بدم ولی ری اکشن کمه
+</div>
+
+## tasiyanc — post 6072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر عشقا
+</div>
+
+## tasiyanc — post 6071
+
+<div align="center"><a href="files/post_6071_(Xz)@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 (Xz)@Tasiyanc.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی همه اپراتورا🚀
+
+دانلود OpenVpn 🎚
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6069
 
@@ -13,8 +70,6 @@ FastVip⚡.npvt
 </div>
 
 ## tasiyanc — post 6068
-
-<div align="center"><a href="files/post_6068_FastVip⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 FastVip⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  متد جدید
@@ -134,44 +189,5 @@ Hot Servers 🔥🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نزنه رسانه ای میکنم
-</div>
-
-## tasiyanc — post 6046
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکم صبر میکنم دیل آک بزنه
-</div>
-
-## tasiyanc — post 6045
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امین زحمت کشید شماره و آدرس و شماره بابای جاکشش درآورده
-</div>
-
-## tasiyanc — post 6044
-
-<div align="center"><img src="files/post_6044_tasiyanc_6044.jpg" alt="Photo"></div>
-
-## tasiyanc — post 6043
-
-<div align="center"><img src="files/post_6043_tasiyanc_6043.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6042
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife
-آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادبش کردید ؟
-@ineedknife
-اگه ادبش کردید یه ری اکشن بزنید بره همون جایی ک میدونین 😂
 </div>
 
