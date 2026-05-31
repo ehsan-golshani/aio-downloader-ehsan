@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/11 02:17
+📅 آخرین بروزرسانی: 1405/03/11 03:24
 
 ---
+
+## tasiyanc — post 6127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡Premium Fast 🗿.npvt
+</div>
+
+## tasiyanc — post 6126
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هردفم باید بگیم دیگه ری اکشنو😭
+</div>
+
+## tasiyanc — post 6124
+
+<div align="center"><a href="files/post_6124_Fast @Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast @Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی کانفیگ وایرگارد ✅
+
+تست شده 🎚
+
+دانلود برنامه Wg tunnel 🕹
+
+آموزش ویدیویی ⏩
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6123
+
+<div align="center"><a href="files/post_6123_⚡Premium Fast 🗿.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡Premium Fast 🗿.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+5سرور  سرعتی تست شده 
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6122
 
@@ -137,37 +186,5 @@ https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunne
 🚨خبرگزاری تسنیم:
 استعفای پزشکیان کذب است
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6102
-
-<div align="center"><img src="files/post_6102_tasiyanc_6102.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-غیر رسمی پزشکیان استعفاء داد تایید شده نیست
-</div>
-
-## tasiyanc — post 6101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-غیر رسمی
-
-پزشکیان استعفاء داد
-
-تایید شده نیست
-</div>
-
-## tasiyanc — post 6100
-
-<div align="center"><img src="files/post_6100_tasiyanc_6100.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاسیان، بلاشک مرجع قوی‌ترین کانفیگ‌هایِ نپستر در تلگرام. به صد نفر تا الان کانال شمارو معرفی کردم.
-</div>
-
-## tasiyanc — post 6099
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازم باید بگیم ؟
 </div>
 
