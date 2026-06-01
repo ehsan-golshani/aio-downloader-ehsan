@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/03/11 03:24
+📅 آخرین بروزرسانی: 1405/03/11 08:38
 
 ---
+
+## tasiyanc — post 5569
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو ده مین ۱۰۰ تا فور 😐
+</div>
 
 ## tasiyanc — post 5568
 
@@ -272,11 +278,5 @@ WAR 🔥.npvt
 trojan://humanity@188.121.109.79:40443?security=tls&type=ws&host=www.ignitelimit.com&path=%2Fassignment&sni=www.ignitelimit.com&allowInsecure=1#%40Tasiyanc%20%F0%9F%8D%B3%20TKB
 
 Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5538
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه ترکیبی پررو بریم اگه ری اکشن باشه
 </div>
 

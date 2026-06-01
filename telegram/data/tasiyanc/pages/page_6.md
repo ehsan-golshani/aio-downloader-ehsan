@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/03/11 03:24
+📅 آخرین بروزرسانی: 1405/03/11 08:38
 
 ---
+
+## tasiyanc — post 5998
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5996
 
@@ -172,12 +189,5 @@ Create openvpn
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گپ تاسیان 🦦
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 5967
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور ها چک میشن هر نیم ساعت
-ضعیف شن جدیدشو میزاریم ، با قدرت وصلیم ❤️
 </div>
 

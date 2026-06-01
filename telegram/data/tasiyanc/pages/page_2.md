@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/11 03:24
+📅 آخرین بروزرسانی: 1405/03/11 08:38
 
 ---
+
+## tasiyanc — post 6103
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرگزاری تسنیم:
+استعفای پزشکیان کذب است
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6102
 
@@ -185,12 +193,5 @@ UDP 53 & TCP 80 TCP 8080
 دانلود از طریق AppStore 📱
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-150 گیگ تو گپ تاسیان کانفیگ ویتوری
-https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 

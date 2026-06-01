@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/03/11 03:24
+📅 آخرین بروزرسانی: 1405/03/11 08:38
 
 ---
+
+## tasiyanc — post 5667
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان 📱
+
+⛈سرور سرور تست شده همراه بقیه اپراتورا تست کنن⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5666
 
@@ -191,11 +202,5 @@ WİFİ موشک.npvt
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5631
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمام سرورا با همراه اول & وای‌فای تست میشن
 </div>
 

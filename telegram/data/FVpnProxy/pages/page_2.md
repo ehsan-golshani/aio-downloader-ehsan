@@ -1,8 +1,17 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/11 01:08
+📅 آخرین بروزرسانی: 1405/03/11 08:38
 
 ---
+
+## FVpnProxy — post 513
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+vless://301d514e-4aa0-47b0-ba44-a0cb891cd52f@45.158.127.5:443?fp=chrome&headertype=&host=&path=&pbk=OZVjfQBboTDTBw0baMFqzVPsVUI4FNQmspTEb0b0zW4&security=reality&sid=a1b2c3d4&sni=www.samsung.com&type=tcp#telegram:@FVPNProxy
+vless://2042c7c4-f0c8-48ec-926b-65112b064e2c@89.117.94.111:54495?encryption=none&security=reality&flow=xtls-rprx-vision&type=tcp&sni=yahoo.com&serverName=yahoo.com&fp=chrome&allowInsecure=0&pbk=50IjQtR9zJG_3pXrbQDalYy_D4c7C_A8EEwVx0EfOjM&sid=5e8c37215982#telegram:@FVPNProxy
+vless://2042c7c4-f0c8-48ec-926b-65112b064e2c@89.117.94.111:54495?security=reality&type=tcp&sni=yahoo.com&fp=chrome&flow=xtls-rprx-vision&sid=5e8c37215982&pbk=50IjQtR9zJG_3pXrbQDalYy_D4c7C_A8EEwVx0EfOjM#telegram:@FVPNProxy
+vless://7402e534-54dc-34cc-ac5b-c85ac6e236fd@s881.ccgfw.top:443?flow=xtls-rprx-vision&mode=&path=&security=tls&servicename=&sni=s881.ccgfw.top&type=tcp#telegram:@FVPNProxy
+</div>
 
 ## FVpnProxy — post 512
 
@@ -241,11 +250,5 @@ vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@fr-tx.sbrf-cdn342.ru:443?encryption
 😐😑
 
 تا اختلال هست استفاده کنید
-</div>
-
-## FVpnProxy — post 492
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاجی اینجور همه چیز باز شده چیزی فیلتر نیست. اختلاله فکر کنم 🤣
 </div>
 

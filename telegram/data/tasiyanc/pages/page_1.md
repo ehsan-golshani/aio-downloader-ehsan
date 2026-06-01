@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/11 03:24
+📅 آخرین بروزرسانی: 1405/03/11 08:38
 
 ---
+
+## tasiyanc — post 6128
+
+<div align="center"><a href="files/post_6128_VIP SERVERS 🚀.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 VIP SERVERS 🚀.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+4سرور  سرعتی تست شده 
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6127
 
@@ -18,8 +37,6 @@
 
 ## tasiyanc — post 6124
 
-<div align="center"><a href="files/post_6124_Fast @Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast @Tasiyanc.conf</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختصاصی کانفیگ وایرگارد ✅
 
@@ -34,8 +51,6 @@
 </div>
 
 ## tasiyanc — post 6123
-
-<div align="center"><a href="files/post_6123_⚡Premium Fast 🗿.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡Premium Fast 🗿.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  متد جدید
@@ -178,13 +193,5 @@ https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunne
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6103
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨خبرگزاری تسنیم:
-استعفای پزشکیان کذب است
-@Tasiyanc ✅
 </div>
 
