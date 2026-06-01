@@ -1,8 +1,126 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/03/11 14:07
+📅 آخرین بروزرسانی: 1405/03/11 20:05
 
 ---
+
+## tasiyanc — post 5808
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور سرعتی  اختصاصی تاسیان  📱
+
+✅ تست شده روی همه اپراتورا ✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر بار باید بگیم ری اکشن بزنید 😂
+</div>
+
+## tasiyanc — post 5805
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  ۲ سرور آلمان سرعتی  اختصاصی تاسیان  
+📱
+
+
+✅ تست شده روی همه اپراتورا 
+✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5804
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چن تا سرور بمب آماده کردم یکیشون تا ۵ مین دیگه میفرستم
+</div>
+
+## tasiyanc — post 5803
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  ۲ سرور vip سرعتی  اختصاصی تاسیان  📱
+
+✅ تست شده روی همه اپراتورا ✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود اپلیکیشن NPV tunnel  ⏩
+
+نحوه اتصال به سرورهای تاسیان ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5801
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن چقد زیاده 😐
+</div>
+
+## tasiyanc — post 5800
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  ۲ سرور سرعتی  اختصاصی تاسیان  📱
+
+✅ تست شده روی همه اپراتورا ✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود اپلیکیشن NPV tunnel  ⏩
+
+نحوه اتصال به سرورهای تاسیان ⏩
+
+
+🦁 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 💝.npvt
+</div>
+
+## tasiyanc — post 5798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور سرعتی اختصاصی تاسیان  📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡.npvt
+</div>
+
+## tasiyanc — post 5796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡.npvt
+</div>
 
 ## tasiyanc — post 5795
 
@@ -83,100 +201,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Panda 🐼.npvt
-</div>
-
-## tasiyanc — post 5786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈1 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💘💘💘
-wlc to TASIYAN family ❤️‍🔥
-</div>
-
-## tasiyanc — post 5784
-
-<div align="center"><img src="files/post_5784_tasiyanc_5784.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-kiwi Speed 🥝.npvt
-</div>
-
-## tasiyanc — post 5783
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال گسترده در داده های همراه
-</div>
-
-## tasiyanc — post 5782
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈2 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5780
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈2 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5779
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نگران نباشید منو دارین منم شمارو ❤️
-</div>
-
-## tasiyanc — post 5778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینترنت سرش یکم گرد شد
-</div>
-
-## tasiyanc — post 5775
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-CHATGBT ✅
-هم گویا رفع فیلتر شده
-</div>
-
-## tasiyanc — post 5774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی
-Chatgpt Grok
-برای ایرانسل الان باز شد
-</div>
-
-## tasiyanc — post 5771
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🔐 MCI - tst
-vless://4dc0eec9-f0e1-4755-be7e-7ba628522d1b@91.99.145.207:443?path=%2F&security=none&encryption=none&type=ws#%40Tasiyanc%20%F0%9F%A6%82
-@Tasiyanc
 </div>
 
