@@ -1,8 +1,24 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/12 14:41
+📅 آخرین بروزرسانی: 1405/03/12 18:48
 
 ---
+
+## FVpnProxy — post 515
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این لیست تست شده ، هیچ کدام برای ما نیست فقط ما داریم باز نشر می کنیم. از یک گیت هاب روسی . که یک سری ایرانی هم جزشون هست و اکثرا جواب میدن
+
+لیست هشتم
+
+vless://e258977b-e413-4718-a3af-02d75492c349@69.84.182.49:2096?path=%2F&security=tls&encryption=none&host=jp.aniua.qzz.io&fp=chrome&type=ws&sni=jp.aniua.qzz.io#telegram:@FVPNProxy
+vless://c2c301e9-a9db-4d91-9c7b-ff8935aeb4e1@92.243.74.4:8443?encryption=none&security=tls&sni=ioioioi.pages.dev&fp=random&insecure=1&allowInsecure=1&type=ws&host=ioioioi.pages.dev&path=/?ed=2560#telegram:@FVPNProxy
+vless://IR_NETLIFY@89.22.236.213:54346?encryption=none&security=none&type=tcp&headerType=none#telegram:@FVPNProxy
+vless://eb3fa357-cea8-321e-bbd5-850e2d874025@64.118.131.116:46783?fp=chrome&mode=gun&security=tls&serviceName=ljfxz&sni=t1.hhaakk9922.com&type=grpc&udp=1#telegram:@FVPNProxy
+vless://eb3fa357-cea8-321e-bbd5-850e2d874025@64.118.131.116:46784?fp=chrome&mode=gun&security=tls&serviceName=ljfxz&sni=t1.hhaakk9922.com&type=grpc&udp=1#telegram:@FVPNProxy
+vless://eb3fa357-cea8-321e-bbd5-850e2d874025@t1.hhaakk9922.com:46783?encryption=none&type=grpc&sni=t1.hhaakk9922.com&security=tls&fp=chrome&serviceName=ljfxz&mode=gun&udp=1#telegram:@FVPNProxy
+vless://eb3fa357-cea8-321e-bbd5-850e2d874025@t1.hhaakk9922.com:46784?encryption=none&type=grpc&sni=t1.hhaakk9922.com&security=tls&fp=chrome&serviceName=ljfxz&mode=gun&udp=1#telegram:@FVPNProxy
+</div>
 
 ## FVpnProxy — post 514
 
@@ -254,11 +270,5 @@ vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@fr-tx.sbrf-cdn342.ru:443?encryption
 با خیال راحت زندگی کنید
 
 همگی موفق باشید ❤️🌹🙏
-</div>
-
-## FVpnProxy — post 494
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاز اینایی که شنیدن اینترنت آزاد شده (اختلال) سریع لفت میدن دوست دارم 🤣
 </div>
 
