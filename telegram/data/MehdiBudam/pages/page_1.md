@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/12 14:40
+📅 آخرین بروزرسانی: 1405/03/12 22:31
 
 ---
+
+## MehdiBudam — post 8124
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان این تور های که گذاشته میشه همشون بریج هاشون متفاوته بخاطر همون برای بعضیا شاید وصل نشه نه اینکه مثل یه چنل دیگه که یدونه بریج پر سرعت پیدا کرده با همون چند‌تا تور گذاشته و همشون یکین و اگه یدونه Delete Duplicate بزنی کلا یدونه میمونه.
+</div>
+
+## MehdiBudam — post 8123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان این تور های که گذاشته میشه همشون بریج هاشون متفاوته بخاطر همون برای بعضیا شاید وصل نشه نه اینکه مثل یه چنل دیگه که یدونه بریج پر سرعت پیدا کرده با همون چند‌تا تور گذاشته و همشون یکین و اگه یدونه Delete Duplicate بزنی کلا یدونه میمونه.
+</div>
 
 ## MehdiBudam — post 8122
 
@@ -188,22 +200,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 از متد تور استفاده میکنید؟
-</div>
-
-## MehdiBudam — post 8102
-
-<div align="center"><img src="files/post_8102_MehdiBudam_8102.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگر هنوز دسترسی به اینترنت جهانی براتون باز نشده و مجبورید از DNS Tunelling استفاده کنید:
-با قابلیت جدید DNS Pool دیگه نیازی نیست دستی دنبال DNS بگردید یا اسکن کنید. می‌تونید تا ۱۰۰۰ تا DNS به برنامه بدید تا خودش قبل اتصال تستشون کنه و ۱۰ تا از بهترین‌ها رو خودکار براتون انتخاب کنه.
-
-🕊@slipnet_app
-</div>
-
-## MehdiBudam — post 8101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان میگن Snowflake با برنامه های Orbot و Invisible pro هم وصل میشه.
 </div>
 

@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/03/12 18:49
+📅 آخرین بروزرسانی: 1405/03/12 22:32
 
 ---
+
+## tasiyanc — post 5685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+27 k 🥹🫂
+ممنون که با تاسیان همراهید
+</div>
+
+## tasiyanc — post 5684
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip هلند ، فرانسه  همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip اتریش گاد همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5680
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان برای همراه اول 📶
+
+🔑تست شده و متصل ✅
+
+💙 @Tasiyanc 😎
+</div>
+
+## tasiyanc — post 5679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان برا دوستانی ک مشکل ورود به گیم دارن📱
+
+⛈سرور vip آلمان - مونیخ همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور بعدی مخصوص گیمرا
+</div>
+
+## tasiyanc — post 5677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip هلند و آمریکا همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5676
 
@@ -119,65 +186,5 @@ vless://d37a75db-76b6-4db8-b213-0d5b044d138d@172.64.152.100:443?path=%2F&securit
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 WİFİ موشک.npvt
-</div>
-
-## tasiyanc — post 5663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گوشه ای از محبت مردم عزیز وطنم ❤️ همه رو نمیشه بزارم ، سپاس از همتون
-</div>
-
-## tasiyanc — post 5662
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود به دوستان گلم
-خسته نباشید میگم بهتون
-جا داره ازتون تشکر کنم بابت زحمات زیادی که کشیدید من به شخصه یادم میمونه که تو چه شرایطی پشت مردمتون بودید
-دم معرفتتون گرم
-امیدوارم بتونیم جبران کنیم 💙💙
-</div>
-
-## tasiyanc — post 5646
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️ پیرو اخبار بازگشت اینترنت بین المللی: درز های خیلی زیادی باز شده و یه کانفیگ نپستر درست شده که کار میکنه! دریافت کانفیگ نپسترنت مخصوص ( رایگان )
-</div>
-
-## tasiyanc — post 5645
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️ پیرو اخبار بازگشت اینترنت بین المللی:
-
-درز های خیلی زیادی باز شده و یه کانفیگ نپستر درست شده که کار میکنه!
-
-دریافت کانفیگ نپسترنت مخصوص ( رایگان )
-</div>
-
-## tasiyanc — post 5644
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تعداد پیام دایرکت - گروه زیاده از همه شما عزیزان ، بزرگ کوچك ، زن مرد که کنار هم در روزهای سخت ایستادید سپاسگذارم و بابت پیام‌های خوبتون ممنون شما هستم ❤️‍🔥 امید است تیم تاسیان همواره کنار شما باشد تا شما عزیزان راضی باشید 🌹
-</div>
-
-## tasiyanc — post 5643
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امیدوارم نت اگه باز شد یادتون باشه کی پیش کی موند تا لحظه آخر ❤️🫂 و کنارمون باشید تا با قدرت ادامه بدیم ❤️‍🔥
-
-همه باهم ، برای هم 🤝
-کوچیک شما مالک چنل نوید 💙
-</div>
-
-## tasiyanc — post 5642
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
-
-
-🚀 @Tasiyanc ✅
 </div>
 
