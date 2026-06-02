@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/03/12 05:13
+📅 آخرین بروزرسانی: 1405/03/12 14:41
 
 ---
+
+## tasiyanc — post 5996
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+2سرور  سرعتی قدرتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروکسی ۱
+پروکسی ۲
+پروکسی ۳
+پروکسی ۴
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور جدید با متد جدید ساعت ۸
+</div>
+
+## tasiyanc — post 5988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حتی ماه هم داخل خرداد مودی شده 😂
+خودمم خردادی ام ❤️❤️
+</div>
+
+## tasiyanc — post 5987
+
+<div align="center"><img src="files/post_5987_tasiyanc_5987.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭐ قراره تو تاریخ 31 و 30 May (10و 9 خرداد 1405) ماه به مرحله کامل (بدر) برسه و پدیده ماه آبی به وجود میاد
+
+از برکات تولد مالک تاسیان😂❤️
+</div>
 
 ## tasiyanc — post 5982
 
@@ -129,50 +179,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرور ها چک میشن هر نیم ساعت
 ضعیف شن جدیدشو میزاریم ، با قدرت وصلیم ❤️
-</div>
-
-## tasiyanc — post 5966
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Gold🥇Vip servers.npvt
-</div>
-
-## tasiyanc — post 5965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی - 🇫🇷
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5963
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ npv سرعت بالا (تست)
-@Tasiyanc
-</div>
-
-## tasiyanc — post 5960
-
-<div align="center"><img src="files/post_5960_tasiyanc_5960.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Gold🥇Vip servers.npvt
-</div>
-
-## tasiyanc — post 5959
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان 
-
-8سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 

@@ -1,12 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/12 05:13
+📅 آخرین بروزرسانی: 1405/03/12 14:41
 
 ---
 
-## tasiyanc — post 6170
+## tasiyanc — post 6175
 
-<div align="center"><a href="files/post_6170_URANIUM 🚀🔥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 URANIUM 🚀🔥.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+NewMethod🌶️@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6174
+
+<div align="center"><a href="files/post_6174_NewMethod🌶️@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 NewMethod🌶️@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦦 سرورامون با قدرت میتازن
+</div>
+
+## tasiyanc — post 6172
+
+<div align="center"><a href="files/post_6172_🥇🪙@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🥇🪙@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6171
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر❤️‍🔥
+</div>
+
+## tasiyanc — post 6170
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  3 ترا📱
@@ -167,41 +205,5 @@ Premium 💙BLUE.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Vip⚡💚fast.npvt
-</div>
-
-## tasiyanc — post 6151
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium 💙BLUE.npvt
-</div>
-
-## tasiyanc — post 6150
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New🚀@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6149
-
-<div align="center"><img src="files/post_6149_tasiyanc_6149.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو دقیقه نیست استارت خورد ، دمت گرم عشقی. بمبه
-</div>
-
-## tasiyanc — post 6148
-
-<div align="center"><img src="files/post_6148_tasiyanc_6148.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پابجیم آپدیت شد
-ای فوتبال هم گذاشتم
-تشکر واقعا
-</div>
-
-## tasiyanc — post 6147
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium 💙BLUE.npvt
 </div>
 
