@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/12 02:39
+📅 آخرین بروزرسانی: 1405/03/12 05:13
 
 ---
+
+## tasiyanc — post 6170
+
+<div align="center"><a href="files/post_6170_URANIUM 🚀🔥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 URANIUM 🚀🔥.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  3 ترا📱
+
+4سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 3 server 🇩🇪
+All Operators
+
+vless://7d8584e3-410b-4667-a9b3-9a6465d4f999@91.107.255.167:24391?security=none&encryption=none&headerType=none&type=tcp#Wifi%20%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc%20%F0%9F%9A%801
+trojan://VPTFm%3DoZ%2B%2BSuNT%2BjMRqGZqrAnWq-r8KJyY@172.104.237.100:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=172.104.237.100#Wifi%20%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc%20%F0%9F%9A%802
+trojan://r-_YbwF.j0TtHVewoFIppramjAnmSfqYzJ@172.238.120.124:443?security=tls&insecure=0&headerType=none&fp=chrome&type=tcp&allowInsecure=0#Wifi%20%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc%20%F0%9F%9A%803
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6168
 
@@ -21,8 +52,6 @@ Premium GOD SV 🚀🔥.npvt
 </div>
 
 ## tasiyanc — post 6166
-
-<div align="center"><a href="files/post_6166_Premium GOD SV 🚀🔥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Premium GOD SV 🚀🔥.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  متد جدید 📱
@@ -52,8 +81,6 @@ Premium GOD SV 🚀🔥.npvt
 
 <div align="center"><a href="files/post_6163_tasiyanc_6163.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
-<div align="center"><a href="files/post_6163_04🚀Fast @Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 04🚀Fast @Tasiyanc.conf</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختصاصی وایرگارد  
 👑
@@ -71,8 +98,6 @@ Premium GOD SV 🚀🔥.npvt
 </div>
 
 ## tasiyanc — post 6161
-
-<div align="center"><a href="files/post_6161_NL&CAD🌙.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 NL&CAD🌙.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  متد جدید 📱
@@ -178,27 +203,5 @@ New🚀@Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Premium 💙BLUE.npvt
-</div>
-
-## tasiyanc — post 6146
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-
-3سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6145
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن شما به ما انگیزه فعالیت بیشتر میده😐
 </div>
 
