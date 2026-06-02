@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/12 00:21
+📅 آخرین بروزرسانی: 1405/03/12 09:56
 
 ---
+
+## ProxyMTProto — post 47774
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 93.185.167.212
+Port: 443
+Secret: ee1c88677acf461e09e68f4ff0cef5724a617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47773
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: trump.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47772
 
@@ -168,24 +186,6 @@ Secret: ee81aebd9867cc45d05974d953706819d177622e7275
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47754
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r42.proxytg.space
-Port: 8443
-Secret: eed45e80e76b5cd09e7994e4417a324fa17234322e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 147.45.68.59
-Port: 443
-Secret: eeea62717efcf6c6c3beba94b1f8a4166a766b2e636f6d
 @ProxyMTProto
 </div>
 
