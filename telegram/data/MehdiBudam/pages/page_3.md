@@ -1,8 +1,35 @@
 # آرشیو کانال MehdiBudam - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/12 22:31
+📅 آخرین بروزرسانی: 1405/03/13 08:38
 
 ---
+
+## MehdiBudam — post 8076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تفاوت نسخه‌ها: کامل (Full) در برابر سبک (Lite)
+
+- نسخه کامل (Full): این نسخه شامل تمامی انواع تونل‌های ارتباطی از جمله DNSTT، NoizDNS، VayDNS، Snowflake و NaiveProxy (که با Tor ادغام شده است) می‌شود. اگر به تمام قابلیت‌ها و پروتکل‌های پیشرفته نیاز دارید، این نسخه مناسب شماست.
+
+- نسخه سبک (Lite): این نسخه فقط شامل تونل‌های پایه یعنی DNSTT، NoizDNS و VayDNS است. به دلیل حذف Tor، Snowflake و NaiveProxy، حجم دانلود بسیار کمتری دارد و برای کسانی که فقط به امکانات اصلی نیاز دارند یا فضای خالی کمتری در گوشی خود دارند، ایده‌آل است.
+
+کدام فایل APK را باید دانلود کنیم؟
+برای نصب برنامه، نسخه‌های مختلفی بر اساس معماری پردازنده (CPU) دستگاه‌ها ارائه شده است:
+
+- یونیورسال (universal): این نسخه روی تمامی دستگاه‌ها به درستی کار می‌کند. اما از آنجایی که فایل‌های مربوط به تمام معماری‌ها را در خود جای داده است، حجم دانلود آن از بقیه نسخه‌ها بسیار بیشتر است.
+
+- نسخه arm64-v8a: این نسخه مخصوص اکثر گوشی‌های هوشمند مدرن و جدید (تولید سال ۲۰۱۶ به بعد) است. حجم دانلود آن کمتر از نسخه یونیورسال است. نکته: اگر مطمئن نیستید گوشی شما چه مدلی است، به احتمال بسیار زیاد همین نسخه برای شما مناسب است.
+
+- نسخه armeabi-v7a: این نسخه برای گوشی‌ها و دستگاه‌های قدیمی‌تر که دارای پردازنده‌های ۳۲ بیتی ARM هستند، طراحی شده است.
+
+- نسخه x86_64: این فایل منحصراً برای نصب روی شبیه‌سازهای اندروید (مانند بلواستکس در کامپیوتر) و لپ‌تاپ‌های کروم‌بوک (Chromebooks) کاربرد دارد.
+</div>
+
+## MehdiBudam — post 8075
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه هنوز نمیتونید وصل شید ۳ تا سرور آخر و بقیه رو تست کنید.
+</div>
 
 ## MehdiBudam — post 8074
 
@@ -180,34 +207,6 @@ Pass: @MehdiBudam
 ﻿
 
 slipnet-bundle-enc://AdgXnd0TpH4xHolufTdFiMfNAV5JAaZF9FqtP4Ey2h2uyYmJv4tf33hmh9qETEcbbaMVPKImGJSb2puKDHFT057lLG4+eza+zx7LgFBSuvxwz22lqjqbRRPn+rcoJLD543owX8uo8FTg+x1GXYITIEOF5KHkgZqUJfqiVtw8bdCMSA03woEvl9vDawpmXofomuBCEjLDorlR5XUV8l5a+miYcTYCU068cvOYNeYLVNQxUyogk+LNMHALVtDVgB9097PPv9aG0R3RCcXvC2QLz6KyVwvxd/NP4vMEESVlEp50v1BnP6x5hljTE4tXdFZCFs00U7fsfsdHanNQlggphWCxz8jclp08mz//oY8Z1Ed15wycwcLL0CPToEseMdZNph49Ojl+THZuvtwpGGfmi4y5O3xK5GzRJIWV8Ud+FIf4Mq+n8D4sP9X8ZLmNeKXVpn3ewU7S4vG9hVly49zg9wBEuvu8/CR7Q8qhHnOSJB60dwHnjQzGgucZ2sqPhxqw65RiZKkjSOP1JLUHLSbOyHSjqoYNdcLF9SGTi457PtOvr/wJr3yKzMRqPmXbamqEcA2wRAwBm08Tu657JUfLhXcD8TDtu/35s/Mc878cMzHywWH/4ReKDBt1wOQmjucZvmwjUNbvWNkoIYZoR7eQ6j1KC2zsOpwtcUF3uLiKfQ3DKtEb+NV7Ydh4c5HYFEHK0tGi6lCiaMX20a6SIBBGnqHhU4Whr7FbCWQVPFhDGKm8bNftCyiB2ik5HnCj4XcuD6supx96MMFiHMvKUpKIxqG+Y7TkstQETrJHAbG1TcXsQf787xLPVZWEPvj83v2LjuNIihwr42vrkPDqaBBYese0MwWYnudprLdU/r05UR6rRW6Oa/fAQIgzFYc5zpQiTmPD/0OMFwX4a3u6xIJREXITLino8q2tCBzgDDzP7uEHI/96lJKkFD5xBNipnRfbtTiBZdquedaiF4ykB8jcPbGwyv7kUQaM3VnTHIQcpwTMwrXpbMGXosLNkP3VfpFOItFhHMBuSlZvhOmYsUthTKscS9u6L4c/mGi4a24Yujck3QFNX+AVTbNnt51hFR6gCnwfT6uyV4m0ztg=
-
-
-Pass: @MehdiBudam
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-114
-﻿
-
-slipnet-bundle-enc://AVcHi/SyV9RFkbgQ08myKwZ5DTK3Fi8l7yHlCeJLxTUhapjr71QKwAuIqFYZId4FqkQ/1+ICN6XEgx5g9RdOagE4FMPAb/f/Vi7s7+KKhoiMQosYtopbHuwc+1wwjJSJuXkWg6PKNWGZx3RnYFuOlWg2SCDnHn6OmEc3igDmpTQcuyGS2Y9MHOmg/0MTYhy3zycJF2Bc+noyWiVSFEbjCQGvMlScrTlhimpO0iTCJU1DxV2bDGEqa3rwFJvf8cnhEhASlICbFFBq86LCy+qLMDJzX2eVh4RMh4X3QYFV5DiL3QY0iTxfuAr2HM+EP+BbkxRKvy5V0vO2dwWp+3IAW3PdXOTVgRx+1KjiqkJ6UksQM7+YRwfTi6ewvHkIWW1622RTZ+b0f5Xz1tjqsfzfsYuXsHcuweafVaW6JKpr/AFXgJQkO0QtY2Ey2AX9cUnEJfn3JPxBu+h2vCEq3biVjtqrkY03LinVO5jdHScDcpLFaDWQg7fGDu2mFd0rnWaEYytNlqxMvfIm3GkXmcXaiWkcj+vfZ540CkLNSSRJqdHug1UprITl9kpJ1NPu0w5CbwpJoRM+FljVVY/6PE8XcP6icymXxODWcFZ51HTR4BPFfrU6yQO0zzLhQgLXcpm9vEP5SbHtsDNzq9/N1YJEPvkCbYfzY8VpEQkLJCeqGTxvMywSdfs1td+Wg60AM4iY7bkKGdlWM/Hs1ENC1LDv3WFLVAOBXKVsOjzGNAHGzkWXPfVa7Uxnj6ihWNY13meNdHBxBiv8qBoriisOzP0F5/Tujnlz/zc3CWI5mxBGzyjRSlECQhfJspGsEB04otBw96KCJu7/BrOap0vefJHdZ3V9UT4+K6kGXLlxQMwZJrUoTLuYV+SVopCaB1A3h1oXZbzAhTerWadQXvqD9m5F9SbwtEPOi2aFbTCQP0kCXIVUYv4hk1rdseNHYdCpwStbAfmJHhe/+AdqWDBSp2mv3yfqyo49gyBSE0HkBpJfyjpt8T95HvUioMY8W+nwBXG+wOx8qbwbWe1ZZZe3jPzwjLvOdzKYzggtjt6CNVQwqPX7dPG+yARjM+4IcDWVZGIzY7xq
-
-
-Pass: @MehdiBudam
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8051
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-113
-﻿
-
-slipnet-bundle-enc://AeEtFUQFP7pl+aig11ybNQHc4+CUPVcq5LxXTaFyOXdeaEjs9h2ciVZy6y9EW1m6qEG6LR7enGT8RNcOOugbwvAgZ7KywqCRC6E1I0xzXTyh3G905lPeqsp4sZGSg3SXqNXo1bN3GabYdgY1YF2xT/2DpFnWOU0uo9fym/hRkY+mdl+lYNSz+wvmtKaQz4K6R13TJwjOAIN9CQY5mNYTG6HRQz6Rba982qhhQ4cz+0l8sIiaa6i0YhNkh+0EYyK0GjpIVrXkKTH6lRovDcpmqArzDvhSiUt8kH3bO9w7rYKGEC2aSS25L484Dkpu+CsUFe9hXPl6/jdesVO9iWjsvx7Zn7u8lvIfXZmQY/tF8AQaZdvSAEZKbpDVkKtulRSB+fOObaUF3obNl4ng/5gDppo3aji4/I9Ro5vNigOpJ275/ftPSepLPXtDBTgFRZcfHuHlLxdOxybnMxy6TVBkL+xOFUreBEjT09MhGDf/NnFMhj16O6j5IwGsCtQmyT81vhYHUffRa/JDvOwo5hL/TOI+RcIXSZ6+UFQCZjBM57AmgwE3cWM0Gld5sq1FrmLfTbRChxDFKhKebEQWRDLd3zFt5Sii5hCGUEGcBgSN/1PB4egNhgpfhfniri4VFlH2NjnjKykf/ANnWBPpBXWqbJAO2IhQqO8fOpk1KQCGZqdPohQc413Qy87Z3kGpjkV0L2W8T/wWkQ1di2Zrh34t8P/GGCCa5Wd0MMCs+mqJv0MJlalO/pNy3Zz+q4uJl8D1/HSk6P9pk7E6WGBo2BQb7e347FltTR9njsCKsTyogQ5b2THQmRGsMAYWFuUSnBG3KoGLI8oBuFBbvfSyY5NKiverww2y0h7CgM2gM3gExbrDZ8DX+XA60ARPZmEeodSYsTVyJFLpLlnjH7xOOo59Y1vSCLExxqnc4q5uXkSSUrYE4gb5tgCS2LiUCtp8tNMQk4Aln1/jS68ujJmtpgM4wBRbBtR75JFCinRC6bLsFj18Rs/QgLkvGEjyXXvlGU+yJ0XVjDm5BtY3Yk53xoCwct/etgHzFHbf0JXe49PSJrI526OKHYOL52hJ8GwEOiY32Uu2
 
 
 Pass: @MehdiBudam

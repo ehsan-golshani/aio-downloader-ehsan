@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/13 01:29
+📅 آخرین بروزرسانی: 1405/03/13 08:37
 
 ---
+
+## ProxyMTProto — post 47793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: byebyerkn.flowstreamhub.site
+Port: 8443
+Secret: ee3fc2d76c0ccce856e812748d56c458dd627965627965726b6e2e666c6f7773747265616d6875622e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47792
 
@@ -172,15 +181,6 @@ Secret: ee9963ec50cf89d852bb1e084a44b196e4646f742e76646c2e6c6174
 Server: 93.185.167.212
 Port: 443
 Secret: ee1c88677acf461e09e68f4ff0cef5724a617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47773
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: trump.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
 @ProxyMTProto
 </div>
 
