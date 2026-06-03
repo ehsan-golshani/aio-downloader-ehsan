@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/13 18:40
+📅 آخرین بروزرسانی: 1405/03/13 22:35
 
 ---
+
+## tasiyanc — post 6242
+
+<div align="center"><a href="files/post_6242_HOT 🌶️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 HOT 🌶️.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+2سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6241
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به یاد آنان که جسارت بیشتری از ما داشتند. 🖤
+
+پروکسی
+پروکسی
+
+@Tasiyanproxy
+</div>
+
+## tasiyanc — post 6240
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[12]⚡@Tasiyanc 🚀.conf
+</div>
+
+## tasiyanc — post 6239
+
+<div align="center"><a href="files/post_6239_[12]⚡@Tasiyanc 🚀.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [12]⚡@Tasiyanc 🚀.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد CMR  👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6238
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ Speed servers 🥇⚡.npvt
+</div>
+
+## tasiyanc — post 6237
+
+<div align="center"><a href="files/post_6237_@Tasiyanc _ Speed servers 🥇⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc _ Speed servers 🥇⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+5 سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6236
 
@@ -19,15 +90,11 @@
 
 ## tasiyanc — post 6233
 
-<div align="center"><a href="files/post_6233_[10] hot @Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [10] hot @Tasiyanc.conf</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 HOT 🔥@TASIYANC.conf
 </div>
 
 ## tasiyanc — post 6231
-
-<div align="center"><a href="files/post_6231_HOT 🔥@TASIYANC.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 HOT 🔥@TASIYANC.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختصاصی وایرگارد متد CM  👑
@@ -47,8 +114,6 @@ HOT 🔥@TASIYANC.conf
 </div>
 
 ## tasiyanc — post 6229
-
-<div align="center"><a href="files/post_6229_@Tasiyanc 🌤️Vip.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🌤️Vip.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختصاصی وایرگارد متد CM  👑
@@ -74,8 +139,6 @@ FAST - MCI💥.npvt
 </div>
 
 ## tasiyanc — post 6226
-
-<div align="center"><a href="files/post_6226_FAST - MCI💥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 FAST - MCI💥.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  📱
@@ -151,57 +214,6 @@ FAST - MCI💥.npvt
 ⏩
 
 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-nuclear bomb 💥.npvt
-</div>
-
-## tasiyanc — post 6219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-NEW FAST ⚡ 🚀.npvt
-</div>
-
-## tasiyanc — post 6218
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ میشه یا آتش بس برقراره؟
-</div>
-
-## tasiyanc — post 6217
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پوشش اخبار جنگ در چنل پروکسی
-زیر هر خبر ادمینا و خودم پروکسی های وصل قرار میدیم
-https://t.me/TasiyanProxy
-https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وایر های قبلی ک‌گذااشتم مثل موشك وصلن نیازی به جدید نی فعلا
-</div>
-
-## tasiyanc — post 6212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-
-3سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc 
 ✅
 </div>
 

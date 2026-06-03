@@ -1,8 +1,31 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/13 18:39
+📅 آخرین بروزرسانی: 1405/03/13 22:34
 
 ---
+
+## FVpnProxy — post 523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یعنی اینقد بچه های خوبی شدید تا نگم دانلود کنید، دانلود نمیکنید؟
+
+آفرین الان شد ، چی بود کم کم مصرف میکردید🤭
+
+تا می تونید به بقیه هم بدید. امشب تا صبح کاری کنید فایروال سرور ببنده نه فیلتر چی
+
+از 500‌GB شد 2TB
+❤️🙏🌹
+</div>
+
+## FVpnProxy — post 522
+
+<div align="center"><img src="files/post_522_FVpnProxy_522.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجور بخوایید مصرف کنید قبل تموم شدن 500 گیگ سرور فیلتر میشه.
+هرچی دارید دانلود کنید سریع
+میخوام این سرور حسابی فشارش بدید 🤭😅
+</div>
 
 ## FVpnProxy — post 521
 
@@ -251,23 +274,4 @@ vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@fr-tx.sbrf-cdn342.ru:443?encryption
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ارسالی یکی از دوستان 🤣
 </div>
-
-## FVpnProxy — post 503
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از قدیم گفتن :
-
-دندونای اسب پیشکشی رو که نمیشمرن
-
-
-دو سه روز ک این وضعیت به اصطلاح اتصال بین الملل تثبیت شد و مشخص شد ، چه پروتکلی بهتر جواب میده. براتون نامحدود
-تلگرام ، chatgpt ، gemini این سه مورد که مشخص شده بیشترین درخواست دارن قرار میدم.
-
-حالا باز هیترها میان فحاشی که داری منت میذاری 🤣
-لطف کنید تو کانالی که رایگان منت میذاره نمونید که فشار نخورید🤗
-
-آپدیت: فشار نخور ریکشن منفی بده 😅🤣
-</div>
-
-## FVpnProxy — post 501
 

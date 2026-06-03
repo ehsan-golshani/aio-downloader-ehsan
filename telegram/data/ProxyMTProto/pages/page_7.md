@@ -1,8 +1,56 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/03/13 18:38
+📅 آخرین بروزرسانی: 1405/03/13 22:33
 
 ---
+
+## ProxyMTProto — post 47689
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r22.proxytg.space
+Port: 8443
+Secret: eeace5ab7ab128f81a0b16ada143ec10807232322e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47688
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.21.111
+Port: 443
+Secret: eec974a3a31e6a91e39d873e2f62701151617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47687
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 5.189.165.109
+Port: 443
+Secret: ee417d3d7571c540ec9fbc4fd1995058a1676f6f676c65617069732e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: vpn.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ Working proxies are getting blocked quickly due to new restrictions.
+
+If Telegram starts loading slowly again, it's better to get connected in advance 👀
+
+We're constantly adding new proxies and currently providing them for free 🔥
+
+👉 Start the bot and join our channel to get a working proxy right now.
+</div>
 
 ## ProxyMTProto — post 47684
 
@@ -136,51 +184,6 @@ Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
 Server: hotmtpro.duckdns.org
 Port: 443
 Secret: 7u-wXMxodyqALbbZW3bovVF3d3cuYW1hem9uLmNvbQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47669
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: free.proproxies.top
-Port: 443
-Secret: ee4fb60224ec3ba77691889623ffd44dc8667265652e70726f70726f786965732e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47668
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r19.proxytg.space
-Port: 8443
-Secret: eea5e937176fb9385a90ee837da1f589aa7231392e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: For Iran
-Port: 8443
-Secret: dd79e7010200010007f0030386e24c3add
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47666
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r16.proxytg.space
-Port: 8443
-Secret: ee58ff3d2285478b5a749af32da19f36707231362e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.21.181
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c70617669746f2e7275
 @ProxyMTProto
 </div>
 

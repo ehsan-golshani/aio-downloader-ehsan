@@ -1,8 +1,24 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/13 18:39
+📅 آخرین بروزرسانی: 1405/03/13 22:34
 
 ---
+
+## FVpnProxy — post 545
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروکسی اختصاصی
+
+
+https://t.me/proxy?server=62.60.155.8&port=2053&secret=bf326e082e8ce950a4dd708e08a112cb
+</div>
+
+## FVpnProxy — post 544
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز یکی اومده مارو scam کنه
+نمیدونی با یه swap میشه فهمید😅
+</div>
 
 ## FVpnProxy — post 542
 
@@ -184,27 +200,4 @@ vless://fvpnproxy@85.192.38.162:80?mode=auto&path=%2F&security=&encryption=none&
 </div>
 
 ## FVpnProxy — post 524
-
-## FVpnProxy — post 523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یعنی اینقد بچه های خوبی شدید تا نگم دانلود کنید، دانلود نمیکنید؟
-
-آفرین الان شد ، چی بود کم کم مصرف میکردید🤭
-
-تا می تونید به بقیه هم بدید. امشب تا صبح کاری کنید فایروال سرور ببنده نه فیلتر چی
-
-از 500‌GB شد 2TB
-❤️🙏🌹
-</div>
-
-## FVpnProxy — post 522
-
-<div align="center"><img src="files/post_522_FVpnProxy_522.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینجور بخوایید مصرف کنید قبل تموم شدن 500 گیگ سرور فیلتر میشه.
-هرچی دارید دانلود کنید سریع
-میخوام این سرور حسابی فشارش بدید 🤭😅
-</div>
 
