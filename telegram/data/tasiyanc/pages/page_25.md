@@ -1,8 +1,82 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/03/13 01:31
+📅 آخرین بروزرسانی: 1405/03/13 03:30
 
 ---
+
+## tasiyanc — post 5583
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ اموزش ویدیویی ترکیبی سایفون با کلاینت MahsaNg 1 - وارد بخش get EMS  config شوید گزینه Mahsa repo رو بزنید بعد روی get emergency config بزنید تا کانفیگ ها اضافه بشن 2 - وارد تنظیمات سایفون شوید protocol روی Auto قرار بدید و aggressive هم ON باشه 3 -…
+</div>
+
+## tasiyanc — post 5580
+
+<div align="center"><video src="files/post_5580_tasiyanc_5580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_5580_tasiyanc_5580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ اموزش ویدیویی ترکیبی سایفون با کلاینت MahsaNg
+
+1 - وارد بخش get EMS  config شوید گزینه Mahsa repo رو بزنید بعد روی get emergency config بزنید تا کانفیگ ها اضافه بشن
+
+2 - وارد تنظیمات سایفون شوید protocol روی Auto قرار بدید و aggressive هم ON باشه
+
+3 - تو منوی اصلی F رو بزنید و فقط گزینه Psiphon after روشن کنین
+
+4 - برگردید و به اولین سروری که هست کانکت بشید بعد ۲۰ ثانیه شما کانکت میشوید ✅
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن یادتون نره 💋
+</div>
+
+## tasiyanc — post 5578
+
+<div align="center"><img src="files/post_5578_tasiyanc_5578.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ وای‌فای.npvt
+</div>
+
+## tasiyanc — post 5577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Password @Tasiyanc
+
+🌐 اختصاصی تاسیان 2 سرور تست شده  وای‌فای   🌐
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5576
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Password @Tasiyanc
+
+🌐 اختصاصی تاسیان 2 سرور تست شده  تمام اپراتورها  🌐
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5575
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قلق گرفتن دان لینک از کانفیگای تاسیان
+دکمه کانکت زدی بیا تلگرام یا اینستا صبر کن دان لینک داخل برنامه NPV نگیر
+دو سه دقیقه صبر الزامیه چون سرور نامحدود و پابلیکه طول می‌کشه بیاد بالا
+بعضی از کانفیگا احیانا بعد صبرتون پینگ نداد حالت پرواز بزنید دوباره تست کنین چون همشون از طرف ما تست شده هستن
+</div>
 
 ## tasiyanc — post 5574
 
@@ -104,57 +178,6 @@ WAR 🔥.npvt
 
 برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
 
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5561
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برخی مناطق گزارش میدن آنتن همراه اول قطع شده
-</div>
-
-## tasiyanc — post 5559
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوری | تابناک:
-
-🚨باند پروازی فرودگاه بندرعباس مورد اصابت موشک قرار گرفت
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5558
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️⭕️⭕️
-</div>
-
-## tasiyanc — post 5555
-
-<div align="center"><img src="files/post_5555_tasiyanc_5555.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هم اکنون پرواز هواپیمای سوخت رسان ایالت متحده KC46 Pegasus بر فراز خلیج عمان
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5554
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨به گزارش استانداری بندرعباس منشأ صدا های انفجار در دست بررسی است
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هم اکنون فعالیت پدافند بندرعباس (احتمالا تست هست)
-</div>
-
-## tasiyanc — post 5552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فارس :
-صداهای مشابهی در جزایر سیریک و جاسک شنیده شده
 @Tasiyanc ✅
 </div>
 
