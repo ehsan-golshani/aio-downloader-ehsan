@@ -1,8 +1,98 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/13 13:44
+📅 آخرین بروزرسانی: 1405/03/13 18:40
 
 ---
+
+## tasiyanc — post 6236
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنام کو😐😐😐😐😐😐😐😐😐😐
+</div>
+
+## tasiyanc — post 6234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۳ کانفیگ وایر فول وصل 
+✅
+</div>
+
+## tasiyanc — post 6233
+
+<div align="center"><a href="files/post_6233_[10] hot @Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [10] hot @Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+HOT 🔥@TASIYANC.conf
+</div>
+
+## tasiyanc — post 6231
+
+<div align="center"><a href="files/post_6231_HOT 🔥@TASIYANC.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 HOT 🔥@TASIYANC.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد CM  👑
+
+دانلود  Wg tunnel 🕹
+
+آموزش
+⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6230
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🌤️Vip.conf
+</div>
+
+## tasiyanc — post 6229
+
+<div align="center"><a href="files/post_6229_@Tasiyanc 🌤️Vip.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🌤️Vip.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد CM  👑
+
+دانلود  Wg tunnel 🕹
+
+آموزش
+⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6228
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@TASIYANC 🔥X1B.conf
+</div>
+
+## tasiyanc — post 6227
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST - MCI💥.npvt
+</div>
+
+## tasiyanc — post 6226
+
+<div align="center"><a href="files/post_6226_FAST - MCI💥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 FAST - MCI💥.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+سرور  سرعتی تست شده 
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
+✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها 
+⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6225
 
@@ -11,8 +101,6 @@
 </div>
 
 ## tasiyanc — post 6224
-
-<div align="center"><a href="files/post_6224_@TASIYANC 🔥X1B.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @TASIYANC 🔥X1B.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختصاصی وایرگارد متد XB   👑
@@ -31,8 +119,6 @@
 </div>
 
 ## tasiyanc — post 6222
-
-<div align="center"><a href="files/post_6222_💚🌤️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 💚🌤️.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  📱
@@ -117,71 +203,5 @@ https://t.me/TasiyanProxy
 
 🦁  @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6209
-
-## tasiyanc — post 6208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04] @Tasiyanc ⚡🚀.conf
-</div>
-
-## tasiyanc — post 6207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد CM  👑
-دانلود  Wg tunnel 🕹
-آموزش⏩
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یعنی هر بار باید بگم ؟؟؟؟؟؟؟؟؟
-</div>
-
-## tasiyanc — post 6205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP 🚀@Tasiyanc GhdMethod .conf
-</div>
-
-## tasiyanc — post 6204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  👑
-دانلود  Wg tunnel 🕹
-آموزش⏩
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-NEW FAST ⚡ 🚀.npvt
-</div>
-
-## tasiyanc — post 6202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-
-4سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن هم نمی‌زنیم دیگه ؟
 </div>
 

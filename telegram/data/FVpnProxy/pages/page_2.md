@@ -1,8 +1,58 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/13 13:43
+📅 آخرین بروزرسانی: 1405/03/13 18:39
 
 ---
+
+## FVpnProxy — post 521
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینم هدیه امشب
+حالش ببرید تا تموم بشه 500 گیگ
+
+
+trojan://fvpnproxy@95.163.152.104:26913?path=%2F&security=none&type=ws#Telegram:@FvpnProxy
+
+آپدیت:
+آقا این v2ray هست دیگه چرا میگید با چی بزنم برنامه بفرست!؟
+</div>
+
+## FVpnProxy — post 520
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀 پروکسی جدید پرسرعت
+
+📍 لوکیشن : 🇩🇪 Germany
+📡 اپراتور : همه اپراتورها
+⚙️ پروتکل : MTProto
+
+✅ برای اتصال ضربه بزنید
+
+🆔 @FVPNPRoxy
+</div>
+
+## FVpnProxy — post 519
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀 پروکسی جدید پرسرعت
+
+📍 لوکیشن : 🇩🇪 Germany
+📡 اپراتور : همه اپراتورها
+⚙️ پروتکل : MTProto
+
+✅ برای اتصال ضربه بزنید
+
+🆔 @FVPNProxy
+</div>
+
+## FVpnProxy — post 518
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان اگر تمایل داشتید میتونید داخل اینستاگرام فالو کنید.
+
+
+https://www.instagram.com/fvpnproxy
+</div>
 
 ## FVpnProxy — post 517
 
@@ -220,47 +270,4 @@ vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@fr-tx.sbrf-cdn342.ru:443?encryption
 </div>
 
 ## FVpnProxy — post 501
-
-## FVpnProxy — post 500
-
-## FVpnProxy — post 499
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تشکر بابت همه پیام هاتون
-تا جایی ک تونستم تک تک جواب دادم و خواهم داد
-
-از حالا که نت بین الملل فیلتره شده وصل شده. برای اونایی که نمیخوان پول بدن بابت vpn سعی میکنم بازم رایگان سرور بذارم.
-
-دو راه داریم برای ادامه فعالیت (کاملا رایگان)
-
-1- از طریق ربات کلید خصوصی بدیم با حجم محدود روزانه حداکثر 500 مگ. همه چیز باز کنه . تعداد زیاده همین خودش خیلی میدونم بعد یه مدت مشکل ساز میشه همه بخوان استفاده کنن
-
-
-2- حجم نامحدود ولی فقط برای چند برنامه خاص ، مثل تلگرام، chatgpt، واتساپ - البته بازم کلید روزانه باید از ربات بگیرید.
-
-
-حالا نظرسنجی میذارم ببینم کدوم بیشترین طرفدار داره
-</div>
-
-## FVpnProxy — post 498
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانسل و همراه وصل شدن
-</div>
-
-## FVpnProxy — post 497
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط برام یک چیز سوال شده!
-
-اگر جاسوس موساد، سیا، ام ای 6
-تو کانال داریم بیاد توضیح بده چرا نمیتونن نت خانگی بگیرن؟ یعنی براتون با این همه بودجه و امکانات سخته گرفتن یه نت خونگی؟
-
-
-الان تکلیف ایرانسل و همراه اول چیه، نت همه وصل شد جز ما!
-
-آقایون و خانم های جاسوس خارجی، لطفا نت خونگی بگیرید، اکثر مردم عادی با نت تلفن همراه میان.
-
-بخدا زشته برای دستگاه امنیتی خارجی نمیتونه نت خونگی برای جاسوس هاش بگیره
-</div>
 
