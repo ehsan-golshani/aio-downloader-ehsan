@@ -1,8 +1,28 @@
 # آرشیو کانال FVpnProxy - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/12 18:48
+📅 آخرین بروزرسانی: 1405/03/13 13:43
 
 ---
+
+## FVpnProxy — post 475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کلید جدید:
+SecureID: 82VB5RRvj99XG3k7doGblkoJswzUpkNIMz
+
+Encryption key: 5be7516f7e999c3e81cb59b73a88dab6
+</div>
+
+## FVpnProxy — post 474
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کلید جدید
+SecureID:
+86ru/cBwQMSnmwRpHr4maxjQ==
+
+Encryption key:
+8on7490113f1pfe991b4563blraw0lst
+</div>
 
 ## FVpnProxy — post 473
 

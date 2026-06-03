@@ -1,8 +1,23 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/12 18:48
+📅 آخرین بروزرسانی: 1405/03/13 13:43
 
 ---
+
+## FVpnProxy — post 517
+
+## FVpnProxy — post 516
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این لیست تست شده ، هیچ کدام برای ما نیست فقط ما داریم باز نشر می کنیم. از یک گیت هاب روسی . که یک سری ایرانی هم جزشون هست و اکثرا جواب میدن
+
+لیست نهم
+
+vmess://eyJ2IjoiMiIsInBzIjoi8J+HsvCfh70gTWV4aWNvLCBNZXhpY28gQ2l0eSB8IFtCTF0iLCJhZGQiOiIxMzAuOTQuMTAxLjM1IiwicG9ydCI6IjQ2ODIwIiwiaWQiOiJmMjNiMzIyYy05YmMxLTRhMGMtODAzZC00OTRkYjlkNDA5OWQiLCJhaWQiOiIwIiwic2N5IjoiYXV0byIsIm5ldCI6IndzIiwidHlwZSI6Im5vbmUiLCJob3N0IjoiIiwicGF0aCI6Ii9hcmtpIiwidGxzIjoiIiwic25pIjoiIiwiYWxwbiI6IiIsImZwIjoiIiwiaW5zZWN1cmUiOiIwIn0=
+trojan://gcuCpQfaiVeDBdWG@211.76.176.98:19128?security=tls&sni=yazhou10.dynu.net&type=tcp&headerType=none#telegram:@FVPNProxy
+trojan://gcuCpQfaiVeDBdWG@211.76.176.99:19128?security=tls&sni=yazhou10.dynu.net&type=tcp&headerType=none#telegram:@FVPNProxy
+trojan://humanity@165.215.250.14:443?path=/assignment&security=tls&host=www.calmlunch.com&fp=chrome&type=ws&sni=www.calmlunch.com#telegram:@FVPNProxy
+</div>
 
 ## FVpnProxy — post 515
 
@@ -247,28 +262,5 @@ vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@fr-tx.sbrf-cdn342.ru:443?encryption
 آقایون و خانم های جاسوس خارجی، لطفا نت خونگی بگیرید، اکثر مردم عادی با نت تلفن همراه میان.
 
 بخدا زشته برای دستگاه امنیتی خارجی نمیتونه نت خونگی برای جاسوس هاش بگیره
-</div>
-
-## FVpnProxy — post 496
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دم اونایی که میان pv تشکر میکنن گرم
-بوس به همتون
-اصلا براتون مهم نباشه اینایی که لفت میدن
-
-اینترنت وصل بشه. اصلا ممبرها بشه صفر
-فدای سر همتون❤️🌹🙏😘
-</div>
-
-## FVpnProxy — post 495
-
-<div align="center"><img src="files/post_495_FVpnProxy_495.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب اینترنت وصل شد .
-دیگه احتیاجی به دنبال کانفیگ تو کانال اون کانال گشتن ندارید.
-با خیال راحت زندگی کنید
-
-همگی موفق باشید ❤️🌹🙏
 </div>
 

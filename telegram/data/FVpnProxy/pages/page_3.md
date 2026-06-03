@@ -1,8 +1,31 @@
 # آرشیو کانال FVpnProxy - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/12 18:48
+📅 آخرین بروزرسانی: 1405/03/13 13:43
 
 ---
+
+## FVpnProxy — post 496
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دم اونایی که میان pv تشکر میکنن گرم
+بوس به همتون
+اصلا براتون مهم نباشه اینایی که لفت میدن
+
+اینترنت وصل بشه. اصلا ممبرها بشه صفر
+فدای سر همتون❤️🌹🙏😘
+</div>
+
+## FVpnProxy — post 495
+
+<div align="center"><img src="files/post_495_FVpnProxy_495.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب اینترنت وصل شد .
+دیگه احتیاجی به دنبال کانفیگ تو کانال اون کانال گشتن ندارید.
+با خیال راحت زندگی کنید
+
+همگی موفق باشید ❤️🌹🙏
+</div>
 
 ## FVpnProxy — post 494
 
@@ -191,25 +214,5 @@ Encryption key:
 SecureID: 53FZDhMnXMVH1XEDztGu36RDBESJyShn2GCw==
 
 Encryption key: 5be7516f7e999c3e81cb59b73a88dab6
-</div>
-
-## FVpnProxy — post 475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کلید جدید:
-SecureID: 82VB5RRvj99XG3k7doGblkoJswzUpkNIMz
-
-Encryption key: 5be7516f7e999c3e81cb59b73a88dab6
-</div>
-
-## FVpnProxy — post 474
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کلید جدید
-SecureID:
-86ru/cBwQMSnmwRpHr4maxjQ==
-
-Encryption key:
-8on7490113f1pfe991b4563blraw0lst
 </div>
 
