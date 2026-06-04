@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/03/14 01:41
+📅 آخرین بروزرسانی: 1405/03/14 03:37
 
 ---
+
+## tasiyanc — post 5973
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان 
+
+۷سرور  سرعتی قدرتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5972
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک سرور شخصی openvpn می‌خوان برن سایت
+vpnbook.com
+Create openvpn
+پورت روی 443 یا 80 بزارید
+کشورهای اروپایی بهتر جواب میدن .
+@Tasiyanc
+</div>
+
+## tasiyanc — post 5971
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور های vip بعدی با متد جدید ساعت ۴ در حال تستشم جواب بده میزارم
+</div>
+
+## tasiyanc — post 5970
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پینگ نگیرید ، کانکت شدید بیاید تل یا اینستا بالا میاد خودش
+</div>
+
+## tasiyanc — post 5969
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان 
+
+5سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5968
 
@@ -122,48 +179,5 @@ TS premium Servers 🌲⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 TS premium Servers 🌲⚡.npvt
-</div>
-
-## tasiyanc — post 5949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  تست روی همراه اول 🛜 بقیه تست کنین
-
-6سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5948
-
-<div align="center"><img src="files/post_5948_tasiyanc_5948.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی تو راهه
-</div>
-
-## tasiyanc — post 5947
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی تو راهه
-</div>
-
-## tasiyanc — post 5946
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
--FAST MCI & MTN & RighTel 🔥.npvt
-</div>
-
-## tasiyanc — post 5945
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قربون تک تکتون ، با اینکه نت وصله ولی اختلال همچنان بسیار بالاست تلاش میشه بهترین سرورارو بزاریم امیدوارم سرعت خوبی بگیرید
 </div>
 

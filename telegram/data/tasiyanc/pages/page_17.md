@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/03/14 01:41
+📅 آخرین بروزرسانی: 1405/03/14 03:37
 
 ---
+
+## tasiyanc — post 5855
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدایی دمتون گرم هرچی بگم کم گفتم همیشه قوی پر سرعت پایدار مرسی بابت زحماتتون
+</div>
+
+## tasiyanc — post 5854
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بهرحال ما ک قطعیم
+</div>
+
+## tasiyanc — post 5853
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مثل برخی چنلا باید روزی ۲۰۰ پیام واسه سرور رایگان رضایت بفرستیم؟
+</div>
+
+## tasiyanc — post 5852
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیام‌ها تمومی نداره ، همچنان ما قطعیم😁❤️
+</div>
+
+## tasiyanc — post 5851
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دمت گرم داش
+</div>
 
 ## tasiyanc — post 5850
 
@@ -150,52 +180,5 @@
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5814
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium Fast servers 🔥🌱.npvt
-</div>
-
-## tasiyanc — post 5813
-
-<div align="center"><img src="files/post_5813_tasiyanc_5813.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانسل
-
-گوشیم رو بروز کردم
-</div>
-
-## tasiyanc — post 5812
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیا حق این سرور ۱۶ ریکشن است؟؟
-</div>
-
-## tasiyanc — post 5811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-″رمز @Tasiyanc ″
-
-📱 ۵ سرور  سرعتی  اختصاصی تاسیان  📱
-
-✅ تست شده روی همه اپراتورا ✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5810
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موشك داره میاد
 </div>
 
