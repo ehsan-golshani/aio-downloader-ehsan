@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/15 02:00
+📅 آخرین بروزرسانی: 1405/03/15 03:22
 
 ---
+
+## tasiyanc — post 6268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+2سرور پرومیوم  سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها 
+⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6267
+
+<div align="center"><img src="files/post_6267_tasiyanc_6267.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+BadBoys 🚀 موشک.npvt
+</div>
+
+## tasiyanc — post 6266
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۳ سرور پرومیوم  سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها 
+⏩
+
+✔️ @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6265
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امن ✅
+</div>
 
 ## tasiyanc — post 6264
 
@@ -173,46 +222,5 @@ BabyGirl 🪐.npvt
 اتصال به سرورها ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6244
-
-<div align="center"><img src="files/post_6244_tasiyanc_6244.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-HOT 🌶️.npvt
-</div>
-
-## tasiyanc — post 6243
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطورید چخبرااااا؟
-</div>
-
-## tasiyanc — post 6242
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-2سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6241
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به یاد آنان که جسارت بیشتری از ما داشتند. 🖤
-
-پروکسی
-پروکسی
-
-@Tasiyanproxy
 </div>
 
