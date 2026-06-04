@@ -1,8 +1,10 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/13 22:34
+📅 آخرین بروزرسانی: 1405/03/14 19:36
 
 ---
+
+## FVpnProxy — post 524
 
 ## FVpnProxy — post 523
 
@@ -266,12 +268,4 @@ vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@fr-tx.sbrf-cdn342.ru:443?encryption
 </div>
 
 ## FVpnProxy — post 505
-
-## FVpnProxy — post 504
-
-<div align="center"><img src="files/post_504_FVpnProxy_504.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی یکی از دوستان 🤣
-</div>
 

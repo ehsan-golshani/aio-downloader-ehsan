@@ -1,8 +1,16 @@
 # آرشیو کانال FVpnProxy - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/13 22:34
+📅 آخرین بروزرسانی: 1405/03/14 19:36
 
 ---
+
+## FVpnProxy — post 504
+
+<div align="center"><img src="files/post_504_FVpnProxy_504.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارسالی یکی از دوستان 🤣
+</div>
 
 ## FVpnProxy — post 503
 
@@ -183,13 +191,4 @@
 ## FVpnProxy — post 483
 
 <div align="center"><img src="files/post_483_FVpnProxy_483.jpg" alt="Photo"></div>
-
-## FVpnProxy — post 482
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدایی یعنی چی اسپم میزنن بعضیا که ربات بیاد پایین؟
-فعلا قطع میکنم تا اینایی که اسپم زدن بن کنم
-
-آپدیت: فعلا دسترسی ربات قطع شد. به محض بن شدن تمام کسایی که اسپم زدن ربات باز میشه مجددا
-</div>
 

@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/03/14 15:56
+📅 آخرین بروزرسانی: 1405/03/14 19:37
 
 ---
+
+## tasiyanc — post 5896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  
+🌐
+
+نحوه اتصال به سرورها 
+⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5894
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+channel@TASIYANC.ovpn
+</div>
+
+## tasiyanc — post 5893
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  
+♻️
+
+تست شده 
+🚀
+Username vpnbook
+Password 8zw5j9h
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5891
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوباره باید بگیم؟
+</div>
 
 ## tasiyanc — post 5890
 
@@ -164,37 +209,5 @@ GANG 🌙 10 SERVER FAST.npvt
 فقط برای 500 نفر اولی که سریعترن در دسترسه! ⚠️
 
 دریافت رایگان کانفیگ اختصاصی
-</div>
-
-## tasiyanc — post 5871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN ♻️
-
-تست شده روی همه اپراتورا🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5869
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ OpenVPN ♻️
-
-تست شده روی همه اپراتورا🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5868
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوکی کنم میفرسم
-</div>
-
-## tasiyanc — post 5865
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد اتصال ۲۰ تا ۳۰ ثانیه زمان بدید . و بیاید تلگرام یا برید اینستاگرام
 </div>
 

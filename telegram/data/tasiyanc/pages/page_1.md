@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/14 15:56
+📅 آخرین بروزرسانی: 1405/03/14 19:37
 
 ---
+
+## tasiyanc — post 6276
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم ⏩ @TasiyanProxy ⏩ @TasiyanProxy
+</div>
+
+## tasiyanc — post 6275
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم
+⏩ @TasiyanProxy
+⏩ @TasiyanProxy
+</div>
+
+## tasiyanc — post 6273
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ON TARGET ⚡✅.npvt
+</div>
+
+## tasiyanc — post 6272
+
+<div align="center"><a href="files/post_6272_ON TARGET ⚡✅.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ON TARGET ⚡✅.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور پرمیوم  آلمان 🇩🇪
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6270
 
@@ -18,8 +52,6 @@ https://t.me/TasiyanProxy
 
 <div align="center"><a href="files/post_6269_tasiyanc_6269.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
-<div align="center"><a href="files/post_6269_🪐🇮🇹 @Tasiyanc .conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🪐🇮🇹 @Tasiyanc .conf</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختصاصی وایرگارد متد XB سرور IT  
 👑
@@ -33,8 +65,6 @@ https://t.me/TasiyanProxy
 </div>
 
 ## tasiyanc — post 6268
-
-<div align="center"><a href="files/post_6268_NTS ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 NTS ⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
@@ -190,45 +220,5 @@ BabyGirl 🪐.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🪐🇩🇪 @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6251
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB سرور آلمان  👑
-
-دانلود  Wg tunnel 🕹
-
-آموزش⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6250
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2RayNG & V2box & NPV
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca20.myfymain.com:8880?mode=gun&security=none&encryption=none&type=grpc#%F0%9F%87%AE%F0%9F%87%B9-IT%20%40Tasiyanc%20MCI%201
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpDSm1UQ0N4N0x0dWQ%3D@108.181.58.239:8388#%F0%9F%87%B3%F0%9F%87%B1NL%20-%20%40Tasiyanc%202%20MCI
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6249
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌
-‌ واسه هیچ‌کس نامحدود نباشید ،
-آدما گیگی دوست دارن!!!
-
-‌پروکسی
-@TasiyanProxy ✅
-</div>
-
-## tasiyanc — post 6248
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-BabyGirl 🪐.npvt
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/13 22:34
+📅 آخرین بروزرسانی: 1405/03/14 19:36
 
 ---
+
+## FVpnProxy — post 546
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروکسی اختصاصی https://t.me/proxy?server=62.60.155.8&port=2053&secret=bf326e082e8ce950a4dd708e08a112cb
+</div>
 
 ## FVpnProxy — post 545
 
@@ -198,6 +204,4 @@ vless://fvpnproxy@85.192.38.162:80?mode=auto&path=%2F&security=&encryption=none&
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تا برنامه آماده بشه سعی میکنم آخر شب براتون سرور تازه نفس اختصاصی قرار بدم. هرچی دارید دانلود کنید. اصلا بهش رحم نکنید🤭🤭
 </div>
-
-## FVpnProxy — post 524
 
