@@ -1,8 +1,26 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/14 19:36
+📅 آخرین بروزرسانی: 1405/03/14 22:04
 
 ---
+
+## FVpnProxy — post 549
+
+<div align="center"><img src="files/post_549_FVpnProxy_549.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکم دیگه از 10 هزار نفر رد میشه🎉🥳
+
+تو رقابتی سنگین آمریکا از پاکستان پیشی گرفت. فقط شما دیگه چرا؟ ترامپ فیلتر کرده🤭
+</div>
+
+## FVpnProxy — post 547
+
+<div align="center"><img src="files/post_547_FVpnProxy_547.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😍 همچنان متصل و تعداد اتصال رو به افزایش
+</div>
 
 ## FVpnProxy — post 546
 
@@ -187,21 +205,5 @@ vless://5664ae71-8024-4c65-bef2-54affa239a93@95.163.152.31:80?encryption=none&ex
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خب 40k سوکت چه به سر این آوردین 😅 🫣🤭
-</div>
-
-## FVpnProxy — post 526
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-براتون سرور جدید v2ray آوردم
-بدون محدودیت حجم
-حسابی دانلود کنید🤭🫣
-
-vless://fvpnproxy@85.192.38.162:80?mode=auto&path=%2F&security=&encryption=none&extra=%7B%22scMaxEachPostBytes%22%3A%221000000%22%2C%22scMinPostsIntervalMs%22%3A%2230%22%2C%22xPaddingBytes%22%3A%22100-1000%22%7D&host=google.com&type=xhttp#Telegram:@FvpnProxy
-</div>
-
-## FVpnProxy — post 525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا برنامه آماده بشه سعی میکنم آخر شب براتون سرور تازه نفس اختصاصی قرار بدم. هرچی دارید دانلود کنید. اصلا بهش رحم نکنید🤭🤭
 </div>
 

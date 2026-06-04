@@ -1,8 +1,24 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/14 19:36
+📅 آخرین بروزرسانی: 1405/03/14 22:04
 
 ---
+
+## FVpnProxy — post 526
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+براتون سرور جدید v2ray آوردم
+بدون محدودیت حجم
+حسابی دانلود کنید🤭🫣
+
+vless://fvpnproxy@85.192.38.162:80?mode=auto&path=%2F&security=&encryption=none&extra=%7B%22scMaxEachPostBytes%22%3A%221000000%22%2C%22scMinPostsIntervalMs%22%3A%2230%22%2C%22xPaddingBytes%22%3A%22100-1000%22%7D&host=google.com&type=xhttp#Telegram:@FvpnProxy
+</div>
+
+## FVpnProxy — post 525
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا برنامه آماده بشه سعی میکنم آخر شب براتون سرور تازه نفس اختصاصی قرار بدم. هرچی دارید دانلود کنید. اصلا بهش رحم نکنید🤭🤭
+</div>
 
 ## FVpnProxy — post 524
 
@@ -256,16 +272,4 @@ vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@205.237.104.99:443?allowinsecure=0&
 vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@205.237.104.99:443?flow=xtls-rprx-vision-udp443&security=tls&sni=sub.sbrf-cdn342.ru&type=tcp#telegram:@FVPNProxy
 vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@fr-tx.sbrf-cdn342.ru:443?encryption=none&flow=xtls-rprx-vision-udp443&security=tls&sni=sub.sbrf-cdn342.ru&type=tcp&headerType=none#telegram:@FVPNProxy
 </div>
-
-## FVpnProxy — post 506
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط خواستم آمار بگیرم ببینم با چه وضعیتی میایید .
-من فروشی ندارم. پس لطفا مجددا نپرسید
-
-از چند روز دیگه که وضعیت پایدار شد دوباره رایگان قرار میدم.
-🙏🌹
-</div>
-
-## FVpnProxy — post 505
 

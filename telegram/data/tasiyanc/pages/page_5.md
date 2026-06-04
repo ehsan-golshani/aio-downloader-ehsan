@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/14 19:37
+📅 آخرین بروزرسانی: 1405/03/14 22:05
 
 ---
+
+## tasiyanc — post 6184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GANG 🇳🇱🇬🇧🚀 (1).npvt
+</div>
+
+## tasiyanc — post 6183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال رو خطوط همراه ادامه داره
+ولی سرورهای ما وصله 💋
+</div>
+
+## tasiyanc — post 6182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+3سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6180
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریکشن چنگی به دل نمیزنه نپستر بزاریم
+</div>
+
+## tasiyanc — post 6178
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 📱
+آموزش⏩
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تست شده با ایرانسل & سامانتل   ♻️
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6175
 
@@ -152,54 +204,5 @@ Premium GOD SV 🚀🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشنا اگه زیاد باشه یه وایرم میزارم
-</div>
-
-## tasiyanc — post 6159
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP تاسیان 🪙 GOLD.npvt
-</div>
-
-## tasiyanc — post 6158
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-
-3سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-3 تا سرور فول سرعتی تو راهه
-</div>
-
-## tasiyanc — post 6156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium 💙BLUE.npvt
-</div>
-
-## tasiyanc — post 6152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Vip⚡💚fast.npvt
 </div>
 
