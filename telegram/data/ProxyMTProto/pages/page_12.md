@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/03/14 01:39
+📅 آخرین بروزرسانی: 1405/03/14 08:43
 
 ---
+
+## ProxyMTProto — post 47592
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 195.133.20.10
+Port: 443
+Secret: 7sEXmKsAiDG0dAZsnh6_XIJhdml0by5ydQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47591
 
