@@ -1,12 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/14 22:05
+📅 آخرین بروزرسانی: 1405/03/15 00:28
 
 ---
 
-## tasiyanc — post 6284
+## tasiyanc — post 6285
 
-<div align="center"><a href="files/post_6284_⚡ سرعتی (2).npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡ سرعتی (2).npvt</a></div>
+<div align="center"><a href="files/post_6285_Fast @Tasiyanc 🔥.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast @Tasiyanc 🔥.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد cm  👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش
+⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6284
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 MCI - SamanTel - wifi تست شده
@@ -20,8 +32,6 @@ MCI - SamanTel - wifi تست شده
 </div>
 
 ## tasiyanc — post 6282
-
-<div align="center"><a href="files/post_6282_Green Eyes ⚡💚.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Green Eyes ⚡💚.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
@@ -45,8 +55,6 @@ MCI - SamanTel - wifi تست شده
 
 ## tasiyanc — post 6280
 
-<div align="center"><a href="files/post_6280_@Tasiyanc🪐.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc🪐.ovpn</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ جدید OpenVPN سرور فنلاند  ♻️
 
@@ -61,8 +69,6 @@ MCI - SamanTel - wifi تست شده
 </div>
 
 ## tasiyanc — post 6277
-
-<div align="center"><a href="files/post_6277_⚡@tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡@tasiyanc.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ جدید OpenVPN  ♻️
@@ -230,12 +236,5 @@ trojan://bb45f73f-795b-4a05-a8e0-ba717bce87e3@104.19.229.21:443?path=%2Fid-tksi&
 
 ✔️ @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6261
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارو 
-🦦
 </div>
 

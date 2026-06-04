@@ -1,8 +1,27 @@
 # آرشیو کانال FVpnProxy - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/14 22:04
+📅 آخرین بروزرسانی: 1405/03/15 00:27
 
 ---
+
+## FVpnProxy — post 507
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این لیست تست شده ، هیچ کدام برای ما نیست فقط ما داریم باز نشر می کنیم. از یک گیت هاب روسی . که یک سری ایرانی هم جزشون هست و اکثرا جواب میدن
+
+لیست اول
+
+vless://2ee2b77f-e4cd-4e5d-af22-f9d919eeadd5@130.49.219.126:8443?type=tcp&headerType=none&security=tls&encryption=none&sni=at16.fastlanehosting.ru&fp=chrome&alpn=h2%2Chttp%2F1.1&insecure=0#telegram:@FVPNProxy
+vless://f4bad870-4b45-4a46-bec6-d05fa31df1cb@fi2.clgate.network:443?type=xhttp&headerType=none&security=reality&encryption=none&sni=m.twitch.tv&fp=chrome&pbk=r2B2KwffHmyjWrmwKmI0o3uW9UEsn2l_Ko0UmyTjKgM&path=%2F&host=m.twitch.tv#telegram:@FVPNProxy
+vless://7572659e-7322-4b33-9f17-bfa7a9d984bc@151.101.118.95:443?type=xhttp&headerType=none&security=tls&encryption=none&sni=127.0.0.1&fp=chrome&alpn=h3&path=%2F&host=ovh11.global.ssl.fastly.net&insecure=1#telegram:@FVPNProxy
+vless://7572659e-7322-4b33-9f17-bfa7a9d984bc@151.101.118.95:443?type=xhttp&headerType=none&security=tls&encryption=none&sni=127.0.0.1&fp=chrome&alpn=h3&path=%2F&host=ovh7.global.ssl.fastly.net&insecure=1#telegram:@FVPNProxy
+vless://7572659e-7322-4b33-9f17-bfa7a9d984bc@151.101.118.95:443?type=xhttp&headerType=none&security=tls&encryption=none&sni=127.0.0.1&fp=chrome&alpn=h3&path=/&host=ov10.global.ssl.fastly.net&insecure=1#telegram:@FVPNProxy
+vless://InternetAzadRobot@151.101.1.57:80?encryption=none&security=none&type=xhttp&host=shangulin.global.ssl.fastly.net&path=%2Flogin&mode=auto&extra=%7B%22mode%22%3A%22auto%22%2C%22scMaxEachPostBytes%22%3A%221000000%22%2C%22xPaddingBytes%22%3A%22100-1000%22%7D#telegram:@FVPNProxy
+vless://TIGNAL@151.101.1.57:80?encryption=none&security=none&type=xhttp&host=shangulin.global.ssl.fastly.net&path=%2Flogin&mode=auto&extra=%7B%22mode%22%3A%22auto%22%2C%22scMaxEachPostBytes%22%3A%221000000%22%2C%22xPaddingBytes%22%3A%22100-1000%22%7D#telegram:@FVPNProxy
+vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@205.237.104.99:443?allowinsecure=0&flow=xtls-rprx-vision&security=tls&sni=sub.sbrf-cdn342.ru&type=tcp#telegram:@FVPNProxy
+vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@205.237.104.99:443?flow=xtls-rprx-vision-udp443&security=tls&sni=sub.sbrf-cdn342.ru&type=tcp#telegram:@FVPNProxy
+vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@fr-tx.sbrf-cdn342.ru:443?encryption=none&flow=xtls-rprx-vision-udp443&security=tls&sni=sub.sbrf-cdn342.ru&type=tcp&headerType=none#telegram:@FVPNProxy
+</div>
 
 ## FVpnProxy — post 506
 
@@ -177,14 +196,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بابا این یعنی دسترسی بستیم کسی نتونه spam بزنه. خطا بن نیست
 وجدانن اذیت نکنید 🤣😅🤪
-</div>
-
-## FVpnProxy — post 485
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تعداد 29 نفر که بیشترین تعداد اسپم زدن به ربات بن شدن.
-
-فعلا بخاطر spam این افراد که حدود 27 هاست ربات محدود شده😐😑
-فعلا چند صد نفری که تونستن کلید بگیرن استفاده کنن تا یه فکری به حال اینایی که spam میزنن بکنیم
 </div>
 

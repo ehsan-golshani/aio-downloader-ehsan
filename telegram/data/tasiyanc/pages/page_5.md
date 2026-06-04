@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/14 22:05
+📅 آخرین بروزرسانی: 1405/03/15 00:28
 
 ---
+
+## tasiyanc — post 6185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+
+دانلود اندروید  Wg tunnel 🕹
+
+دانلود iOS 📱
+آموزش⏩
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6184
 
@@ -198,11 +210,5 @@ Premium GOD SV 🚀🔥.npvt
 ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنا اگه زیاد باشه یه وایرم میزارم
 </div>
 
