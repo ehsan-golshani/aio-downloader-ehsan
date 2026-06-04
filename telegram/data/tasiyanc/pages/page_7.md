@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/03/14 12:38
+📅 آخرین بروزرسانی: 1405/03/14 15:56
 
 ---
+
+## tasiyanc — post 6122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چند سرورNPV میزارم بعدش وایر
+</div>
+
+## tasiyanc — post 6121
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از وایرگارد راضی بودید ریکشن بزنید کانفیگ بعدیشو تا دقایقی دیگه آماده کنم بفرستم
+</div>
+
+## tasiyanc — post 6120
+
+<div align="center"><video src="files/post_6120_tasiyanc_6120.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6120_tasiyanc_6120.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارسالی از علی
+آموزش ویدیویی کانکت به وایرگارد های تاسیان
+دانلود برنامه Wg tunnel 🕹
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6119
 
@@ -143,43 +169,5 @@ https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunne
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بازم باید بگیم ؟
-</div>
-
-## tasiyanc — post 6098
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-سرور  سرعتی تست شده رایتل🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6097
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Vip SamanTel ⚡.npvt
-</div>
-
-## tasiyanc — post 6096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-2سرور  سرعتی تست شده رو سامانتل بقیه هم تست کنین🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
 </div>
 
