@@ -1,8 +1,17 @@
 # آرشیو کانال FVpnProxy - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/15 00:27
+📅 آخرین بروزرسانی: 1405/03/15 12:08
 
 ---
+
+## FVpnProxy — post 486
+
+<div align="center"><img src="files/post_486_FVpnProxy_486.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بابا این یعنی دسترسی بستیم کسی نتونه spam بزنه. خطا بن نیست
+وجدانن اذیت نکنید 🤣😅🤪
+</div>
 
 ## FVpnProxy — post 485
 

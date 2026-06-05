@@ -1,8 +1,19 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/15 00:27
+📅 آخرین بروزرسانی: 1405/03/15 12:08
 
 ---
+
+## FVpnProxy — post 551
+
+<div align="center"><img src="files/post_551_FVpnProxy_551.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبح بخیر
+خب همچنان وصل و از 15K رد شد
+میزان مصرف هم 2.6TB
+🤭
+</div>
 
 ## FVpnProxy — post 550
 
@@ -199,13 +210,5 @@ vless://5664ae71-8024-4c65-bef2-54affa239a93@95.163.152.31:80?encryption=none&ex
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چه میکنید با این 80k
 همنیجور داره میره بالا تعداد
-</div>
-
-## FVpnProxy — post 528
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اونقد درخواست به سرور زیاد میاد که خودمم به زور بهش وصل میشم🤣
-
-منابع سرور 2 برابر شد 🤭
 </div>
 
