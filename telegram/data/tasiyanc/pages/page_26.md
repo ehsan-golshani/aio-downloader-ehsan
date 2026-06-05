@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/03/15 18:56
+📅 آخرین بروزرسانی: 1405/03/15 21:03
 
 ---
+
+## tasiyanc — post 5679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان برا دوستانی ک مشکل ورود به گیم دارن📱
+
+⛈سرور vip آلمان - مونیخ همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور بعدی مخصوص گیمرا
+</div>
+
+## tasiyanc — post 5677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip هلند و آمریکا همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5676
 
@@ -151,33 +179,5 @@ WİFİ موشک.npvt
 درز های خیلی زیادی باز شده و یه کانفیگ نپستر درست شده که کار میکنه!
 
 دریافت کانفیگ نپسترنت مخصوص ( رایگان )
-</div>
-
-## tasiyanc — post 5644
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تعداد پیام دایرکت - گروه زیاده از همه شما عزیزان ، بزرگ کوچك ، زن مرد که کنار هم در روزهای سخت ایستادید سپاسگذارم و بابت پیام‌های خوبتون ممنون شما هستم ❤️‍🔥 امید است تیم تاسیان همواره کنار شما باشد تا شما عزیزان راضی باشید 🌹
-</div>
-
-## tasiyanc — post 5643
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امیدوارم نت اگه باز شد یادتون باشه کی پیش کی موند تا لحظه آخر ❤️🫂 و کنارمون باشید تا با قدرت ادامه بدیم ❤️‍🔥
-
-همه باهم ، برای هم 🤝
-کوچیک شما مالک چنل نوید 💙
-</div>
-
-## tasiyanc — post 5642
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
-
-
-🚀 @Tasiyanc ✅
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/15 12:08
+📅 آخرین بروزرسانی: 1405/03/15 21:02
 
 ---
+
+## FVpnProxy — post 529
+
+<div align="center"><img src="files/post_529_FVpnProxy_529.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه میکنید با این 80k
+همنیجور داره میره بالا تعداد
+</div>
 
 ## FVpnProxy — post 528
 
@@ -231,23 +240,5 @@ vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@nl-tx.sbrf-cdn342.ru:443?type=tcp&h
 vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@nl-tx.sbrf-cdn342.ru:443?type=tcp&headerType=none&security=tls&encryption=none&sni=sub.sbrf-cdn342.ru&fp=chrome&flow=xtls-rprx-vision&insecure=0#telegram:@FVPNProxy
 vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@nl-tx.sbrf-cdn342.ru:443?type=tcp&headerType=none&security=tls&encryption=none&sni=sub.sbrf-cdn342.ru&fp=qq&alpn=http%2F1.1&flow=xtls-rprx-vision&insecure=0#telegram:@FVPNProxy
 vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@nl-tx.sbrf-cdn342.ru:443?type=tcp&headerType=none&security=tls&encryption=none&sni=sub.sbrf-cdn342.ru&fp=qq&flow=xtls-rprx-vision&insecure=0#telegram:@FVPNProxy
-</div>
-
-## FVpnProxy — post 509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این لیست تست شده ، هیچ کدام برای ما نیست فقط ما داریم باز نشر می کنیم. از یک گیت هاب روسی . که یک سری ایرانی هم جزشون هست و اکثرا جواب میدن
-
-لیست سوم
-vless://6d49fae1-374d-313e-b360-1227b0ea8dea@s356.ccgfw.online:443?encryption=none&type=tcp&headerType=none&fp=chrome&host=s356.ccgfw.online&path=&flow=xtls-rprx-vision&security=tls&sni=09d7s356.ccgfw.online&serviceName=&mode=&alpn=#telegram:@FVPNProxy
-vless://6d49fae1-374d-313e-b360-1227b0ea8dea@s356.ccgfw.online:443?encryption=none&type=tcp&headerType=none&fp=random&host=s356.ccgfw.online&path=&flow=xtls-rprx-vision&security=tls&sni=u712032u09d7s356.ccgfw.online&serviceName=&mode=&alpn=#telegram:@FVPNProxy
-vless://6d49fae1-374d-313e-b360-1227b0ea8dea@s359.ccgfw.online:443?encryption=none&type=tcp&headerType=none&fp=random&host=s359.ccgfw.online&flow=xtls-rprx-vision&security=tls&sni=4da2s359.ccgfw.online#telegram:@FVPNProxy
-vless://6d49fae1-374d-313e-b360-1227b0ea8dea@s359.ccgfw.online:443?encryption=none&type=tcp&headerType=none&fp=random&host=s359.ccgfw.online&path=&flow=xtls-rprx-vision&security=tls&sni=u712032u4da2s359.ccgfw.online&serviceName=&mode=&alpn=#telegram:@FVPNProxy
-vless://301d514e-4aa0-47b0-ba44-a0cb891cd52f@213.218.212.4:443?type=tcp&security=reality&sni=www.samsung.com&fp=chrome&pbk=OZVjfQBboTDTBw0baMFqzVPsVUI4FNQmspTEb0b0zW4&sid=a1b2c3d4#telegram:@FVPNProxy
-vless://7572659e-7322-4b33-9f17-bfa7a9d984bc@151.101.118.95:443?type=xhttp&headerType=none&security=tls&encryption=none&sni=127.0.0.1&fp=chrome&alpn=h3&path=%2F&host=ovh544.global.ssl.fastly.net&insecure=1#telegram:@FVPNProxy
-vless://0b69e501-28c8-4d44-f1f5-b36942226db6@47.82.183.252:56231?encryption=none&type=tcp&headerType=none#telegram:@FVPNProxy
-vless://Telegram%3A%40TuhinBroh@sgc.tdz-server.store:20378?path=%2F%40TuhinBroh&security=&encryption=none&type=ws#telegram:@FVPNProxy
-vless://535a5a50-66a7-40df-ba0c-3850a13409c6@aws-link27.liangxin1.xyz:443?flow=xtls-rprx-vision&fp=safari&headertype=none&pbk=a9I2uA3NNZA6uBAe3Tui9vZ8CG5MrMaYOifWrAdc0zg&security=reality&sid=a8609be8&sni=download-porter.hoyoverse.com&type=tcp#telegram:@FVPNProxy
-vless://3861a7d0-8fff-4e9e-a3d7-b96089d4ee0b@167.148.183.180:443?allowinsecure=0&fp=chrome&mode=auto&path=/&pbk=OgJz7oQ3aYL5w5mQjdMp0QgCTwRoPuj0LgEZlBtpTRY&security=reality&sid=6fce2d08&sni=static.gcore.pro&type=xhttp#telegram:@FVPNProxy
 </div>
 

@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/03/15 18:56
+📅 آخرین بروزرسانی: 1405/03/15 21:03
 
 ---
+
+## tasiyanc — post 6196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  
+👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SuperFast @Tasiyanc 🪐⚡.npvt
+</div>
+
+## tasiyanc — post 6194
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+4سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6193
 
@@ -156,38 +190,5 @@ trojan://VPTFm%3DoZ%2B%2BSuNT%2BjMRqGZqrAnWq-r8KJyY@172.104.237.100:443?security
 trojan://r-_YbwF.j0TtHVewoFIppramjAnmSfqYzJ@172.238.120.124:443?security=tls&insecure=0&headerType=none&fp=chrome&type=tcp&allowInsecure=0#Wifi%20%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc%20%F0%9F%9A%803
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ برای نت خانگی (وای‌فای)
-چندتا سرور پرمیوم تو گپ خودمون می‌زارم بیاید بزنید عشق کنین
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6167
-
-<div align="center"><img src="files/post_6167_tasiyanc_6167.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium GOD SV 🚀🔥.npvt
-</div>
-
-## tasiyanc — post 6166
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-
-4سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc ✅
 </div>
 
