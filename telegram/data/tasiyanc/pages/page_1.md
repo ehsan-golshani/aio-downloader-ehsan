@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/15 21:03
+📅 آخرین بروزرسانی: 1405/03/15 22:57
 
 ---
+
+## tasiyanc — post 6320
+
+<div align="center"><a href="files/post_6320_@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN♻️
+
+تست شده  🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6318
 
@@ -11,8 +28,6 @@
 </div>
 
 ## tasiyanc — post 6317
-
-<div align="center"><a href="files/post_6317_FAST ⚡🚀 VIP.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 FAST ⚡🚀 VIP.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
@@ -27,8 +42,6 @@
 </div>
 
 ## tasiyanc — post 6316
-
-<div align="center"><a href="files/post_6316_4Sv - Vip ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 4Sv - Vip ⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
@@ -197,11 +210,5 @@ Password : @Tasiyanc  ⏩
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گیمرایی ک مشکلات ورود به بازی های آنلاین دارن بالا باشید 💋
-</div>
-
-## tasiyanc — post 6293
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•𝐅_𝟐𝟐_⚡💣_ᴾʳᵉᵐᶤᵘᵐ_ᶳᵉʳᵛᵉʳᶳ.npvt
 </div>
 

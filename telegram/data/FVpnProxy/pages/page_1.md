@@ -1,8 +1,22 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/15 21:02
+📅 آخرین بروزرسانی: 1405/03/15 22:56
 
 ---
+
+## FVpnProxy — post 555
+
+## FVpnProxy — post 553
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینم از پروکسی اختصاصی تازه نفس امشب، برای اتصال روی نوشته زیر بزنید.
+
+سرور اختصاصی 1
+
+سرور اختصاصی 2
+
+😘🤭
+</div>
 
 ## FVpnProxy — post 552
 
@@ -195,21 +209,5 @@ vless://86e507a8-eca1-4b7b-b5d9-47be47d3e87c@89.208.97.86:80?encryption=none&ext
 
 
 vless://5664ae71-8024-4c65-bef2-54affa239a93@95.163.152.31:80?encryption=none&extra=%7B%22scMaxEachPostBytes%22%3A%221000000%22%2C%22scMinPostsIntervalMs%22%3A%2230%22%2C%22xPaddingBytes%22%3A%22100-1000%22%7D&host=google.com&mode=auto&path=%2F&security=none&type=xhttp&x_padding_bytes=100-1000#Telegram:@fvpnproxy
-</div>
-
-## FVpnProxy — post 531
-
-<div align="center"><img src="files/post_531_FVpnProxy_531.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه خبره اینجا 154k
-🤣😅
-</div>
-
-## FVpnProxy — post 530
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوباره منابع 2 برابر شد
-دارید پدر سرور در میارید 🤣😅
 </div>
 
