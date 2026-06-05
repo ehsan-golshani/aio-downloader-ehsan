@@ -1,12 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/15 22:57
+📅 آخرین بروزرسانی: 1405/03/16 03:26
 
 ---
 
-## tasiyanc — post 6320
+## tasiyanc — post 6326
 
-<div align="center"><a href="files/post_6320_@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc.ovpn</a></div>
+<div align="center"><img src="files/post_6326_tasiyanc_6326.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DE - Fast 🇩🇪⚡.npvt
+</div>
+
+## tasiyanc — post 6325
+
+<div align="center"><a href="files/post_6325_DE - Fast 🇩🇪⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 DE - Fast 🇩🇪⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی آلمان 🇩🇪
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  
+⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6324
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز در راه است
+</div>
+
+## tasiyanc — post 6323
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😐 ریکشن ۵ تا؟
+</div>
+
+## tasiyanc — post 6322
+
+<div align="center"><a href="files/post_6322_🍔 Hamburger.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🍔 Hamburger.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۲سرور   سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  
+⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6320
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ جدید OpenVPN♻️
@@ -149,66 +205,5 @@ Password : @Tasiyanc  ⏩
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ما ک از اولش گفتم Ovpn تو حیطه من نی و نمیزارم ،چیزای ام ک میزاریم از Ovpn بیشتر از vpnbook یا vpnjantit که اشتراکشو دارم
-</div>
-
-## tasiyanc — post 6300
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
-</div>
-
-## tasiyanc — post 6298
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-2سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها 
-⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6297
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•𝐅_𝟐𝟐_⚡💣_ᴾʳᵉᵐᶤᵘᵐ_ᶳᵉʳᵛᵉʳᶳ.npvt
-</div>
-
-## tasiyanc — post 6295
-
-<div align="center"><img src="files/post_6295_tasiyanc_6295.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 معرفی برنامه LagSlayer برای گیمرهای تاسیان 📱 🎮
-
-🎚 حل مشکل پینگ و ورود به بازی
-(فقط رایگان استفاده کنید!)
-اگر برای ورود به بازی‌هایی مثل کالاف دیوتی و پابجی مشکل ارور ورود دارید یا پینگتون بالاست، برنامه LagSlayer رو تست کنید.
-​اصلاً نیازی به خرید اشتراک یا پول خرج کردن نیست؛ فقط از پلن رایگان DNS آن  استفاده کنید خودم رو کالاف تست کردم پینگ ۶۰ - ۵۰  داد
-​
-✅ وارد وبسایت لگ اسلایر بشید و اپ مورد نیاز رو دانلود کنین
-
-🤔 https://lagslayer.com/
-
-🔺ثبت‌نام کنید ( شماره + موقع ورود به اپلیکشن باید جی‌میل بدید ، ترجیحا یا فیک میل استفاده کنین یا جی‌میلی که زیاد باهاش سرکار ندارید )
-
-🔹 بعد ثبت نام طبق تصویر ​DNS رایگان  رو روشن کنید
-​همین! بدون هزینه ارور بازی‌ها رو براتون رد می‌کنه و یه پینگ متعادل و پایدار بهتون میده.
-
-پی‌نوشت : تاسیان جهت کمک به ورود بازی راه حل پیشنهاد میدهد میتوانید با مسئولیت خودتون نصب و استفاده کنین .
-​
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گیمرایی ک مشکلات ورود به بازی های آنلاین دارن بالا باشید 💋
 </div>
 
