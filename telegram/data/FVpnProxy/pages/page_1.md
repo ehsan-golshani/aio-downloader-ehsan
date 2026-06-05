@@ -1,8 +1,20 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/16 00:44
+📅 آخرین بروزرسانی: 1405/03/16 02:10
 
 ---
+
+## FVpnProxy — post 559
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور پروکسی جدید داریم 🤭
+
+سرور اختصاصی 1
+
+سرور اختصاصی 2
+
+سرور اختصاصی 3 🆕
+</div>
 
 ## FVpnProxy — post 558
 
@@ -194,17 +206,5 @@ https://t.me/proxy?server=62.60.155.8&port=2053&secret=bf326e082e8ce950a4dd708e0
 
 
 @fvpnproxybot
-</div>
-
-## FVpnProxy — post 533
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودتون دیگه میدونید چیه و چیکار کنید 🙏🌹❤️
-
-vless://86e507a8-eca1-4b7b-b5d9-47be47d3e87c@89.208.97.86:80?encryption=none&extra=%7B%22scMaxEachPostBytes%22%3A%221000000%22%2C%22scMinPostsIntervalMs%22%3A%2230%22%2C%22xPaddingBytes%22%3A%22100-1000%22%7D&host=google.com&mode=auto&path=%2F&security=none&type=xhttp&x_padding_bytes=100-1000#Telegram:@fvpnproxy
-
-
-@FvpnProxy
-@TheMissingProfile
 </div>
 
