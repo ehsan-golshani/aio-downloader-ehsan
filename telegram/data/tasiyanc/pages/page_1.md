@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/16 13:10
+📅 آخرین بروزرسانی: 1405/03/16 16:21
 
 ---
+
+## tasiyanc — post 6337
+
+<div align="center"><a href="files/post_6337_Fast ⚡@Tasiyanc⚡.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast ⚡@Tasiyanc⚡.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید چخبرا ؟
+</div>
+
+## tasiyanc — post 6334
+
+<div align="center"><a href="files/post_6334_Vip - 3 Countrys 🚀⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Vip - 3 Countrys 🚀⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی  🇮🇹 🇩🇪 🇳🇱
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🚀
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  ⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6333
 
@@ -166,38 +202,5 @@ Password : @Tasiyanc 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چطوره؟
-</div>
-
-## tasiyanc — post 6310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لوگو چنل مرتبط با اسم تغییراتی کوچک دادیم ، گممون نکنین ❤️
-</div>
-
-## tasiyanc — post 6308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3 سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سندروم Survivor's Guilt:
-حالت روانی‌ای که فرد پس از زنده موندن از یه فاجعه یا تجربه مرگبار با وجود بی تقصیر بودن، دچار احساس گناه از زنده موندن میشه، به ویژه وقتی دیگران آسیب دیده یا جان باختن.
-
-پروکسی • پروکسی
-
-@Tasiyanproxy ✅
 </div>
 
