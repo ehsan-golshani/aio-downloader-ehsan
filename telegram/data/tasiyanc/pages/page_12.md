@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/03/16 18:24
+📅 آخرین بروزرسانی: 1405/03/16 21:11
 
 ---
+
+## tasiyanc — post 6071
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی همه اپراتورا🚀
+
+دانلود OpenVpn 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6069
+
+<div align="center"><img src="files/post_6069_tasiyanc_6069.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FastVip⚡.npvt
+</div>
 
 ## tasiyanc — post 6068
 
@@ -155,19 +176,5 @@ Hot Servers 🔥🌶️.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @ineedknife
 آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادبش کردید ؟
-@ineedknife
-اگه ادبش کردید یه ری اکشن بزنید بره همون جایی ک میدونین 😂
-</div>
-
-## tasiyanc — post 6040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور های جدید نپستر ساعت ۱.۳۰
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/16 13:09
+📅 آخرین بروزرسانی: 1405/03/16 21:11
 
 ---
+
+## FVpnProxy — post 565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بروز رسانی سرورها سرور1 سرور 2 سرور 3 سرور 4 🆕
+</div>
 
 ## FVpnProxy — post 563
 
@@ -197,12 +203,5 @@ https://t.me/proxy?server=62.60.155.8&port=2053&secret=bf326e082e8ce950a4dd708e0
 نمیگین pv میایین start میزنید تو دنده هستم میخورم تو دیوار!
 
 وجدانن چرا pv بعضیا start مینویسن 😅🤕
-</div>
-
-## FVpnProxy — post 537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام
-ربات مجددا start بزنید. لیست بروز v2ray های تست شده بهتون میده. فقط کافیه فایل دانلود و محتویات به برنامه v2ray, v2box و موارد مشابه بدید
 </div>
 

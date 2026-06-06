@@ -1,8 +1,15 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/16 13:09
+📅 آخرین بروزرسانی: 1405/03/16 21:11
 
 ---
+
+## FVpnProxy — post 537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام
+ربات مجددا start بزنید. لیست بروز v2ray های تست شده بهتون میده. فقط کافیه فایل دانلود و محتویات به برنامه v2ray, v2box و موارد مشابه بدید
+</div>
 
 ## FVpnProxy — post 535
 
@@ -179,17 +186,4 @@ https://www.instagram.com/fvpnproxy
 </div>
 
 ## FVpnProxy — post 517
-
-## FVpnProxy — post 516
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این لیست تست شده ، هیچ کدام برای ما نیست فقط ما داریم باز نشر می کنیم. از یک گیت هاب روسی . که یک سری ایرانی هم جزشون هست و اکثرا جواب میدن
-
-لیست نهم
-
-vmess://eyJ2IjoiMiIsInBzIjoi8J+HsvCfh70gTWV4aWNvLCBNZXhpY28gQ2l0eSB8IFtCTF0iLCJhZGQiOiIxMzAuOTQuMTAxLjM1IiwicG9ydCI6IjQ2ODIwIiwiaWQiOiJmMjNiMzIyYy05YmMxLTRhMGMtODAzZC00OTRkYjlkNDA5OWQiLCJhaWQiOiIwIiwic2N5IjoiYXV0byIsIm5ldCI6IndzIiwidHlwZSI6Im5vbmUiLCJob3N0IjoiIiwicGF0aCI6Ii9hcmtpIiwidGxzIjoiIiwic25pIjoiIiwiYWxwbiI6IiIsImZwIjoiIiwiaW5zZWN1cmUiOiIwIn0=
-trojan://gcuCpQfaiVeDBdWG@211.76.176.98:19128?security=tls&sni=yazhou10.dynu.net&type=tcp&headerType=none#telegram:@FVPNProxy
-trojan://gcuCpQfaiVeDBdWG@211.76.176.99:19128?security=tls&sni=yazhou10.dynu.net&type=tcp&headerType=none#telegram:@FVPNProxy
-trojan://humanity@165.215.250.14:443?path=/assignment&security=tls&host=www.calmlunch.com&fp=chrome&type=ws&sni=www.calmlunch.com#telegram:@FVPNProxy
-</div>
 

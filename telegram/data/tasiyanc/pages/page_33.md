@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/03/16 18:24
+📅 آخرین بروزرسانی: 1405/03/16 21:11
 
 ---
+
+## tasiyanc — post 5500
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌐TARKIB 📶
+trojan://humanity@2.144.4.208:40443?security=tls&type=ws&host=www.creationlong.org&path=%2Fassignment&sni=www.creationlong.org&allowInsecure=1#%40Tasiyanc
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5498
 
