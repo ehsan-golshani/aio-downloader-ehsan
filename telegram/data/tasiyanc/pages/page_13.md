@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/03/16 21:11
+📅 آخرین بروزرسانی: 1405/03/16 22:31
 
 ---
+
+## tasiyanc — post 6043
+
+<div align="center"><img src="files/post_6043_tasiyanc_6043.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
+</div>
+
+## tasiyanc — post 6042
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@ineedknife
+آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
+</div>
 
 ## tasiyanc — post 6041
 
@@ -118,17 +133,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 من سه تا اپل ایدی سرش بگا دادم
-</div>
-
-## tasiyanc — post 6020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این فیلتر شکن مخربو سریع حذف کنین بخدا من فشاری شدم دیگه ،
-</div>
-
-## tasiyanc — post 6019
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-راجب jumjump اینو بگم کی کلی از دوستان میگن حسابشون از دسترس خارج شده ، ربطی به آیپی نداره، من هرروز با ۱۰ تا آیپی میرم اینستا و بقیه ، چرا فقط هرکی این vpn استفاده کرده زده اکانتشو بگا داده؟ بقیه VPN ها چنین چیزی نشده گزارشی نیست بهرحال به حرف هرچنلی گوش…
 </div>
 

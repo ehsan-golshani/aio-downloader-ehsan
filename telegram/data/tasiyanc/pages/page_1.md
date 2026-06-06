@@ -1,12 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/16 21:11
+📅 آخرین بروزرسانی: 1405/03/16 22:31
 
 ---
 
-## tasiyanc — post 6348
+## tasiyanc — post 6350
 
-<div align="center"><a href="files/post_6348_@Tasiyanc ⚡OLCNG .apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ⚡OLCNG .apk</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST @Tasiyanc servers.txt
+</div>
+
+## tasiyanc — post 6349
+
+<div align="center"><a href="files/post_6349_💥@Tasiyanc⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 💥@Tasiyanc⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+5سرور   سرعتی  🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🔥
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6348
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کلاینت OLCNG ✅
@@ -186,28 +208,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 DE - Fast 🇩🇪⚡.npvt
-</div>
-
-## tasiyanc — post 6325
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور   سرعتی آلمان 🇩🇪
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  
-⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6324
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز در راه است
 </div>
 
