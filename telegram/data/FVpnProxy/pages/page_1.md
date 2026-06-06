@@ -1,8 +1,10 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/16 11:00
+📅 آخرین بروزرسانی: 1405/03/16 13:09
 
 ---
+
+## FVpnProxy — post 563
 
 ## FVpnProxy — post 561
 
@@ -202,12 +204,5 @@ https://t.me/proxy?server=62.60.155.8&port=2053&secret=bf326e082e8ce950a4dd708e0
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سلام
 ربات مجددا start بزنید. لیست بروز v2ray های تست شده بهتون میده. فقط کافیه فایل دانلود و محتویات به برنامه v2ray, v2box و موارد مشابه بدید
-</div>
-
-## FVpnProxy — post 535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زمان دریافت کانفیگ ریگان از ربات تمام شد.
-سرور خاموش شد
 </div>
 

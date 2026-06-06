@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/03/16 11:01
+📅 آخرین بروزرسانی: 1405/03/16 13:10
 
 ---
+
+## tasiyanc — post 5740
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/Tasiyanc/5733
+</div>
 
 ## tasiyanc — post 5739
 
@@ -179,11 +185,5 @@ vless://20ecee51-1044-4be3-89a9-f3c700425ead@45.67.230.230:443?security=reality&
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه جور نتارو باز کردن دوباره مردم میرن کانفیگ میخرن ، تف به شرفتون
 </div>
 

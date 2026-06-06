@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/16 11:01
+📅 آخرین بروزرسانی: 1405/03/16 13:10
 
 ---
+
+## tasiyanc — post 6306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد XB  👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6305
 
@@ -188,11 +199,5 @@ Green Eyes ⚡💚.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 MCI - SamanTel - wifi تست شده
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 6283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-الان کسی از چنل رد شه میگه پشمام ریکشن تاسیانو نگا
 </div>
 

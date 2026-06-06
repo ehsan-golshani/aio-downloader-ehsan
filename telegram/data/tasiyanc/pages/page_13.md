@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/03/16 11:01
+📅 آخرین بروزرسانی: 1405/03/16 13:10
 
 ---
+
+## tasiyanc — post 6027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم اکانتم پرید
+</div>
 
 ## tasiyanc — post 6026
 
@@ -143,16 +149,5 @@ VİP 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هردو کانفیگ اوپن وصله برید حالشو ببرید
-</div>
-
-## tasiyanc — post 6002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده 🚀
-
-
-@Tasiyanc ✅
 </div>
 
