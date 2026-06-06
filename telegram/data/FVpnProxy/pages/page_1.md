@@ -1,8 +1,22 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/16 02:10
+📅 آخرین بروزرسانی: 1405/03/16 11:00
 
 ---
+
+## FVpnProxy — post 561
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بروز رسانی سرورها
+
+سرور1
+
+سرور 2
+
+سرور 3
+
+سرور 4 🆕
+</div>
 
 ## FVpnProxy — post 559
 
@@ -195,16 +209,5 @@ https://t.me/proxy?server=62.60.155.8&port=2053&secret=bf326e082e8ce950a4dd708e0
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 زمان دریافت کانفیگ ریگان از ربات تمام شد.
 سرور خاموش شد
-</div>
-
-## FVpnProxy — post 534
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام
-میتونید از طریق ربات بصورت موقت به مدت 2 ساعت از الان کانفیگ رایگان بگیرید
-بعد از start روی دکمه دریافت کانفیگ رایگان کلید کنید.
-
-
-@fvpnproxybot
 </div>
 

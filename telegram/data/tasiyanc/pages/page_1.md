@@ -1,12 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/16 07:45
+📅 آخرین بروزرسانی: 1405/03/16 11:01
 
 ---
 
-## tasiyanc — post 6328
+## tasiyanc — post 6332
 
-<div align="center"><a href="files/post_6328_Fast @Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast @Tasiyanc.ovpn</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حال ندارید ریکشن بزنید بریم بخوابیم
+</div>
+
+## tasiyanc — post 6331
+
+<div align="center"><a href="files/post_6331_⚡🇮🇹 @Tasiyanc .conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡🇮🇹 @Tasiyanc .conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6330
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید گپمون - تبادل کانفیگ & ...
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6328
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ جدید OpenVPN♻️
@@ -182,28 +206,5 @@ Password : @Tasiyanc  ⏩
 آموزش⏩
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قصد حاشیه با هیچ بنی بشری ام ندارم چون نه حوصله ن وقتشو دارم درکل گفتم زحمتای بقیه رو بعضیا با دو تکست بگ* ندن
-با قدرت در خدمت شما هستیم❤️
-</div>
-
-## tasiyanc — post 6304
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شما باشید فشار نمیخورید؟
-</div>
-
-## tasiyanc — post 6303
-
-<div align="center"><video src="files/post_6303_tasiyanc_6303.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6303_tasiyanc_6303.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
 </div>
 

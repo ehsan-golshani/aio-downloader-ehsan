@@ -1,8 +1,19 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/16 02:10
+📅 آخرین بروزرسانی: 1405/03/16 11:00
 
 ---
+
+## FVpnProxy — post 534
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام
+میتونید از طریق ربات بصورت موقت به مدت 2 ساعت از الان کانفیگ رایگان بگیرید
+بعد از start روی دکمه دریافت کانفیگ رایگان کلید کنید.
+
+
+@fvpnproxybot
+</div>
 
 ## FVpnProxy — post 533
 
@@ -189,24 +200,5 @@ vless://eb3fa357-cea8-321e-bbd5-850e2d874025@64.118.131.116:46783?fp=chrome&mode
 vless://eb3fa357-cea8-321e-bbd5-850e2d874025@64.118.131.116:46784?fp=chrome&mode=gun&security=tls&serviceName=ljfxz&sni=t1.hhaakk9922.com&type=grpc&udp=1#telegram:@FVPNProxy
 vless://eb3fa357-cea8-321e-bbd5-850e2d874025@t1.hhaakk9922.com:46783?encryption=none&type=grpc&sni=t1.hhaakk9922.com&security=tls&fp=chrome&serviceName=ljfxz&mode=gun&udp=1#telegram:@FVPNProxy
 vless://eb3fa357-cea8-321e-bbd5-850e2d874025@t1.hhaakk9922.com:46784?encryption=none&type=grpc&sni=t1.hhaakk9922.com&security=tls&fp=chrome&serviceName=ljfxz&mode=gun&udp=1#telegram:@FVPNProxy
-</div>
-
-## FVpnProxy — post 514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این لیست تست شده ، هیچ کدام برای ما نیست فقط ما داریم باز نشر می کنیم. از یک گیت هاب روسی . که یک سری ایرانی هم جزشون هست و اکثرا جواب میدن
-
-لیست هفتم
-
-vless://7402e534-54dc-34cc-ac5b-c85ac6e236fd@s881.ccgfw.top:443?flow=xtls-rprx-vision&security=tls&sni=s881.ccgfw.top&type=tcp#telegram:@FVPNProxy
-vless://06b65903-406d-4a41-8463-6fd5c0ee7798@64.186.225.13:8443?&security=tls&sni=sni.skylee4.cloudns.ch&type=ws&headerType=none&host=sni.skylee4.cloudns.ch&path=%2Fproxyip%3DProxyIP.CMLiussss.net#telegram:@FVPNProxy
-vless://06b65903-406d-4a41-8463-6fd5c0ee7798@64.186.225.13:8443?host=sni.skylee4.cloudns.ch&path=%2Fproxyip%3DProxyIP.CMLiussss.netfp%3Dchrome&security=tls&sni=sni.skylee4.cloudns.ch&type=ws#telegram:@FVPNProxy
-vless://06b65903-406d-4a41-8463-6fd5c0ee7798@64.186.225.13:8443?encryption=none&type=ws&sni=sni.skylee4.cloudns.ch&security=tls&fp=chrome&host=sni.skylee4.cloudns.ch&path=/proxyip=ProxyIP.CMLiussss.net#telegram:@FVPNProxy
-vless://e258977b-e413-4718-a3af-02d75492c349@69.84.182.49:2096?path=%2F&security=tls&encryption=none&insecure=0&host=jp.aniua.qzz.io&type=ws&allowInsecure=0&sni=jp.aniua.qzz.io#telegram:@FVPNProxy
-vless://InternetAzadRobot@165.215.250.14:2087?mode=auto&path=%2Flogin&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&extra=%7B%22mode%22%3A%22auto%22%2C%22Accept-Encoding%22%3A%22gzip%2C%2Bdeflate%2C%2Bbr%22%2C%22Accept-Language%22%3A%22en-US%2Cen%3Bq%3D0.9%22%2C%22Cache-Control%22%3A%22no-cache%22%2C%22Pragma%22%3A%22no-cache%22%7D&insecure=0&host=ws.kheybar.store&fp=chrome&type=xhttp&allowInsecure=0&sni=ws.kheybar.store#telegram:@FVPNProxy
-vless://01583b55-7cd0-402b-bd13-c5f1d6e62213@138.124.115.134:28561?type=tcp&encryption=none&security=reality&pbk=Oeqvti84_ZY-qSA3sQv4F7mc7-9eOwxw3oXDVtSOaRg&fp=chrome&sni=yahoo.com&sid=538dbb66ff&spx=%2F#telegram:@FVPNProxy
-vless://e234245f-b66e-4eef-b8cb-6298500221ba@165.215.250.14:443?mode=auto&path=/&security=tls&alpn=h2,http/1.1&encryption=none&extra={"mode":"auto","Accept-Encoding":"gzip,+deflate,+br","Accept-Language":"en-US,en;q=0.9","Cache-Control":"no-cache","Pragma":"no-cache"}&insecure=0&host=panel-free.emergency-service.org&fp=chrome&type=xhttp&allowInsecure=0&sni=panel-free.emergency-service.org#telegram:@FVPNProxy
-vless://e234245f-b66e-4eef-b8cb-6298500221ba@208.103.161.32:443?alpn=h2%2Chttp%2F1.1&fp=chrome&host=panel-free.emergency-service.org&mode=auto&path=%2F&security=tls&sni=panel-free.emergency-service.org&type=xhttp#telegram:@FVPNProxy
-vless://91e120bc-159a-4390-b4e1-197b19602ea0@5.175.178.183:443?flow=xtls-rprx-vision&fp=chrome&security=tls&sni=sub.sbrf-cdn342.ru&type=tcp#telegram:@FVPNProxy
 </div>
 
