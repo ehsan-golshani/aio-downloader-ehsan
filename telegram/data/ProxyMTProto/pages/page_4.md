@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/16 16:19
+📅 آخرین بروزرسانی: 1405/03/16 18:22
 
 ---
+
+## ProxyMTProto — post 47826
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: durov.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47825
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wave.flowaccess.site
+Port: 8443
+Secret: eeea2f80ea6628006a3db2a8678d65bd07776176652e666c6f776163636573732e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47824
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: starsvpn.obhod.fun
+Port: 6443
+Secret: 76706e76706e76706e76706e76706e76
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47823
 
@@ -154,33 +181,6 @@ Secret: ee47a48cbe73dd91aa66fb6f8961c5e25a7a6f6f6d2e666c6f776163636573732e736974
 Server: prime.nolags.pw
 Port: 443
 Secret: ddb01da288baa59189c1db3c7bb1490895
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47806
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47805
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: swift.quickrouteapp.xyz
-Port: 8443
-Secret: ee68a56bf93ff9c02daa862d3830de722773776966742e717569636b726f7574656170702e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 89.169.173.127
-Port: 443
-Secret: ee0f8e5e42ea0dd0f9639d851090e69760617669746f2e7275
 @ProxyMTProto
 </div>
 

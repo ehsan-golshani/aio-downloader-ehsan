@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/03/16 16:19
+📅 آخرین بروزرسانی: 1405/03/16 18:22
 
 ---
+
+## ProxyMTProto — post 47706
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 95.182.86.60
+Port: 443
+Secret: ee82dd957be0c6899a82879d05fecfc73a617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47705
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r29.proxytg.space
+Port: 8443
+Secret: ee5b741234768d8dda7d1c17e7e7cff98a7232392e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47704
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dns.vdl.lat
+Port: 853
+Secret: ee9963ec50cf89d852bb1e084a44b196e4646e732e76646c2e6c6174
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47703
 
@@ -155,36 +182,6 @@ Secret: eec974a3a31e6a91e39d873e2f62701151617669746f2e7275
 Server: 5.189.165.109
 Port: 443
 Secret: ee417d3d7571c540ec9fbc4fd1995058a1676f6f676c65617069732e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vpn.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ Working proxies are getting blocked quickly due to new restrictions.
-
-If Telegram starts loading slowly again, it's better to get connected in advance 👀
-
-We're constantly adding new proxies and currently providing them for free 🔥
-
-👉 Start the bot and join our channel to get a working proxy right now.
-</div>
-
-## ProxyMTProto — post 47684
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: live.russia.mambabot.net
-Port: 7866
-Secret: ee843223f372ef32e718c5271b5580714c6d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 

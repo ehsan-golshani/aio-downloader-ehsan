@@ -1,8 +1,64 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/03/16 16:21
+📅 آخرین بروزرسانی: 1405/03/16 18:24
 
 ---
+
+## tasiyanc — post 5888
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+4سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5887
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا جای ک یادمه زمان قطعی همتون openvpn پاک کرده بودید الان شده بهتر از نپستر ، تازه این همه کانفیگ npv میزنیم بخدا ع پولی بیشتر سرعتش
+</div>
+
+## tasiyanc — post 5886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر کدوم بیشتر رای بیاره از اون بیشتر میزاریم
+</div>
+
+## tasiyanc — post 5885
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیشتر با ovpn تا حالا وصل شدید یا با npv ؟ زمان قطعی کدوم به دادتون رسیده یادتون رفت؟
+
+Npv ❤️
+
+Ovpn 🔥
+</div>
+
+## tasiyanc — post 5884
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید قبول کنیم نپستر سرعتش بیشتره از اوپنه ، زمان اتصالش سریعه و کلی موارد دیگه
+سرور ovpn شلوغ باشه ارور متعدد روبرو میشید و و و
+</div>
+
+## tasiyanc — post 5883
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی رایتل ـ سامانتل _ ایرانسل🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5882
 
@@ -140,56 +196,5 @@ GANG 🌙 10 SERVER FAST.npvt
 https://t.me/+RTGtcYWb8HdkNjdk
 
 گروه تاسیان
-</div>
-
-## tasiyanc — post 5862
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 💫 4Server vip.npvt
-</div>
-
-## tasiyanc — post 5861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑 رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- 4 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجب سرعتی داره داداش کیرتو بخورم دمت گرم❤️
-</div>
-
-## tasiyanc — post 5859
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کالافو اپدیت کردم دمت گرم
-</div>
-
-## tasiyanc — post 5858
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیهههه خدا خیرتون بده
-</div>
-
-## tasiyanc — post 5857
-
-<div align="center"><img src="files/post_5857_tasiyanc_5857.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این سرعتی هم عالیه
 </div>
 
