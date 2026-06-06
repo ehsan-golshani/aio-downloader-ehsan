@@ -1,8 +1,82 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/16 22:31
+📅 آخرین بروزرسانی: 1405/03/16 23:52
 
 ---
+
+## tasiyanc — post 6358
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی ⚡ sv 3.npvt
+</div>
+
+## tasiyanc — post 6357
+
+<div align="center"><a href="files/post_6357_سرعتی ⚡ sv 3.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 سرعتی ⚡ sv 3.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۳سرور   سرعتی تست شده با همراه 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
+
+دانلود  NPV tunnel  🌐
+
+😬Password :″ @Tasiyanc  ″
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6356
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+گپمون هنو ۴ کا نشده 🗽😐 جوین شید عشقا
+</div>
+
+## tasiyanc — post 6355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سری چنلهای عزیز هم ک باهاشون رفیقم فور میکنن بدون اینکه دیکد کنن ، جا داره ازشون تشکر کنم ❤️‍🔥
+</div>
+
+## tasiyanc — post 6354
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشتی لاقل اجازه بده ممبرای خودم وصل شن بعد
+</div>
+
+## tasiyanc — post 6353
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ع سرورای تاسیان اسکی می‌ره پسوردم می‌زاره و میگه بیاید تشکر کنین ازم
+ساعت ۲۱.۱۸ سرور میزنم پنج دقیقه بعدش دیکد می‌کنه ، آدم میمونه چی بگه
+</div>
+
+## tasiyanc — post 6352
+
+<div align="center"><a href="files/post_6352_🔰@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🔰@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6351
+
+<div align="center"><a href="files/post_6351_🔰2@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🔰2@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+🔺@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6350
 
@@ -11,8 +85,6 @@ FAST @Tasiyanc servers.txt
 </div>
 
 ## tasiyanc — post 6349
-
-<div align="center"><a href="files/post_6349_💥@Tasiyanc⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 💥@Tasiyanc⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
@@ -140,73 +212,5 @@ Join As @Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خوبید چخبرا ؟
-</div>
-
-## tasiyanc — post 6334
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور   سرعتی  🇮🇹 🇩🇪 🇳🇱
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🚀
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دولت شیرکاکائوئیا (پاکستانی ها) اینترنت بین الملل رو بخاطر فراخوان اعتراضی بستند
-</div>
-
-## tasiyanc — post 6332
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حال ندارید ریکشن بزنید بریم بخوابیم
-</div>
-
-## tasiyanc — post 6331
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید گپمون - تبادل کانفیگ & ...
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN♻️
-تست شده  🚀
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6327
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۰٪ کانفیگای ک روزهای گذشته گذاشتیم وصله
-</div>
-
-## tasiyanc — post 6326
-
-<div align="center"><img src="files/post_6326_tasiyanc_6326.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DE - Fast 🇩🇪⚡.npvt
 </div>
 
