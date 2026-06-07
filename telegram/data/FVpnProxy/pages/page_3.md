@@ -1,8 +1,99 @@
 # آرشیو کانال FVpnProxy - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/17 12:03
+📅 آخرین بروزرسانی: 1405/03/17 23:57
 
 ---
+
+## FVpnProxy — post 526
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+براتون سرور جدید v2ray آوردم
+بدون محدودیت حجم
+حسابی دانلود کنید🤭🫣
+
+vless://fvpnproxy@85.192.38.162:80?mode=auto&path=%2F&security=&encryption=none&extra=%7B%22scMaxEachPostBytes%22%3A%221000000%22%2C%22scMinPostsIntervalMs%22%3A%2230%22%2C%22xPaddingBytes%22%3A%22100-1000%22%7D&host=google.com&type=xhttp#Telegram:@FvpnProxy
+</div>
+
+## FVpnProxy — post 525
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا برنامه آماده بشه سعی میکنم آخر شب براتون سرور تازه نفس اختصاصی قرار بدم. هرچی دارید دانلود کنید. اصلا بهش رحم نکنید🤭🤭
+</div>
+
+## FVpnProxy — post 524
+
+## FVpnProxy — post 523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یعنی اینقد بچه های خوبی شدید تا نگم دانلود کنید، دانلود نمیکنید؟
+
+آفرین الان شد ، چی بود کم کم مصرف میکردید🤭
+
+تا می تونید به بقیه هم بدید. امشب تا صبح کاری کنید فایروال سرور ببنده نه فیلتر چی
+
+از 500‌GB شد 2TB
+❤️🙏🌹
+</div>
+
+## FVpnProxy — post 522
+
+<div align="center"><img src="files/post_522_FVpnProxy_522.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجور بخوایید مصرف کنید قبل تموم شدن 500 گیگ سرور فیلتر میشه.
+هرچی دارید دانلود کنید سریع
+میخوام این سرور حسابی فشارش بدید 🤭😅
+</div>
+
+## FVpnProxy — post 521
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینم هدیه امشب
+حالش ببرید تا تموم بشه 500 گیگ
+
+
+trojan://fvpnproxy@95.163.152.104:26913?path=%2F&security=none&type=ws#Telegram:@FvpnProxy
+
+آپدیت:
+آقا این v2ray هست دیگه چرا میگید با چی بزنم برنامه بفرست!؟
+</div>
+
+## FVpnProxy — post 520
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀 پروکسی جدید پرسرعت
+
+📍 لوکیشن : 🇩🇪 Germany
+📡 اپراتور : همه اپراتورها
+⚙️ پروتکل : MTProto
+
+✅ برای اتصال ضربه بزنید
+
+🆔 @FVPNPRoxy
+</div>
+
+## FVpnProxy — post 519
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀 پروکسی جدید پرسرعت
+
+📍 لوکیشن : 🇩🇪 Germany
+📡 اپراتور : همه اپراتورها
+⚙️ پروتکل : MTProto
+
+✅ برای اتصال ضربه بزنید
+
+🆔 @FVPNProxy
+</div>
+
+## FVpnProxy — post 518
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان اگر تمایل داشتید میتونید داخل اینستاگرام فالو کنید.
+
+
+https://www.instagram.com/fvpnproxy
+</div>
 
 ## FVpnProxy — post 517
 
@@ -180,87 +271,5 @@ vless://TIGNAL@151.101.1.57:80?encryption=none&security=none&type=xhttp&host=sha
 vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@205.237.104.99:443?allowinsecure=0&flow=xtls-rprx-vision&security=tls&sni=sub.sbrf-cdn342.ru&type=tcp#telegram:@FVPNProxy
 vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@205.237.104.99:443?flow=xtls-rprx-vision-udp443&security=tls&sni=sub.sbrf-cdn342.ru&type=tcp#telegram:@FVPNProxy
 vless://01ea3b87-b7b1-4aef-b24a-9c43fbd3b26f@fr-tx.sbrf-cdn342.ru:443?encryption=none&flow=xtls-rprx-vision-udp443&security=tls&sni=sub.sbrf-cdn342.ru&type=tcp&headerType=none#telegram:@FVPNProxy
-</div>
-
-## FVpnProxy — post 506
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط خواستم آمار بگیرم ببینم با چه وضعیتی میایید .
-من فروشی ندارم. پس لطفا مجددا نپرسید
-
-از چند روز دیگه که وضعیت پایدار شد دوباره رایگان قرار میدم.
-🙏🌹
-</div>
-
-## FVpnProxy — post 505
-
-## FVpnProxy — post 504
-
-<div align="center"><img src="files/post_504_FVpnProxy_504.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی یکی از دوستان 🤣
-</div>
-
-## FVpnProxy — post 503
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از قدیم گفتن :
-
-دندونای اسب پیشکشی رو که نمیشمرن
-
-
-دو سه روز ک این وضعیت به اصطلاح اتصال بین الملل تثبیت شد و مشخص شد ، چه پروتکلی بهتر جواب میده. براتون نامحدود
-تلگرام ، chatgpt ، gemini این سه مورد که مشخص شده بیشترین درخواست دارن قرار میدم.
-
-حالا باز هیترها میان فحاشی که داری منت میذاری 🤣
-لطف کنید تو کانالی که رایگان منت میذاره نمونید که فشار نخورید🤗
-
-آپدیت: فشار نخور ریکشن منفی بده 😅🤣
-</div>
-
-## FVpnProxy — post 501
-
-## FVpnProxy — post 500
-
-## FVpnProxy — post 499
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تشکر بابت همه پیام هاتون
-تا جایی ک تونستم تک تک جواب دادم و خواهم داد
-
-از حالا که نت بین الملل فیلتره شده وصل شده. برای اونایی که نمیخوان پول بدن بابت vpn سعی میکنم بازم رایگان سرور بذارم.
-
-دو راه داریم برای ادامه فعالیت (کاملا رایگان)
-
-1- از طریق ربات کلید خصوصی بدیم با حجم محدود روزانه حداکثر 500 مگ. همه چیز باز کنه . تعداد زیاده همین خودش خیلی میدونم بعد یه مدت مشکل ساز میشه همه بخوان استفاده کنن
-
-
-2- حجم نامحدود ولی فقط برای چند برنامه خاص ، مثل تلگرام، chatgpt، واتساپ - البته بازم کلید روزانه باید از ربات بگیرید.
-
-
-حالا نظرسنجی میذارم ببینم کدوم بیشترین طرفدار داره
-</div>
-
-## FVpnProxy — post 498
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانسل و همراه وصل شدن
-</div>
-
-## FVpnProxy — post 497
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط برام یک چیز سوال شده!
-
-اگر جاسوس موساد، سیا، ام ای 6
-تو کانال داریم بیاد توضیح بده چرا نمیتونن نت خانگی بگیرن؟ یعنی براتون با این همه بودجه و امکانات سخته گرفتن یه نت خونگی؟
-
-
-الان تکلیف ایرانسل و همراه اول چیه، نت همه وصل شد جز ما!
-
-آقایون و خانم های جاسوس خارجی، لطفا نت خونگی بگیرید، اکثر مردم عادی با نت تلفن همراه میان.
-
-بخدا زشته برای دستگاه امنیتی خارجی نمیتونه نت خونگی برای جاسوس هاش بگیره
 </div>
 

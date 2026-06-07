@@ -1,8 +1,113 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/17 12:03
+📅 آخرین بروزرسانی: 1405/03/17 23:57
 
 ---
+
+## FVpnProxy — post 549
+
+<div align="center"><img src="files/post_549_FVpnProxy_549.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکم دیگه از 10 هزار نفر رد میشه🎉🥳
+
+تو رقابتی سنگین آمریکا از پاکستان پیشی گرفت. فقط شما دیگه چرا؟ ترامپ فیلتر کرده🤭
+</div>
+
+## FVpnProxy — post 547
+
+<div align="center"><img src="files/post_547_FVpnProxy_547.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😍 همچنان متصل و تعداد اتصال رو به افزایش
+</div>
+
+## FVpnProxy — post 546
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروکسی اختصاصی https://t.me/proxy?server=62.60.155.8&port=2053&secret=bf326e082e8ce950a4dd708e08a112cb
+</div>
+
+## FVpnProxy — post 545
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروکسی اختصاصی
+
+
+https://t.me/proxy?server=62.60.155.8&port=2053&secret=bf326e082e8ce950a4dd708e08a112cb
+</div>
+
+## FVpnProxy — post 544
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز یکی اومده مارو scam کنه
+نمیدونی با یه swap میشه فهمید😅
+</div>
+
+## FVpnProxy — post 542
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این گروه فقط و فقط برای فروش هست نه چیزی دیگه
+قبل درخواست حتما اکانت پشتیبانی به عنوان مخاطب اضافه کنید
+
+@FVPN_owner
+
+کسی که مخاطب نباشه درخواست بده برای وارد شدن درجا بن میشه. بعد از ورود ربات مداوم چک میکنه هرکس از مخاطبین حذف کرده باشه بن میشه
+
+مجبورم سختگیری کنم، هیچ اجباری نیست کسی نمیخواد نیاد. هرکس نیاز داره یه جا بخره فقط بیاد.
+
+@FvpnProxyVip
+
+
+در ضمن هرکی هم دوست داره سر این مورد شماره شایعه بسازه!
+</div>
+
+## FVpnProxy — post 541
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برنامه آینده این کانال
+اینجا هر از گاهی یک سرویس رایگان قرار میدم برای کسایی که به هر دلیل فقط رایگان میخوان تا زمانی اگر مجددا جنگ بشه!
+
+برای اونایی هم که میخوان خرید کنن یک گروه میسازم با محدودیت تعداد،
+بیشتر یک تعداد خاص راه نمیدم.
+
+برای ورود باید حتما طرف شماره تلفن روی اکانت پشتیبانی باز کنه تا بتونیم ببینیم. فردا کسی دست ازپا خطا کرد مشخص باشه کیه.
+
+آدم ناشناس خودشم بکشه راه نمیدم
+شده 1 نفر اینکار کنه همون کافیه !
+
+اینجور دیگه کسی جرات نداره هیت بده و چرت بگه
+
+اعصابم از سر راه نیاوردم سر یه چندتا ناخاله که جرات ندارن خودشون نشون بدن
+
+هرکی هم میتونه و میخواد سرور اهدا کنه، لطف کنه یک پنل سنایی نصب کنه، روی پورت 80 هرچی تونست وصل کنه که هم ایرانسل هم همراه اول جواب بده
+از طریق دایرکت ارسال کنه ما میذاریم تو کانال (بدون تبلیغ از کانالی!)
+
+
+از اکثریت عذر میخوام ولی دیگه حوصله بچه بازی این جماعت vpn فروش که منافعش تو نبود ما هست ندارم.
+</div>
+
+## FVpnProxy — post 540
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت اطلاع اونایی که زر میزنن و گه زیادی میخورن
+
+از اول هم گفتیم تا شرایط عادی نشه فروش نداریم!
+
+ناراضی هستی راه باز جاده دراز لفت بده
+</div>
+
+## FVpnProxy — post 539
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بازه
+خرید از طریق ربات
+پرداخت از طریق رمز ارز
+اشتراک یک ماهه 50 و 30 گیگ
+تعداد محدود فقط 100 نفر
+
+@fvpnproxybot
+</div>
 
 ## FVpnProxy — post 538
 
@@ -100,96 +205,5 @@ vless://5664ae71-8024-4c65-bef2-54affa239a93@95.163.152.31:80?encryption=none&ex
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خب 40k سوکت چه به سر این آوردین 😅 🫣🤭
-</div>
-
-## FVpnProxy — post 526
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-براتون سرور جدید v2ray آوردم
-بدون محدودیت حجم
-حسابی دانلود کنید🤭🫣
-
-vless://fvpnproxy@85.192.38.162:80?mode=auto&path=%2F&security=&encryption=none&extra=%7B%22scMaxEachPostBytes%22%3A%221000000%22%2C%22scMinPostsIntervalMs%22%3A%2230%22%2C%22xPaddingBytes%22%3A%22100-1000%22%7D&host=google.com&type=xhttp#Telegram:@FvpnProxy
-</div>
-
-## FVpnProxy — post 525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا برنامه آماده بشه سعی میکنم آخر شب براتون سرور تازه نفس اختصاصی قرار بدم. هرچی دارید دانلود کنید. اصلا بهش رحم نکنید🤭🤭
-</div>
-
-## FVpnProxy — post 524
-
-## FVpnProxy — post 523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یعنی اینقد بچه های خوبی شدید تا نگم دانلود کنید، دانلود نمیکنید؟
-
-آفرین الان شد ، چی بود کم کم مصرف میکردید🤭
-
-تا می تونید به بقیه هم بدید. امشب تا صبح کاری کنید فایروال سرور ببنده نه فیلتر چی
-
-از 500‌GB شد 2TB
-❤️🙏🌹
-</div>
-
-## FVpnProxy — post 522
-
-<div align="center"><img src="files/post_522_FVpnProxy_522.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینجور بخوایید مصرف کنید قبل تموم شدن 500 گیگ سرور فیلتر میشه.
-هرچی دارید دانلود کنید سریع
-میخوام این سرور حسابی فشارش بدید 🤭😅
-</div>
-
-## FVpnProxy — post 521
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینم هدیه امشب
-حالش ببرید تا تموم بشه 500 گیگ
-
-
-trojan://fvpnproxy@95.163.152.104:26913?path=%2F&security=none&type=ws#Telegram:@FvpnProxy
-
-آپدیت:
-آقا این v2ray هست دیگه چرا میگید با چی بزنم برنامه بفرست!؟
-</div>
-
-## FVpnProxy — post 520
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀 پروکسی جدید پرسرعت
-
-📍 لوکیشن : 🇩🇪 Germany
-📡 اپراتور : همه اپراتورها
-⚙️ پروتکل : MTProto
-
-✅ برای اتصال ضربه بزنید
-
-🆔 @FVPNPRoxy
-</div>
-
-## FVpnProxy — post 519
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀 پروکسی جدید پرسرعت
-
-📍 لوکیشن : 🇩🇪 Germany
-📡 اپراتور : همه اپراتورها
-⚙️ پروتکل : MTProto
-
-✅ برای اتصال ضربه بزنید
-
-🆔 @FVPNProxy
-</div>
-
-## FVpnProxy — post 518
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان اگر تمایل داشتید میتونید داخل اینستاگرام فالو کنید.
-
-
-https://www.instagram.com/fvpnproxy
 </div>
 

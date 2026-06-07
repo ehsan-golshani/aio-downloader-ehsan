@@ -1,8 +1,69 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/17 12:03
+📅 آخرین بروزرسانی: 1405/03/17 23:57
 
 ---
+
+## FVpnProxy — post 576
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+راستی حتما v2box هم نصب کنید
+</div>
+
+## FVpnProxy — post 575
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما هیچ گروه داخلی نداریم.
+
+آقا قطعی وصلی دست من نیست. فقط میگم آماده باشید
+
+این قطعی وصلی برای من نه سودی داره نه ضرر
+
+😒🤷‍♂
+</div>
+
+## FVpnProxy — post 574
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+براب اونایی که بلد نیستن استفاده کنن، نمیخواد بترسید روش استفاده بلد نیستید، اگر یک درصد قطع بشه، تو پیام رسان های داخلی همراه با سرور آموزش هم مردم پخش میکنن و چیز پیچیده ای نیست
+فقط صبر کنید مشخص بشه میشه و چه روشی میاد برای اتصال و چه چیزی قطع میشه
+</div>
+
+## FVpnProxy — post 573
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عزیز من اینا نصب داشته باشید ، سرور الان که نیست قطعی بشه سرور پیدا میشه. الان فقط نصب داشته باشید
+</div>
+
+## FVpnProxy — post 572
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این دوتا اگه ندارید نصب کنید حتما
+آماده قطعی باشید
+</div>
+
+## FVpnProxy — post 571
+
+<div align="center"><a href="files/post_571_WhiteDNS-1.5.1-universal (1).apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 WhiteDNS-1.5.1-universal (1).apk</a></div>
+
+## FVpnProxy — post 570
+
+<div align="center"><a href="files/post_570_MasterDnsVPN-GG-1.1.0-universal.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MasterDnsVPN-GG-1.1.0-universal.apk</a></div>
+
+## FVpnProxy — post 569
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با شلیک موج دوم موشک از ایران دیگه قطعی جنگ شد...
+
+مواظب خودتون باشید❤️💋😞
+</div>
+
+## FVpnProxy — post 568
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب انگار جنگ شد
+تا اینترنت قطع نشده حتما برنامه های بر پایه DNS اگر حذف کردید نصب کنید
+</div>
 
 ## FVpnProxy — post 566
 
@@ -105,110 +166,5 @@
 11K
 
 🎉🥳
-</div>
-
-## FVpnProxy — post 549
-
-<div align="center"><img src="files/post_549_FVpnProxy_549.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکم دیگه از 10 هزار نفر رد میشه🎉🥳
-
-تو رقابتی سنگین آمریکا از پاکستان پیشی گرفت. فقط شما دیگه چرا؟ ترامپ فیلتر کرده🤭
-</div>
-
-## FVpnProxy — post 547
-
-<div align="center"><img src="files/post_547_FVpnProxy_547.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😍 همچنان متصل و تعداد اتصال رو به افزایش
-</div>
-
-## FVpnProxy — post 546
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروکسی اختصاصی https://t.me/proxy?server=62.60.155.8&port=2053&secret=bf326e082e8ce950a4dd708e08a112cb
-</div>
-
-## FVpnProxy — post 545
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروکسی اختصاصی
-
-
-https://t.me/proxy?server=62.60.155.8&port=2053&secret=bf326e082e8ce950a4dd708e08a112cb
-</div>
-
-## FVpnProxy — post 544
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز یکی اومده مارو scam کنه
-نمیدونی با یه swap میشه فهمید😅
-</div>
-
-## FVpnProxy — post 542
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این گروه فقط و فقط برای فروش هست نه چیزی دیگه
-قبل درخواست حتما اکانت پشتیبانی به عنوان مخاطب اضافه کنید
-
-@FVPN_owner
-
-کسی که مخاطب نباشه درخواست بده برای وارد شدن درجا بن میشه. بعد از ورود ربات مداوم چک میکنه هرکس از مخاطبین حذف کرده باشه بن میشه
-
-مجبورم سختگیری کنم، هیچ اجباری نیست کسی نمیخواد نیاد. هرکس نیاز داره یه جا بخره فقط بیاد.
-
-@FvpnProxyVip
-
-
-در ضمن هرکی هم دوست داره سر این مورد شماره شایعه بسازه!
-</div>
-
-## FVpnProxy — post 541
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برنامه آینده این کانال
-اینجا هر از گاهی یک سرویس رایگان قرار میدم برای کسایی که به هر دلیل فقط رایگان میخوان تا زمانی اگر مجددا جنگ بشه!
-
-برای اونایی هم که میخوان خرید کنن یک گروه میسازم با محدودیت تعداد،
-بیشتر یک تعداد خاص راه نمیدم.
-
-برای ورود باید حتما طرف شماره تلفن روی اکانت پشتیبانی باز کنه تا بتونیم ببینیم. فردا کسی دست ازپا خطا کرد مشخص باشه کیه.
-
-آدم ناشناس خودشم بکشه راه نمیدم
-شده 1 نفر اینکار کنه همون کافیه !
-
-اینجور دیگه کسی جرات نداره هیت بده و چرت بگه
-
-اعصابم از سر راه نیاوردم سر یه چندتا ناخاله که جرات ندارن خودشون نشون بدن
-
-هرکی هم میتونه و میخواد سرور اهدا کنه، لطف کنه یک پنل سنایی نصب کنه، روی پورت 80 هرچی تونست وصل کنه که هم ایرانسل هم همراه اول جواب بده
-از طریق دایرکت ارسال کنه ما میذاریم تو کانال (بدون تبلیغ از کانالی!)
-
-
-از اکثریت عذر میخوام ولی دیگه حوصله بچه بازی این جماعت vpn فروش که منافعش تو نبود ما هست ندارم.
-</div>
-
-## FVpnProxy — post 540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت اطلاع اونایی که زر میزنن و گه زیادی میخورن
-
-از اول هم گفتیم تا شرایط عادی نشه فروش نداریم!
-
-ناراضی هستی راه باز جاده دراز لفت بده
-</div>
-
-## FVpnProxy — post 539
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بازه
-خرید از طریق ربات
-پرداخت از طریق رمز ارز
-اشتراک یک ماهه 50 و 30 گیگ
-تعداد محدود فقط 100 نفر
-
-@fvpnproxybot
 </div>
 

@@ -1,8 +1,118 @@
 # آرشیو کانال FVpnProxy - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/17 12:03
+📅 آخرین بروزرسانی: 1405/03/17 23:57
 
 ---
+
+## FVpnProxy — post 484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت اطلاع اونایی که میان فحش میدن چون کلید بات بهشون نداده!
+اولا سرور رایگان هست و پول ندادی که طلبکاری
+دوما سرور تحمل این همه آدم نداره پس باید یکجوری تعداد در هر دفعه کاهش بدیم تا اگه کسی وصل میشه بتونه یه دیتا ریز بگیره. هرچند همین 50 درصد هم خیلی بیشتر از توان هست!!!
+
+از الان هرکس ناراضی هست بیاد سرور اهدا کنه با دامنه. ما اون برای همه میذاریم کف کانال. همه بدون هیچ محدودیتی وصل بشن.
+فاکتور میدیم پرداخت بزنید.
+❤️😘
+</div>
+
+## FVpnProxy — post 483
+
+<div align="center"><img src="files/post_483_FVpnProxy_483.jpg" alt="Photo"></div>
+
+## FVpnProxy — post 482
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدایی یعنی چی اسپم میزنن بعضیا که ربات بیاد پایین؟
+فعلا قطع میکنم تا اینایی که اسپم زدن بن کنم
+
+آپدیت: فعلا دسترسی ربات قطع شد. به محض بن شدن تمام کسایی که اسپم زدن ربات باز میشه مجددا
+</div>
+
+## FVpnProxy — post 481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبح همگی بخیر
+از امروز بطور آزمایشی میخواییم کانفیگ از طریق ربات بدیم.
+اینجور که 50 درصد از ممبرهای کانال بصورت کاملا تصادفی ربات بهشون کانفیگ میده
+لیست با هربار ریست سرور و تغییر کلید خالی میشه تا کسایی که نتونستن مجددا درخواست کلید بدن.
+
+
+@fvpnproxybot
+
+
+لطفا روی ربات اسپم نزنید.
+</div>
+
+## FVpnProxy — post 480
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طرف به خودش زحمت نمیده نه کانال بخونه، نه دو خط که تو برنامه نوشته شده!
+
+یعنی چی هی میایین تو تلگرام آدرس و پورت چی بزنم؟!
+اگه برات سخته دو خط بخونی آقا استفاده نکن
+به فارسی نوشتیم زیر دکمه start چیکار کنی. از این واضح تر
+</div>
+
+## FVpnProxy — post 479
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SecureID: 09giHff67ZGRUia1vMAehoKCe6zzqewTVcSIxfDMw=
+
+Encryption key:
+efb3f9c59c479e4aaef4f95587951a8d
+</div>
+
+## FVpnProxy — post 478
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کلید جدید:
+SecureID: 98j3YelC4343MIMwowFH5AF+pvRmpkDFfHBPpn7A==
+
+Encryption key:
+38f9dcd63df1a5ffdec6ea5f0d56f1b2
+</div>
+
+## FVpnProxy — post 477
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دی ان اس شیروخورشید:
+
+78.157.41.60
+185.141.106.238
+185.208.174.167
+185.53.142.174
+158.58.184.147
+185.137.25.146
+94.232.173.28
+185.208.175.228
+164.138.17.122
+80.191.243.226
+37.191.76.110
+85.133.167.108
+37.191.95.70
+185.255.91.60
+78.39.234.140
+109.72.197.1
+5.160.128.142
+5.160.13.85
+2.23.168.254
+92.122.166.232
+2.17.251.98
+23.39.148.245
+23.58.223.225
+95.101.111.138
+2.23.169.42
+</div>
+
+## FVpnProxy — post 476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کلید سرور جدید:
+SecureID: 53FZDhMnXMVH1XEDztGu36RDBESJyShn2GCw==
+
+Encryption key: 5be7516f7e999c3e81cb59b73a88dab6
+</div>
 
 ## FVpnProxy — post 475
 

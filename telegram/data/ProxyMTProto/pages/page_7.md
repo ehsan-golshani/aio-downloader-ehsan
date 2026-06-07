@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/03/17 22:32
+📅 آخرین بروزرسانی: 1405/03/17 23:55
 
 ---
+
+## ProxyMTProto — post 47808
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: zoom.flowaccess.site
+Port: 8443
+Secret: ee47a48cbe73dd91aa66fb6f8961c5e25a7a6f6f6d2e666c6f776163636573732e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: prime.nolags.pw
+Port: 443
+Secret: ddb01da288baa59189c1db3c7bb1490895
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47806
 
@@ -163,24 +181,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: wb.flowaccess.site
 Port: 8443
 Secret: ee2fcc64ad41fc313d96fb8cb686e5620677622e666c6f776163636573732e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47788
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: nolags.quickrouteapp.xyz
-Port: 8443
-Secret: ee6220eec9be6b790ee969f86c6c7baaa46e6f6c6167732e717569636b726f7574656170702e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47787
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: big3.mtproxygram.lol
-Port: 853
-Secret: ee9909e7aa6bc62461a0b60f33af14a68462726f777365722e79616e6465782e636f6d
 @ProxyMTProto
 </div>
 
