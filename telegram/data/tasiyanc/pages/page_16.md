@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/03/17 12:04
+📅 آخرین بروزرسانی: 1405/03/17 15:59
 
 ---
+
+## tasiyanc — post 5996
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+2سرور  سرعتی قدرتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروکسی ۱
+پروکسی ۲
+پروکسی ۳
+پروکسی ۴
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور جدید با متد جدید ساعت ۸
+</div>
 
 ## tasiyanc — post 5988
 
@@ -146,25 +179,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرور ها چک میشن هر نیم ساعت
 ضعیف شن جدیدشو میزاریم ، با قدرت وصلیم ❤️
-</div>
-
-## tasiyanc — post 5966
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Gold🥇Vip servers.npvt
-</div>
-
-## tasiyanc — post 5965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی - 🇫🇷
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5963
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ npv سرعت بالا (تست)
-@Tasiyanc
 </div>
 

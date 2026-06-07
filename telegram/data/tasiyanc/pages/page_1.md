@@ -1,12 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/17 12:04
+📅 آخرین بروزرسانی: 1405/03/17 15:59
 
 ---
 
-## tasiyanc — post 6372
+## tasiyanc — post 6375
 
-<div align="center"><a href="files/post_6372_[14]⚡@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [14]⚡@Tasiyanc.conf</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد T.me/TasiyanProxy
+</div>
+
+## tasiyanc — post 6374
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد
+T.me/TasiyanProxy
+</div>
+
+## tasiyanc — post 6373
+
+<div align="center"><a href="files/post_6373_[Fast] ⚡ @Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [Fast] ⚡ @Tasiyanc.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+4سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6372
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد   👑
@@ -42,8 +75,6 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 
 ## tasiyanc — post 6368
 
-<div align="center"><a href="files/post_6368_@Tasiyanc🚀.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc🚀.ovpn</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ OpenVPN♻️
 
@@ -58,8 +89,6 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 </div>
 
 ## tasiyanc — post 6367
-
-<div align="center"><a href="files/post_6367_[13] 🚀 @Tasiyanc .conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [13] 🚀 @Tasiyanc .conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختصاصی وایرگارد   👑
@@ -82,8 +111,6 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 </div>
 
 ## tasiyanc — post 6365
-
-<div align="center"><a href="files/post_6365_[12] @Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [12] @Tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختصاصی وایرگارد   👑
@@ -199,31 +226,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ع سرورای تاسیان اسکی می‌ره پسوردم می‌زاره و میگه بیاید تشکر کنین ازم
 ساعت ۲۱.۱۸ سرور میزنم پنج دقیقه بعدش دیکد می‌کنه ، آدم میمونه چی بگه
-</div>
-
-## tasiyanc — post 6352
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6351
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6350
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST @Tasiyanc servers.txt
 </div>
 
