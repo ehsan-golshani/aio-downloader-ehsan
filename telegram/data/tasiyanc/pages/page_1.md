@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/17 01:13
+📅 آخرین بروزرسانی: 1405/03/17 03:47
 
 ---
+
+## tasiyanc — post 6364
+
+<div align="center"><img src="files/post_6364_tasiyanc_6364.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡All Operators ⚡.npvt
+</div>
 
 ## tasiyanc — post 6362
 
@@ -11,8 +19,6 @@
 </div>
 
 ## tasiyanc — post 6361
-
-<div align="center"><a href="files/post_6361_⚡All Operators ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡All Operators ⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
@@ -36,8 +42,6 @@ Speed ⚡ One.npvt
 </div>
 
 ## tasiyanc — post 6359
-
-<div align="center"><a href="files/post_6359_Speed ⚡ One.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Speed ⚡ One.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
@@ -192,11 +196,5 @@ FAST @Tasiyanc servers.txt
 بریزید ویتوباکس یا ویتوری پینگ بگیرید وصل شید 💚
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب تو راهه
 </div>
 
