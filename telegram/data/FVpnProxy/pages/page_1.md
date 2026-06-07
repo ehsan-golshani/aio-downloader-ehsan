@@ -1,8 +1,14 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/17 23:57
+📅 آخرین بروزرسانی: 1405/03/18 01:21
 
 ---
+
+## FVpnProxy — post 577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازگشت همه بسوی ماست
+</div>
 
 ## FVpnProxy — post 576
 
@@ -44,11 +50,7 @@
 
 ## FVpnProxy — post 571
 
-<div align="center"><a href="files/post_571_WhiteDNS-1.5.1-universal (1).apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 WhiteDNS-1.5.1-universal (1).apk</a></div>
-
 ## FVpnProxy — post 570
-
-<div align="center"><a href="files/post_570_MasterDnsVPN-GG-1.1.0-universal.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MasterDnsVPN-GG-1.1.0-universal.apk</a></div>
 
 ## FVpnProxy — post 569
 
@@ -156,15 +158,5 @@
 خب همچنان وصل و از 15K رد شد
 میزان مصرف هم 2.6TB
 🤭
-</div>
-
-## FVpnProxy — post 550
-
-<div align="center"><img src="files/post_550_FVpnProxy_550.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-11K
-
-🎉🥳
 </div>
 
