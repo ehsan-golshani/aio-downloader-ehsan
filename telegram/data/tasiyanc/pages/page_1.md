@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/18 01:22
+📅 آخرین بروزرسانی: 1405/03/18 02:49
 
 ---
+
+## tasiyanc — post 6420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمام کانفیگای ک گذاشتیم با قدرت وصلن 🚀
+</div>
+
+## tasiyanc — post 6419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+
+بیاید گپمون
+</div>
 
 ## tasiyanc — post 6415
 
@@ -11,8 +25,6 @@ FAST⚡TASIYAN🚀.npvt
 </div>
 
 ## tasiyanc — post 6414
-
-<div align="center"><a href="files/post_6414_FAST⚡TASIYAN🚀.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 FAST⚡TASIYAN🚀.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان متد جدید  😏
@@ -38,8 +50,6 @@ FAST⚡TASIYAN🚀.npvt
 </div>
 
 ## tasiyanc — post 6412
-
-<div align="center"><a href="files/post_6412_[17] 🇨🇦💣 @Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [17] 🇨🇦💣 @Tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد   👑
@@ -70,8 +80,6 @@ FAST⚡TASIYAN🚀.npvt
 </div>
 
 ## tasiyanc — post 6409
-
-<div align="center"><a href="files/post_6409_⚡@Tasiyanc🌶️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡@Tasiyanc🌶️.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
@@ -201,20 +209,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨🚨فوری | هم اکنون حملات موشکی سپاه به سمت اسرائیل‼️
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آغاز عملیات وعده صادق ۵
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6394
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨فووووووری
-حملات موشکی سپاه به اسرائیل
-@Tasiyanc
 </div>
 

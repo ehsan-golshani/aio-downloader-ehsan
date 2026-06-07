@@ -1,8 +1,28 @@
 # آرشیو کانال FVpnProxy - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/18 01:21
+📅 آخرین بروزرسانی: 1405/03/18 02:48
 
 ---
+
+## FVpnProxy — post 487
+
+<div align="center"><img src="files/post_487_FVpnProxy_487.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی کلید بهتون داده میشه طبق عکس برنامه حاوی دو کلید SecureID و Encryption key هست.
+خیلی راحت این فیلد با چیزی که بهتون داده شده پرکنید.
+توضیحات اتصال با تلگرام هم که تو عکس هست
+یک پروکسی بسازید و تمام
+</div>
+
+## FVpnProxy — post 486
+
+<div align="center"><img src="files/post_486_FVpnProxy_486.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بابا این یعنی دسترسی بستیم کسی نتونه spam بزنه. خطا بن نیست
+وجدانن اذیت نکنید 🤣😅🤪
+</div>
 
 ## FVpnProxy — post 485
 

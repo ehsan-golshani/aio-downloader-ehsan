@@ -1,8 +1,22 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/18 01:21
+📅 آخرین بروزرسانی: 1405/03/18 02:48
 
 ---
+
+## FVpnProxy — post 579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه چیز میگم بدونید ، ایران چطور جایی هست!
+امشب به محض اینکه ایران اولین موشک شلیک کرد، دایرکت کانال پر شد از فحاشی و توهین بی دلیل!
+اصلا چند روز بود حتی یک نفر توهین نکرده بود!😊
+</div>
+
+## FVpnProxy — post 578
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبح بخیر سرور ها مجددا آنلاین شدن. امیدوارم دیگه crash نکنن سرور 1 سرور 2 سرور 3 سرور 4
+</div>
 
 ## FVpnProxy — post 577
 
@@ -137,26 +151,5 @@
 سرور اختصاصی 2
 
 😘🤭
-</div>
-
-## FVpnProxy — post 552
-
-<div align="center"><img src="files/post_552_FVpnProxy_552.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب دیگه 21k رد کردیم در مجموع
-امشب چندتا سرو ر جدید قرار میدم، هرچند این سرور همچنان بدون مشکل داره کار میکنه.
-❤️😘🤭
-</div>
-
-## FVpnProxy — post 551
-
-<div align="center"><img src="files/post_551_FVpnProxy_551.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبح بخیر
-خب همچنان وصل و از 15K رد شد
-میزان مصرف هم 2.6TB
-🤭
 </div>
 
