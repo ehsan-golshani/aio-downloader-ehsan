@@ -1,8 +1,36 @@
 # آرشیو کانال ProxyMTProto - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/03/17 18:04
+📅 آخرین بروزرسانی: 1405/03/17 19:34
 
 ---
+
+## ProxyMTProto — post 47701
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r26.proxytg.space
+Port: 8443
+Secret: eec479c1a98aa5c149647459a1c098634c7232362e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47700
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r26.proxytg.space
+Port: 8443
+Secret: eec479c1a98aa5c149647459a1c098634c7232362e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ به‌دلیل محدودیت‌های جدید، پروکسی‌ها سریع مسدود می‌شن.
+
+برای اینکه ارتباطت با تلگرام قطع نشه، همین الان یه پروکسی فعال بگیر 👀
+
+🔥 پروکسی‌های جدید به‌صورت مداوم و رایگان منتشر می‌شن.
+</div>
 
 ## ProxyMTProto — post 47698
 
@@ -157,33 +185,6 @@ Secret: ee79e7010200010007f0030386e24c3add626973636f7474692e79656b74616e65742e63
 Server: russia.nolags.pw
 Port: 443
 Secret: dd04dbf1f1459ffbc5e646db206794163a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47681
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r22.proxytg.space
-Port: 8443
-Secret: eeace5ab7ab128f81a0b16ada143ec10807232322e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47680
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r24.proxytg.space
-Port: 8443
-Secret: eeade4e42a3bee4969fcb706467380da727232342e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 
