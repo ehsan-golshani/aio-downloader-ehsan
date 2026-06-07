@@ -1,8 +1,16 @@
 # آرشیو کانال FVpnProxy - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/16 21:11
+📅 آخرین بروزرسانی: 1405/03/17 12:03
 
 ---
+
+## FVpnProxy — post 538
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نمیگین pv میایین start میزنید تو دنده هستم میخورم تو دیوار!
+
+وجدانن چرا pv بعضیا start مینویسن 😅🤕
+</div>
 
 ## FVpnProxy — post 537
 
@@ -184,6 +192,4 @@ trojan://fvpnproxy@95.163.152.104:26913?path=%2F&security=none&type=ws#Telegram:
 
 https://www.instagram.com/fvpnproxy
 </div>
-
-## FVpnProxy — post 517
 

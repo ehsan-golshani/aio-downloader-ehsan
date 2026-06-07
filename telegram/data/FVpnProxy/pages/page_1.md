@@ -1,8 +1,23 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/16 21:11
+📅 آخرین بروزرسانی: 1405/03/17 12:03
 
 ---
+
+## FVpnProxy — post 566
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبح بخیر
+سرور ها مجددا آنلاین شدن. امیدوارم دیگه crash نکنن
+
+سرور 1
+
+سرور 2
+
+سرور 3
+
+سرور 4
+</div>
 
 ## FVpnProxy — post 565
 
@@ -195,13 +210,5 @@ https://t.me/proxy?server=62.60.155.8&port=2053&secret=bf326e082e8ce950a4dd708e0
 تعداد محدود فقط 100 نفر
 
 @fvpnproxybot
-</div>
-
-## FVpnProxy — post 538
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نمیگین pv میایین start میزنید تو دنده هستم میخورم تو دیوار!
-
-وجدانن چرا pv بعضیا start مینویسن 😅🤕
 </div>
 
