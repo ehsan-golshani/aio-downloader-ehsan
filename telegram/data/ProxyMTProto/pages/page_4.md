@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/17 01:12
+📅 آخرین بروزرسانی: 1405/03/17 08:32
 
 ---
+
+## ProxyMTProto — post 47838
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 9965
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47837
 
@@ -174,15 +183,6 @@ Secret: eeb40eda3c7b6561f0ef22eb54b49eacf477622e7275
 Server: Unknown
 Port: 61016
 Secret: 7nnnAQIAAQAH8AMDhuJMOt0%3D
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47818
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: turbo2proxy.vpnproxy.cc
-Port: 8443
-Secret: ee56af68a36d94c4d47d100196d6a59f1d747572626f3270726f78792e76706e70726f78792e6363
 @ProxyMTProto
 </div>
 
