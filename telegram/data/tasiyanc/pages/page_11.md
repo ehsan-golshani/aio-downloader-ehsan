@@ -1,8 +1,88 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/03/17 18:06
+📅 آخرین بروزرسانی: 1405/03/17 22:34
 
 ---
+
+## tasiyanc — post 6142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Jzzb 🔥Vip.npvt
+</div>
+
+## tasiyanc — post 6141
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+
+تست شده 🎚
+
+دانلود برنامه Wg tunnel 🕹
+
+آموزش ویدیویی ⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6140
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+vip 🚀🔥 @Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6139
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد 👑
+
+تست شده 🎚
+
+دانلود برنامه Wg tunnel 🕹
+
+آموزش ویدیویی ⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6138
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😐😐😐 یه دونه هم ری اکشن نزدید
+</div>
+
+## tasiyanc — post 6137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی کانفیگ وایرگارد متد جدید 👑
+
+تست شده 🎚
+دانلود برنامه Wg tunnel 🕹
+آموزش ویدیویی ⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+3سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast2⚡@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6130
 
@@ -122,70 +202,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc چنل تاسیان.conf
-</div>
-
-## tasiyanc — post 6117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نپستر عضو جداناپذیر تاسیانه دوستان نگران نباشید میزاریم ، راه های دیگه رو هم فقط تست میکنیم ❤️
-</div>
-
-## tasiyanc — post 6115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی کانفیگ وایرگارد ✅
-
-تست شده 🎚
-
-دانلود برنامه Wg tunnel 🕹
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظرتون رو داخل کامنت بگید
-</div>
-
-## tasiyanc — post 6112
-
-<div align="center"><img src="files/post_6112_tasiyanc_6112.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc(01).conf
-</div>
-
-## tasiyanc — post 6111
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانفیگا برای تست هست اگر اوکی باشه روش کار میکنیم
-</div>
-
-## tasiyanc — post 6109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی کانفیگ وایرگارد ✅
-
-تست شده 🎚
-
-دانلود برنامه Wg tunnel 🕹
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6108
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ وایرگارد میزارم تست کنین
-
-برنامشو دان کنین
-
-دانلود Wg tunnel
-https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunnel
-</div>
-
-## tasiyanc — post 6107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪🚀 رایتل.npvt
 </div>
 
