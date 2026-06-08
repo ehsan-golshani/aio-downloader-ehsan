@@ -1,8 +1,82 @@
 # آرشیو کانال VahidOOnLine - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/03/19 01:50
+📅 آخرین بروزرسانی: 1405/03/19 03:22
 
 ---
+
+## VahidOOnLine — post 244172
+
+<div align="center"><video src="files/post_244172_VahidOOnLine_244172.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244172_VahidOOnLine_244172.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی که شامگاه یکشنبه ۱۷ خرداد به دست ایران‌اینترنشنال رسیده پرواز موشک‌های جمهوری اسلامی را از کرمانشاه به سمت اسرائیل نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244171
+
+<div align="center"><img src="files/post_244171_VahidOOnLine_244171.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ، رئیس جمهوری ایالات متحده، یکشنبه‌شب، در واکنش به حملات موشکی جمهوری اسلامی ایران به اسرائیل، در مصاحبه با «فاکس نیوز» گفت:‌ «پیشنهاد من به ایران این است؛ شما موشک‌هایتان را شلیک کردید، دیگر کافی است. به میز مذاکره برگردید و توافق کنید».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244170
+
+<div align="center"><img src="files/post_244170_VahidOOnLine_244170.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ به شبکه فاکس نیوز گفت: «پیشنهادی که به ایران دارم این است: موشک‌های خود را شلیک کرده‌اید، همین کافی است.»
+
+او افزود: «به میز مذاکره بازگردید و توافق کنید.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244169
+
+<div align="center"><img src="files/post_244169_VahidOOnLine_244169.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ارتش اسرائیل، یکشنبه‌شب، اعلام کرد که نیروی هوایی این کشور تاکنون موفق شده است تمامی موشک‌های شلیک‌شده از سوی ایران را به طور کامل رهگیری و منهدم کند. با این حال، نیروهای دفاعی اسرائیل تاکید کردند که رادارهای پدافندی به تازگی موج جدیدی از شلیک‌ها و پرتابه‌های موشکی را شناسایی کرده‌اند که از خاک ایران به سمت اسرائیل هدف‌گیری شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244168
+
+<div align="center"><video src="files/post_244168_VahidOOnLine_244168.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244168_VahidOOnLine_244168.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری مهر، یکشنبه‌شب، ۱۷ خردادماه، تصاویری از موشک‌های شلیک شده به سمت اسرائیل را در آسمان کرمانشاه منتشر کرد. همزمان، قرارگاه خاتم‌الانبیا، با انتشار بیانیه‌ای، شلیک موشک‌های ایران به سمت مواضع اسرائیل را تحقق هشدارهای قبلی تهران خواند و اعلام کرد: «در صورت گسترش حملات اسرائیل به بیروت و یا پاسخ به اقدام ایران با ضربات کوبنده تر و پشیمان کننده روبرو و حملات ویرانگری علیه اسرائیل و حامیان آن آغاز خواهد شد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244167
+
+<div align="center"><video src="files/post_244167_VahidOOnLine_244167.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244167_VahidOOnLine_244167.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال از خرم‌‌آباد در شامگاه یکشنبه ۱۷ خرداد، نور موشک شلیک‌شده از سوی جمهوری اسلامی را به سمت اسرائیل در آسمان این شهر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244166
 
@@ -186,89 +260,6 @@
 سخنگوی ارتش اسرائیل گفت: «این تونل‌ها در عمق زمین و به‌صورت چندطبقه ساخته شده‌اند.»
 به گفته او، این مجموعه شامل مراکز فرماندهی، محل استقرار نیروها، انبارهای تسلیحات و همچنین زیرساخت‌های لجستیکی و درمانی بوده است.
 
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244145
-
-<div align="center"><img src="files/post_244145_VahidOOnLine_244145.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️غلامحسین محسنی اژه‌ای، رئیس قوه قضائیه جمهوری اسلامی شامگاه یکشنبه ۱۶ خردادماه و ساعتی پس از حمله اسرائیل به ضاحیه بیروت، با انتشار پیامی اسرائیل را به تلاش به «نسل‌کشی شیعیان لبنان» و «تغییر بافت جمعیتی» بیروت متهم کرد و نوشت: «مقاومت لبنان جان ایران است».
-
-این پیام دقایقی پس از پیام محمدباقر قالیباف، رئیس مجلس و مذاکره‌کننده ارشد جمهوری اسلامی ایران در گفتگوها با آمریکا منتشر شد که اسرائیل و آمریکا را به نقض آتش‌بس متهم و به «پاسخ نظامی» تهدید کرد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244144
-
-<div align="center"><video src="files/post_244144_VahidOOnLine_244144.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244144_VahidOOnLine_244144.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای منتشرشده در شبکه‌های اجتماعی، دود ناشی از حمله اسرائیل به منطقه ضاحیه و انهدام مواضع حزب‌الله لبنان را در این منطقه در روز یک‌شنبه ۱۷ خرداد نشان می‌دهد.
-ارتش اسرائیل اعلام کرد این حملات در پاسخ به شلیک‌های حزب‌الله لبنان به سوی خاک اسرائیل انجام شده است.
-منطقه «ضاحیه» در حومه جنوبی بیروت، از پایگاه‌های اصلی حزب‌الله به شمار می‌رود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244143
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️امیر قلعه‌نویی، سرمربی تیم ملی فوتبال ایران روز یکشنبه ۱۶ خرداد و در بدو ورد به تیخوانا مکزیک، از عملکرد دولت آمریکا در روند اهدای روادید به‌شدت انتقاد کرد.
-
-قلعه‌نویی در مصاحبه با خبرگزاری فرانسه با تشکر از تلاش‌های جانی اینفانتینو، رئیس فیفا گفت تیم ما باید هفته پیش به اینجا می‌رسید تا می‌توانست «ریکاوری» کند. اما هشت روز دیگر اولین بازی ما برگزار می‌شود. با ما غیراخلاقی و غیرانسانی برخورد کردند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244142
-
-<div align="center"><img src="files/post_244142_VahidOOnLine_244142.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-غلامحسین محسنی اژه‌ای، رییس قوه قضاییه جمهوری اسلامی، با اشاره به حملات یک‌شنبه اسرائیل به ضاحیه در جنوب بیروت، در شبکه ایکس نوشت: «غباری از غم بر چهره‌ بیروت نشسته است. با این غبار غم، در تهران دل‌ها به لرزه درآمده است. ما کنار مردم و مقاومت لبنان می‌ایستیم.»
-
-او افزود حزب‌الله «جان ایران است».
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244141
-
-<div align="center"><video src="files/post_244141_VahidOOnLine_244141.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244141_VahidOOnLine_244141.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️پیت هگست، وزیر جنگ ایالات متحده روز یکشنبه ۱۶ خرداد به خبرنگاران گفت فکر می‌کند واشنگتن و تهران به زودی به یک توافق «عالی» برسند ولی اگر این اتفاق نیفتد، ارتش آمریکا برای آنچه باید انجام شود، کاملا آماده است.
-
-هگست در یکی از فرودگاه‌های پاریس درباره وضعیت آتش‌بس به خبرنگاران گفت که دونالد ترامپ بر تداوم آتش‌بس تاکید دارد و نیروهای مسلح آمریکا در منطقه به حملات ایران به کشتی‌های در حال تردد در تنگه هرمز، پاسخ می‌دهند.
-
-در هفته‌های گذشته ارتش جمهوری اسلامی ایران و سپاه پاسداران بارها با نیروهای دریایی آمریکا در خلیج فارس درگیر شده‌اند. آمریکا با محاصره دریایی ایران، کشتی‌ها و نفتکش‌های به مقصد یا از مبداء ایران را مجبور به تغییر مسیر می‌کنند و اهداف راداری یا پایگاه‌های پرتاب موشک‌ در جنوب ایران را هدف قرار می‌دهند.
-نیروهای مسلح جمهوری اسلامی هم می‌گویند در پاسخ به این حملات، مبدا شلیک در کشورهای حاشیه خلیج فارس ازجمله کویت و بحرین را هدف قرار می‌دهند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244140
-
-<div align="center"><img src="files/post_244140_VahidOOnLine_244140.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدباقر قالیباف، رییس مجلس، در ایکس نوشت: «محاصره دریایی و چراغ سبز روز یک‌شنبه آمریکا به اسرائیل، پایگاه‌ها و دارایی‌های آمریکا و اسرائیل در منطقه را به اهداف مشروع تبدیل می‌کند و دست نیروهای مسلح ما مثل همیشه باز است.»
-
-قالیباف درباره آمریکا و اسرائیل نوشت: «نه به آتش‌بس پایبندند نه به گفت‌وگو باور دارند، و با محاصره دریایی و نقض توافقات درباره لبنان نشان دادند که فقط زبان قدرت می‌فهمند.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

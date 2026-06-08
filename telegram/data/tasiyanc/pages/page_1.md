@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/19 01:52
+📅 آخرین بروزرسانی: 1405/03/19 03:24
 
 ---
+
+## tasiyanc — post 6465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقت الکی نزارید قربونتون برم من
+</div>
+
+## tasiyanc — post 6464
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رباتی ک تون الکی میده اسکمه پرداختی نداره
+</div>
 
 ## tasiyanc — post 6460
 
@@ -32,8 +44,6 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 ## tasiyanc — post 6457
 
-<div align="center"><a href="files/post_6457_Jp@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Jp@Tasiyanc.ovpn</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  Ovpn 🇯🇵♻️
 
@@ -48,8 +58,6 @@ https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 
 ## tasiyanc — post 6456
-
-<div align="center"><a href="files/post_6456_⚡🚀 GOLD.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡🚀 GOLD.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
@@ -208,18 +216,5 @@ new@Tasiyanc.ovpn
 
 دریافت کانفینگ رایگان
 دریافت کانفینگ رایگان
-</div>
-
-## tasiyanc — post 6434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡🪐 متد جدید.npvt
-</div>
-
-## tasiyanc — post 6433
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار و پروکسی ⚡️🚀
-https://t.me/TasiyanProxy
 </div>
 
