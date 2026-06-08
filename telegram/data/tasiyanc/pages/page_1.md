@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/18 10:01
+📅 آخرین بروزرسانی: 1405/03/18 15:03
 
 ---
+
+## tasiyanc — post 6434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡🪐 متد جدید.npvt
+</div>
+
+## tasiyanc — post 6433
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار و پروکسی ⚡️🚀
+https://t.me/TasiyanProxy
+</div>
+
+## tasiyanc — post 6432
+
+<div align="center"><a href="files/post_6432_[18] 🇮🇹🔥@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [18] 🇮🇹🔥@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 📱
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡🪐 متد جدید.npvt
+</div>
+
+## tasiyanc — post 6430
+
+<div align="center"><a href="files/post_6430_Fast ⚡🪐 متد جدید.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast ⚡🪐 متد جدید.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۳سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6429
 
@@ -132,51 +191,5 @@ FAST⚡TASIYAN🚀.npvt
 آموزش اتصال ⛓
 
 🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🩷لحظات نفس‌گیر
-هم اکنون حریم های هوایی اسرائیل - سوریه - عراق - اردن بسته شده و غرب ایران آسمان کلییر شده
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رو همراه اول تست کردیم ولی اختلال زیاده❤️‍🔥
-</div>
-
-## tasiyanc — post 6409
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۲سرور پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبلیغاتی ک میاد از طرف تلگرامه و قابل تایید ما نیست مراقب باشید تو این شرایط جیبتون نزنن❤️
-</div>
-
-## tasiyanc — post 6407
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شخص خودم فعالیتی تو روبیکا نخواهم داشت با توجه به اینکه ۳ تا اکانتم مسدوده ولی ادمینای تلگرام تو چنل و گروه روبیکا میگم کانفیگارو بفرستن در صورت قطعی
-https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 </div>
 
