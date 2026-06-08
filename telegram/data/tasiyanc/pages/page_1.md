@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/18 21:44
+📅 آخرین بروزرسانی: 1405/03/19 00:12
 
 ---
+
+## tasiyanc — post 6455
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+new@Tasiyanc.ovpn
+</div>
+
+## tasiyanc — post 6453
+
+<div align="center"><a href="files/post_6453_new@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 new@Tasiyanc.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  OpenVPN♻️
+
+تست شده  سامانتل ، رایتل ، وای‌فای 🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6452
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+300 GB ⚡ VİP.npvt
+</div>
 
 ## tasiyanc — post 6451
 
@@ -11,8 +40,6 @@
 </div>
 
 ## tasiyanc — post 6450
-
-<div align="center"><a href="files/post_6450_@Tasiyanc 🚀⚡.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🚀⚡.txt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی تاسیان 🆕
@@ -31,8 +58,6 @@
 </div>
 
 ## tasiyanc — post 6448
-
-<div align="center"><a href="files/post_6448_300 GB ⚡ VİP.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 300 GB ⚡ VİP.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
@@ -58,8 +83,6 @@
 </div>
 
 ## tasiyanc — post 6446
-
-<div align="center"><a href="files/post_6446_[19] 🔥@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [19] 🔥@Tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد   👑
@@ -186,26 +209,5 @@ Fast ⚡🪐 متد جدید.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
-</div>
-
-## tasiyanc — post 6427
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST⚡TASIYAN🚀.npvt
-</div>
-
-## tasiyanc — post 6426
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون سپاه :
-آغاز عملیات نصر 🚀
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه مقدار نقض نمک آتش بسه
-@Tasiyanc ✅
 </div>
 
