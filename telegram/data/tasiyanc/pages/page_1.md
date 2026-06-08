@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/18 15:03
+📅 آخرین بروزرسانی: 1405/03/18 18:37
 
 ---
+
+## tasiyanc — post 6444
+
+<div align="center"><a href="files/post_6444_⚡ Fast 🚀 💥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡ Fast 🚀 💥.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۴سرور   سرعتی پرمیوم متد جدید🚀
+
+حجم نامحدود - تمام اپراتور ها 
+⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6443
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داش این‌کانفنیگی که گذاشتی بات موشکه؟؟؟؟😐😂پشمماامممممم سرعتتوووووو
+</div>
+
+## tasiyanc — post 6442
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با توجه به احتمال اختلال و قطع شدن اینترنت به دلیل شرایط جنگی، برای اینکه ارتباطتون قطع نشه دو تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه براتون آماده کردیم. ​همین الان تا اینترنت وصله وارد ربات زیر بشید و لینک‌هاتون رو تحویل بگیرید: دریافت کانفینگ…
+</div>
+
+## tasiyanc — post 6435
+
+<div align="center"><img src="files/post_6435_tasiyanc_6435.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با توجه به احتمال اختلال و قطع شدن اینترنت به دلیل شرایط جنگی، برای اینکه ارتباطتون قطع نشه دو تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه براتون آماده کردیم.
+​همین الان تا اینترنت وصله وارد ربات زیر بشید و لینک‌هاتون رو تحویل بگیرید:
+
+
+دریافت کانفینگ رایگان
+دریافت کانفینگ رایگان
+</div>
 
 ## tasiyanc — post 6434
 
@@ -18,8 +66,6 @@ https://t.me/TasiyanProxy
 </div>
 
 ## tasiyanc — post 6432
-
-<div align="center"><a href="files/post_6432_[18] 🇮🇹🔥@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [18] 🇮🇹🔥@Tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد   👑
@@ -42,8 +88,6 @@ Fast ⚡🪐 متد جدید.npvt
 </div>
 
 ## tasiyanc — post 6430
-
-<div align="center"><a href="files/post_6430_Fast ⚡🪐 متد جدید.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast ⚡🪐 متد جدید.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
@@ -144,52 +188,5 @@ FAST⚡TASIYAN🚀.npvt
 https://t.me/+RTGtcYWb8HdkNjdk
 
 بیاید گپمون
-</div>
-
-## tasiyanc — post 6415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST⚡TASIYAN🚀.npvt
-</div>
-
-## tasiyanc — post 6414
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان متد جدید  😏
-
-۴سرور  پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاجی ریکشن نمیزنید بریم بخوابیم
-</div>
-
-## tasiyanc — post 6412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
 </div>
 
