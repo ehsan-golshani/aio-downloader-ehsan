@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/19 00:12
+📅 آخرین بروزرسانی: 1405/03/19 01:52
 
 ---
+
+## tasiyanc — post 6460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این ربات تون میده و برداشت شده ازش تایید شده ، میتونید با چند ثانیه وقت گذاشتن به درآمد برسید , برداشت بزنم می‌زارم شاتو خودمم
+https://t.me/gramevents_bot
+
+ارزششو داره برید تست کنین
+
+ادد لیست جهت جوین تو چنلا
+https://t.me/addlist/IiFVViQyys81OWM0
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کمی صحبت؟ ( گپمون)
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6458
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنارووووووووو
+</div>
+
+## tasiyanc — post 6457
+
+<div align="center"><a href="files/post_6457_Jp@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Jp@Tasiyanc.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 🇯🇵♻️
+
+تست شده سامانتل - رایتل - وایفای 
+🚀
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6456
+
+<div align="center"><a href="files/post_6456_⚡🚀 GOLD.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡🚀 GOLD.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3 سرور پرمیوم متد جدید
+🚀
+
+حجم نامحدود - تمام اپراتور ها 
+⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  
+✔
+
+آموزش اتصال 
+🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6455
 
@@ -11,8 +79,6 @@ new@Tasiyanc.ovpn
 </div>
 
 ## tasiyanc — post 6453
-
-<div align="center"><a href="files/post_6453_new@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 new@Tasiyanc.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  OpenVPN♻️
@@ -155,59 +221,5 @@ Fast ⚡🪐 متد جدید.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اخبار و پروکسی ⚡️🚀
 https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6431
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡🪐 متد جدید.npvt
-</div>
-
-## tasiyanc — post 6430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۳سرور   سرعتی پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6429
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
-</div>
-
-## tasiyanc — post 6428
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
 </div>
 

@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/03/19 00:12
+📅 آخرین بروزرسانی: 1405/03/19 01:52
 
 ---
+
+## tasiyanc — post 6026
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوست من سه روز پیش اکانتش پرید
+</div>
+
+## tasiyanc — post 6025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقیقا رفیقم اینجوری شد
+</div>
+
+## tasiyanc — post 6024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نصب نکنید دوستان
+جدی میپرونه
+</div>
+
+## tasiyanc — post 6023
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من فقط جوین شدم که جواب شمارو بدم
+آره مال من پرید
+احراز هویت کردم برگشت
+</div>
+
+## tasiyanc — post 6022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپل آیدی لاک میشه
+</div>
 
 ## tasiyanc — post 6021
 
@@ -121,62 +154,5 @@ VİP 🔥.npvt
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6001
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴۰ هزار نفر ۲ تا ریکشن🤣🤣
-</div>
-
-## tasiyanc — post 6000
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن میبینم خندم میگیره🤣
-</div>
-
-## tasiyanc — post 5999
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده 🚀
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5998
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5996
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-2سرور  سرعتی قدرتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 
