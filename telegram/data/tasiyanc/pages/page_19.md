@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/03/20 00:57
+📅 آخرین بروزرسانی: 1405/03/20 02:37
 
 ---
+
+## tasiyanc — post 6050
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فایل تمام پیام‌های تلگرامش
+
+@ineedknife
+</div>
+
+## tasiyanc — post 6048
+
+<div align="center"><img src="files/post_6048_tasiyanc_6048.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
+</div>
+
+## tasiyanc — post 6047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نزنه رسانه ای میکنم
+</div>
+
+## tasiyanc — post 6046
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکم صبر میکنم دیل آک بزنه
+</div>
+
+## tasiyanc — post 6045
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امین زحمت کشید شماره و آدرس و شماره بابای جاکشش درآورده
+</div>
 
 ## tasiyanc — post 6044
 
@@ -98,38 +132,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 منم اکانتم پرید
-</div>
-
-## tasiyanc — post 6026
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوست من سه روز پیش اکانتش پرید
-</div>
-
-## tasiyanc — post 6025
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقیقا رفیقم اینجوری شد
-</div>
-
-## tasiyanc — post 6024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نصب نکنید دوستان
-جدی میپرونه
-</div>
-
-## tasiyanc — post 6023
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من فقط جوین شدم که جواب شمارو بدم
-آره مال من پرید
-احراز هویت کردم برگشت
-</div>
-
-## tasiyanc — post 6022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپل آیدی لاک میشه
 </div>
 
