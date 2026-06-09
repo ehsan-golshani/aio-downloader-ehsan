@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/19 03:24
+📅 آخرین بروزرسانی: 1405/03/19 07:50
 
 ---
+
+## tasiyanc — post 6413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاجی ریکشن نمیزنید بریم بخوابیم
+</div>
+
+## tasiyanc — post 6412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 📱
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6411
 
@@ -176,21 +198,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️
-</div>
-
-## tasiyanc — post 6391
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووووورییییییی حمله کردننننننن
-</div>
-
-## tasiyanc — post 6390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨صدا و سیما :
-
-شهر نبطیه لبنان در حال سقوط است
-
-@Tasiyanc
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال MehdiBudam - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/19 00:10
+📅 آخرین بروزرسانی: 1405/03/19 07:49
 
 ---
+
+## MehdiBudam — post 8123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان این تور های که گذاشته میشه همشون بریج هاشون متفاوته بخاطر همون برای بعضیا شاید وصل نشه نه اینکه مثل یه چنل دیگه که یدونه بریج پر سرعت پیدا کرده با همون چند‌تا تور گذاشته و همشون یکین و اگه یدونه Delete Duplicate بزنی کلا یدونه میمونه.
+</div>
 
 ## MehdiBudam — post 8122
 
@@ -199,11 +205,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 با قابلیت جدید DNS Pool دیگه نیازی نیست دستی دنبال DNS بگردید یا اسکن کنید. می‌تونید تا ۱۰۰۰ تا DNS به برنامه بدید تا خودش قبل اتصال تستشون کنه و ۱۰ تا از بهترین‌ها رو خودکار براتون انتخاب کنه.
 
 🕊@slipnet_app
-</div>
-
-## MehdiBudam — post 8101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان میگن Snowflake با برنامه های Orbot و Invisible pro هم وصل میشه.
 </div>
 
