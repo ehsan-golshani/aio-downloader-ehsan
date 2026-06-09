@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/03/19 07:50
+📅 آخرین بروزرسانی: 1405/03/19 11:41
 
 ---
+
+## tasiyanc — post 6163
+
+<div align="center"><video src="files/post_6163_tasiyanc_6163.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6163_tasiyanc_6163.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  
+👑
+
+تست شده 
+🎚
+
+دانلود Wg tunnel 
+🕹
+
+آموزش ویدیویی 
+⏩
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6161
 
@@ -182,11 +204,5 @@ Jzzb 🔥Vip.npvt
 آموزش ویدیویی ⏩
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-vip 🚀🔥 @Tasiyanc.conf
 </div>
 

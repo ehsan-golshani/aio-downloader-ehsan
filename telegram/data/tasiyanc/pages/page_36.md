@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/03/19 07:50
+📅 آخرین بروزرسانی: 1405/03/19 11:41
 
 ---
+
+## tasiyanc — post 5554
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨به گزارش استانداری بندرعباس منشأ صدا های انفجار در دست بررسی است
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5553
 
@@ -453,13 +460,5 @@ Join @Tasiyanc ✅
 برای اتصال پایدار زمان بدید 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5518
-
-<div align="center"><img src="files/post_5518_tasiyanc_5518.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-WİFİ 🚀speed.npvt
 </div>
 

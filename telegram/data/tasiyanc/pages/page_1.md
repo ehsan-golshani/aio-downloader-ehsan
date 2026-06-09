@@ -1,12 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/19 07:50
+📅 آخرین بروزرسانی: 1405/03/19 11:41
 
 ---
 
-## tasiyanc — post 6467
+## tasiyanc — post 6468
 
-<div align="center"><a href="files/post_6467_[20] @Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [20] @Tasiyanc.conf</a></div>
+<div align="center"><a href="files/post_6468_300 GB - 🇬🇧🇩🇪.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 300 GB - 🇬🇧🇩🇪.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۲سرور   سرعتی پرمیوم متد جدید🚀
+
+300 گیگ - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6467
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد   👑
@@ -23,8 +43,6 @@
 </div>
 
 ## tasiyanc — post 6466
-
-<div align="center"><a href="files/post_6466_​TW[🇹🇼]@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ​TW[🇹🇼]@Tasiyanc.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  Ovpn ♻️
@@ -227,11 +245,5 @@ new@Tasiyanc.ovpn
 😬Password :″  @Tasiyanc  ″
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داش این‌کانفنیگی که گذاشتی بات موشکه؟؟؟؟😐😂پشمماامممممم سرعتتوووووو
 </div>
 

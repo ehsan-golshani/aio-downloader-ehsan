@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/03/19 07:50
+📅 آخرین بروزرسانی: 1405/03/19 11:41
 
 ---
+
+## tasiyanc — post 6287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ سرعتی (2).npvt
+</div>
 
 ## tasiyanc — post 6286
 
@@ -210,16 +216,6 @@ BadBoys 🚀 موشک.npvt
 توصیه ما این است که تا حد امکان از کانفیگ‌های مبتنی بر V2Ray/Xray یا... در کلاینت‌های معتبر مانند V2RayNG، ، Napsternet ,V2Box، Hiddify یا Nekoray ، wirguard , Ovpn استفاده کنید و از نصب VPNهای ناشناس و بی‌هویت خودداری کنید.
 ﻿
 🔐 امنیت دیجیتال شوخی نیست؛ به توصیه افرادی که تخصص کافی ندارند، کورکورانه اعتماد نکنید.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6263
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐
-
-trojan://bb45f73f-795b-4a05-a8e0-ba717bce87e3@104.19.229.21:443?path=%2Fid-tksi&security=tls&insecure=0&host=api24-normal.tiktokv.com.cyylr.eu.cc&type=ws&allowInsecure=0&sni=api24-normal.tiktokv.com.cyylr.eu.cc#%F0%9F%AA%90%20%40Tasiyanc vless://47422044-85e3-426b-b6c4-3588cb24a3e5@45.130.125.160:443?path=%2Fae-bo&security=tls&encryption=none&insecure=0&host=s.blibli.com.cyylr.eu.cc&type=ws&allowInsecure=0&sni=s.blibli.com.cyylr.eu.cc#%E2%9A%A1%20%40Tasiyanc
 
 @Tasiyanc ✅
 </div>
