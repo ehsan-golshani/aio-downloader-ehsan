@@ -1,8 +1,119 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/19 15:08
+📅 آخرین بروزرسانی: 1405/03/19 20:26
 
 ---
+
+## tasiyanc — post 6488
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوووووورییی با توییت امشب امریکا احتمال شروع دوباره جنگ هستت
+برا همین براتون توی بات  ۶۰۰‌گیگ کانفینگ اختصاصی گذاشتیم که یوقت دوباره نتو قطع کردن شماها قطع نشید❤
+
+کنارتون هستیم💝
+
+دریافت کانفینگ اختصاصی
+دریافت کانفینگ اختصاصی
+</div>
+
+## tasiyanc — post 6487
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست جدید ترامپ: به من همین الان توسط ارتش بزرگ‌مون اطلاع داده شده که دیشب ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما رو هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردن. دو خلبان در این حادثه حضور داشتن و هر دو سالم و بدون جراحت هستن. با این حال، آمریکا…
+</div>
+
+## tasiyanc — post 6486
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست جدید ترامپ:
+به من همین الان توسط ارتش بزرگ‌مون اطلاع داده شده که دیشب ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما رو هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردن. دو خلبان در این حادثه حضور داشتن و هر دو سالم و بدون جراحت هستن. با این حال، آمریکا ناگزیر است به این حمله پاسخ بده.
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6485
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️
+</div>
+
+## tasiyanc — post 6484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حواسم نبود ، ریکشن چرا نزدید؟ 😐
+</div>
+
+## tasiyanc — post 6483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلمشو میزارم داخل کامنتا برای مهندسان عالی رتبه chatgbt که توی گروه نظر میدادن
+</div>
+
+## tasiyanc — post 6482
+
+<div align="center"><video src="files/post_6482_tasiyanc_6482.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6482_tasiyanc_6482.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_6482_[21]💥@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [21]💥@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   
+👑
+
+حجم و کاربر نامحدود 
+🟢
+
+دانلود  Wg tunnel 
+🕹
+
+دانلود iOS 
+📱
+
+آموزش اتصال 
+⛓
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6481
+
+<div align="center"><a href="files/post_6481_@Tasiyanc ⚡🚀 ⁴⁵⁰Gb.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ⚡🚀 ⁴⁵⁰Gb.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی پرمیوم متد جدید🚀
+
+450 گیگ  - تمام اپراتور ها 
+⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6478
+
+<div align="center"><img src="files/post_6478_tasiyanc_6478.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هلیا خانم ایران ۵ قلو زایید 🥹
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6477
 
@@ -35,8 +146,6 @@
 <div align="center"><video src="files/post_6472_tasiyanc_6472.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_6472_tasiyanc_6472.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_6472_🇺🇸@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇺🇸@Tasiyanc.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  Ovpn 
@@ -114,103 +223,6 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 تست شده 
 🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6465
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقت الکی نزارید قربونتون برم من
-</div>
-
-## tasiyanc — post 6464
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رباتی ک تون الکی میده اسکمه پرداختی نداره
-</div>
-
-## tasiyanc — post 6460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این ربات تون میده و برداشت شده ازش تایید شده ، میتونید با چند ثانیه وقت گذاشتن به درآمد برسید , برداشت بزنم می‌زارم شاتو خودمم
-https://t.me/gramevents_bot
-
-ارزششو داره برید تست کنین
-
-ادد لیست جهت جوین تو چنلا
-https://t.me/addlist/IiFVViQyys81OWM0
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کمی صحبت؟ ( گپمون)
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارووووووووو
-</div>
-
-## tasiyanc — post 6457
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  Ovpn 🇯🇵♻️
-
-تست شده سامانتل - رایتل - وایفای 
-🚀
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6456
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3 سرور پرمیوم متد جدید
-🚀
-
-حجم نامحدود - تمام اپراتور ها 
-⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  
-✔
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6455
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-new@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 6453
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  OpenVPN♻️
-
-تست شده  سامانتل ، رایتل ، وای‌فای 🚀
 
 دانلود OpenVpn  🕹
 

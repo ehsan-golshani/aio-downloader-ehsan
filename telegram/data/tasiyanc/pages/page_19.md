@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/03/19 15:08
+📅 آخرین بروزرسانی: 1405/03/19 20:26
 
 ---
+
+## tasiyanc — post 6028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم لیمیت خوردم
+</div>
+
+## tasiyanc — post 6027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم اکانتم پرید
+</div>
+
+## tasiyanc — post 6026
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوست من سه روز پیش اکانتش پرید
+</div>
+
+## tasiyanc — post 6025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقیقا رفیقم اینجوری شد
+</div>
+
+## tasiyanc — post 6024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نصب نکنید دوستان
+جدی میپرونه
+</div>
+
+## tasiyanc — post 6023
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من فقط جوین شدم که جواب شمارو بدم
+آره مال من پرید
+احراز هویت کردم برگشت
+</div>
+
+## tasiyanc — post 6022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپل آیدی لاک میشه
+</div>
+
+## tasiyanc — post 6021
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من سه تا اپل ایدی سرش بگا دادم
+</div>
+
+## tasiyanc — post 6020
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این فیلتر شکن مخربو سریع حذف کنین بخدا من فشاری شدم دیگه ،
+</div>
 
 ## tasiyanc — post 6019
 
@@ -92,95 +149,5 @@ VİP 🔥.npvt
 
 🔴 آرسنال ❤️
 🇫🇷 پاریس 🔥
-</div>
-
-## tasiyanc — post 6003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هردو کانفیگ اوپن وصله برید حالشو ببرید
-</div>
-
-## tasiyanc — post 6002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده 🚀
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6001
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴۰ هزار نفر ۲ تا ریکشن🤣🤣
-</div>
-
-## tasiyanc — post 6000
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن میبینم خندم میگیره🤣
-</div>
-
-## tasiyanc — post 5999
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده 🚀
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5998
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5996
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-2سرور  سرعتی قدرتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروکسی ۱
-پروکسی ۲
-پروکسی ۳
-پروکسی ۴
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5994
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور جدید با متد جدید ساعت ۸
 </div>
 
