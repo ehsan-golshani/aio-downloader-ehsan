@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/20 02:37
+📅 آخرین بروزرسانی: 1405/03/20 05:09
 
 ---
+
+## tasiyanc — post 6529
+
+<div align="center"><a href="files/post_6529_[23]⚡🇩🇪@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [23]⚡🇩🇪@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6527
+
+<div align="center"><a href="files/post_6527_⚡موشک - GN 🌙.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡موشک - GN 🌙.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+2سرور سرعتی مناسب همه نت ها 🔥
+
+دانلود وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6523
 
@@ -26,8 +60,6 @@
 </div>
 
 ## tasiyanc — post 6520
-
-<div align="center"><a href="files/post_6520_⚡ Premium ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡ Premium ⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
@@ -204,23 +236,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6488
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوووووورییی با توییت امشب امریکا احتمال شروع دوباره جنگ هستت
-برا همین براتون توی بات  ۶۰۰‌گیگ کانفینگ اختصاصی گذاشتیم که یوقت دوباره نتو قطع کردن شماها قطع نشید❤
-
-کنارتون هستیم💝
-
-دریافت کانفینگ اختصاصی
-دریافت کانفینگ اختصاصی
-</div>
-
-## tasiyanc — post 6487
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پست جدید ترامپ: به من همین الان توسط ارتش بزرگ‌مون اطلاع داده شده که دیشب ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما رو هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردن. دو خلبان در این حادثه حضور داشتن و هر دو سالم و بدون جراحت هستن. با این حال، آمریکا…
 </div>
 

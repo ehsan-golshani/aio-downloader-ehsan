@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/03/20 02:37
+📅 آخرین بروزرسانی: 1405/03/20 05:09
 
 ---
+
+## tasiyanc — post 5574
+
+<div align="center"><img src="files/post_5574_tasiyanc_5574.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+25 K 🍃.npvt
+</div>
+
+## tasiyanc — post 5573
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Password @Tasiyanc
+
+🌐 اختصاصی تاسیان 2 سرور تست شده  تمام اپراتورها  🌐
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5572
 
@@ -135,141 +155,6 @@ WAR 🔥.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 فارس :
 صداهای مشابهی در جزایر سیریک و جاسک شنیده شده
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش‌های تایید نشده حاکی از درگیری بین نیروی دریایی سپاه و نیروی دریایی آمریکا در خلیج عمان و تنگه هرمز است.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5544
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترکیبی وصل ✅
-
-{
-"remarks": "@Tasiyanc",
-"log": {
-"access": "",
-"error": "",
-"loglevel": "info",
-"dnsLog": false
-},
-"inbounds": [
-{
-"tag": "in_proxy",
-"port": 10808,
-"protocol": "socks",
-"listen": "127.0.0.1",
-"settings": {
-"auth": "noauth",
-"udp": true,
-"userLevel": 8
-},
-"sniffing": {
-"enabled": false
-}
-},
-{
-"tag": "http-in",
-"port": 10808,
-"listen": "::",
-"protocol": "http"
-}
-],
-"outbounds": [
-{
-"tag": "proxy",
-"protocol": "trojan",
-"settings": {
-"servers": [
-{
-"address": "104.17.72.206",
-"method": "chacha20-poly1305",
-"ota": false,
-"password": "humanity",
-"port": 443,
-"level": 8,
-"flow": ""
-}
-]
-},
-"streamSettings": {
-"network": "ws",
-"security": "tls",
-"wsSettings": {
-"path": "/assignment",
-"headers": {
-"Host": "www.ignitelimit.com"
-}
-},
-"tlsSettings": {
-"allowInsecure": true,
-"serverName": "www.ignitelimit.com",
-"alpn": [
-"http/1.1"
-],
-"fingerprint": "ios",
-"show": false
-},
-"sockopt": {
-"dialerProxy": "fragment",
-"tcpKeepAliveIdle": 100,
-"tcpNoDelay": true
-}
-},
-"mux": {
-"enabled": false,
-"concurrency": 8
-}
-},
-{
-"tag": "fragment",
-"protocol": "freedom",
-"settings": {
-"domainStrategy": "AsIs",
-"fragment": {
-"packets": "tlshello",
-"length": "100-200",
-"interval": "10-20"
-}
-},
-"streamSettings": {
-"sockopt": {
-"tcpKeepAliveIdle": 100,
-"tcpNoDelay": true
-}
-}
-},
-{
-"tag": "direct",
-"protocol": "freedom",
-"settings": {
-"domainStrategy": "UseIp"
-}
-},
-{
-"tag": "blackhole",
-"protocol": "blackhole",
-"settings": {}
-}
-],
-"dns": {
-"servers": [
-"8.8.8.8"
-]
-},
-"routing": {
-"domainStrategy": "UseIp",
-"rules": [],
-"balancers": []
-}
-}
-
 @Tasiyanc ✅
 </div>
 

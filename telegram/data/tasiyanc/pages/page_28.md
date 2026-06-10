@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/03/20 02:37
+📅 آخرین بروزرسانی: 1405/03/20 05:09
 
 ---
+
+## tasiyanc — post 5813
+
+<div align="center"><img src="files/post_5813_tasiyanc_5813.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانسل
+
+گوشیم رو بروز کردم
+</div>
+
+## tasiyanc — post 5812
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا حق این سرور ۱۶ ریکشن است؟؟
+</div>
 
 ## tasiyanc — post 5811
 
@@ -184,26 +200,5 @@ Fast ⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♨️ فعال شدن پدافند در بندرعباس
-</div>
-
-## tasiyanc — post 5791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارشات از صدای انفجار در بندرعباس
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5790
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈3سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
 </div>
 
