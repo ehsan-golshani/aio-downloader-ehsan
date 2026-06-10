@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/03/20 05:09
+📅 آخرین بروزرسانی: 1405/03/20 09:43
 
 ---
+
+## tasiyanc — post 6029
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اره برامنم امروز پرید
+</div>
 
 ## tasiyanc — post 6028
 
@@ -140,14 +146,5 @@ VİP 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 🇫🇷.npvt
-</div>
-
-## tasiyanc — post 6004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کی قهرمان میشه ؟
-
-🔴 آرسنال ❤️
-🇫🇷 پاریس 🔥
 </div>
 

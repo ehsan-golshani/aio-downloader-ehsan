@@ -1,12 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/20 05:09
+📅 آخرین بروزرسانی: 1405/03/20 09:43
 
 ---
 
-## tasiyanc — post 6529
+## tasiyanc — post 6530
 
-<div align="center"><a href="files/post_6529_[23]⚡🇩🇪@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [23]⚡🇩🇪@Tasiyanc.conf</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[23]⚡🇩🇪@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6529
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد   👑
@@ -21,8 +25,6 @@
 </div>
 
 ## tasiyanc — post 6527
-
-<div align="center"><a href="files/post_6527_⚡موشک - GN 🌙.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡موشک - GN 🌙.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 😎
@@ -211,28 +213,6 @@ https://t.me/+RTGtcYWb8HdkNjdk
 دانلود iOS 📱
 
 آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6500
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  
-😏
-
-4سرور   سرعتی پرمیوم متد جدید
-🚀
-
-نامحدود  - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
 
 ✔️ T.me/Tasiyanc 
 ✅
