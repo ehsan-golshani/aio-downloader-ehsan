@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/03/20 09:43
+📅 آخرین بروزرسانی: 1405/03/20 14:11
 
 ---
+
+## tasiyanc — post 5888
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+4سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5887
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا جای ک یادمه زمان قطعی همتون openvpn پاک کرده بودید الان شده بهتر از نپستر ، تازه این همه کانفیگ npv میزنیم بخدا ع پولی بیشتر سرعتش
+</div>
+
+## tasiyanc — post 5886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر کدوم بیشتر رای بیاره از اون بیشتر میزاریم
+</div>
+
+## tasiyanc — post 5885
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیشتر با ovpn تا حالا وصل شدید یا با npv ؟ زمان قطعی کدوم به دادتون رسیده یادتون رفت؟
+
+Npv ❤️
+
+Ovpn 🔥
+</div>
+
+## tasiyanc — post 5884
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید قبول کنیم نپستر سرعتش بیشتره از اوپنه ، زمان اتصالش سریعه و کلی موارد دیگه
+سرور ovpn شلوغ باشه ارور متعدد روبرو میشید و و و
+</div>
+
+## tasiyanc — post 5883
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی رایتل ـ سامانتل _ ایرانسل🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SamanTel 🛜 🏳
+vless://394f6981-a782-4779-9a85-e6cf22935d93@152.233.28.198:8443?security=tls&alpn=h2&encryption=none&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=uk1.fromblancwithlove.com#%F0%9F%8F%B3%EF%B8%8F%20Samantel%20-%20%40Tasiyanc
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5881
 
@@ -131,64 +196,5 @@ GANG 🌙 10 SERVER FAST.npvt
 https://t.me/+RTGtcYWb8HdkNjdk
 
 گروه تاسیان
-</div>
-
-## tasiyanc — post 5862
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 💫 4Server vip.npvt
-</div>
-
-## tasiyanc — post 5861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑 رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- 4 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجب سرعتی داره داداش کیرتو بخورم دمت گرم❤️
-</div>
-
-## tasiyanc — post 5859
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کالافو اپدیت کردم دمت گرم
-</div>
-
-## tasiyanc — post 5858
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیهههه خدا خیرتون بده
-</div>
-
-## tasiyanc — post 5857
-
-<div align="center"><img src="files/post_5857_tasiyanc_5857.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این سرعتی هم عالیه
-</div>
-
-## tasiyanc — post 5856
-
-<div align="center"><img src="files/post_5856_tasiyanc_5856.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی همین الان وصل کردم ببین سرعت دانلود
 </div>
 
