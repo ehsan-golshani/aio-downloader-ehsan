@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/03/20 21:11
+📅 آخرین بروزرسانی: 1405/03/20 23:34
 
 ---
+
+## ProxyMTProto — post 47608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: offni-vpn.nolags.pw
+Port: 443
+Secret: dda69632d86d88061ea6e94523027b0470
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47607
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s.proxytg.space
+Port: 8443
+Secret: eefefc4f17248e59437bb451447a9170b2732e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47606
 
