@@ -1,12 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/20 14:11
+📅 آخرین بروزرسانی: 1405/03/20 17:40
 
 ---
 
-## tasiyanc — post 6537
+## tasiyanc — post 6541
 
-<div align="center"><a href="files/post_6537_vip 🔱⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 vip 🔱⚡.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
+</div>
+
+## tasiyanc — post 6540
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو
+پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
+</div>
+
+## tasiyanc — post 6539
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرزیدنت ترامپ: من نزدیک به دستور دادن حملات جدید به نیروگاه‌ها و پل‌های ایرانی هستم
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6537
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 😎
@@ -54,8 +72,6 @@ https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 
 ## tasiyanc — post 6531
-
-<div align="center"><a href="files/post_6531_[24]🚀♂️@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [24]🚀♂️@Tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص گیم ، وب‌گردی 👑
@@ -176,36 +192,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هم‌ اکنون حملات ایالات متحده آمریکا به جزیره قشم و بندرعباس
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6510
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور متد جدید🚀
-
-نامحدود  - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
-</div>
-
-## tasiyanc — post 6508
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
 </div>
 

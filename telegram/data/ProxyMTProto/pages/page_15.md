@@ -1,8 +1,62 @@
 # آرشیو کانال ProxyMTProto - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/03/20 14:09
+📅 آخرین بروزرسانی: 1405/03/20 17:39
 
 ---
+
+## ProxyMTProto — post 47720
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: evening.nolags.pw
+Port: 443
+Secret: dd29b3afb209c4427676b4c43eecb7f556
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47719
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad.canvas-proxy.com
+Port: 443
+Secret: eeb7f10957fcefd87d5e8c336fc9851d8d61642e63616e7661732d70726f78792e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47718
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 95.182.86.60
+Port: 443
+Secret: ee82dd957be0c6899a82879d05fecfc73a617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r28.proxytg.space
+Port: 8443
+Secret: eed5f4455563d14c2b8c8a38868c7d91607232382e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47716
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 79.137.194.196
+Port: 443
+Secret: ee2b1199d55f2189e508d07f1f5503faf2766b2e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47715
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.femboylover.org
+Port: 443
+Secret: 5f52936aa7e559b6bf6b6c62d28f0ae6
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47714
 
@@ -127,61 +181,6 @@ Secret: eeade4e42a3bee4969fcb706467380da727232342e70726f787974672e7370616365
 Server: r26.proxytg.space
 Port: 8443
 Secret: eec479c1a98aa5c149647459a1c098634c7232362e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47700
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r26.proxytg.space
-Port: 8443
-Secret: eec479c1a98aa5c149647459a1c098634c7232362e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47699
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ به‌دلیل محدودیت‌های جدید، پروکسی‌ها سریع مسدود می‌شن.
-
-برای اینکه ارتباطت با تلگرام قطع نشه، همین الان یه پروکسی فعال بگیر 👀
-
-🔥 پروکسی‌های جدید به‌صورت مداوم و رایگان منتشر می‌شن.
-</div>
-
-## ProxyMTProto — post 47698
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hotmtpro2.duckdns.org
-Port: 443
-Secret: 7kBjzU5SbZqTzIJZZEf4Tvp3d3cubWljcm9zb2Z0LmNvbQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47697
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.19.134
-Port: 443
-Secret: ee17867c11b83c2c36a3de356743602b2c617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47696
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vpn.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 
