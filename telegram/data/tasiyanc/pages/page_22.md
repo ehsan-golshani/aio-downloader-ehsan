@@ -1,8 +1,98 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/03/20 23:36
+📅 آخرین بروزرسانی: 1405/03/21 01:54
 
 ---
+
+## tasiyanc — post 6034
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درسته اکانت خانومم امروز از دسترس خارج شد ازهمین استفاده میکرد
+</div>
+
+## tasiyanc — post 6033
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واسه منم ظهر پرید ولی دوباره احراز هویت کردم ازم فیلم گرفت و مدارک شناسایی فرستادم درست شد
+</div>
+
+## tasiyanc — post 6032
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکانت منم پریده
+توروخدا میشه کاری کرد برگرده
+پیج کاریم بوده
+</div>
+
+## tasiyanc — post 6031
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جامپ جامپ برای آیفون هم اپل آیدی میپرونه و بات شناسایی میکنه
+لطفا اطلاع رسانی کنید برای دوستانی ک اپل دارن
+</div>
+
+## tasiyanc — post 6030
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مال منم حالا چیکاکنم برکرده
+</div>
+
+## tasiyanc — post 6029
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اره برامنم امروز پرید
+</div>
+
+## tasiyanc — post 6028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم لیمیت خوردم
+</div>
+
+## tasiyanc — post 6027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم اکانتم پرید
+</div>
+
+## tasiyanc — post 6026
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوست من سه روز پیش اکانتش پرید
+</div>
+
+## tasiyanc — post 6025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقیقا رفیقم اینجوری شد
+</div>
+
+## tasiyanc — post 6024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نصب نکنید دوستان
+جدی میپرونه
+</div>
+
+## tasiyanc — post 6023
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من فقط جوین شدم که جواب شمارو بدم
+آره مال من پرید
+احراز هویت کردم برگشت
+</div>
+
+## tasiyanc — post 6022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپل آیدی لاک میشه
+</div>
+
+## tasiyanc — post 6021
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من سه تا اپل ایدی سرش بگا دادم
+</div>
 
 ## tasiyanc — post 6020
 
@@ -57,130 +147,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 🦁  @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک فیلتر شکن استفاده میکنن امروز شنیدم هرکی با jumpjump وصل شده رفته اینستا ، اکانتش از دسترس خارج شده و نیاز به احراز هویت ( فیلم) داره تا اکانتش برگرده ، مراقب باشید با هر فیلترشکنی وصل نشید پ ن : نمی‌دونم درسته یا نه ولی دو سه نفر بهم گفتن @Tasiyanc…
-</div>
-
-## tasiyanc — post 6008
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پاریس لوئیز انریکه قهرمان جام باشگاه های اروپا شد
-</div>
-
-## tasiyanc — post 6007
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک فیلتر شکن استفاده میکنن
-امروز شنیدم هرکی با jumpjump وصل شده رفته اینستا ، اکانتش از دسترس خارج شده و نیاز به احراز هویت ( فیلم) داره تا اکانتش برگرده ، مراقب باشید با هر فیلترشکنی وصل نشید
-پ ن : نمی‌دونم درسته یا نه ولی دو سه نفر بهم گفتن
-</div>
-
-## tasiyanc — post 6006
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VİP 🔥.npvt
-</div>
-
-## tasiyanc — post 6005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🇫🇷.npvt
-</div>
-
-## tasiyanc — post 6004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کی قهرمان میشه ؟
-
-🔴 آرسنال ❤️
-🇫🇷 پاریس 🔥
-</div>
-
-## tasiyanc — post 6003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هردو کانفیگ اوپن وصله برید حالشو ببرید
-</div>
-
-## tasiyanc — post 6002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده 🚀
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6001
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴۰ هزار نفر ۲ تا ریکشن🤣🤣
-</div>
-
-## tasiyanc — post 6000
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن میبینم خندم میگیره🤣
-</div>
-
-## tasiyanc — post 5999
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده 🚀
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5998
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5996
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-2سرور  سرعتی قدرتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروکسی ۱
-پروکسی ۲
-پروکسی ۳
-پروکسی ۴
-@Tasiyanc ✅
 </div>
 

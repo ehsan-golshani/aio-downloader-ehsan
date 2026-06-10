@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/03/20 23:34
+📅 آخرین بروزرسانی: 1405/03/21 01:52
 
 ---
+
+## ProxyMTProto — post 47810
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dash.flowstreamhub.site
+Port: 8443
+Secret: eeef254d73d0f3c934acf304ca0e6b9cc2646173682e666c6f7773747265616d6875622e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47809
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ytrw134-4.mtproxygram.lol
+Port: 853
+Secret: ee3b5bcab52337c98260146659a677d48862726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47808
 
@@ -163,24 +181,6 @@ Secret: dd2c611b53a9c82f662081daed93cc3cb3
 Server: fast.quickrouteapp.xyz
 Port: 8443
 Secret: ee80aa4a3c8b88e873af8b323a6c485efa666173742e717569636b726f7574656170702e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47790
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47789
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: wb.flowaccess.site
-Port: 8443
-Secret: ee2fcc64ad41fc313d96fb8cb686e5620677622e666c6f776163636573732e73697465
 @ProxyMTProto
 </div>
 
