@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/21 01:54
+📅 آخرین بروزرسانی: 1405/03/21 03:35
 
 ---
+
+## tasiyanc — post 6599
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
+</div>
+
+## tasiyanc — post 6598
+
+<div align="center"><a href="files/post_6598_VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان نامحدود😎
+
+۳سرور سرعتی متد جدید همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6586
 
@@ -20,8 +44,6 @@
 </div>
 
 ## tasiyanc — post 6581
-
-<div align="center"><a href="files/post_6581_[28] 🇩🇪🚀@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [28] 🇩🇪🚀@Tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
@@ -42,8 +64,6 @@
 </div>
 
 ## tasiyanc — post 6579
-
-<div align="center"><a href="files/post_6579_Melli shekan 2 🔥🚀.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Melli shekan 2 🔥🚀.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 😎
@@ -80,8 +100,6 @@
 
 ## tasiyanc — post 6575
 
-<div align="center"><a href="files/post_6575_[27] vip 🔱@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [27] vip 🔱@Tasiyanc.conf</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
 
@@ -101,8 +119,6 @@
 </div>
 
 ## tasiyanc — post 6573
-
-<div align="center"><a href="files/post_6573_Melli shekan 🚀🔥 Fast.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Melli shekan 🚀🔥 Fast.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 😎
@@ -190,19 +206,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 ✊🔴ترامپ : ما واقعاً به توافق نزدیک بودیم - اما آنها همچنان ما را به بازی می‌گیرند.
 آنها مدام ما را احمق جلوه می‌دهند، چون می‌دانید چیست؟ آنها با چند رئیس جمهور بسیار احمق معامله کردن
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6560
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وزیر دفاع اسراییل کاتز:ارتش اسرائیل آماده حمله‌ای بسیار قوی به ایران است
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6559
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 فوووری بعد اعلام رسمی ترامپ که‌گفت امشب جنگ‌رو شروع میکنیم و به ایران حمله میکنیم  احتمال قطع شدن نت بشدددتتت بالاست تصمیم‌گرفتیم براتون کانفینگ اختصاصی بزاریم داخل بات‌مخصوص نت ملی که یوقت  قطع نشید 
-🚀 تست‌شده مخصوص نت‌ملیهههه نیاز داشتید برید برداریدد…
 </div>
 

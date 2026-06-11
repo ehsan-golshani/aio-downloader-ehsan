@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/03/21 01:54
+📅 آخرین بروزرسانی: 1405/03/21 03:35
 
 ---
+
+## tasiyanc — post 6096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+2سرور  سرعتی تست شده رو سامانتل بقیه هم تست کنین🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#تب
+
+⚡️ همونجوری که میدونید کانفیگ فریا بسیار ضعیفن، من خودم جهت مصرف شخصی از اینجا کانفیگ تهیه میکنم با قیمت ارزون و کیفیت بالا گفتم برا شماهم بذارم نیازتون میشه
+
+چنلشون : @nacconfig ⭐️
+ایدی فروش:@nac_config ⭐️
+</div>
 
 ## tasiyanc — post 6093
 
@@ -165,30 +192,5 @@ FastVip⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FastVip⚡.npvt
-</div>
-
-## tasiyanc — post 6068
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-6سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
-✅
-
-دانلود  NPV tunnel  
-🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Hot Servers 🔥🌶️.npvt
 </div>
 
