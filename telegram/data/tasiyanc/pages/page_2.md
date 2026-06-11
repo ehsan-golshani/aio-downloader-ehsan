@@ -1,8 +1,110 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/21 12:54
+📅 آخرین بروزرسانی: 1405/03/21 16:40
 
 ---
+
+## tasiyanc — post 6615
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+2سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6599
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
+</div>
+
+## tasiyanc — post 6598
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان نامحدود😎
+
+۳سرور سرعتی متد جدید همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6586
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگای بالا ک گذاشتم همگی با سرعت وصلن ، درصورت فیلتر جدیدشو قرار میدیم ❤️
+</div>
+
+## tasiyanc — post 6583
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ تسنیم:
+
+هم اکنون یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه بمباران شد.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6581
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6580
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال رو همراه 😐
+</div>
+
+## tasiyanc — post 6579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی متد جدید همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6578
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سیو کنین کانفیگارو
+</div>
+
+## tasiyanc — post 6577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ سیریک و قشم مورد حمله قرار گرفت
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6576
 
@@ -110,113 +212,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6561
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✊🔴ترامپ : ما واقعاً به توافق نزدیک بودیم - اما آنها همچنان ما را به بازی می‌گیرند.
-آنها مدام ما را احمق جلوه می‌دهند، چون می‌دانید چیست؟ آنها با چند رئیس جمهور بسیار احمق معامله کردن
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6560
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وزیر دفاع اسراییل کاتز:ارتش اسرائیل آماده حمله‌ای بسیار قوی به ایران است
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6559
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 فوووری بعد اعلام رسمی ترامپ که‌گفت امشب جنگ‌رو شروع میکنیم و به ایران حمله میکنیم  احتمال قطع شدن نت بشدددتتت بالاست تصمیم‌گرفتیم براتون کانفینگ اختصاصی بزاریم داخل بات‌مخصوص نت ملی که یوقت  قطع نشید 
-🚀 تست‌شده مخصوص نت‌ملیهههه نیاز داشتید برید برداریدد…
-</div>
-
-## tasiyanc — post 6556
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 فوووری بعد اعلام رسمی ترامپ که‌گفت امشب جنگ‌رو شروع میکنیم و به ایران حمله میکنیم  احتمال قطع شدن نت بشدددتتت بالاست
-
-تصمیم‌گرفتیم براتون کانفینگ اختصاصی بزاریم داخل بات‌مخصوص نت ملی که یوقت  قطع نشید 
-🚀
-
-تست‌شده مخصوص نت‌ملیهههه نیاز داشتید برید برداریدد حتما
-❤
-
-دریافت کانفینگ اختصاصی
-دریافت کانفینگ اختصاصی
-</div>
-
-## tasiyanc — post 6555
-
-<div align="center"><video src="files/post_6555_tasiyanc_6555.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6555_tasiyanc_6555.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-3سرور سرعتی مناسب همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6554
-
-<div align="center"><img src="files/post_6554_tasiyanc_6554.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون ورود B-52 به خاور میانه
-@Tasiyanproxy 
-✅
-</div>
-
-## tasiyanc — post 6553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه اخبار در چنل پروکسی
-
-https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸
-🔴ترامپ:
-با بمب افکن های B_2 آنها را بسیار سخت هدف قرار خواهیم داد.
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 
-🔴ترامپ : تا اینجا هم بخاطر پاکستان فرصت داده بودم ، امروز بشدت به ایران ضربه خواهیم زد
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6550
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خلاصه برنامه زیاده ، البته امیدوارم قطعی پیش نیاد
 </div>
 
