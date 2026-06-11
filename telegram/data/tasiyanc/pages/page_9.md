@@ -1,54 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/03/21 20:39
+📅 آخرین بروزرسانی: 1405/03/21 23:23
 
 ---
 
-## tasiyanc — post 6409
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۲سرور پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبلیغاتی ک میاد از طرف تلگرامه و قابل تایید ما نیست مراقب باشید تو این شرایط جیبتون نزنن❤️
-</div>
-
-## tasiyanc — post 6407
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شخص خودم فعالیتی تو روبیکا نخواهم داشت با توجه به اینکه ۳ تا اکانتم مسدوده ولی ادمینای تلگرام تو چنل و گروه روبیکا میگم کانفیگارو بفرستن در صورت قطعی
-https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
-</div>
-
-## tasiyanc — post 6406
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی تاسیان 🆕
-
-✅77 کانفیگ پروتکل Trojan تست شده 🔄
-
-فایل Txt رو باز کنین کانفیگارو کپی کنین بریزید V2Box 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6405
+## tasiyanc — post 6432
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد   👑
@@ -64,18 +20,18 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 🔺@Tasiyanc ✅
 </div>
 
-## tasiyanc — post 6404
+## tasiyanc — post 6431
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتا داره بگ* می‌ره اختلال رو همراه اول
+Fast ⚡🪐 متد جدید.npvt
 </div>
 
-## tasiyanc — post 6403
+## tasiyanc — post 6430
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶  اختصاصی تاسیان  😏
 
-3سرور   سرعتی پرمیوم 🚀
+۳سرور   سرعتی پرمیوم 🚀
 
 حجم نامحدود - تمام اپراتور ها ⚡️
 
@@ -85,117 +41,152 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 
 آموزش اتصال 🔹
 
+😬Password :″  @Tasiyanc  ″
 
 ✔️ T.me/Tasiyanc ✅
 </div>
 
-## tasiyanc — post 6402
+## tasiyanc — post 6429
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
+رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
 </div>
 
-## tasiyanc — post 6401
+## tasiyanc — post 6428
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه خبر ها + پروکسی های تاسیان
-
-@Tasiyanproxy
-@Tasiyanproxy
+رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
 </div>
 
-## tasiyanc — post 6400
+## tasiyanc — post 6427
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ آسمان ایران کلیر شد
-@Tasiyanc
+FAST⚡TASIYAN🚀.npvt
 </div>
 
-## tasiyanc — post 6398
+## tasiyanc — post 6426
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند تا کانفیگ خوب آماده میکنم یه کم دیگه
-</div>
-
-## tasiyanc — post 6397
-
-<div align="center"><img src="files/post_6397_tasiyanc_6397.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨فوری | هم اکنون حملات موشکی سپاه به سمت اسرائیل‼️
+هم اکنون سپاه :
+آغاز عملیات نصر 🚀
 @Tasiyanc ✅
 </div>
 
-## tasiyanc — post 6396
+## tasiyanc — post 6425
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آغاز عملیات وعده صادق ۵
+یه مقدار نقض نمک آتش بسه
 @Tasiyanc ✅
 </div>
 
-## tasiyanc — post 6394
+## tasiyanc — post 6424
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨فووووووری
-حملات موشکی سپاه به اسرائیل
-@Tasiyanc
+خبر فوری
+هم اکنون حمله اسرائیل به چند سایت راداری در تهران
+@Tasiyanc ✅
 </div>
 
-## tasiyanc — post 6393
+## tasiyanc — post 6423
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حمله موشکی سپاه از کرمانشاه هم اکنون
-@Tasiyanc
+🚨کانال ۱۲ اسرائیل:
+طی چندساعت اخیر به ۲۰ هدف تو ایران حمله کردیم
+
+@TasiyanProxy
 </div>
 
-## tasiyanc — post 6392
+## tasiyanc — post 6422
+
+<div align="center"><video src="files/post_6422_tasiyanc_6422.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6422_tasiyanc_6422.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوووری فارس :
+مجتمع پتروشیمی کارون رو زدن
+
+@TasiyanProxy
+</div>
+
+## tasiyanc — post 6421
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️
 </div>
 
-## tasiyanc — post 6391
+## tasiyanc — post 6420
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووووورییییییی حمله کردننننننن
+تمام کانفیگای ک گذاشتیم با قدرت وصلن 🚀
 </div>
 
-## tasiyanc — post 6390
+## tasiyanc — post 6419
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨صدا و سیما :
+https://t.me/+RTGtcYWb8HdkNjdk
 
-شهر نبطیه لبنان در حال سقوط است
-
-@Tasiyanc
+بیاید گپمون
 </div>
 
-## tasiyanc — post 6389
+## tasiyanc — post 6415
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اضطراریه و هر لحظه ممکنه به خاطر شرایط جنگی اینترنت کل کشور قطع بشه! وقت رو تلف نکنید. برای اینکه ارتباطمون کاملاً قطع نشه، ۲ تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه اضطراری براتون آماده کردیم. ​تأکید می‌کنیم: همین الان، تا قبل از اینکه دسترسی‌ها…
+FAST⚡TASIYAN🚀.npvt
 </div>
 
-## tasiyanc — post 6386
-
-<div align="center"><img src="files/post_6386_tasiyanc_6386.jpg" alt="Photo"></div>
+## tasiyanc — post 6414
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اضطراریه و هر لحظه ممکنه به خاطر شرایط جنگی اینترنت کل کشور قطع بشه! وقت رو تلف نکنید. برای اینکه ارتباطمون کاملاً قطع نشه، ۲ تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه اضطراری براتون آماده کردیم.
-​تأکید می‌کنیم: همین الان، تا قبل از اینکه دسترسی‌ها قطع بشه وارد ربات زیر بشید و لینک‌هاتون رو دریافت کنید. بعداً هیچ اعتراضی پذیرفته نیست!
+📶  اختصاصی تاسیان متد جدید  😏
+
+۴سرور  پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
 
 
-دریافت کانفینگ  اختصاصی
-دریافت کانفنیگ اختصاصی
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاجی ریکشن نمیزنید بریم بخوابیم
+</div>
+
+## tasiyanc — post 6412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 📱
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6411
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🩷لحظات نفس‌گیر
+هم اکنون حریم های هوایی اسرائیل - سوریه - عراق - اردن بسته شده و غرب ایران آسمان کلییر شده
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6410
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رو همراه اول تست کردیم ولی اختلال زیاده❤️‍🔥
 </div>
 

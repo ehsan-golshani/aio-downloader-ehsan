@@ -1,158 +1,136 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/03/21 20:39
+📅 آخرین بروزرسانی: 1405/03/21 23:23
 
 ---
 
-## tasiyanc — post 6026
+## tasiyanc — post 6050
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوست من سه روز پیش اکانتش پرید
+فایل تمام پیام‌های تلگرامش
+
+@ineedknife
 </div>
 
-## tasiyanc — post 6025
+## tasiyanc — post 6048
+
+<div align="center"><img src="files/post_6048_tasiyanc_6048.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقیقا رفیقم اینجوری شد
+@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
 </div>
 
-## tasiyanc — post 6024
+## tasiyanc — post 6047
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نصب نکنید دوستان
-جدی میپرونه
+نزنه رسانه ای میکنم
 </div>
 
-## tasiyanc — post 6023
+## tasiyanc — post 6046
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من فقط جوین شدم که جواب شمارو بدم
-آره مال من پرید
-احراز هویت کردم برگشت
+یکم صبر میکنم دیل آک بزنه
 </div>
 
-## tasiyanc — post 6022
+## tasiyanc — post 6045
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپل آیدی لاک میشه
+امین زحمت کشید شماره و آدرس و شماره بابای جاکشش درآورده
 </div>
 
-## tasiyanc — post 6021
+## tasiyanc — post 6044
+
+<div align="center"><img src="files/post_6044_tasiyanc_6044.jpg" alt="Photo"></div>
+
+## tasiyanc — post 6043
+
+<div align="center"><img src="files/post_6043_tasiyanc_6043.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من سه تا اپل ایدی سرش بگا دادم
+@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
 </div>
 
-## tasiyanc — post 6020
+## tasiyanc — post 6042
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این فیلتر شکن مخربو سریع حذف کنین بخدا من فشاری شدم دیگه ،
+@ineedknife
+آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
 </div>
 
-## tasiyanc — post 6019
+## tasiyanc — post 6041
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-راجب jumjump اینو بگم کی کلی از دوستان میگن حسابشون از دسترس خارج شده ، ربطی به آیپی نداره، من هرروز با ۱۰ تا آیپی میرم اینستا و بقیه ، چرا فقط هرکی این vpn استفاده کرده زده اکانتشو بگا داده؟ بقیه VPN ها چنین چیزی نشده گزارشی نیست بهرحال به حرف هرچنلی گوش…
+ادبش کردید ؟
+@ineedknife
+اگه ادبش کردید یه ری اکشن بزنید بره همون جایی ک میدونین 😂
 </div>
 
-## tasiyanc — post 6018
+## tasiyanc — post 6040
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-راجب jumjump اینو بگم کی کلی از دوستان میگن حسابشون از دسترس خارج شده ، ربطی به آیپی نداره، من هرروز با ۱۰ تا آیپی میرم اینستا و بقیه ، چرا فقط هرکی این vpn استفاده کرده زده اکانتشو بگا داده؟ بقیه VPN ها چنین چیزی نشده گزارشی نیست
-بهرحال به حرف هرچنلی گوش میدید بدید ولی مراقب باشید دیگه این vpn کاملا مخربه ، هرکس قبول نداره بیاد گپ تاسیان ببینه چقد آدم حسابش بگا رفته
+سرور های جدید نپستر ساعت ۱.۳۰
 </div>
 
-## tasiyanc — post 6017
+## tasiyanc — post 6036
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید پارتی داریم ( گپ تاسیان)
-https://t.me/+RTGtcYWb8HdkNjdk
+پیام مردم بالا ببینید راجب این فیلترشکن
 </div>
 
-## tasiyanc — post 6016
+## tasiyanc — post 6035
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🇬🇧.npvt
+باز الان یکی میاد چرت چند میگه نه اینجور نیست خب پاره شدیم تحقیق کردیم جامپ مخربه و ربطی به آیپی نداره بری فعال یا غیر فعال کنی ، بقیه فیلترشکنا چنین چیزی گزارش نشده
 </div>
 
-## tasiyanc — post 6015
+## tasiyanc — post 6034
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-سرور  سرعتی
-🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
-✅
-
-دانلود  NPV tunnel  
-🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-
-
-🦁  @Tasiyanc 
-✅
+درسته اکانت خانومم امروز از دسترس خارج شد ازهمین استفاده میکرد
 </div>
 
-## tasiyanc — post 6014
+## tasiyanc — post 6033
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک فیلتر شکن استفاده میکنن امروز شنیدم هرکی با jumpjump وصل شده رفته اینستا ، اکانتش از دسترس خارج شده و نیاز به احراز هویت ( فیلم) داره تا اکانتش برگرده ، مراقب باشید با هر فیلترشکنی وصل نشید پ ن : نمی‌دونم درسته یا نه ولی دو سه نفر بهم گفتن @Tasiyanc…
+واسه منم ظهر پرید ولی دوباره احراز هویت کردم ازم فیلم گرفت و مدارک شناسایی فرستادم درست شد
 </div>
 
-## tasiyanc — post 6008
+## tasiyanc — post 6032
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پاریس لوئیز انریکه قهرمان جام باشگاه های اروپا شد
+اکانت منم پریده
+توروخدا میشه کاری کرد برگرده
+پیج کاریم بوده
 </div>
 
-## tasiyanc — post 6007
+## tasiyanc — post 6031
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک فیلتر شکن استفاده میکنن
-امروز شنیدم هرکی با jumpjump وصل شده رفته اینستا ، اکانتش از دسترس خارج شده و نیاز به احراز هویت ( فیلم) داره تا اکانتش برگرده ، مراقب باشید با هر فیلترشکنی وصل نشید
-پ ن : نمی‌دونم درسته یا نه ولی دو سه نفر بهم گفتن
+جامپ جامپ برای آیفون هم اپل آیدی میپرونه و بات شناسایی میکنه
+لطفا اطلاع رسانی کنید برای دوستانی ک اپل دارن
 </div>
 
-## tasiyanc — post 6006
+## tasiyanc — post 6030
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VİP 🔥.npvt
+مال منم حالا چیکاکنم برکرده
 </div>
 
-## tasiyanc — post 6005
+## tasiyanc — post 6029
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🇫🇷.npvt
+اره برامنم امروز پرید
 </div>
 
-## tasiyanc — post 6004
+## tasiyanc — post 6028
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کی قهرمان میشه ؟
-
-🔴 آرسنال ❤️
-🇫🇷 پاریس 🔥
+منم لیمیت خوردم
 </div>
 
-## tasiyanc — post 6003
+## tasiyanc — post 6027
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هردو کانفیگ اوپن وصله برید حالشو ببرید
-</div>
-
-## tasiyanc — post 6002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده 🚀
-
-
-@Tasiyanc ✅
+منم اکانتم پرید
 </div>
 

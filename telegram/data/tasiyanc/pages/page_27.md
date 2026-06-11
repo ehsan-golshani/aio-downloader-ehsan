@@ -1,80 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/03/21 20:39
+📅 آخرین بروزرسانی: 1405/03/21 23:23
 
 ---
 
-## tasiyanc — post 5946
+## tasiyanc — post 5970
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
--FAST MCI & MTN & RighTel 🔥.npvt
+پینگ نگیرید ، کانکت شدید بیاید تل یا اینستا بالا میاد خودش
 </div>
 
-## tasiyanc — post 5945
+## tasiyanc — post 5969
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قربون تک تکتون ، با اینکه نت وصله ولی اختلال همچنان بسیار بالاست تلاش میشه بهترین سرورارو بزاریم امیدوارم سرعت خوبی بگیرید
-</div>
-
-## tasiyanc — post 5944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واقعا سرورهای خوبی می‌زاری دم غیرتت گرم ب جان خودم
-عشقی عشق ❤️🥲
-</div>
-
-## tasiyanc — post 5943
-
-<div align="center"><img src="files/post_5943_tasiyanc_5943.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینستا مثل برق میاره ، ❤️❤️❤️
-</div>
-
-## tasiyanc — post 5942
-
-<div align="center"><img src="files/post_5942_tasiyanc_5942.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک دقیقه نیست استارت کردم ، بهترین کانال جهانی دمت گرم ، عالیی ،🙏🙏❤️❤️
-</div>
-
-## tasiyanc — post 5941
-
-<div align="center"><img src="files/post_5941_tasiyanc_5941.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی🤭
-</div>
-
-## tasiyanc — post 5940
-
-<div align="center"><img src="files/post_5940_tasiyanc_5940.jpg" alt="Photo"></div>
-
-## tasiyanc — post 5939
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بس کن تاسیان علی
-</div>
-
-## tasiyanc — post 5937
-
-<div align="center"><img src="files/post_5937_tasiyanc_5937.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
--FAST MCI & MTN & RighTel 🔥.npvt
-</div>
-
-## tasiyanc — post 5936
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
--FAST MCI & MTN & RighTel 🔥.npvt
-</div>
-
-## tasiyanc — post 5934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
+📶  اختصاصی تاسیان 
 
 5سرور  سرعتی🚀
 
@@ -88,68 +27,54 @@
 🦁  @Tasiyanc ✅
 </div>
 
-## tasiyanc — post 5933
+## tasiyanc — post 5968
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
-
-سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑
-Proxy 0
-Proxy 1
-Proxy 2
-Proxy 3
-</div>
-
-## tasiyanc — post 5930
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زاپاس تاسیان ✅ حتما جوین شوید
-https://t.me/TasiyanOwner
-</div>
-
-## tasiyanc — post 5929
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Wifi نت خانگی⚡.npvt
-</div>
-
-## tasiyanc — post 5928
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گپ تاسیان 🦦
 https://t.me/+RTGtcYWb8HdkNjdk
-
-بیاید گپمون دور هم باشیم
 </div>
 
-## tasiyanc — post 5927
-
-<div align="center"><img src="files/post_5927_tasiyanc_5927.jpg" alt="Photo"></div>
+## tasiyanc — post 5967
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Wifi نت خانگی⚡.npvt
+سرور ها چک میشن هر نیم ساعت
+ضعیف شن جدیدشو میزاریم ، با قدرت وصلیم ❤️
 </div>
 
-## tasiyanc — post 5926
+## tasiyanc — post 5966
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  تست روی وای‌فای
+Gold🥇Vip servers.npvt
+</div>
 
-۲سرور  سرعتی🚀
+## tasiyanc — post 5965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی - 🇫🇷
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5963
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ npv سرعت بالا (تست)
+@Tasiyanc
+</div>
+
+## tasiyanc — post 5960
+
+<div align="center"><img src="files/post_5960_tasiyanc_5960.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Gold🥇Vip servers.npvt
+</div>
+
+## tasiyanc — post 5959
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان 
+
+8سرور  سرعتی🚀
 
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
 
@@ -161,15 +86,95 @@ Wifi نت خانگی⚡.npvt
 🦁  @Tasiyanc ✅
 </div>
 
-## tasiyanc — post 5925
+## tasiyanc — post 5958
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برم ۲۰۰ تا ری اکشن شد بیام
+مرسی از تبریک های قشنگتون 🥹❤️‍🔥
+بهترین ها نصیبتون شه ایشالا مرسی که هستید ❤️
 </div>
 
-## tasiyanc — post 5924
+## tasiyanc — post 5957
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باید بگیییییم؟😭
+🎉 امروز تولدمه!
+
+یه کیک بما نمیرسه؟🎂
+30May - 9 خرداد
+
+💘💘💘 💘💘 💘💘
+</div>
+
+## tasiyanc — post 5956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+TS premium Servers 🌲⚡.npvt
+</div>
+
+## tasiyanc — post 5955
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی تست
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانسل قوی وصله
+</div>
+
+## tasiyanc — post 5953
+
+<div align="center"><img src="files/post_5953_tasiyanc_5953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد ۷ ثانیه 😮‍💨
+</div>
+
+## tasiyanc — post 5952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانسلم میگن وصله
+اره ❤️
+نه 💋
+</div>
+
+## tasiyanc — post 5950
+
+<div align="center"><img src="files/post_5950_tasiyanc_5950.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+TS premium Servers 🌲⚡.npvt
+</div>
+
+## tasiyanc — post 5949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  تست روی همراه اول 🛜 بقیه تست کنین
+
+6سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5948
+
+<div align="center"><img src="files/post_5948_tasiyanc_5948.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب بعدی تو راهه
+</div>
+
+## tasiyanc — post 5947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب بعدی تو راهه
 </div>
 

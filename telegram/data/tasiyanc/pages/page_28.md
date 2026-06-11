@@ -1,21 +1,97 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/03/21 20:39
+📅 آخرین بروزرسانی: 1405/03/21 23:23
 
 ---
 
-## tasiyanc — post 5923
-
-<div align="center"><img src="files/post_5923_tasiyanc_5923.jpg" alt="Photo"></div>
+## tasiyanc — post 5946
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀Sw Fast.npvt
+-FAST MCI & MTN & RighTel 🔥.npvt
 </div>
 
-## tasiyanc — post 5922
+## tasiyanc — post 5945
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  🛜🛜🛜
+قربون تک تکتون ، با اینکه نت وصله ولی اختلال همچنان بسیار بالاست تلاش میشه بهترین سرورارو بزاریم امیدوارم سرعت خوبی بگیرید
+</div>
+
+## tasiyanc — post 5944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واقعا سرورهای خوبی می‌زاری دم غیرتت گرم ب جان خودم
+عشقی عشق ❤️🥲
+</div>
+
+## tasiyanc — post 5943
+
+<div align="center"><img src="files/post_5943_tasiyanc_5943.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینستا مثل برق میاره ، ❤️❤️❤️
+</div>
+
+## tasiyanc — post 5942
+
+<div align="center"><img src="files/post_5942_tasiyanc_5942.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک دقیقه نیست استارت کردم ، بهترین کانال جهانی دمت گرم ، عالیی ،🙏🙏❤️❤️
+</div>
+
+## tasiyanc — post 5941
+
+<div align="center"><img src="files/post_5941_tasiyanc_5941.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشتی🤭
+</div>
+
+## tasiyanc — post 5940
+
+<div align="center"><img src="files/post_5940_tasiyanc_5940.jpg" alt="Photo"></div>
+
+## tasiyanc — post 5939
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بس کن تاسیان علی
+</div>
+
+## tasiyanc — post 5937
+
+<div align="center"><img src="files/post_5937_tasiyanc_5937.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+-FAST MCI & MTN & RighTel 🔥.npvt
+</div>
+
+## tasiyanc — post 5936
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+-FAST MCI & MTN & RighTel 🔥.npvt
+</div>
+
+## tasiyanc — post 5934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
+
+5سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
 
 سرور  سرعتی🚀
 
@@ -29,39 +105,51 @@
 🦁  @Tasiyanc ✅
 </div>
 
-## tasiyanc — post 5921
+## tasiyanc — post 5932
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐 وصل رو تمام اپراتورا ✅ vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.254:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=donya-e-eqtesad.com.tasnimnews.com.alef.ir.en.mehrnews.com.ent…
+👑
+Proxy 0
+Proxy 1
+Proxy 2
+Proxy 3
 </div>
 
-## tasiyanc — post 5920
+## tasiyanc — post 5930
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐
-وصل رو تمام اپراتورا ✅
-vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.254:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=donya-e-eqtesad.com.tasnimnews.com.alef.ir.en.mehrnews.com.entekhab.ir.tasnimnews.com.tehrantimes.com&allowInsecure=0&sni=Humble-FigUREFnHk81kxjx.CarboNblaCkBmw.iR#%40Tasiyanc%20-%20%F0%9F%8C%99
-@Tasiyanc ✅
+زاپاس تاسیان ✅ حتما جوین شوید
+https://t.me/TasiyanOwner
 </div>
 
-## tasiyanc — post 5918
+## tasiyanc — post 5929
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای بار هزارم کانکت شدی دنبال دان لینک نباش بیا تل یا برو یه جای دیگه جز نپستر بالا میاد تو ۱۰ ثانیه
+Wifi نت خانگی⚡.npvt
 </div>
 
-## tasiyanc — post 5917
+## tasiyanc — post 5928
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی🔥🇩🇪.npvt
+https://t.me/+RTGtcYWb8HdkNjdk
+
+بیاید گپمون دور هم باشیم
 </div>
 
-## tasiyanc — post 5916
+## tasiyanc — post 5927
+
+<div align="center"><img src="files/post_5927_tasiyanc_5927.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  🛜🛜🛜
+Wifi نت خانگی⚡.npvt
+</div>
 
-سرور  سرعتی🚀
+## tasiyanc — post 5926
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  تست روی وای‌فای
+
+۲سرور  سرعتی🚀
 
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
 
@@ -73,129 +161,15 @@ vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.254:2096?mode=gun&securi
 🦁  @Tasiyanc ✅
 </div>
 
-## tasiyanc — post 5915
+## tasiyanc — post 5925
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  🛜🛜🛜
-
-سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
+برم ۲۰۰ تا ری اکشن شد بیام
 </div>
 
-## tasiyanc — post 5914
-
-<div align="center"><img src="files/post_5914_tasiyanc_5914.jpg" alt="Photo"></div>
+## tasiyanc — post 5924
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💙@Tasiyanc🚀Jet.npvt
-</div>
-
-## tasiyanc — post 5913
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  🛜🛜🛜
-
- تک سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5912
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-v2Ray کانفیگ
-هم بزاریم پس راضی هستید فکنم
-</div>
-
-## tasiyanc — post 5911
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 متصل تموم اپراتورا ✅ vless://4e93e8e6-8cc1-4a5b-b577-3d5bcae6ada0@104.17.121.238:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=irdiplomacy.ir.rajanews.com.parstoday.com.donya-e-eqtesad.com…
-</div>
-
-## tasiyanc — post 5910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐
-متصل تموم اپراتورا ✅
-
-vless://4e93e8e6-8cc1-4a5b-b577-3d5bcae6ada0@104.17.121.238:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=irdiplomacy.ir.rajanews.com.parstoday.com.donya-e-eqtesad.com.alalamtv.net.yjc.ir.tehrantimes.com&allowInsecure=0&sni=FAiNT-beliEFst4dReAkTi.WINdler.Co.Uk#%40Tasiyanc
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5909
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New⚡Fast.npvt
-</div>
-
-## tasiyanc — post 5908
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2Vip🇩🇪.npvt
-</div>
-
-## tasiyanc — post 5906
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2Vip🇩🇪.npvt
-</div>
-
-## tasiyanc — post 5905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑 رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- 2 سرور  سرعتی
-🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5903
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همه اپراتور ها 🎚
-🔐🔐
-vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.101:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=donya-e-eqtesad.com.tasnimnews.com.alef.ir.en.mehrnews.com.entekhab.ir.tasnimnews.com.tehrantimes.com&allowInsecure=0&sni=Humble-FigUREFnHk81kxjx.CarboNblaCkBmw.iR#%40Tasiyanc%20%E2%9A%A1
- @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5902
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-channel@TASIYANC.ovpn
-</div>
-
-## tasiyanc — post 5901
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New⚡Fast.npvt
+باید بگیییییم؟😭
 </div>
 

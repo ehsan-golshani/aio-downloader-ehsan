@@ -1,81 +1,121 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/03/21 20:39
+📅 آخرین بروزرسانی: 1405/03/21 23:23
 
 ---
 
-## tasiyanc — post 5852
+## tasiyanc — post 5878
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام‌ها تمومی نداره ، همچنان ما قطعیم😁❤️
+بعد اتصال بدون گرفتن پینگ سریع به تلگرام بیاید خودش را میوفته
 </div>
 
-## tasiyanc — post 5851
+## tasiyanc — post 5877
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دمت گرم داش
+📶  اختصاصی تاسیان  📶
+
+ سه سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
 </div>
 
-## tasiyanc — post 5850
+## tasiyanc — post 5873
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایول کارت حرف نداره تاسیان عشقی
+خب خب.. یه کانفیگ اوکی کردیم برای همه اپراتور ها جوابه و همه چیو پرسرعت میاره. فقط برای 500 نفر اولی که سریعترن در دسترسه! ⚠️ دریافت رایگان کانفیگ اختصاصی
 </div>
 
-## tasiyanc — post 5849
+## tasiyanc — post 5872
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دمتون گرم ، هر کانفیگی گذاشتین وصل شد ، دمتون گرم ، تنها کانالی که پر تلاش برای مردم است ، با تشکر از چنل عالی و خوب تاسیان مرسی
+خب خب..
+یه کانفیگ اوکی کردیم برای همه اپراتور ها جوابه
+و همه چیو پرسرعت میاره.
+
+فقط برای 500 نفر اولی که سریعترن در دسترسه! ⚠️
+
+دریافت رایگان کانفیگ اختصاصی
 </div>
 
-## tasiyanc — post 5848
+## tasiyanc — post 5871
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مثل بعضیا دوس ندارم تعریف کنم ولی خب وقتی دو سه نفر کونشور بیاد بگه وصل نیست مجبورم چند تا پیام از لطف عزیزانم رو بهشون بفرستم ❤️‍🔥
+کانفیگ جدید OpenVPN ♻️
+
+تست شده روی همه اپراتورا🚀
+
+@Tasiyanc ✅
 </div>
 
-## tasiyanc — post 5847
+## tasiyanc — post 5869
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیه
+کانفیگ OpenVPN ♻️
+
+تست شده روی همه اپراتورا🚀
+
+@Tasiyanc ✅
 </div>
 
-## tasiyanc — post 5846
+## tasiyanc — post 5868
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاسیان خدایی دمت گرم تنها کانال که کانفینگاش پرسرعته تویی دمت گرم خدایی
+اوکی کنم میفرسم
 </div>
 
-## tasiyanc — post 5845
-
-<div align="center"><img src="files/post_5845_tasiyanc_5845.jpg" alt="Photo"></div>
+## tasiyanc — post 5865
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ناموسا وحشی طور وصله تازه هم استارت زدم
+بعد اتصال ۲۰ تا ۳۰ ثانیه زمان بدید . و بیاید تلگرام یا برید اینستاگرام
 </div>
 
-## tasiyanc — post 5844
+## tasiyanc — post 5864
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هرچی فرستادی وصلع
+📶  اختصاصی تاسیان  📶
+
+ 2 سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
 </div>
 
-## tasiyanc — post 5822
-
-<div align="center"><img src="files/post_5822_tasiyanc_5822.jpg" alt="Photo"></div>
+## tasiyanc — post 5863
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-34k ⚡ Fast 🔥.npvt
+https://t.me/+RTGtcYWb8HdkNjdk
+
+گروه تاسیان
 </div>
 
-## tasiyanc — post 5821
+## tasiyanc — post 5862
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 💫 4Server vip.npvt
+</div>
+
+## tasiyanc — post 5861
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔑 رمز @Tasiyanc ″
 
 📶  اختصاصی تاسیان  📶
 
- 5 سرور  سرعتی🚀
+ 4 سرور  سرعتی🚀
 
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
 
@@ -87,102 +127,55 @@
 🦁  @Tasiyanc ✅
 </div>
 
-## tasiyanc — post 5820
+## tasiyanc — post 5860
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۳۴ هزار شیم سورپرایز دارم
+عجب سرعتی داره داداش کیرتو بخورم دمت گرم❤️
 </div>
 
-## tasiyanc — post 5819
+## tasiyanc — post 5859
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑 رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
+کالافو اپدیت کردم دمت گرم
 </div>
 
-## tasiyanc — post 5818
-
-<div align="center"><img src="files/post_5818_tasiyanc_5818.jpg" alt="Photo"></div>
+## tasiyanc — post 5858
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀 VIP SPEEEEEEEED.npvt
+عالیهههه خدا خیرتون بده
 </div>
 
-## tasiyanc — post 5817
+## tasiyanc — post 5857
+
+<div align="center"><img src="files/post_5857_tasiyanc_5857.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوباره بگم؟
+این سرعتی هم عالیه
 </div>
 
-## tasiyanc — post 5816
+## tasiyanc — post 5856
+
+<div align="center"><img src="files/post_5856_tasiyanc_5856.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-″رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- 3 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
+مشتی همین الان وصل کردم ببین سرعت دانلود
 </div>
 
-## tasiyanc — post 5815
+## tasiyanc — post 5855
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-″رمز @Tasiyanc ″
-
-📱 4 سرور  سرعتی  اختصاصی تاسیان  📱
-
-✅ تست شده روی همه اپراتورا ✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
+خدایی دمتون گرم هرچی بگم کم گفتم همیشه قوی پر سرعت پایدار مرسی بابت زحماتتون
 </div>
 
-## tasiyanc — post 5814
+## tasiyanc — post 5854
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium Fast servers 🔥🌱.npvt
+بهرحال ما ک قطعیم
 </div>
 
-## tasiyanc — post 5813
-
-<div align="center"><img src="files/post_5813_tasiyanc_5813.jpg" alt="Photo"></div>
+## tasiyanc — post 5853
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانسل
-
-گوشیم رو بروز کردم
-</div>
-
-## tasiyanc — post 5812
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیا حق این سرور ۱۶ ریکشن است؟؟
+مثل برخی چنلا باید روزی ۲۰۰ پیام واسه سرور رایگان رضایت بفرستیم؟
 </div>
 
