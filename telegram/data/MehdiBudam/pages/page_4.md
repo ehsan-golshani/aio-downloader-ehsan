@@ -1,8 +1,30 @@
 # آرشیو کانال MehdiBudam - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/20 21:12
+📅 آخرین بروزرسانی: 1405/03/21 08:29
 
 ---
+
+## MehdiBudam — post 8088
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود و تشکر از همراهان همیشگی SlipNet که در دوره قطع و اختلال اینترنت همراهی کردند با توجه به وضعیت فعلی شبکه، می‌تونید از روش‌های زیر برای برقراری اتصال پایدار استفاده کنید: 🟢 ۱. اتصال از طریق Tor (نسخه Full - رایگان) (ویژه کاربران دارای دسترسی به اینترنت)…
+</div>
+
+## MehdiBudam — post 8087
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بالاخره بعد از حدود ۳ ماه، اینترنت تقریباً به حالت قبل برگشت؛ هرچند فیلترینگ و محدودیت‌ها هنوز هم مثل قبل سر جاشونن و عملاً چیزی تغییر نکرده.
+
+تو این مدت خیلیا تلاش کردن که راه ارتباط مردم کامل قطع نشه و هرکسی با هر امکانی که داشت سعی کرد کمکی بکنه. بین همه‌ی اینا، SlipNet واقعاً یکی از پروژه‌هایی بود که خیلی به چشم اومد؛ پروژه‌ای که با وجود این‌همه کاربر و شرایطی که خیلیا ازش برای درآمد استفاده کردن، همچنان رایگان موند و بدون سروصدا به کارش ادامه داد.
+
+واقعاً لازمه از تیم اسلیپ‌نت، مخصوصاً دولوپر خستگی‌ناپذیرش و ایمان عزیز، بابت تمام زحمتی که این مدت کشیدن تشکر بشه. اگر تلاش و وقتی که گذاشتن نبود، کمک کردن به این تعداد آدم اصلاً ساده نبود.
+
+ممنون از همه‌ی کسایی هم که تو این مدت، با حمایت، دونیت، انرژی مثبت یا حتی معرفی پروژه به بقیه باعث شدن این مسیر ادامه پیدا کنه. همین همراهی‌ها باعث شد وسط اون همه فشار، آدم حداقل حس نکنه تنهاست.
+
+امیدوارم یه روز اینترنت آزاد و بدون محدودیت، چیز عجیبی نباشه و همه بدون دردسر بهش دسترسی داشته باشن.
+
+با آرزوی بهترین ها.
+</div>
 
 ## MehdiBudam — post 8086
 
@@ -219,34 +241,6 @@ Pass: @MehdiBudam
 slipnet-bundle-enc://AYIUT4dAbTv0xUl/UpqmqIN+EubjfDTGLG1YEQQRhlsqNCtJKks/mDn/hd8805irVqbHuuYvxn8V6WukeCp28HrKMu4hUnyNREs6rHUi8p6tVayx2LxSa+GX8Z6dIvLJ4XpBeJIZG/r/lMqMDr8au3hAHINQwGLFq+v22DIqB0PPRJZfWiXUJ2rEO8hZNtpnXzBKD9qwAVFFJtueMQRdPCrm3ZjfRvsYgeTFmYT0EtWu3vk8chTyJJnIaOq1jNLNI26as8XGwMMIXERdmrXqyxE+lN226hR5mlWWDay67m9CycR/JcqrGQxlvkrX5DmSwcKn7KBh0drQb2S5TTXT7TGhq8LkFoolqViUzOQVAjyp04ghb2VjDuyqXk1175MnIcQHoHpqL1EVL0y7mOWDJTRk/cSXnpHMlGmGuhHmNzdIjdOvgpLBRJZKkpA0vs74dz5Q1nKHEYaTgvd/BVQHDURkTk0nF8kGih8S5sXWpEW+/lIxNbyrdJMxnNpL+dbaqLbzhzr8qK/Ifas4PyGppIS2PEsgNEVAJC6hnRY4u+HRT/m3P3bR+AEwfdn7aJZlYxssKjvK7dnU1qgrqsO5wHq2B8w42c+rcXgUPkBJsq3KjIUYg01URZApbLfejOmEzwKkdxkUtGBqCwhCicmYzgrr4Y9IfFI/W3+ICS5AXpPqVresrvN1jfLPBO8d0PYLkLhRmqtNJfp7xAEItr4MoMYBCEkOvTF0ShYXQw9dZQztoCaY+qlqRhxATaCBlAhG1NLym7YN7/7sDQboT1NNxO1l7N5OtrWksV3Yme4jrqj4Zzfxg1oyge3ao6mNeQTU323+8p4yEuEo7p4T7BBDXz6Jgw5Ca7b0MQkEtN5B+/+psAO70jE6cLoi4ZpSP8bRCojqM9TOe7oSX5wt6Uou6rSphnl1AO04PSS97KK5SRUQKVPB7m+nFE1LtVJLpk0zfrkdp49b+7clwvsfZ5wUUPzcNXNCIWPZT4MMB/dpu/eKKh0ZXrgq4MFfxxJ8ynwLKDtQTOtOQE+UR+Use0Dr3o+QswZHduMurlaPgCNmfd5TIeJMP868Xi+bvJeJ3Kc=
 
 
-Pass: @MehdiBudam
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-119
-
-
-slipnet-bundle-enc://Aaf1qDl7Ux/YUCgLbSQdOOFzCwLii+dN5epXRagsb+8Rfq+N08CiLSY69WmwkzIUsU3SNim2+dyjMNlYWN6TQQoQNtvN3DguWXxhTxuU7r1gSEU6fhqGUZvYjXjZdWCT6Pl886pwownUMk4SOO1gSrblrd94Vm1cBcqaJRgMaR57N2jKALPI1ctcZ+RVpdBVOgfiwYLgSUnapAmBVOs/ffqoeNbHiWGNkt+2SSA7+AHZndpd1hAiC3Ut9886RKFIVH8kmVQjhgEGB+C3eFtwiw2LeV4hd6U3GVQ3hsW4oAmnv/6iTflkntuSaRnLFJeBWhsuG298LvmQMqYI+r5B8dMl/OsMD/IX11fR4n6SinicDCsUqdbij/DTIdH/XLQPwtFa1BZt38C1Mdl4i0JfW5qowmmEnzF8JVL/xE/BC+KFhj/z4J5i8Od2SF8YtsFY5lE6fs8RIcaDLLzIduW+Oqg4gX0LdNxDkHOqOldDr5knW0+HRdVfIZzvPAeNbCgorAMpu6DSFhquYgNYjUgFoeT9THUWHMNWeP+06y2kvn8FARZ3c2rfcP09HoiTQiQofrPBng0O5mK4elis2RUrgd3SbpjAQgRZ3bPA3F62K0TR/IJtl7/h8CVWihd5u1E7PdF2xWbS7+WpZfHgmuN27rq0xgTC1JmY8LapWtImhn1AvleOB+KkLqgbKVXAffLA8U+8eKPEP4MBkfFOuLF8JsFizbICjAAUmZXDNxIVG5itHtsN6g4tP7iiCaswGXIo1doTWqxL+76ZEbq42BRt6rMyiFSKC17yLKGBmGjGtjxdbgSxfh8C1uSmT6fwfBhfb3uc2PGnpg9W6uU1fB7WCC5gIRBUxS6MTZTBy2ogsfUOTuJ8uoINvg63L21GTPYaugcG39pX9BYRep7h/o3JATJdaLJ75TCXYdFzr0BQjoheLOeOeNWkQ2ZE76Z1rjXbFm4sIQDBsMu2+D86hQ0y8IGA4f5K78rKwCvb8rO7h+TpuvJ18kh6UIEc8L709sYrqoHU+SgfdGrOpPaqR99i6mDKjt8IYsyRgU+p3TIIHA+cFt5jeryXNnJ3QI7kWzOE+d/W
-
-﻿
-Pass: @MehdiBudam
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-118
-
-
-slipnet-bundle-enc://AfDK7HsWg1dQyy7x9m1NEs2cHBnX5Gv3BidMfq1BWSVFRVZmjzDtgnt6R33gk+QXxu97kOnVQMhX/bL6OzB6wCmDOmJXF+bdx/dgGTQkoc5bmANuqGIYZeEZEWVR9/C+hc2stgTyQPdc9XvlUApwQZ3weyNdTLvUnuT9MmWQDIx8oN7XGMPVkwWipIYesrZY+8UaaLWAPBC57y7CGUBMdCyvKnYyjj7JXv3yJKQ5US5jVmndqucQjt6wfkhWkFTYHdUtJFnsIymSMCLE8r4qEJCZ46tAk+gUsYK4Zhvve72IvFpFIG3lfkSRBlLiHo9/+fPjmtPdn2d2lNEGo6R+62r41U8E6yezwmBl3zbfY1NdIYDF99WSZNdHOrNmaqW0DKsYA43DLTa/yT2GY78NTn4Vj0RgUlRrAZIXT0Qte73646aJJtYyh428aQGZjC+Ua1u4h9ue998maw9SLXfYF6UcnERE/Au5lSRjfnxYO9y+BJj4CrPOjFjF0RvLyLgoQl3FOv6jHgm4V6DACy/LWbBtykE485is/k2/dCU3NzIUK9ZTk+HFybSiQNJQlUKbMV1Oup7M2OyRLnLOLDy4gv9mb3jX85c85C4kBc+YYtCNO8PkImtDh0nGXED9OoYckWfNBOl1YBbCr2RO/svOZOSRIQWUXSg5HHy/aVUGAnR5JkNagqYk4fNtQGnfZHjdKpVmFd7/iJkshMvYiafl3Le1lGG4hg7YNS4GNuOTbxxGmo7EegFtwUHBhs1wx7OFmyii/WqsOHM3sJW+yTyzFvCo8smXrpojz68kI4eMrpgIv+cCfdQ2JmUnQ3rQq/KPoQkRu41rQ6O/yVdeOg5t6FUjtLQykv4phTa+xBnIPPanQjyJVoVNRTFD5ZOrgbuKla8iMHkblxERAHs4zsVPQgwawuuNXTDstvUFAFP2YeSrA7UhJJjl1wa9WufgQPdIGDN0CgzreiYwsXFEYtC+Go5BCnaSrh6B/DHRarfdXYKQ9SZTots+mDS1lj3U+C7hwifNp6KpiQwTYMT1bzB5BTezI+/bW8Xt0Bj/8cOX/CAuz9bqFSj5pA32LNc/+a6uz018
-
-﻿
 Pass: @MehdiBudam
 
 @MehdiBudam
