@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/03/22 01:44
+📅 آخرین بروزرسانی: 1405/03/22 03:33
 
 ---
+
+## tasiyanc — post 6145
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن شما به ما انگیزه فعالیت بیشتر میده😐
+</div>
+
+## tasiyanc — post 6144
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+4سرور  سرعتی تست شده رو همراه ، بقیه تست کنن🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6143
 
@@ -188,25 +210,5 @@ Fast2⚡@Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 از وایرگارد راضی بودید ریکشن بزنید کانفیگ بعدیشو تا دقایقی دیگه آماده کنم بفرستم
-</div>
-
-## tasiyanc — post 6120
-
-<div align="center"><video src="files/post_6120_tasiyanc_6120.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6120_tasiyanc_6120.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی از علی
-آموزش ویدیویی کانکت به وایرگارد های تاسیان
-دانلود برنامه Wg tunnel 🕹
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6119
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc چنل تاسیان.conf
 </div>
 
