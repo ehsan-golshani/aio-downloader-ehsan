@@ -1,8 +1,74 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/22 21:54
+📅 آخرین بروزرسانی: 1405/03/23 00:15
 
 ---
+
+## tasiyanc — post 6779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدای توافق در سیریک🤣
+
+@TasiyanProxy
+</div>
+
+## tasiyanc — post 6778
+
+<div align="center"><a href="files/post_6778_[33] 🌎@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [33] 🌎@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6777
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کدوم کانال خارجی دارید می‌بینید مسابقات جام جهانی رو؟
+</div>
+
+## tasiyanc — post 6776
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ NEXUS 🪐.npvt
+</div>
+
+## tasiyanc — post 6775
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ NEXUS 🪐.npvt
+</div>
+
+## tasiyanc — post 6774
+
+<div align="center"><a href="files/post_6774_⚡ NEXUS 🪐.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡ NEXUS 🪐.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6773
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VİP - ⛓️OMEGA ⚡.npvt
+</div>
 
 ## tasiyanc — post 6770
 
@@ -22,8 +88,6 @@
 </div>
 
 ## tasiyanc — post 6768
-
-<div align="center"><a href="files/post_6768_[32] 🇬🇧@Tasiyanc⚡.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [32] 🇬🇧@Tasiyanc⚡.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
@@ -56,8 +120,6 @@ VİP - ⛓️OMEGA ⚡.npvt
 </div>
 
 ## tasiyanc — post 6731
-
-<div align="center"><a href="files/post_6731_VİP - ⛓️OMEGA ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 VİP - ⛓️OMEGA ⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 😎
@@ -122,73 +184,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 این واقعی ترین کلیپ از جنگه، اگه میخواین بدونین نزدیک‌تون یا جایی که هستین موشک بخوره چه اتفاقی میوفته حتما این کلیپ رو ببینین.
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6724
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-INFERNO ⚡ vip.npvt
-</div>
-
-## tasiyanc — post 6723
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ تو تجمعات ببینم تعجب نمیکنم
-</div>
-
-## tasiyanc — post 6722
-
-<div align="center"><img src="files/post_6722_tasiyanc_6722.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐😐
-ترامپ پست عباس عراقچی رو گذاشته X
-توافق اسلام‌آباد تا حالا هیچ‌وقت این‌قدر به نهایی شدن نزدیک نشده بود!
-  
-فعلاً رسانه‌ها درباره جزئیاتش حدس و گمان نزنن، وقتی کار نهایی شد، همه جزئیات رو به‌صورت رسمی به مردم اعلام می‌کنیم.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6721
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[30] 🪐@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6720
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6719
-
-<div align="center"><img src="files/post_6719_tasiyanc_6719.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎬 پیشنهاد سریال
-​📺 نام سریال: The Hunting Party 2025
-⚡️ ژانر: جنایی | درام | اکشن | معمایی
-
-خلاصه داستان:
-داستان از جایی شروع میشه که یک زندان فوق‌سرّی و فوق‌امنیتی که در اعماق زمین پنهان شده بود، بر اثر یک انفجار مشکوک تخریب میشه. با این اتفاق، گروهی از باهوش‌ترین و خطرناک‌ترین قاتلان زنجیره‌ای کشور فرار می‌کنن و دوباره به جامعه برمی‌گردن. حالا «بکس هندرسون» (با بازی ملیسا راکسبورگ)، مأمور و تحلیل‌گر ارشد سابق FBI، به همراه یک تیم زبده از جاسوس‌ها و سربازان وارد عمل میشن تا قبل از اینکه این قاتل‌ها دوباره دست به جنایت بزنن، پیداشون کنن. اما این فقط یک تعقیب و گریز ساده نیست؛ یک توطئه بزرگ پشت این انفجار وجود داره...
-
-⬇️ دانلود یا تماشای بدون سانسور
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-INFERNO ⚡ vip.npvt
 </div>
 
