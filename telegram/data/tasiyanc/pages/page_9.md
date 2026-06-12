@@ -1,8 +1,129 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/03/22 03:33
+📅 آخرین بروزرسانی: 1405/03/22 12:42
 
 ---
+
+## tasiyanc — post 6465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقت الکی نزارید قربونتون برم من
+</div>
+
+## tasiyanc — post 6464
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رباتی ک تون الکی میده اسکمه پرداختی نداره
+</div>
+
+## tasiyanc — post 6460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این ربات تون میده و برداشت شده ازش تایید شده ، میتونید با چند ثانیه وقت گذاشتن به درآمد برسید , برداشت بزنم می‌زارم شاتو خودمم
+https://t.me/gramevents_bot
+
+ارزششو داره برید تست کنین
+
+ادد لیست جهت جوین تو چنلا
+https://t.me/addlist/IiFVViQyys81OWM0
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کمی صحبت؟ ( گپمون)
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6458
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنارووووووووو
+</div>
+
+## tasiyanc — post 6457
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 🇯🇵♻️
+
+تست شده سامانتل - رایتل - وایفای 
+🚀
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6456
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3 سرور پرمیوم متد جدید
+🚀
+
+حجم نامحدود - تمام اپراتور ها 
+⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  
+✔
+
+آموزش اتصال 
+🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6455
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+new@Tasiyanc.ovpn
+</div>
+
+## tasiyanc — post 6453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  OpenVPN♻️
+
+تست شده  سامانتل ، رایتل ، وای‌فای 🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6452
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+300 GB ⚡ VİP.npvt
+</div>
+
+## tasiyanc — post 6451
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🚀⚡.txt
+</div>
+
+## tasiyanc — post 6450
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی تاسیان 🆕
+
+✅160 کانفیگ تست شده
+
+فایل Txt رو باز کنین کانفیگ رو تو آپ NPV & V2BOX & V2RAYNG زیر بزنید پینگ بگیرید وصل شید  🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6449
 
@@ -95,110 +216,5 @@
 
 دریافت کانفینگ رایگان
 دریافت کانفینگ رایگان
-</div>
-
-## tasiyanc — post 6434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡🪐 متد جدید.npvt
-</div>
-
-## tasiyanc — post 6433
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار و پروکسی ⚡️🚀
-https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6431
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡🪐 متد جدید.npvt
-</div>
-
-## tasiyanc — post 6430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۳سرور   سرعتی پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6429
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
-</div>
-
-## tasiyanc — post 6428
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
-</div>
-
-## tasiyanc — post 6427
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST⚡TASIYAN🚀.npvt
-</div>
-
-## tasiyanc — post 6426
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون سپاه :
-آغاز عملیات نصر 🚀
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه مقدار نقض نمک آتش بسه
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر فوری
-هم اکنون حمله اسرائیل به چند سایت راداری در تهران
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6423
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨کانال ۱۲ اسرائیل:
-طی چندساعت اخیر به ۲۰ هدف تو ایران حمله کردیم
-
-@TasiyanProxy
 </div>
 
