@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/03/23 00:15
+📅 آخرین بروزرسانی: 1405/03/23 01:52
 
 ---
+
+## tasiyanc — post 6452
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+300 GB ⚡ VİP.npvt
+</div>
 
 ## tasiyanc — post 6451
 
@@ -193,13 +199,6 @@ FAST⚡TASIYAN🚀.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هم اکنون سپاه :
 آغاز عملیات نصر 🚀
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه مقدار نقض نمک آتش بسه
 @Tasiyanc ✅
 </div>
 
