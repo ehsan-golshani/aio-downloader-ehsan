@@ -1,8 +1,62 @@
 # آرشیو کانال ProxyMTProto - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/03/22 12:40
+📅 آخرین بروزرسانی: 1405/03/22 16:07
 
 ---
+
+## ProxyMTProto — post 47653
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s11.neo-trading.org
+Port: 993
+Secret: ee17b59d905a546c7bf7355cf95c4ecfed7777772e636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47652
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s3.neo-trading.org
+Port: 993
+Secret: eec3fefd89a25d37ca3af1a602c7bfd8de7777772e636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47651
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: otklyuchi-vpn.nolags.pw
+Port: 443
+Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47650
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r10.proxytg.space
+Port: 8443
+Secret: ee65032756d1cfb78ebbd0ea8db83d43937231302e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47649
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hotmtpro2.duckdns.org
+Port: 443
+Secret: 7kBjzU5SbZqTzIJZZEf4Tvp3d3cubWljcm9zb2Z0LmNvbQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47648
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: yard-yaystal-menyat.yard-tg-bot.ru
+Port: 443
+Secret: ee6a441d3845f1bfec1100662ce671d8ed76762e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47647
 
@@ -130,60 +184,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: dns.vdl.lat
 Port: 853
 Secret: ee534adcf23a16f425cbae129c4cb574cb6164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47633
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r11.proxytg.space
-Port: 8443
-Secret: ee4e28f14af6d0e7d9dc65eecb94066c717231312e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47632
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.21.40
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c74617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47631
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fastproxy.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47630
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s25.proxyru.top
-Port: 443
-Secret: eefe281d2bfa13f991ed6be43138e5e14c79612e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47629
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s15.proxyru.top
-Port: 993
-Secret: eefe281d2bfa13f991ed6be43138e5e14c7777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47628
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 2.26.252.43
-Port: 443
-Secret: ee6cc9e422a51432ca4df25293389adef06172746c6562656465762e7275
 @ProxyMTProto
 </div>
 
