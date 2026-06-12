@@ -1,8 +1,14 @@
 # آرشیو کانال MehdiBudam - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/21 23:22
+📅 آخرین بروزرسانی: 1405/03/22 08:26
 
 ---
+
+## MehdiBudam — post 8116
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به اینم توجه کنید که تور کلا رو نسخه لایت و ویندوز کار نمیکنه افراد زیادی بخاطر همین میگن کلا وصل نمیشه.
+</div>
 
 ## MehdiBudam — post 8115
 
@@ -164,11 +170,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚠️این روش آی پی شما را تغییر نمی‌دهد
-</div>
-
-## MehdiBudam — post 8094
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
 </div>
 

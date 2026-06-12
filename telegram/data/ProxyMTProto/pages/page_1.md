@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/22 01:42
+📅 آخرین بروزرسانی: 1405/03/22 08:26
 
 ---
+
+## ProxyMTProto — post 48039
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.proxytelega.store
+Port: 8443
+Secret: ee3d75d4605342be40f01e37f606946e81666173742e70726f787974656c6567612e73746f7265
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48038
 
@@ -175,15 +184,6 @@ Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
 Server: double.nolags.pw
 Port: 443
 Secret: dd96d0f04ace50bb54a492c1415bfff1e5
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48019
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 
