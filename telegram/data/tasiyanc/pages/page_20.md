@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/03/23 14:36
+📅 آخرین بروزرسانی: 1405/03/23 16:32
 
 ---
+
+## tasiyanc — post 6249
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌
+‌ واسه هیچ‌کس نامحدود نباشید ،
+آدما گیگی دوست دارن!!!
+
+‌پروکسی
+@TasiyanProxy ✅
+</div>
+
+## tasiyanc — post 6248
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+BabyGirl 🪐.npvt
+</div>
+
+## tasiyanc — post 6246
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+BabyGirl 🪐.npvt
+</div>
+
+## tasiyanc — post 6245
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6244
 
@@ -144,48 +183,5 @@ HOT 🔥@TASIYANC.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FAST - MCI💥.npvt
-</div>
-
-## tasiyanc — post 6226
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-
-سرور  سرعتی تست شده 
-🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
-✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@TASIYANC 🔥X1B.conf
-</div>
-
-## tasiyanc — post 6224
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB   👑
-
-دانلود  Wg tunnel 🕹
-
-آموزش⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6223
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر💋🦦
 </div>
 
