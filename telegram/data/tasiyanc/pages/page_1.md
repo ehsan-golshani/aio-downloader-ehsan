@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/23 21:53
+📅 آخرین بروزرسانی: 1405/03/23 23:42
 
 ---
+
+## tasiyanc — post 6838
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰٪ چنل با وایرگارد هامون بخوبی وصل میشن فک کنم
+</div>
+
+## tasiyanc — post 6837
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتیجه بازی های جام جهانی تا الان (اتمام نیمه اول )
+
+تیم کمک های اولیه🇨🇭 1 قطر 0 🇶🇦
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6835
+
+<div align="center"><a href="files/post_6835_[39] ⛓️@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [39] ⛓️@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[38]⚡@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6833
+
+<div align="center"><a href="files/post_6833_[38]⚡@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [38]⚡@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6832
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ مخصوص روبیکا
+گیگی ۵۰۰ بدون قطعی🤣🤣🤣
+</div>
+
+## tasiyanc — post 6826
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون بازی شروع شد
+Qatar 🇶🇦 & Switzerland🇨🇭
+</div>
 
 ## tasiyanc — post 6824
 
@@ -20,8 +87,6 @@
 </div>
 
 ## tasiyanc — post 6822
-
-<div align="center"><a href="files/post_6822_[37]🔥@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [37]🔥@Tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
@@ -155,79 +220,5 @@ Vahid online
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6808
-
-<div align="center"><video src="files/post_6808_tasiyanc_6808.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6808_tasiyanc_6808.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 
-👑
-
-حجم و کاربر نامحدود 
-🟢
-
-دانلود 
-📱 WG tunnel 
-🕹 iOS WG
-
-آموزش اتصال 
-⛓
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظر برخی از اعضاء پس توافق حتمیه !
-</div>
-
-## tasiyanc — post 6803
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظر برخی از اعضاء
-پس توافق حتمیه !
-</div>
-
-## tasiyanc — post 6802
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴جزئیات مراسم وداع، تشییع و تدفین علی خامنه ای رسما اعلام شد
-
-شنبه و یکشنبه 13 و 14 تیر (19 و 20 محرم): مراسم وداع با پیکر در مصلای امام خمینی تهران
-
-دوشنبه 15 تیر (21 محرم): مراسم تشییع در تهران.
-
-سه شنبه 16 تیر (22 محرم): مراسم تشییع در شهر قم
-
-پنجشنبه 18 تیر (24 محرم، شب شهادت امام سجاد ): تشییع در مشهد مقدس و سپس خاکسپاری در حرم امام رضا
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6801
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴🆕 حملات سایبری به زیرساخت های تمام بانکای کشور کارت و خدمات اغلب بانک ها از دسترس خارج شده است
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6799
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز فروش به احتمال زیاد باز شه ، آیپی ثابتن سرورا 🦦
-</div>
-
-## tasiyanc — post 6798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بخاطر نمک ریختنتون امروز کلا npv نمیزارم 😍
-فقط در صورتی میزارم ک ریکشن قلب بالای ۲۰۰ تا باشه رو پست
 </div>
 

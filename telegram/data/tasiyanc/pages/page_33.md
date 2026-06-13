@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/03/23 21:53
+📅 آخرین بروزرسانی: 1405/03/23 23:42
 
 ---
+
+## tasiyanc — post 5936
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+-FAST MCI & MTN & RighTel 🔥.npvt
+</div>
+
+## tasiyanc — post 5934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
+
+5سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5932
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑
+Proxy 0
+Proxy 1
+Proxy 2
+Proxy 3
+</div>
+
+## tasiyanc — post 5930
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زاپاس تاسیان ✅ حتما جوین شوید
+https://t.me/TasiyanOwner
+</div>
+
+## tasiyanc — post 5929
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Wifi نت خانگی⚡.npvt
+</div>
+
+## tasiyanc — post 5928
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+
+بیاید گپمون دور هم باشیم
+</div>
 
 ## tasiyanc — post 5927
 
@@ -133,64 +204,5 @@ vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.254:2096?mode=gun&securi
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💙@Tasiyanc🚀Jet.npvt
-</div>
-
-## tasiyanc — post 5913
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  🛜🛜🛜
-
- تک سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5912
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-v2Ray کانفیگ
-هم بزاریم پس راضی هستید فکنم
-</div>
-
-## tasiyanc — post 5911
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 متصل تموم اپراتورا ✅ vless://4e93e8e6-8cc1-4a5b-b577-3d5bcae6ada0@104.17.121.238:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=irdiplomacy.ir.rajanews.com.parstoday.com.donya-e-eqtesad.com…
-</div>
-
-## tasiyanc — post 5910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐
-متصل تموم اپراتورا ✅
-
-vless://4e93e8e6-8cc1-4a5b-b577-3d5bcae6ada0@104.17.121.238:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=irdiplomacy.ir.rajanews.com.parstoday.com.donya-e-eqtesad.com.alalamtv.net.yjc.ir.tehrantimes.com&allowInsecure=0&sni=FAiNT-beliEFst4dReAkTi.WINdler.Co.Uk#%40Tasiyanc
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5909
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New⚡Fast.npvt
-</div>
-
-## tasiyanc — post 5908
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2Vip🇩🇪.npvt
-</div>
-
-## tasiyanc — post 5906
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2Vip🇩🇪.npvt
 </div>
 

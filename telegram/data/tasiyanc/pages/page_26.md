@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/03/23 21:53
+📅 آخرین بروزرسانی: 1405/03/23 23:42
 
 ---
+
+## tasiyanc — post 6121
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از وایرگارد راضی بودید ریکشن بزنید کانفیگ بعدیشو تا دقایقی دیگه آماده کنم بفرستم
+</div>
+
+## tasiyanc — post 6120
+
+<div align="center"><video src="files/post_6120_tasiyanc_6120.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6120_tasiyanc_6120.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارسالی از علی
+آموزش ویدیویی کانکت به وایرگارد های تاسیان
+دانلود برنامه Wg tunnel 🕹
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc چنل تاسیان.conf
+</div>
+
+## tasiyanc — post 6118
+
+<div align="center"><img src="files/post_6118_tasiyanc_6118.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc چنل تاسیان.conf
+</div>
+
+## tasiyanc — post 6117
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نپستر عضو جداناپذیر تاسیانه دوستان نگران نباشید میزاریم ، راه های دیگه رو هم فقط تست میکنیم ❤️
+</div>
+
+## tasiyanc — post 6115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی کانفیگ وایرگارد ✅
+
+تست شده 🎚
+
+دانلود برنامه Wg tunnel 🕹
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظرتون رو داخل کامنت بگید
+</div>
 
 ## tasiyanc — post 6112
 
@@ -122,64 +179,5 @@ https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunne
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6097
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Vip SamanTel ⚡.npvt
-</div>
-
-## tasiyanc — post 6096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-2سرور  سرعتی تست شده رو سامانتل بقیه هم تست کنین🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#تب
-
-⚡️ همونجوری که میدونید کانفیگ فریا بسیار ضعیفن، من خودم جهت مصرف شخصی از اینجا کانفیگ تهیه میکنم با قیمت ارزون و کیفیت بالا گفتم برا شماهم بذارم نیازتون میشه
-
-چنلشون : @nacconfig ⭐️
-ایدی فروش:@nac_config ⭐️
-</div>
-
-## tasiyanc — post 6093
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Ray سامانتل
-vless://1b9e301d-cecd-4eb1-8b36-eef811c2696d@de1.vitok.cc:443?security=reality&encryption=none&pbk=zxzgWvYs4pMN3fEduth1soI1yMZDkynb1bBM4tj85EE&headerType=none&type=tcp&sni=max.ru&sid=5e841fab#%F0%9F%87%A9%F0%9F%87%AA%F0%9F%9A%80%20%40Tasiyanc%20%D8%B3%D8%A7%D9%85%D8%A7%D9%86%D8%AA%D9%84
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6092
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان کانفیگ اوپن ورداشتم یه تغییراتی میدم بعدش میفرستم ❤️
-</div>
-
-## tasiyanc — post 6088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرمیوم سرعتی ⚡.npvt
-</div>
-
-## tasiyanc — post 6087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Channel@Tasiyanc.ovpn
 </div>
 

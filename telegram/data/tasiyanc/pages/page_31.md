@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/03/23 21:53
+📅 آخرین بروزرسانی: 1405/03/23 23:42
 
 ---
+
+## tasiyanc — post 5982
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عشقید به مولا
+</div>
+
+## tasiyanc — post 5981
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنها کسی ک مارو ب نت جهانی وصل کرد در سخت ترین شرایط شما بودی و خدا خیر بده اون کسی ک فقط ی دونه از کانف شمارو فرستاد تو روبیکا و من تونستم حداقل ۲۰نفرو با شما ب نت وصل کنم اونا دعاگوی من و منم دعاگوی شما
+دمتگرم ادم حسابی🙏🏻❤️
+</div>
+
+## tasiyanc — post 5980
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خلاصه این تلگرامو کانفینگاشم میرسه به یه خرداد ماهی 😉😉😉
+</div>
+
+## tasiyanc — post 5979
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عشق تولدت مبارک ، تو گروه هم برات فرستادم ❤️ دوباره با متود جدید وصل شدم ، دمت گرم عالیهههههه
+</div>
+
+## tasiyanc — post 5978
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متد جدید 🔥.npvt
+</div>
+
+## tasiyanc — post 5977
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بازه 5 GB 170 10 GB 310 20 GB 580 30 GB 900 @StarTasiyan ثبت سفارش
+</div>
+
+## tasiyanc — post 5976
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بازه
+5 GB 170
+10 GB 310
+20 GB 580
+30 GB 900
+@StarTasiyan ثبت سفارش
+</div>
 
 ## tasiyanc — post 5975
 
@@ -126,58 +174,5 @@ Gold🥇Vip servers.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5958
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرسی از تبریک های قشنگتون 🥹❤️‍🔥
-بهترین ها نصیبتون شه ایشالا مرسی که هستید ❤️
-</div>
-
-## tasiyanc — post 5957
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎉 امروز تولدمه!
-
-یه کیک بما نمیرسه؟🎂
-30May - 9 خرداد
-
-💘💘💘 💘💘 💘💘
-</div>
-
-## tasiyanc — post 5956
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-TS premium Servers 🌲⚡.npvt
-</div>
-
-## tasiyanc — post 5955
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی تست
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5954
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانسل قوی وصله
-</div>
-
-## tasiyanc — post 5953
-
-<div align="center"><img src="files/post_5953_tasiyanc_5953.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد ۷ ثانیه 😮‍💨
-</div>
-
-## tasiyanc — post 5952
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانسلم میگن وصله
-اره ❤️
-نه 💋
 </div>
 
