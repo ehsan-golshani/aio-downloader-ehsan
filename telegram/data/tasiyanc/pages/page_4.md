@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/23 20:26
+📅 آخرین بروزرسانی: 1405/03/23 21:53
 
 ---
+
+## tasiyanc — post 6716
+
+<div align="center"><img src="files/post_6716_tasiyanc_6716.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴شکیرا در جام جهانی 2006 & 2010 & 2014 & 2026
+
+‏شکیرا حتی از پیکه هم تو فوتبال موفق تره 🤣
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6715
+
+<div align="center"><img src="files/post_6715_tasiyanc_6715.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روز جهانی دوس داشتنو بهتون تبریک میگیم
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6714
+
+<div align="center"><img src="files/post_6714_tasiyanc_6714.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسی و رونالدو اگه ایران بدنیا میومدن :
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 12 June ، روز جهانی تشکر از آدمیه که زندگی رو برات قشنگتر کرده.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6711
+
+<div align="center"><img src="files/post_6711_tasiyanc_6711.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تجمعات شبانه
+گشت ارشاد به چاک سینه توجهی نداره اگه بمالید
+@tasiyanc✅
+</div>
+
+## tasiyanc — post 6710
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن خنده بازه
+</div>
+
+## tasiyanc — post 6709
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺قوه قضایی جمهوری اسلامی حکم اعدام نتانیاهو و ترامپ صادر کرد.
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6708
 
@@ -133,55 +193,5 @@ Rend ⚡ (1).npvt
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6689
-
-## tasiyanc — post 6688
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون ورود جنگنده ها و هواپیماهای سوخترسان برای امضای توافق
-</div>
-
-## tasiyanc — post 6687
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%E2%9A%A1%40Tasiyanc%F0%9F%94%B7
-🌐🇩🇪
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نورالدین الدغیر خبرنگار الجزیره در تهران:
-دیگر همه چیز قطعی و تمام شده
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠⭕️⭕️ ترامپ : خودم احتمالاً نمی‌تونم تو مراسم امضای توافق حضور داشته باشم و ونس به نمایندگی از آمریکا اونجا خواهد بود
-- امضای توافق ممکنه خیلی زود انجام بشه، حتی شاید همین آخر هفته
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6683
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ ترامپ : محل امضای توافق بزودی اعلام میشود
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با توجه به اخبار توافق حتمی می‌باشد ، البته قطعی نیست
 </div>
 

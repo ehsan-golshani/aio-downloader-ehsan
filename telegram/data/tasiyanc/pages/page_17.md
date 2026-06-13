@@ -1,8 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/03/23 20:26
+📅 آخرین بروزرسانی: 1405/03/23 21:53
 
 ---
+
+## tasiyanc — post 6337
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید چخبرا ؟
+</div>
+
+## tasiyanc — post 6334
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی  🇮🇹 🇩🇪 🇳🇱
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🚀
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دولت شیرکاکائوئیا (پاکستانی ها) اینترنت بین الملل رو بخاطر فراخوان اعتراضی بستند
+</div>
+
+## tasiyanc — post 6332
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حال ندارید ریکشن بزنید بریم بخوابیم
+</div>
+
+## tasiyanc — post 6331
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6330
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید گپمون - تبادل کانفیگ & ...
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 6328
 
@@ -136,72 +198,5 @@ Password : @Tasiyanc 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چطوره؟
-</div>
-
-## tasiyanc — post 6310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لوگو چنل مرتبط با اسم تغییراتی کوچک دادیم ، گممون نکنین ❤️
-</div>
-
-## tasiyanc — post 6308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3 سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سندروم Survivor's Guilt:
-حالت روانی‌ای که فرد پس از زنده موندن از یه فاجعه یا تجربه مرگبار با وجود بی تقصیر بودن، دچار احساس گناه از زنده موندن میشه، به ویژه وقتی دیگران آسیب دیده یا جان باختن.
-
-پروکسی • پروکسی
-
-@Tasiyanproxy ✅
-</div>
-
-## tasiyanc — post 6306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB  👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قصد حاشیه با هیچ بنی بشری ام ندارم چون نه حوصله ن وقتشو دارم درکل گفتم زحمتای بقیه رو بعضیا با دو تکست بگ* ندن
-با قدرت در خدمت شما هستیم❤️
-</div>
-
-## tasiyanc — post 6304
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شما باشید فشار نمیخورید؟
-</div>
-
-## tasiyanc — post 6303
-
-<div align="center"><video src="files/post_6303_tasiyanc_6303.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6303_tasiyanc_6303.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
 </div>
 

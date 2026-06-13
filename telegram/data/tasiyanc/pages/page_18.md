@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/03/23 20:26
+📅 آخرین بروزرسانی: 1405/03/23 21:53
 
 ---
+
+## tasiyanc — post 6310
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لوگو چنل مرتبط با اسم تغییراتی کوچک دادیم ، گممون نکنین ❤️
+</div>
+
+## tasiyanc — post 6308
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3 سرور   سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سندروم Survivor's Guilt:
+حالت روانی‌ای که فرد پس از زنده موندن از یه فاجعه یا تجربه مرگبار با وجود بی تقصیر بودن، دچار احساس گناه از زنده موندن میشه، به ویژه وقتی دیگران آسیب دیده یا جان باختن.
+
+پروکسی • پروکسی
+
+@Tasiyanproxy ✅
+</div>
+
+## tasiyanc — post 6306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد XB  👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قصد حاشیه با هیچ بنی بشری ام ندارم چون نه حوصله ن وقتشو دارم درکل گفتم زحمتای بقیه رو بعضیا با دو تکست بگ* ندن
+با قدرت در خدمت شما هستیم❤️
+</div>
+
+## tasiyanc — post 6304
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شما باشید فشار نمیخورید؟
+</div>
+
+## tasiyanc — post 6303
+
+<div align="center"><video src="files/post_6303_tasiyanc_6303.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6303_tasiyanc_6303.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
+</div>
 
 ## tasiyanc — post 6302
 
@@ -140,73 +207,5 @@ Join As @Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡ سرعتی (2).npvt
-</div>
-
-## tasiyanc — post 6286
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Green Eyes ⚡💚.npvt
-</div>
-
-## tasiyanc — post 6285
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد cm  👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش
-⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-MCI - SamanTel - wifi تست شده
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 6283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-الان کسی از چنل رد شه میگه پشمام ریکشن تاسیانو نگا
-</div>
-
-## tasiyanc — post 6282
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور پرومیوم  سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6281
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز 🦦
-</div>
-
-## tasiyanc — post 6280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN سرور فنلاند  ♻️
-
-تست شده با سامانتل بقیه تست کنن 🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
 </div>
 
