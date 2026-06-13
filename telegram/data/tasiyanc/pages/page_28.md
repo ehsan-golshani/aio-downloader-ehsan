@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/03/23 16:32
+📅 آخرین بروزرسانی: 1405/03/23 20:26
 
 ---
+
+## tasiyanc — post 6046
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکم صبر میکنم دیل آک بزنه
+</div>
+
+## tasiyanc — post 6045
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امین زحمت کشید شماره و آدرس و شماره بابای جاکشش درآورده
+</div>
+
+## tasiyanc — post 6044
+
+<div align="center"><img src="files/post_6044_tasiyanc_6044.jpg" alt="Photo"></div>
 
 ## tasiyanc — post 6043
 
@@ -113,25 +129,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نصب نکنید دوستان
 جدی میپرونه
-</div>
-
-## tasiyanc — post 6023
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من فقط جوین شدم که جواب شمارو بدم
-آره مال من پرید
-احراز هویت کردم برگشت
-</div>
-
-## tasiyanc — post 6022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپل آیدی لاک میشه
-</div>
-
-## tasiyanc — post 6021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من سه تا اپل ایدی سرش بگا دادم
 </div>
 

@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/23 16:32
+📅 آخرین بروزرسانی: 1405/03/23 20:26
 
 ---
+
+## tasiyanc — post 6816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨شبکه الجزیره به نقل از سخنگوی وزارت خارجه پاکستان گزارش داد که مراسم «امضای الکترونیکی» توافق میان آمریکا و جمهوری اسلامی یکشنبه ۲۳ خرداد برگزار خواهد کرد. به گفته او، پاکستان میزبان این مراسم خواهد بود و مراسم از طریق «ارتباط ویدیویی و آنلاین» برگزار می‌شود.
+
+او جزئیات بیشتری درباره شرکت‌کنندگان یا مفاد این توافق ارائه نکرد.
+Vahid online
+
+@Tasiyanc ✅ | تاسیـان
+</div>
+
+## tasiyanc — post 6815
+
+<div align="center"><a href="files/post_6815_@Tasiyanc⛓️.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc⛓️.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 📶
+
+تست شده تمام نتها 🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6813
+
+<div align="center"><a href="files/post_6813_VIP ⚡VALKYRIE🚀.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 VIP ⚡VALKYRIE🚀.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6811
 
@@ -35,8 +80,6 @@
 
 <div align="center"><a href="files/post_6809_tasiyanc_6809.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
-<div align="center"><a href="files/post_6809_•VIP KRATUS ⛓️⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 •VIP KRATUS ⛓️⚡.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 
 😎
@@ -64,8 +107,6 @@
 <div align="center"><video src="files/post_6808_tasiyanc_6808.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_6808_tasiyanc_6808.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_6808_[36] 🚀@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [36] 🚀@Tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 
@@ -205,35 +246,6 @@
 دانلود 📱 WG tunnel 🕹 iOS WG
 
 آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه وایر میزارم بخوابم
-</div>
-
-## tasiyanc — post 6785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP⚡ APEX ⛓️.npvt
-</div>
-
-## tasiyanc — post 6784
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc 
 ✅
