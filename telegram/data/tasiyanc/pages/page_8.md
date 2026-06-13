@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/03/23 03:39
+📅 آخرین بروزرسانی: 1405/03/23 12:04
 
 ---
+
+## tasiyanc — post 6554
+
+<div align="center"><img src="files/post_6554_tasiyanc_6554.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون ورود B-52 به خاور میانه
+@Tasiyanproxy 
+✅
+</div>
+
+## tasiyanc — post 6553
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادامه اخبار در چنل پروکسی
+
+https://t.me/TasiyanProxy
+</div>
+
+## tasiyanc — post 6552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸
+🔴ترامپ:
+با بمب افکن های B_2 آنها را بسیار سخت هدف قرار خواهیم داد.
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 
+🔴ترامپ : تا اینجا هم بخاطر پاکستان فرصت داده بودم ، امروز بشدت به ایران ضربه خواهیم زد
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6550
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خلاصه برنامه زیاده ، البته امیدوارم قطعی پیش نیاد
+</div>
+
+## tasiyanc — post 6549
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حتی چنلمون تو اپای ایرانی ام قراره یه جور پرایوت شه اونایی ک ممبر چنلن بیان هر ۲۴ ساعت لینکو عوض میکنم
+</div>
 
 ## tasiyanc — post 6548
 
@@ -149,67 +198,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 لینک گپ تاسیان ❤️‍🔥
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6533
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[24]🚀♂️@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6532
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡موشک - GN 🌙.npvt
-</div>
-
-## tasiyanc — post 6531
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6530
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[23]⚡🇩🇪@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6529
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6527
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-2سرور سرعتی مناسب همه نت ها 🔥
-
-دانلود وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

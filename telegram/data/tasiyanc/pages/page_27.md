@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/03/23 03:39
+📅 آخرین بروزرسانی: 1405/03/23 12:04
 
 ---
+
+## tasiyanc — post 6056
+
+<div align="center"><img src="files/post_6056_tasiyanc_6056.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@ineedknife
+اوبی کونی پدر با من در میوفتی🤣
+</div>
+
+## tasiyanc — post 6055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۵ مین دیگه میزارم
+</div>
+
+## tasiyanc — post 6054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اماده باشین
+</div>
+
+## tasiyanc — post 6053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه چیزای دستم رسیده نمی‌دونم بزارم نزارم🤣
+</div>
+
+## tasiyanc — post 6052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عکس و ..؟
+</div>
+
+## tasiyanc — post 6051
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب بریم به آدرس و شماره تلفن یا چیزای دیگه بدم؟
+</div>
 
 ## tasiyanc — post 6050
 
@@ -93,44 +132,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 واسه منم ظهر پرید ولی دوباره احراز هویت کردم ازم فیلم گرفت و مدارک شناسایی فرستادم درست شد
-</div>
-
-## tasiyanc — post 6032
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکانت منم پریده
-توروخدا میشه کاری کرد برگرده
-پیج کاریم بوده
-</div>
-
-## tasiyanc — post 6031
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جامپ جامپ برای آیفون هم اپل آیدی میپرونه و بات شناسایی میکنه
-لطفا اطلاع رسانی کنید برای دوستانی ک اپل دارن
-</div>
-
-## tasiyanc — post 6030
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مال منم حالا چیکاکنم برکرده
-</div>
-
-## tasiyanc — post 6029
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اره برامنم امروز پرید
-</div>
-
-## tasiyanc — post 6028
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم لیمیت خوردم
-</div>
-
-## tasiyanc — post 6027
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم اکانتم پرید
 </div>
 
