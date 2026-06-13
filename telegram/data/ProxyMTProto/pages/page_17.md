@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/03/23 12:02
+📅 آخرین بروزرسانی: 1405/03/23 14:34
 
 ---
+
+## ProxyMTProto — post 47759
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: usa.nolags.pw
+Port: 443
+Secret: dd1a0658ae4bb081c4270cd674e7b5ef5b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gov.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fridayvpn1.proxyprosto.sbs
+Port: 443
+Secret: ee81aebd9867cc45d05974d953706819d177622e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47755
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47754
 
@@ -139,51 +184,6 @@ Secret: eec38451cb166b3ed3a1bbf1d4e7e382817233332e70726f787974672e7370616365
 Server: 87.58.201.189
 Port: 443
 Secret: ee1caa97e5002aec0421f8c5b04a53c0e37362657262616e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47739
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 89.208.113.182
-Port: 443
-Secret: ee171a9375170afdb5095d7bc9c19cc562766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47738
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47737
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vktop.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rkn.nolags.pw
-Port: 443
-Secret: dd0851e76efbf462822e1ae6c3ac8b7ffa
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47735
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 79.137.205.22
-Port: 443
-Secret: ee47849470a70a19f5e6d0767b7440e90f766b2e636f6d
 @ProxyMTProto
 </div>
 
