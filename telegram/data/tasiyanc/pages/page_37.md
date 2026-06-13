@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/03/23 23:42
+📅 آخرین بروزرسانی: 1405/03/24 01:16
 
 ---
+
+## tasiyanc — post 5851
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دمت گرم داش
+</div>
+
+## tasiyanc — post 5850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایول کارت حرف نداره تاسیان عشقی
+</div>
+
+## tasiyanc — post 5849
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دمتون گرم ، هر کانفیگی گذاشتین وصل شد ، دمتون گرم ، تنها کانالی که پر تلاش برای مردم است ، با تشکر از چنل عالی و خوب تاسیان مرسی
+</div>
+
+## tasiyanc — post 5848
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مثل بعضیا دوس ندارم تعریف کنم ولی خب وقتی دو سه نفر کونشور بیاد بگه وصل نیست مجبورم چند تا پیام از لطف عزیزانم رو بهشون بفرستم ❤️‍🔥
+</div>
+
+## tasiyanc — post 5847
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عالیه
+</div>
+
+## tasiyanc — post 5846
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان خدایی دمت گرم تنها کانال که کانفینگاش پرسرعته تویی دمت گرم خدایی
+</div>
+
+## tasiyanc — post 5845
+
+<div align="center"><img src="files/post_5845_tasiyanc_5845.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ناموسا وحشی طور وصله تازه هم استارت زدم
+</div>
+
+## tasiyanc — post 5844
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هرچی فرستادی وصلع
+</div>
 
 ## tasiyanc — post 5822
 
@@ -147,89 +197,5 @@ Premium Fast servers 🔥🌱.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5810
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موشك داره میاد
-</div>
-
-## tasiyanc — post 5809
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-GM TASIYAN 💝
-</div>
-
-## tasiyanc — post 5808
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور سرعتی  اختصاصی تاسیان  📱
-
-✅ تست شده روی همه اپراتورا ✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5807
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر بار باید بگیم ری اکشن بزنید 😂
-</div>
-
-## tasiyanc — post 5805
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  ۲ سرور آلمان سرعتی  اختصاصی تاسیان  
-📱
-
-
-✅ تست شده روی همه اپراتورا 
-✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چن تا سرور بمب آماده کردم یکیشون تا ۵ مین دیگه میفرستم
-</div>
-
-## tasiyanc — post 5803
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  ۲ سرور vip سرعتی  اختصاصی تاسیان  📱
-
-✅ تست شده روی همه اپراتورا ✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود اپلیکیشن NPV tunnel  ⏩
-
-نحوه اتصال به سرورهای تاسیان ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5801
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن چقد زیاده 😐
 </div>
 
