@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/24 02:23
+📅 آخرین بروزرسانی: 1405/03/24 03:53
 
 ---
+
+## tasiyanc — post 6858
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 
+🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.214:8080#%E2%9A%A1%40Tasiyanc%2001%E2%9A%A1
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.189:8080#%E2%9A%A1%40Tasiyanc%2002%E2%9A%A1
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6857
 
@@ -15,8 +28,6 @@
 <div align="center"><video src="files/post_6856_tasiyanc_6856.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_6856_tasiyanc_6856.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_6856_IVAR ⚡ FAST.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 IVAR ⚡ FAST.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 😎
@@ -40,8 +51,6 @@
 <div align="center"><video src="files/post_6855_tasiyanc_6855.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_6855_tasiyanc_6855.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_6855_[44] ⚡@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [44] ⚡@Tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 
@@ -196,11 +205,5 @@ vless://dc8eccdb-ecfa-435f-9ac1-5dc4882e7b51@162.19.228.119:80?path=%2Fhttp&secu
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هم اکنون بازی شروع شد
 Qatar 🇶🇦 & Switzerland🇨🇭
-</div>
-
-## tasiyanc — post 6824
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به خاطر چس تومن پول میان نمیگن بعضی از چنلا ، راضی ام تا ۱۰۰ سال سیا اینا تبلیغ نزارن رو چنلم
 </div>
 
