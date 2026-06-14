@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/25 01:19
+📅 آخرین بروزرسانی: 1405/03/25 02:31
 
 ---
+
+## tasiyanc — post 6938
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑ساب لینک اختصاصی تاسیان👑 https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt اینو بزنید 🔐🔐 هر ۴ ساعت کانفیگا آپدیت میشن بعد از ۴ ساعت update subscription بزنید تا آپدیت شن @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6937
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آخرش یکی به این ترامپ کسخل نگفت قبل اینکه حمله کنی تنگه باز بود عوارضم نداشت ، الان باز شدن تنگه رو دست آورد بزرگ می‌دونه برا خودش کسخل کله زرد املاکی
+</div>
+
+## tasiyanc — post 6936
+
+<div align="center"><a href="files/post_6936_💚@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 💚@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6935
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حالتون خوبه قربونتون برم من 🥹؟
+</div>
+
+## tasiyanc — post 6934
+
+<div align="center"><a href="files/post_6934_توافق ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 توافق ⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی تست شده  🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6933
 
@@ -82,8 +134,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div align="center"><a href="files/post_6924_tasiyanc_6924.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
-<div align="center"><a href="files/post_6924_FAST ⚡🚀.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 FAST ⚡🚀.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 
 😎
@@ -135,8 +185,6 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 
 <div align="center"><a href="files/post_6919_tasiyanc_6919.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
-<div align="center"><a href="files/post_6919_Fast ⚡@Tasiyanc⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast ⚡@Tasiyanc⚡.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 
 😎
@@ -181,49 +229,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 دریافت کانفیگ نامحدود رایگان
 
 🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
-</div>
-
-## tasiyanc — post 6911
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بخاطر شرایط احتمالا جنگی‌امشب یه چنتا سرور اختصاصی بریم؟
-</div>
-
-## tasiyanc — post 6910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این endpoit هارو جایگزین قبلی کنین (وایرگارد)
-8.6.112.235:1070
-8.6.112.228:1843
-8.6.112.19:908
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6908
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟢 ساب لینک اختصاصی تاسیان 🔹پر سرعت و نامحدود 🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt 🔐 🔐 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟢 ساب لینک اختصاصی تاسیان
-
-🔹پر سرعت و نامحدود
-
-🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید
-
-https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
-
-🔐 🔐
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6904
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب براتون آماده کردم
 </div>
 

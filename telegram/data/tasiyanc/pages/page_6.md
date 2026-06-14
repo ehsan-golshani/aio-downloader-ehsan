@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/03/25 01:19
+📅 آخرین بروزرسانی: 1405/03/25 02:31
 
 ---
+
+## tasiyanc — post 6781
+
+<div align="center"><img src="files/post_6781_tasiyanc_6781.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یادآوری : شات معنادار 😂 اگه گفتید کیه؟
+</div>
+
+## tasiyanc — post 6779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدای توافق در سیریک🤣
+
+@TasiyanProxy
+</div>
+
+## tasiyanc — post 6778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6777
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کدوم کانال خارجی دارید می‌بینید مسابقات جام جهانی رو؟
+</div>
+
+## tasiyanc — post 6776
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ NEXUS 🪐.npvt
+</div>
 
 ## tasiyanc — post 6775
 
@@ -135,47 +177,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 این واقعی ترین کلیپ از جنگه، اگه میخواین بدونین نزدیک‌تون یا جایی که هستین موشک بخوره چه اتفاقی میوفته حتما این کلیپ رو ببینین. @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6725
-
-<div align="center"><video src="files/post_6725_tasiyanc_6725.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6725_tasiyanc_6725.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این واقعی ترین کلیپ از جنگه، اگه میخواین بدونین نزدیک‌تون یا جایی که هستین موشک بخوره چه اتفاقی میوفته حتما این کلیپ رو ببینین.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6724
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-INFERNO ⚡ vip.npvt
-</div>
-
-## tasiyanc — post 6723
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ تو تجمعات ببینم تعجب نمیکنم
-</div>
-
-## tasiyanc — post 6722
-
-<div align="center"><img src="files/post_6722_tasiyanc_6722.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐😐
-ترامپ پست عباس عراقچی رو گذاشته X
-توافق اسلام‌آباد تا حالا هیچ‌وقت این‌قدر به نهایی شدن نزدیک نشده بود!
-  
-فعلاً رسانه‌ها درباره جزئیاتش حدس و گمان نزنن، وقتی کار نهایی شد، همه جزئیات رو به‌صورت رسمی به مردم اعلام می‌کنیم.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6721
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[30] 🪐@Tasiyanc.conf
 </div>
 

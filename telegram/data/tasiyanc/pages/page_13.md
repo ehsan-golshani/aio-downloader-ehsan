@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/03/25 01:19
+📅 آخرین بروزرسانی: 1405/03/25 02:31
 
 ---
+
+## tasiyanc — post 6541
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
+</div>
+
+## tasiyanc — post 6540
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو
+پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
+</div>
+
+## tasiyanc — post 6539
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرزیدنت ترامپ: من نزدیک به دستور دادن حملات جدید به نیروگاه‌ها و پل‌های ایرانی هستم
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+3سرور سرعتی مناسب همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰۰ گیگ ساب گذاشته ادمینا ، پین شد گپ
+</div>
 
 ## tasiyanc — post 6535
 
@@ -150,50 +192,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هم‌ اکنون حملات ایالات متحده آمریکا به جزیره قشم و بندرعباس
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6510
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور متد جدید🚀
-
-نامحدود  - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
-</div>
-
-## tasiyanc — post 6508
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
-</div>
-
-## tasiyanc — post 6507
-
-<div align="center"><img src="files/post_6507_tasiyanc_6507.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔱 @Tasiyanc 🔥.txt
-</div>
-
-## tasiyanc — post 6506
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال زیاد شده 😐
 </div>
 
