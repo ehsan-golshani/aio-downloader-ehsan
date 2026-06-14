@@ -1,8 +1,24 @@
 # آرشیو کانال MehdiBudam - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/23 12:03
+📅 آخرین بروزرسانی: 1405/03/24 12:30
 
 ---
+
+## MehdiBudam — post 8071
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ فروش لف د گروپ.
+</div>
+
+## MehdiBudam — post 8070
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+TCP
+
+79.127.76.226:53,95.38.15.205:53,109.162.251.14:53,185.112.38.46:53,185.140.240.162:53,193.19.144.10:53,95.38.245.146:53,185.124.113.224:53
+
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8069
 
@@ -221,25 +237,5 @@ slipnet-bundle-enc://AZPU2gI5nBxszUjtE0ulLoJnVJA/Wr0mwQntc1EdgMNz6jWyGoXaIsEkV1e
 Pass: @MehdiBudam
 
 @MehdiBudam
-</div>
-
-## MehdiBudam — post 8040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-109
-
-
-slipnet-bundle-enc://AdtSdqSTEtBBogN045YOprvk9gVJe8rCB3HhE1cgDzIApDL3GrDJesg3AkNI7O7MuFcn3EPmx2tQS+3SqxS5v5JCupgoIOFmzvNGnnxiWOlyyJ28HNq1JZrw683M1BtLvQOB8qth5fM9mriWydEJTuihjNVxpIpwbjDNKPXh5j2WA0cotGiD6xF2HK1CPy14aUXbjeaU93T4ZDRhzEcCpnv9JsnWWsayyxZkBgmDVsnjf1UcyjiNjabT72iKLfwRGgcyprdUqV67E3v868I0aztz+Av/KZhHAuMjxbYr2KOt1nw//QTRVyCImouO50CzMxnOec8ahUprdOezSJvdAEwuDehZSXwcmX41c+GNCo7cq+lHkHrZ6CMUTG3HpPtR4WftGuKKgxdbFY10CioAeXfpkLj487tRL3zvbC867GurXCqUbNIV4DAre8cT2n4Rd+vGMl7JOhVZ/h51FGxKgdkn+OwrWBNkog+xIhhXewZIyfVEu4+7VD2vlh4zf4KZ9azMGE9vRqIBoBbSzCoiD+Ev/QNZiXjos1lz1NUVeKbKerikXSSE55zRko1F33ImnUrycRFzmfBIMTQIXRr6lsbap39caD7sL79wvzEMos1XhcKUJKEbLpSq+bnAfa/X3nI19HtSBuBkJRM+NSU1HGsM1JTVvctNKNByYWm9d7almlU/fRPE50bPLswiXdbtQmtFi33wpq+BThx1bigfNoi9rvEQKx01eAqAFzHGIiUtDaFPqDIb7M3oihWc5W+F3QXCSAn9gtgswZhCwcy9o7cgQ1VxGREb7nVA7F+qEveGaO73jm6n1eSVAdV0PI4whB214GWyYRAUQ3UtDXNELSkBkQ2Lb4lo0W+BOwtI0qZXx0bKrI8KBRKoYj4yfFSlbj/b0o6QL9w9FRWaJu2k5G3swVpeGWp9WnUEeRH+JmivZenPkoSaY2WatIm80E4zyat78GP303Wez8Gvd/Rgdr/hfLYKG0qY/M6Ga0ywud8F8oaV/PraE73BVNprMVfiuNTHapXc2bHbU4g9HRenfXldJaK8tD0FS8r4aZ9UA7uTdTkQzyxt03I/HmdbSS6F4pdpXHfCOA==
-
-﻿
-Pass: @MehdiBudam
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8038
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه تشکر هم از همه دوستانی که پستارو تو کانال های خودشون فوروارد میکنن و از طریق استارز و بوست هم حمایت کردن.
 </div>
 

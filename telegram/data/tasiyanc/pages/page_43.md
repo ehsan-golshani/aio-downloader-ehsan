@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/03/24 03:53
+📅 آخرین بروزرسانی: 1405/03/24 12:31
 
 ---
+
+## tasiyanc — post 5704
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 [40 ].npvt
+</div>
+
+## tasiyanc — post 5703
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈ تمام اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5701
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈ سرور 🇫🇮 vip تست شده روی همراه بقیه اپراتورا تست کنن⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5700
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[37] SuperStar Servers⚡.npvt
+</div>
+
+## tasiyanc — post 5699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass @Tasiyanc
+
+
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈5 سرور vip تست شده روی همراه بقیه اپراتورا تست کنن⛈ 
+
+Country: 🇩🇪🇫🇷🇺🇸
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5698
 
@@ -145,50 +197,5 @@ vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=
 🔑تست شده و متصل ✅
 
 💙 @Tasiyanc 😎
-</div>
-
-## tasiyanc — post 5679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان برا دوستانی ک مشکل ورود به گیم دارن📱
-
-⛈سرور vip آلمان - مونیخ همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5678
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور بعدی مخصوص گیمرا
-</div>
-
-## tasiyanc — post 5677
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود📱
-
-⛈سرور vip هلند و آمریکا همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5676
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود📱
-
-⛈سرور vip آلمان همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5675
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب نامحدود بعدی سرور آلمان ثابت
 </div>
 
