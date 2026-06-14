@@ -1,12 +1,122 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/24 15:11
+📅 آخرین بروزرسانی: 1405/03/24 16:56
 
 ---
 
-## tasiyanc — post 6868
+## tasiyanc — post 6882
 
-<div align="center"><a href="files/post_6868_[47]Vip🇩🇪 @Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [47]Vip🇩🇪 @Tasiyanc.conf</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇳🇱🇫🇷⚡⚡.npvt
+</div>
+
+## tasiyanc — post 6881
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ قالیباف 🔗
+سخن گفتن از ادامه مسیر مذاکره ممکن نیست.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6880
+
+<div align="center"><a href="files/post_6880_🇳🇱🇫🇷⚡⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇳🇱🇫🇷⚡⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+3سرور سرعتی تست شده 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpvWklvQTY5UTh5aGNRVjhrYTNQYTNB@82.38.31.11:8080#%40Tasiyanc%20%E2%9B%93%EF%B8%8F
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متاسفانه قضیه خیلی جدیه ( اختلال شدید رو تمام اپراتورا )
+</div>
+
+## tasiyanc — post 6877
+
+<div align="center"><a href="files/post_6877_Mci ⚡🚀.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Mci ⚡🚀.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+2سرور سرعتی تست شده با همراه 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6876
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[48]🚀@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6874
+
+<div align="center"><a href="files/post_6874_[49]♂️@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [49]♂️@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6873
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال شدید رو خطوط همراه داریم دلیلش نمیدونم
+</div>
+
+## tasiyanc — post 6872
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۲ اسرائیل ⭕️⭕️ ❌
+نعیم قاسم فرمانده حزب الله ترور شد
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6871
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[46] 🪐@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6870
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.0.1:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%40Tasiyanc%20DE%20%E2%9A%A1%F0%9F%9A%80 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path…
+</div>
+
+## tasiyanc — post 6868
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
@@ -94,132 +204,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.189:8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ما سرور تکراری رو فایل نمیزاریم همشون تست کنین💋🚀
-</div>
-
-## tasiyanc — post 6856
-
-<div align="center"><video src="files/post_6856_tasiyanc_6856.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6856_tasiyanc_6856.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6855
-
-<div align="center"><video src="files/post_6855_tasiyanc_6855.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6855_tasiyanc_6855.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 
-👑
-
-حجم و کاربر نامحدود 
-🟢
-
-دانلود 
-📱 WG tunnel 
-🕹 iOS WG
-
-آموزش اتصال 
-⛓
-
-T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6851
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساعت 1.30 بامداد شروع بازی 🇧🇷 Brazil - 🇲🇦 Morocco @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6850
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساعت 1.30 بامداد شروع بازی
-🇧🇷 Brazil - 🇲🇦 Morocco
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6849
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بزنید نوش جونتون
-</div>
-
-## tasiyanc — post 6847
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6846
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسلیت به بت زنای محترم
-</div>
-
-## tasiyanc — post 6845
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قطر یکی زد به کمک های اولیه
-</div>
-
-## tasiyanc — post 6844
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✊امروز تولد مودی ترین خردادیه
-دونالد ترامپ متولد ۱۴ ژوئن ۱۹۴۶ است و امروز (یکشنبه ۱۴ ژوئن ۲۰۲۶) وارد ۸۰ سالگی می‌شود.
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6843
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-14 June
-روز جهانی اکسه 😭
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-vless://dc8eccdb-ecfa-435f-9ac1-5dc4882e7b51@162.19.228.119:80?path=%2Fhttp&security=none&encryption=none&host=de.vpnbase.net&type=ws#%5B%40Tasiyanc%5D%20%F0%9F%87%A9%F0%9F%87%AA%20De
-
- T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6838
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۸۰٪ چنل با وایرگارد هامون بخوبی وصل میشن فک کنم
 </div>
 

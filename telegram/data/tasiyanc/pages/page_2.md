@@ -1,8 +1,135 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/24 15:11
+📅 آخرین بروزرسانی: 1405/03/24 16:56
 
 ---
+
+## tasiyanc — post 6856
+
+<div align="center"><video src="files/post_6856_tasiyanc_6856.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6856_tasiyanc_6856.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6855
+
+<div align="center"><video src="files/post_6855_tasiyanc_6855.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6855_tasiyanc_6855.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 
+👑
+
+حجم و کاربر نامحدود 
+🟢
+
+دانلود 
+📱 WG tunnel 
+🕹 iOS WG
+
+آموزش اتصال 
+⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6851
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 1.30 بامداد شروع بازی 🇧🇷 Brazil - 🇲🇦 Morocco @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 1.30 بامداد شروع بازی
+🇧🇷 Brazil - 🇲🇦 Morocco
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6849
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بزنید نوش جونتون
+</div>
+
+## tasiyanc — post 6847
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6846
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسلیت به بت زنای محترم
+</div>
+
+## tasiyanc — post 6845
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قطر یکی زد به کمک های اولیه
+</div>
+
+## tasiyanc — post 6844
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✊امروز تولد مودی ترین خردادیه
+دونالد ترامپ متولد ۱۴ ژوئن ۱۹۴۶ است و امروز (یکشنبه ۱۴ ژوئن ۲۰۲۶) وارد ۸۰ سالگی می‌شود.
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6843
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+14 June
+روز جهانی اکسه 😭
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 🔐
+vless://dc8eccdb-ecfa-435f-9ac1-5dc4882e7b51@162.19.228.119:80?path=%2Fhttp&security=none&encryption=none&host=de.vpnbase.net&type=ws#%5B%40Tasiyanc%5D%20%F0%9F%87%A9%F0%9F%87%AA%20De
+
+ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6838
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰٪ چنل با وایرگارد هامون بخوبی وصل میشن فک کنم
+</div>
 
 ## tasiyanc — post 6837
 
@@ -74,166 +201,5 @@ Qatar 🇶🇦 & Switzerland🇨🇭
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این تبلیغات برای تلگرامه و ربطی به چنل من نداره ، و این فرد کلاهبرداری داره می‌کنه مراقب باشید ، بخاطر ۳ گرون پول امیدوارم بقیه چنلای ک این حرومی داره تبلیغ می‌زاره اعلام کنند تا از ممبراشون کلاهبرداری نشه
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6822
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6821
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ:
-
-اگر توافق نشود؛ ما گزینه نهایی را در اختیار داریم؛ گزینه‌ای که امیدواریم هرگز دوباره مجبور به استفاده از آن نشویم
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6820
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ ترامپ در تروث : توافق فردا امضا می‌شود @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6818
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت هر یک دلار هم اکنون ۱۷۰ تومن
-</div>
-
-## tasiyanc — post 6817
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ ترامپ در تروث : توافق فردا امضا می‌شود
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6816
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨شبکه الجزیره به نقل از سخنگوی وزارت خارجه پاکستان گزارش داد که مراسم «امضای الکترونیکی» توافق میان آمریکا و جمهوری اسلامی یکشنبه ۲۳ خرداد برگزار خواهد کرد. به گفته او، پاکستان میزبان این مراسم خواهد بود و مراسم از طریق «ارتباط ویدیویی و آنلاین» برگزار می‌شود.
-
-او جزئیات بیشتری درباره شرکت‌کنندگان یا مفاد این توافق ارائه نکرد.
-Vahid online
-
-@Tasiyanc ✅ | تاسیـان
-</div>
-
-## tasiyanc — post 6815
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  Ovpn 📶
-
-تست شده تمام نتها 🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6813
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به درخواست همراه اولیا گذاشتم ، شیرخورشید 88.221.169.217 88.221.169.207 88.221.169.38 88.221.169.11 88.221.169.18 88.221.169.28 88.221.169.132 88.221.169.127 88.221.169.107 88.221.169.121 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6810
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به درخواست همراه اولیا گذاشتم ، شیرخورشید
-88.221.169.217
-88.221.169.207
-88.221.169.38
-88.221.169.11
-88.221.169.18
-88.221.169.28
-88.221.169.132
-88.221.169.127
-88.221.169.107
-88.221.169.121
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6809
-
-<div align="center"><video src="files/post_6809_tasiyanc_6809.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6809_tasiyanc_6809.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-۳سرور سرعتی همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6808
-
-<div align="center"><video src="files/post_6808_tasiyanc_6808.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6808_tasiyanc_6808.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 
-👑
-
-حجم و کاربر نامحدود 
-🟢
-
-دانلود 
-📱 WG tunnel 
-🕹 iOS WG
-
-آموزش اتصال 
-⛓
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

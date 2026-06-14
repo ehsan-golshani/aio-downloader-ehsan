@@ -1,8 +1,122 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/03/24 15:11
+📅 آخرین بروزرسانی: 1405/03/24 16:56
 
 ---
+
+## tasiyanc — post 6358
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی ⚡ sv 3.npvt
+</div>
+
+## tasiyanc — post 6357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۳سرور   سرعتی تست شده با همراه 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
+
+دانلود  NPV tunnel  🌐
+
+😬Password :″ @Tasiyanc  ″
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6356
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+گپمون هنو ۴ کا نشده 🗽😐 جوین شید عشقا
+</div>
+
+## tasiyanc — post 6355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سری چنلهای عزیز هم ک باهاشون رفیقم فور میکنن بدون اینکه دیکد کنن ، جا داره ازشون تشکر کنم ❤️‍🔥
+</div>
+
+## tasiyanc — post 6354
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشتی لاقل اجازه بده ممبرای خودم وصل شن بعد
+</div>
+
+## tasiyanc — post 6353
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ع سرورای تاسیان اسکی می‌ره پسوردم می‌زاره و میگه بیاید تشکر کنین ازم
+ساعت ۲۱.۱۸ سرور میزنم پنج دقیقه بعدش دیکد می‌کنه ، آدم میمونه چی بگه
+</div>
+
+## tasiyanc — post 6352
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6351
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST @Tasiyanc servers.txt
+</div>
+
+## tasiyanc — post 6349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+5سرور   سرعتی  🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🔥
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6348
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کلاینت OLCNG ✅
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6346
+
+<div align="center"><img src="files/post_6346_tasiyanc_6346.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معرفی 📶 OLCNG  ☑️
+
+یک پروژه متن‌باز اندرویدی با تمرکز بر سرعت، سادگی و مدیریت آسان کانفیگ‌های پروکسی و VPN. این پروژه توسط تیم توسعه‌دهنده OpenLibre Community توسعه داده می‌شود و کدهای آن به‌صورت عمومی در گیت‌هاب منتشر شده است.
+
+🔺 متن‌باز و قابل بررسی
+🔺 رابط کاربری سبک و ساده
+🔺 به‌روزرسانی و توسعه مداوم توسط جامعه توسعه‌دهندگان
+🔺 مناسب برای استفاده از کانفیگ‌های مختلف در اندروید
+پروژه OLCNG یکی از محصولات OpenLibre Community است که با هدف ارائه ابزاری سریع و ساده برای مدیریت اتصال‌های مبتنی بر پروکسی توسعه داده شده است.
+Join As @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6345
 
@@ -92,119 +206,5 @@ Join As @Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خوبید چخبرا ؟
-</div>
-
-## tasiyanc — post 6334
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور   سرعتی  🇮🇹 🇩🇪 🇳🇱
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🚀
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دولت شیرکاکائوئیا (پاکستانی ها) اینترنت بین الملل رو بخاطر فراخوان اعتراضی بستند
-</div>
-
-## tasiyanc — post 6332
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حال ندارید ریکشن بزنید بریم بخوابیم
-</div>
-
-## tasiyanc — post 6331
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید گپمون - تبادل کانفیگ & ...
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN♻️
-تست شده  🚀
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6327
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۰٪ کانفیگای ک روزهای گذشته گذاشتیم وصله
-</div>
-
-## tasiyanc — post 6326
-
-<div align="center"><img src="files/post_6326_tasiyanc_6326.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DE - Fast 🇩🇪⚡.npvt
-</div>
-
-## tasiyanc — post 6325
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور   سرعتی آلمان 🇩🇪
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  
-⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6324
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز در راه است
-</div>
-
-## tasiyanc — post 6323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐 ریکشن ۵ تا؟
-</div>
-
-## tasiyanc — post 6322
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۲سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  
-⏩
-
-✔️ @Tasiyanc ✅
 </div>
 
