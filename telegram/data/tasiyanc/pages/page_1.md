@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/24 20:36
+📅 آخرین بروزرسانی: 1405/03/24 21:57
 
 ---
+
+## tasiyanc — post 6908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢 ساب لینک اختصاصی تاسیان 🔹پر سرعت و نامحدود 🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt 🔐 🔐 ✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6905
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢 ساب لینک اختصاصی تاسیان
+
+🔹پر سرعت و نامحدود
+
+🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید
+
+https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
+
+🔐 🔐
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6904
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب براتون آماده کردم
+</div>
 
 ## tasiyanc — post 6903
 
@@ -167,38 +195,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [46] 🪐@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6870
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.0.1:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%40Tasiyanc%20DE%20%E2%9A%A1%F0%9F%9A%80 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path…
-</div>
-
-## tasiyanc — post 6868
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 
-🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6866
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.0.1:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%40Tasiyanc%20DE%20%E2%9A%A1%F0%9F%9A%80
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc%20%E2%9A%A1
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@pishdad.org:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA02%20%40Tasiyanc%20%E2%9A%A1
-100 GB fast servers 🚀 🇩🇪
-✔️ T.me/Tasiyanc ✅
 </div>
 
