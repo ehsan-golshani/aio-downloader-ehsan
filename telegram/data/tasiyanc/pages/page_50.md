@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/03/24 12:31
+📅 آخرین بروزرسانی: 1405/03/24 15:11
 
 ---
+
+## tasiyanc — post 5498
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کدوم بزاریم ؟
+NPV ❤️
+
+Psiphon v2Ray 🔥
+</div>
 
 ## tasiyanc — post 5497
 

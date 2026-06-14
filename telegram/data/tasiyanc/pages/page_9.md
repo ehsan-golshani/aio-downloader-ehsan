@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/03/24 12:31
+📅 آخرین بروزرسانی: 1405/03/24 15:11
 
 ---
+
+## tasiyanc — post 6599
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
+</div>
 
 ## tasiyanc — post 6598
 
@@ -197,13 +203,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✊🔴ترامپ : ما واقعاً به توافق نزدیک بودیم - اما آنها همچنان ما را به بازی می‌گیرند.
 آنها مدام ما را احمق جلوه می‌دهند، چون می‌دانید چیست؟ آنها با چند رئیس جمهور بسیار احمق معامله کردن
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6560
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وزیر دفاع اسراییل کاتز:ارتش اسرائیل آماده حمله‌ای بسیار قوی به ایران است
 @Tasiyanc ✅
 </div>
 
