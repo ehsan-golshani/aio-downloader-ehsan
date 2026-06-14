@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/03/24 01:14
+📅 آخرین بروزرسانی: 1405/03/24 08:52
 
 ---
+
+## ProxyMTProto — post 47797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: comet.quickrouteapp.xyz
+Port: 8443
+Secret: ee6af7e9e830f53cc4f18a0b2cff3475a6636f6d65742e717569636b726f7574656170702e78797a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 161.97.167.251
+Port: 443
+Secret: eec14b841016ce9b05f48e9ed7f2d9de9e676f6f676c65617069732e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47795
 
@@ -163,24 +181,6 @@ Secret: dd723f44bd19ff50a431878c6b2d0b46a0
 Server: eboybey.flowaccess.site
 Port: 8443
 Secret: ee1a3341522f265448a11cbb608f42166f65626f796265792e666c6f776163636573732e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47776
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp8.sosproxy.space
-Port: 443
-Secret: eee9dab8aa5e5ede020088b669a17b907864726976652e676f6f676c652e636f6d
 @ProxyMTProto
 </div>
 
