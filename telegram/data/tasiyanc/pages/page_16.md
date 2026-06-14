@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/03/24 21:57
+📅 آخرین بروزرسانی: 1405/03/24 23:45
 
 ---
+
+## tasiyanc — post 6428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
+</div>
+
+## tasiyanc — post 6427
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST⚡TASIYAN🚀.npvt
+</div>
+
+## tasiyanc — post 6426
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون سپاه :
+آغاز عملیات نصر 🚀
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6425
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه مقدار نقض نمک آتش بسه
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6424
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر فوری
+هم اکنون حمله اسرائیل به چند سایت راداری در تهران
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6423
 
@@ -149,71 +184,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 فایل Txt رو باز کنین کانفیگارو کپی کنین بریزید V2Box 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6404
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتا داره بگ* می‌ره اختلال رو همراه اول
-</div>
-
-## tasiyanc — post 6403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور   سرعتی پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6402
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6401
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه خبر ها + پروکسی های تاسیان
-
-@Tasiyanproxy
-@Tasiyanproxy
 </div>
 
