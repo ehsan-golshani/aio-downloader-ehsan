@@ -1,8 +1,82 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/03/25 20:11
+📅 آخرین بروزرسانی: 1405/03/25 23:54
 
 ---
+
+## tasiyanc — post 6567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+DhVkjFb6qhZmYTFk
+گپ تاسیان - تحلیلگران جنگ بیان
+</div>
+
+## tasiyanc — post 6566
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی مناسب همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6561
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✊🔴ترامپ : ما واقعاً به توافق نزدیک بودیم - اما آنها همچنان ما را به بازی می‌گیرند.
+آنها مدام ما را احمق جلوه می‌دهند، چون می‌دانید چیست؟ آنها با چند رئیس جمهور بسیار احمق معامله کردن
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6560
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وزیر دفاع اسراییل کاتز:ارتش اسرائیل آماده حمله‌ای بسیار قوی به ایران است
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6559
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 فوووری بعد اعلام رسمی ترامپ که‌گفت امشب جنگ‌رو شروع میکنیم و به ایران حمله میکنیم  احتمال قطع شدن نت بشدددتتت بالاست تصمیم‌گرفتیم براتون کانفینگ اختصاصی بزاریم داخل بات‌مخصوص نت ملی که یوقت  قطع نشید 
+🚀 تست‌شده مخصوص نت‌ملیهههه نیاز داشتید برید برداریدد…
+</div>
+
+## tasiyanc — post 6556
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 فوووری بعد اعلام رسمی ترامپ که‌گفت امشب جنگ‌رو شروع میکنیم و به ایران حمله میکنیم  احتمال قطع شدن نت بشدددتتت بالاست
+
+تصمیم‌گرفتیم براتون کانفینگ اختصاصی بزاریم داخل بات‌مخصوص نت ملی که یوقت  قطع نشید 
+🚀
+
+تست‌شده مخصوص نت‌ملیهههه نیاز داشتید برید برداریدد حتما
+❤
+
+دریافت کانفینگ اختصاصی
+دریافت کانفینگ اختصاصی
+</div>
 
 ## tasiyanc — post 6555
 
@@ -143,81 +217,5 @@ https://t.me/TasiyanProxy
 ⭕️
 ⭕️
 ⭕️
-</div>
-
-## tasiyanc — post 6542
-
-<div align="center"><video src="files/post_6542_tasiyanc_6542.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6542_tasiyanc_6542.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-4سرور سرعتی مناسب همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6541
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
-</div>
-
-## tasiyanc — post 6540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو
-پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
-</div>
-
-## tasiyanc — post 6539
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرزیدنت ترامپ: من نزدیک به دستور دادن حملات جدید به نیروگاه‌ها و پل‌های ایرانی هستم
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-3سرور سرعتی مناسب همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۸۰۰ گیگ ساب گذاشته ادمینا ، پین شد گپ
-</div>
-
-## tasiyanc — post 6535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لینک گپ تاسیان ❤️‍🔥 https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 
