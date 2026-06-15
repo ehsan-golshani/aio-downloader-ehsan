@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/03/25 03:57
+📅 آخرین بروزرسانی: 1405/03/25 09:17
 
 ---
+
+## tasiyanc — post 6280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN سرور فنلاند  ♻️
+
+تست شده با سامانتل بقیه تست کنن 🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6277
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده با سامانتل و ایرانسل🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6276
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم ⏩ @TasiyanProxy ⏩ @TasiyanProxy
+</div>
 
 ## tasiyanc — post 6275
 
@@ -196,30 +232,6 @@ BabyGirl 🪐.npvt
 دانلود  Wg tunnel 🕹
 
 دانلود iOS 🍏
-
-آموزش⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6253
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐🇩🇪 @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6252
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐🇩🇪 @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6251
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB سرور آلمان  👑
-
-دانلود  Wg tunnel 🕹
 
 آموزش⏩
 

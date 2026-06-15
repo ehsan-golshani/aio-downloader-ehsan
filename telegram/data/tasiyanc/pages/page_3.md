@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/25 03:57
+📅 آخرین بروزرسانی: 1405/03/25 09:17
 
 ---
+
+## tasiyanc — post 6878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متاسفانه قضیه خیلی جدیه ( اختلال شدید رو تمام اپراتورا )
+</div>
+
+## tasiyanc — post 6877
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+2سرور سرعتی تست شده با همراه 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6876
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[48]🚀@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6874
 
@@ -192,32 +220,5 @@ T.me/Tasiyanc ✅
 ساعت 1.30 بامداد شروع بازی
 🇧🇷 Brazil - 🇲🇦 Morocco
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6849
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بزنید نوش جونتون
-</div>
-
-## tasiyanc — post 6847
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6846
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسلیت به بت زنای محترم
 </div>
 
