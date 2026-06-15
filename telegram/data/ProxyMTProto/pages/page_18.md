@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/03/25 23:52
+📅 آخرین بروزرسانی: 1405/03/26 02:10
 
 ---
+
+## ProxyMTProto — post 47816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: turbo.quickrouteapp.xyz
+Port: 8443
+Secret: ee7e87773423c90bb0792a4e005f54119d747572626f2e717569636b726f7574656170702e78797a
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47815
 
@@ -172,15 +181,6 @@ Secret: ee44d2e25cbb26272ed5fd03eaf805c5f262726f777365722e79616e6465782e636f6d
 Server: comet.quickrouteapp.xyz
 Port: 8443
 Secret: ee6af7e9e830f53cc4f18a0b2cff3475a6636f6d65742e717569636b726f7574656170702e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 161.97.167.251
-Port: 443
-Secret: eec14b841016ce9b05f48e9ed7f2d9de9e676f6f676c65617069732e636f6d
 @ProxyMTProto
 </div>
 
