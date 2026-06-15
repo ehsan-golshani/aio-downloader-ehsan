@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/03/25 02:31
+📅 آخرین بروزرسانی: 1405/03/25 03:57
 
 ---
+
+## tasiyanc — post 5965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی - 🇫🇷
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5963
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ npv سرعت بالا (تست)
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 5960
 
@@ -155,16 +169,4 @@ TS premium Servers 🌲⚡.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک دقیقه نیست استارت کردم ، بهترین کانال جهانی دمت گرم ، عالیی ،🙏🙏❤️❤️
 </div>
-
-## tasiyanc — post 5941
-
-<div align="center"><img src="files/post_5941_tasiyanc_5941.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی🤭
-</div>
-
-## tasiyanc — post 5940
-
-<div align="center"><img src="files/post_5940_tasiyanc_5940.jpg" alt="Photo"></div>
 

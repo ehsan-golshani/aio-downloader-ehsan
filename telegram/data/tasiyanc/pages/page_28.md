@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/03/25 02:31
+📅 آخرین بروزرسانی: 1405/03/25 03:57
 
 ---
+
+## tasiyanc — post 6150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New🚀@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6149
+
+<div align="center"><img src="files/post_6149_tasiyanc_6149.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دو دقیقه نیست استارت خورد ، دمت گرم عشقی. بمبه
+</div>
 
 ## tasiyanc — post 6148
 
@@ -191,26 +205,5 @@ Fast2⚡@Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡Premium Fast 🗿.npvt
-</div>
-
-## tasiyanc — post 6126
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هردفم باید بگیم دیگه ری اکشنو😭
-</div>
-
-## tasiyanc — post 6124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی کانفیگ وایرگارد ✅
-
-تست شده 🎚
-
-دانلود برنامه Wg tunnel 🕹
-
-آموزش ویدیویی ⏩
-
-@Tasiyanc 
-✅
 </div>
 

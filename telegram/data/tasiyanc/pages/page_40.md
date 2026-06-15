@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/03/25 02:31
+📅 آخرین بروزرسانی: 1405/03/25 03:57
 
 ---
+
+## tasiyanc — post 5847
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عالیه
+</div>
+
+## tasiyanc — post 5846
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان خدایی دمت گرم تنها کانال که کانفینگاش پرسرعته تویی دمت گرم خدایی
+</div>
 
 ## tasiyanc — post 5845
 
@@ -196,31 +208,5 @@ GM TASIYAN 💝
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هر بار باید بگیم ری اکشن بزنید 😂
-</div>
-
-## tasiyanc — post 5805
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  ۲ سرور آلمان سرعتی  اختصاصی تاسیان  
-📱
-
-
-✅ تست شده روی همه اپراتورا 
-✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چن تا سرور بمب آماده کردم یکیشون تا ۵ مین دیگه میفرستم
 </div>
 

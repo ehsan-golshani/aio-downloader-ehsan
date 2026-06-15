@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/25 02:31
+📅 آخرین بروزرسانی: 1405/03/25 03:57
 
 ---
+
+## tasiyanc — post 6940
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Vip SPEED ⚡⚡.npvt
+</div>
+
+## tasiyanc — post 6939
+
+<div align="center"><a href="files/post_6939_Vip SPEED ⚡⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Vip SPEED ⚡⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی تست شده  🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6938
 
@@ -17,8 +41,6 @@
 </div>
 
 ## tasiyanc — post 6936
-
-<div align="center"><a href="files/post_6936_💚@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 💚@Tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
@@ -39,8 +61,6 @@ T.me/Tasiyanc ✅
 </div>
 
 ## tasiyanc — post 6934
-
-<div align="center"><a href="files/post_6934_توافق ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 توافق ⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 😎
@@ -211,23 +231,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 زودتر برید بردارید عشقا  واسه چنلا هم از اینجا جوین شید که یراست توی ربات کانفینگو بگیرید👇😋 @TelNegah @BLUEGUARD_NEWSS @VLinews @kamkarstore
-</div>
-
-## tasiyanc — post 6913
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📊 حجم : نامحدود  |  ⏳انقضا : 30Day 📶 وضعیت اتصال : فعال ✅ ⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید دریافت کانفیگ نامحدود رایگان 🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
-</div>
-
-## tasiyanc — post 6912
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📊 حجم : نامحدود  |  ⏳انقضا : 30Day
-📶 وضعیت اتصال : فعال ✅
-⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید
-
-دریافت کانفیگ نامحدود رایگان
-
-🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
 </div>
 
