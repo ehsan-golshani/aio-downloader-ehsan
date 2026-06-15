@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/24 12:30
+📅 آخرین بروزرسانی: 1405/03/25 15:12
 
 ---
+
+## MehdiBudam — post 8101
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان میگن Snowflake با برنامه های Orbot و Invisible pro هم وصل میشه.
+</div>
+
+## MehdiBudam — post 8100
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گفته یکی از دوستان تور رو با لینوکس و ترموکس تست کردن با اپدیت خود لینوکس راحت وصل شدن.
+</div>
 
 ## MehdiBudam — post 8099
 
@@ -189,17 +201,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 125,126,127 slipnet-bundle-enc://AcRs+ZhYNvAPJf6ViRG+EWReCFNI6egNY/ueiJvfEGx3/gxa9yZUjhl4PHH9WsfbSURE7i9HIWsc6K5cIJg0Se3nwt+NJQ7/z9KbQHFBzQ5Rtv2aGDD/T8bpZD9uXEwwdPB6GMAxkZw2qCd1aDPwpevE8UayiRSws8zdIXiJt3xx9e4z1FASHAKyxdhYjC+JgZ1MXGnHhcsUIW4aEMDpP33dI37I0…
-</div>
-
-## MehdiBudam — post 8073
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بالاخره اینا هم میگذره ولی برخورد آدما تو این روزا فراموش نمیشه.
-</div>
-
-## MehdiBudam — post 8072
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از دوستانی که میگفتن گیگی ۶۰۰ نمیصرفه ولی الان ۵ میصرفه چخبر.
 </div>
 
