@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/03/26 02:10
+📅 آخرین بروزرسانی: 1405/03/26 09:47
 
 ---
+
+## ProxyMTProto — post 47660
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Iran
+Port: 8443
+Secret: dd79e7010200010007f0030386e24c3add
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp.webvirt.cloud
+Port: 443
+Secret: ee938dd87467bc49301de2e9765cf20f4374656c2e776562766972742e636c6f7564
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47658
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 853a.mtproxygram.pro
+Port: 853
+Secret: ee38f6acb959381bc6816ce7ccc2a213c162726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47657
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r20.proxytg.space
+Port: 8443
+Secret: ee882e7f1447939817016bb33afc4fe86c7232302e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47656
 
@@ -146,44 +182,5 @@ Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
 
 Подключайтесь и оставайтесь онлайн
 جوین شید و متصل بمونید 👇
-</div>
-
-## ProxyMTProto — post 47640
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: otklyuchi-vpn.nolags.pw
-Port: 443
-Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47639
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: For Iran
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47638
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 194.154.25.238
-Port: 443
-Secret: 886ace76f7a9a1e3219537fe5dfd04d5
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47637
-
-<div align="center"><img src="files/post_47637_ProxyMTProto_47637.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🫶 Welcome back #Iran! Metrics show a further rise in connectivity as mobile networks and other segments are reconnected to the global internet:
-
-• Filternet remains in place but can be worked around
-• WhatsApp now restricted, requiring circumvention
-• Some users still offline
 </div>
 

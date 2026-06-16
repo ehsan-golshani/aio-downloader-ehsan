@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/03/26 02:10
+📅 آخرین بروزرسانی: 1405/03/26 09:47
 
 ---
+
+## ProxyMTProto — post 47960
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy2.arixo.shop
+Port: 443
+Secret: ee2d3817c6b2bf469fb5064e6cb4b19790617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47959
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: goal.chunkycorp.shop
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47958
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: eng.nolags.pw
+Port: 443
+Secret: dd390d29157d7c81eb7ce6ac2b50d2d39b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47957
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 15
+Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47956
 
@@ -145,42 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: fresh.nolags.pw
 Port: 443
 Secret: dd691fa48fcc661b68fe4f5200c5b174f9
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47940
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 2053
-Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47939
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s3.mowork.twc1.net
-Port: 443
-Secret: ee90872f20ccc37e3aa2681602f51df71273332e6d6f776f726b2e747763312e6e6574
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47938
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: russia2.loveproxy.xyz
-Port: 443
-Secret: dddf514ae4da112140933c25803d720852
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47937
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 
