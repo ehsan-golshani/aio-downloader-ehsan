@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/03/26 23:28
+📅 آخرین بروزرسانی: 1405/03/27 01:55
 
 ---
+
+## tasiyanc — post 5796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡.npvt
+</div>
+
+## tasiyanc — post 5795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈2سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5794
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️خبرگذاری فارس سه انفجار مهیب در بندرعباس را تایید کرد
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♨️ | آواکس‌های E-3G نیروی هوایی ایالات متحده از عربستان سعودی، P-8A Poseidon از اردن، تانکرهای سوخت از اسرائیل و جت‌های جنگنده بر فراز خلیج فارس فعال هستند
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♨️ فعال شدن پدافند در بندرعباس
+</div>
 
 ## tasiyanc — post 5791
 
@@ -137,44 +176,5 @@ CHATGBT ✅
 ارسالی
 Chatgpt Grok
 برای ایرانسل الان باز شد
-</div>
-
-## tasiyanc — post 5771
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🔐 MCI - tst
-vless://4dc0eec9-f0e1-4755-be7e-7ba628522d1b@91.99.145.207:443?path=%2F&security=none&encryption=none&type=ws#%40Tasiyanc%20%F0%9F%A6%82
-@Tasiyanc
-</div>
-
-## tasiyanc — post 5768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگا روی رایتل تست شدن و همشون مثل موشک کار میدن بقیه هم تست کنن 💋
-</div>
-
-## tasiyanc — post 5767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈4 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن 😐😐?
-</div>
-
-## tasiyanc — post 5765
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-PREMIUM 💥.npvt
 </div>
 
