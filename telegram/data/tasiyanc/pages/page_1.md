@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/26 02:12
+📅 آخرین بروزرسانی: 1405/03/26 03:55
 
 ---
+
+## tasiyanc — post 7025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک از ماهواره نتونستن بگیرن میتونن از این سایت بدون نیاز به VPN از این شبکه ببینن
+TRT 1
+https://ritsatv.ru/mobile-version/movie-id901190-trt1
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بخاطر اون ۶۴۰۰۰ نفر بیدارم بازیو ببینیم
+</div>
+
+## tasiyanc — post 7022
+
+<div align="center"><video src="files/post_7022_tasiyanc_7022.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7022_tasiyanc_7022.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_7022_[56]@Tasiyanc🍓.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [56]@Tasiyanc🍓.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 
+📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7017
 
@@ -15,8 +51,6 @@
 <div align="center"><video src="files/post_7016_tasiyanc_7016.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7016_tasiyanc_7016.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7016_🍓@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🍓@Tasiyanc.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  Ovpn سرور 🇸🇰📶
@@ -37,8 +71,6 @@
 <div align="center"><video src="files/post_7015_tasiyanc_7015.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7015_tasiyanc_7015.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7015_⚡@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡@Tasiyanc.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  Ovpn 📶
@@ -75,8 +107,6 @@ matador ⚡ Fast.npvt
 <div align="center"><video src="files/post_7010_tasiyanc_7010.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7010_tasiyanc_7010.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7010_matador ⚡ Fast.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 matador ⚡ Fast.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
@@ -236,25 +266,5 @@ NPV Tunnel
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از این به بعد ۲ فایل یه جا میزاریم
-یکی NPV TUNNEL یکی HTTPCUSTUM
-هر کی هر کدوم دوست داره وصل شه
-</div>
-
-## tasiyanc — post 6984
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡⚡@Taisyanc.hc
-</div>
-
-## tasiyanc — post 6983
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡⚡@Taisyanc.hc
 </div>
 

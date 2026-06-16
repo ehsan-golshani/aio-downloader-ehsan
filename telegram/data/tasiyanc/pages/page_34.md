@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/03/26 02:12
+📅 آخرین بروزرسانی: 1405/03/26 03:55
 
 ---
+
+## tasiyanc — post 6053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه چیزای دستم رسیده نمی‌دونم بزارم نزارم🤣
+</div>
+
+## tasiyanc — post 6052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عکس و ..؟
+</div>
+
+## tasiyanc — post 6051
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب بریم به آدرس و شماره تلفن یا چیزای دیگه بدم؟
+</div>
 
 ## tasiyanc — post 6050
 
@@ -114,23 +132,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مال منم حالا چیکاکنم برکرده
-</div>
-
-## tasiyanc — post 6029
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اره برامنم امروز پرید
-</div>
-
-## tasiyanc — post 6028
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم لیمیت خوردم
-</div>
-
-## tasiyanc — post 6027
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم اکانتم پرید
 </div>
 
