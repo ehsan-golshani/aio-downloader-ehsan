@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/03/26 15:11
+📅 آخرین بروزرسانی: 1405/03/26 19:48
 
 ---
+
+## tasiyanc — post 5999
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده 🚀
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5998
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5996
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+2سرور  سرعتی قدرتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروکسی ۱
+پروکسی ۲
+پروکسی ۳
+پروکسی ۴
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5994
 
@@ -138,32 +193,5 @@ Create openvpn
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گپ تاسیان 🦦
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 5967
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور ها چک میشن هر نیم ساعت
-ضعیف شن جدیدشو میزاریم ، با قدرت وصلیم ❤️
-</div>
-
-## tasiyanc — post 5966
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Gold🥇Vip servers.npvt
-</div>
-
-## tasiyanc — post 5965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی - 🇫🇷
-@Tasiyanc ✅
 </div>
 

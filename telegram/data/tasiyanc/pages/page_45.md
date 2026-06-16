@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/03/26 15:11
+📅 آخرین بروزرسانی: 1405/03/26 19:48
 
 ---
+
+## tasiyanc — post 5787
+
+<div align="center"><img src="files/post_5787_tasiyanc_5787.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Panda 🐼.npvt
+</div>
+
+## tasiyanc — post 5786
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈1 سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💘💘💘
+wlc to TASIYAN family ❤️‍🔥
+</div>
+
+## tasiyanc — post 5784
+
+<div align="center"><img src="files/post_5784_tasiyanc_5784.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+kiwi Speed 🥝.npvt
+</div>
 
 ## tasiyanc — post 5783
 
@@ -150,45 +186,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpFUjJ4Q2NKa21SMXBmdG1OMzAwQ05K@62.60.233.226:
 vless://900ca7c5-6c69-4536-b0f8-efa4e3976016@51.79.89.68:443?security=&encryption=none&headerType=none&type=tcp#%20By%20EbraSha%20%E2%99%A0%EF%B8%8F
 
 @Tasiyanc 💙
-</div>
-
-## tasiyanc — post 5760
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🔐 MCI
-
-vless://8b5acf77-2c2e-4eed-9ad1-be81851b99ea@172.66.44.161:443?path=%2F&security=tls&encryption=none&insecure=0&host=e1-f55.pages.dev&fp=chrome&type=ws&allowInsecure=0&sni=e1-f55.pages.dev#%40Tasiyanc%20%20%F0%9F%A7%A9
-vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2Fdl&security=tls&encryption=none&insecure=0&host=pagescm.freen29.cc.cd&fp=chrome&type=ws&allowInsecure=0&sni=pagescm.freen29.cc.cd#%40Tasiyanc%20%E2%9A%99%EF%B8%8F
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 5758
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-
-🚀 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 5757
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز باشه
-</div>
-
-## tasiyanc — post 5756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🍓 4 server 🔥.npvt
 </div>
 

@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/03/26 15:11
+📅 آخرین بروزرسانی: 1405/03/26 19:48
 
 ---
+
+## tasiyanc — post 6709
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺قوه قضایی جمهوری اسلامی حکم اعدام نتانیاهو و ترامپ صادر کرد.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6708
+
+<div align="center"><img src="files/post_6708_tasiyanc_6708.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Configs⚡🚀.txt
+</div>
+
+## tasiyanc — post 6707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی تاسیان 🆕
+
+✅50 کانفیگ تست شده سرعتی
+
+مناسب وب‌گردی ، استریم ، اینستاگرام 🦦
+
+فایل Txt رو باز کنین کانفیگ رو تو آپ 🔐 & 🔐 & 🔐 بزنید پینگ بگیرید وصل شید  🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگای رایگان مارو تو بله روبیکا به اسم نامحدود ۶۰۰ تومن میفروشن 😐
+تاسیان تو هیچ اپ ایرانی فعالیتی نداره و فروشی ام ندارع تا اطلاع ثانوی،بخدا دیگه خستم شدم انقد گفتم مراقب باشید
+</div>
 
 ## tasiyanc — post 6701
 
@@ -147,41 +183,6 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ ترامپ : محل امضای توافق بزودی اعلام میشود
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با توجه به اخبار توافق حتمی می‌باشد ، البته قطعی نیست
-</div>
-
-## tasiyanc — post 6681
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️سپاه پاسداران:
-اگر امریکا تمام خواسته‌های ما را در سندی که ارائه دادیم بپذیرد، به احتمال زیاد ما این توافق را تایید خواهیم کرد.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6680
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ترامپ درباره توافق با ایران:
-ما به‌تازگی یک توافق عالی درباره جنگ با ایران انجام دادیم و در حال نهایی کردن مدارک هستیم. باید طی چند روز آینده کار تمام شود.
-
-احتمالاً امضا در اروپا انجام خواهد شد و این یک اتفاق عالی است.
-
-بازار سهام ۱۰۰۰ واحد رشد کرده است. این یعنی آن‌ها این توافق را دوست دارند.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️خبرگزاری فارس:
-
-با توجه به اینکه امریکا متن پیشنهادی ایران را پذیرفته است احتمال تایید این متن در مراجع اصلی‌نظام بالا است‌
 @Tasiyanc ✅
 </div>
 
