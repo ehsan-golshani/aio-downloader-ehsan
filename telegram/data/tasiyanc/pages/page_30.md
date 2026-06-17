@@ -1,8 +1,93 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/03/27 23:12
+📅 آخرین بروزرسانی: 1405/03/28 01:21
 
 ---
+
+## tasiyanc — post 6227
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST - MCI💥.npvt
+</div>
+
+## tasiyanc — post 6226
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+سرور  سرعتی تست شده 
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
+✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها 
+⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@TASIYANC 🔥X1B.conf
+</div>
+
+## tasiyanc — post 6224
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد XB   👑
+
+دانلود  Wg tunnel 🕹
+
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6223
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر💋🦦
+</div>
+
+## tasiyanc — post 6222
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+6سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6221
+
+<div align="center"><video src="files/post_6221_tasiyanc_6221.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6221_tasiyanc_6221.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد CM  
+👑
+
+دانلود  Wg tunnel 
+🕹
+
+آموزش
+⏩
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6220
 
@@ -97,78 +182,5 @@ VIP 🚀@Tasiyanc GhdMethod .conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 NEW FAST ⚡ 🚀.npvt
-</div>
-
-## tasiyanc — post 6202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-
-4سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن هم نمی‌زنیم دیگه ؟
-</div>
-
-## tasiyanc — post 6200
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  
-👑
-دانلود  Wg tunnel 🕹
-آموزش⏩
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6199
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  
-👑
-دانلود  Wg tunnel 🕹
-آموزش⏩
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6198
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Proxy ✅ tg://proxy?server=37.27.192.211&port=8443&secret=dd104462821249bd7ac519130220c25d09 @Tasiyanproxy 
-✅
-</div>
-
-## tasiyanc — post 6197
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Proxy ✅
-
-tg://proxy?server=37.27.192.211&port=8443&secret=dd104462821249bd7ac519130220c25d09
-
-@Tasiyanproxy 
-✅
-</div>
-
-## tasiyanc — post 6196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  
-👑
-دانلود  Wg tunnel 🕹
-آموزش⏩
-@Tasiyanc 
-✅
 </div>
 

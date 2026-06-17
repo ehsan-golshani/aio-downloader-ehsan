@@ -1,8 +1,87 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/03/27 23:12
+📅 آخرین بروزرسانی: 1405/03/28 01:21
 
 ---
+
+## tasiyanc — post 6543
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️
+⭕️
+⭕️
+</div>
+
+## tasiyanc — post 6542
+
+<div align="center"><video src="files/post_6542_tasiyanc_6542.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6542_tasiyanc_6542.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+😎
+
+4سرور سرعتی مناسب همه نت ها 
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+🔹
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6541
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
+</div>
+
+## tasiyanc — post 6540
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو
+پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
+</div>
+
+## tasiyanc — post 6539
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرزیدنت ترامپ: من نزدیک به دستور دادن حملات جدید به نیروگاه‌ها و پل‌های ایرانی هستم
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+3سرور سرعتی مناسب همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰۰ گیگ ساب گذاشته ادمینا ، پین شد گپ
+</div>
 
 ## tasiyanc — post 6535
 
@@ -124,76 +203,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 https://t.me/+RTGtcYWb8HdkNjdk
 گپ تحلیل گران جنگ ( تاسیان) 😂
-</div>
-
-## tasiyanc — post 6512
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور متد جدید🚀
-
-نامحدود  - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم‌ اکنون حملات ایالات متحده آمریکا به جزیره قشم و بندرعباس
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6510
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور متد جدید🚀
-
-نامحدود  - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
-</div>
-
-## tasiyanc — post 6508
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
-</div>
-
-## tasiyanc — post 6507
-
-<div align="center"><img src="files/post_6507_tasiyanc_6507.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔱 @Tasiyanc 🔥.txt
-</div>
-
-## tasiyanc — post 6506
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال زیاد شده 😐
 </div>
 
