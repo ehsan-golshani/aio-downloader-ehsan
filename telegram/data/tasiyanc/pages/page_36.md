@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/03/28 01:21
+📅 آخرین بروزرسانی: 1405/03/28 03:19
 
 ---
+
+## tasiyanc — post 6080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک سرویس خریداری کردید هر ۲۴ ساعت کانفیگ ها آپدیت میشن برید ساب لینکتون و کانفیگ های جدید رو بردارید
+</div>
+
+## tasiyanc — post 6077
+
+<div align="center"><img src="files/post_6077_tasiyanc_6077.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠آموزش اتصال با فیلترشکن امن Windscribe 🔐
+
+🔢 با جی‌میل یا ایمیل فیک یه اکانت ایجاد کنین
+
+🔢وارد setting بشین
+Connection →Anti Censorship
+حتما گزینه Protocol Tweaks رو Enable باشه و پایین دو تا گزینه به اسم Iran مشاهده خواهید کرد یکیشو انتخاب کنین
+🔢هر دو پروتکل طبق تستی ک انجام دادم کار کرد برام ، روی همراه اول روی ایرانسل هم کار میده تست شده
+UDP 53 & TCP 80 TCP 8080
+
+دانلود از طریق AppStore 📱
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+150 گیگ تو گپ تاسیان کانفیگ ویتوری
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6075
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FastVip⚡.npvt
+</div>
 
 ## tasiyanc — post 6074
 
@@ -158,31 +197,5 @@ Hot Servers 🔥🌶️.npvt
 فایل تمام پیام‌های تلگرامش
 
 @ineedknife
-</div>
-
-## tasiyanc — post 6048
-
-<div align="center"><img src="files/post_6048_tasiyanc_6048.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6047
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نزنه رسانه ای میکنم
-</div>
-
-## tasiyanc — post 6046
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکم صبر میکنم دیل آک بزنه
-</div>
-
-## tasiyanc — post 6045
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امین زحمت کشید شماره و آدرس و شماره بابای جاکشش درآورده
 </div>
 

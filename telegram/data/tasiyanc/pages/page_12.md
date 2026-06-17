@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/03/28 01:21
+📅 آخرین بروزرسانی: 1405/03/28 03:19
 
 ---
+
+## tasiyanc — post 6731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6730
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️وزیر انرژی آمریکا:
+
+🔻  ممکن است به عنوان بخشی از امتیازاتی که ما ارائه می‌دهیم، بخشی از تحریم‌های ایران لغو شود
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ايران از زمان قاجار تا قبل پزشكيان ۵ تا جنگ داشته از پزشكيان به بعد شده يه روز در ميون
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6728
+
+<div align="center"><img src="files/post_6728_tasiyanc_6728.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچی سلامتی هنوز آتش بسه
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6727
 
@@ -159,40 +200,5 @@ INFERNO ⚡ vip.npvt
 تجمعات شبانه
 گشت ارشاد به چاک سینه توجهی نداره اگه بمالید
 @tasiyanc✅
-</div>
-
-## tasiyanc — post 6710
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن خنده بازه
-</div>
-
-## tasiyanc — post 6709
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺قوه قضایی جمهوری اسلامی حکم اعدام نتانیاهو و ترامپ صادر کرد.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6708
-
-<div align="center"><img src="files/post_6708_tasiyanc_6708.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Configs⚡🚀.txt
-</div>
-
-## tasiyanc — post 6707
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی تاسیان 🆕
-
-✅50 کانفیگ تست شده سرعتی
-
-مناسب وب‌گردی ، استریم ، اینستاگرام 🦦
-
-فایل Txt رو باز کنین کانفیگ رو تو آپ 🔐 & 🔐 & 🔐 بزنید پینگ بگیرید وصل شید  🚀
-
-@Tasiyanc ✅
 </div>
 

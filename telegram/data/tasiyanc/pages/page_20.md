@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/03/28 01:21
+📅 آخرین بروزرسانی: 1405/03/28 03:19
 
 ---
+
+## tasiyanc — post 6485
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️
+</div>
+
+## tasiyanc — post 6484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حواسم نبود ، ریکشن چرا نزدید؟ 😐
+</div>
+
+## tasiyanc — post 6483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلمشو میزارم داخل کامنتا برای مهندسان عالی رتبه chatgbt که توی گروه نظر میدادن
+</div>
+
+## tasiyanc — post 6482
+
+<div align="center"><video src="files/post_6482_tasiyanc_6482.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6482_tasiyanc_6482.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   
+👑
+
+حجم و کاربر نامحدود 
+🟢
+
+دانلود  Wg tunnel 
+🕹
+
+دانلود iOS 
+📱
+
+آموزش اتصال 
+⛓
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6481
 
@@ -178,56 +223,5 @@ https://t.me/gramevents_bot
 ادد لیست جهت جوین تو چنلا
 https://t.me/addlist/IiFVViQyys81OWM0
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کمی صحبت؟ ( گپمون)
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارووووووووو
-</div>
-
-## tasiyanc — post 6457
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  Ovpn 🇯🇵♻️
-
-تست شده سامانتل - رایتل - وایفای 
-🚀
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6456
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3 سرور پرمیوم متد جدید
-🚀
-
-حجم نامحدود - تمام اپراتور ها 
-⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  
-✔
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
