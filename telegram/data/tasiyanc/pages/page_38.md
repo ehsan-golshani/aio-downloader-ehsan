@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/03/27 01:55
+📅 آخرین بروزرسانی: 1405/03/27 03:33
 
 ---
+
+## tasiyanc — post 5979
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عشق تولدت مبارک ، تو گروه هم برات فرستادم ❤️ دوباره با متود جدید وصل شدم ، دمت گرم عالیهههههه
+</div>
 
 ## tasiyanc — post 5978
 
@@ -173,12 +179,5 @@ Gold🥇Vip servers.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 TS premium Servers 🌲⚡.npvt
-</div>
-
-## tasiyanc — post 5955
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی تست
-@Tasiyanc ✅
 </div>
 

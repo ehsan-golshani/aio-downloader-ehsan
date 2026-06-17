@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/03/27 01:55
+📅 آخرین بروزرسانی: 1405/03/27 03:33
 
 ---
+
+## tasiyanc — post 6396
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آغاز عملیات وعده صادق ۵
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6394
 
@@ -215,21 +222,5 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر ❤️
-</div>
-
-## tasiyanc — post 6365
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🔝
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 🍏
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
 </div>
 

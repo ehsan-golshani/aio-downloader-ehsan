@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/03/27 01:55
+📅 آخرین بروزرسانی: 1405/03/27 03:33
 
 ---
+
+## tasiyanc — post 6720
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6719
 
@@ -185,11 +199,5 @@ vless://da48859d-edf9-4a8c-a026-80910591f284@151.101.1.164:80?mode=auto&path=%2F
 
 بازی کره🇰🇷 - چک 🇨🇿
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توافق داره تو جنوب امضا میشه
 </div>
 

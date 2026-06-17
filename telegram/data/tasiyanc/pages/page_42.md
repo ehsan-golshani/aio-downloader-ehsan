@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/03/27 01:55
+📅 آخرین بروزرسانی: 1405/03/27 03:33
 
 ---
+
+## tasiyanc — post 5886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر کدوم بیشتر رای بیاره از اون بیشتر میزاریم
+</div>
 
 ## tasiyanc — post 5885
 
@@ -192,11 +198,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجب سرعتی داره داداش کیرتو بخورم دمت گرم❤️
 </div>
 
