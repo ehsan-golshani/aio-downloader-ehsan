@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/03/27 03:33
+📅 آخرین بروزرسانی: 1405/03/27 13:41
 
 ---
+
+## tasiyanc — post 5728
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Box 🏳 vip
+
+trojan://2238e2f3-1a01-485e-8c22-24b65764c68b@172.64.152.23:443?path=%2F51.91.253.83&security=tls&insecure=0&host=gzjx.dpdns.org&type=ws&allowInsecure=0&sni=gzjx.dpdns.org#%40Tasiyanc%20USS%E2%9A%A1
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5727
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده همه اپراتور ها ⛈ 
+
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5726
 
@@ -173,17 +195,5 @@ sv Country 🇬🇧
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5705
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارو 😐
-</div>
-
-## tasiyanc — post 5704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 [40 ].npvt
 </div>
 

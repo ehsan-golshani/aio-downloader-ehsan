@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/03/27 03:33
+📅 آخرین بروزرسانی: 1405/03/27 13:41
 
 ---
+
+## tasiyanc — post 5888
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+4سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5887
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا جای ک یادمه زمان قطعی همتون openvpn پاک کرده بودید الان شده بهتر از نپستر ، تازه این همه کانفیگ npv میزنیم بخدا ع پولی بیشتر سرعتش
+</div>
 
 ## tasiyanc — post 5886
 
@@ -173,30 +196,5 @@ GANG 🌙 10 SERVER FAST.npvt
 https://t.me/+RTGtcYWb8HdkNjdk
 
 گروه تاسیان
-</div>
-
-## tasiyanc — post 5862
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 💫 4Server vip.npvt
-</div>
-
-## tasiyanc — post 5861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑 رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- 4 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 

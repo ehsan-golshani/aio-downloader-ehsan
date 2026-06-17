@@ -1,16 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/27 03:33
+📅 آخرین بروزرسانی: 1405/03/27 13:41
 
 ---
+
+## tasiyanc — post 7089
+
+<div align="center"><video src="files/post_7089_tasiyanc_7089.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7089_tasiyanc_7089.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_7089_[57]🚀@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [57]🚀@Tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 
+🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7088
+
+<div align="center"><a href="files/post_7088_•@Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 •@Tasiyanc.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+تک سرور سرعتی 🇳🇱⚡️
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7086
 
 <div align="center"><video src="files/post_7086_tasiyanc_7086.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7086_tasiyanc_7086.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7086_🇳🇱🚀Amsterdam ⚡️⛓️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇳🇱🚀Amsterdam ⚡️⛓️.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
@@ -246,17 +280,5 @@ T.me/Tasiyanc
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی با نتیجه مساوی پایان یافت
-</div>
-
-## tasiyanc — post 7047
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاج صفی از بازیکنان آینده دار اومد زمین 🤣🤣
 </div>
 
