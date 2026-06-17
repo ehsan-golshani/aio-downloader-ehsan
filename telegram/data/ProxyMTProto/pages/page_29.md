@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/03/27 01:53
+📅 آخرین بروزرسانی: 1405/03/27 08:39
 
 ---
+
+## ProxyMTProto — post 47631
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fastproxy.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47630
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s25.proxyru.top
+Port: 443
+Secret: eefe281d2bfa13f991ed6be43138e5e14c79612e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47629
 
@@ -166,24 +184,6 @@ Secret: eecd671d2032569f6cea0fb4c61c32756972312e70726f787974672e7370616365
 Server: 186.246.21.34
 Port: 443
 Secret: eec11798ab008831b474066c9e1ebf5c75617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47611
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 72.56.87.28
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c76617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47610
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s11.neo-trading.org
-Port: 993
-Secret: ee17b59d905a546c7bf7355cf95c4ecfed7777772e636c6f7564666c6172652e636f6d
 @ProxyMTProto
 </div>
 
