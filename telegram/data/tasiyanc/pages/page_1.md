@@ -1,16 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/27 13:41
+📅 آخرین بروزرسانی: 1405/03/27 17:43
 
 ---
+
+## tasiyanc — post 7095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ: یادداشت با ایران نهایی نیست. اگر از توافق خوشمان نیاید، دوباره به بمباران بازمی‌گردیم
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📥Game public DNS | All games
+195.46.39.39
+195.46.39.40
+
+🔑 DNS CHANGER
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7089
 
 <div align="center"><video src="files/post_7089_tasiyanc_7089.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7089_tasiyanc_7089.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7089_[57]🚀@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [57]🚀@Tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
@@ -27,8 +44,6 @@ T.me/Tasiyanc
 </div>
 
 ## tasiyanc — post 7088
-
-<div align="center"><a href="files/post_7088_•@Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 •@Tasiyanc.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
@@ -257,28 +272,5 @@ T.me/Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قیمت دلار هم اکنون 155000
-</div>
-
-## tasiyanc — post 7054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت دلار هم اکنون 155000
-</div>
-
-## tasiyanc — post 7052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختصاصی Ovpn  📶
-
-تست شده تمام نتها 
-🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

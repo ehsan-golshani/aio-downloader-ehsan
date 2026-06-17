@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/03/27 13:41
+📅 آخرین بروزرسانی: 1405/03/27 17:43
 
 ---
+
+## tasiyanc — post 6779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدای توافق در سیریک🤣
+
+@TasiyanProxy
+</div>
+
+## tasiyanc — post 6778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6777
 
@@ -158,17 +180,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 این واقعی ترین کلیپ از جنگه، اگه میخواین بدونین نزدیک‌تون یا جایی که هستین موشک بخوره چه اتفاقی میوفته حتما این کلیپ رو ببینین.
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6724
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-INFERNO ⚡ vip.npvt
-</div>
-
-## tasiyanc — post 6723
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ تو تجمعات ببینم تعجب نمیکنم
 </div>
 
