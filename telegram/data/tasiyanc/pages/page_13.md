@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/03/28 14:54
+📅 آخرین بروزرسانی: 1405/03/28 18:06
 
 ---
+
+## tasiyanc — post 6718
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+INFERNO ⚡ vip.npvt
+</div>
+
+## tasiyanc — post 6717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6716
 
@@ -159,39 +181,5 @@ vless://da48859d-edf9-4a8c-a026-80910591f284@151.101.1.164:80?mode=auto&path=%2F
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اخبار داغ و پروکسی های تاسیان ( حمایت کنین )
 https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6691
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Rend ⚡ (1).npvt
-</div>
-
-## tasiyanc — post 6690
-
-<div align="center"><video src="files/post_6690_tasiyanc_6690.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6690_tasiyanc_6690.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-2سرور سرعتی همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 
