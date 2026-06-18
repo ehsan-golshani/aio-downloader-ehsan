@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/28 03:19
+📅 آخرین بروزرسانی: 1405/03/28 05:40
 
 ---
+
+## tasiyanc — post 7143
+
+<div align="center"><video src="files/post_7143_tasiyanc_7143.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7143_tasiyanc_7143.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_7143_DELTA⚡️⚡️ - 🇳🇱AM.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 DELTA⚡️⚡️ - 🇳🇱AM.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود لوکیشن
+🇳🇱
+
+2سرور سرعتی مناسب همه نت‌ها
+⚡️
+
+دانلود برنامه IOS 
+🕹 Android 
+📱
+
+
+🔸 آموزش اتصال
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7141
 
@@ -208,11 +235,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بازیکنای احمق پرتغال پاس نمیدن به رونالدو
-</div>
-
-## tasiyanc — post 7106
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید قهرمانی آقام رونالدوووووووووووو
 </div>
 

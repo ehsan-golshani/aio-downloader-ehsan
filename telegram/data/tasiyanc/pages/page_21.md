@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/03/28 03:19
+📅 آخرین بروزرسانی: 1405/03/28 05:40
 
 ---
+
+## tasiyanc — post 6460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این ربات تون میده و برداشت شده ازش تایید شده ، میتونید با چند ثانیه وقت گذاشتن به درآمد برسید , برداشت بزنم می‌زارم شاتو خودمم
+https://t.me/gramevents_bot
+
+ارزششو داره برید تست کنین
+
+ادد لیست جهت جوین تو چنلا
+https://t.me/addlist/IiFVViQyys81OWM0
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6459
 
@@ -204,21 +217,5 @@ Fast ⚡🪐 متد جدید.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اخبار و پروکسی ⚡️🚀
 https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
 </div>
 
