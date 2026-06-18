@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/03/28 18:06
+📅 آخرین بروزرسانی: 1405/03/28 21:24
 
 ---
+
+## tasiyanc — post 6343
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪼 اختصاصی تاسیان 👑
+
+85 کانفیگ Fast پروتکل Trojan ⚡
+
+بریزید ویتوباکس یا ویتوری پینگ بگیرید وصل شید 💚
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6342
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب تو راهه
+</div>
 
 ## tasiyanc — post 6341
 
@@ -195,33 +213,5 @@ Password : @Tasiyanc 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشناروووووووو
-</div>
-
-## tasiyanc — post 6317
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-✔️ @Tasiyanc ✅
 </div>
 
