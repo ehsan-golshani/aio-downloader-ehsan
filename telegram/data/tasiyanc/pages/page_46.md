@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/03/28 21:24
+📅 آخرین بروزرسانی: 1405/03/29 00:29
 
 ---
+
+## tasiyanc — post 5821
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑 رمز @Tasiyanc ″
+
+📶  اختصاصی تاسیان  📶
+
+ 5 سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5820
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۳۴ هزار شیم سورپرایز دارم
+</div>
 
 ## tasiyanc — post 5819
 
@@ -215,22 +240,5 @@ GM TASIYAN 💝
 
 
 🦁 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5799
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 💝.npvt
-</div>
-
-## tasiyanc — post 5798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور سرعتی اختصاصی تاسیان  📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-🚀 @Tasiyanc ✅
 </div>
 

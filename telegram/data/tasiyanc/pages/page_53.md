@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/03/28 21:24
+📅 آخرین بروزرسانی: 1405/03/29 00:29
 
 ---
+
+## tasiyanc — post 5645
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️ پیرو اخبار بازگشت اینترنت بین المللی:
+
+درز های خیلی زیادی باز شده و یه کانفیگ نپستر درست شده که کار میکنه!
+
+دریافت کانفیگ نپسترنت مخصوص ( رایگان )
+</div>
+
+## tasiyanc — post 5644
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعداد پیام دایرکت - گروه زیاده از همه شما عزیزان ، بزرگ کوچك ، زن مرد که کنار هم در روزهای سخت ایستادید سپاسگذارم و بابت پیام‌های خوبتون ممنون شما هستم ❤️‍🔥 امید است تیم تاسیان همواره کنار شما باشد تا شما عزیزان راضی باشید 🌹
+</div>
 
 ## tasiyanc — post 5643
 
@@ -190,17 +206,5 @@
 برای اتصال پایدار صبور باشید🚀
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5612
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گوگل پلی برا بعضیا باز شده و اکثرا باز نشده ( طبق گزارش ممبرهای عزیزمون)
-</div>
-
-## tasiyanc — post 5611
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ گوگل پلی رفع فیلتر شد
 </div>
 

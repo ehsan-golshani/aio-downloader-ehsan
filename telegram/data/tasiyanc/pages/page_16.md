@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/03/28 21:24
+📅 آخرین بروزرسانی: 1405/03/29 00:29
 
 ---
+
+## tasiyanc — post 6648
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔩⭕️⭕️ امشب بمباران وحشتناکی در راه است
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6647
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔩🔴ترامپ: ما با جنگنده و هواپیما‌های خود بر فراز تهران پرواز می‌کنیم و ایرانی‌ها از آن خبر ندارن. ایران در تبلیغات خوبه اما در جنگیدن خوب نیست.
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6645
 
@@ -168,28 +183,6 @@ vless://d39664df-5bc0-4f49-9894-8f03b4150082@germany-vip.soft26.ir:8443?mode=aut
 📶 اختصاصی تاسیان 😎
 
 2سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6599
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
-</div>
-
-## tasiyanc — post 6598
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان نامحدود😎
-
-۳سرور سرعتی متد جدید همه نت ها 🔥
 
 دانلود  وب‌گردی ، اینستاگرام🚀
 
