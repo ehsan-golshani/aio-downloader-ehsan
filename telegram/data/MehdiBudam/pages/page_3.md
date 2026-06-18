@@ -1,8 +1,26 @@
 # آرشیو کانال MehdiBudam - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/27 13:39
+📅 آخرین بروزرسانی: 1405/03/28 10:46
 
 ---
+
+## MehdiBudam — post 8128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor15
+
+
+slipnet-enc://Abv+5Ov8/xXOdCDw8+UQoCK5YhF2V1jJH8Om0kMFLPowaybIyUN8o4LiE+GL8Iylc5SpRAIvQBtUGe8ftT8rWagDJXHe1KjikvKa9A/5vf6TKzncsXMF3+qKMabuB7djtIE13kgNTceQUfu00J/VUM312b3t9+rL9jq5aKTWmtAurlGWsGc4QTZEL0AhpAuzaQNk8lc2NZ+qPLg6r9riWVAh6fEXrznlatXRkxIkQ+XraCwkRymZa9wY11jZ+74MNptp+LvWiIKheDJet6XIhiJA0c7TVE0uZuUXMSbSnwyyfd45QkE1NzpWduLyYZXaYeTE8dtXNKUo9gNZIM47kBX+m7uuWYaJpFjxPf+9kBa/RfyqcpbyrWomX9MGlLo3/ttjKGBvRi3ccDfF1aRyCS4F9NsLmMXe5UG1YZ94pMkmYR0tnP2XfOEHEwd+2gjdVqyDXsb36z/WpJVRr8VHqqk7DaguvxS0btFURHX6gfw3txgfRVMgErIeNHNjq6b4PYMfqmCpDedIAAALosP6vUNmmCNJZjIiqMFR/56dwsuBav6RVJuAhmfTTOIbUiK8JYlT+7t/SikMpFjZmKk5Cr0BrCXehaPGCqe/T9+DJ21Cpyfe6VPHS3ejiAWi8fRzLqumi8dD0ZcFJZOmOeQJ0TCnClvhEUDYduJb3P6mlnQQp+IqdxMb29HIdENDwpoVcvjkq2rhZXlF8X0VlU6PaMlhyqNT2sib19X/jKeGFD8BXQ==
+
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+127 126 124 117 113 109 106 103 101 99 97 95 92 91 87 86 84 77 73 71 69 65 59 58 57 54 53 45 44 34 32 30 27 25 24 22 21 و بقیه وصلن اگه لازم شد.
+</div>
 
 ## MehdiBudam — post 8126
 
@@ -188,17 +206,5 @@ slipnet-enc://Ae2EEQLf+LxSQ2MlvnWNA82xsmSEx4iPv+oSxDkNzqegYMSMpojO4WzTpcHOYO0k5X
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 برای تور همین تنظیمات پیشنهاد میشه فقط بدون پروکسی مود با اسپلیت تونلینگ درست.
-</div>
-
-## MehdiBudam — post 8108
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنظیمات پیشنهادی برای اسلیپنت دانلود برنامه ( تفاوت نسخه ها ) نحوه اتصال با وضعیت فعلی شبکه Auto-connect on boot ❌️ Proxy-only mode✅️ (درصورت استفاده از برنامه هایی که از پروکسی پشتیبانی نمیکنند این گزینه خاموش باشه حتما.) (اگه این گزینه روشن باشه باید…
-</div>
-
-## MehdiBudam — post 8107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوابه؟
 </div>
 
