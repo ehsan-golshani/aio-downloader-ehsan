@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/03/28 10:47
+📅 آخرین بروزرسانی: 1405/03/28 14:54
 
 ---
+
+## tasiyanc — post 6054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اماده باشین
+</div>
+
+## tasiyanc — post 6053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه چیزای دستم رسیده نمی‌دونم بزارم نزارم🤣
+</div>
 
 ## tasiyanc — post 6052
 
@@ -120,17 +132,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جامپ جامپ برای آیفون هم اپل آیدی میپرونه و بات شناسایی میکنه
 لطفا اطلاع رسانی کنید برای دوستانی ک اپل دارن
-</div>
-
-## tasiyanc — post 6030
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مال منم حالا چیکاکنم برکرده
-</div>
-
-## tasiyanc — post 6029
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اره برامنم امروز پرید
 </div>
 

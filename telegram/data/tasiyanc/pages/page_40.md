@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/03/28 10:47
+📅 آخرین بروزرسانی: 1405/03/28 14:54
 
 ---
+
+## tasiyanc — post 5975
+
+<div align="center"><img src="files/post_5975_tasiyanc_5975.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متد جدید 🔥.npvt
+</div>
+
+## tasiyanc — post 5973
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان 
+
+۷سرور  سرعتی قدرتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5972
 
@@ -154,30 +179,5 @@ TS premium Servers 🌲⚡.npvt
 ایرانسلم میگن وصله
 اره ❤️
 نه 💋
-</div>
-
-## tasiyanc — post 5950
-
-<div align="center"><img src="files/post_5950_tasiyanc_5950.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-TS premium Servers 🌲⚡.npvt
-</div>
-
-## tasiyanc — post 5949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  تست روی همراه اول 🛜 بقیه تست کنین
-
-6سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 
