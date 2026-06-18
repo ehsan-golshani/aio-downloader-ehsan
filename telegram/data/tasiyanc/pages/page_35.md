@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/03/29 00:29
+📅 آخرین بروزرسانی: 1405/03/29 02:09
 
 ---
+
+## tasiyanc — post 6121
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از وایرگارد راضی بودید ریکشن بزنید کانفیگ بعدیشو تا دقایقی دیگه آماده کنم بفرستم
+</div>
 
 ## tasiyanc — post 6120
 
@@ -173,11 +179,5 @@ https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunne
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6097
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Vip SamanTel ⚡.npvt
 </div>
 

@@ -1,12 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/29 00:29
+📅 آخرین بروزرسانی: 1405/03/29 02:09
 
 ---
 
-## tasiyanc — post 7168
+## tasiyanc — post 7170
 
-<div align="center"><a href="files/post_7168_Multi - Fast 🪐.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Multi - Fast 🪐.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گفت نمیدانم چگونه اما تو تغییر کرده ای ، انگار غمی تجربه کرده ای که تو را بزرگ کرده !
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7168
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ نامحدود مولتی لوکیشن
@@ -23,8 +28,6 @@
 </div>
 
 ## tasiyanc — post 7167
-
-<div align="center"><a href="files/post_7167_⚡️🍓@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡️🍓@Tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص گیم-وب‌گردی-اینستاگرام 👑
@@ -243,12 +246,6 @@ Location 🇫🇷 حجم نامحدود
 </div>
 
 ## tasiyanc — post 7131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ذات تاسیان؟
-</div>
-
-## tasiyanc — post 7130
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ذات تاسیان؟

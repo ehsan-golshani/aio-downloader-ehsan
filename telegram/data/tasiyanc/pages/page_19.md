@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/03/29 00:29
+📅 آخرین بروزرسانی: 1405/03/29 02:09
 
 ---
+
+## tasiyanc — post 6539
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرزیدنت ترامپ: من نزدیک به دستور دادن حملات جدید به نیروگاه‌ها و پل‌های ایرانی هستم
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6537
 
@@ -194,12 +201,6 @@ https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 
 ## tasiyanc — post 6509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
-</div>
-
-## tasiyanc — post 6508
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐

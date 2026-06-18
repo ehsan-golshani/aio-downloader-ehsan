@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/29 00:29
+📅 آخرین بروزرسانی: 1405/03/29 02:09
 
 ---
+
+## tasiyanc — post 7093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📥Game public DNS | All games
+195.46.39.39
+195.46.39.40
+
+🔑 DNS CHANGER
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7089
 
@@ -259,22 +271,5 @@ T.me/Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قیمت دلار هم اکنون 155000
-</div>
-
-## tasiyanc — post 7052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختصاصی Ovpn  📶
-
-تست شده تمام نتها 
-🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 
