@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/03/29 21:59
+📅 آخرین بروزرسانی: 1405/03/29 23:51
 
 ---
+
+## ProxyMTProto — post 48006
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ%3D%3D
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48005
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 6775
+Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48004
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: yours.nolags.pw
+Port: 443
+Secret: ddaed3f129a293bdfc23d67204b50bbf87
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48003
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ge.nowabst.net
+Port: 853
+Secret: eefdf6175e50069c01bd22d786534aa2b26164732e78352e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48002
 
@@ -145,42 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e63
 Server: vortex.flowstreamhub.site
 Port: 443
 Secret: eeafcde96fcec1b95dd190a95814b0f026766f727465782e666c6f7773747265616d6875622e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47986
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy5.arixo.shop
-Port: 443
-Secret: ee2d3817c6b2bf469fb5064e6cb4b19790617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47984
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 15.chunkycorp.shop
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47983
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rec.nolags.pw
-Port: 443
-Secret: dd0603553657b3f54b6bff0d3759e8db1d
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/03/29 22:01
+📅 آخرین بروزرسانی: 1405/03/29 23:53
 
 ---
+
+## tasiyanc — post 6537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+3سرور سرعتی مناسب همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰۰ گیگ ساب گذاشته ادمینا ، پین شد گپ
+</div>
+
+## tasiyanc — post 6535
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لینک گپ تاسیان ❤️‍🔥 https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6534
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لینک گپ تاسیان ❤️‍🔥
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6533
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[24]🚀♂️@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6532
 
@@ -162,49 +203,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
-</div>
-
-## tasiyanc — post 6507
-
-<div align="center"><img src="files/post_6507_tasiyanc_6507.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔱 @Tasiyanc 🔥.txt
-</div>
-
-## tasiyanc — post 6506
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال زیاد شده 😐
-</div>
-
-## tasiyanc — post 6505
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی تاسیان 🆕
-
-✅87 کانفیگ تست شده
-
-فایل Txt رو باز کنین کانفیگ رو تو آپ NPV & V2BOX & V2RAYNG زیر بزنید پینگ بگیرید وصل شید  🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6504
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از عصر دارم بمب براتون آماده میکنم عشق کنین الان آماده شده
-</div>
-
-## tasiyanc — post 6503
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار رو از اینجا دنبال کنین + پروکسی
-@Tasiyanproxy 
-✅
-@Tasiyanproxy 
-✅
-@Tasiyanproxy 
-✅
 </div>
 
