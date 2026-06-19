@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/03/29 00:27
+📅 آخرین بروزرسانی: 1405/03/29 09:09
 
 ---
+
+## ProxyMTProto — post 47777
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47776
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp8.sosproxy.space
+Port: 443
+Secret: eee9dab8aa5e5ede020088b669a17b907864726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47775
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dot.vdl.lat
+Port: 853
+Secret: ee9963ec50cf89d852bb1e084a44b196e4646f742e76646c2e6c6174
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47774
 
@@ -159,33 +186,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: usa.nolags.pw
 Port: 443
 Secret: dd1a0658ae4bb081c4270cd674e7b5ef5b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47757
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gov.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fridayvpn1.proxyprosto.sbs
-Port: 443
-Secret: ee81aebd9867cc45d05974d953706819d177622e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47755
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 
