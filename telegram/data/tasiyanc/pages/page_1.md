@@ -1,12 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/29 23:53
+📅 آخرین بروزرسانی: 1405/03/30 01:22
 
 ---
 
-## tasiyanc — post 7193
+## tasiyanc — post 7196
 
-<div align="center"><a href="files/post_7193_🇫🇷@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇫🇷@Tasiyanc.conf</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+40.000 🖤 > 72
+</div>
+
+## tasiyanc — post 7193
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص گیم-وب‌گردی-اینستاگرام 👑
@@ -21,8 +25,6 @@ T.me/Tasiyanc ✅
 </div>
 
 ## tasiyanc — post 7192
-
-<div align="center"><a href="files/post_7192_Rend¼ ⚡⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Rend¼ ⚡⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ نامحدود NPV لوکیشن مولتی
@@ -236,12 +238,5 @@ GN⚡⚡🇩🇪FST🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ حمله شدید اسرائیل به لبنان 😐
-</div>
-
-## tasiyanc — post 7170
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گفت نمیدانم چگونه اما تو تغییر کرده ای ، انگار غمی تجربه کرده ای که تو را بزرگ کرده !
-@Tasiyanc ✅
 </div>
 

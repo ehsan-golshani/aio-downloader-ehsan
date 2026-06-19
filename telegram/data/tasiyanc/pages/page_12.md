@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/03/29 23:53
+📅 آخرین بروزرسانی: 1405/03/30 01:22
 
 ---
+
+## tasiyanc — post 6808
+
+<div align="center"><video src="files/post_6808_tasiyanc_6808.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6808_tasiyanc_6808.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 
+👑
+
+حجم و کاربر نامحدود 
+🟢
+
+دانلود 
+📱 WG tunnel 
+🕹 iOS WG
+
+آموزش اتصال 
+⛓
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6804
 
@@ -186,19 +211,5 @@ VIP⚡ APEX ⛓️.npvt
 🚨صدای توافق در سیریک🤣
 
 @TasiyanProxy
-</div>
-
-## tasiyanc — post 6778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

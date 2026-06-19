@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/03/29 23:53
+📅 آخرین بروزرسانی: 1405/03/30 01:22
 
 ---
+
+## tasiyanc — post 6723
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ تو تجمعات ببینم تعجب نمیکنم
+</div>
 
 ## tasiyanc — post 6722
 
@@ -183,21 +189,5 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.194.219:80?path=%2F&securit
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🪐VelocityX 🇩🇪.npvt
-</div>
-
-## tasiyanc — post 6697
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-3سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
