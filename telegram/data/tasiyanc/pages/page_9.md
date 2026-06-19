@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/03/29 02:09
+📅 آخرین بروزرسانی: 1405/03/29 03:50
 
 ---
+
+## tasiyanc — post 6876
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[48]🚀@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6873
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال شدید رو خطوط همراه داریم دلیلش نمیدونم
+</div>
+
+## tasiyanc — post 6872
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۲ اسرائیل ⭕️⭕️ ❌
+نعیم قاسم فرمانده حزب الله ترور شد
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6871
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[46] 🪐@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6870
 
@@ -178,46 +218,6 @@ T.me/Tasiyanc ✅
 آموزش اتصال ⛓
 
 T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6846
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسلیت به بت زنای محترم
-</div>
-
-## tasiyanc — post 6845
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قطر یکی زد به کمک های اولیه
-</div>
-
-## tasiyanc — post 6844
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✊امروز تولد مودی ترین خردادیه
-دونالد ترامپ متولد ۱۴ ژوئن ۱۹۴۶ است و امروز (یکشنبه ۱۴ ژوئن ۲۰۲۶) وارد ۸۰ سالگی می‌شود.
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6843
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-14 June
-روز جهانی اکسه 😭
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-vless://dc8eccdb-ecfa-435f-9ac1-5dc4882e7b51@162.19.228.119:80?path=%2Fhttp&security=none&encryption=none&host=de.vpnbase.net&type=ws#%5B%40Tasiyanc%5D%20%F0%9F%87%A9%F0%9F%87%AA%20De
-
- T.me/Tasiyanc 
 ✅
 </div>
 
