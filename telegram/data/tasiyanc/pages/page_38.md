@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/03/29 13:40
+📅 آخرین بروزرسانی: 1405/03/29 17:27
 
 ---
+
+## tasiyanc — post 6048
+
+<div align="center"><img src="files/post_6048_tasiyanc_6048.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
+</div>
 
 ## tasiyanc — post 6047
 
@@ -122,11 +130,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دوست من سه روز پیش اکانتش پرید
-</div>
-
-## tasiyanc — post 6025
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقیقا رفیقم اینجوری شد
 </div>
 

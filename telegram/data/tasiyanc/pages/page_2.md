@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/03/29 13:40
+📅 آخرین بروزرسانی: 1405/03/29 17:27
 
 ---
+
+## tasiyanc — post 7141
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میدونی چیه ؟ لطف بیش از حد انجام بدی میشه وظیفه
+و همه بعد یه مدت میگن طرف کسخله ولت میکنن بدون اینکه به یاد بیارن چیکارا کردی
+با پوست استخون دارم تجربه میکنم همین الان ، فقط میشه تاسف خورد
+</div>
 
 ## tasiyanc — post 7140
 
@@ -206,11 +214,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 به امید قهرمانی آقام رونالدوووووووووووو
-</div>
-
-## tasiyanc — post 7105
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی پرتغاااااال شروع شد
 </div>
 

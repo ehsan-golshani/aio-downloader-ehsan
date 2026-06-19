@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/03/29 13:40
+📅 آخرین بروزرسانی: 1405/03/29 17:27
 
 ---
+
+## tasiyanc — post 6459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کمی صحبت؟ ( گپمون)
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 6458
 
@@ -213,11 +220,5 @@ https://t.me/TasiyanProxy
 آموزش اتصال ⛓
 
 🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6431
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡🪐 متد جدید.npvt
 </div>
 
