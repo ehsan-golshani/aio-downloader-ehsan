@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/03/29 20:11
+📅 آخرین بروزرسانی: 1405/03/29 22:01
 
 ---
+
+## tasiyanc — post 6191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چنل پروکسی های وصل تاسیان
+https://t.me/TasiyanProxy
+
+از امروز شروع بکار کرد
+</div>
+
+## tasiyanc — post 6190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Proxy 1 ✅ proxy 2
+Proxy 3 ✅ proxy 3
+@TasiyanProxy ✅
+</div>
 
 ## tasiyanc — post 6185
 
@@ -171,44 +188,5 @@ Premium GOD SV 🚀🔥.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رو دوتا کانفیگ آخری( وایرگارد - نپستر)
 ریکشن رو هر کدوم بیشتر باشه پست بعدی از اون کانفیگ میزارم
-</div>
-
-## tasiyanc — post 6163
-
-<div align="center"><video src="files/post_6163_tasiyanc_6163.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6163_tasiyanc_6163.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  
-👑
-
-تست شده 
-🎚
-
-دانلود Wg tunnel 
-🕹
-
-آموزش ویدیویی 
-⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-
-2سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc ✅
 </div>
 

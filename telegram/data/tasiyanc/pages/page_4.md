@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/29 20:11
+📅 آخرین بروزرسانی: 1405/03/29 22:01
 
 ---
+
+## tasiyanc — post 7081
+
+<div align="center"><img src="files/post_7081_tasiyanc_7081.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️پخش زنده مسابقات جام جهانی 2026
+
+https://roxiestreams.su/soccer
+
+https://streamcorner.fyi/fifa-world-cup
+
+https://totalsportek.tips/football
+
+https://www.bintv.net
+
+https://soccerstreams.sbs
+
+https://strumyk.net
+
+سایت هایی که باز نمیشه رو باید با وی پی ان باز کنید
+
+گزارش فارسی:(نیازمند ثبت نام،
+فیک میل میتونید بزنید)
+https://persianasports.com/live.html
+
+
+🔗ربات ایمیل فیک:
+@TempMail_org_bot
+
+@Tasiyanc 
+✅ | تاسیان
+</div>
+
+## tasiyanc — post 7080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شب نشینی با تاسیان😁
+🦦
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
 
 ## tasiyanc — post 7079
 
@@ -199,17 +240,5 @@ Location 🇩🇪
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7039
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیوزلند انقد کیری باز می‌کنه تیم شموشک بود دو تا گل میزد
-</div>
-
-## tasiyanc — post 7035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللللل نیوزلند
 </div>
 

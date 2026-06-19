@@ -1,8 +1,38 @@
 # آرشیو کانال ProxyMTProto - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/03/29 20:09
+📅 آخرین بروزرسانی: 1405/03/29 21:59
 
 ---
+
+## ProxyMTProto — post 47622
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.21.40
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c74617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47621
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ Рабочие прокси сейчас быстро отключаются из-за новых ограничений
+
+Если Telegram снова плохо грузит — лучше подключиться заранее 👀
+
+Мы постоянно добавляем новые прокси и пока раздаём их бесплатно 🔥
+
+⬇️ Запусти бота и получи рабочий прокси прямо сейчас
+</div>
+
+## ProxyMTProto — post 47620
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r6.proxytg.space
+Port: 8443
+Secret: eea66a6c939a8f1a0596bd06f17dae253772362e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47619
 
@@ -155,33 +185,6 @@ Secret: 7uZ0yg4fr7vIQ5i_MUfeWQB3d3cuYXBwbGUuY29t
 Server: 72.56.41.35
 Port: 443
 Secret: 7sEXmKsAiDG0dAZsnh6_XINhdml0by5ydQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47602
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 178.105.168.17
-Port: 443
-Secret: eeb67e98429f3ba8896ff33ab9ff9d18a1676f6f676c65617069732e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47601
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 72.56.41.35
-Port: 443
-Secret: 7sEXmKsAiDG0dAZsnh6_XINhdml0by5ydQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tproxy.mom
-Port: 8090
-Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/03/29 20:11
+📅 آخرین بروزرسانی: 1405/03/29 22:01
 
 ---
+
+## tasiyanc — post 6717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6716
+
+<div align="center"><img src="files/post_6716_tasiyanc_6716.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴شکیرا در جام جهانی 2006 & 2010 & 2014 & 2026
+
+‏شکیرا حتی از پیکه هم تو فوتبال موفق تره 🤣
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6715
 
@@ -154,34 +182,4 @@ https://t.me/TasiyanProxy
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Rend ⚡ (1).npvt
 </div>
-
-## tasiyanc — post 6690
-
-<div align="center"><video src="files/post_6690_tasiyanc_6690.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6690_tasiyanc_6690.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-2سرور سرعتی همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6689
 

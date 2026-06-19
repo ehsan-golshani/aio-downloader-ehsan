@@ -1,16 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/29 20:11
+📅 آخرین بروزرسانی: 1405/03/29 22:01
 
 ---
+
+## tasiyanc — post 7188
+
+<div align="center"><video src="files/post_7188_tasiyanc_7188.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7188_tasiyanc_7188.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_7188_🇬🇧London ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇬🇧London ⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV لوکیشن لندن 
+🇬🇧
+
+2سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7187
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید صحبت همگی آنلاینیم
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
 
 ## tasiyanc — post 7186
 
 <div align="center"><video src="files/post_7186_tasiyanc_7186.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7186_tasiyanc_7186.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7186_new FAST ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 new FAST ⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ نامحدود NPV
@@ -49,8 +85,6 @@
 </div>
 
 ## tasiyanc — post 7183
-
-<div align="center"><a href="files/post_7183_⚡⚡🇩🇪.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡⚡🇩🇪.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ نامحدود سرور فرانکفورت 
@@ -223,50 +257,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡⚡IR FAST 🚀.npvt
-</div>
-
-## tasiyanc — post 7163
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود مولتی لوکیشن
-
-4سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ➡️
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7149
-
-<div align="center"><video src="files/post_7149_tasiyanc_7149.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7149_tasiyanc_7149.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Game DNS 
-🛒
-اختصاصی تاسیان
-8.20.247.20
-80.80.81.81
-76.76.2.2
-77.88.8.1
-223.6.6.6
-45.76.113.31
-
-
-🔑 DNS CHANGER 
-🕹
-
-آموزش استفاده 
-⏩
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 
