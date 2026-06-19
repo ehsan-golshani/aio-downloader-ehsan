@@ -1,8 +1,74 @@
 # آرشیو کانال MehdiBudam - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/03/28 10:46
+📅 آخرین بروزرسانی: 1405/03/29 13:39
 
 ---
+
+## MehdiBudam — post 8114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor6
+
+
+slipnet-enc://AReiNmdXjlPQsrmSvGSTTqjrj+qe46Zb6ZN01gW/tnRjwmBn6zCph50JgvRwT33TqzKfJ5A9jPfFxSCQbFXvOx3AntFPpWjYNStgc3w2kdNGPeU/1gmFf2hKj8+j+Y5BcdaftoT+RjCvaLt/SRqA6bvXpiPPlfRDgSneGTUkeu3+pZ5vGDhZTZWyC2Yih0XG9okCuAXJNOkXV647UOOokjJFXH5IYffsObuNxFUNpVfimHtJJSbeHq32VByj/UyuCtml/S4FGC64zERp4RNmHhBqIUTJ9FUMsfSl+tFFRdOATsQilGdLH/1TN7UwC4YOF27sqOzp9kvOEOpT8MKt/VXKH6X6+2VpwPZ6XJh1UVtNRCBNekGGNeXwBJMfGeZ9kzV1kC2cwyHfvdd+jcuvAm5mkmpfO9faOaeJu3K050Sp+1g1YzvBqVyzvIntfown9ETZZnukRWGyo/NR+ofji1dPt5reAtXb3K0Ng1pNLegvuYP7tL8VDdhMiFGcvx5OJJfsxE6ozGCaoqmidHJo2lvFxM7RKJy8aMeHtt+wwqLvIZL/2P0unCI36BUHE9bJe7SRUtifaCgRNK+9X3fjveIRirGCLRQQC7oY652pRxKGcVNuN+gbJUvACoa0iZJ4e5eV9Oow43MokRBuo/kZwODzOgUHvCLFP3Y664jmriVyW0gAif3ETxqQWpzlVFr5uMadi8g5br7TFnxCqoLqF/CCcq9nuOTMUQ==
+
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor5
+
+
+slipnet-enc://AaW+Odfg4Gyd5ZuA3mkJ+m2B0qi39CUp1C+IofeIRqyMKMulzkCKXQaF06clWzkTr/DgGA3dK0yepIIh9DoL649W9jGmcxylsV7oMNhKPVZo3ihNqjagF1OeZAyN2/6Kvvn2/ONCNHWQQE3pkpE/+XC8UVBCBZD5DgG56Om1DAFtT0jS3XybGUwPbNJtcy3DVA2Hkd5fsiGrEKXjA4dh91GUpv1zq4/vr/hknWRxykIKYAJkQvL2FcukZdjn7klIS4Gntm54t/mOQfzXlKIQL7fOsqcdJ3pKJsTZgzW9Ocmwq3jmEwS3r8+X1FS3XzkgeMWO6zjKjeQ1HiA4WoiBAzlp+kbIKUnrftr2dDkVJvcYPgUuSbwTKKKlltBRdV7OWILJajQa4RBycEBvVLBvGJk+sMP6GUZKO2d2ewbSU40MBEkns/arpk2X2lgbS0FYXBNnsYkxU6Xq3Vmi1/xhnlJorYe2dgL3FwB3bIn7X7RR1ORx+L21Q72mQqPeqnLE0K1Obn5jvw5QO/A18/kmfethWRt0LWzQMJzBwIqNvketYucpIkHVX4OxITi1FaHtePcukUVkecHz6sGK+ipkHycz0oFUYfyc3UUi0w49DXWDYj0HL8H7jSux8b4TZvgG+qxwe8A1k4Tl+BRXozpBkwUzRqNLL2OzvZpm6oFlUCru8FtVu1KAbUnKzM3/KV+K7hge3Da2xYqiThtY30ZfQF/0a//ge0h+8Ua1cVg=
+
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8112
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor4
+
+
+slipnet-enc://AYknjJISbu5ZqLWiq2RNE+G+gbxtV75kKeAJTgfzWUyOMCdZiVanSICtP3YDVEr0yoDDb7ztSuVeLbSdb2RXGWfFS3nMRaHltnQi8BwWJQyYDCOniRwIaKvtXOhz7DX9yYYKLUlOxjUN9TANDJxLo4ZvpyZKLRiv22Ye8+6n6gEkOuXi8OWj7+gBx1OnlvWzoKU91ANpw8nWou6AXULwXUQ19O02tI2qhFYo+CcHcPODvscmkaT39CU66FxYLc2nlDm6rs8tB6bExCPRyF7BkzmrfeNk5FfghPDemGbv8TmupEuLElMt7DZHwozMAjtDrz+yfUZdhNtxHIXwNcSFeQJFWtQEkgoI4g57xyYWWPBA5alZra/VDjZV/UDWRXKry+u3dul96Lpy0IZBbnaz3w00Lja9ExpCSVzb1fK4b6QXe9E4JfuALd6dEgu5W2++FfSW5L0omuUrl21TVGyquh63sVwFy7CDlRrgHK9wATUpDkFStH16bNqruALilGxYdDMa3s3NRz9elKGuKykkslBZRfKcsHGelJ1zOmZEioo59yB9JTKQnUKmz1kFqN3jRB9DTNzyLu93/qPWIssik/IOqJtMt0uX5TfXvK762j1gsQJcxPOFGdKyWiGbIZNbKUDQDfxn7rLH+5Tl8Kur0XWXEBxmRlHKH2U/+e/5krH74ZcHuuLXBKLrcU69mUKmdkc/6KCY98Amnl/79jwDldirI0yr2IH9VBQAZUcqS95s
+
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8111
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor3
+
+
+slipnet-enc://AZCV5Hkcq+Jm48xNzu4mAD0er0Ic56DV6pRNLFuSoNZ8We+HMKiPRZq74s3N7ai0EDGrWZTklNfHagxXfgK87Ab/PCtf3R7UCEqviAzUlgEcCSOjhQM51YhlnBZ1Lp5iXetB9SJ8Eyt31RIiFkBdknwhkX+8xgVNM4a2E/VuVqO5PdbUSfY8wHLxfQlV5GWAQBlRQ2EPLthf1Y2ioyJS4lFmWY3mzx7qv+sOK4w3JOQcSIVGjTwUtE4Ks2zg3wGL8FNnaSwbydZ4tpLGElHCTEQIqDCP9P5j/j32uV3J0qQL71sOtGj3EBj54AtZjvGo07aZT1kfQkXn7ihxHtWqAvhVLnOzPuimqkrBJ3NSMNnXgn96AToN3jUx2HXzQMI0jnsSz8HO9tjUTIpqs7fYCGBH5Xq7gw7f9iXon/cb8w9VwvzdlRYukXkr5MjfmHOKX8zLCZZakLo6X5cakWIHt064pbTp/sjj7RNaWm2Wc6Hq1sQbSiGbAcDl5m+aV+VxaVZmDJWiltsjWmqCiI7+0C7b53HgxZF9JfBs5OrBdB/XNrizCKPa58Agf7I2rrpIK+q4MHZdFn7mhjilYmHGaeiZe28+ee9CH6O+rdxk3oFeq81A2KPQMopv2q2OMra01kFE9jpH9G39tU5VQXPOfPrk63c/C4HIr2mdf1l02jrTG4fJNSoN+a4cOrJYuol5fX3yyR0uo2X+zglegamTPiIiMcd2PbAGkQ==
+
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8110
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor2
+
+
+slipnet-enc://Ae2EEQLf+LxSQ2MlvnWNA82xsmSEx4iPv+oSxDkNzqegYMSMpojO4WzTpcHOYO0k5X5jqUoDzwzUgHe7/k6lUDPFB2oWgw2P75hMiHwzs+jvA8SCcdtynmzXTNC42cAc7ADeSW8RiTm/W9GFN7anpOLb+OQ8CNq7usgF/x+ZjVceWGuMVObY81VnSqQuydigaFHSsV4s7SR8HY4aHXxAO/xH+AZPxeEnDyFmaX72jCDo4Y8sGOP1yu86DY/nt9E0cLdEiDxUwXCmNKEy5X9E31+rVLFu5f9LapUNjYRFp4XPGvMguC0Z09N9dfVpe2FNdF3g2i1DHvO6M9RPxS/iOZLyt3aLhc+mkBotDQ2EzxlH7HtuWf6rBp4HDJV7vqM/W0vFzqPnGNtkQEuIJv8CHiF6CLHrkyM3ZXKmI3oXFFq/LaPzrmw391PzY3bHolyQfgtytwv0SkgEbTUTd5Blrmuq0edXy7vFDORZ33bNUZojD0UMmR7ARU4LZzV+faebbxGebPXJG95EiPT4c1EaB1Tv9WQunu2hY6YpXtLJXSN1l1K9+rwlZTqdLy7QhKB86cnPCh5EOudNbUjEt6Cp/qivOg67auVat4UGuFYL/tu31AvLUSSTk6BEY86veZJ0od/m3NTGfurHCBShFEMX+kTGpG5p6Q8Zpb4qYETavQ/6xYIsoJxrf+QcIafk60J6BoePNwcAZ16alJyViKC8Fg0lqXwdr3TEcgluRtc=
+
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8109
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای تور همین تنظیمات پیشنهاد میشه فقط بدون پروکسی مود با اسپلیت تونلینگ درست.
+</div>
 
 ## MehdiBudam — post 8108
 
@@ -98,51 +164,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه مورد دیگه ای هم که هست بعضیا میگن فقط با پروکسی مد روشن وصل میشه و بدون اون وصل نمیشه.
-</div>
-
-## MehdiBudam — post 8092
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
-</div>
-
-## MehdiBudam — post 8091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در مورد متد Tor بعضیا که میگید وصل نمیشه یا تا ۱۴ درصد میره وقتی از رباتش میخواید Bridge بگیرید هم Web Tunnel بگیرید و هم obfs4 و وقتی از تنظیمات بصورت دستی وارد میکنید با یه فاصله بینشون هر دو رو وارد کنید در این حالت هرکدوم کار کنه وصل میشه.
-</div>
-
-## MehdiBudam — post 8090
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود و تشکر از همراهان همیشگی SlipNet که در دوره قطع و اختلال اینترنت همراهی کردند با توجه به وضعیت فعلی شبکه، می‌تونید از روش‌های زیر برای برقراری اتصال پایدار استفاده کنید: 🟢 ۱. اتصال از طریق Tor (نسخه Full - رایگان) (ویژه کاربران دارای دسترسی به اینترنت)…
-</div>
-
-## MehdiBudam — post 8089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکثر سرورا وصلن اگه لازم داشتید.
-</div>
-
-## MehdiBudam — post 8088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود و تشکر از همراهان همیشگی SlipNet که در دوره قطع و اختلال اینترنت همراهی کردند با توجه به وضعیت فعلی شبکه، می‌تونید از روش‌های زیر برای برقراری اتصال پایدار استفاده کنید: 🟢 ۱. اتصال از طریق Tor (نسخه Full - رایگان) (ویژه کاربران دارای دسترسی به اینترنت)…
-</div>
-
-## MehdiBudam — post 8087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بالاخره بعد از حدود ۳ ماه، اینترنت تقریباً به حالت قبل برگشت؛ هرچند فیلترینگ و محدودیت‌ها هنوز هم مثل قبل سر جاشونن و عملاً چیزی تغییر نکرده.
-
-تو این مدت خیلیا تلاش کردن که راه ارتباط مردم کامل قطع نشه و هرکسی با هر امکانی که داشت سعی کرد کمکی بکنه. بین همه‌ی اینا، SlipNet واقعاً یکی از پروژه‌هایی بود که خیلی به چشم اومد؛ پروژه‌ای که با وجود این‌همه کاربر و شرایطی که خیلیا ازش برای درآمد استفاده کردن، همچنان رایگان موند و بدون سروصدا به کارش ادامه داد.
-
-واقعاً لازمه از تیم اسلیپ‌نت، مخصوصاً دولوپر خستگی‌ناپذیرش و ایمان عزیز، بابت تمام زحمتی که این مدت کشیدن تشکر بشه. اگر تلاش و وقتی که گذاشتن نبود، کمک کردن به این تعداد آدم اصلاً ساده نبود.
-
-ممنون از همه‌ی کسایی هم که تو این مدت، با حمایت، دونیت، انرژی مثبت یا حتی معرفی پروژه به بقیه باعث شدن این مسیر ادامه پیدا کنه. همین همراهی‌ها باعث شد وسط اون همه فشار، آدم حداقل حس نکنه تنهاست.
-
-امیدوارم یه روز اینترنت آزاد و بدون محدودیت، چیز عجیبی نباشه و همه بدون دردسر بهش دسترسی داشته باشن.
-
-با آرزوی بهترین ها.
 </div>
 

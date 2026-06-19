@@ -1,8 +1,54 @@
 # آرشیو کانال MehdiBudam - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/03/28 10:46
+📅 آخرین بروزرسانی: 1405/03/29 13:39
 
 ---
+
+## MehdiBudam — post 8092
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
+</div>
+
+## MehdiBudam — post 8091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در مورد متد Tor بعضیا که میگید وصل نمیشه یا تا ۱۴ درصد میره وقتی از رباتش میخواید Bridge بگیرید هم Web Tunnel بگیرید و هم obfs4 و وقتی از تنظیمات بصورت دستی وارد میکنید با یه فاصله بینشون هر دو رو وارد کنید در این حالت هرکدوم کار کنه وصل میشه.
+</div>
+
+## MehdiBudam — post 8090
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود و تشکر از همراهان همیشگی SlipNet که در دوره قطع و اختلال اینترنت همراهی کردند با توجه به وضعیت فعلی شبکه، می‌تونید از روش‌های زیر برای برقراری اتصال پایدار استفاده کنید: 🟢 ۱. اتصال از طریق Tor (نسخه Full - رایگان) (ویژه کاربران دارای دسترسی به اینترنت)…
+</div>
+
+## MehdiBudam — post 8089
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکثر سرورا وصلن اگه لازم داشتید.
+</div>
+
+## MehdiBudam — post 8088
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود و تشکر از همراهان همیشگی SlipNet که در دوره قطع و اختلال اینترنت همراهی کردند با توجه به وضعیت فعلی شبکه، می‌تونید از روش‌های زیر برای برقراری اتصال پایدار استفاده کنید: 🟢 ۱. اتصال از طریق Tor (نسخه Full - رایگان) (ویژه کاربران دارای دسترسی به اینترنت)…
+</div>
+
+## MehdiBudam — post 8087
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بالاخره بعد از حدود ۳ ماه، اینترنت تقریباً به حالت قبل برگشت؛ هرچند فیلترینگ و محدودیت‌ها هنوز هم مثل قبل سر جاشونن و عملاً چیزی تغییر نکرده.
+
+تو این مدت خیلیا تلاش کردن که راه ارتباط مردم کامل قطع نشه و هرکسی با هر امکانی که داشت سعی کرد کمکی بکنه. بین همه‌ی اینا، SlipNet واقعاً یکی از پروژه‌هایی بود که خیلی به چشم اومد؛ پروژه‌ای که با وجود این‌همه کاربر و شرایطی که خیلیا ازش برای درآمد استفاده کردن، همچنان رایگان موند و بدون سروصدا به کارش ادامه داد.
+
+واقعاً لازمه از تیم اسلیپ‌نت، مخصوصاً دولوپر خستگی‌ناپذیرش و ایمان عزیز، بابت تمام زحمتی که این مدت کشیدن تشکر بشه. اگر تلاش و وقتی که گذاشتن نبود، کمک کردن به این تعداد آدم اصلاً ساده نبود.
+
+ممنون از همه‌ی کسایی هم که تو این مدت، با حمایت، دونیت، انرژی مثبت یا حتی معرفی پروژه به بقیه باعث شدن این مسیر ادامه پیدا کنه. همین همراهی‌ها باعث شد وسط اون همه فشار، آدم حداقل حس نکنه تنهاست.
+
+امیدوارم یه روز اینترنت آزاد و بدون محدودیت، چیز عجیبی نباشه و همه بدون دردسر بهش دسترسی داشته باشن.
+
+با آرزوی بهترین ها.
+</div>
 
 ## MehdiBudam — post 8086
 
@@ -177,74 +223,6 @@ Pass: @MehdiBudam
 
 
 slipnet-bundle-enc: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
-
-﻿
-Pass: @MehdiBudam
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-121,122
-
-
-slipnet-bundle-enc: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
-
-﻿
-Pass: @MehdiBudam
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-120 113 109 107 106 104 103 99 98 97 96 95 88 84 79 77 75 74 73 71 70 69 66 61 58 57 47 46 31 25 22 و بقیه وصلن.
-</div>
-
-## MehdiBudam — post 8061
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از دلایلی که اکثر این سرورا دیگه کار نمیکنن یا ضعیف میشن اینه که یه سری آدم مثلا کاربلد میان سرورارو آنلاک میکنن بعد حتی دامین رو هم هاید نمیکنن و میارن تو یه چنل که ۱۵۰ ک ممبر داره همینطوری ول میدن میره از این ور هم ادعا دارن که اختصاصی و باعث میشن که کلا همچی فیلتر بشه یا قطع بشه کلا.
-</div>
-
-## MehdiBudam — post 8059
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-120
-
-
-slipnet-bundle-enc://AYIUT4dAbTv0xUl/UpqmqIN+EubjfDTGLG1YEQQRhlsqNCtJKks/mDn/hd8805irVqbHuuYvxn8V6WukeCp28HrKMu4hUnyNREs6rHUi8p6tVayx2LxSa+GX8Z6dIvLJ4XpBeJIZG/r/lMqMDr8au3hAHINQwGLFq+v22DIqB0PPRJZfWiXUJ2rEO8hZNtpnXzBKD9qwAVFFJtueMQRdPCrm3ZjfRvsYgeTFmYT0EtWu3vk8chTyJJnIaOq1jNLNI26as8XGwMMIXERdmrXqyxE+lN226hR5mlWWDay67m9CycR/JcqrGQxlvkrX5DmSwcKn7KBh0drQb2S5TTXT7TGhq8LkFoolqViUzOQVAjyp04ghb2VjDuyqXk1175MnIcQHoHpqL1EVL0y7mOWDJTRk/cSXnpHMlGmGuhHmNzdIjdOvgpLBRJZKkpA0vs74dz5Q1nKHEYaTgvd/BVQHDURkTk0nF8kGih8S5sXWpEW+/lIxNbyrdJMxnNpL+dbaqLbzhzr8qK/Ifas4PyGppIS2PEsgNEVAJC6hnRY4u+HRT/m3P3bR+AEwfdn7aJZlYxssKjvK7dnU1qgrqsO5wHq2B8w42c+rcXgUPkBJsq3KjIUYg01URZApbLfejOmEzwKkdxkUtGBqCwhCicmYzgrr4Y9IfFI/W3+ICS5AXpPqVresrvN1jfLPBO8d0PYLkLhRmqtNJfp7xAEItr4MoMYBCEkOvTF0ShYXQw9dZQztoCaY+qlqRhxATaCBlAhG1NLym7YN7/7sDQboT1NNxO1l7N5OtrWksV3Yme4jrqj4Zzfxg1oyge3ao6mNeQTU323+8p4yEuEo7p4T7BBDXz6Jgw5Ca7b0MQkEtN5B+/+psAO70jE6cLoi4ZpSP8bRCojqM9TOe7oSX5wt6Uou6rSphnl1AO04PSS97KK5SRUQKVPB7m+nFE1LtVJLpk0zfrkdp49b+7clwvsfZ5wUUPzcNXNCIWPZT4MMB/dpu/eKKh0ZXrgq4MFfxxJ8ynwLKDtQTOtOQE+UR+Use0Dr3o+QswZHduMurlaPgCNmfd5TIeJMP868Xi+bvJeJ3Kc=
-
-
-Pass: @MehdiBudam
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-119
-
-
-slipnet-bundle-enc://Aaf1qDl7Ux/YUCgLbSQdOOFzCwLii+dN5epXRagsb+8Rfq+N08CiLSY69WmwkzIUsU3SNim2+dyjMNlYWN6TQQoQNtvN3DguWXxhTxuU7r1gSEU6fhqGUZvYjXjZdWCT6Pl886pwownUMk4SOO1gSrblrd94Vm1cBcqaJRgMaR57N2jKALPI1ctcZ+RVpdBVOgfiwYLgSUnapAmBVOs/ffqoeNbHiWGNkt+2SSA7+AHZndpd1hAiC3Ut9886RKFIVH8kmVQjhgEGB+C3eFtwiw2LeV4hd6U3GVQ3hsW4oAmnv/6iTflkntuSaRnLFJeBWhsuG298LvmQMqYI+r5B8dMl/OsMD/IX11fR4n6SinicDCsUqdbij/DTIdH/XLQPwtFa1BZt38C1Mdl4i0JfW5qowmmEnzF8JVL/xE/BC+KFhj/z4J5i8Od2SF8YtsFY5lE6fs8RIcaDLLzIduW+Oqg4gX0LdNxDkHOqOldDr5knW0+HRdVfIZzvPAeNbCgorAMpu6DSFhquYgNYjUgFoeT9THUWHMNWeP+06y2kvn8FARZ3c2rfcP09HoiTQiQofrPBng0O5mK4elis2RUrgd3SbpjAQgRZ3bPA3F62K0TR/IJtl7/h8CVWihd5u1E7PdF2xWbS7+WpZfHgmuN27rq0xgTC1JmY8LapWtImhn1AvleOB+KkLqgbKVXAffLA8U+8eKPEP4MBkfFOuLF8JsFizbICjAAUmZXDNxIVG5itHtsN6g4tP7iiCaswGXIo1doTWqxL+76ZEbq42BRt6rMyiFSKC17yLKGBmGjGtjxdbgSxfh8C1uSmT6fwfBhfb3uc2PGnpg9W6uU1fB7WCC5gIRBUxS6MTZTBy2ogsfUOTuJ8uoINvg63L21GTPYaugcG39pX9BYRep7h/o3JATJdaLJ75TCXYdFzr0BQjoheLOeOeNWkQ2ZE76Z1rjXbFm4sIQDBsMu2+D86hQ0y8IGA4f5K78rKwCvb8rO7h+TpuvJ18kh6UIEc8L709sYrqoHU+SgfdGrOpPaqR99i6mDKjt8IYsyRgU+p3TIIHA+cFt5jeryXNnJ3QI7kWzOE+d/W
-
-﻿
-Pass: @MehdiBudam
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-118
-
-
-slipnet-bundle-enc://AfDK7HsWg1dQyy7x9m1NEs2cHBnX5Gv3BidMfq1BWSVFRVZmjzDtgnt6R33gk+QXxu97kOnVQMhX/bL6OzB6wCmDOmJXF+bdx/dgGTQkoc5bmANuqGIYZeEZEWVR9/C+hc2stgTyQPdc9XvlUApwQZ3weyNdTLvUnuT9MmWQDIx8oN7XGMPVkwWipIYesrZY+8UaaLWAPBC57y7CGUBMdCyvKnYyjj7JXv3yJKQ5US5jVmndqucQjt6wfkhWkFTYHdUtJFnsIymSMCLE8r4qEJCZ46tAk+gUsYK4Zhvve72IvFpFIG3lfkSRBlLiHo9/+fPjmtPdn2d2lNEGo6R+62r41U8E6yezwmBl3zbfY1NdIYDF99WSZNdHOrNmaqW0DKsYA43DLTa/yT2GY78NTn4Vj0RgUlRrAZIXT0Qte73646aJJtYyh428aQGZjC+Ua1u4h9ue998maw9SLXfYF6UcnERE/Au5lSRjfnxYO9y+BJj4CrPOjFjF0RvLyLgoQl3FOv6jHgm4V6DACy/LWbBtykE485is/k2/dCU3NzIUK9ZTk+HFybSiQNJQlUKbMV1Oup7M2OyRLnLOLDy4gv9mb3jX85c85C4kBc+YYtCNO8PkImtDh0nGXED9OoYckWfNBOl1YBbCr2RO/svOZOSRIQWUXSg5HHy/aVUGAnR5JkNagqYk4fNtQGnfZHjdKpVmFd7/iJkshMvYiafl3Le1lGG4hg7YNS4GNuOTbxxGmo7EegFtwUHBhs1wx7OFmyii/WqsOHM3sJW+yTyzFvCo8smXrpojz68kI4eMrpgIv+cCfdQ2JmUnQ3rQq/KPoQkRu41rQ6O/yVdeOg5t6FUjtLQykv4phTa+xBnIPPanQjyJVoVNRTFD5ZOrgbuKla8iMHkblxERAHs4zsVPQgwawuuNXTDstvUFAFP2YeSrA7UhJJjl1wa9WufgQPdIGDN0CgzreiYwsXFEYtC+Go5BCnaSrh6B/DHRarfdXYKQ9SZTots+mDS1lj3U+C7hwifNp6KpiQwTYMT1bzB5BTezI+/bW8Xt0Bj/8cOX/CAuz9bqFSj5pA32LNc/+a6uz018
 
 ﻿
 Pass: @MehdiBudam

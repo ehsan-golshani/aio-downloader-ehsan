@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/03/29 03:50
+📅 آخرین بروزرسانی: 1405/03/29 13:40
 
 ---
+
+## tasiyanc — post 6787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6786
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه وایر میزارم بخوابم
+</div>
 
 ## tasiyanc — post 6785
 
@@ -175,21 +196,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6730
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️وزیر انرژی آمریکا:
-
-🔻  ممکن است به عنوان بخشی از امتیازاتی که ما ارائه می‌دهیم، بخشی از تحریم‌های ایران لغو شود
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ايران از زمان قاجار تا قبل پزشكيان ۵ تا جنگ داشته از پزشكيان به بعد شده يه روز در ميون
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,62 @@
 # آرشیو کانال MehdiBudam - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/28 10:46
+📅 آخرین بروزرسانی: 1405/03/29 13:39
 
 ---
+
+## MehdiBudam — post 8134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor18
+
+
+slipnet-enc://AYDMZQyPMbpPKXTHqS8AxY152Ivg6l2lRoG76aKDJuapeQbPL+3w5wXuthrT+R1v++IKhiU5BhivMyTNx+/T3Oi6rJOZSUjGhEja1rHJ3hrUhQZ2knjq6ToXbvtMIGOdQlpNwZCBat6+VjtepV8mliKZ2MtqOaCZI0180jwt1i9ZRgEeiAeujPu71UodYcVhpM07O6vXjMrfRwHgRf/VS9NMDi2n24BlZwFwlnYGhaGjBmu+pW+oomSjxxghWFD92jCG/m4glKGBkYU7KovAWbYMGwaiqL7WrTFlG/AwKZsmJm/rplEmEJy46ODGm7Qq77GjUvTflIh5W5G3Qvg4rCVioJIv9TW1GKZog+z3NppiK2OEwZbo32k7C827klKS/YTNG8Pd6Pxs9J5cPhb65gLLBS5gpl/YdgJD30iT0Phqrw8vV+8wEgC4wWGbFS/Npbr8EYv/VL4hjifqP80NRPEVxKUV9orrfEjXNB1xU6Wq+k9+LkiSm+KfBoG+XxvqXG8ii4KVK4fuYpoVTsccSa98gsonJ2ut37NQSD5Z57skCj3Vilu9+24MZVB0vErOyjpBD9H6uWFSufto9grT4YE8r7jmr9YNq9ww7IISPcGXVsBb28lp6gPQ57PALPr3VC2hWhg+q1Jo7xTfdTGz7VgPiWgH5UWKP3ZNFoyUrez0/LN6Cs8v3ogf3A/yQbt817p0lGVI9Eik2I+6doi/w+/UMjBxnGofWnu5bO9e
+
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه لازم شد.
+</div>
+
+## MehdiBudam — post 8132
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor15 slipnet-enc://Abv+5Ov8/xXOdCDw8+UQoCK5YhF2V1jJH8Om0kMFLPowaybIyUN8o4LiE+GL8Iylc5SpRAIvQBtUGe8ftT8rWagDJXHe1KjikvKa9A/5vf6TKzncsXMF3+qKMabuB7djtIE13kgNTceQUfu00J/VUM312b3t9+rL9jq5aKTWmtAurlGWsGc4QTZEL0AhpAuzaQNk8lc2NZ+qPLg6r9riWVAh6fEXrznlatXRkxIkQ+…
+</div>
+
+## MehdiBudam — post 8131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor17
+
+
+slipnet-enc://Aagd3MdxIad9/55TUzEMKsBrY4RIN3fmAXCFPAltnwlLK6Ljs6Rfeo1ECXz2FaQ8IczyQu7AybS/f/RhP66L69BYUhlVK39luel++32brAkKsH18e2w3Is/L5J/hJ14Ak46tcyLPv2G/64VSvFVpzuHZ7bxOUzUYLwwO/0IRlcsXnipE7vxNdQIEfsImQzKJU1MPX5YDwXPeXPOzveQKPOa9dhSmKx4Arrr3pzo/hF3q0nEliz2Mm7w35E41L1Uv4KHqE9h7lKcvNz2rd+ELL6E4sPAI3mSqHOvOR3574lA26J/fRzD2hla7Jj+G/RzkZevFHjX6xyF5q/LF8aSud1lRRWOi3gKJ3xKBEOeZ7AaOgGzW1SCI/zfP+OYOhHvUdHYyrhcgPXYU/3xxOI9RRDdfucuu/8FXWf8WEEglHsCnzm+069V2q8N0zZ8HLgLVME/oobiR0o669LOM9iEk0G0Wr9B4bXU63Rua6tChs/Y10e708ULTLYNbMH8taUbJ2f7XfLkqJhYt7a+xF5yWpy34Kwu8utAnmbtzehb/rx7H7bnHGdXURbKLqe1ZEHRdWpmFDf3Sr5N3TR8MMwc1HVU1YHRWqduysjzGKtEwW57x0ShteoTc4q7+8tMYnk7/nTkngpNH4NxY/UAtZJ35J1WuxnITg/2pNHr56CMxJ/AxpBCLhRF23IQ4qhTw1g+I5jGQLF4qZPehNndF15UDVussgqvaU7N/arSzbAYB
+
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8130
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor16
+
+
+slipnet-enc://AcheUXnkFLB0rwA4Xn6fifrUSwIKw/eU/FOkGZyw+KomNhaQewzXoW5+zZpowN46AHTkneFlBHGMbHzBxay+D6r72IaQmY8RL6SIzIGi3BP0aC/zyFcgJOyh5MWkj5UU0k7It57UgqMZ7QyU1IGvGivWdoLJRVZqyQZY2WCc99wuxKS9TBXp/9IXg7ZQ2cgnRylmp5UdYb6soSGkC6UbUfKQ/sKoAEPNYd63OIH5pthQjUwB1piCIwyG/XTWRLUAnb/27TvD/f7I14e1lsWNGEz0Otr5VeZUgY7gQ9PBVowEPnyrTIRosVOPUudlOIMkA3N3A9EXpOObwo79sOWOD7lWdziLL/4sJsLk4JoBerJRDjAm8GTqwPscHVDVtwAB2Mew9ve3E8eHmxxgmniOA+SGsuqxhAvTGh18IgE/kRc6nQyiQcodrzdze34TY4fKlTz2G+RXclliMQAQweEsVLG5W6Q9dfK5qWZQYymfrqgyHpUhf7l0anwTAt9Hq6JqX5JSGm42g541W981BxYTaJY0m2v81OkBQqWWW6bf4pYQwQ2jqhuhsqhwIRcj/QwrkAzj3a4CHwCCPOmQnY2Kwc5qPcAuk5XWnMsJXps0SkgIuf14qw0SJiNaSbigjmrw1jS7Ov7kwvml8sRMsEotfz6cZcizVFyV6u28+L+xzxchtuDXSa76PWpJrTLcSQhJqWg5iZYdCeXJXSpsUFca0E86C9HLEQ==
+
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8129
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از تورا هم 10 تا 15 وصلن بقیه رو خودتون با اپراتور های مختلف تست کنید.
+</div>
 
 ## MehdiBudam — post 8128
 
@@ -140,71 +194,5 @@ slipnet-enc://AXf4sCEHqZu01ldIMobOju0dPS2wmes9OZ0OgBKnFo1GMBKEHtZq1tSeOvHPIHhGRw
 
 
 @MehdiBudam
-</div>
-
-## MehdiBudam — post 8114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tor6
-
-
-slipnet-enc://AReiNmdXjlPQsrmSvGSTTqjrj+qe46Zb6ZN01gW/tnRjwmBn6zCph50JgvRwT33TqzKfJ5A9jPfFxSCQbFXvOx3AntFPpWjYNStgc3w2kdNGPeU/1gmFf2hKj8+j+Y5BcdaftoT+RjCvaLt/SRqA6bvXpiPPlfRDgSneGTUkeu3+pZ5vGDhZTZWyC2Yih0XG9okCuAXJNOkXV647UOOokjJFXH5IYffsObuNxFUNpVfimHtJJSbeHq32VByj/UyuCtml/S4FGC64zERp4RNmHhBqIUTJ9FUMsfSl+tFFRdOATsQilGdLH/1TN7UwC4YOF27sqOzp9kvOEOpT8MKt/VXKH6X6+2VpwPZ6XJh1UVtNRCBNekGGNeXwBJMfGeZ9kzV1kC2cwyHfvdd+jcuvAm5mkmpfO9faOaeJu3K050Sp+1g1YzvBqVyzvIntfown9ETZZnukRWGyo/NR+ofji1dPt5reAtXb3K0Ng1pNLegvuYP7tL8VDdhMiFGcvx5OJJfsxE6ozGCaoqmidHJo2lvFxM7RKJy8aMeHtt+wwqLvIZL/2P0unCI36BUHE9bJe7SRUtifaCgRNK+9X3fjveIRirGCLRQQC7oY652pRxKGcVNuN+gbJUvACoa0iZJ4e5eV9Oow43MokRBuo/kZwODzOgUHvCLFP3Y664jmriVyW0gAif3ETxqQWpzlVFr5uMadi8g5br7TFnxCqoLqF/CCcq9nuOTMUQ==
-
-﻿
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tor5
-
-
-slipnet-enc://AaW+Odfg4Gyd5ZuA3mkJ+m2B0qi39CUp1C+IofeIRqyMKMulzkCKXQaF06clWzkTr/DgGA3dK0yepIIh9DoL649W9jGmcxylsV7oMNhKPVZo3ihNqjagF1OeZAyN2/6Kvvn2/ONCNHWQQE3pkpE/+XC8UVBCBZD5DgG56Om1DAFtT0jS3XybGUwPbNJtcy3DVA2Hkd5fsiGrEKXjA4dh91GUpv1zq4/vr/hknWRxykIKYAJkQvL2FcukZdjn7klIS4Gntm54t/mOQfzXlKIQL7fOsqcdJ3pKJsTZgzW9Ocmwq3jmEwS3r8+X1FS3XzkgeMWO6zjKjeQ1HiA4WoiBAzlp+kbIKUnrftr2dDkVJvcYPgUuSbwTKKKlltBRdV7OWILJajQa4RBycEBvVLBvGJk+sMP6GUZKO2d2ewbSU40MBEkns/arpk2X2lgbS0FYXBNnsYkxU6Xq3Vmi1/xhnlJorYe2dgL3FwB3bIn7X7RR1ORx+L21Q72mQqPeqnLE0K1Obn5jvw5QO/A18/kmfethWRt0LWzQMJzBwIqNvketYucpIkHVX4OxITi1FaHtePcukUVkecHz6sGK+ipkHycz0oFUYfyc3UUi0w49DXWDYj0HL8H7jSux8b4TZvgG+qxwe8A1k4Tl+BRXozpBkwUzRqNLL2OzvZpm6oFlUCru8FtVu1KAbUnKzM3/KV+K7hge3Da2xYqiThtY30ZfQF/0a//ge0h+8Ua1cVg=
-
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tor4
-
-
-slipnet-enc://AYknjJISbu5ZqLWiq2RNE+G+gbxtV75kKeAJTgfzWUyOMCdZiVanSICtP3YDVEr0yoDDb7ztSuVeLbSdb2RXGWfFS3nMRaHltnQi8BwWJQyYDCOniRwIaKvtXOhz7DX9yYYKLUlOxjUN9TANDJxLo4ZvpyZKLRiv22Ye8+6n6gEkOuXi8OWj7+gBx1OnlvWzoKU91ANpw8nWou6AXULwXUQ19O02tI2qhFYo+CcHcPODvscmkaT39CU66FxYLc2nlDm6rs8tB6bExCPRyF7BkzmrfeNk5FfghPDemGbv8TmupEuLElMt7DZHwozMAjtDrz+yfUZdhNtxHIXwNcSFeQJFWtQEkgoI4g57xyYWWPBA5alZra/VDjZV/UDWRXKry+u3dul96Lpy0IZBbnaz3w00Lja9ExpCSVzb1fK4b6QXe9E4JfuALd6dEgu5W2++FfSW5L0omuUrl21TVGyquh63sVwFy7CDlRrgHK9wATUpDkFStH16bNqruALilGxYdDMa3s3NRz9elKGuKykkslBZRfKcsHGelJ1zOmZEioo59yB9JTKQnUKmz1kFqN3jRB9DTNzyLu93/qPWIssik/IOqJtMt0uX5TfXvK762j1gsQJcxPOFGdKyWiGbIZNbKUDQDfxn7rLH+5Tl8Kur0XWXEBxmRlHKH2U/+e/5krH74ZcHuuLXBKLrcU69mUKmdkc/6KCY98Amnl/79jwDldirI0yr2IH9VBQAZUcqS95s
-
-﻿
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8111
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tor3
-
-
-slipnet-enc://AZCV5Hkcq+Jm48xNzu4mAD0er0Ic56DV6pRNLFuSoNZ8We+HMKiPRZq74s3N7ai0EDGrWZTklNfHagxXfgK87Ab/PCtf3R7UCEqviAzUlgEcCSOjhQM51YhlnBZ1Lp5iXetB9SJ8Eyt31RIiFkBdknwhkX+8xgVNM4a2E/VuVqO5PdbUSfY8wHLxfQlV5GWAQBlRQ2EPLthf1Y2ioyJS4lFmWY3mzx7qv+sOK4w3JOQcSIVGjTwUtE4Ks2zg3wGL8FNnaSwbydZ4tpLGElHCTEQIqDCP9P5j/j32uV3J0qQL71sOtGj3EBj54AtZjvGo07aZT1kfQkXn7ihxHtWqAvhVLnOzPuimqkrBJ3NSMNnXgn96AToN3jUx2HXzQMI0jnsSz8HO9tjUTIpqs7fYCGBH5Xq7gw7f9iXon/cb8w9VwvzdlRYukXkr5MjfmHOKX8zLCZZakLo6X5cakWIHt064pbTp/sjj7RNaWm2Wc6Hq1sQbSiGbAcDl5m+aV+VxaVZmDJWiltsjWmqCiI7+0C7b53HgxZF9JfBs5OrBdB/XNrizCKPa58Agf7I2rrpIK+q4MHZdFn7mhjilYmHGaeiZe28+ee9CH6O+rdxk3oFeq81A2KPQMopv2q2OMra01kFE9jpH9G39tU5VQXPOfPrk63c/C4HIr2mdf1l02jrTG4fJNSoN+a4cOrJYuol5fX3yyR0uo2X+zglegamTPiIiMcd2PbAGkQ==
-
-﻿
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8110
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tor2
-
-
-slipnet-enc://Ae2EEQLf+LxSQ2MlvnWNA82xsmSEx4iPv+oSxDkNzqegYMSMpojO4WzTpcHOYO0k5X5jqUoDzwzUgHe7/k6lUDPFB2oWgw2P75hMiHwzs+jvA8SCcdtynmzXTNC42cAc7ADeSW8RiTm/W9GFN7anpOLb+OQ8CNq7usgF/x+ZjVceWGuMVObY81VnSqQuydigaFHSsV4s7SR8HY4aHXxAO/xH+AZPxeEnDyFmaX72jCDo4Y8sGOP1yu86DY/nt9E0cLdEiDxUwXCmNKEy5X9E31+rVLFu5f9LapUNjYRFp4XPGvMguC0Z09N9dfVpe2FNdF3g2i1DHvO6M9RPxS/iOZLyt3aLhc+mkBotDQ2EzxlH7HtuWf6rBp4HDJV7vqM/W0vFzqPnGNtkQEuIJv8CHiF6CLHrkyM3ZXKmI3oXFFq/LaPzrmw391PzY3bHolyQfgtytwv0SkgEbTUTd5Blrmuq0edXy7vFDORZ33bNUZojD0UMmR7ARU4LZzV+faebbxGebPXJG95EiPT4c1EaB1Tv9WQunu2hY6YpXtLJXSN1l1K9+rwlZTqdLy7QhKB86cnPCh5EOudNbUjEt6Cp/qivOg67auVat4UGuFYL/tu31AvLUSSTk6BEY86veZJ0od/m3NTGfurHCBShFEMX+kTGpG5p6Q8Zpb4qYETavQ/6xYIsoJxrf+QcIafk60J6BoePNwcAZ16alJyViKC8Fg0lqXwdr3TEcgluRtc=
-
-﻿
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای تور همین تنظیمات پیشنهاد میشه فقط بدون پروکسی مود با اسپلیت تونلینگ درست.
 </div>
 
