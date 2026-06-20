@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/03/30 19:36
+📅 آخرین بروزرسانی: 1405/03/30 21:25
 
 ---
+
+## tasiyanc — post 5695
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈سرور vip تست شده همراه اول⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5693
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با بازگشت اینترنت بین المللی، جهت اتصالِ راحت‌ شما براتون یک فایل نپسترنت با ۶ تا کانفیگ آماده کردیم ❤️
+
+دریافت کانفیگ نپسترنت ( کاملا رایگان )
+</div>
 
 ## tasiyanc — post 5692
 
@@ -166,28 +186,6 @@ vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=
 📱 اختصاصی تاسیان نامحدود📱
 
 ⛈سرور vip تست شده همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5672
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان 📱
-
-⛈سرور vip تست شده همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5671
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان 📱
-
-⛈سرور سرور تست شده همه اپراتورا⛈ 
 
 
 🚀 @Tasiyanc ✅

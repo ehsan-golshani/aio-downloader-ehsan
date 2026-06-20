@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/03/30 19:36
+📅 آخرین بروزرسانی: 1405/03/30 21:25
 
 ---
+
+## tasiyanc — post 6949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنا چ‌کم شده
+</div>
+
+## tasiyanc — post 6947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تست کنید
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 6946
 
@@ -190,21 +203,5 @@ T.me/Tasiyanc ✅
 مراسم امضای رسمی این توافق روز جمعه 19 ژوئن در سوئیس برگزار خواهد شد.
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسمیییییییییییی
-توافق امضا شد
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 6925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk
-بیاید گپمون (صحبت)
 </div>
 
