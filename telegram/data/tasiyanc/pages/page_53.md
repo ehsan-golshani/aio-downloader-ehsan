@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/03/30 01:22
+📅 آخرین بروزرسانی: 1405/03/30 05:08
 
 ---
+
+## tasiyanc — post 5685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+27 k 🥹🫂
+ممنون که با تاسیان همراهید
+</div>
+
+## tasiyanc — post 5684
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip هلند ، فرانسه  همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5681
 
@@ -168,21 +186,5 @@ vless://d37a75db-76b6-4db8-b213-0d5b044d138d@172.64.152.100:443?path=%2F&securit
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 WİFİ موشک.npvt
-</div>
-
-## tasiyanc — post 5663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گوشه ای از محبت مردم عزیز وطنم ❤️ همه رو نمیشه بزارم ، سپاس از همتون
-</div>
-
-## tasiyanc — post 5662
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود به دوستان گلم
-خسته نباشید میگم بهتون
-جا داره ازتون تشکر کنم بابت زحمات زیادی که کشیدید من به شخصه یادم میمونه که تو چه شرایطی پشت مردمتون بودید
-دم معرفتتون گرم
-امیدوارم بتونیم جبران کنیم 💙💙
 </div>
 

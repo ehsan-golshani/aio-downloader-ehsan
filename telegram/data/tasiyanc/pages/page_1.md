@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/30 01:22
+📅 آخرین بروزرسانی: 1405/03/30 05:08
 
 ---
+
+## tasiyanc — post 7199
+
+<div align="center"><a href="files/post_7199_MCI 🇮🇹⚡️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MCI 🇮🇹⚡️.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+BERLIN 🇩🇪⚡️GN.npvt
+</div>
+
+## tasiyanc — post 7198
+
+<div align="center"><a href="files/post_7198_BERLIN 🇩🇪⚡️GN.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 BERLIN 🇩🇪⚡️GN.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV لوکیشن DE
+
+2سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7196
 
@@ -226,17 +252,5 @@ GN⚡⚡🇩🇪FST🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حملات شدید توپخانه ای هم اکنون به نبطیه و تلاش اسرائیل برای تصرف تپه علی طاهر ، و مقاومت حزب الله
-</div>
-
-## tasiyanc — post 7173
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسراییل میخواد کرم بریزه درست بعد توافق حمله کرد به نبطیه😐
-</div>
-
-## tasiyanc — post 7171
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ حمله شدید اسرائیل به لبنان 😐
 </div>
 

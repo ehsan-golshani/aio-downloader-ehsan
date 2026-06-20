@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/03/30 01:22
+📅 آخرین بروزرسانی: 1405/03/30 05:08
 
 ---
+
+## tasiyanc — post 5865
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد اتصال ۲۰ تا ۳۰ ثانیه زمان بدید . و بیاید تلگرام یا برید اینستاگرام
+</div>
+
+## tasiyanc — post 5864
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+ 2 سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5863
 
@@ -129,19 +152,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تاسیان خدایی دمت گرم تنها کانال که کانفینگاش پرسرعته تویی دمت گرم خدایی
-</div>
-
-## tasiyanc — post 5845
-
-<div align="center"><img src="files/post_5845_tasiyanc_5845.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ناموسا وحشی طور وصله تازه هم استارت زدم
-</div>
-
-## tasiyanc — post 5844
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هرچی فرستادی وصلع
 </div>
 
