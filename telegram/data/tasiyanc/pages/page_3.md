@@ -1,8 +1,102 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/03/30 21:25
+📅 آخرین بروزرسانی: 1405/03/31 02:21
 
 ---
+
+## tasiyanc — post 7165
+
+<div align="center"><video src="files/post_7165_tasiyanc_7165.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7165_tasiyanc_7165.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود مولتی لوکیشن
+
+2سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+➡️
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7164
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡⚡IR FAST 🚀.npvt
+</div>
+
+## tasiyanc — post 7163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود مولتی لوکیشن
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7149
+
+<div align="center"><video src="files/post_7149_tasiyanc_7149.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7149_tasiyanc_7149.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Game DNS 
+🛒
+اختصاصی تاسیان
+8.20.247.20
+80.80.81.81
+76.76.2.2
+77.88.8.1
+223.6.6.6
+45.76.113.31
+
+
+🔑 DNS CHANGER 
+🕹
+
+آموزش استفاده 
+⏩
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7147
+
+<div align="center"><video src="files/post_7147_tasiyanc_7147.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7147_tasiyanc_7147.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امضای پزشکیان زیر متن تفاهم نامه ایران و آمریکا سوژه شد 
+😂
+
+@Tasiyanc 
+✅ | تاسیان
+</div>
 
 ## tasiyanc — post 7145
 
@@ -162,63 +256,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ناموصاااا پختو پز کردیممم‌این حق ری اکشنمونننن برید اینستاااا عشق کنیددددد
-</div>
-
-## tasiyanc — post 7118
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مخصوص گیمینگ و اینستا انگار رفع فیلتریه
-
-📊 حجم : نامحدود  |  ⏳انقضا : 120Day
-
-📶 وضعیت اتصال : فعال ✅
-
-
-⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید
-
-دریافت کانفیگ نامحدود رایگان
-
-🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
-</div>
-
-## tasiyanc — post 7117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آماده باشید بریم‌چنتا سرور خفن بزاریم
-</div>
-
-## tasiyanc — post 7115
-
-<div align="center"><video src="files/post_7115_tasiyanc_7115.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7115_tasiyanc_7115.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-3سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود برنامه 
-🕹 IOS 📱 Android 
-
-آموزش اتصال ➡️
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرتغال رید ، مساوی کردیم
-</div>
-
-## tasiyanc — post 7112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طارمی مادرت به عذات بشینه ایشالا
-به کشتن ۴۰ هزار نفر انسان تو میگی اختلافات جزیی
 </div>
 
