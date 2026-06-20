@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/03/30 05:08
+📅 آخرین بروزرسانی: 1405/03/30 13:20
 
 ---
+
+## tasiyanc — post 5871
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN ♻️
+
+تست شده روی همه اپراتورا🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5869
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ OpenVPN ♻️
+
+تست شده روی همه اپراتورا🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5868
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوکی کنم میفرسم
+</div>
 
 ## tasiyanc — post 5865
 
@@ -134,23 +160,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دمتون گرم ، هر کانفیگی گذاشتین وصل شد ، دمتون گرم ، تنها کانالی که پر تلاش برای مردم است ، با تشکر از چنل عالی و خوب تاسیان مرسی
-</div>
-
-## tasiyanc — post 5848
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مثل بعضیا دوس ندارم تعریف کنم ولی خب وقتی دو سه نفر کونشور بیاد بگه وصل نیست مجبورم چند تا پیام از لطف عزیزانم رو بهشون بفرستم ❤️‍🔥
-</div>
-
-## tasiyanc — post 5847
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیه
-</div>
-
-## tasiyanc — post 5846
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاسیان خدایی دمت گرم تنها کانال که کانفینگاش پرسرعته تویی دمت گرم خدایی
 </div>
 
