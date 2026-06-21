@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/31 02:21
+📅 آخرین بروزرسانی: 1405/03/31 12:39
 
 ---
+
+## tasiyanc — post 7222
+
+<div align="center"><img src="files/post_7222_tasiyanc_7222.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ Windscribe 
+🔐 می‌خوام بزارم ، همونطوری ک میدونید بهترین کلاینت VPN حال حاضره از هر لحاظ ، دانلودش داشته باشید بریم تو کارش ، این کانفیگ ها مناسب گیم و وبگردی هستن
+</div>
+
+## tasiyanc — post 7221
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جرمی دوکو ستاره بلژیک در آستانه بازی با ایران بخاطر زایمان همسرش از اردوی بلژیک جدا شد
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7220
 
@@ -22,8 +40,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 <div align="center"><video src="files/post_7217_tasiyanc_7217.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7217_tasiyanc_7217.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7217_FAST ⚡🇩🇪 @Tasiyanc .dark.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 FAST ⚡🇩🇪 @Tasiyanc .dark</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🌟کانفیگ اختصاصی دارک تانل 
@@ -58,8 +74,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 <div align="center"><video src="files/post_7216_tasiyanc_7216.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7216_tasiyanc_7216.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7216_Amsterdam½🇳🇱⚡⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Amsterdam½🇳🇱⚡⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ نامحدود NPV لوکیشن NL
@@ -315,27 +329,5 @@ BERLIN 🇩🇪⚡️GN.npvt
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن مولتی
-
-3سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SIUUUUUUUUUUUUUUUUUU! 🐐🌟
 </div>
 

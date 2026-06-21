@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/03/31 02:21
+📅 آخرین بروزرسانی: 1405/03/31 12:39
 
 ---
+
+## tasiyanc — post 5798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور سرعتی اختصاصی تاسیان  📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡.npvt
+</div>
 
 ## tasiyanc — post 5796
 
@@ -161,20 +178,5 @@ kiwi Speed 🥝.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اینترنت سرش یکم گرد شد
-</div>
-
-## tasiyanc — post 5775
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-CHATGBT ✅
-هم گویا رفع فیلتر شده
-</div>
-
-## tasiyanc — post 5774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی
-Chatgpt Grok
-برای ایرانسل الان باز شد
 </div>
 

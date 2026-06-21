@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/03/31 02:21
+📅 آخرین بروزرسانی: 1405/03/31 12:39
 
 ---
+
+## tasiyanc — post 5497
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده وای‌فای 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5496
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Password @Tasiyanc
+
+📶اختصاصی تاسیان 2 سرور تست شده 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5495
 
