@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/03/31 21:41
+📅 آخرین بروزرسانی: 1405/03/31 23:39
 
 ---
+
+## ProxyMTProto — post 48111
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: data.proxyvpn.site
+Port: 443
+Secret: ee7d75b7a3d02eefad99691681a534c1fe646174612e70726f787976706e2e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48110
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mx.proxyz.site
+Port: 443
+Secret: ee76166fbf55209edbcfbe009bcc16f4646d782e70726f78797a2e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48109
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48108
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cloud.prx.today
+Port: 443
+Secret: eeda2d39fb15ca8ddb6582b915b149465c636c6f75642e7072782e746f646179
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48107
 
@@ -145,42 +181,6 @@ Secret: ee6ee3f38ac1fe7874f5eab381736e7eaa636f6d65742e70726f787974656c6567612e73
 Server: flux.proxytelega.store
 Port: 443
 Secret: eec57f379567b25a79cbd1fa0ad73b98d9666c75782e70726f787974656c6567612e73746f7265
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48090
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lumen.proxyux.site
-Port: 443
-Secret: ee46a405cdf38698927aa7352341e2ba0a6c756d656e2e70726f787975782e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: bolt.proxyonline.online
-Port: 443
-Secret: ee98741a4df96ee86a25ca542a538a3484626f6c742e70726f78796f6e6c696e652e6f6e6c696e65
 @ProxyMTProto
 </div>
 
