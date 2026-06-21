@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/03/31 18:05
+📅 آخرین بروزرسانی: 1405/03/31 21:43
 
 ---
+
+## tasiyanc — post 6575
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6574
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آمریکا میخواد بزنه تقصیر منه ریکشن نمیزنین؟
+</div>
+
+## tasiyanc — post 6573
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی متد جدید همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+PASSWORD 🔑 : @Tasiyanc
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6570
 
@@ -180,30 +218,5 @@ https://t.me/TasiyanProxy
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حتی چنلمون تو اپای ایرانی ام قراره یه جور پرایوت شه اونایی ک ممبر چنلن بیان هر ۲۴ ساعت لینکو عوض میکنم
-</div>
-
-## tasiyanc — post 6548
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منتظرم قطعی بشه پرایوت کنم چنلو اونای ک لف میدن حالشون میپرسم
-</div>
-
-## tasiyanc — post 6547
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بوی برخط شدن میاد اینبار
-</div>
-
-## tasiyanc — post 6546
-
-<div align="center"><video src="files/post_6546_tasiyanc_6546.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6546_tasiyanc_6546.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👍
-🔴 ترامپ: فاش نمی‌کنم که آیا پل‌ها و نیروگاه‌ها را هدف قرار خواهیم داد.
-@Tasiyanc 
-✅
 </div>
 

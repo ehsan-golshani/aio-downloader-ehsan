@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/31 18:05
+📅 آخرین بروزرسانی: 1405/03/31 21:43
 
 ---
+
+## tasiyanc — post 7249
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وصله با سرعت ( مناسب گیم و وبگردی) 
+💓
+
+
+🔐 Config Win⁰¹ - Win⁰² 
+💘
+
+🌟 Config DarkTunnel 
+💘
+</div>
+
+## tasiyanc — post 7248
+
+<div align="center"><video src="files/post_7248_tasiyanc_7248.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7248_tasiyanc_7248.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_7248_❤️‍🔥⚡️ VipFast.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ❤️‍🔥⚡️ VipFast.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV
+
+4سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7247
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐
+</div>
 
 ## tasiyanc — post 7238
 
@@ -23,8 +73,6 @@
 <div align="center"><video src="files/post_7235_tasiyanc_7235.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7235_tasiyanc_7235.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7235_@Tasiyanc 🪐[Wnd].conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🪐[Wnd].conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی وایر Windscribe 🔐
@@ -60,8 +108,6 @@
 
 <div align="center"><a href="files/post_7231_tasiyanc_7231.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
-<div align="center"><a href="files/post_7231_🇩🇪🇸🇪 Unlimited ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇩🇪🇸🇪 Unlimited ⚡.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ نامحدود NPV
 
@@ -87,8 +133,6 @@
 <div align="center"><video src="files/post_7229_tasiyanc_7229.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7229_tasiyanc_7229.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7229_🇮🇹⚡️@Tasiyanc.dark.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇮🇹⚡️@Tasiyanc.dark</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🌟کانفیگ اختصاصی دارک تانل 🌟
@@ -268,66 +312,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 کانفیگای دارک امیدوارم فراگیر شه و همه برنامشو بزنن کانفیگاش استفاده کنن واقعا یه لول از بقیه متد ها سر تره ،
 کوچکترین باگ نمیشه پیدا کرد توش با سرعت اتصال پایدار میده و هر ثانیه اتصال شمارو چک می‌کنه پینگ میده
 این کانفیگ ها در صورت قطعی قطعا باهاش خیلی کار خواهیم کرد
-</div>
-
-## tasiyanc — post 7210
-
-<div align="center"><video src="files/post_7210_tasiyanc_7210.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7210_tasiyanc_7210.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 
-🌟
-
-برای گیم 
-🎲 دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖 
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها 
-✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک 
-⏩
-
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7209
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅سرویس های حجم نامحدود با بهترین قیمت و کیفیت براتون تخفیف خورد 
-⭕️
-
-تک کاربر:290 هزار تومان
-دو کاربر:580هزار تومان
-سه کاربر:870هزارتومان
-
-
-🔥جهت خرید میتونید به PV زیر مراجعه کنید :
-
-🟢@nac_config
-
-🔵@nacconfig
-</div>
-
-## tasiyanc — post 7208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹هیئت مذاکره کننده جمهوری اسلامی دقایقی قبل به ریاست قالیباف راهی سوئیس شد.
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 
