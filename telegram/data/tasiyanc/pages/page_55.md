@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/03/31 12:39
+📅 آخرین بروزرسانی: 1405/03/31 15:33
 
 ---
+
+## tasiyanc — post 5646
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️ پیرو اخبار بازگشت اینترنت بین المللی: درز های خیلی زیادی باز شده و یه کانفیگ نپستر درست شده که کار میکنه! دریافت کانفیگ نپسترنت مخصوص ( رایگان )
+</div>
+
+## tasiyanc — post 5645
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️ پیرو اخبار بازگشت اینترنت بین المللی:
+
+درز های خیلی زیادی باز شده و یه کانفیگ نپستر درست شده که کار میکنه!
+
+دریافت کانفیگ نپسترنت مخصوص ( رایگان )
+</div>
 
 ## tasiyanc — post 5644
 
@@ -182,25 +198,5 @@
 برای اتصال پایدار صبور باشید🚀
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5613
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈سرور تست شده wifi⛈
-
-برای اتصال پایدار صبور باشید🚀
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5612
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گوگل پلی برا بعضیا باز شده و اکثرا باز نشده ( طبق گزارش ممبرهای عزیزمون)
 </div>
 

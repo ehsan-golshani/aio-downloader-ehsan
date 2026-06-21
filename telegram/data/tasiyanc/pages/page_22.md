@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/03/31 12:39
+📅 آخرین بروزرسانی: 1405/03/31 15:33
 
 ---
+
+## tasiyanc — post 6508
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
+</div>
+
+## tasiyanc — post 6507
+
+<div align="center"><img src="files/post_6507_tasiyanc_6507.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔱 @Tasiyanc 🔥.txt
+</div>
 
 ## tasiyanc — post 6506
 
@@ -211,17 +225,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امسال ( خرداد ماه) آب تراز دریاچه اورمیه نسبت به سال گذشته (خرداد)۲۰ برابر افزایش داشته 😂😐
-</div>
-
-## tasiyanc — post 6474
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امسال ( خرداد ماه) آب تراز دریاچه اورمیه نسبت به سال گذشته (خرداد)۲۰ برابر افزایش داشته 😂😐
-</div>
-
-## tasiyanc — post 6473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸@Tasiyanc.ovpn
 </div>
 
