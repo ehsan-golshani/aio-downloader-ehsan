@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/31 23:41
+📅 آخرین بروزرسانی: 1405/04/01 01:20
 
 ---
+
+## tasiyanc — post 7261
+
+<div align="center"><video src="files/post_7261_tasiyanc_7261.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7261_tasiyanc_7261.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_7261_🇩🇪🇳🇱⚡ Unlimited.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇩🇪🇳🇱⚡ Unlimited.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV
+
+2سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7260
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی هجومی تیم ملی با مساوی به پایان رسید
+</div>
+
+## tasiyanc — post 7259
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخرااااااااج بازیکن بلژیک 🔹
+</div>
+
+## tasiyanc — post 7257
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشمای بلژیک ریخته ۱۱ نفری دفاع میکنن
+</div>
 
 ## tasiyanc — post 7256
 
@@ -192,64 +240,6 @@
 آموزش اتصال به سرور دارک ⏩
 
 
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7228
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Wnd🍓 @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 7223
-
-<div align="center"><video src="files/post_7223_tasiyanc_7223.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7223_tasiyanc_7223.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایر Windscribe 
-🔐
-
-
-🟢حجم و کاربر نامحدود 
-🟢
-
-تمام اپراتورا 
-🔺
-
-مناسب گیم 
-🎲 دانلود
-⬇️ وب‌گردی
-🔍 جمینای
-
-دانلود ویندسکرایب : Android 
-📱  iOS 
-🕹
-
-آموزش اتصال به سرور 
-⏩
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7222
-
-<div align="center"><img src="files/post_7222_tasiyanc_7222.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ Windscribe 
-🔐 می‌خوام بزارم ، همونطوری ک میدونید بهترین کلاینت VPN حال حاضره از هر لحاظ ، دانلودش داشته باشید بریم تو کارش ، این کانفیگ ها مناسب گیم و وبگردی هستن
-</div>
-
-## tasiyanc — post 7221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جرمی دوکو ستاره بلژیک در آستانه بازی با ایران بخاطر زایمان همسرش از اردوی بلژیک جدا شد
 
 ✔️ T.me/Tasiyanc 
 ✅

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/03/31 23:39
+📅 آخرین بروزرسانی: 1405/04/01 01:18
 
 ---
+
+## ProxyMTProto — post 47792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: moon.nolags.pw
+Port: 443
+Secret: dd2c611b53a9c82f662081daed93cc3cb3
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47791
 
@@ -172,15 +181,6 @@ Secret: ee1c88677acf461e09e68f4ff0cef5724a617669746f2e7275
 Server: trump.chunkycorp.shop
 Port: 443
 Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47772
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: nether.nolags.pw
-Port: 443
-Secret: dd0ed82c381c8fccacbe15605dec874662
 @ProxyMTProto
 </div>
 

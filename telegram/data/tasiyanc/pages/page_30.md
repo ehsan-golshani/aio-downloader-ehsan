@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/03/31 23:41
+📅 آخرین بروزرسانی: 1405/04/01 01:20
 
 ---
+
+## tasiyanc — post 6322
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۲سرور   سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  
+⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6320
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN♻️
+
+تست شده  🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6318
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشناروووووووو
+</div>
+
+## tasiyanc — post 6317
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+4سرور   سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6316
 
@@ -167,42 +219,5 @@ Password : @Tasiyanc  ⏩
 پی‌نوشت : تاسیان جهت کمک به ورود بازی راه حل پیشنهاد میدهد میتوانید با مسئولیت خودتون نصب و استفاده کنین .
 ​
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گیمرایی ک مشکلات ورود به بازی های آنلاین دارن بالا باشید 💋
-</div>
-
-## tasiyanc — post 6293
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•𝐅_𝟐𝟐_⚡💣_ᴾʳᵉᵐᶤᵘᵐ_ᶳᵉʳᵛᵉʳᶳ.npvt
-</div>
-
-## tasiyanc — post 6292
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-8سرور پرمیوم  سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6291
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به درخواست شما عزیزان معرفی میکنیم ولی بنده به شخصه از کلاینت های متن باز و مورد اعتماد و شناخته شده
-
-WireGuard • OpenVPN • Xray (VLESS / Reality) • V2Ray • Npv
-استفاده میکنم چون امنیت بسیار بالاتری نسبت به کلاینت و اپ های VPN دارند
 </div>
 

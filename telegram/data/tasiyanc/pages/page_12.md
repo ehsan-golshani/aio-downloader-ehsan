@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/03/31 23:41
+📅 آخرین بروزرسانی: 1405/04/01 01:20
 
 ---
+
+## tasiyanc — post 6870
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.0.1:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%40Tasiyanc%20DE%20%E2%9A%A1%F0%9F%9A%80 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path…
+</div>
+
+## tasiyanc — post 6868
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 
+🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6866
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐
+vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.0.1:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%40Tasiyanc%20DE%20%E2%9A%A1%F0%9F%9A%80
+vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc%20%E2%9A%A1
+vless://0058c215-ab1e-400c-a403-b5b2fda7e846@pishdad.org:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA02%20%40Tasiyanc%20%E2%9A%A1
+100 GB fast servers 🚀 🇩🇪
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6865
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐
+trojan://humanity@104.16.174.121:443?path=%2Fassignment&security=tls&insecure=0&host=www.ignitelimit.com&type=ws&allowInsecure=0&sni=www.ignitelimit.com#%40Tasiyanc%20%F0%9F%8C%8E%E2%9A%A1
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6862
 
@@ -177,40 +219,5 @@ vless://dc8eccdb-ecfa-435f-9ac1-5dc4882e7b51@162.19.228.119:80?path=%2Fhttp&secu
 
  T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6838
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۸۰٪ چنل با وایرگارد هامون بخوبی وصل میشن فک کنم
-</div>
-
-## tasiyanc — post 6837
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتیجه بازی های جام جهانی تا الان (اتمام نیمه اول )
-
-تیم کمک های اولیه🇨🇭 1 قطر 0 🇶🇦
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6835
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6834
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[38]⚡@Tasiyanc.conf
 </div>
 
