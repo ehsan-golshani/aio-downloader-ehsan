@@ -1,8 +1,72 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/03/31 15:33
+📅 آخرین بروزرسانی: 1405/03/31 18:05
 
 ---
+
+## tasiyanc — post 6681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️سپاه پاسداران:
+اگر امریکا تمام خواسته‌های ما را در سندی که ارائه دادیم بپذیرد، به احتمال زیاد ما این توافق را تایید خواهیم کرد.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6680
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ترامپ درباره توافق با ایران:
+ما به‌تازگی یک توافق عالی درباره جنگ با ایران انجام دادیم و در حال نهایی کردن مدارک هستیم. باید طی چند روز آینده کار تمام شود.
+
+احتمالاً امضا در اروپا انجام خواهد شد و این یک اتفاق عالی است.
+
+بازار سهام ۱۰۰۰ واحد رشد کرده است. این یعنی آن‌ها این توافق را دوست دارند.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️خبرگزاری فارس:
+
+با توجه به اینکه امریکا متن پیشنهادی ایران را پذیرفته است احتمال تایید این متن در مراجع اصلی‌نظام بالا است‌
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۰٪ کانفیگای NPV ک زدم امروز وصلن
+</div>
+
+## tasiyanc — post 6677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc - DE VIP 🇩🇪⚡.npvt
+</div>
+
+## tasiyanc — post 6676
+
+<div align="center"><video src="files/post_6676_tasiyanc_6676.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6676_tasiyanc_6676.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی همه نت ها 
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 🕹 IOS 
+📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6674
 
@@ -134,75 +198,5 @@ Fotmob iOS
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چطورید رو به راهید؟
-</div>
-
-## tasiyanc — post 6657
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطورید رو به راهید؟
-</div>
-
-## tasiyanc — post 6656
-
-<div align="center"><video src="files/post_6656_tasiyanc_6656.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6656_tasiyanc_6656.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-3سرور سرعتی همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6655
-
-<div align="center"><video src="files/post_6655_tasiyanc_6655.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6655_tasiyanc_6655.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید قهرمانی پرتغال به عشق آقام کریس 
-😱
-🤔
-</div>
-
-## tasiyanc — post 6654
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆افتتاحیه جام‌جهانی امشب ساعت 22.30
-
-جدال مکزیک و آفریقا
-</div>
-
-## tasiyanc — post 6651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔩 🔴ترامپ : نمی‌خواهم کاری کنم که مردم ایران تشنگی بکشند و آبی برای خوردن نداشته باشند، پس توافق کنید!
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 6650
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔩🔴ترامپ: ایران بزودی به پایان می‌رسد، امشب هم بشدت بمباران خواهند شد!
-@Tasiyanc 
-✅
 </div>
 
