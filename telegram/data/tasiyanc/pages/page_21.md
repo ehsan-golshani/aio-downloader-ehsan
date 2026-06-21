@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/04/01 01:20
+📅 آخرین بروزرسانی: 1405/04/01 02:29
 
 ---
+
+## tasiyanc — post 6567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+DhVkjFb6qhZmYTFk
+گپ تاسیان - تحلیلگران جنگ بیان
+</div>
+
+## tasiyanc — post 6566
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی مناسب همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6561
 
@@ -180,46 +217,5 @@ https://t.me/TasiyanProxy
 ⭕️
 ⭕️
 ⭕️
-</div>
-
-## tasiyanc — post 6542
-
-<div align="center"><video src="files/post_6542_tasiyanc_6542.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6542_tasiyanc_6542.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-4سرور سرعتی مناسب همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6541
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
-</div>
-
-## tasiyanc — post 6540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو
-پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
 </div>
 

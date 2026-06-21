@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/01 01:20
+📅 آخرین بروزرسانی: 1405/04/01 02:29
 
 ---
+
+## tasiyanc — post 6511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم‌ اکنون حملات ایالات متحده آمریکا به جزیره قشم و بندرعباس
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6510
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور متد جدید🚀
+
+نامحدود  - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6509
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
+</div>
 
 ## tasiyanc — post 6508
 
@@ -200,30 +232,5 @@
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6478
-
-<div align="center"><img src="files/post_6478_tasiyanc_6478.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هلیا خانم ایران ۵ قلو زایید 🥹
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6477
-
-<div align="center"><img src="files/post_6477_tasiyanc_6477.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-300 GB - 🇬🇧🇩🇪.npvt
-</div>
-
-## tasiyanc — post 6476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امسال ( خرداد ماه) آب تراز دریاچه اورمیه نسبت به سال گذشته (خرداد)۲۰ برابر افزایش داشته 😂😐
 </div>
 
