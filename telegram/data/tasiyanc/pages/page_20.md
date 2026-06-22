@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/04/01 09:44
+📅 آخرین بروزرسانی: 1405/04/01 16:04
 
 ---
+
+## tasiyanc — post 6629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به یاد فرزندان ایران 🖤 ۱۸ & ۱۹
+</div>
+
+## tasiyanc — post 6622
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعت سرویس ساب نامحدود ک براتون گذاشتیم 🚀 داخل چنل پروکسی پین شده ❤️ https://t.me/+v0wRP5SGNrg5MThk 👆
+</div>
+
+## tasiyanc — post 6621
+
+<div align="center"><img src="files/post_6621_tasiyanc_6621.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk
+</div>
 
 ## tasiyanc — post 6620
 
@@ -158,42 +178,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آمریکا میخواد بزنه تقصیر منه ریکشن نمیزنین؟
-</div>
-
-## tasiyanc — post 6573
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی متد جدید همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-PASSWORD 🔑 : @Tasiyanc
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6570
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 ⭕️هگست : اگر لازم باشد با بمب‌ها مذاکره کنیم، با بمب‌ها مذاکره خواهیم کرد.
-ما در این کار بسیار ماهریم
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تکمیلی
-
-🇺🇸⭕️ هگست:
-ایران فرصتی برای انجام یک معامله عالی دارد. آنها تمایلی به انجام آن نداشته‌اند. بمب‌ها به صورت ضربه‌ضربه بر روی تأسیسات کلیدی در ایران از سوی آمریکا فرود خواهند آمد؛ این کار برای شروع مجدد جنگ نیست بلکه برای تعیین شرایط یک معامله است.
-@Tasiyanc ✅
 </div>
 

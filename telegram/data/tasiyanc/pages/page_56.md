@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/04/01 09:44
+📅 آخرین بروزرسانی: 1405/04/01 16:04
 
 ---
+
+## tasiyanc — post 5668
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Mci [22].npvt
+</div>
+
+## tasiyanc — post 5667
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان 📱
+
+⛈سرور سرور تست شده همراه بقیه اپراتورا تست کنن⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5666
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 🇸🇦
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈3 سرور وی ای پی تست شده وای‌فای ⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5665
 
@@ -163,39 +193,6 @@ WİFİ موشک.npvt
 
 ⛈سرور تست شده همه اپراتورا⛈
 
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5632
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈سرور تست شده همه اپراتورا⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5631
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمام سرورا با همراه اول & وای‌فای تست میشن
-</div>
-
-## tasiyanc — post 5629
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈۲سرور تست شده همه اپراتورا⛈
-
-برای اتصال پایدار صبور باشید🚀
 
 🚀 @Tasiyanc ✅
 </div>

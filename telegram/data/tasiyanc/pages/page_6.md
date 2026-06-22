@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/01 09:44
+📅 آخرین بروزرسانی: 1405/04/01 16:04
 
 ---
+
+## tasiyanc — post 7104
+
+<div align="center"><img src="files/post_7104_tasiyanc_7104.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادامه برنامه تیم ملی در جام جهانی 2026
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7103
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقام رونالدو تو ترکیبه 🥹❤️
+</div>
+
+## tasiyanc — post 7102
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+2سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود🎥 وب‌گردی🔍 جمینای 🤖 🚀
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7101
 
@@ -244,29 +275,5 @@ Primary address ⚡️119.29.29.29
 Password ': @Tasiyanc
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7061
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@series-a2.samanehha.co:443#%F0%9F%87%AC%F0%9F%87%A7%40Tasiyanc%20%F0%9F%8C%99
-Loc 🇬🇧
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7060
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 16 June روز برآورده شدن آرزوهاتونه😄
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7058
-
-<div align="center"><img src="files/post_7058_tasiyanc_7058.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمامی نپسترایی ک از دیروز صبح زدیم وصلن با سرعت فضایی وصل شید عشق کنید ⚡️
 </div>
 
