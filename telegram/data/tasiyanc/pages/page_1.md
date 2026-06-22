@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/01 02:29
+📅 آخرین بروزرسانی: 1405/04/01 09:44
 
 ---
+
+## tasiyanc — post 7271
+
+<div align="center"><a href="files/post_7271_⁰¹⚡️@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⁰¹⚡️@Tasiyanc.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال
+
+🤩🤩🤩
+🤩🤩🤩
+🤩🤩🤩
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7269
 
@@ -23,8 +44,6 @@
 </div>
 
 ## tasiyanc — post 7266
-
-<div align="center"><a href="files/post_7266_🇮🇹⚡️ Unlimited .dark.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇮🇹⚡️ Unlimited .dark</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
@@ -188,33 +207,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ های اخیر که گذاشتم همشون وصله
 ( دارک - نپستر - ویندسکرایب) حمایت یادتون نره ❤️
-</div>
-
-## tasiyanc — post 7235
-
-<div align="center"><video src="files/post_7235_tasiyanc_7235.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7235_tasiyanc_7235.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایر Windscribe 🔐
-
-🟢حجم و کاربر نامحدود 🟢
-
-تمام اپراتورا 
-🔺
-
-مناسب گیم 🎲 دانلود
-⬇️ وب‌گردی🔍 جمینای
-
-دانلود ویندسکرایب : Android 
-📱  iOS 
-🕹
-
-آموزش اتصال به سرور ⏩
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

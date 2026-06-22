@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/04/01 02:29
+📅 آخرین بروزرسانی: 1405/04/01 09:44
 
 ---
+
+## tasiyanc — post 6568
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️
+وزیر جنگ آمریکا پیت هگست : امشب تاسیسات ایران را بمباران خواهیم کرد
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6567
 
@@ -208,14 +216,5 @@ https://t.me/TasiyanProxy
 👍 ترامپ: امروز بار دیگر حمله سنگینی به ایران خواهیم کرد .
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 6543
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️
-⭕️
-⭕️
 </div>
 

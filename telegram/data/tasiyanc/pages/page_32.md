@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/04/01 02:29
+📅 آخرین بروزرسانی: 1405/04/01 09:44
 
 ---
+
+## tasiyanc — post 6275
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم
+⏩ @TasiyanProxy
+⏩ @TasiyanProxy
+</div>
 
 ## tasiyanc — post 6273
 
@@ -214,17 +222,6 @@ BabyGirl 🪐.npvt
 دانلود  Wg tunnel 🕹
 
 آموزش⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6250
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2RayNG & V2box & NPV
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca20.myfymain.com:8880?mode=gun&security=none&encryption=none&type=grpc#%F0%9F%87%AE%F0%9F%87%B9-IT%20%40Tasiyanc%20MCI%201
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpDSm1UQ0N4N0x0dWQ%3D@108.181.58.239:8388#%F0%9F%87%B3%F0%9F%87%B1NL%20-%20%40Tasiyanc%202%20MCI
 
 @Tasiyanc ✅
 </div>

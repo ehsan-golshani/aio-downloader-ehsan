@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/04/01 02:29
+📅 آخرین بروزرسانی: 1405/04/01 09:44
 
 ---
+
+## tasiyanc — post 6101
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+غیر رسمی
+
+پزشکیان استعفاء داد
+
+تایید شده نیست
+</div>
 
 ## tasiyanc — post 6100
 
@@ -180,20 +190,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FastVip⚡.npvt
-</div>
-
-## tasiyanc — post 6074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده روی همه اپراتورا🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
 </div>
 

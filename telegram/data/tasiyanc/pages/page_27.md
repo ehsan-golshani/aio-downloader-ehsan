@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/04/01 02:29
+📅 آخرین بروزرسانی: 1405/04/01 09:44
 
 ---
+
+## tasiyanc — post 6404
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتا داره بگ* می‌ره اختلال رو همراه اول
+</div>
 
 ## tasiyanc — post 6403
 
@@ -190,12 +196,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد T.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6374
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد
-T.me/TasiyanProxy
 </div>
 

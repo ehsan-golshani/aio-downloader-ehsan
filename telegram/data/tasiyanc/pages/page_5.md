@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/01 02:29
+📅 آخرین بروزرسانی: 1405/04/01 09:44
 
 ---
+
+## tasiyanc — post 7136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇹🇷⛓️⚡️VIP -IST.npvt
+</div>
 
 ## tasiyanc — post 7134
 
@@ -213,21 +219,5 @@ T.me/Tasiyanc ✅
 مناسب دانلود🎥 وب‌گردی🔍 جمینای 🤖 🚀
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-5 کانفیگ حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-🛡Password Zip: @Tasiyanc
-
-T.me/Tasiyanc ✅
 </div>
 
