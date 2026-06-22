@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/01 16:04
+📅 آخرین بروزرسانی: 1405/04/01 20:53
 
 ---
+
+## tasiyanc — post 6359
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+5سرور   سرعتی تست شده با سامانتل🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
+
+دانلود  NPV tunnel  🌐
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6358
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی ⚡ sv 3.npvt
+</div>
+
+## tasiyanc — post 6357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۳سرور   سرعتی تست شده با همراه 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
+
+دانلود  NPV tunnel  🌐
+
+😬Password :″ @Tasiyanc  ″
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6356
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+گپمون هنو ۴ کا نشده 🗽😐 جوین شید عشقا
+</div>
+
+## tasiyanc — post 6355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سری چنلهای عزیز هم ک باهاشون رفیقم فور میکنن بدون اینکه دیکد کنن ، جا داره ازشون تشکر کنم ❤️‍🔥
+</div>
 
 ## tasiyanc — post 6354
 
@@ -165,50 +217,5 @@ Join As @Tasiyanc ✅
 دانلود  Wg tunnel 🕹
 دانلود iOS 🍏
 🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6336
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبید چخبرا ؟
-</div>
-
-## tasiyanc — post 6334
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور   سرعتی  🇮🇹 🇩🇪 🇳🇱
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🚀
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دولت شیرکاکائوئیا (پاکستانی ها) اینترنت بین الملل رو بخاطر فراخوان اعتراضی بستند
-</div>
-
-## tasiyanc — post 6332
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حال ندارید ریکشن بزنید بریم بخوابیم
-</div>
-
-## tasiyanc — post 6331
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش⏩
-
-@Tasiyanc ✅
 </div>
 
