@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/01 23:56
+📅 آخرین بروزرسانی: 1405/04/02 01:57
 
 ---
+
+## ProxyMTProto — post 47645
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: For Russia and Iran
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQRueWVrdGFuZXQuY29tZmFyYWthdi5jb212YW4ubmFqdmEuY29tAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47644
 
@@ -175,15 +184,6 @@ Secret: ee3e77e6aa740bda96a1dabd06717f51b272392e70726f787974672e7370616365
 Server: amorecoin.duckdns.org
 Port: 443
 Secret: 7mYW_5fPLJzJxcvUupkA3pN3d3cuZ29vZ2xlLmNvbQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: nd1.mowork.twc1.net
-Port: 443
-Secret: ee79faca7ec8bd1b9125007dee535716f47777772e6d6963726f736f66742e636f6d
 @ProxyMTProto
 </div>
 
