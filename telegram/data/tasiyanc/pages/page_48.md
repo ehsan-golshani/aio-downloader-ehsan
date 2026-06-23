@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/04/02 22:33
+📅 آخرین بروزرسانی: 1405/04/03 02:17
 
 ---
+
+## tasiyanc — post 5909
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New⚡Fast.npvt
+</div>
 
 ## tasiyanc — post 5908
 
@@ -211,15 +217,5 @@ Melli shekan 🪐.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هر کدوم بیشتر رای بیاره از اون بیشتر میزاریم
-</div>
-
-## tasiyanc — post 5885
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیشتر با ovpn تا حالا وصل شدید یا با npv ؟ زمان قطعی کدوم به دادتون رسیده یادتون رفت؟
-
-Npv ❤️
-
-Ovpn 🔥
 </div>
 

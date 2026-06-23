@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/04/02 22:33
+📅 آخرین بروزرسانی: 1405/04/03 02:17
 
 ---
+
+## tasiyanc — post 6342
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب تو راهه
+</div>
 
 ## tasiyanc — post 6341
 
@@ -203,20 +209,6 @@ Password : @Tasiyanc 
 📶  اختصاصی تاسیان  😏
 
 4سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-سرور   سرعتی 🚀
 
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام
 

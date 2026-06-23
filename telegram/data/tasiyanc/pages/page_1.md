@@ -1,12 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/02 22:33
+📅 آخرین بروزرسانی: 1405/04/03 02:17
 
 ---
 
-## tasiyanc — post 7322
+## tasiyanc — post 7323
 
-<div align="center"><a href="files/post_7322_Fast Pro ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast Pro ⚡.npvt</a></div>
+<div align="center"><a href="files/post_7323_🇩🇪🔥 Hi Ts (Fast)⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇩🇪🔥 Hi Ts (Fast)⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود NPV لوکیشن Nuremberg 🇩🇪
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ ✅@Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 7322
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ نامحدود NPV لوکیشن 🇩🇪
@@ -191,22 +208,5 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇩🇪🚀 Full Fast⚡.npvt
-</div>
-
-## tasiyanc — post 7290
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن Nuremberg🇩🇪
-
-4سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
