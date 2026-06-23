@@ -1,8 +1,38 @@
 # آرشیو کانال ProxyMTProto - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/04/02 22:32
+📅 آخرین بروزرسانی: 1405/04/03 00:41
 
 ---
+
+## ProxyMTProto — post 47638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.154.25.238
+Port: 443
+Secret: 886ace76f7a9a1e3219537fe5dfd04d5
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47637
+
+<div align="center"><img src="files/post_47637_ProxyMTProto_47637.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🫶 Welcome back #Iran! Metrics show a further rise in connectivity as mobile networks and other segments are reconnected to the global internet:
+
+• Filternet remains in place but can be worked around
+• WhatsApp now restricted, requiring circumvention
+• Some users still offline
+</div>
+
+## ProxyMTProto — post 47636
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowaboost.com
+Port: 443
+Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47635
 
@@ -157,33 +187,6 @@ Secret: eea66a6c939a8f1a0596bd06f17dae253772362e70726f787974672e7370616365
 Server: tproxy.ink
 Port: 443
 Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowaboost.com
-Port: 443
-Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47617
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47616
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 146.103.96.129
-Port: 443
-Secret: ee627bdd42b085906e41105ddd7dab8cca706574726f766963682e7275
 @ProxyMTProto
 </div>
 
