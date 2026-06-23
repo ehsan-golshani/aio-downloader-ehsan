@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/04/02 20:22
+📅 آخرین بروزرسانی: 1405/04/02 22:33
 
 ---
+
+## tasiyanc — post 6240
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[12]⚡@Tasiyanc 🚀.conf
+</div>
+
+## tasiyanc — post 6239
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد CMR  👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6238
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ Speed servers 🥇⚡.npvt
+</div>
+
+## tasiyanc — post 6237
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+5 سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6236
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنام کو😐😐😐😐😐😐😐😐😐😐
+</div>
+
+## tasiyanc — post 6234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۳ کانفیگ وایر فول وصل 
+✅
+</div>
 
 ## tasiyanc — post 6233
 
@@ -143,52 +194,5 @@ nuclear bomb 💥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 NEW FAST ⚡ 🚀.npvt
-</div>
-
-## tasiyanc — post 6218
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ میشه یا آتش بس برقراره؟
-</div>
-
-## tasiyanc — post 6217
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پوشش اخبار جنگ در چنل پروکسی
-زیر هر خبر ادمینا و خودم پروکسی های وصل قرار میدیم
-https://t.me/TasiyanProxy
-https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وایر های قبلی ک‌گذااشتم مثل موشك وصلن نیازی به جدید نی فعلا
-</div>
-
-## tasiyanc — post 6212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-
-3سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6209
-
-## tasiyanc — post 6208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04] @Tasiyanc ⚡🚀.conf
 </div>
 
