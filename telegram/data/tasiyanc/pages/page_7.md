@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/02 15:03
+📅 آخرین بروزرسانی: 1405/04/02 20:22
 
 ---
+
+## tasiyanc — post 7106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به امید قهرمانی آقام رونالدوووووووووووو
+</div>
+
+## tasiyanc — post 7105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی پرتغاااااال شروع شد
+</div>
 
 ## tasiyanc — post 7104
 
@@ -238,42 +250,5 @@ Fast VIP ⚡🇳🇱″🇬🇧.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دی ان اس اختصاصی تاسیان برای گیم ✅ ریج تیر & زد لگ Primary address ⚡️ 117.50.10.10 Primary address ⚡️ 117.50.22.22 Primary address ⚡️123.125.81.6 Primary address ⚡️119.29.29.29 🔑 DNS CHANGER ⬜️ برنامه مورد نیاز @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دی ان اس اختصاصی تاسیان برای گیم ✅
-ریج تیر & زد لگ
-
-Primary address ⚡️ 117.50.10.10
-
-Primary address ⚡️ 117.50.22.22
-
-Primary address ⚡️123.125.81.6
-
-Primary address ⚡️119.29.29.29
-
-🔑 DNS CHANGER ⬜️ برنامه مورد نیاز
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-2 سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-Password ': @Tasiyanc
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
