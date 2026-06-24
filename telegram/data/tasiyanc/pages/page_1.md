@@ -1,12 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/03 02:17
+📅 آخرین بروزرسانی: 1405/04/03 13:31
 
 ---
 
-## tasiyanc — post 7323
+## tasiyanc — post 7325
 
-<div align="center"><a href="files/post_7323_🇩🇪🔥 Hi Ts (Fast)⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇩🇪🔥 Hi Ts (Fast)⚡.npvt</a></div>
+<div align="center"><a href="files/post_7325_⚡ @Tasiyanc .dark.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡ @Tasiyanc .dark</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ دارک تانل 🇮🇹 Milan📍
+
+
+برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
+
+
+دانلود Dark Tunnel  🕹
+
+
+آموزش اتصال به سرور دارک ⏩
+
+
+✅@Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 7323
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ حجم نامحدود NPV لوکیشن Nuremberg 🇩🇪
@@ -200,13 +218,5 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 📍🇩🇪
 
 ✅ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7291
-
-<div align="center"><img src="files/post_7291_tasiyanc_7291.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪🚀 Full Fast⚡.npvt
 </div>
 

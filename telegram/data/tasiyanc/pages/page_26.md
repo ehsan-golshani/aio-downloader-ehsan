@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/04/03 02:17
+📅 آخرین بروزرسانی: 1405/04/03 13:31
 
 ---
+
+## tasiyanc — post 6471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت ارتباط با ادمین ها و تبادلات گپمون : https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 6470
 
@@ -213,11 +219,5 @@ new@Tasiyanc.ovpn
 
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6447
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ Fast 🚀 💥.npvt
 </div>
 
