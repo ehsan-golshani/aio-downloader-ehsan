@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/04/03 18:57
+📅 آخرین بروزرسانی: 1405/04/04 03:29
 
 ---
+
+## tasiyanc — post 6677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc - DE VIP 🇩🇪⚡.npvt
+</div>
 
 ## tasiyanc — post 6676
 
@@ -211,13 +217,5 @@ Fotmob iOS
 🏆افتتاحیه جام‌جهانی امشب ساعت 22.30
 
 جدال مکزیک و آفریقا
-</div>
-
-## tasiyanc — post 6651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔩 🔴ترامپ : نمی‌خواهم کاری کنم که مردم ایران تشنگی بکشند و آبی برای خوردن نداشته باشند، پس توافق کنید!
-@Tasiyanc
-✅
 </div>
 

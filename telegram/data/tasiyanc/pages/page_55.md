@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/04/03 18:57
+📅 آخرین بروزرسانی: 1405/04/04 03:29
 
 ---
+
+## tasiyanc — post 5731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 SamanTel
+trojan://7aXwJPnpAJ@yespaintstudio.rav-kraski.ru:50824?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%F0%9F%8C%A4%EF%B8%8F
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 5730
 
@@ -192,11 +200,5 @@ sv Country 🇬🇧
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5708
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجموعه تاسیان تلاش خواهد کرد بصورت رایگان بهترین سرور ها و بهترین کانفیگارو براتون ارائه بده تا بصورت امن در این فضا فعالیت خوبی داشته باشید نه اپ های مخرب و vpn های نا امنی ک اطلاعات شمارو تو خطر میندازه
 </div>
 
