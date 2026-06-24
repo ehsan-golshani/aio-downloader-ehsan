@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/03 13:31
+📅 آخرین بروزرسانی: 1405/04/03 16:01
 
 ---
+
+## tasiyanc — post 7196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+40.000 🖤 > 72
+</div>
+
+## tasiyanc — post 7193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم-وب‌گردی-اینستاگرام 👑
+
+کانفیگ حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV لوکیشن مولتی
+
+3سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7191
 
@@ -202,42 +238,5 @@ GN⚡⚡🇩🇪FST🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ حمله شدید اسرائیل به لبنان 😐
-</div>
-
-## tasiyanc — post 7170
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گفت نمیدانم چگونه اما تو تغییر کرده ای ، انگار غمی تجربه کرده ای که تو را بزرگ کرده !
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود مولتی لوکیشن
-
-3سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ➡️
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7167
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم-وب‌گردی-اینستاگرام 👑
-
-کانفیگ حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
 </div>
 

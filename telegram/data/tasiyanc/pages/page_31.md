@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/04/03 13:31
+📅 آخرین بروزرسانی: 1405/04/03 16:01
 
 ---
+
+## tasiyanc — post 6346
+
+<div align="center"><img src="files/post_6346_tasiyanc_6346.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معرفی 📶 OLCNG  ☑️
+
+یک پروژه متن‌باز اندرویدی با تمرکز بر سرعت، سادگی و مدیریت آسان کانفیگ‌های پروکسی و VPN. این پروژه توسط تیم توسعه‌دهنده OpenLibre Community توسعه داده می‌شود و کدهای آن به‌صورت عمومی در گیت‌هاب منتشر شده است.
+
+🔺 متن‌باز و قابل بررسی
+🔺 رابط کاربری سبک و ساده
+🔺 به‌روزرسانی و توسعه مداوم توسط جامعه توسعه‌دهندگان
+🔺 مناسب برای استفاده از کانفیگ‌های مختلف در اندروید
+پروژه OLCNG یکی از محصولات OpenLibre Community است که با هدف ارائه ابزاری سریع و ساده برای مدیریت اتصال‌های مبتنی بر پروکسی توسعه داده شده است.
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6345
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST @Tasiyanc servers.txt
+</div>
+
+## tasiyanc — post 6344
+
+<div align="center"><img src="files/post_6344_tasiyanc_6344.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST @Tasiyanc servers.txt
+</div>
 
 ## tasiyanc — post 6343
 
@@ -175,43 +206,5 @@ Password : @Tasiyanc 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😐 ریکشن ۵ تا؟
-</div>
-
-## tasiyanc — post 6322
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۲سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  
-⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6320
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN♻️
-
-تست شده  🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشناروووووووو
 </div>
 

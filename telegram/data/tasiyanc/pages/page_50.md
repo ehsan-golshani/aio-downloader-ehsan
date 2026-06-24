@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/04/03 13:31
+📅 آخرین بروزرسانی: 1405/04/03 16:01
 
 ---
+
+## tasiyanc — post 5863
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+
+گروه تاسیان
+</div>
+
+## tasiyanc — post 5862
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 💫 4Server vip.npvt
+</div>
+
+## tasiyanc — post 5861
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑 رمز @Tasiyanc ″
+
+📶  اختصاصی تاسیان  📶
+
+ 4 سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5860
 
@@ -110,38 +143,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هرچی فرستادی وصلع
-</div>
-
-## tasiyanc — post 5822
-
-<div align="center"><img src="files/post_5822_tasiyanc_5822.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-34k ⚡ Fast 🔥.npvt
-</div>
-
-## tasiyanc — post 5821
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑 رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- 5 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5820
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۳۴ هزار شیم سورپرایز دارم
 </div>
 
