@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/04/04 03:29
+📅 آخرین بروزرسانی: 1405/04/04 07:53
 
 ---
+
+## tasiyanc — post 6249
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌
+‌ واسه هیچ‌کس نامحدود نباشید ،
+آدما گیگی دوست دارن!!!
+
+‌پروکسی
+@TasiyanProxy ✅
+</div>
 
 ## tasiyanc — post 6248
 
@@ -172,24 +183,5 @@ HOT 🔥@TASIYANC.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FAST - MCI💥.npvt
-</div>
-
-## tasiyanc — post 6226
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-
-سرور  سرعتی تست شده 
-🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
-✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc ✅
 </div>
 

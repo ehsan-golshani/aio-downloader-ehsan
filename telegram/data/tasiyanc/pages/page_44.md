@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/04/04 03:29
+📅 آخرین بروزرسانی: 1405/04/04 07:53
 
 ---
+
+## tasiyanc — post 6020
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این فیلتر شکن مخربو سریع حذف کنین بخدا من فشاری شدم دیگه ،
+</div>
 
 ## tasiyanc — post 6019
 
@@ -176,11 +182,5 @@ VİP 🔥.npvt
 پروکسی ۳
 پروکسی ۴
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5994
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور جدید با متد جدید ساعت ۸
 </div>
 

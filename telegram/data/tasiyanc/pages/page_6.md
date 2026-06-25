@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/04 03:29
+📅 آخرین بروزرسانی: 1405/04/04 07:53
 
 ---
+
+## tasiyanc — post 7174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حملات شدید توپخانه ای هم اکنون به نبطیه و تلاش اسرائیل برای تصرف تپه علی طاهر ، و مقاومت حزب الله
+</div>
 
 ## tasiyanc — post 7173
 
@@ -230,21 +236,5 @@ Game DNS
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇹🇷⛓️⚡️VIP -IST.npvt
-</div>
-
-## tasiyanc — post 7134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود لوکیشن🇹🇷
-
-4سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ➡️
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/04/04 03:29
+📅 آخرین بروزرسانی: 1405/04/04 07:53
 
 ---
+
+## tasiyanc — post 5732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💘💘💘
+</div>
 
 ## tasiyanc — post 5731
 
@@ -185,18 +191,6 @@ vless://ce069292-c8bf-40dd-a6b1-87818a1e64e9@ip.sb:443?path=%2F&security=tls&enc
 
 ⛈2 سرور تست شده vip تمام اپراتورا ⛈ 
 sv Country 🇬🇧
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5709
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈ سرور تست شده تمام اپراتورا ⛈ 
 
 
 🚀 @Tasiyanc ✅

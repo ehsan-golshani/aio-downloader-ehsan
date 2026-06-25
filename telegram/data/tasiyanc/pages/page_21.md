@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/04/04 03:29
+📅 آخرین بروزرسانی: 1405/04/04 07:53
 
 ---
+
+## tasiyanc — post 6654
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆افتتاحیه جام‌جهانی امشب ساعت 22.30
+
+جدال مکزیک و آفریقا
+</div>
 
 ## tasiyanc — post 6651
 
@@ -177,12 +185,5 @@ Homayoun Shajarian & Sohrab Pournazeri – Irane Man
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk
-</div>
-
-## tasiyanc — post 6618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم
-https://t.me/+v0wRP5SGNrg5MThk
 </div>
 

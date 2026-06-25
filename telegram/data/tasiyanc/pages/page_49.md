@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/04/04 03:29
+📅 آخرین بروزرسانی: 1405/04/04 07:53
 
 ---
+
+## tasiyanc — post 5893
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  
+♻️
+
+تست شده 
+🚀
+Username vpnbook
+Password 8zw5j9h
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5891
 
@@ -190,11 +204,5 @@ GANG 🌙 10 SERVER FAST.npvt
 تست شده روی همه اپراتورا🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5868
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوکی کنم میفرسم
 </div>
 

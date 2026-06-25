@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/04 03:29
+📅 آخرین بروزرسانی: 1405/04/04 07:53
 
 ---
+
+## tasiyanc — post 6939
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی تست شده  🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6938
 
@@ -213,17 +229,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📊 حجم : نامحدود  |  ⏳انقضا : 30Day 📶 وضعیت اتصال : فعال ✅ ⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید دریافت کانفیگ نامحدود رایگان 🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
-</div>
-
-## tasiyanc — post 6912
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📊 حجم : نامحدود  |  ⏳انقضا : 30Day
-📶 وضعیت اتصال : فعال ✅
-⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید
-
-دریافت کانفیگ نامحدود رایگان
-
-🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
 </div>
 
