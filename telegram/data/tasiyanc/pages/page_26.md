@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/04/04 07:53
+📅 آخرین بروزرسانی: 1405/04/04 11:38
 
 ---
+
+## tasiyanc — post 6482
+
+<div align="center"><video src="files/post_6482_tasiyanc_6482.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6482_tasiyanc_6482.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   
+👑
+
+حجم و کاربر نامحدود 
+🟢
+
+دانلود  Wg tunnel 
+🕹
+
+دانلود iOS 
+📱
+
+آموزش اتصال 
+⛓
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی پرمیوم متد جدید🚀
+
+450 گیگ  - تمام اپراتور ها 
+⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6478
 
@@ -183,34 +233,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6456
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3 سرور پرمیوم متد جدید
-🚀
-
-حجم نامحدود - تمام اپراتور ها 
-⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  
-✔
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6455
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-new@Tasiyanc.ovpn
 </div>
 

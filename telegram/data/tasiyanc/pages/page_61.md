@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/04/04 07:53
+📅 آخرین بروزرسانی: 1405/04/04 11:38
 
 ---
+
+## tasiyanc — post 5568
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نامحدودن بستگی داره چقد سرور شلوغ باشه
+</div>
+
+## tasiyanc — post 5567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+WAR 🔥.npvt
+</div>
 
 ## tasiyanc — post 5566
 
@@ -266,22 +278,5 @@ Join @Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه ترکیبی پررو بریم اگه ری اکشن باشه
-</div>
-
-## tasiyanc — post 5537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده  📶
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترکیبی ✅ vless://5b34187f-f811-58b1-7e68-3cc63df5df3b@meli.masterdadeh.ir:80?type=ws&host=meli.masterdadeh.ir&path=%2F#%40Tasiyanc%20%D8%AA%D8%B1%DA%A9%DB%8C%D8%A8%DB%8C%C2%B9 Join @Tasiyanc 
-✅
 </div>
 

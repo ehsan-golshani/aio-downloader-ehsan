@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/04/04 07:53
+📅 آخرین بروزرسانی: 1405/04/04 11:38
 
 ---
+
+## tasiyanc — post 6428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
+</div>
+
+## tasiyanc — post 6427
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST⚡TASIYAN🚀.npvt
+</div>
 
 ## tasiyanc — post 6426
 
@@ -172,27 +184,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 فایل Txt رو باز کنین کانفیگارو کپی کنین بریزید V2Box 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6404
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتا داره بگ* می‌ره اختلال رو همراه اول
 </div>
 
