@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/04/05 00:12
+📅 آخرین بروزرسانی: 1405/04/05 01:49
 
 ---
+
+## tasiyanc — post 5638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منو چقد دوس؟
+</div>
+
+## tasiyanc — post 5637
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈۲ سرور وی ای پی سرور تست شده نت خانگی⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5636
 
@@ -177,19 +196,5 @@
 برای اتصال پایدار صبور باشید🚀
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5605
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حجم پیام زیاده
-
-قربون همتون عشقید ❤️‍🔥💋
-</div>
-
-## tasiyanc — post 5604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حرف نداری پسر/دختر🫶😂
 </div>
 

@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/04/05 00:12
+📅 آخرین بروزرسانی: 1405/04/05 01:49
 
 ---
+
+## tasiyanc — post 6637
+
+<div align="center"><video src="files/post_6637_tasiyanc_6637.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6637_tasiyanc_6637.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 
+📱 WG tunnel 
+🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6636
+
+<div align="center"><video src="files/post_6636_tasiyanc_6636.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6636_tasiyanc_6636.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+2سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6634
 
@@ -157,18 +200,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6578
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سیو کنین کانفیگارو
-</div>
-
-## tasiyanc — post 6577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ سیریک و قشم مورد حمله قرار گرفت
-@Tasiyanc ✅
 </div>
 

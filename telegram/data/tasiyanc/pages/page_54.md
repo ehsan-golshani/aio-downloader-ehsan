@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/04/05 00:12
+📅 آخرین بروزرسانی: 1405/04/05 01:49
 
 ---
+
+## tasiyanc — post 5765
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+PREMIUM 💥.npvt
+</div>
+
+## tasiyanc — post 5764
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈4 سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید 
+✅
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5763
 
@@ -213,14 +234,4 @@ vless://0dc22208-cea4-4423-b3c3-a36957e23233@91.225.217.26:443?security=reality&
 
 @Tasiyanc ✅
 </div>
-
-## tasiyanc — post 5742
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حجم پیام زیاده ، عشقید لذت ببرید ❤️
-</div>
-
-## tasiyanc — post 5741
-
-<div align="center"><img src="files/post_5741_tasiyanc_5741.jpg" alt="Photo"></div>
 

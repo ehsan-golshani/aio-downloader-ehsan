@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/05 00:12
+📅 آخرین بروزرسانی: 1405/04/05 01:49
 
 ---
+
+## tasiyanc — post 6950
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب خب دست پر اومدیم
+</div>
+
+## tasiyanc — post 6949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنا چ‌کم شده
+</div>
 
 ## tasiyanc — post 6947
 
@@ -187,24 +199,6 @@ T.me/Tasiyanc ✅
 زیرنویس شبکه خبر :
 توافق با امریکا را انجام شد
 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6927
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نخست‌وزیر پاکستان اعلام کرد:
-مراسم امضای رسمی این توافق روز جمعه 19 ژوئن در سوئیس برگزار خواهد شد.
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسمیییییییییییی
-توافق امضا شد
-@Tasiyanc
 ✅
 </div>
 

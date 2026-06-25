@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/04/05 00:12
+📅 آخرین بروزرسانی: 1405/04/05 01:49
 
 ---
+
+## tasiyanc — post 6004
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کی قهرمان میشه ؟
+
+🔴 آرسنال ❤️
+🇫🇷 پاریس 🔥
+</div>
+
+## tasiyanc — post 6003
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هردو کانفیگ اوپن وصله برید حالشو ببرید
+</div>
 
 ## tasiyanc — post 6002
 
@@ -159,33 +174,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 متد جدید 🔥.npvt
-</div>
-
-## tasiyanc — post 5973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان 
-
-۷سرور  سرعتی قدرتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5972
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک سرور شخصی openvpn می‌خوان برن سایت
-vpnbook.com
-Create openvpn
-پورت روی 443 یا 80 بزارید
-کشورهای اروپایی بهتر جواب میدن .
-@Tasiyanc
 </div>
 
