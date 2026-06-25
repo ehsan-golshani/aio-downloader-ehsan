@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/04/04 14:29
+📅 آخرین بروزرسانی: 1405/04/05 00:12
 
 ---
+
+## tasiyanc — post 5603
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یدونه هستش درست ۲ هفته وصلم 😂😂
+</div>
+
+## tasiyanc — post 5602
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اقا واقعا وصل ممنون تاسيان♥️♥️♥️
+</div>
+
+## tasiyanc — post 5601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
+</div>
 
 ## tasiyanc — post 5600
 
@@ -152,29 +170,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 25 K 🍃.npvt
-</div>
-
-## tasiyanc — post 5573
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password @Tasiyanc
-
-🌐 اختصاصی تاسیان 2 سرور تست شده  تمام اپراتورها  🌐
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5572
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هدیه 25 کا شدن ما تمومی ندارع بازم میزارم سرور
-</div>
-
-## tasiyanc — post 5571
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باز ما پختو پز کردیمو ری اکشن ندیدیم 🥺
 </div>
 

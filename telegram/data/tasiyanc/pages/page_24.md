@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/04/04 14:29
+📅 آخرین بروزرسانی: 1405/04/05 00:12
 
 ---
+
+## tasiyanc — post 6549
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حتی چنلمون تو اپای ایرانی ام قراره یه جور پرایوت شه اونایی ک ممبر چنلن بیان هر ۲۴ ساعت لینکو عوض میکنم
+</div>
+
+## tasiyanc — post 6548
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منتظرم قطعی بشه پرایوت کنم چنلو اونای ک لف میدن حالشون میپرسم
+</div>
+
+## tasiyanc — post 6547
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی برخط شدن میاد اینبار
+</div>
 
 ## tasiyanc — post 6546
 
@@ -183,36 +201,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6527
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-2سرور سرعتی مناسب همه نت ها 🔥
-
-دانلود وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سیرکه رسما
-
-کاخ سفید :ما معتقدیم به نتیجه نهایی مذاکرات نزدیکیم
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6522
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس جان ریدی با این مذاکره کردنات
 </div>
 
