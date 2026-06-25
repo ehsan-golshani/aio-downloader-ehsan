@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/04/05 01:49
+📅 آخرین بروزرسانی: 1405/04/05 03:25
 
 ---
+
+## tasiyanc — post 5608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دارن وصل میکنن؟
+</div>
+
+## tasiyanc — post 5607
+
+<div align="center"><img src="files/post_5607_tasiyanc_5607.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc [02] WiFi ⚡ (1).npvt
+</div>
+
+## tasiyanc — post 5606
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان 📱
+
+⛈سرور تست شده wifi⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5605
 
@@ -135,37 +163,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشن یادتون نره 💋
-</div>
-
-## tasiyanc — post 5578
-
-<div align="center"><img src="files/post_5578_tasiyanc_5578.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc _ وای‌فای.npvt
-</div>
-
-## tasiyanc — post 5577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password @Tasiyanc
-
-🌐 اختصاصی تاسیان 2 سرور تست شده  وای‌فای   🌐
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5576
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password @Tasiyanc
-
-🌐 اختصاصی تاسیان 2 سرور تست شده  تمام اپراتورها  🌐
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/04/05 01:49
+📅 آخرین بروزرسانی: 1405/04/05 03:25
 
 ---
+
+## tasiyanc — post 6393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨حمله موشکی سپاه از کرمانشاه هم اکنون
+@Tasiyanc
+</div>
+
+## tasiyanc — post 6392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️
+</div>
+
+## tasiyanc — post 6391
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووووورییییییی حمله کردننننننن
+</div>
 
 ## tasiyanc — post 6390
 
@@ -212,34 +231,5 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡All Operators ⚡.npvt
-</div>
-
-## tasiyanc — post 6362
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡All Operators ⚡.npvt
-</div>
-
-## tasiyanc — post 6361
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور   سرعتی پرمیوم 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
-
-دانلود  NPV tunnel  🌐
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6360
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Speed ⚡ One.npvt
 </div>
 
