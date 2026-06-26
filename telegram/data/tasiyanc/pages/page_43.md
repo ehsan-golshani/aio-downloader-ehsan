@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/04/06 01:22
+📅 آخرین بروزرسانی: 1405/04/06 02:33
 
 ---
+
+## tasiyanc — post 6084
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+۴سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6082
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀🇮🇹🇳🇱 سرعتی - VIP.npvt
+</div>
 
 ## tasiyanc — post 6081
 
@@ -193,17 +215,5 @@ Hot Servers 🔥🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه چیزای دستم رسیده نمی‌دونم بزارم نزارم🤣
-</div>
-
-## tasiyanc — post 6052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عکس و ..؟
-</div>
-
-## tasiyanc — post 6051
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب بریم به آدرس و شماره تلفن یا چیزای دیگه بدم؟
 </div>
 

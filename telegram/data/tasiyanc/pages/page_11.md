@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/04/06 01:22
+📅 آخرین بروزرسانی: 1405/04/06 02:33
 
 ---
+
+## tasiyanc — post 7024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بخاطر اون ۶۴۰۰۰ نفر بیدارم بازیو ببینیم
+</div>
+
+## tasiyanc — post 7022
+
+<div align="center"><video src="files/post_7022_tasiyanc_7022.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7022_tasiyanc_7022.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 
+📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7017
 
@@ -238,17 +263,5 @@ NPV Tunnel
 از این به بعد ۲ فایل یه جا میزاریم
 یکی NPV TUNNEL یکی HTTPCUSTUM
 هر کی هر کدوم دوست داره وصل شه
-</div>
-
-## tasiyanc — post 6984
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡⚡@Taisyanc.hc
-</div>
-
-## tasiyanc — post 6983
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡⚡@Taisyanc.hc
 </div>
 
