@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/04/05 08:00
+📅 آخرین بروزرسانی: 1405/04/05 11:47
 
 ---
+
+## tasiyanc — post 6118
+
+<div align="center"><img src="files/post_6118_tasiyanc_6118.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc چنل تاسیان.conf
+</div>
 
 ## tasiyanc — post 6117
 
@@ -178,13 +186,5 @@ Vip SamanTel ⚡.npvt
 
 چنلشون : @nacconfig ⭐️
 ایدی فروش:@nac_config ⭐️
-</div>
-
-## tasiyanc — post 6093
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Ray سامانتل
-vless://1b9e301d-cecd-4eb1-8b36-eef811c2696d@de1.vitok.cc:443?security=reality&encryption=none&pbk=zxzgWvYs4pMN3fEduth1soI1yMZDkynb1bBM4tj85EE&headerType=none&type=tcp&sni=max.ru&sid=5e841fab#%F0%9F%87%A9%F0%9F%87%AA%F0%9F%9A%80%20%40Tasiyanc%20%D8%B3%D8%A7%D9%85%D8%A7%D9%86%D8%AA%D9%84
-@Tasiyanc ✅
 </div>
 

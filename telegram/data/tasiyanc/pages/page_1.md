@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/05 08:00
+📅 آخرین بروزرسانی: 1405/04/05 11:47
 
 ---
+
+## tasiyanc — post 7357
+
+<div align="center"><a href="files/post_7357_STAR ⭐⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 STAR ⭐⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ نپسترنت 
+🔐
+
+۴ سرور نامحدود سرعتی ⚡️
+
+آموزش اتصال 💘
+</div>
 
 ## tasiyanc — post 7356
 
@@ -234,23 +247,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دو تا کانفیگ نپستر بالا وصلن بدون اینکه پینگ بگیرید وصل شید
-</div>
-
-## tasiyanc — post 7325
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ دارک تانل 🇮🇹 Milan📍
-
-
-برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
-
-
-دانلود Dark Tunnel  🕹
-
-
-آموزش اتصال به سرور دارک ⏩
-
-
-✅@Tasiyanc | تاسیان
 </div>
 

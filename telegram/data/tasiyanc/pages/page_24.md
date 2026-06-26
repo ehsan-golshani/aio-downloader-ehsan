@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/04/05 08:00
+📅 آخرین بروزرسانی: 1405/04/05 11:47
 
 ---
+
+## tasiyanc — post 6556
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 فوووری بعد اعلام رسمی ترامپ که‌گفت امشب جنگ‌رو شروع میکنیم و به ایران حمله میکنیم  احتمال قطع شدن نت بشدددتتت بالاست
+
+تصمیم‌گرفتیم براتون کانفینگ اختصاصی بزاریم داخل بات‌مخصوص نت ملی که یوقت  قطع نشید 
+🚀
+
+تست‌شده مخصوص نت‌ملیهههه نیاز داشتید برید برداریدد حتما
+❤
+
+دریافت کانفینگ اختصاصی
+دریافت کانفینگ اختصاصی
+</div>
 
 ## tasiyanc — post 6555
 
@@ -213,11 +228,5 @@ https://t.me/TasiyanProxy
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۸۰۰ گیگ ساب گذاشته ادمینا ، پین شد گپ
-</div>
-
-## tasiyanc — post 6535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لینک گپ تاسیان ❤️‍🔥 https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 
