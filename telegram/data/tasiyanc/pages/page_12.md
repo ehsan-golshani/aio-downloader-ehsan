@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/05 03:25
+📅 آخرین بروزرسانی: 1405/04/05 08:00
 
 ---
+
+## tasiyanc — post 6954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc🇫🇷.dark
+</div>
 
 ## tasiyanc — post 6953
 
@@ -192,11 +198,5 @@ T.me/Tasiyanc ✅
 لحظاتی دیگر مقامات راجب توافق با مردم صحبت خواهند کرد
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت هر تتر 💎 164000
 </div>
 
