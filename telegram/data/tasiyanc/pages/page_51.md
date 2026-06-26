@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/04/05 11:47
+📅 آخرین بروزرسانی: 1405/04/05 14:54
 
 ---
+
+## tasiyanc — post 5861
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑 رمز @Tasiyanc ″
+
+📶  اختصاصی تاسیان  📶
+
+ 4 سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5860
 
@@ -137,11 +156,5 @@
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5820
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۳۴ هزار شیم سورپرایز دارم
 </div>
 

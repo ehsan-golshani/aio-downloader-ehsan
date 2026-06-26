@@ -1,12 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/05 11:47
+📅 آخرین بروزرسانی: 1405/04/05 14:54
 
 ---
 
-## tasiyanc — post 7357
+## tasiyanc — post 7368
 
-<div align="center"><a href="files/post_7357_STAR ⭐⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 STAR ⭐⚡.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل عوض شد
+مرسی از آرمان موسس بانک خاورمیانه
+</div>
+
+## tasiyanc — post 7357
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ نپسترنت 
@@ -241,11 +246,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 💘.ایران در سال 1352 تنها کشور اسیا بود که در تمام دنیا پاسپورتش نیاز به ویزا نداشت
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو تا کانفیگ نپستر بالا وصلن بدون اینکه پینگ بگیرید وصل شید
 </div>
 

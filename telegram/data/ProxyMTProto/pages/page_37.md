@@ -1,8 +1,62 @@
 # آرشیو کانال ProxyMTProto - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/05 11:45
+📅 آخرین بروزرسانی: 1405/04/05 14:52
 
 ---
+
+## ProxyMTProto — post 47778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: eboybey.flowaccess.site
+Port: 8443
+Secret: ee1a3341522f265448a11cbb608f42166f65626f796265792e666c6f776163636573732e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47777
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47776
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp8.sosproxy.space
+Port: 443
+Secret: eee9dab8aa5e5ede020088b669a17b907864726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47775
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dot.vdl.lat
+Port: 853
+Secret: ee9963ec50cf89d852bb1e084a44b196e4646f742e76646c2e6c6174
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47774
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 93.185.167.212
+Port: 443
+Secret: ee1c88677acf461e09e68f4ff0cef5724a617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47773
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: trump.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47772
 
@@ -132,60 +186,6 @@ Secret: ee6aa9eb2bd47d97b43be8ac203cfd3c0e6d742e616b656e61692e636c69636b,
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47758
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: usa.nolags.pw
-Port: 443
-Secret: dd1a0658ae4bb081c4270cd674e7b5ef5b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47757
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gov.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fridayvpn1.proxyprosto.sbs
-Port: 443
-Secret: ee81aebd9867cc45d05974d953706819d177622e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47755
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47754
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r42.proxytg.space
-Port: 8443
-Secret: eed45e80e76b5cd09e7994e4417a324fa17234322e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 147.45.68.59
-Port: 443
-Secret: eeea62717efcf6c6c3beba94b1f8a4166a766b2e636f6d
 @ProxyMTProto
 </div>
 
