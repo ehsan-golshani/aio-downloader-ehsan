@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/05 19:40
+📅 آخرین بروزرسانی: 1405/04/05 21:43
 
 ---
+
+## tasiyanc — post 7381
 
 ## tasiyanc — post 7379
 
@@ -11,8 +13,6 @@
 </div>
 
 ## tasiyanc — post 7378
-
-<div align="center"><a href="files/post_7378_🚀🍓@tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🚀🍓@tasiyanc.conf</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد نامحدود مخصوص گیم،وب‌گردی 👑
@@ -25,8 +25,6 @@ T.me/Tasiyanc ✅
 </div>
 
 ## tasiyanc — post 7377
-
-<div align="center"><a href="files/post_7377_NewTon⚡️Fast🇩🇪.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 NewTon⚡️Fast🇩🇪.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ حجم نامحدود سرور 🇩🇪
@@ -221,22 +219,5 @@ https://www.gstatic.com/generate_204
 trojan://aR9EJWEB2Jp3m6xKJK%3DCt7kLyqFSU-iDBR@92.119.35.127:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%E2%9C%85%20%40Tasiyanc
 trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%F0%9F%92%AF%40Tasiyanc
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7336
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت
-
-4سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 💘
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc | تاسیان
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/04/05 19:40
+📅 آخرین بروزرسانی: 1405/04/05 21:43
 
 ---
+
+## tasiyanc — post 5891
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوباره باید بگیم؟
+</div>
 
 ## tasiyanc — post 5890
 
@@ -190,11 +196,5 @@ GANG 🌙 10 SERVER FAST.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اوکی کنم میفرسم
-</div>
-
-## tasiyanc — post 5865
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد اتصال ۲۰ تا ۳۰ ثانیه زمان بدید . و بیاید تلگرام یا برید اینستاگرام
 </div>
 

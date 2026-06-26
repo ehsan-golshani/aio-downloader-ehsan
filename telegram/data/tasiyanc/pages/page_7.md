@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/05 19:40
+📅 آخرین بروزرسانی: 1405/04/05 21:43
 
 ---
+
+## tasiyanc — post 7173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسراییل میخواد کرم بریزه درست بعد توافق حمله کرد به نبطیه😐
+</div>
 
 ## tasiyanc — post 7171
 
@@ -240,14 +246,5 @@ Game DNS
 مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7133
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟🌟
-ss://YWVzLTI1Ni1nY206RmpHM0lQYm55KzBaWVU0L3AxdlVMUDg0R2NLcEdvWnBXS0FheTE2VmhJdz0%3D@51.254.128.106:2083#%F0%9F%87%AB%F0%9F%87%B7FR%E2%9A%A1%20%40Tasiyanc
-Location 🇫🇷 حجم نامحدود
-@Tasiyanc ✅
 </div>
 
