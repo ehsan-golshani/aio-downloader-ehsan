@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/04/05 14:54
+📅 آخرین بروزرسانی: 1405/04/05 19:40
 
 ---
+
+## tasiyanc — post 6270
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چنل پروکسی هنوز جوین نشدین؟
+
+https://t.me/TasiyanProxy
+</div>
+
+## tasiyanc — post 6269
+
+<div align="center"><video src="files/post_6269_tasiyanc_6269.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6269_tasiyanc_6269.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد XB سرور IT  
+👑
+دانلود  Wg tunnel 
+🕹
+دانلود iOS 🍏
+آموزش
+⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+2سرور پرومیوم  سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها 
+⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6267
 
@@ -183,35 +226,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpDSm1UQ0N4N0x0dWQ%3D@108.181.58.239:8388#%F0%
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 BabyGirl 🪐.npvt
-</div>
-
-## tasiyanc — post 6246
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-BabyGirl 🪐.npvt
-</div>
-
-## tasiyanc — post 6245
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6244
-
-<div align="center"><img src="files/post_6244_tasiyanc_6244.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-HOT 🌶️.npvt
 </div>
 
