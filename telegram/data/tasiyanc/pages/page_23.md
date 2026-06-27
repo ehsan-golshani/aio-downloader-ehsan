@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/07 01:11
+📅 آخرین بروزرسانی: 1405/04/07 02:23
 
 ---
+
+## tasiyanc — post 6679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️خبرگزاری فارس:
+
+با توجه به اینکه امریکا متن پیشنهادی ایران را پذیرفته است احتمال تایید این متن در مراجع اصلی‌نظام بالا است‌
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۰٪ کانفیگای NPV ک زدم امروز وصلن
+</div>
+
+## tasiyanc — post 6677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc - DE VIP 🇩🇪⚡.npvt
+</div>
 
 ## tasiyanc — post 6676
 
@@ -190,34 +211,6 @@ Fotmob iOS
 
 
 ✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6655
-
-<div align="center"><video src="files/post_6655_tasiyanc_6655.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6655_tasiyanc_6655.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید قهرمانی پرتغال به عشق آقام کریس 
-😱
-🤔
-</div>
-
-## tasiyanc — post 6654
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆افتتاحیه جام‌جهانی امشب ساعت 22.30
-
-جدال مکزیک و آفریقا
-</div>
-
-## tasiyanc — post 6651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔩 🔴ترامپ : نمی‌خواهم کاری کنم که مردم ایران تشنگی بکشند و آبی برای خوردن نداشته باشند، پس توافق کنید!
-@Tasiyanc
 ✅
 </div>
 

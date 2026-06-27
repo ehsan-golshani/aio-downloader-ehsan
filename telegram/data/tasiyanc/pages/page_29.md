@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/07 01:11
+📅 آخرین بروزرسانی: 1405/04/07 02:23
 
 ---
+
+## tasiyanc — post 6481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی پرمیوم متد جدید🚀
+
+450 گیگ  - تمام اپراتور ها 
+⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6478
+
+<div align="center"><img src="files/post_6478_tasiyanc_6478.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هلیا خانم ایران ۵ قلو زایید 🥹
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6477
+
+<div align="center"><img src="files/post_6477_tasiyanc_6477.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+300 GB - 🇬🇧🇩🇪.npvt
+</div>
 
 ## tasiyanc — post 6476
 
@@ -187,32 +229,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6455
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-new@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 6453
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  OpenVPN♻️
-
-تست شده  سامانتل ، رایتل ، وای‌فای 🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6452
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-300 GB ⚡ VİP.npvt
 </div>
 

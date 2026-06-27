@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/04/07 01:11
+📅 آخرین بروزرسانی: 1405/04/07 02:23
 
 ---
+
+## tasiyanc — post 7101
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+5 کانفیگ حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+🛡Password Zip: @Tasiyanc
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7099
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید رو به راهید؟
+</div>
+
+## tasiyanc — post 7096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟3 کانفیگ اختصاصی دارک تانل 🌟
+
+حجم نامحدود - سرعتی 🚀
+
+تست شده رو تمام نت ها ✅
+
+دانلود Dark Tunnel  🕹
+
+آموزش اتصال به سرور دارک ⏩
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7095
 
@@ -230,47 +268,5 @@ Loc 🇬🇧
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تمامی نپسترایی ک از دیروز صبح زدیم وصلن با سرعت فضایی وصل شید عشق کنید ⚡️
-</div>
-
-## tasiyanc — post 7057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-2 سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel  🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7055
-
-<div align="center"><img src="files/post_7055_tasiyanc_7055.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت دلار هم اکنون 155000
 </div>
 

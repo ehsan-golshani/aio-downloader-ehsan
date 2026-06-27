@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/04/07 01:11
+📅 آخرین بروزرسانی: 1405/04/07 02:23
 
 ---
+
+## tasiyanc — post 6101
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+غیر رسمی
+
+پزشکیان استعفاء داد
+
+تایید شده نیست
+</div>
+
+## tasiyanc — post 6100
+
+<div align="center"><img src="files/post_6100_tasiyanc_6100.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان، بلاشک مرجع قوی‌ترین کانفیگ‌هایِ نپستر در تلگرام. به صد نفر تا الان کانال شمارو معرفی کردم.
+</div>
+
+## tasiyanc — post 6099
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازم باید بگیم ؟
+</div>
 
 ## tasiyanc — post 6098
 
@@ -166,32 +190,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FastVip⚡.npvt
-</div>
-
-## tasiyanc — post 6074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده روی همه اپراتورا🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6073
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میخواستم کانفیگ اوپن دیگه بدم ولی ری اکشن کمه
-</div>
-
-## tasiyanc — post 6072
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا
 </div>
 
