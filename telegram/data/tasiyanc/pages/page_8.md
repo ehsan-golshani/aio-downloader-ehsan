@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/06 11:20
+📅 آخرین بروزرسانی: 1405/04/06 18:29
 
 ---
+
+## tasiyanc — post 7185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡⚡🇩🇪.npvt
+</div>
+
+## tasiyanc — post 7184
+
+<div align="center"><img src="files/post_7184_tasiyanc_7184.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡⚡🇩🇪.npvt
+</div>
+
+## tasiyanc — post 7183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود سرور فرانکفورت 
+🇩🇪
+</div>
 
 ## tasiyanc — post 7182
 
@@ -229,46 +250,5 @@ Game DNS
 
 @Tasiyanc 
 ✅ | تاسیان
-</div>
-
-## tasiyanc — post 7145
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز June 18، روز جهانی چشم خوشگلاست. @Tasiyanc ✅ | تاسیان
-</div>
-
-## tasiyanc — post 7144
-
-<div align="center"><img src="files/post_7144_tasiyanc_7144.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز June 18، روز جهانی چشم خوشگلاست.
-
-@Tasiyanc ✅ | تاسیان
-</div>
-
-## tasiyanc — post 7143
-
-<div align="center"><video src="files/post_7143_tasiyanc_7143.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7143_tasiyanc_7143.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود لوکیشن
-🇳🇱
-
-2سرور سرعتی مناسب همه نت‌ها
-⚡️
-
-دانلود برنامه IOS 
-🕹 Android 
-📱
-
-
-🔸 آموزش اتصال
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

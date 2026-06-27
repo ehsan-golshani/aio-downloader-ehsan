@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/04/06 11:20
+📅 آخرین بروزرسانی: 1405/04/06 18:29
 
 ---
+
+## tasiyanc — post 5741
+
+<div align="center"><img src="files/post_5741_tasiyanc_5741.jpg" alt="Photo"></div>
+
+## tasiyanc — post 5740
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/Tasiyanc/5733
+</div>
+
+## tasiyanc — post 5739
+
+<div align="center"><img src="files/post_5739_tasiyanc_5739.jpg" alt="Photo"></div>
 
 ## tasiyanc — post 5738
 
@@ -162,36 +176,5 @@ vless://40bf709c-4353-4552-ba26-406d2bf7821d@fr.gryaz-vpn.com:20567?security=rea
 vless://20ecee51-1044-4be3-89a9-f3c700425ead@45.67.230.230:443?security=reality&encryption=none&pbk=qYg2nPdLpBYWM7-9leTq43SoqAc5nT90gFH-AHAMShY&headerType=none&fp=chrome&type=tcp&sni=yahoo.com&sid=abb1#Russia%20%40Tasiyanc
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده با همراه اول , بقیه تست کنن⛈ 
-
-رمز : ″ @Tasiyanc ″
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه جور نتارو باز کردن دوباره مردم میرن کانفیگ میخرن ، تف به شرفتون
-</div>
-
-## tasiyanc — post 5715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده با همراه اول ⛈ 
-
-رمز : ″ @Tasiyanc ″
-
-🚀 @Tasiyanc ✅
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/04/06 11:20
+📅 آخرین بروزرسانی: 1405/04/06 18:29
 
 ---
+
+## tasiyanc — post 6714
+
+<div align="center"><img src="files/post_6714_tasiyanc_6714.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسی و رونالدو اگه ایران بدنیا میومدن :
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 12 June ، روز جهانی تشکر از آدمیه که زندگی رو برات قشنگتر کرده.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6711
+
+<div align="center"><img src="files/post_6711_tasiyanc_6711.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تجمعات شبانه
+گشت ارشاد به چاک سینه توجهی نداره اگه بمالید
+@tasiyanc✅
+</div>
 
 ## tasiyanc — post 6710
 
@@ -154,34 +180,5 @@ Rend ⚡ (1).npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هم اکنون ورود جنگنده ها و هواپیماهای سوخترسان برای امضای توافق
-</div>
-
-## tasiyanc — post 6687
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%E2%9A%A1%40Tasiyanc%F0%9F%94%B7
-🌐🇩🇪
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نورالدین الدغیر خبرنگار الجزیره در تهران:
-دیگر همه چیز قطعی و تمام شده
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠⭕️⭕️ ترامپ : خودم احتمالاً نمی‌تونم تو مراسم امضای توافق حضور داشته باشم و ونس به نمایندگی از آمریکا اونجا خواهد بود
-- امضای توافق ممکنه خیلی زود انجام بشه، حتی شاید همین آخر هفته
-
-@Tasiyanc ✅
 </div>
 

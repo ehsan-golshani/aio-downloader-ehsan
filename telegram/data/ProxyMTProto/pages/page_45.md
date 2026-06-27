@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/04/06 16:34
+📅 آخرین بروزرسانی: 1405/04/06 18:28
 
 ---
+
+## ProxyMTProto — post 47658
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 853a.mtproxygram.pro
+Port: 853
+Secret: ee38f6acb959381bc6816ce7ccc2a213c162726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47657
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r20.proxytg.space
+Port: 8443
+Secret: ee882e7f1447939817016bb33afc4fe86c7232302e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47656
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 72.56.40.215
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c69617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47655
 
@@ -154,36 +181,6 @@ Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
 Server: For Iran
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47638
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 194.154.25.238
-Port: 443
-Secret: 886ace76f7a9a1e3219537fe5dfd04d5
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47637
-
-<div align="center"><img src="files/post_47637_ProxyMTProto_47637.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🫶 Welcome back #Iran! Metrics show a further rise in connectivity as mobile networks and other segments are reconnected to the global internet:
-
-• Filternet remains in place but can be worked around
-• WhatsApp now restricted, requiring circumvention
-• Some users still offline
-</div>
-
-## ProxyMTProto — post 47636
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowaboost.com
-Port: 443
-Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
 @ProxyMTProto
 </div>
 
