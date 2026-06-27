@@ -1,12 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/06 22:32
+📅 آخرین بروزرسانی: 1405/04/06 23:54
 
 ---
 
-## tasiyanc — post 7441
+## tasiyanc — post 7442
 
-<div align="center"><a href="files/post_7441_Late ☕⚡️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Late ☕⚡️.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام عزیزان
+یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7441
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ حجم نامحدود 🇬🇧
@@ -191,11 +197,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پنالتی رو خراب می‌کنه طارمی
-</div>
-
-## tasiyanc — post 7413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پنالتیییی ایران
 </div>
 
