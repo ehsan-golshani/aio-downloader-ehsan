@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/04/06 19:56
+📅 آخرین بروزرسانی: 1405/04/06 21:12
 
 ---
+
+## tasiyanc — post 6006
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VİP 🔥.npvt
+</div>
 
 ## tasiyanc — post 6005
 
@@ -161,16 +167,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فروش بازه 5 GB 170 10 GB 310 20 GB 580 30 GB 900 @StarTasiyan ثبت سفارش
-</div>
-
-## tasiyanc — post 5976
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بازه
-5 GB 170
-10 GB 310
-20 GB 580
-30 GB 900
-@StarTasiyan ثبت سفارش
 </div>
 

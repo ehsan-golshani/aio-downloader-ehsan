@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/04/06 19:56
+📅 آخرین بروزرسانی: 1405/04/06 21:12
 
 ---
+
+## tasiyanc — post 5883
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی رایتل ـ سامانتل _ ایرانسل🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5882
 
@@ -183,13 +193,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عالیهههه خدا خیرتون بده
-</div>
-
-## tasiyanc — post 5857
-
-<div align="center"><img src="files/post_5857_tasiyanc_5857.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این سرعتی هم عالیه
 </div>
 

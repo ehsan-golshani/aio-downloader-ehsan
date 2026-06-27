@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/04/06 19:56
+📅 آخرین بروزرسانی: 1405/04/06 21:12
 
 ---
+
+## tasiyanc — post 6414
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان متد جدید  😏
+
+۴سرور  پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6413
 
@@ -192,11 +211,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨حمله موشکی سپاه از کرمانشاه هم اکنون
 @Tasiyanc
-</div>
-
-## tasiyanc — post 6392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️
 </div>
 
