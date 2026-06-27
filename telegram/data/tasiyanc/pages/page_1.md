@@ -1,16 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/07 02:23
+📅 آخرین بروزرسانی: 1405/04/07 03:24
 
 ---
+
+## tasiyanc — post 7453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 3 بازی پرتغال و کلمبیا ...
+</div>
 
 ## tasiyanc — post 7450
 
 <div align="center"><video src="files/post_7450_tasiyanc_7450.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7450_tasiyanc_7450.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7450_Chocolate ⚡🍫.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Chocolate ⚡🍫.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ حجم نامحدود DE 🇩🇪
@@ -207,15 +211,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آقای رضاییان هنوز نمیدونی چرا بدشانسی میارید؟ 😒
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7428
-
-<div align="center"><img src="files/post_7428_tasiyanc_7428.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐😐😐
 @Tasiyanc 💠
 </div>
 

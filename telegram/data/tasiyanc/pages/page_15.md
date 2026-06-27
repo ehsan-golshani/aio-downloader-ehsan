@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/04/07 02:23
+📅 آخرین بروزرسانی: 1405/04/07 03:24
 
 ---
+
+## tasiyanc — post 6942
+
+<div align="center"><img src="files/post_6942_tasiyanc_6942.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑ساب لینک اختصاصی تاسیان👑 https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt اینو بزنید 🔐🔐 هر ۴ ساعت کانفیگا آپدیت میشن بعد از ۴ ساعت update subscription بزنید تا آپدیت شن @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6940
 
@@ -223,11 +231,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6916
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زودتر برید بردارید عشقا  واسه چنلا هم از اینجا جوین شید که یراست توی ربات کانفینگو بگیرید👇😋 @TelNegah @BLUEGUARD_NEWSS @VLinews @kamkarstore
 </div>
 

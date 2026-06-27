@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/04/07 02:23
+📅 آخرین بروزرسانی: 1405/04/07 03:24
 
 ---
+
+## tasiyanc — post 6022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپل آیدی لاک میشه
+</div>
 
 ## tasiyanc — post 6021
 
@@ -152,23 +158,6 @@ VİP 🔥.npvt
 📶  اختصاصی تاسیان  متد جدید
 
 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5996
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-2سرور  سرعتی قدرتی🚀
 
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
 

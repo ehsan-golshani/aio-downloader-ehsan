@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/04/07 02:23
+📅 آخرین بروزرسانی: 1405/04/07 03:24
 
 ---
+
+## tasiyanc — post 6815
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 📶
+
+تست شده تمام نتها 🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6813
 
@@ -226,11 +240,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه وایر میزارم بخوابم
-</div>
-
-## tasiyanc — post 6785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP⚡ APEX ⛓️.npvt
 </div>
 
