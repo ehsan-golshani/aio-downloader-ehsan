@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/04/06 21:12
+📅 آخرین بروزرسانی: 1405/04/06 22:32
 
 ---
+
+## tasiyanc — post 6931
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️ ترامپ: توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم! من بدینوسیله اجازه کامل بازگشایی تنگه هرمز را می‌دهم و همزمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دارم. کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید…
+</div>
 
 ## tasiyanc — post 6930
 
@@ -216,21 +223,5 @@ https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خود اپارات تو یوتوب اکانت زده🤣🔥
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6901
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی تست شده  🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

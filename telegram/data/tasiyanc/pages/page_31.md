@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/04/06 21:12
+📅 آخرین بروزرسانی: 1405/04/06 22:32
 
 ---
+
+## tasiyanc — post 6415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST⚡TASIYAN🚀.npvt
+</div>
 
 ## tasiyanc — post 6414
 
@@ -203,13 +209,6 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨🚨🚨🚨فووووووری
 حملات موشکی سپاه به اسرائیل
-@Tasiyanc
-</div>
-
-## tasiyanc — post 6393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حمله موشکی سپاه از کرمانشاه هم اکنون
 @Tasiyanc
 </div>
 

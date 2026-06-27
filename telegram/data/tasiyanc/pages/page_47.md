@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/04/06 21:12
+📅 آخرین بروزرسانی: 1405/04/06 22:32
 
 ---
+
+## tasiyanc — post 6007
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک فیلتر شکن استفاده میکنن
+امروز شنیدم هرکی با jumpjump وصل شده رفته اینستا ، اکانتش از دسترس خارج شده و نیاز به احراز هویت ( فیلم) داره تا اکانتش برگرده ، مراقب باشید با هر فیلترشکنی وصل نشید
+پ ن : نمی‌دونم درسته یا نه ولی دو سه نفر بهم گفتن
+</div>
 
 ## tasiyanc — post 6006
 
@@ -161,11 +169,5 @@ VİP 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 متد جدید 🔥.npvt
-</div>
-
-## tasiyanc — post 5977
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بازه 5 GB 170 10 GB 310 20 GB 580 30 GB 900 @StarTasiyan ثبت سفارش
 </div>
 

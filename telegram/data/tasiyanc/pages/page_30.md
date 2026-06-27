@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/04/06 21:12
+📅 آخرین بروزرسانی: 1405/04/06 22:32
 
 ---
+
+## tasiyanc — post 6444
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۴سرور   سرعتی پرمیوم متد جدید🚀
+
+حجم نامحدود - تمام اپراتور ها 
+⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6443
 
@@ -165,11 +186,5 @@ FAST⚡TASIYAN🚀.npvt
 https://t.me/+RTGtcYWb8HdkNjdk
 
 بیاید گپمون
-</div>
-
-## tasiyanc — post 6415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST⚡TASIYAN🚀.npvt
 </div>
 

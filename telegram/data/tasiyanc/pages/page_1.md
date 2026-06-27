@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/06 21:12
+📅 آخرین بروزرسانی: 1405/04/06 22:32
 
 ---
+
+## tasiyanc — post 7441
+
+<div align="center"><a href="files/post_7441_Late ☕⚡️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Late ☕⚡️.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود 🇬🇧
+
+4 سرور سرعتی ⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+🔑Password :  @Tasiyanc
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7440
 
@@ -177,11 +197,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پنالتیییی ایران
-</div>
-
-## tasiyanc — post 7412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللللللللللللللللل مصرررررر 🇪🇬
 </div>
 

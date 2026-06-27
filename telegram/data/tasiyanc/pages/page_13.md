@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/04/06 21:12
+📅 آخرین بروزرسانی: 1405/04/06 22:32
 
 ---
+
+## tasiyanc — post 6990
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥⚡Tasiyanc.dark
+</div>
 
 ## tasiyanc — post 6989
 
@@ -294,19 +300,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc🇫🇷.dark
-</div>
-
-## tasiyanc — post 6953
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ دارک تونل 🌟
-
-حجم نامحدود - سرعتی 🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel 🕹
-
-T.me/Tasiyanc ✅
 </div>
 

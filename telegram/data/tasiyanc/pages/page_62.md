@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/04/06 21:12
+📅 آخرین بروزرسانی: 1405/04/06 22:32
 
 ---
+
+## tasiyanc — post 5608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دارن وصل میکنن؟
+</div>
 
 ## tasiyanc — post 5607
 
@@ -157,13 +163,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشن یادتون نره 💋
-</div>
-
-## tasiyanc — post 5578
-
-<div align="center"><img src="files/post_5578_tasiyanc_5578.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc _ وای‌فای.npvt
 </div>
 
