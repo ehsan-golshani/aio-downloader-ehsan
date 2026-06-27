@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/04/06 02:33
+📅 آخرین بروزرسانی: 1405/04/06 03:55
 
 ---
+
+## tasiyanc — post 7318
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روناااااااااالدوووووووووووو زد
+</div>
 
 ## tasiyanc — post 7317
 
@@ -185,19 +191,5 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 لیونل مسی 🐐 نابغه تمام عیار فوتبال جهان امشب هم دبل کرد ، بازی قبلی هم هتریک کرده بود
-</div>
-
-## tasiyanc — post 7285
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
-
-برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
-
-دانلود Dark Tunnel  🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/06 02:33
+📅 آخرین بروزرسانی: 1405/04/06 03:55
 
 ---
+
+## tasiyanc — post 7147
+
+<div align="center"><video src="files/post_7147_tasiyanc_7147.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7147_tasiyanc_7147.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امضای پزشکیان زیر متن تفاهم نامه ایران و آمریکا سوژه شد 
+😂
+
+@Tasiyanc 
+✅ | تاسیان
+</div>
 
 ## tasiyanc — post 7145
 
@@ -213,12 +227,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پرتغال رید ، مساوی کردیم
-</div>
-
-## tasiyanc — post 7112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طارمی مادرت به عذات بشینه ایشالا
-به کشتن ۴۰ هزار نفر انسان تو میگی اختلافات جزیی
 </div>
 
