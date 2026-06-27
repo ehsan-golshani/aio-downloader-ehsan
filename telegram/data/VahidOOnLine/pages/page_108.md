@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/04/06 15:16
+📅 آخرین بروزرسانی: 1405/04/06 16:34
 
 ---
+
+## VahidOOnLine — post 244649
+
+<div align="center"><video src="files/post_244649_VahidOOnLine_244649.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244649_VahidOOnLine_244649.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان سه‌شنبه ۱۹ خرداد در اعتراض به اعدام‌های جمهوری اسلامی و در حمایت از شاهزاده رضا پهلوی در شهر هانوفر تجمع کردند و تصاویر اعدام‌شدگان و جاویدنامان را به دست گرفتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244642
+
+<div align="center"><video src="files/post_244642_VahidOOnLine_244642.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244642_VahidOOnLine_244642.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ناپدید شدن پول از حساب‌های بانکی فقط یک مشکل مالی نیست، نشانه‌ای از فروریختن اعتماد عمومی به نظام بانکی و توان دولت در حفاظت از دارایی شهروندان است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244637
 
@@ -240,26 +266,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سپاه از حمله به ۲۱ هدف در پایگاه‌های آمریکا در منطقه خبر داد و گفت نیروی هوافضای سپاه با موشک‌های سوخت جامد دوربرد، چهار «هدف مهم»، از جمله آشیانه‌های جنگنده‌های اف-۳۵ در پایگاه هوایی و مرکز فرماندهی و کنترل ارتش آمریکا در الازرق اردن را هدف قرار داد و منهدم کرد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️همزمان با حملات روز چهارشنبه آمریکا به جنوب ایران، بخش خبری ساعت ۳ بامداد صداوسیما، در حین اعلام یک خبر اقتصادی، تصاویر شبیه‌سازی شده از انفجار هسته‌ای در وسط یک شهر را پخش کرد و پس از آن عبارت «تسلیت بندرعباس» زیرنویس شد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244617
-
-<div align="center"><img src="files/post_244617_VahidOOnLine_244617.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت دفاع بحرین از فعال شدن آژیرهای خطر و پدافند هوایی در پی حمله‌هایی از سمت ایران خبر داد. طبق اعلام مشاور رسانه‌ای پادشاه بحرین، پدافند هوایی بحرین این حملات جمهوری اسلامی را دفع کرده‌‌ است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

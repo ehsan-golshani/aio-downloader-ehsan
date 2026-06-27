@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/04/06 15:17
+📅 آخرین بروزرسانی: 1405/04/06 16:34
 
 ---
+
+## ProxyMTProto — post 48215
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: portal.malevich7.top
+Port: 443
+Secret: ee485df0201883028a6eb46b55fd937b4f706f7274616c2e6d616c6576696368372e746f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48214
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn.toconvel.digital
+Port: 443
+Secret: eeddeeeeb0dda28d2a517ff1c71036f2c663646e2e746f636f6e76656c2e6469676974616c
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48213
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48212
 
@@ -154,33 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: secure.gorbushkin.click
 Port: 443
 Secret: ee5ac55ea6f98997da2b0bd12591029feb7365637572652e676f72627573686b696e2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48195
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 65.109.147.39
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48194
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.toconvel.digital
-Port: 443
-Secret: eeddeeeeb0dda28d2a517ff1c71036f2c663646e2e746f636f6e76656c2e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: www2.nilmart.ir
-Port: 443
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
