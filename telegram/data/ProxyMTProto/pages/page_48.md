@@ -1,8 +1,40 @@
 # آرشیو کانال ProxyMTProto - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/04/06 18:28
+📅 آخرین بروزرسانی: 1405/04/06 19:54
 
 ---
+
+## ProxyMTProto — post 47601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 72.56.41.35
+Port: 443
+Secret: 7sEXmKsAiDG0dAZsnh6_XINhdml0by5ydQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tproxy.mom
+Port: 8090
+Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47599
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Telegram опять еле дышит?
+
+BLYATNET фиксит это за минуту ⚡
+
+🚀 Быстрые MTProxy и VPN
+🛡 Стабильный доступ без мусора
+🌍 Серверы по всему миру
+
+💫 От 5 ⭐ — дешевле чем стикер 👇
+</div>
 
 ## ProxyMTProto — post 47598
 

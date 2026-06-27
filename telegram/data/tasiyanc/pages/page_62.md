@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/04/06 18:29
+📅 آخرین بروزرسانی: 1405/04/06 19:56
 
 ---
+
+## tasiyanc — post 5606
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان 📱
+
+⛈سرور تست شده wifi⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5605
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حجم پیام زیاده
+
+قربون همتون عشقید ❤️‍🔥💋
+</div>
 
 ## tasiyanc — post 5604
 
@@ -147,26 +169,5 @@
 برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5576
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password @Tasiyanc
-
-🌐 اختصاصی تاسیان 2 سرور تست شده  تمام اپراتورها  🌐
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5575
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قلق گرفتن دان لینک از کانفیگای تاسیان
-دکمه کانکت زدی بیا تلگرام یا اینستا صبر کن دان لینک داخل برنامه NPV نگیر
-دو سه دقیقه صبر الزامیه چون سرور نامحدود و پابلیکه طول می‌کشه بیاد بالا
-بعضی از کانفیگا احیانا بعد صبرتون پینگ نداد حالت پرواز بزنید دوباره تست کنین چون همشون از طرف ما تست شده هستن
 </div>
 

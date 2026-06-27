@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/06 18:29
+📅 آخرین بروزرسانی: 1405/04/06 19:56
 
 ---
+
+## tasiyanc — post 7287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیونل مسی 🐐 نابغه تمام عیار فوتبال جهان امشب هم دبل کرد ، بازی قبلی هم هتریک کرده بود
+</div>
+
+## tasiyanc — post 7285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
+
+برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
+
+دانلود Dark Tunnel  🕹
+
+آموزش اتصال به سرور دارک ⏩
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7284
 
@@ -171,19 +191,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 طارمی اگه کون نداشت الان یک صفر بود بازی😒
-</div>
-
-## tasiyanc — post 7253
-
-<div align="center"><img src="files/post_7253_tasiyanc_7253.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل ایران رف وار آفساید شد
-</div>
-
-## tasiyanc — post 7252
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل ایران رف وار آفساید شد
 </div>
 
