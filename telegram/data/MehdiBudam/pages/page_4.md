@@ -1,8 +1,56 @@
 # آرشیو کانال MehdiBudam - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/04/02 11:35
+📅 آخرین بروزرسانی: 1405/04/06 11:18
 
 ---
+
+## MehdiBudam — post 8128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor15
+
+
+slipnet-enc://Abv+5Ov8/xXOdCDw8+UQoCK5YhF2V1jJH8Om0kMFLPowaybIyUN8o4LiE+GL8Iylc5SpRAIvQBtUGe8ftT8rWagDJXHe1KjikvKa9A/5vf6TKzncsXMF3+qKMabuB7djtIE13kgNTceQUfu00J/VUM312b3t9+rL9jq5aKTWmtAurlGWsGc4QTZEL0AhpAuzaQNk8lc2NZ+qPLg6r9riWVAh6fEXrznlatXRkxIkQ+XraCwkRymZa9wY11jZ+74MNptp+LvWiIKheDJet6XIhiJA0c7TVE0uZuUXMSbSnwyyfd45QkE1NzpWduLyYZXaYeTE8dtXNKUo9gNZIM47kBX+m7uuWYaJpFjxPf+9kBa/RfyqcpbyrWomX9MGlLo3/ttjKGBvRi3ccDfF1aRyCS4F9NsLmMXe5UG1YZ94pMkmYR0tnP2XfOEHEwd+2gjdVqyDXsb36z/WpJVRr8VHqqk7DaguvxS0btFURHX6gfw3txgfRVMgErIeNHNjq6b4PYMfqmCpDedIAAALosP6vUNmmCNJZjIiqMFR/56dwsuBav6RVJuAhmfTTOIbUiK8JYlT+7t/SikMpFjZmKk5Cr0BrCXehaPGCqe/T9+DJ21Cpyfe6VPHS3ejiAWi8fRzLqumi8dD0ZcFJZOmOeQJ0TCnClvhEUDYduJb3P6mlnQQp+IqdxMb29HIdENDwpoVcvjkq2rhZXlF8X0VlU6PaMlhyqNT2sib19X/jKeGFD8BXQ==
+
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+127 126 124 117 113 109 106 103 101 99 97 95 92 91 87 86 84 77 73 71 69 65 59 58 57 54 53 45 44 34 32 30 27 25 24 22 21 و بقیه وصلن اگه لازم شد.
+</div>
+
+## MehdiBudam — post 8126
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor14 slipnet-enc://Ae01OTAJU4aYPHQ75hj7HbRwSBFIW2Mck5pIDbXW2/u2qkGAl8xsz8mrV1l4mHPLpEhNJoBuf4xpsj8hqpzYop/pPHTGyjYyT4rdche0S3PnpvavApuHQsYIw5bCiPY1Rt1/xx8i3wn8bSAYmJnUsw1eWDC6O57n59sgp8UyyTyZ3CA+M7kkfU4VYnUm5oAXlXGj8BeQF2GdGqoNm4eUHHbIswUewuUV2TEYspmm9r…
+</div>
+
+## MehdiBudam — post 8125
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor14
+
+
+slipnet-enc://Ae01OTAJU4aYPHQ75hj7HbRwSBFIW2Mck5pIDbXW2/u2qkGAl8xsz8mrV1l4mHPLpEhNJoBuf4xpsj8hqpzYop/pPHTGyjYyT4rdche0S3PnpvavApuHQsYIw5bCiPY1Rt1/xx8i3wn8bSAYmJnUsw1eWDC6O57n59sgp8UyyTyZ3CA+M7kkfU4VYnUm5oAXlXGj8BeQF2GdGqoNm4eUHHbIswUewuUV2TEYspmm9rCXdnJyFgijL84hDLvROdgJZ4GETm2d/7o+OLpVy64VISntEgDRxk9rJI6u8E1LFNBCQTaLFNz9Vdky0mgP6uMc/iGRAik/1T4RSbtKZgyRq2waSp738jdOQEhNEQWlb/sglhT7c0Pl7m9T3y9flzaycutLIKTqUessPuRyTSVtstwIiV3g0vfiEq8/pkJIM+qok75nNXT+94qJVzOOJoUuPfZF5M5u0vVyCsJJvt46ak/yUqxUWipbU7MaB2iL9G3zm5NH8D6c4MZf4xTy3RULsaFdsf8gwyeHDbyShsYyQyh1pI9erH7lFmXDeBfZ7jj4ekgpxAcdeANCBse/xZBm4oJnaPzlRaH/FAz06oJ9ggstqWnZIBmsoCoIZJrWtuuPxnEgwmJZCLOpqvBIuxBiCbB3DJdzxJkPOOdm0Ts0iTC6bZMikF0n0n+S+zOPjxyzz9YjiBuPx7MhO5WlfKaJ67yLV2qgTSy6pLtekXdB3XasT1Tw24T0mspKkzZ/T3LqLQ==
+
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8124
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان این تور های که گذاشته میشه همشون بریج هاشون متفاوته بخاطر همون برای بعضیا شاید وصل نشه نه اینکه مثل یه چنل دیگه که یدونه بریج پر سرعت پیدا کرده با همون چند‌تا تور گذاشته و همشون یکین و اگه یدونه Delete Duplicate بزنی کلا یدونه میمونه.
+</div>
+
+## MehdiBudam — post 8123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان این تور های که گذاشته میشه همشون بریج هاشون متفاوته بخاطر همون برای بعضیا شاید وصل نشه نه اینکه مثل یه چنل دیگه که یدونه بریج پر سرعت پیدا کرده با همون چند‌تا تور گذاشته و همشون یکین و اگه یدونه Delete Duplicate بزنی کلا یدونه میمونه.
+</div>
 
 ## MehdiBudam — post 8122
 
@@ -158,52 +206,5 @@ slipnet-enc://Ae2EEQLf+LxSQ2MlvnWNA82xsmSEx4iPv+oSxDkNzqegYMSMpojO4WzTpcHOYO0k5X
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 برای تور همین تنظیمات پیشنهاد میشه فقط بدون پروکسی مود با اسپلیت تونلینگ درست.
-</div>
-
-## MehdiBudam — post 8108
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنظیمات پیشنهادی برای اسلیپنت دانلود برنامه ( تفاوت نسخه ها ) نحوه اتصال با وضعیت فعلی شبکه Auto-connect on boot ❌️ Proxy-only mode✅️ (درصورت استفاده از برنامه هایی که از پروکسی پشتیبانی نمیکنند این گزینه خاموش باشه حتما.) (اگه این گزینه روشن باشه باید…
-</div>
-
-## MehdiBudam — post 8107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوابه؟
-</div>
-
-## MehdiBudam — post 8106
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tor1
-
-
-slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyLGKkQHKIznMSk4my7NTS5FmWUYOkAfhuQvXCTPeI9jIEKUWFyF46hjy8LhQ5fENuYWt3JeizIBy81HAgvsvH/Gx/r5LHE5Bx+4E+GVOU3zJrmAq4i35cU3Nakvt3yHnzhhGgiJyoPVF4SJPa0Nkvdh3v39Wn0NwXOtRb0VQVoZmEluJcIdmTkDZhyUAcICVF7Erj6PGFoxP70SGmTNyzU3176Tu3kOe4cs+c0NThrBV5SF5yctMWLsbU5b/fl0slZRZVh2bsxe8aPqDVHqm25l1y4c/yz6cvEJddRS2U/j7khuFAYoEFiP8DLfnlnZoq+ESFiQ9XhsCi6B4joFGDJeVLqg7/BHHqZrA1i2wGQs3cgVBLlGMFG4aS/+Byw4h+Jp2ON/m5ZjJvi+9Tr2n7WikTSMt1o256YbOpzNVpgZShOMVsRwgfAgmibruTNv+p9N7U7cTf1IbJJXovSZzDcqUnaVPaEwq2UsrTCFSXM+OhRlVkky3zEq7a6nQJZHCO5nIk59MPJMhFKsqTii3Voxpwe10MALhtPX6qD1wORqdta5OrKkOF7jE2sIBaVY7RvUHeXsLiMPSF1HskZZtVv0d9VeW2B3aseoWBPkhtd/cwdGGysk0158Tu4F79MjcI9t7Zy7sVIC+BI3FAycGCuIcIk6E+y1GVw==
-
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8105
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از متد تور استفاده میکنید؟
-</div>
-
-## MehdiBudam — post 8102
-
-<div align="center"><img src="files/post_8102_MehdiBudam_8102.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگر هنوز دسترسی به اینترنت جهانی براتون باز نشده و مجبورید از DNS Tunelling استفاده کنید:
-با قابلیت جدید DNS Pool دیگه نیازی نیست دستی دنبال DNS بگردید یا اسکن کنید. می‌تونید تا ۱۰۰۰ تا DNS به برنامه بدید تا خودش قبل اتصال تستشون کنه و ۱۰ تا از بهترین‌ها رو خودکار براتون انتخاب کنه.
-
-🕊@slipnet_app
-</div>
-
-## MehdiBudam — post 8101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان میگن Snowflake با برنامه های Orbot و Invisible pro هم وصل میشه.
 </div>
 

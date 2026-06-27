@@ -1,8 +1,55 @@
 # آرشیو کانال MehdiBudam - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/02 11:35
+📅 آخرین بروزرسانی: 1405/04/06 11:18
 
 ---
+
+## MehdiBudam — post 8108
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنظیمات پیشنهادی برای اسلیپنت دانلود برنامه ( تفاوت نسخه ها ) نحوه اتصال با وضعیت فعلی شبکه Auto-connect on boot ❌️ Proxy-only mode✅️ (درصورت استفاده از برنامه هایی که از پروکسی پشتیبانی نمیکنند این گزینه خاموش باشه حتما.) (اگه این گزینه روشن باشه باید…
+</div>
+
+## MehdiBudam — post 8107
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوابه؟
+</div>
+
+## MehdiBudam — post 8106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor1
+
+
+slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyLGKkQHKIznMSk4my7NTS5FmWUYOkAfhuQvXCTPeI9jIEKUWFyF46hjy8LhQ5fENuYWt3JeizIBy81HAgvsvH/Gx/r5LHE5Bx+4E+GVOU3zJrmAq4i35cU3Nakvt3yHnzhhGgiJyoPVF4SJPa0Nkvdh3v39Wn0NwXOtRb0VQVoZmEluJcIdmTkDZhyUAcICVF7Erj6PGFoxP70SGmTNyzU3176Tu3kOe4cs+c0NThrBV5SF5yctMWLsbU5b/fl0slZRZVh2bsxe8aPqDVHqm25l1y4c/yz6cvEJddRS2U/j7khuFAYoEFiP8DLfnlnZoq+ESFiQ9XhsCi6B4joFGDJeVLqg7/BHHqZrA1i2wGQs3cgVBLlGMFG4aS/+Byw4h+Jp2ON/m5ZjJvi+9Tr2n7WikTSMt1o256YbOpzNVpgZShOMVsRwgfAgmibruTNv+p9N7U7cTf1IbJJXovSZzDcqUnaVPaEwq2UsrTCFSXM+OhRlVkky3zEq7a6nQJZHCO5nIk59MPJMhFKsqTii3Voxpwe10MALhtPX6qD1wORqdta5OrKkOF7jE2sIBaVY7RvUHeXsLiMPSF1HskZZtVv0d9VeW2B3aseoWBPkhtd/cwdGGysk0158Tu4F79MjcI9t7Zy7sVIC+BI3FAycGCuIcIk6E+y1GVw==
+
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از متد تور استفاده میکنید؟
+</div>
+
+## MehdiBudam — post 8102
+
+<div align="center"><img src="files/post_8102_MehdiBudam_8102.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگر هنوز دسترسی به اینترنت جهانی براتون باز نشده و مجبورید از DNS Tunelling استفاده کنید:
+با قابلیت جدید DNS Pool دیگه نیازی نیست دستی دنبال DNS بگردید یا اسکن کنید. می‌تونید تا ۱۰۰۰ تا DNS به برنامه بدید تا خودش قبل اتصال تستشون کنه و ۱۰ تا از بهترین‌ها رو خودکار براتون انتخاب کنه.
+
+🕊@slipnet_app
+</div>
+
+## MehdiBudam — post 8101
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان میگن Snowflake با برنامه های Orbot و Invisible pro هم وصل میشه.
+</div>
 
 ## MehdiBudam — post 8100
 
@@ -97,109 +144,5 @@
 امیدوارم یه روز اینترنت آزاد و بدون محدودیت، چیز عجیبی نباشه و همه بدون دردسر بهش دسترسی داشته باشن.
 
 با آرزوی بهترین ها.
-</div>
-
-## MehdiBudam — post 8086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود و تشکر از همراهان همیشگی SlipNet که در دوره قطع و اختلال اینترنت همراهی کردند
-
-با توجه به وضعیت فعلی شبکه، می‌تونید از روش‌های زیر برای برقراری اتصال پایدار استفاده کنید:
-
-🟢 ۱. اتصال از طریق Tor (نسخه Full - رایگان)
-(ویژه کاربران دارای دسترسی به اینترنت)
-
-۱. روی علامت + (پایین سمت راست) بزنید و گزینه Tor را انتخاب کنید.
-
-۲. یک نام دلخواه برای پروفایل وارد کنید.
-
-۳. در بخش متدها، گزینه Manual selection را انتخاب کنید.
-
-۴. روی دکمه Request bridges بزنید یا از ربات تلگرام @GetBridgesBot پل دریافت کنید و متن آن را در قسمت Bridge Lines قرار دهید.
-
-۵. پروفایل را ذخیره و متصل شوید.
-
-🟡 ۲. استفاده از DNS over HTTPS (DoH)
-(برای اتصال پرسرعت به یوتیوب و وب‌سایت‌ها در صورت داشتن اتصال اولیه)
-
-با استفاده از این روش میتونید یوتیوب را با سرعت بالا و بدون تبلیغ تماشا کنید!
-
-۱. روی علامت + بزنید و گزینه DoH را انتخاب کنید.
-
-۲. یک نام دلخواه برای پروفایل وارد کنید.
-
-۳. از قسمت DoH Server، یک سرویس‌دهنده را انتخاب یا آدرس DoH مورد نظر خود را وارد و پروفایل را ذخیره کنید.
-
-⚠️این روش آی پی شما را تغییر نمی‌دهد
-
-🔴 ۳. راهکار برای مناطق بدون اتصال اینترنت
-(استفاده از متدهای مبتنی بر DNS Tunneling)
-
-در صورت عدم دسترسی به اینترنت، اکثر DNS Resolverهای زیر باز هستند و می‌توانید اسکن را روی آن‌ها انجام دهید:
-
-
-8.8.8.8
-8.8.4.4
-1.1.1.2
-1.0.0.2
-208.67.222.222
-208.67.220.220
-9.9.9.9
-149.112.112.112
-223.5.5.5
-223.6.6.6
-77.88.8.8
-77.88.8.2
-80.80.80.80
-80.80.81.81
-
-
-
-🕊 @SlipNet_app
-</div>
-
-## MehdiBudam — post 8078
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🕊 @SlipNet_app
-</div>
-
-## MehdiBudam — post 8076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاوت نسخه‌ها: کامل (Full) در برابر سبک (Lite)
-
-- نسخه کامل (Full): این نسخه شامل تمامی انواع تونل‌های ارتباطی از جمله DNSTT، NoizDNS، VayDNS، Snowflake و NaiveProxy (که با Tor ادغام شده است) می‌شود. اگر به تمام قابلیت‌ها و پروتکل‌های پیشرفته نیاز دارید، این نسخه مناسب شماست.
-
-- نسخه سبک (Lite): این نسخه فقط شامل تونل‌های پایه یعنی DNSTT، NoizDNS و VayDNS است. به دلیل حذف Tor، Snowflake و NaiveProxy، حجم دانلود بسیار کمتری دارد و برای کسانی که فقط به امکانات اصلی نیاز دارند یا فضای خالی کمتری در گوشی خود دارند، ایده‌آل است.
-
-کدام فایل APK را باید دانلود کنیم؟
-برای نصب برنامه، نسخه‌های مختلفی بر اساس معماری پردازنده (CPU) دستگاه‌ها ارائه شده است:
-
-- یونیورسال (universal): این نسخه روی تمامی دستگاه‌ها به درستی کار می‌کند. اما از آنجایی که فایل‌های مربوط به تمام معماری‌ها را در خود جای داده است، حجم دانلود آن از بقیه نسخه‌ها بسیار بیشتر است.
-
-- نسخه arm64-v8a: این نسخه مخصوص اکثر گوشی‌های هوشمند مدرن و جدید (تولید سال ۲۰۱۶ به بعد) است. حجم دانلود آن کمتر از نسخه یونیورسال است. نکته: اگر مطمئن نیستید گوشی شما چه مدلی است، به احتمال بسیار زیاد همین نسخه برای شما مناسب است.
-
-- نسخه armeabi-v7a: این نسخه برای گوشی‌ها و دستگاه‌های قدیمی‌تر که دارای پردازنده‌های ۳۲ بیتی ARM هستند، طراحی شده است.
-
-- نسخه x86_64: این فایل منحصراً برای نصب روی شبیه‌سازهای اندروید (مانند بلواستکس در کامپیوتر) و لپ‌تاپ‌های کروم‌بوک (Chromebooks) کاربرد دارد.
-</div>
-
-## MehdiBudam — post 8075
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه هنوز نمیتونید وصل شید ۳ تا سرور آخر و بقیه رو تست کنید.
-</div>
-
-## MehdiBudam — post 8074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-125,126,127 slipnet-bundle-enc://AcRs+ZhYNvAPJf6ViRG+EWReCFNI6egNY/ueiJvfEGx3/gxa9yZUjhl4PHH9WsfbSURE7i9HIWsc6K5cIJg0Se3nwt+NJQ7/z9KbQHFBzQ5Rtv2aGDD/T8bpZD9uXEwwdPB6GMAxkZw2qCd1aDPwpevE8UayiRSws8zdIXiJt3xx9e4z1FASHAKyxdhYjC+JgZ1MXGnHhcsUIW4aEMDpP33dI37I0…
-</div>
-
-## MehdiBudam — post 8073
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بالاخره اینا هم میگذره ولی برخورد آدما تو این روزا فراموش نمیشه.
 </div>
 
