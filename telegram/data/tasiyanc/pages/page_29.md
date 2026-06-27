@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/06 23:54
+📅 آخرین بروزرسانی: 1405/04/07 01:11
 
 ---
+
+## tasiyanc — post 6476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امسال ( خرداد ماه) آب تراز دریاچه اورمیه نسبت به سال گذشته (خرداد)۲۰ برابر افزایش داشته 😂😐
+</div>
+
+## tasiyanc — post 6474
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امسال ( خرداد ماه) آب تراز دریاچه اورمیه نسبت به سال گذشته (خرداد)۲۰ برابر افزایش داشته 😂😐
+</div>
+
+## tasiyanc — post 6473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸@Tasiyanc.ovpn
+</div>
+
+## tasiyanc — post 6472
+
+<div align="center"><video src="files/post_6472_tasiyanc_6472.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6472_tasiyanc_6472.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 
+♻️
+
+تست شده سامانتل - رایتل - وایفای 🚀
+دانلود OpenVpn  
+🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت ارتباط با ادمین ها و تبادلات گپمون : https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 6470
 
@@ -170,54 +214,5 @@ new@Tasiyanc.ovpn
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 300 GB ⚡ VİP.npvt
-</div>
-
-## tasiyanc — post 6451
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🚀⚡.txt
-</div>
-
-## tasiyanc — post 6450
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی تاسیان 🆕
-
-✅160 کانفیگ تست شده
-
-فایل Txt رو باز کنین کانفیگ رو تو آپ NPV & V2BOX & V2RAYNG زیر بزنید پینگ بگیرید وصل شید  🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-300 GB ⚡ VİP.npvt
-</div>
-
-## tasiyanc — post 6448
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-2سرور   سرعتی پرمیوم متد جدید🚀
-
-حجم 300GB - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6447
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ Fast 🚀 💥.npvt
 </div>
 
