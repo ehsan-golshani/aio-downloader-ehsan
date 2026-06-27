@@ -1,8 +1,89 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/04/06 03:55
+📅 آخرین بروزرسانی: 1405/04/06 08:15
 
 ---
+
+## tasiyanc — post 6424
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر فوری
+هم اکنون حمله اسرائیل به چند سایت راداری در تهران
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6423
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨کانال ۱۲ اسرائیل:
+طی چندساعت اخیر به ۲۰ هدف تو ایران حمله کردیم
+
+@TasiyanProxy
+</div>
+
+## tasiyanc — post 6422
+
+<div align="center"><video src="files/post_6422_tasiyanc_6422.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6422_tasiyanc_6422.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوووری فارس :
+مجتمع پتروشیمی کارون رو زدن
+
+@TasiyanProxy
+</div>
+
+## tasiyanc — post 6421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️
+</div>
+
+## tasiyanc — post 6420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمام کانفیگای ک گذاشتیم با قدرت وصلن 🚀
+</div>
+
+## tasiyanc — post 6419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+
+بیاید گپمون
+</div>
+
+## tasiyanc — post 6415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST⚡TASIYAN🚀.npvt
+</div>
+
+## tasiyanc — post 6414
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان متد جدید  😏
+
+۴سرور  پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاجی ریکشن نمیزنید بریم بخوابیم
+</div>
 
 ## tasiyanc — post 6412
 
@@ -133,70 +214,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 آموزش اتصال ⛓
 
 🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6401
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه خبر ها + پروکسی های تاسیان
-
-@Tasiyanproxy
-@Tasiyanproxy
-</div>
-
-## tasiyanc — post 6400
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ آسمان ایران کلیر شد
-@Tasiyanc
-</div>
-
-## tasiyanc — post 6398
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند تا کانفیگ خوب آماده میکنم یه کم دیگه
-</div>
-
-## tasiyanc — post 6397
-
-<div align="center"><img src="files/post_6397_tasiyanc_6397.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨فوری | هم اکنون حملات موشکی سپاه به سمت اسرائیل‼️
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آغاز عملیات وعده صادق ۵
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6394
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨فووووووری
-حملات موشکی سپاه به اسرائیل
-@Tasiyanc
-</div>
-
-## tasiyanc — post 6393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حمله موشکی سپاه از کرمانشاه هم اکنون
-@Tasiyanc
-</div>
-
-## tasiyanc — post 6392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️
-</div>
-
-## tasiyanc — post 6391
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووووورییییییی حمله کردننننننن
 </div>
 
