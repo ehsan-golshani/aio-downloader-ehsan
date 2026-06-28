@@ -1,8 +1,26 @@
 # آرشیو کانال MehdiBudam - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/07 15:44
+📅 آخرین بروزرسانی: 1405/04/07 19:26
 
 ---
+
+## MehdiBudam — post 8117
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor8
+
+
+slipnet-enc://ASzieen3v58N7dtP4wq8K4c2WsdUOvnRPVSnBUa17XsUhgeEOE5R/h0zq1lBgQR6JniDGdcFvJ7HitxwXvpFAb8IKIq4fi0BP3xg5myCsS1QK/PaFGooRBawT6Ks7Jhgag4AUVin6xrZQv3sH/9Ym3HJ9Az3tb5EIjwfe2aNbBbIv8PxY7UB2vglEHYMCqlIv/C5YQcTAWfHHBUnSdiZ5Kkhi+1KhYaiG6LWED3frHaONVd9J6ML+ZL959cjg0aGKIM2OsRa7EB4oFJ+8ee195QD1K+kCVwJxpJbKjLVrIaoDCCWQZXErT46C868eiMx5jT/accR8uPXAZkSq9QevOkd90U1FlEC5LwHAAaAJbAZQKrPT0Tm71sPlW3Mf3YmBlRo6cLY0ZS6K3100Al9oK5BET33IySVye8Z6Oi+XwslciC3v8tegrRqEvt88RImtn2ObEa051ikQmua3wXfx5HeX6ZO39QbOPa7KBpU09b/jt6cB+jLJk8EEo62WLd7cAtEGHzL7PQd7cyHdjPa2JMvaQ+9CnL31zegyYOF0YUHefbUV/v0OzuhxVN1DrV9cIc677hwLralADYYnHOSmLGkysyq5pSiPk8T873ktVDNU5DO6NPTyMMRrjIHdnrYDJF1ByienyRPwjcVxNaGmJ3aZ9x5480wRzKBQMqlSQ65y+ox+2MlIet2DOkTU2URjfeWWEYnYJ+2htvz31lawlC6rDGc+VRHgw==
+
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8116
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به اینم توجه کنید که تور کلا رو نسخه لایت و ویندوز کار نمیکنه افراد زیادی بخاطر همین میگن کلا وصل نمیشه.
+</div>
 
 ## MehdiBudam — post 8115
 
@@ -155,18 +173,6 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 </div>
 
 ## MehdiBudam — post 8096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
-</div>
-
-## MehdiBudam — post 8095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️این روش آی پی شما را تغییر نمی‌دهد
-</div>
-
-## MehdiBudam — post 8094
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.

@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/07 15:44
+📅 آخرین بروزرسانی: 1405/04/07 19:26
 
 ---
+
+## MehdiBudam — post 8095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️این روش آی پی شما را تغییر نمی‌دهد
+</div>
+
+## MehdiBudam — post 8094
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
+</div>
 
 ## MehdiBudam — post 8093
 
@@ -200,25 +212,5 @@ slipnet-bundle-enc://AcRs+ZhYNvAPJf6ViRG+EWReCFNI6egNY/ueiJvfEGx3/gxa9yZUjhl4PHH
 Pass: @MehdiBudam
 
 @MehdiBudam
-</div>
-
-## MehdiBudam — post 8067
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-124 123 122 121 120 119 118 117 112 111 109 107 106 104 103 99 97 91 89 77 75 74 71 70 69 65 61 59 58 53 49 48 46 37 31 30 25 21 و بقیه وصلن.
-</div>
-
-## MehdiBudam — post 8066
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دانلود برنامه
-
-تفاوت نسخه های برنامه
-
-تنظیمات پیشنهادی و نکات بیشتر
-
-نحوه اسکن دی ان اس
-
-دایرکت چنل
 </div>
 
