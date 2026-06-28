@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/07 01:10
+📅 آخرین بروزرسانی: 1405/04/07 08:17
 
 ---
+
+## ProxyMTProto — post 48431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mesh.nowabst.net
+Port: 853
+Secret: ee563d60b964695b7bee8b6525b4be45636164732e78352e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48430
 
@@ -172,15 +181,6 @@ Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
 Server: portal.malevich7.top
 Port: 443
 Secret: eee9fd052aae932459f210dee7a26c10ea706f7274616c2e6d616c6576696368372e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
