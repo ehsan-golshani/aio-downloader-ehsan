@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/04/07 22:21
+📅 آخرین بروزرسانی: 1405/04/08 01:16
 
 ---
+
+## tasiyanc — post 7415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گلللللللللللللللل رامین
+</div>
 
 ## tasiyanc — post 7414
 
@@ -210,12 +216,5 @@ T.me/Tasiyanc ✅
 
 
  💘@Tasiyanc | تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروفایل چنل عوض شد
-مرسی از آرمان موسس بانک خاورمیانه
 </div>
 

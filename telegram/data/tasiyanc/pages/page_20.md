@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/04/07 22:21
+📅 آخرین بروزرسانی: 1405/04/08 01:16
 
 ---
+
+## tasiyanc — post 6803
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظر برخی از اعضاء
+پس توافق حتمیه !
+</div>
 
 ## tasiyanc — post 6802
 
@@ -193,11 +200,5 @@ VIP⚡ APEX ⛓️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کدوم کانال خارجی دارید می‌بینید مسابقات جام جهانی رو؟
-</div>
-
-## tasiyanc — post 6776
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ NEXUS 🪐.npvt
 </div>
 

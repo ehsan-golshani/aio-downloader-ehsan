@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/07 22:21
+📅 آخرین بروزرسانی: 1405/04/08 01:16
 
 ---
+
+## tasiyanc — post 7480
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ESPRESSO 🔥☕.npvt
+</div>
 
 ## tasiyanc — post 7478
 
@@ -158,11 +164,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ ۴ انفجار شدید در سیریك
-</div>
-
-## tasiyanc — post 7444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ آغاز حملات ایالات متحده به ایران
 </div>
 
