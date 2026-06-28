@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/07 14:11
+📅 آخرین بروزرسانی: 1405/04/07 20:56
 
 ---
+
+## tasiyanc — post 7475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️مذاکرات تهران و واشینگتن ک قرار بود این هفته برگزار بشه لغو شد
+</div>
+
+## tasiyanc — post 7474
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار هم اکنون 174000 😐
+</div>
+
+## tasiyanc — post 7473
+
+<div align="center"><a href="files/post_7473_ESPRESSO 🔥☕.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ESPRESSO 🔥☕.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپستر
+
+4 سرور سرعتی ⚡️
+
+آموزش اتصال ⛓
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7463
 
@@ -12,8 +42,6 @@
 </div>
 
 ## tasiyanc — post 7460
-
-<div align="center"><a href="files/post_7460_🍫@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🍫@Tasiyanc.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ   OpenVpn   📶
@@ -151,29 +179,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 🔑Password :  @Tasiyanc
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروفایل چنل عوض شد --- ❤️
-</div>
-
-## tasiyanc — post 7438
-
-<div align="center"><img src="files/post_7438_tasiyanc_7438.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای خرید بازی GTA VI در‌ هر کشور چند روز باید کار کنی ؟
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7435
-
-<div align="center"><img src="files/post_7435_tasiyanc_7435.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برنامه بازی های امروز جام جهانی 🏆
-@Tasiyanc 💠
 </div>
 
