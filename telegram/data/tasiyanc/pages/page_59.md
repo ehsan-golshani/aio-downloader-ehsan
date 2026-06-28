@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/04/07 03:24
+📅 آخرین بروزرسانی: 1405/04/07 11:51
 
 ---
+
+## tasiyanc — post 5715
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده با همراه اول ⛈ 
+
+رمز : ″ @Tasiyanc ″
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5714
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🥝.npvt
+</div>
+
+## tasiyanc — post 5713
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد اتصال در Npv tunnel
+وارد تلگرام یا .. شوید نیاز نی پینگ بگیرید ❤️‍🔥
+</div>
+
+## tasiyanc — post 5712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 دو سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده با همراه اول و وایفای بقیه هم تست کنن⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5711
 
@@ -158,49 +194,5 @@ vless://6202b230-417c-4d8e-b624-0f71afa9c75d@91.193.58.140:443?path=%2F%3Fhttps%
 با بازگشت اینترنت بین المللی، جهت اتصالِ راحت‌ شما براتون یک فایل نپسترنت با ۶ تا کانفیگ آماده کردیم ❤️
 
 دریافت کانفیگ نپسترنت ( کاملا رایگان )
-</div>
-
-## tasiyanc — post 5692
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود📱
-
-⛈2 سرور vip تست شده همراه اول⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5691
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 Config _ 🥇 sv 🇰🇿
-
-vless://6202b230-417c-4d8e-b624-0f71afa9c75d@31.43.179.191:2096?security=tls&encryption=none&insecure=1&host=sni.my111000.tech&type=ws&allowInsecure=1&sni=sni.my111000.tech#%40Tasiyanc%20%F0%9F%87%B0%F0%9F%87%BF
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5690
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 Config - vip sv 🇬🇧
-
-vless://6202b230-417c-4d8e-b624-0f71afa9c75d@5.10.245.191:443?path=Telegram%40WangCai2%2F&security=tls&encryption=none&insecure=1&host=sni.my111000.tech&fp=chrome&type=ws&allowInsecure=1&sni=sni.my111000.tech#%40Tasiyanc%20%F0%9F%87%AC%F0%9F%87%A7
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5689
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass @Tasiyanc
-
-📱 اختصاصی تاسیان  نامحدود📱
-
-⛈سرور vip تست شده همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
 </div>
 

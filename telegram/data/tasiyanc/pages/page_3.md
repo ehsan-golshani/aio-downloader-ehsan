@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/04/07 03:24
+📅 آخرین بروزرسانی: 1405/04/07 11:51
 
 ---
+
+## tasiyanc — post 7400
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چیزی نشده همراه اول اختلال میخوره .....😡
+</div>
+
+## tasiyanc — post 7399
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST ⚡⚡🔥.npvt
+</div>
+
+## tasiyanc — post 7393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود
+
+۳ سرور سرعتی ⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ هم اکنون حملات آمریکا به سیریک
+</div>
 
 ## tasiyanc — post 7391
 
@@ -229,35 +264,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 
  💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7347
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned a photo
-</div>
-
-## tasiyanc — post 7345
-
-<div align="center"><img src="files/post_7345_tasiyanc_7345.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت تست (اسکن) سرورها از آدرس Gstatic استفاده کنید ، برید تنظیمات ( تو شات نشون دادم) نپستر و ویتوری لینک زیر رو پست کنید بعدش اسکن و تست بگیرید
-https://www.gstatic.com/generate_204
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 7344
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساعت 18.30 والیبال 😐
-ایران Vs آمریکا 🦦
-</div>
-
-## tasiyanc — post 7341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩
 </div>
 
