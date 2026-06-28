@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/07 11:51
+📅 آخرین بروزرسانی: 1405/04/07 14:11
 
 ---
+
+## tasiyanc — post 6260
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP OCTOPUS SV⚡🐙.npvt
+</div>
+
+## tasiyanc — post 6259
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+4سرور  سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6256
 
@@ -175,18 +197,5 @@ HOT 🌶️.npvt
 اتصال به سرورها ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6236
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنام کو😐😐😐😐😐😐😐😐😐😐
-</div>
-
-## tasiyanc — post 6234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۳ کانفیگ وایر فول وصل 
-✅
 </div>
 

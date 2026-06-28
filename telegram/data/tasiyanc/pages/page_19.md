@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/04/07 11:51
+📅 آخرین بروزرسانی: 1405/04/07 14:11
 
 ---
+
+## tasiyanc — post 6822
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6821
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+
+اگر توافق نشود؛ ما گزینه نهایی را در اختیار داریم؛ گزینه‌ای که امیدواریم هرگز دوباره مجبور به استفاده از آن نشویم
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6820
 
@@ -212,20 +235,6 @@ Vahid online
 🤩ایلان ماسک اولین تریلیونر جهان شد!
 
 سهام SPCX قراره با قیمت 135 دلار معامله بشه و ارزش اسپیس‌ ایکس رو به حدود 1.8 تریلیون دلار برسونه!
-
-@Tasiyanc ✅ | تاسیان
-</div>
-
-## tasiyanc — post 6791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩 @Tasiyanc ✅ | تاسیان
-</div>
-
-## tasiyanc — post 6790
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩
 
 @Tasiyanc ✅ | تاسیان
 </div>
