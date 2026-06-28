@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/04/07 20:56
+📅 آخرین بروزرسانی: 1405/04/07 22:21
 
 ---
+
+## tasiyanc — post 6903
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوری ترامپ
+از ایران می‌خواهم که به اسرائیل موشک شلیک نکند. توافق در ساعات آینده امضا خواهد شد
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6902
+
+<div align="center"><img src="files/post_6902_tasiyanc_6902.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خود اپارات تو یوتوب اکانت زده🤣🔥
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6901
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی تست شده  🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6900
 
@@ -167,40 +200,5 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path=%2F&securit
 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@pishdad.org:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA02%20%40Tasiyanc%20%E2%9A%A1
 100 GB fast servers 🚀 🇩🇪
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6865
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-trojan://humanity@104.16.174.121:443?path=%2Fassignment&security=tls&insecure=0&host=www.ignitelimit.com&type=ws&allowInsecure=0&sni=www.ignitelimit.com#%40Tasiyanc%20%F0%9F%8C%8E%E2%9A%A1
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6862
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ربات دانلودر اختصاصی کانال تاسیان بدون جوین اجباری 💬📹💬
-
-دانلود با سرعت بالا , همراه با ارسال جدای فایل موزیک ریلز ها
-
-🟢 @TasiyanAploadBot
 </div>
 

@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/04/07 20:56
+📅 آخرین بروزرسانی: 1405/04/07 22:21
 
 ---
+
+## tasiyanc — post 6396
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آغاز عملیات وعده صادق ۵
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6394
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨فووووووری
+حملات موشکی سپاه به اسرائیل
+@Tasiyanc
+</div>
+
+## tasiyanc — post 6393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨حمله موشکی سپاه از کرمانشاه هم اکنون
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 6392
 
@@ -200,35 +222,5 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر ❤️
-</div>
-
-## tasiyanc — post 6365
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🔝
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 🍏
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6364
-
-<div align="center"><img src="files/post_6364_tasiyanc_6364.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡All Operators ⚡.npvt
-</div>
-
-## tasiyanc — post 6362
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡All Operators ⚡.npvt
 </div>
 
