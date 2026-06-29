@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/08 17:48
+📅 آخرین بروزرسانی: 1405/04/08 20:48
 
 ---
+
+## tasiyanc — post 7278
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV لوکیشن 🇩🇪
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7277
 
@@ -195,11 +211,5 @@
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7247
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐
 </div>
 

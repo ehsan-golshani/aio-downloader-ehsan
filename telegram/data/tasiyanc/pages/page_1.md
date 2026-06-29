@@ -1,12 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/08 17:48
+📅 آخرین بروزرسانی: 1405/04/08 20:48
 
 ---
 
-## tasiyanc — post 7488
+## tasiyanc — post 7494
 
-<div align="center"><a href="files/post_7488_☕ Americano ⚡️Vip.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ☕ Americano ⚡️Vip.npvt</a></div>
+<div align="center"><a href="files/post_7494_🪐🍓@tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🪐🍓@tasiyanc.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7488
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ حجم نامحدود نپستر
@@ -181,14 +195,5 @@ ESPRESSO 🔥☕.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دیگه از بدشانسی زر نزن آقای رامین رضائیان
-</div>
-
-## tasiyanc — post 7457
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-3 تا احتمال بزرگ داشته باشی تا صعود کنی ولی نتونی ، تو بازی ۳ تا تیرک بزنی ، گل آفساید بزنی ، پنالتی نتونی بزنی
-
-آقای رضائیان حالا ببین چی میگم وقتی میگفتی دلیل این همه بد شانسی نمیدونی چیه
-آه مادرانی ک سر مزار بچشون میرقصیدن همینه
 </div>
 

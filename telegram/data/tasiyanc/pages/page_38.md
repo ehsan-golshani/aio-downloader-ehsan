@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/08 17:48
+📅 آخرین بروزرسانی: 1405/04/08 20:48
 
 ---
+
+## tasiyanc — post 6280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN سرور فنلاند  ♻️
+
+تست شده با سامانتل بقیه تست کنن 🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6277
 
@@ -221,11 +236,5 @@ BabyGirl 🪐.npvt
 آموزش⏩
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6253
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐🇩🇪 @Tasiyanc.conf
 </div>
 
