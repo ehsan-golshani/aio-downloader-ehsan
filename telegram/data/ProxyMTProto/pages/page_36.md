@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/04/08 01:15
+📅 آخرین بروزرسانی: 1405/04/08 08:24
 
 ---
+
+## ProxyMTProto — post 47884
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: russia.arixo.shop
+Port: 443
+Secret: eed015b7c384e8023672d5355b0bb6e531617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47883
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: flash.quickrouteapp.xyz
 Port: 443
 Secret: eec7b876f355b93b6b786cb4b6c9daee79666c6173682e717569636b726f7574656170702e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47864
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: sonic.quickrouteapp.xyz
-Port: 443
-Secret: eebd8b54149182b64d403ef9c5141fc3ee736f6e69632e717569636b726f7574656170702e78797a
 @ProxyMTProto
 </div>
 

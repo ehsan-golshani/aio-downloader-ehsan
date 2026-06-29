@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/04/08 03:30
+📅 آخرین بروزرسانی: 1405/04/08 08:26
 
 ---
+
+## tasiyanc — post 6322
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۲سرور   سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  
+⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6320
 
@@ -202,11 +219,5 @@ Password : @Tasiyanc  ⏩
 پی‌نوشت : تاسیان جهت کمک به ورود بازی راه حل پیشنهاد میدهد میتوانید با مسئولیت خودتون نصب و استفاده کنین .
 ​
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گیمرایی ک مشکلات ورود به بازی های آنلاین دارن بالا باشید 💋
 </div>
 
