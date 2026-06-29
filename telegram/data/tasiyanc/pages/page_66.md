@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/04/08 20:48
+📅 آخرین بروزرسانی: 1405/04/08 22:55
 
 ---
+
+## tasiyanc — post 5543
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان  تمام اپراتورها  📶
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5540
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان سرور تست شده وای‌فای 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5539
 
@@ -329,25 +349,5 @@ t.me/TasiyanOwner
 برای اتصال پایدار زمان بدید 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5512
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان ۲سرور تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ لینک داخلی نپسترنت آپدیت نهایی
-
-🔐 NPV Tunnel 👈
-
-Password file : @Tasiyanc
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/04/08 20:48
+📅 آخرین بروزرسانی: 1405/04/08 22:55
 
 ---
+
+## tasiyanc — post 6820
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ در تروث : توافق فردا امضا می‌شود @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6818
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت هر یک دلار هم اکنون ۱۷۰ تومن
+</div>
 
 ## tasiyanc — post 6817
 
@@ -216,26 +228,5 @@ Vahid online
 امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩
 
 @Tasiyanc ✅ | تاسیان
-</div>
-
-## tasiyanc — post 6789
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن نزنید یه موقع زشته
-</div>
-
-## tasiyanc — post 6788
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

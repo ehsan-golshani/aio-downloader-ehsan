@@ -1,12 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/08 20:48
+📅 آخرین بروزرسانی: 1405/04/08 22:55
 
 ---
 
-## tasiyanc — post 7494
+## tasiyanc — post 7499
 
-<div align="center"><a href="files/post_7494_🪐🍓@tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🪐🍓@tasiyanc.conf</a></div>
+<div align="center"><a href="files/post_7499_ARABICA ☕⚡️HoT.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ARABICA ☕⚡️HoT.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپستر 🔥
+
+7 سرور سرعتی ویژه ⚡️
+
+آموزش اتصال ⛓
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7498
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلم جدید تو چنل پروکسی فور شد به دلایلی , خواستید ببینید از اینجا دان کنید
+💘@TasiyanProxy
+</div>
+
+## tasiyanc — post 7494
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
@@ -183,17 +206,5 @@ ESPRESSO 🔥☕.npvt
 
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد حسین میساکی بدون اینکه خندش بگیره خیلی جدی : تیمهای الجزایر و اتریش تبانی کردن 🤣🤣🤣
-</div>
-
-## tasiyanc — post 7458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیگه از بدشانسی زر نزن آقای رامین رضائیان
 </div>
 

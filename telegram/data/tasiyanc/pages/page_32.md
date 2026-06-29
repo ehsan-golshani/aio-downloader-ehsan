@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/04/08 20:48
+📅 آخرین بروزرسانی: 1405/04/08 22:55
 
 ---
+
+## tasiyanc — post 6432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 📱
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡🪐 متد جدید.npvt
+</div>
 
 ## tasiyanc — post 6430
 
@@ -166,30 +188,5 @@ FAST⚡TASIYAN🚀.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رو همراه اول تست کردیم ولی اختلال زیاده❤️‍🔥
-</div>
-
-## tasiyanc — post 6409
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۲سرور پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبلیغاتی ک میاد از طرف تلگرامه و قابل تایید ما نیست مراقب باشید تو این شرایط جیبتون نزنن❤️
 </div>
 
