@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/04/08 08:26
+📅 آخرین بروزرسانی: 1405/04/08 13:29
 
 ---
+
+## tasiyanc — post 6073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میخواستم کانفیگ اوپن دیگه بدم ولی ری اکشن کمه
+</div>
+
+## tasiyanc — post 6072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر عشقا
+</div>
+
+## tasiyanc — post 6071
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی همه اپراتورا🚀
+
+دانلود OpenVpn 🎚
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6069
 
@@ -149,27 +174,4 @@ Hot Servers 🔥🌶️.npvt
 ## tasiyanc — post 6044
 
 <div align="center"><img src="files/post_6044_tasiyanc_6044.jpg" alt="Photo"></div>
-
-## tasiyanc — post 6043
-
-<div align="center"><img src="files/post_6043_tasiyanc_6043.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6042
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife
-آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادبش کردید ؟
-@ineedknife
-اگه ادبش کردید یه ری اکشن بزنید بره همون جایی ک میدونین 😂
-</div>
 

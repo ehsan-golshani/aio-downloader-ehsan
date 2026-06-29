@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/07 19:26
+📅 آخرین بروزرسانی: 1405/04/08 13:28
 
 ---
+
+## MehdiBudam — post 8118
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor9
+
+
+slipnet-enc://AZhtkNTpdAO/CrmqNTLYW3zEIgiQyUyZXur7EuNygYGR9DnznzZehMci7GM2DIXGD4x0PGgzLpkQ+CyHImwOd7UBVIydt6tznIzYquPWW2PVaIJv64VU/t+77aofy1Oon3HRSCGOinoAn6JgAcYMkicPk32fu+xPQWFdMGeSUdH070x+Hv5pRItCMUP2C82DN0Snm/h1djr9E1UcZ207WcINa1bQoP2B6tQ8Qvo6yJgnR8tNCTBrFLf3KsiPJbpLkyN93PxEObBApennhuJhWExAAnYBHAeW+aFiQLz64Z6r8Bhxft+MDd9E6vrZ5oDczMTjD8IoR9e6PFQXfZZEOGBnEOkz4IjmxyB5TKaAOCJXdaOxVlFz0qgDL+BYwpwOQegBEX4XZFTjHn0wki/9KrZDFUHzd93srCR5BVHfKXE0ZrLLiXQ6BSYK0IBg5eX/MeWPG4lJuTdTFCHQ75/wJ7kIMlO4ObmiXo48tP9oZlTvxMOaEgrXPSO+rh02PjghkoRFRQH4P1DWiCaHvMeuhq2WrYJGvqQccGUJCWqtnLFjMfoaJBubepj3ggwBYbl6b2TcLgQpQvdiDWSXkIxT+XO+ab097Vftdobb8VDtIYjR7NdRvuPy0PvILxgHmp9sWIi/YK+HoDrjd+hCxW/1tpKxjrk1dfYC/uTnzc+3CkA5utDAumC+tGF3y1DB54wJEDKA15xQPeY5OnGzSDjVkwCI5fezNZcGRHhZFCo=
+
+
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8117
 
@@ -170,11 +182,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اکثرا تست کردن میگن obfs4 کار نمیکنه اما شما اونم اضافه کنید.
-</div>
-
-## MehdiBudam — post 8096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
 </div>
 
