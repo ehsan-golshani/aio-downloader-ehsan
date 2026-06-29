@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/04/08 13:29
+📅 آخرین بروزرسانی: 1405/04/08 17:48
 
 ---
+
+## tasiyanc — post 6204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+NEW FAST ⚡ 🚀.npvt
+</div>
+
+## tasiyanc — post 6202
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+4سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6201
 
@@ -162,28 +193,6 @@ GANG 🇳🇱🇬🇧🚀 (1).npvt
 اختصاصی وایرگارد  👑
 دانلود  Wg tunnel 🕹
 دانلود iOS 📱
-آموزش⏩
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تست شده با ایرانسل & سامانتل   ♻️
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6175
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-NewMethod🌶️@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6174
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  👑
-دانلود  Wg tunnel 🕹
 آموزش⏩
 @Tasiyanc ✅
 </div>
