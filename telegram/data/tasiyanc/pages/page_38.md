@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/09 00:45
+📅 آخرین بروزرسانی: 1405/04/09 02:08
 
 ---
+
+## tasiyanc — post 6285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد cm  👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش
+⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+MCI - SamanTel - wifi تست شده
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 6283
 
@@ -215,18 +234,5 @@ trojan://bb45f73f-795b-4a05-a8e0-ba717bce87e3@104.19.229.21:443?path=%2Fid-tksi&
 
 ✔️ @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6261
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارو 
-🦦
-</div>
-
-## tasiyanc — post 6260
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP OCTOPUS SV⚡🐙.npvt
 </div>
 

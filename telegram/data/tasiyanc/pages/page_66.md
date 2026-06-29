@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/04/09 00:45
+📅 آخرین بروزرسانی: 1405/04/09 02:08
 
 ---
+
+## tasiyanc — post 5552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فارس :
+صداهای مشابهی در جزایر سیریک و جاسک شنیده شده
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش‌های تایید نشده حاکی از درگیری بین نیروی دریایی سپاه و نیروی دریایی آمریکا در خلیج عمان و تنگه هرمز است.
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5544
 
@@ -447,23 +463,6 @@ WİFİ 🚀speed.npvt
 📶اختصاصی تاسیان ۲سرور تست شده وای‌فای 📶
 
 برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5516
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-TASIYAN INFO ✅
-t.me/TasiyanOwner
-</div>
-
-## tasiyanc — post 5514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده 📶
-
-برای اتصال پایدار زمان بدید 🚀
 
 @Tasiyanc ✅
 </div>
