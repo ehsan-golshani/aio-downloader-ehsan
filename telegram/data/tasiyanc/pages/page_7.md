@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/08 22:55
+📅 آخرین بروزرسانی: 1405/04/09 00:45
 
 ---
+
+## tasiyanc — post 7283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪⚡ Fast 🚀.npvt
+</div>
 
 ## tasiyanc — post 7280
 
@@ -183,11 +189,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شاهد حضور جوان و پدیده نو ظهور فوتبال احسان حاج صفی در ترکیب هستیم
-</div>
-
-## tasiyanc — post 7250
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی چند چند میشه؟
 </div>
 

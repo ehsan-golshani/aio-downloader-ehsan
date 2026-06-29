@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/04/08 22:55
+📅 آخرین بروزرسانی: 1405/04/09 00:45
 
 ---
+
+## tasiyanc — post 5901
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New⚡Fast.npvt
+</div>
 
 ## tasiyanc — post 5900
 
@@ -216,13 +222,5 @@ GANG 🌙 10 SERVER FAST.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5879
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-تست کنین بگین
-@Tasiyanc
 </div>
 

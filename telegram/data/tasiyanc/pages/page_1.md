@@ -1,12 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/08 22:55
+📅 آخرین بروزرسانی: 1405/04/09 00:45
 
 ---
 
-## tasiyanc — post 7499
+## tasiyanc — post 7514
 
-<div align="center"><a href="files/post_7499_ARABICA ☕⚡️HoT.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ARABICA ☕⚡️HoT.npvt</a></div>
+<div align="center"><a href="files/post_7514_سرور کمکی ⚡️☕.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 سرور کمکی ⚡️☕.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ARABICA ☕⚡️HoT.npvt
+</div>
+
+## tasiyanc — post 7499
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ حجم نامحدود نپستر 🔥
@@ -191,20 +197,5 @@ ESPRESSO 🔥☕.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز 28 June، روزِ  LGBTQ یا همون همجنسگراست
 بفرست واسه رفیق گِیت🤣
-</div>
-
-## tasiyanc — post 7460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال 
-
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
