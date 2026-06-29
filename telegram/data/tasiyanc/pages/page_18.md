@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/04/08 01:16
+📅 آخرین بروزرسانی: 1405/04/08 03:30
 
 ---
+
+## tasiyanc — post 6868
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 
+🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6866
 
@@ -203,14 +219,5 @@ vless://dc8eccdb-ecfa-435f-9ac1-5dc4882e7b51@162.19.228.119:80?path=%2Fhttp&secu
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۸۰٪ چنل با وایرگارد هامون بخوبی وصل میشن فک کنم
-</div>
-
-## tasiyanc — post 6837
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتیجه بازی های جام جهانی تا الان (اتمام نیمه اول )
-
-تیم کمک های اولیه🇨🇭 1 قطر 0 🇶🇦
-@Tasiyanc ✅
 </div>
 

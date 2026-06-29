@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/04/08 01:16
+📅 آخرین بروزرسانی: 1405/04/08 03:30
 
 ---
+
+## tasiyanc — post 7050
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی با نتیجه مساوی پایان یافت
+</div>
 
 ## tasiyanc — post 7047
 
@@ -208,10 +214,4 @@ matador ⚡ Fast.npvt
 </div>
 
 ## tasiyanc — post 7001
-
-## tasiyanc — post 6996
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی های بعدی 22.30 بلژیک - مصر بامداد 4.30 نیوزلند - تیم ملی @Tasiyanc ✅
-</div>
 
