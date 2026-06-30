@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/04/09 13:45
+📅 آخرین بروزرسانی: 1405/04/09 18:50
 
 ---
+
+## tasiyanc — post 6934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی تست شده  🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6933
 
@@ -215,11 +231,5 @@ https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
 🔐 🔐
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6904
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب براتون آماده کردم
 </div>
 

@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/09 13:45
+📅 آخرین بروزرسانی: 1405/04/09 18:50
 
 ---
+
+## tasiyanc — post 7526
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیما:
+اگر ترامپ را می‌کشتیم؛ آمریکا با ما مذاکره می‌کرد؟!
+</div>
 
 ## tasiyanc — post 7525
 
@@ -17,8 +24,6 @@
 </div>
 
 ## tasiyanc — post 7520
-
-<div align="center"><a href="files/post_7520_🇩🇪@Tasiyanc⚡.nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇩🇪@Tasiyanc⚡.nm</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 کانفیگ اختصاصی نت مود 🚀
@@ -216,11 +221,5 @@ T.me/Tasiyanc ✅
 هنوز آخرین پر سیمرغ هست
 بگیرید ، بگیرید تیر و کمان را به دست
 جهنم بسازید بر هرچه پست .
-</div>
-
-## tasiyanc — post 7480
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ESPRESSO 🔥☕.npvt
 </div>
 

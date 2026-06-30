@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/04/09 13:45
+📅 آخرین بروزرسانی: 1405/04/09 18:50
 
 ---
+
+## tasiyanc — post 6196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  
+👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6195
 
@@ -179,13 +190,5 @@ trojan://VPTFm%3DoZ%2B%2BSuNT%2BjMRqGZqrAnWq-r8KJyY@172.104.237.100:443?security
 trojan://r-_YbwF.j0TtHVewoFIppramjAnmSfqYzJ@172.238.120.124:443?security=tls&insecure=0&headerType=none&fp=chrome&type=tcp&allowInsecure=0#Wifi%20%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc%20%F0%9F%9A%803
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ برای نت خانگی (وای‌فای)
-چندتا سرور پرمیوم تو گپ خودمون می‌زارم بیاید بزنید عشق کنین
-https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 
