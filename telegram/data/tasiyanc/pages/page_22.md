@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/04/09 03:19
+📅 آخرین بروزرسانی: 1405/04/09 09:56
 
 ---
+
+## tasiyanc — post 6770
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داداش بقران بهترین‌چنلی هستی دمت‌‌گرم که بفکری سرعتتتش‌موشکهه🥲😭😭😭
+</div>
 
 ## tasiyanc — post 6769
 
@@ -180,21 +186,5 @@ INFERNO ⚡ vip.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 INFERNO ⚡ vip.npvt
-</div>
-
-## tasiyanc — post 6717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

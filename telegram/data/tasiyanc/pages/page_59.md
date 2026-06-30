@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/04/09 03:19
+📅 آخرین بروزرسانی: 1405/04/09 09:56
 
 ---
+
+## tasiyanc — post 5744
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده روی همراه اول - رایتل ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5743
 
@@ -161,17 +177,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡Test سرعتی⚡.npvt
-</div>
-
-## tasiyanc — post 5722
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده ⛈ 
-
-
-
-🚀 @Tasiyanc ✅
 </div>
 

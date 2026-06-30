@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/09 03:19
+📅 آخرین بروزرسانی: 1405/04/09 09:56
 
 ---
+
+## tasiyanc — post 6532
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡موشک - GN 🌙.npvt
+</div>
 
 ## tasiyanc — post 6531
 
@@ -200,13 +206,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 ✅
 @Tasiyanproxy 
 ✅
-</div>
-
-## tasiyanc — post 6502
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه های عبری:
-نتانیاهو بی صبرانه منتظر دستور حمله گسترده به ایران از سوی ترامپ است
-@Tasiyanc ✅
 </div>
 

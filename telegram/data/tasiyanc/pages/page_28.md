@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/04/09 03:19
+📅 آخرین بروزرسانی: 1405/04/09 09:56
 
 ---
+
+## tasiyanc — post 6553
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادامه اخبار در چنل پروکسی
+
+https://t.me/TasiyanProxy
+</div>
 
 ## tasiyanc — post 6552
 
@@ -186,11 +194,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [24]🚀♂️@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6532
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡موشک - GN 🌙.npvt
 </div>
 

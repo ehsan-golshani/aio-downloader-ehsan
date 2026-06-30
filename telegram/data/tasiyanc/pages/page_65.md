@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/04/09 03:19
+📅 آخرین بروزرسانی: 1405/04/09 09:56
 
 ---
+
+## tasiyanc — post 5577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Password @Tasiyanc
+
+🌐 اختصاصی تاسیان 2 سرور تست شده  وای‌فای   🌐
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5576
 
@@ -155,13 +167,6 @@ WAR 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨هم اکنون پرواز هواپیمای سوخت رسان ایالت متحده KC46 Pegasus بر فراز خلیج عمان
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5554
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨به گزارش استانداری بندرعباس منشأ صدا های انفجار در دست بررسی است
 @Tasiyanc ✅
 </div>
 

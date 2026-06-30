@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/09 03:19
+📅 آخرین بروزرسانی: 1405/04/09 09:56
 
 ---
+
+## tasiyanc — post 7519
+
+<div align="center"><a href="files/post_7519_🍓 Nutella ⚡️ Fast.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🍓 Nutella ⚡️ Fast.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+6سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+Password :  @Tasiyanc ❤️
+
+ ✅@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7518
 
@@ -194,11 +212,5 @@ ESPRESSO 🔥☕.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ❌هم اکنون شلیک موشک از ایران به سمت اردن
-</div>
-
-## tasiyanc — post 7475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️مذاکرات تهران و واشینگتن ک قرار بود این هفته برگزار بشه لغو شد
 </div>
 

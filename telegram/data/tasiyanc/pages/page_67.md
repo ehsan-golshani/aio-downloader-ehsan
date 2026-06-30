@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/04/09 03:19
+📅 آخرین بروزرسانی: 1405/04/09 09:56
 
 ---
+
+## tasiyanc — post 5518
+
+<div align="center"><img src="files/post_5518_tasiyanc_5518.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+WİFİ 🚀speed.npvt
+</div>
 
 ## tasiyanc — post 5517
 
@@ -177,11 +185,5 @@ Password @Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دانلودی چیزی داری بزنید
-</div>
-
-## tasiyanc — post 5493
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ع کانفیگای ک گذاشتیم پینگ بگیرید 😁✅
 </div>
 
