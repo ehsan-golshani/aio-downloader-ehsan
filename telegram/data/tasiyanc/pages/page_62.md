@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/04/09 09:56
+📅 آخرین بروزرسانی: 1405/04/09 13:45
 
 ---
+
+## tasiyanc — post 5678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور بعدی مخصوص گیمرا
+</div>
+
+## tasiyanc — post 5677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip هلند و آمریکا همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5676
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip آلمان همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5675
 
@@ -146,35 +174,5 @@ WİFİ موشک.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تعداد پیام دایرکت - گروه زیاده از همه شما عزیزان ، بزرگ کوچك ، زن مرد که کنار هم در روزهای سخت ایستادید سپاسگذارم و بابت پیام‌های خوبتون ممنون شما هستم ❤️‍🔥 امید است تیم تاسیان همواره کنار شما باشد تا شما عزیزان راضی باشید 🌹
-</div>
-
-## tasiyanc — post 5643
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امیدوارم نت اگه باز شد یادتون باشه کی پیش کی موند تا لحظه آخر ❤️🫂 و کنارمون باشید تا با قدرت ادامه بدیم ❤️‍🔥
-
-همه باهم ، برای هم 🤝
-کوچیک شما مالک چنل نوید 💙
-</div>
-
-## tasiyanc — post 5642
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5641
-
-<div align="center"><img src="files/post_5641_tasiyanc_5641.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📈 Confirmed: Live metrics show a partial restoration to internet connectivity in #Iran on day 88, after 2093 hours of near-total isolation from international networks, the longest nationwide internet shutdown in modern history. It is unclear if the restoration will be sustained.
 </div>
 

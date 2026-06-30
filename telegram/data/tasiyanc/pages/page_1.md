@@ -1,12 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/09 09:56
+📅 آخرین بروزرسانی: 1405/04/09 13:45
 
 ---
 
-## tasiyanc — post 7519
+## tasiyanc — post 7525
 
-<div align="center"><a href="files/post_7519_🍓 Nutella ⚡️ Fast.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🍓 Nutella ⚡️ Fast.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همه دوستانی که اندروید دارن نت مود دانلود کنن بیشتر میزارم از امروز همراه نپستر
+</div>
+
+## tasiyanc — post 7524
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇦🇪@Tasiyanc ⚡️.nm
+</div>
+
+## tasiyanc — post 7520
+
+<div align="center"><a href="files/post_7520_🇩🇪@Tasiyanc⚡.nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇩🇪@Tasiyanc⚡.nm</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+4 سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7519
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ حجم نامحدود نپسترنت🚀
@@ -193,24 +222,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ESPRESSO 🔥☕.npvt
-</div>
-
-## tasiyanc — post 7478
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توهین مجدد میثاقی به مردم ایران:
-کسایی که برای خوشحالی گل شجاع کلیپ می‌سازن همون جای خالی ان!
-</div>
-
-## tasiyanc — post 7477
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌هم اکنون شلیک موشک از ایران به سمت اردن
-</div>
-
-## tasiyanc — post 7476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌هم اکنون شلیک موشک از ایران به سمت اردن
 </div>
 
