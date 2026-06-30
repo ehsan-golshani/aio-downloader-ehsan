@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/10 00:52
+📅 آخرین بروزرسانی: 1405/04/10 02:28
 
 ---
+
+## tasiyanc — post 7393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود
+
+۳ سرور سرعتی ⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ هم اکنون حملات آمریکا به سیریک
+</div>
 
 ## tasiyanc — post 7391
 
@@ -246,18 +269,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 https://www.gstatic.com/generate_204
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 7344
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساعت 18.30 والیبال 😐
-ایران Vs آمریکا 🦦
-</div>
-
-## tasiyanc — post 7341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩
 </div>
 

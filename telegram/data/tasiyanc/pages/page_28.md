@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/04/10 00:52
+📅 آخرین بروزرسانی: 1405/04/10 02:28
 
 ---
+
+## tasiyanc — post 6573
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی متد جدید همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+PASSWORD 🔑 : @Tasiyanc
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6570
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 ⭕️هگست : اگر لازم باشد با بمب‌ها مذاکره کنیم، با بمب‌ها مذاکره خواهیم کرد.
+ما در این کار بسیار ماهریم
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6569
 
@@ -183,35 +210,5 @@ https://t.me/TasiyanProxy
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بوی برخط شدن میاد اینبار
-</div>
-
-## tasiyanc — post 6546
-
-<div align="center"><video src="files/post_6546_tasiyanc_6546.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6546_tasiyanc_6546.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👍
-🔴 ترامپ: فاش نمی‌کنم که آیا پل‌ها و نیروگاه‌ها را هدف قرار خواهیم داد.
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6545
-
-<div align="center"><video src="files/post_6545_tasiyanc_6545.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6545_tasiyanc_6545.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👍 
-🔴ترامپ درباره ایران:
-
-ما به آن‌ها حمله خواهیم کرد و بسیار شدید حمله خواهیم کرد.
-
-ما بمباران را از سر می‌گیریم. ما حق انجام این کار را داریم. آن‌ها هلیکوپتر ما را سرنگون کردند.
-@Tasiyanc 
-✅
 </div>
 
