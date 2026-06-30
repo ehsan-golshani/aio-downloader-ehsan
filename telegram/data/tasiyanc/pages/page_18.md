@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/04/09 18:50
+📅 آخرین بروزرسانی: 1405/04/09 20:54
 
 ---
+
+## tasiyanc — post 6910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این endpoit هارو جایگزین قبلی کنین (وایرگارد)
+8.6.112.235:1070
+8.6.112.228:1843
+8.6.112.19:908
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢 ساب لینک اختصاصی تاسیان 🔹پر سرعت و نامحدود 🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt 🔐 🔐 ✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6905
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢 ساب لینک اختصاصی تاسیان
+
+🔹پر سرعت و نامحدود
+
+🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید
+
+https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
+
+🔐 🔐
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6904
 
@@ -167,33 +199,5 @@ T.me/Tasiyanc ✅
 کانال ۱۲ اسرائیل ⭕️⭕️ ❌
 نعیم قاسم فرمانده حزب الله ترور شد
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[46] 🪐@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6870
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.0.1:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%40Tasiyanc%20DE%20%E2%9A%A1%F0%9F%9A%80 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path…
-</div>
-
-## tasiyanc — post 6868
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 
-🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc 
-✅
 </div>
 
