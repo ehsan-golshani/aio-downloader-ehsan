@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/04/10 23:00
+📅 آخرین بروزرسانی: 1405/04/11 00:47
 
 ---
+
+## tasiyanc — post 6222
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+6سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6221
+
+<div align="center"><video src="files/post_6221_tasiyanc_6221.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6221_tasiyanc_6221.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد CM  
+👑
+
+دانلود  Wg tunnel 
+🕹
+
+آموزش
+⏩
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6220
 
@@ -147,28 +183,6 @@ NEW FAST ⚡ 🚀.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Proxy ✅ tg://proxy?server=37.27.192.211&port=8443&secret=dd104462821249bd7ac519130220c25d09 @Tasiyanproxy 
-✅
-</div>
-
-## tasiyanc — post 6197
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Proxy ✅
-
-tg://proxy?server=37.27.192.211&port=8443&secret=dd104462821249bd7ac519130220c25d09
-
-@Tasiyanproxy 
-✅
-</div>
-
-## tasiyanc — post 6196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  
-👑
-دانلود  Wg tunnel 🕹
-آموزش⏩
-@Tasiyanc 
 ✅
 </div>
 
