@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/04/10 08:44
+📅 آخرین بروزرسانی: 1405/04/10 12:32
 
 ---
+
+## tasiyanc — post 6234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۳ کانفیگ وایر فول وصل 
+✅
+</div>
 
 ## tasiyanc — post 6233
 
@@ -185,10 +192,4 @@ https://t.me/TasiyanProxy
 </div>
 
 ## tasiyanc — post 6209
-
-## tasiyanc — post 6208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04] @Tasiyanc ⚡🚀.conf
-</div>
 

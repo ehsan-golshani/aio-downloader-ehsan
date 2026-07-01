@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/04/10 08:44
+📅 آخرین بروزرسانی: 1405/04/10 12:32
 
 ---
+
+## tasiyanc — post 6947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تست کنید
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 6946
 
@@ -199,12 +206,5 @@ T.me/Tasiyanc ✅
 توافق امضا شد
 @Tasiyanc
 ✅
-</div>
-
-## tasiyanc — post 6925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk
-بیاید گپمون (صحبت)
 </div>
 

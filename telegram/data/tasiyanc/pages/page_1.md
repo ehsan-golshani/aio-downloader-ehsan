@@ -1,12 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/10 08:44
+📅 آخرین بروزرسانی: 1405/04/10 12:32
 
 ---
 
-## tasiyanc — post 7545
+## tasiyanc — post 7546
 
-<div align="center"><a href="files/post_7545_@Tasiyanc 🚀.ehi.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🚀.ehi</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☕Türk Kahvesi⚡️.npvt
+</div>
+
+## tasiyanc — post 7545
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc ⚡️☕².ehi
@@ -17,8 +21,6 @@
 <div align="center"><video src="files/post_7542_tasiyanc_7542.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7542_tasiyanc_7542.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7542_@Tasiyanc ⚡☕.ehi.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ⚡☕.ehi</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی İnjector  
@@ -271,11 +273,5 @@ ARABICA ☕⚡️HoT.npvt
 📧 [ برای دانلود فیلم کلیک کنید ]
 
 @Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 7514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ARABICA ☕⚡️HoT.npvt
 </div>
 
