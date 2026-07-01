@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/10 02:28
+📅 آخرین بروزرسانی: 1405/04/10 08:44
 
 ---
+
+## tasiyanc — post 7545
+
+<div align="center"><a href="files/post_7545_@Tasiyanc 🚀.ehi.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🚀.ehi</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc ⚡️☕².ehi
+</div>
+
+## tasiyanc — post 7542
+
+<div align="center"><video src="files/post_7542_tasiyanc_7542.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7542_tasiyanc_7542.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_7542_@Tasiyanc ⚡☕.ehi.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ⚡☕.ehi</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  
+📶
+
+حجم و کاربر نامحدود 
+⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+
+دانلود برنامه اندروید 
+🕹
+
+دانلود برنامه آیفون 
+📱
+
+آموزش اتصال به اینجکتور ✨
+
+@Tasiyanc 
+💠 | اتصال امن
+</div>
 
 ## tasiyanc — post 7541
 
@@ -237,28 +277,5 @@ ARABICA ☕⚡️HoT.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ARABICA ☕⚡️HoT.npvt
-</div>
-
-## tasiyanc — post 7499
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپستر 🔥
-
-7 سرور سرعتی ویژه ⚡️
-
-آموزش اتصال ⛓
-
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7498
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلم جدید تو چنل پروکسی فور شد به دلایلی , خواستید ببینید از اینجا دان کنید
-💘@TasiyanProxy
 </div>
 

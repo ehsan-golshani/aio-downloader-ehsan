@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/10 02:28
+📅 آخرین بروزرسانی: 1405/04/10 08:44
 
 ---
+
+## tasiyanc — post 6732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VİP - ⛓️OMEGA ⚡.npvt
+</div>
+
+## tasiyanc — post 6731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6730
 
@@ -174,21 +196,5 @@ INFERNO ⚡ vip.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز 12 June ، روز جهانی تشکر از آدمیه که زندگی رو برات قشنگتر کرده.
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6711
-
-<div align="center"><img src="files/post_6711_tasiyanc_6711.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تجمعات شبانه
-گشت ارشاد به چاک سینه توجهی نداره اگه بمالید
-@tasiyanc✅
-</div>
-
-## tasiyanc — post 6710
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن خنده بازه
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/04/10 02:28
+📅 آخرین بروزرسانی: 1405/04/10 08:44
 
 ---
+
+## tasiyanc — post 6001
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۴۰ هزار نفر ۲ تا ریکشن🤣🤣
+</div>
+
+## tasiyanc — post 6000
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریکشن میبینم خندم میگیره🤣
+</div>
 
 ## tasiyanc — post 5999
 
@@ -170,28 +182,5 @@ Create openvpn
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرور های vip بعدی با متد جدید ساعت ۴ در حال تستشم جواب بده میزارم
-</div>
-
-## tasiyanc — post 5970
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پینگ نگیرید ، کانکت شدید بیاید تل یا اینستا بالا میاد خودش
-</div>
-
-## tasiyanc — post 5969
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان 
-
-5سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 
