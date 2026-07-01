@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/10 15:50
+📅 آخرین بروزرسانی: 1405/04/10 23:00
 
 ---
+
+## tasiyanc — post 7564
+
+<div align="center"><video src="files/post_7564_tasiyanc_7564.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7564_tasiyanc_7564.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیروز کریمی رو آنتن زنده صداوسیما:
+
+قلعه‌نویی ۵ سانت و ۱۰ سانت رو تحمل کرد ولی ۳۰ سانت رو میخواد کجاش بذاره؟!
+
+
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7563
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡️🚀 Premium.npvt
+</div>
 
 ## tasiyanc — post 7560
 
@@ -12,15 +33,11 @@
 
 ## tasiyanc — post 7553
 
-<div align="center"><a href="files/post_7553_⚡️⁰¹@Tasiyanc.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡️⁰¹@Tasiyanc.conf</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 💠
 </div>
 
 ## tasiyanc — post 7552
-
-<div align="center"><a href="files/post_7552_Fast ⚡️🚀 Premium.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast ⚡️🚀 Premium.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ حجم نامحدود نپسترنت🚀
@@ -238,17 +255,5 @@ Password :  @Tasiyanc ❤️
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صداوسیما:
 اگر ترامپ را می‌کشتیم؛ آمریکا با ما مذاکره می‌کرد؟!
-</div>
-
-## tasiyanc — post 7525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همه دوستانی که اندروید دارن نت مود دانلود کنن بیشتر میزارم از امروز همراه نپستر
-</div>
-
-## tasiyanc — post 7524
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇦🇪@Tasiyanc ⚡️.nm
 </div>
 
