@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/11 00:47
+📅 آخرین بروزرسانی: 1405/04/11 02:17
 
 ---
+
+## tasiyanc — post 6349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+5سرور   سرعتی  🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🔥
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6348
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کلاینت OLCNG ✅
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6346
+
+<div align="center"><img src="files/post_6346_tasiyanc_6346.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معرفی 📶 OLCNG  ☑️
+
+یک پروژه متن‌باز اندرویدی با تمرکز بر سرعت، سادگی و مدیریت آسان کانفیگ‌های پروکسی و VPN. این پروژه توسط تیم توسعه‌دهنده OpenLibre Community توسعه داده می‌شود و کدهای آن به‌صورت عمومی در گیت‌هاب منتشر شده است.
+
+🔺 متن‌باز و قابل بررسی
+🔺 رابط کاربری سبک و ساده
+🔺 به‌روزرسانی و توسعه مداوم توسط جامعه توسعه‌دهندگان
+🔺 مناسب برای استفاده از کانفیگ‌های مختلف در اندروید
+پروژه OLCNG یکی از محصولات OpenLibre Community است که با هدف ارائه ابزاری سریع و ساده برای مدیریت اتصال‌های مبتنی بر پروکسی توسعه داده شده است.
+Join As @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6345
 
@@ -170,35 +210,6 @@ DE - Fast 🇩🇪⚡.npvt
 3سرور   سرعتی آلمان 🇩🇪
 
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  
-⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6324
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز در راه است
-</div>
-
-## tasiyanc — post 6323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐 ریکشن ۵ تا؟
-</div>
-
-## tasiyanc — post 6322
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۲سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
 
 دانلود  NPV tunnel  🌐
 

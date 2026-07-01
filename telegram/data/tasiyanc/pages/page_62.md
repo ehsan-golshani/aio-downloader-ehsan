@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/04/11 00:47
+📅 آخرین بروزرسانی: 1405/04/11 02:17
 
 ---
+
+## tasiyanc — post 5708
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجموعه تاسیان تلاش خواهد کرد بصورت رایگان بهترین سرور ها و بهترین کانفیگارو براتون ارائه بده تا بصورت امن در این فضا فعالیت خوبی داشته باشید نه اپ های مخرب و vpn های نا امنی ک اطلاعات شمارو تو خطر میندازه
+</div>
+
+## tasiyanc — post 5707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc - FULL VASL 🍃.npvt
+</div>
+
+## tasiyanc — post 5706
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈4 سرور تمام اپراتورا متصل سرعت نور ⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5705
 
@@ -164,34 +188,5 @@ vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ ویتوری یکی دوتا بزارم بعدش بریم سمت نپستر
-</div>
-
-## tasiyanc — post 5685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-27 k 🥹🫂
-ممنون که با تاسیان همراهید
-</div>
-
-## tasiyanc — post 5684
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود📱
-
-⛈سرور vip هلند ، فرانسه  همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5681
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود📱
-
-⛈سرور vip اتریش گاد همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
 </div>
 
