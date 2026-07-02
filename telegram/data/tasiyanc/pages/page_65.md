@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/04/11 20:57
+📅 آخرین بروزرسانی: 1405/04/11 22:37
 
 ---
+
+## tasiyanc — post 5638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منو چقد دوس؟
+</div>
 
 ## tasiyanc — post 5637
 
@@ -190,13 +196,5 @@
 برای اتصال پایدار صبور باشید🚀
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5605
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حجم پیام زیاده
-
-قربون همتون عشقید ❤️‍🔥💋
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/04/11 20:57
+📅 آخرین بروزرسانی: 1405/04/11 22:37
 
 ---
+
+## tasiyanc — post 5552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فارس :
+صداهای مشابهی در جزایر سیریک و جاسک شنیده شده
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5551
 
@@ -457,12 +465,5 @@ WİFİ 🚀speed.npvt
 برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5516
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-TASIYAN INFO ✅
-t.me/TasiyanOwner
 </div>
 

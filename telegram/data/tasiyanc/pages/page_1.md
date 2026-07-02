@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/11 20:57
+📅 آخرین بروزرسانی: 1405/04/11 22:37
 
 ---
+
+## tasiyanc — post 7589
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجکتور خیلی پایداریش عجیبه کانفیگای دیروز هم وصله با سرعت
+</div>
 
 ## tasiyanc — post 7588
 
@@ -201,11 +207,5 @@ Fast ⚡️🚀 Premium.npvt
 
 
  ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کادو منو نمیدید روز پسره؟
 </div>
 

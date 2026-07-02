@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/11 20:57
+📅 آخرین بروزرسانی: 1405/04/11 22:37
 
 ---
+
+## tasiyanc — post 6336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید چخبرا ؟
+</div>
 
 ## tasiyanc — post 6334
 
@@ -188,21 +194,5 @@ Password : @Tasiyanc 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 لوگو چنل مرتبط با اسم تغییراتی کوچک دادیم ، گممون نکنین ❤️
-</div>
-
-## tasiyanc — post 6308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3 سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  ⏩
-
-✔️ @Tasiyanc ✅
 </div>
 

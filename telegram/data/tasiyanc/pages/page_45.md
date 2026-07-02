@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/04/11 20:57
+📅 آخرین بروزرسانی: 1405/04/11 22:37
 
 ---
+
+## tasiyanc — post 6160
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنا اگه زیاد باشه یه وایرم میزارم
+</div>
 
 ## tasiyanc — post 6159
 
@@ -179,11 +185,5 @@ vip 🚀🔥 @Tasiyanc.conf
 آموزش ویدیویی ⏩
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6138
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐😐😐 یه دونه هم ری اکشن نزدید
 </div>
 
