@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/04/11 22:37
+📅 آخرین بروزرسانی: 1405/04/12 01:30
 
 ---
+
+## tasiyanc — post 5930
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زاپاس تاسیان ✅ حتما جوین شوید
+https://t.me/TasiyanOwner
+</div>
+
+## tasiyanc — post 5929
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Wifi نت خانگی⚡.npvt
+</div>
+
+## tasiyanc — post 5928
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+
+بیاید گپمون دور هم باشیم
+</div>
+
+## tasiyanc — post 5927
+
+<div align="center"><img src="files/post_5927_tasiyanc_5927.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Wifi نت خانگی⚡.npvt
+</div>
 
 ## tasiyanc — post 5926
 
@@ -166,44 +195,5 @@ v2Ray کانفیگ
 vless://4e93e8e6-8cc1-4a5b-b577-3d5bcae6ada0@104.17.121.238:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=irdiplomacy.ir.rajanews.com.parstoday.com.donya-e-eqtesad.com.alalamtv.net.yjc.ir.tehrantimes.com&allowInsecure=0&sni=FAiNT-beliEFst4dReAkTi.WINdler.Co.Uk#%40Tasiyanc
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5909
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New⚡Fast.npvt
-</div>
-
-## tasiyanc — post 5908
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2Vip🇩🇪.npvt
-</div>
-
-## tasiyanc — post 5906
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2Vip🇩🇪.npvt
-</div>
-
-## tasiyanc — post 5905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑 رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- 2 سرور  سرعتی
-🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-
-🦁  @Tasiyanc ✅
 </div>
 
