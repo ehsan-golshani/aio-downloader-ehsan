@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/11 16:38
+📅 آخرین بروزرسانی: 1405/04/11 20:57
 
 ---
+
+## tasiyanc — post 7588
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حالتون چطوره؟
+</div>
 
 ## tasiyanc — post 7586
 
@@ -11,8 +17,6 @@
 </div>
 
 ## tasiyanc — post 7585
-
-<div align="center"><a href="files/post_7585_🍊⚡ Fast Orange.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🍊⚡ Fast Orange.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ حجم نامحدود نپسترنت🚀
@@ -46,8 +50,6 @@
 </div>
 
 ## tasiyanc — post 7578
-
-<div align="center"><a href="files/post_7578_Te Hez Dikim [ MusicViral.ir ].dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Te Hez Dikim [ MusicViral.ir ]</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 💠
@@ -205,11 +207,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کادو منو نمیدید روز پسره؟
-</div>
-
-## tasiyanc — post 7550
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
 </div>
 

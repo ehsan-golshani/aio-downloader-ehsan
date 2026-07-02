@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/04/11 16:38
+📅 آخرین بروزرسانی: 1405/04/11 20:57
 
 ---
+
+## tasiyanc — post 6159
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP تاسیان 🪙 GOLD.npvt
+</div>
 
 ## tasiyanc — post 6158
 
@@ -179,17 +185,5 @@ vip 🚀🔥 @Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😐😐😐 یه دونه هم ری اکشن نزدید
-</div>
-
-## tasiyanc — post 6137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی کانفیگ وایرگارد متد جدید 👑
-
-تست شده 🎚
-دانلود برنامه Wg tunnel 🕹
-آموزش ویدیویی ⏩
-
-@Tasiyanc ✅
 </div>
 

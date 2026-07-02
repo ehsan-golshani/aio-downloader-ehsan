@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/04/11 16:38
+📅 آخرین بروزرسانی: 1405/04/11 20:57
 
 ---
+
+## tasiyanc — post 6307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سندروم Survivor's Guilt:
+حالت روانی‌ای که فرد پس از زنده موندن از یه فاجعه یا تجربه مرگبار با وجود بی تقصیر بودن، دچار احساس گناه از زنده موندن میشه، به ویژه وقتی دیگران آسیب دیده یا جان باختن.
+
+پروکسی • پروکسی
+
+@Tasiyanproxy ✅
+</div>
 
 ## tasiyanc — post 6306
 
@@ -192,12 +203,5 @@ Green Eyes ⚡💚.npvt
 ⏩
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-MCI - SamanTel - wifi تست شده
-@TASIYANC ✅
 </div>
 

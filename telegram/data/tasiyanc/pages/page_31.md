@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/04/11 16:38
+📅 آخرین بروزرسانی: 1405/04/11 20:57
 
 ---
+
+## tasiyanc — post 6529
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6527
 
@@ -218,17 +232,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6488
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوووووورییی با توییت امشب امریکا احتمال شروع دوباره جنگ هستت
-برا همین براتون توی بات  ۶۰۰‌گیگ کانفینگ اختصاصی گذاشتیم که یوقت دوباره نتو قطع کردن شماها قطع نشید❤
-
-کنارتون هستیم💝
-
-دریافت کانفینگ اختصاصی
-دریافت کانفینگ اختصاصی
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/04/11 16:38
+📅 آخرین بروزرسانی: 1405/04/11 20:57
 
 ---
+
+## tasiyanc — post 6028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم لیمیت خوردم
+</div>
 
 ## tasiyanc — post 6027
 
@@ -143,11 +149,5 @@ VİP 🔥.npvt
 
 🔴 آرسنال ❤️
 🇫🇷 پاریس 🔥
-</div>
-
-## tasiyanc — post 6003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هردو کانفیگ اوپن وصله برید حالشو ببرید
 </div>
 

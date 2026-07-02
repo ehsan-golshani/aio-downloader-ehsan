@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/04/11 16:38
+📅 آخرین بروزرسانی: 1405/04/11 20:57
 
 ---
+
+## tasiyanc — post 6236
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنام کو😐😐😐😐😐😐😐😐😐😐
+</div>
 
 ## tasiyanc — post 6234
 
@@ -190,6 +196,4 @@ https://t.me/TasiyanProxy
 🦁  @Tasiyanc 
 ✅
 </div>
-
-## tasiyanc — post 6209
 
