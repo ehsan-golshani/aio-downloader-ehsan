@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/04/11 11:29
+📅 آخرین بروزرسانی: 1405/04/11 14:25
 
 ---
+
+## tasiyanc — post 5568
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نامحدودن بستگی داره چقد سرور شلوغ باشه
+</div>
 
 ## tasiyanc — post 5567
 
@@ -272,15 +278,5 @@ Join @Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه ترکیبی پررو بریم اگه ری اکشن باشه
-</div>
-
-## tasiyanc — post 5537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده  📶
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

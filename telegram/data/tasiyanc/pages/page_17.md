@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/04/11 11:29
+📅 آخرین بروزرسانی: 1405/04/11 14:25
 
 ---
+
+## tasiyanc — post 6965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 سرور سرعتی NPV 
+🌟
+T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6964
 
@@ -251,13 +260,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتونم بخیر 🥹
-</div>
-
-## tasiyanc — post 6942
-
-<div align="center"><img src="files/post_6942_tasiyanc_6942.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑ساب لینک اختصاصی تاسیان👑 https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt اینو بزنید 🔐🔐 هر ۴ ساعت کانفیگا آپدیت میشن بعد از ۴ ساعت update subscription بزنید تا آپدیت شن @Tasiyanc ✅
 </div>
 

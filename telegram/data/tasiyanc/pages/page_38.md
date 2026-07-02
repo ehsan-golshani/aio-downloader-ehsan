@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/11 11:29
+📅 آخرین بروزرسانی: 1405/04/11 14:25
 
 ---
+
+## tasiyanc — post 6327
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۰٪ کانفیگای ک روزهای گذشته گذاشتیم وصله
+</div>
 
 ## tasiyanc — post 6326
 
@@ -195,11 +201,5 @@ Password : @Tasiyanc  ⏩
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 به هرحال فشار میاد و تردید میکنم برای ادامه فعالیت
-</div>
-
-## tasiyanc — post 6301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما ک از اولش گفتم Ovpn تو حیطه من نی و نمیزارم ،چیزای ام ک میزاریم از Ovpn بیشتر از vpnbook یا vpnjantit که اشتراکشو دارم
 </div>
 

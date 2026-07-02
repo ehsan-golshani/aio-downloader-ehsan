@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/11 11:29
+📅 آخرین بروزرسانی: 1405/04/11 14:25
 
 ---
+
+## tasiyanc — post 7577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال رو همه اپراتورا هم اکنون ( وصل اما قط وصل)
+</div>
 
 ## tasiyanc — post 7576
 
@@ -11,8 +17,6 @@
 </div>
 
 ## tasiyanc — post 7574
-
-<div align="center"><a href="files/post_7574_@Tasiyanc ⚡🔥.nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ⚡🔥.nm</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 کانفیگ اختصاصی نت مود 🚀
@@ -254,11 +258,5 @@ Fast ⚡️🚀 Premium.npvt
 اطلاع رسانی بشه
 
 @Tasiyanc 💠 | اتصال امن با مجموعه تاسیان
-</div>
-
-## tasiyanc — post 7537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ولی پسرامون ( دخترامونم ) ثابت کردن چقد باغیرتن
 </div>
 

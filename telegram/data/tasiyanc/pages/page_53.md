@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/04/11 11:29
+📅 آخرین بروزرسانی: 1405/04/11 14:25
 
 ---
+
+## tasiyanc — post 5942
+
+<div align="center"><img src="files/post_5942_tasiyanc_5942.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک دقیقه نیست استارت کردم ، بهترین کانال جهانی دمت گرم ، عالیی ،🙏🙏❤️❤️
+</div>
 
 ## tasiyanc — post 5941
 
@@ -176,11 +184,5 @@ Wifi نت خانگی⚡.npvt
 وصل رو تمام اپراتورا ✅
 vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.254:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=donya-e-eqtesad.com.tasnimnews.com.alef.ir.en.mehrnews.com.entekhab.ir.tasnimnews.com.tehrantimes.com&allowInsecure=0&sni=Humble-FigUREFnHk81kxjx.CarboNblaCkBmw.iR#%40Tasiyanc%20-%20%F0%9F%8C%99
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5918
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای بار هزارم کانکت شدی دنبال دان لینک نباش بیا تل یا برو یه جای دیگه جز نپستر بالا میاد تو ۱۰ ثانیه
 </div>
 
