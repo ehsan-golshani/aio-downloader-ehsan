@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/04/11 22:35
+📅 آخرین بروزرسانی: 1405/04/12 00:12
 
 ---
+
+## ProxyMTProto — post 48696
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ethereal11.arixo.shop
+Port: 443
+Secret: eecc2edc77e2e4b469a8431380808ef1fd657468657265616c31312e617269786f2e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48695
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48694
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdncloud.mowork.ru
+Port: 443
+Secret: eececef6563bce080cccda8dcc61cedbf6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48693
 
@@ -154,33 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: secure.medhata.org
 Port: 443
 Secret: ee424a5d237af49be4515bb005582791217365637572652e6d6564686174612e6f7267
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48676
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Amir-ghalenoei-gq.ir.yfdhjderkig.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48675
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: login.veltura.digital
-Port: 443
-Secret: ee381874396c547235c4be1e40cb6132976c6f67696e2e76656c747572612e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48674
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

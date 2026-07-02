@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/04/11 22:35
+📅 آخرین بروزرسانی: 1405/04/12 00:12
 
 ---
+
+## ProxyMTProto — post 47954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47953
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wave.proxytelega.store
+Port: 443
+Secret: eee12b7ef9718c53b06c8a416387c8d4a6776176652e70726f787974656c6567612e73746f7265
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 9965
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47951
 
@@ -154,33 +181,6 @@ Secret: ee98741a4df96ee86a25ca542a538a3484626f6c742e70726f78796f6e6c696e652e6f6e
 Server: Unknown
 Port: 8443
 Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp10.sosproxy.space
-Port: 443
-Secret: ee3ab621bbb1dea6b3be09c8f3582c61a364726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 15
-Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 79.137.196.223
-Port: 9443
-Secret: eeeed3431eaef666469f9beb5286a544d96f7777772e636c6f7564666c6172652e636f6d
 @ProxyMTProto
 </div>
 
