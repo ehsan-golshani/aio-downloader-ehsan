@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/04/11 02:17
+📅 آخرین بروزرسانی: 1405/04/11 11:29
 
 ---
+
+## tasiyanc — post 6655
+
+<div align="center"><video src="files/post_6655_tasiyanc_6655.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6655_tasiyanc_6655.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به امید قهرمانی پرتغال به عشق آقام کریس 
+😱
+🤔
+</div>
+
+## tasiyanc — post 6654
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆افتتاحیه جام‌جهانی امشب ساعت 22.30
+
+جدال مکزیک و آفریقا
+</div>
 
 ## tasiyanc — post 6651
 
@@ -171,18 +191,5 @@ Homayoun Shajarian & Sohrab Pournazeri – Irane Man
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk
-</div>
-
-## tasiyanc — post 6620
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk
-</div>
-
-## tasiyanc — post 6618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم
-https://t.me/+v0wRP5SGNrg5MThk
 </div>
 

@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/04/11 02:17
+📅 آخرین بروزرسانی: 1405/04/11 11:29
 
 ---
+
+## tasiyanc — post 6727
+
+<div align="center"><img src="files/post_6727_tasiyanc_6727.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی یه شیر تو ایران به دنیا میاد 😈
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6726
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این واقعی ترین کلیپ از جنگه، اگه میخواین بدونین نزدیک‌تون یا جایی که هستین موشک بخوره چه اتفاقی میوفته حتما این کلیپ رو ببینین. @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6725
 
@@ -178,21 +193,6 @@ INFERNO ⚡ vip.npvt
 
 فایل Txt رو باز کنین کانفیگ رو تو آپ 🔐 & 🔐 & 🔐 بزنید پینگ بگیرید وصل شید  🚀
 
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگای رایگان مارو تو بله روبیکا به اسم نامحدود ۶۰۰ تومن میفروشن 😐
-تاسیان تو هیچ اپ ایرانی فعالیتی نداره و فروشی ام ندارع تا اطلاع ثانوی،بخدا دیگه خستم شدم انقد گفتم مراقب باشید
-</div>
-
-## tasiyanc — post 6701
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.194.219:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%40Tasiyanc%20%E2%9A%A1%F0%9F%94%B7
-﻿
 @Tasiyanc ✅
 </div>
 
