@@ -1,8 +1,115 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/12 23:42
+📅 آخرین بروزرسانی: 1405/04/13 01:11
 
 ---
+
+## tasiyanc — post 6392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️
+</div>
+
+## tasiyanc — post 6391
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووووورییییییی حمله کردننننننن
+</div>
+
+## tasiyanc — post 6390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدا و سیما :
+
+شهر نبطیه لبنان در حال سقوط است
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 6389
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اضطراریه و هر لحظه ممکنه به خاطر شرایط جنگی اینترنت کل کشور قطع بشه! وقت رو تلف نکنید. برای اینکه ارتباطمون کاملاً قطع نشه، ۲ تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه اضطراری براتون آماده کردیم. ​تأکید می‌کنیم: همین الان، تا قبل از اینکه دسترسی‌ها…
+</div>
+
+## tasiyanc — post 6386
+
+<div align="center"><img src="files/post_6386_tasiyanc_6386.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اضطراریه و هر لحظه ممکنه به خاطر شرایط جنگی اینترنت کل کشور قطع بشه! وقت رو تلف نکنید. برای اینکه ارتباطمون کاملاً قطع نشه، ۲ تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه اضطراری براتون آماده کردیم.
+​تأکید می‌کنیم: همین الان، تا قبل از اینکه دسترسی‌ها قطع بشه وارد ربات زیر بشید و لینک‌هاتون رو دریافت کنید. بعداً هیچ اعتراضی پذیرفته نیست!
+
+
+دریافت کانفینگ  اختصاصی
+دریافت کانفنیگ اختصاصی
+</div>
+
+## tasiyanc — post 6385
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۶سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+7سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6383
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[Fast] ⚡ @Tasiyanc.npvt
+</div>
+
+## tasiyanc — post 6382
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در صورت قطعی ، چنل تاسیان پرایوت میشه ، و دوستانی که به ما وفادار بودن و پیشمون موندن قرارع نزارم یه دقیقه قطعی بکشن
+عشق منین شما ک همیشه حمایت کردید ازم ❤️
+قطعی ایشالا تو کار نباشه ولی اگر باشه قوی تر از قبل برنامه داریم
+</div>
+
+## tasiyanc — post 6375
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد T.me/TasiyanProxy
+</div>
+
+## tasiyanc — post 6374
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد
+T.me/TasiyanProxy
+</div>
 
 ## tasiyanc — post 6373
 
@@ -123,113 +230,5 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡All Operators ⚡.npvt
-</div>
-
-## tasiyanc — post 6361
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور   سرعتی پرمیوم 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
-
-دانلود  NPV tunnel  🌐
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6360
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Speed ⚡ One.npvt
-</div>
-
-## tasiyanc — post 6359
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-5سرور   سرعتی تست شده با سامانتل🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
-
-دانلود  NPV tunnel  🌐
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6358
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی ⚡ sv 3.npvt
-</div>
-
-## tasiyanc — post 6357
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۳سرور   سرعتی تست شده با همراه 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
-
-دانلود  NPV tunnel  🌐
-
-😬Password :″ @Tasiyanc  ″
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6356
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+RTGtcYWb8HdkNjdk
-گپمون هنو ۴ کا نشده 🗽😐 جوین شید عشقا
-</div>
-
-## tasiyanc — post 6355
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سری چنلهای عزیز هم ک باهاشون رفیقم فور میکنن بدون اینکه دیکد کنن ، جا داره ازشون تشکر کنم ❤️‍🔥
-</div>
-
-## tasiyanc — post 6354
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی لاقل اجازه بده ممبرای خودم وصل شن بعد
-</div>
-
-## tasiyanc — post 6353
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ع سرورای تاسیان اسکی می‌ره پسوردم می‌زاره و میگه بیاید تشکر کنین ازم
-ساعت ۲۱.۱۸ سرور میزنم پنج دقیقه بعدش دیکد می‌کنه ، آدم میمونه چی بگه
-</div>
-
-## tasiyanc — post 6352
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6351
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-🔺@Tasiyanc ✅
 </div>
 
