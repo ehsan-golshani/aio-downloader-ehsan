@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/04/12 16:49
+📅 آخرین بروزرسانی: 1405/04/12 19:05
 
 ---
+
+## ProxyMTProto — post 48557
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: secure.gorbushkin.click
+Port: 443
+Secret: eee90419f865de23f95a859171396bc3d47365637572652e676f72627573686b696e2e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48556
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 6775
+Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48555
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn.savelyev.click
+Port: 443
+Secret: ee0e25d36b89ee532fcc5767a9dae2669e63646e2e736176656c7965762e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48554
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48553
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee1d89eb222800da9e0dca07e51883b2916c696e6b2e6672656574672e7077
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48552
 
@@ -136,51 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: node.nowabst.net
 Port: 853
 Secret: ee1bbdcdcfd200974bb999813180a12738766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: zinova.co.uk.
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ge.nowabst.net
-Port: 853
-Secret: ee5a281fcc91f7ec3ce293d643395222ad766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: www2.nilmart.ir
-Port: 443
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48534
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowabst.net
-Port: 853
-Secret: ee4e9fcd5caf6e9be2f8ec43e370e902d6766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48533
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

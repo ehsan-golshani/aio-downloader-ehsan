@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/12 11:59
+📅 آخرین بروزرسانی: 1405/04/12 19:07
 
 ---
+
+## tasiyanc — post 7617
+
+<div align="center"><a href="files/post_7617_@Tasiyanc 🔥⚡️.nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🔥⚡️.nm</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+سرور  سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7612
 
@@ -11,8 +30,6 @@
 </div>
 
 ## tasiyanc — post 7611
-
-<div align="center"><a href="files/post_7611_@Tasiyanc 🔥.ehi.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🔥.ehi</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی İnjector  📶
@@ -166,23 +183,5 @@
 
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7571
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-حجم و کاربر نامحدود ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال به اینجکتور ✨
-
-@Tasiyanc 💠 | اتصال امن
 </div>
 

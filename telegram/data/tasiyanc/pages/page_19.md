@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/04/12 11:59
+📅 آخرین بروزرسانی: 1405/04/12 19:07
 
 ---
+
+## tasiyanc — post 6938
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑ساب لینک اختصاصی تاسیان👑 https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt اینو بزنید 🔐🔐 هر ۴ ساعت کانفیگا آپدیت میشن بعد از ۴ ساعت update subscription بزنید تا آپدیت شن @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6937
 
@@ -219,11 +225,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 دریافت کانفیگ نامحدود رایگان
 
 🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
-</div>
-
-## tasiyanc — post 6911
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بخاطر شرایط احتمالا جنگی‌امشب یه چنتا سرور اختصاصی بریم؟
 </div>
 

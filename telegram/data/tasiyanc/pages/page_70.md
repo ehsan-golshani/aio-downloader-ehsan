@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/04/12 11:59
+📅 آخرین بروزرسانی: 1405/04/12 19:07
 
 ---
+
+## tasiyanc — post 5501
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده وای‌فای 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5500
 
