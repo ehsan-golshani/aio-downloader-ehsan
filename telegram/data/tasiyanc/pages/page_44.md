@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/04/13 01:11
+📅 آخرین بروزرسانی: 1405/04/13 02:22
 
 ---
+
+## tasiyanc — post 6219
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+NEW FAST ⚡ 🚀.npvt
+</div>
+
+## tasiyanc — post 6218
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگ میشه یا آتش بس برقراره؟
+</div>
 
 ## tasiyanc — post 6217
 
@@ -158,30 +170,5 @@ tg://proxy?server=37.27.192.211&port=8443&secret=dd104462821249bd7ac519130220c25
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 SuperFast @Tasiyanc 🪐⚡.npvt
-</div>
-
-## tasiyanc — post 6194
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-
-4سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-2سرور  سرعتی تست شده 🚀
-@Tasiyanc ✅
 </div>
 
