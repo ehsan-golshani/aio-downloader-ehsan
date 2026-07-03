@@ -1,12 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/12 19:07
+📅 آخرین بروزرسانی: 1405/04/12 23:42
 
 ---
 
-## tasiyanc — post 7617
+## tasiyanc — post 7618
 
-<div align="center"><a href="files/post_7617_@Tasiyanc 🔥⚡️.nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🔥⚡️.nm</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید گپ کارتون دارم
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7617
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 کانفیگ اختصاصی نت مود 🚀
@@ -166,22 +171,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر گلای تو خونه
-</div>
-
-## tasiyanc — post 7574
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 کانفیگ اختصاصی نت مود 🚀
-
-۲ سرور  سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-دانلود برنامه 🕹
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/04/12 19:07
+📅 آخرین بروزرسانی: 1405/04/12 23:42
 
 ---
+
+## tasiyanc — post 6100
+
+<div align="center"><img src="files/post_6100_tasiyanc_6100.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان، بلاشک مرجع قوی‌ترین کانفیگ‌هایِ نپستر در تلگرام. به صد نفر تا الان کانال شمارو معرفی کردم.
+</div>
 
 ## tasiyanc — post 6099
 
@@ -187,11 +195,5 @@ FastVip⚡.npvt
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6073
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میخواستم کانفیگ اوپن دیگه بدم ولی ری اکشن کمه
 </div>
 

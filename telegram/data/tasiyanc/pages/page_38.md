@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/12 19:07
+📅 آخرین بروزرسانی: 1405/04/12 23:42
 
 ---
+
+## tasiyanc — post 6350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST @Tasiyanc servers.txt
+</div>
 
 ## tasiyanc — post 6349
 
@@ -200,22 +206,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 DE - Fast 🇩🇪⚡.npvt
-</div>
-
-## tasiyanc — post 6325
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور   سرعتی آلمان 🇩🇪
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  
-⏩
-
-✔️ @Tasiyanc ✅
 </div>
 

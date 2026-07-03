@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/04/12 19:07
+📅 آخرین بروزرسانی: 1405/04/12 23:42
 
 ---
+
+## tasiyanc — post 5804
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چن تا سرور بمب آماده کردم یکیشون تا ۵ مین دیگه میفرستم
+</div>
 
 ## tasiyanc — post 5803
 
@@ -180,11 +186,5 @@ wlc to TASIYAN family ❤️‍🔥
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 kiwi Speed 🥝.npvt
-</div>
-
-## tasiyanc — post 5783
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال گسترده در داده های همراه
 </div>
 
