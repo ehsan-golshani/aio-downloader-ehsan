@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/04/12 04:48
+📅 آخرین بروزرسانی: 1405/04/12 11:59
 
 ---
+
+## tasiyanc — post 5890
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Melli shekan 🪐.npvt
+</div>
+
+## tasiyanc — post 5889
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+2سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  
+🌐
+
+نحوه اتصال به سرورها 
+⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5888
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+4سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5887
 
@@ -154,36 +196,5 @@ GANG 🌙 10 SERVER FAST.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بعد اتصال ۲۰ تا ۳۰ ثانیه زمان بدید . و بیاید تلگرام یا برید اینستاگرام
-</div>
-
-## tasiyanc — post 5864
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
- 2 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5863
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+RTGtcYWb8HdkNjdk
-
-گروه تاسیان
-</div>
-
-## tasiyanc — post 5862
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 💫 4Server vip.npvt
 </div>
 

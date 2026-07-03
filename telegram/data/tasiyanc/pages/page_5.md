@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/12 04:48
+📅 آخرین بروزرسانی: 1405/04/12 11:59
 
 ---
+
+## tasiyanc — post 7447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیما: دقایقی پیش چندین انفجار در شهرستان سیریک، جنوب ایران رخ داده است.
+</div>
+
+## tasiyanc — post 7446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ۳ انفجار در قشم
+</div>
+
+## tasiyanc — post 7445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ۴ انفجار شدید در سیریك
+</div>
 
 ## tasiyanc — post 7444
 
@@ -179,23 +197,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گگگگگگگگگگگگگللللللللل ایران
-</div>
-
-## tasiyanc — post 7418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صلاح تعویض شد 😐
-</div>
-
-## tasiyanc — post 7417
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned «ساب لینک اختصاصی نامحدود 🚀 🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt 130 کانفیگ پروتکل Trojan سرعتی ( هر دوازده ساعت آپدیت خواهد شد ) آموزش ویدیویی اضافه کردن ساب 💘 @Tasiyanc 💠 | اتصال امن»
-</div>
-
-## tasiyanc — post 7416
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدایی گل خوبی زد رامین
 </div>
 
