@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/04/13 16:12
+📅 آخرین بروزرسانی: 1405/04/13 17:53
 
 ---
+
+## ProxyMTProto — post 48526
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: login.klyuch1k.org
+Port: 443
+Secret: eecabbd4d9fd4481bbb66bcaf9f424d7c56c6f67696e2e6b6c79756368316b2e6f7267
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48525
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48524
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.garden-troll.life
+Port: 443
+Secret: ee0c3f91dda87adc073a65d989972871ec666173742e67617264656e2d74726f6c6c2e6c696665
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48523
 
@@ -154,33 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: portal.balalaika.click
 Port: 443
 Secret: eed9b57dfbf5b124dd877540301c89c774706f7274616c2e62616c616c61696b612e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48506
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: br.kingproxynewdomailasiatech.ink
-Port: 22
-Secret: dd79e7010200010007f0030386e24c3add
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48505
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp.nowabst.net
-Port: 853
-Secret: ee82ce1f84af4033cc7e7b021069be3d5b6164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48504
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: zinova.co.uk.
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 
