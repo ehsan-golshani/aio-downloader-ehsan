@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/04/14 02:17
+📅 آخرین بروزرسانی: 1405/04/14 03:21
 
 ---
+
+## VahidOOnLine — post 245456
+
+<div align="center"><video src="files/post_245456_VahidOOnLine_245456.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_245456_VahidOOnLine_245456.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم یونان شنبه ۲۳ خرداد با فراخوان شاهزاده رضا پهلوی و علیه جمهوری اسلامی در آتن تجمع کرده و نام جاویدنامان انقلاب ملی را فریاد زدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245455
+
+<div align="center"><video src="files/post_245455_VahidOOnLine_245455.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_245455_VahidOOnLine_245455.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال حاکی است گروهی از رانندگان پیک‌های موتوری شرکت «اسنپ» در شیراز، روز یکشنبه ۲۴ خرداد در اعتراض به کمیسیون بالا، مالیات سنگین، کرایه کم، حذف سهمیه سوخت و نداشتن بیمه اعتصاب کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245454
 
@@ -293,32 +319,6 @@ iranintl
 
 شماری از کاربران رسانه‌های اجتماعی گسترش علاقه به موسیقی و ترانه‌های فارسی در میان جوانان ازبک را نشانه تداوم پیوندهای تاریخی، فرهنگی و زبانی میان کشورهای حوزه تمدنی نوروز توصیف می‌کنند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245435
-
-<div align="center"><img src="files/post_245435_VahidOOnLine_245435.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علیرضا عبادی، امام جمعه بیرجند گفت: «گذر زمان به نفع اسلام، انقلاب اسلامی و جبهه مقاومت است و وعده‌های الهی درباره پیروزی حق بر باطل محقق خواهد شد.»
-
-او ادامه داد: «امروز فلسطین، غزه، لبنان و همه ملت‌های مظلوم در خط مقدم مقابله با ظلم و استکبار قرار دارند و بی‌تردید آینده از آنِ ملت‌هایی خواهد بود که در مسیر حق و عدالت ایستادگی می‌کنند.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245434
-
-<div align="center"><img src="files/post_245434_VahidOOnLine_245434.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارتش اسرائیل برای بیش از ۱۰ شهرک و روستا در محدوده رودخانه زهرانی لبنان هشدار تخلیه صادر کرد و از ساکنان این مناطق خواست خانه‌های خود را تخلیه کرده و به شمال رودخانه زهرانی نقل مکان کنند.
-
-درگیری‌ها در جنوب لبنان پس از ورود پرنده‌های ناشناس از جنوب لبنان به آسمان اسرائیل در روزهای شنبه و یکشنبه ۲۳ و ۲۴ خرداد تشدید شده است.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
