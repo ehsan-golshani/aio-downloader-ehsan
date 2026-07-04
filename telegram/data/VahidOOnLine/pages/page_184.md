@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 184
 
-📅 آخرین بروزرسانی: 1405/04/13 19:19
+📅 آخرین بروزرسانی: 1405/04/13 20:20
 
 ---
+
+## VahidOOnLine — post 243721
+
+<div align="center"><video src="files/post_243721_VahidOOnLine_243721.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243721_VahidOOnLine_243721.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنبه ۱۴ خرداد در اظهاراتی درباره جمهوری اسلامی تاکید کرد که ایالات متحده «به هر حال» پیروز خواهد شد؛ چه از طریق توافق و چه از راه نظامی.
+
+ترامپ گفت: «فکر می‌کنم اوضاع برای ما خیلی خوب پیش می‌رود، اما خواهیم دید که به چه شکلی پیروز می‌شویم. به هر حال ما پیروز خواهیم شد؛ یا روی کاغذ و از طریق توافق، یا از راه نظامی.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243720
 
@@ -274,22 +289,6 @@
 
 پوتین درباره انتخابات ۲۰۳۰ گفت هنوز برای تصمیم‌گیری درباره نامزدی دوباره زود است، هرچند قانون اساسی این امکان را می‌دهد، و افزود در حال حاضر به انتخابات فکر نمی‌کند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243701
-
-<div align="center"><video src="files/post_243701_VahidOOnLine_243701.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243701_VahidOOnLine_243701.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تصاویری که کاربران شبکه‌های اجتماعی روز چهارشنبه ۱۳ خرداد منتشر کرده‌اند شهروند میانسالی که «مرد کفن‌پوش» لقب گرفته را در کنار رودخانه زاینده‌رود نشان می‌دهد.
-این مرد با لباسی شبیه به کفن خطاب به دولت پزشکیان می‌گوید: «می‌خواهم با لباس احرام به دولت بروم و مشکلات تورم و گرانی را برطرف کنم، مگر نگفتید هرکه می‌خواهد به میدان بیاید؟ آقای پزشکیان اجازه بدهید من به دولت بروم و مشکل معیشت و اقتصاد ایران را حل کنم».
-
-انتشار این ویدیو دست‌مایه طنز کاربران شبکه‌های اجتماعی قرار گرفت.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

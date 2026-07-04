@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 130
 
-📅 آخرین بروزرسانی: 1405/04/13 19:19
+📅 آخرین بروزرسانی: 1405/04/13 20:20
 
 ---
+
+## VahidOOnLine — post 245282
+
+<div align="center"><video src="files/post_245282_VahidOOnLine_245282.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_245282_VahidOOnLine_245282.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروهی از ایرانیان ساکن آلمان شنبه ۲۳ خرداد همزمان با زادروز مجیدرضا رهنورد، جانباخته خیزش انقلابی ۱۴۰۱، یاد او را با برگزاری تجمعی در شهر هامبورگ گرامی داشتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245281
 
@@ -296,19 +309,6 @@ iranintl
 
 اقدام محتسبان طالبان با واکنش و اعتراض ساکنان شهرک جبرئیل مواجه شد و تنش میان معترضان و نیروهای طالبان را در پی داشت.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245261
-
-<div align="center"><img src="files/post_245261_VahidOOnLine_245261.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مهدی جهانبخشی، رییس شورای صنفی مرکزی کارمندان دانشگاه‌ها و مراکز وابسته به وزارت علوم، گفت حقوق کارکنان دانشگاه‌ها حتی با دریافت مزایای مختلف به خط فقر نزدیک نمی‌شود و خواستار افزایش حقوق متناسب با نرخ تورم، اجرای کامل فوق‌العاده‌های شغلی و بازنگری در افزایش سن بازنشستگی شد.
-
-او در گفت‌وگو با خبرگزاری ایلنا، با اشاره به اینکه «با حقوق کارمندی، حتی حداقل‌های یک سبد معیشت آبرومندانه را هم نمی‌توان تامین کرد»، گفت: «حقوق کارکنان دولت به بخش ناچیزی از هزینه‌های واقعی زندگی تنزل یافته است.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
