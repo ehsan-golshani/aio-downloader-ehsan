@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/13 19:21
+📅 آخرین بروزرسانی: 1405/04/13 23:03
 
 ---
+
+## tasiyanc — post 7430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆صعود چگونه محقق خواهد شد؟
+
+به یکی از اتفاقات زیر نیاز دارد تا به عنوان یکی از تیم های سوم صعود کند
+
+1.شکست کرواسی برابر غنا
+2.شکست نخوردن ازبکستان برابر کنگو
+3.عدم تساوی در دیدار اتریش و الجزایر
+
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7429
+
+<div align="center"><video src="files/post_7429_tasiyanc_7429.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7429_tasiyanc_7429.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقای رضاییان هنوز نمیدونی چرا بدشانسی میارید؟ 😒
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7428
+
+<div align="center"><img src="files/post_7428_tasiyanc_7428.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😐😐😐
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آفسایدددددددددد
+</div>
+
+## tasiyanc — post 7420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم بره وار
+</div>
 
 ## tasiyanc — post 7419
 
@@ -107,101 +153,5 @@ https://t.me/TasiyanProxy/1840
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FAST ⚡⚡🔥.npvt
-</div>
-
-## tasiyanc — post 7393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود
-
-۳ سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ هم اکنون حملات آمریکا به سیریک
-</div>
-
-## tasiyanc — post 7391
-
-<div align="center"><video src="files/post_7391_tasiyanc_7391.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7391_tasiyanc_7391.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود سرور 
-🇮🇹
-
-۳ سرور سرعتی 
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
- 
-💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7390
-
-<div align="center"><video src="files/post_7390_tasiyanc_7390.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7390_tasiyanc_7390.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود مولتی SV
-
-4سرور سرعتی 
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
- 
-💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7389
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ نت مود 
-📱
-
-سرور سرعتی مناسب وب‌گردی و ..⚡
-
-آموزش اتصال 
-⛓
-@Tasiyanc 
-💠
 </div>
 

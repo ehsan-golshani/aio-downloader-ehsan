@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/04/13 19:21
+📅 آخرین بروزرسانی: 1405/04/13 23:03
 
 ---
+
+## tasiyanc — post 5809
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GM TASIYAN 💝
+</div>
+
+## tasiyanc — post 5808
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور سرعتی  اختصاصی تاسیان  📱
+
+✅ تست شده روی همه اپراتورا ✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر بار باید بگیم ری اکشن بزنید 😂
+</div>
+
+## tasiyanc — post 5805
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  ۲ سرور آلمان سرعتی  اختصاصی تاسیان  
+📱
+
+
+✅ تست شده روی همه اپراتورا 
+✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5804
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چن تا سرور بمب آماده کردم یکیشون تا ۵ مین دیگه میفرستم
+</div>
 
 ## tasiyanc — post 5803
 
@@ -144,47 +199,5 @@ Fast ⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تبلیغاتی ک زیر پستها میاد متعلق به ما نیست از طرف تلگرامه
-</div>
-
-## tasiyanc — post 5787
-
-<div align="center"><img src="files/post_5787_tasiyanc_5787.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Panda 🐼.npvt
-</div>
-
-## tasiyanc — post 5786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈1 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💘💘💘
-wlc to TASIYAN family ❤️‍🔥
-</div>
-
-## tasiyanc — post 5784
-
-<div align="center"><img src="files/post_5784_tasiyanc_5784.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-kiwi Speed 🥝.npvt
-</div>
-
-## tasiyanc — post 5783
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال گسترده در داده های همراه
 </div>
 
