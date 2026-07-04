@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/04/13 23:01
+📅 آخرین بروزرسانی: 1405/04/14 00:07
 
 ---
+
+## ProxyMTProto — post 47619
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tproxy.ink
+Port: 443
+Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47618
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowaboost.com
+Port: 443
+Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47617
 
@@ -164,29 +182,6 @@ Secret: 7sEXmKsAiDG0dAZsnh6_XINhdml0by5ydQ
 Server: tproxy.mom
 Port: 8090
 Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47599
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Telegram опять еле дышит?
-
-BLYATNET фиксит это за минуту ⚡
-
-🚀 Быстрые MTProxy и VPN
-🛡 Стабильный доступ без мусора
-🌍 Серверы по всему миру
-
-💫 От 5 ⭐ — дешевле чем стикер 👇
-</div>
-
-## ProxyMTProto — post 47598
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dreams.nolags.pw
-Port: 443
-Secret: dd2d558135931b5e0c5da5e7501724b32c
 @ProxyMTProto
 </div>
 

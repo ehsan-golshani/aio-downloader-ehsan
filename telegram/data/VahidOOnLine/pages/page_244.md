@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 244
 
-📅 آخرین بروزرسانی: 1405/04/13 23:01
+📅 آخرین بروزرسانی: 1405/04/14 00:06
 
 ---
+
+## VahidOOnLine — post 242097
+
+<div align="center"><video src="files/post_242097_VahidOOnLine_242097.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242097_VahidOOnLine_242097.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گفت‌وگو درباره اعتراضات خارج از کشور:
+« چه رفتارهایی به همبستگی و رساندن پیام مردم ایران کمک می‌کند؟»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242096
+
+<div align="center"><img src="files/post_242096_VahidOOnLine_242096.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مهدی خراطیان، تحلیلگر نزدیک به نهادهای امنیتی جمهوری اسلامی گفت: «رهبر انقلاب بر اساس پروتکل‌های پیچیده امنیتی، مدام جابه‌جا می‌شد و برای برگزاری جلسات به دفتر خود مراجعه می‌کرد. محل اقامت او نیز به‌طور مداوم تغییر می‌کرد و من کشته شدن او را جز در نتیجه نفوذ، به شکل دیگری قابل تفسیر نمی‌دانم.»
+
+او افزود موساد فرصتی برای کشتن علی خامنه‌ای به دست آورد.
+
+دفتر خامنه‌ای در نخستین ساعات آغاز جنگ میان جمهوری اسلامی، آمریکا و اسرائیل در ۹ اسفند ۱۴۰۴ هدف حمله موشکی قرار گرفت.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242095
 

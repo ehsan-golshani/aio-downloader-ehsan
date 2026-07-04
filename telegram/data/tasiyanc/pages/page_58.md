@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/04/13 23:03
+📅 آخرین بروزرسانی: 1405/04/14 00:08
 
 ---
+
+## tasiyanc — post 5879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+تست کنین بگین
+@Tasiyanc
+</div>
+
+## tasiyanc — post 5878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد اتصال بدون گرفتن پینگ سریع به تلگرام بیاید خودش را میوفته
+</div>
+
+## tasiyanc — post 5877
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+ سه سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5873
 
@@ -148,23 +179,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بهرحال ما ک قطعیم
-</div>
-
-## tasiyanc — post 5853
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مثل برخی چنلا باید روزی ۲۰۰ پیام واسه سرور رایگان رضایت بفرستیم؟
-</div>
-
-## tasiyanc — post 5852
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام‌ها تمومی نداره ، همچنان ما قطعیم😁❤️
-</div>
-
-## tasiyanc — post 5851
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دمت گرم داش
 </div>
 

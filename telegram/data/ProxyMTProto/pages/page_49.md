@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/04/13 23:01
+📅 آخرین بروزرسانی: 1405/04/14 00:07
 
 ---
+
+## ProxyMTProto — post 47819
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 61016
+Secret: 7nnnAQIAAQAH8AMDhuJMOt0%3D
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47818
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: turbo2proxy.vpnproxy.cc
+Port: 8443
+Secret: ee56af68a36d94c4d47d100196d6a59f1d747572626f3270726f78792e76706e70726f78792e6363
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47817
 
@@ -163,24 +181,6 @@ Secret: eebb62e9f3ae0f40aa25a70c150f6d68d3636c6f7564666c6172652e636f6d
 Server: rapid.flowstreamhub.site
 Port: 8443
 Secret: ee10a576008fd642b6e0427f9b2b22447f72617069642e666c6f7773747265616d6875622e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47799
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: some.nolags.pw
-Port: 443
-Secret: ddc63eab2c309e7915a09622cedc7c9a7d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ytrw134-1.mtproxygram.lol
-Port: 853
-Secret: ee44d2e25cbb26272ed5fd03eaf805c5f262726f777365722e79616e6465782e636f6d
 @ProxyMTProto
 </div>
 
