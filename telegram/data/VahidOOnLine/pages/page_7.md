@@ -1,8 +1,35 @@
 # آرشیو کانال VahidOOnLine - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/14 01:18
+📅 آخرین بروزرسانی: 1405/04/14 02:17
 
 ---
+
+## VahidOOnLine — post 248418
+
+<div align="center"><img src="files/post_248418_VahidOOnLine_248418.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منوچهر فرید، بازیگر باسابقه تئاتر و سینمای ایران و از چهره‌های شاخص موج نوی سینمای ایران، در ۸۹ سالگی در ملبورن استرالیا درگذشت. او پس از انقلاب ۱۳۵۷ ایران را ترک کرد و تا پایان عمر در تبعید زندگی کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248417
+
+<div align="center"><video src="files/post_248417_VahidOOnLine_248417.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248417_VahidOOnLine_248417.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️رئیس‌جمهور مکزیک از هواداران تیم ملی فوتبال این کشور خواست در صورت پیروزی احتمالی مقابل انگلیس، از زیاده‌روی در مصرف الکل خودداری کنند.
+او با اشاره به پیامدهای جشن‌های هیجانی گفت مصرف بیش از حد الکل می‌تواند به بروز مشکلاتی مانند افزایش خشونت منجر شود و این موضوع بارها در چنین موقعیت‌هایی مشاهده شده است.
+رئیس‌جمهور مکزیک تأکید کرد که شادی و جشن گرفتن باید همراه با مسئولیت‌پذیری باشد و از تمامی هواداران خواست در صورت پیروزی تیم ملی، اعتدال را رعایت کرده و از افراط در مصرف نوشیدنی‌های الکلی پرهیز کنند.
+بازی تیم‌های مکزیک و انگلستان روز ۲۴ تیرماه در مرحله حذفی یک هشتم جام‌جهانی ساعت ۳:۳۰ دقیقه بامداد به وقت ایران در مکزیکوسیتی برگزار می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248409
 
@@ -241,32 +268,6 @@
 زارعی در شبکه ایکس نوشت دستگاه قضایی باید اسناد سخنان غضنفری درباره توزیع «چندین هزار میلیارد تومان» میان مداحان، واعظان و افرادی که به گفته او با «شبکه کودتا» در ارتباط بوده‌اند را مطالبه کند.
 زارعی درباره سخنان غضنفری نوشت اگر آنچه او درباره وقوع کودتا و فعالیت یک شبکه سازمان‌یافته مطرح کرده، درست باشد، این شبکه باید فورا شناسایی، به مردم معرفی و با عوامل آن برخورد شود. او افزود اگر این سخنان نادرست باشد، باید از نظر قانونی بررسی شود، زیرا «چنین اظهاراتی امنیت ملی را به خطر می‌اندازد و موجب نگرانی مردم و طمع دشمنان می‌شود».
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248389
-
-<div align="center"><video src="files/post_248389_VahidOOnLine_248389.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248389_VahidOOnLine_248389.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️همزمان با حضور روسای مجلس قطر و عمان برای شرکت در مراسم تشییع علی خامنه‌ای روز جمعه ۱۲ تیرماه از عربستان سعودی قائم مقام وزیر امورخارجه این کشور  و هیات همراهش در این مراسم حضور پیدا کردند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248388
-
-<div align="center"><video src="files/post_248388_VahidOOnLine_248388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248388_VahidOOnLine_248388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️همزمان با حضور روسای مجلس قطر و عمان برای شرکت در مراسم تشییع علی خامنه‌ای روز جمعه ۱۲ تیرماه از عربستان سعودی قائم مقام وزیر امورخارجه این کشور  و هیات همراهش در این مراسم حضور پیدا کردند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
