@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/04/13 14:45
+📅 آخرین بروزرسانی: 1405/04/13 19:21
 
 ---
+
+## tasiyanc — post 5663
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گوشه ای از محبت مردم عزیز وطنم ❤️ همه رو نمیشه بزارم ، سپاس از همتون
+</div>
 
 ## tasiyanc — post 5662
 
@@ -188,11 +194,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بمب بعدی
-</div>
-
-## tasiyanc — post 5626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کی از همه قشنگتره؟ کامنتارو 🗿
 </div>
 

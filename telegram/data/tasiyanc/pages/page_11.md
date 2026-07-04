@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/04/13 14:45
+📅 آخرین بروزرسانی: 1405/04/13 19:21
 
 ---
+
+## tasiyanc — post 7268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز کردیم ریکشن نمیزنین
+</div>
 
 ## tasiyanc — post 7266
 
@@ -202,31 +208,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐
-</div>
-
-## tasiyanc — post 7231
-
-<div align="center"><video src="files/post_7231_tasiyanc_7231.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7231_tasiyanc_7231.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV
-
-2سرور سرعتی متد جدید
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود
-⬇️ وب‌گردی🔍 جمینای 🤖
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

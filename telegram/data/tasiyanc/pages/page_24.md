@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/04/13 14:45
+📅 آخرین بروزرسانی: 1405/04/13 19:21
 
 ---
+
+## tasiyanc — post 6810
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به درخواست همراه اولیا گذاشتم ، شیرخورشید
+88.221.169.217
+88.221.169.207
+88.221.169.38
+88.221.169.11
+88.221.169.18
+88.221.169.28
+88.221.169.132
+88.221.169.127
+88.221.169.107
+88.221.169.121
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6809
 
@@ -223,13 +241,5 @@ VIP⚡ APEX ⛓️.npvt
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6781
-
-<div align="center"><img src="files/post_6781_tasiyanc_6781.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یادآوری : شات معنادار 😂 اگه گفتید کیه؟
 </div>
 

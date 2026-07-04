@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/04/13 14:45
+📅 آخرین بروزرسانی: 1405/04/13 19:21
 
 ---
+
+## tasiyanc — post 6911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بخاطر شرایط احتمالا جنگی‌امشب یه چنتا سرور اختصاصی بریم؟
+</div>
 
 ## tasiyanc — post 6910
 
@@ -191,13 +197,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختلال شدید رو خطوط همراه داریم دلیلش نمیدونم
-</div>
-
-## tasiyanc — post 6872
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال ۱۲ اسرائیل ⭕️⭕️ ❌
-نعیم قاسم فرمانده حزب الله ترور شد
-@Tasiyanc ✅
 </div>
 
