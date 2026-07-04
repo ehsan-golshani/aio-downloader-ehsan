@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/13 14:44
+📅 آخرین بروزرسانی: 1405/04/13 16:13
 
 ---
+
+## MehdiBudam — post 8136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor20
+
+
+slipnet-enc://Aaf04nx07XJXPMOL146YUHSfu4DrGDv5CfT1cXydPqSYqrztzzNakz9OW9kRJDjzY8chGAhrL48lvpC9V/Ie0r+xnBBQPsYcLsSDHUOftowWqows+smjQfVp4bN4oBYs4iM9z2OCcRCLdhBrXRagX+DwKgROMUiSb7BHOkKsrecS5wnXqi6Vyl/vNMBFP738ZN1cdUzUdrY9QWnr3YmyLhtrwND5KkEedA0MclfOBtHp9p78OuxRsvWVkk8dEHP3PbucSrWwjLHSTVEtTD9vy1xsB2kN378rGEOEJz/IYdd4y/9EzJ5s6QOek23ZAoz9FLXL4zqvOroXybUNZViQkegL0vG1u3OYdEJ6wYFjM0pnPilo48a9IczJL5NXjHmWpdtRKAtKOdM6AUoq0dqq01TSAGGPSsqnDGLri9lcpR3MwFayZTmjo3jMbc+f2JVHdF2+AjTJ0O6EJHNH7QXjpNYPl1YaR3wcrKds1BL+WNx83xCrfJjgLsy3reJF1gIXrhzkycHH/q9Fb2viL8YAwiMPk3W9hHgVXZdwqP/zvWfR4F9kK74+2Mc9bWtzgg42MA/1brP/DSNhNIyjx4XFv5rnDTb2PWVKgz3FYefbIq/XERjMY95rcNgQLo/6Sv+62Z4MzxmgtnUASHcyikF7v9K3SQ68XeIGP5gLGQS8goI8h4vEurLZ28JvUxMRjSZdIwpH/dfrAmqJT8nwTGD6u0aE6ZYqZ7aigC8=
+
+
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8135
 
@@ -188,11 +200,5 @@ slipnet-enc://ASzieen3v58N7dtP4wq8K4c2WsdUOvnRPVSnBUa17XsUhgeEOE5R/h0zq1lBgQR6Jn
 
 
 @MehdiBudam
-</div>
-
-## MehdiBudam — post 8116
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به اینم توجه کنید که تور کلا رو نسخه لایت و ویندوز کار نمیکنه افراد زیادی بخاطر همین میگن کلا وصل نمیشه.
 </div>
 
