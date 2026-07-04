@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/13 03:27
+📅 آخرین بروزرسانی: 1405/04/13 13:05
 
 ---
+
+## tasiyanc — post 7642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید https://t.me/FreeConfigTsBot?start=facac4538f0c
+</div>
+
+## tasiyanc — post 7641
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید
+https://t.me/FreeConfigTsBot?start=facac4538f0c
+</div>
 
 ## tasiyanc — post 7640
 
@@ -11,8 +24,6 @@
 </div>
 
 ## tasiyanc — post 7634
-
-<div align="center"><a href="files/post_7634_⁰¹ 🇬🇧 Fast ⚡.nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⁰¹ 🇬🇧 Fast ⚡.nm</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 کانفیگ اختصاصی نت مود 🚀
@@ -145,28 +156,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وضعیت اینترنت شما چطوره؟
-</div>
-
-## tasiyanc — post 7611
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-حجم و کاربر نامحدود ⚡️
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال به اینجکتور ✨
-
-@Tasiyanc 
-💠 | اتصال امن
-</div>
-
-## tasiyanc — post 7610
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc _ SuperFast⚡.npvt
 </div>
 

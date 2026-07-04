@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/04/13 03:27
+📅 آخرین بروزرسانی: 1405/04/13 13:05
 
 ---
+
+## tasiyanc — post 5982
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عشقید به مولا
+</div>
+
+## tasiyanc — post 5981
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنها کسی ک مارو ب نت جهانی وصل کرد در سخت ترین شرایط شما بودی و خدا خیر بده اون کسی ک فقط ی دونه از کانف شمارو فرستاد تو روبیکا و من تونستم حداقل ۲۰نفرو با شما ب نت وصل کنم اونا دعاگوی من و منم دعاگوی شما
+دمتگرم ادم حسابی🙏🏻❤️
+</div>
 
 ## tasiyanc — post 5980
 
@@ -161,23 +174,5 @@ Gold🥇Vip servers.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5958
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرسی از تبریک های قشنگتون 🥹❤️‍🔥
-بهترین ها نصیبتون شه ایشالا مرسی که هستید ❤️
-</div>
-
-## tasiyanc — post 5957
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎉 امروز تولدمه!
-
-یه کیک بما نمیرسه؟🎂
-30May - 9 خرداد
-
-💘💘💘 💘💘 💘💘
 </div>
 
