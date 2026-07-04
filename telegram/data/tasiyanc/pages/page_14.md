@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/04/13 13:05
+📅 آخرین بروزرسانی: 1405/04/13 14:45
 
 ---
+
+## tasiyanc — post 7171
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ حمله شدید اسرائیل به لبنان 😐
+</div>
 
 ## tasiyanc — post 7170
 
@@ -243,11 +249,5 @@ Game DNS
 ss://YWVzLTI1Ni1nY206RmpHM0lQYm55KzBaWVU0L3AxdlVMUDg0R2NLcEdvWnBXS0FheTE2VmhJdz0%3D@51.254.128.106:2083#%F0%9F%87%AB%F0%9F%87%B7FR%E2%9A%A1%20%40Tasiyanc
 Location 🇫🇷 حجم نامحدود
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ذات تاسیان؟
 </div>
 

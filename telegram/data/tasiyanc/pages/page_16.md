@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/04/13 13:05
+📅 آخرین بروزرسانی: 1405/04/13 14:45
 
 ---
+
+## tasiyanc — post 7095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ: یادداشت با ایران نهایی نیست. اگر از توافق خوشمان نیاید، دوباره به بمباران بازمی‌گردیم
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7093
 
@@ -262,12 +269,6 @@ T.me/Tasiyanc
 ## tasiyanc — post 7055
 
 <div align="center"><img src="files/post_7055_tasiyanc_7055.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت دلار هم اکنون 155000
-</div>
-
-## tasiyanc — post 7054
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قیمت دلار هم اکنون 155000

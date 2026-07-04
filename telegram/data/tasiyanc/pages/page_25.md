@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/04/13 13:05
+📅 آخرین بروزرسانی: 1405/04/13 14:45
 
 ---
+
+## tasiyanc — post 6779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدای توافق در سیریک🤣
+
+@TasiyanProxy
+</div>
 
 ## tasiyanc — post 6778
 
@@ -172,11 +180,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 این واقعی ترین کلیپ از جنگه، اگه میخواین بدونین نزدیک‌تون یا جایی که هستین موشک بخوره چه اتفاقی میوفته حتما این کلیپ رو ببینین.
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6724
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-INFERNO ⚡ vip.npvt
 </div>
 
