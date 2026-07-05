@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/14 07:49
+📅 آخرین بروزرسانی: 1405/04/14 11:18
 
 ---
+
+## tasiyanc — post 7438
+
+<div align="center"><img src="files/post_7438_tasiyanc_7438.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای خرید بازی GTA VI در‌ هر کشور چند روز باید کار کنی ؟
+@Tasiyanc 💠
+</div>
 
 ## tasiyanc — post 7435
 
@@ -174,14 +183,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بیدارید؟
-</div>
-
-## tasiyanc — post 7409
-
-<div align="center"><img src="files/post_7409_tasiyanc_7409.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هوادارای حاضر در استادیوم با پرچم های رنگارنگ
-@Tasiyanc
 </div>
 

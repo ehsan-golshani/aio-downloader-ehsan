@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/04/14 07:49
+📅 آخرین بروزرسانی: 1405/04/14 11:18
 
 ---
+
+## tasiyanc — post 6716
+
+<div align="center"><img src="files/post_6716_tasiyanc_6716.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴شکیرا در جام جهانی 2006 & 2010 & 2014 & 2026
+
+‏شکیرا حتی از پیکه هم تو فوتبال موفق تره 🤣
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6715
 
@@ -182,6 +194,4 @@ Rend ⚡ (1).npvt
 ✔️ T.me/Tasiyanc 
 ✅
 </div>
-
-## tasiyanc — post 6689
 

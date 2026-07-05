@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/04/14 07:49
+📅 آخرین بروزرسانی: 1405/04/14 11:18
 
 ---
+
+## tasiyanc — post 6337
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+🔺@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6336
 
@@ -188,11 +198,5 @@ Password : @Tasiyanc 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چطوره؟
-</div>
-
-## tasiyanc — post 6310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لوگو چنل مرتبط با اسم تغییراتی کوچک دادیم ، گممون نکنین ❤️
 </div>
 

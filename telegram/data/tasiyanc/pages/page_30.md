@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/04/14 07:49
+📅 آخرین بروزرسانی: 1405/04/14 11:18
 
 ---
+
+## tasiyanc — post 6638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعت سرویس ساب نامحدود ک براتون گذاشتیم 🚀 داخل چنل پروکسی پین شده ❤️ https://t.me/+v0wRP5SGNrg5MThk 👆
+</div>
 
 ## tasiyanc — post 6637
 
@@ -184,21 +190,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختلال رو همراه 😐
-</div>
-
-## tasiyanc — post 6579
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی متد جدید همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

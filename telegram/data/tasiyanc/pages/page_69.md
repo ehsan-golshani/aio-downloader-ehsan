@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/04/14 07:49
+📅 آخرین بروزرسانی: 1405/04/14 11:18
 
 ---
+
+## tasiyanc — post 5576
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Password @Tasiyanc
+
+🌐 اختصاصی تاسیان 2 سرور تست شده  تمام اپراتورها  🌐
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5575
 
@@ -151,11 +163,5 @@ WAR 🔥.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨به گزارش استانداری بندرعباس منشأ صدا های انفجار در دست بررسی است
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هم اکنون فعالیت پدافند بندرعباس (احتمالا تست هست)
 </div>
 

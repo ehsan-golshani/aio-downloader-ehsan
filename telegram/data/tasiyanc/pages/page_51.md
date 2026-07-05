@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/04/14 07:49
+📅 آخرین بروزرسانی: 1405/04/14 11:18
 
 ---
+
+## tasiyanc — post 6054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اماده باشین
+</div>
 
 ## tasiyanc — post 6053
 
@@ -126,11 +132,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جامپ جامپ برای آیفون هم اپل آیدی میپرونه و بات شناسایی میکنه
 لطفا اطلاع رسانی کنید برای دوستانی ک اپل دارن
-</div>
-
-## tasiyanc — post 6030
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مال منم حالا چیکاکنم برکرده
 </div>
 

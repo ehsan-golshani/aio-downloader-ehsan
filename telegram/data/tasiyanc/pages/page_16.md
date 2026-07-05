@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/04/14 07:49
+📅 آخرین بروزرسانی: 1405/04/14 11:18
 
 ---
+
+## tasiyanc — post 7114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرتغال رید ، مساوی کردیم
+</div>
 
 ## tasiyanc — post 7112
 
@@ -251,13 +257,5 @@ https://persianasports.com/live.html
 
 @Tasiyanc 
 ✅ | تاسیان
-</div>
-
-## tasiyanc — post 7080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شب نشینی با تاسیان😁
-🦦
-https://t.me/+DhVkjFb6qhZmYTFk
 </div>
 

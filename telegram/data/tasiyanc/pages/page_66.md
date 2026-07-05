@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/04/14 07:49
+📅 آخرین بروزرسانی: 1405/04/14 11:18
 
 ---
+
+## tasiyanc — post 5674
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀🚀🚀🚀🚀🚀🚀🚀
+</div>
 
 ## tasiyanc — post 5673
 
@@ -173,18 +179,5 @@ WİFİ موشک.npvt
 
 ترکیبی ✅
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5639
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
-
-
-🚀 @Tasiyanc ✅
 </div>
 

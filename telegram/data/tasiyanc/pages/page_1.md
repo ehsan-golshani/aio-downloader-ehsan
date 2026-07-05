@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/14 07:49
+📅 آخرین بروزرسانی: 1405/04/14 11:18
 
 ---
+
+## tasiyanc — post 7666
+
+<div align="center"><img src="files/post_7666_tasiyanc_7666.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡ Unlimited.npvt
+</div>
 
 ## tasiyanc — post 7665
 
@@ -11,8 +19,6 @@
 </div>
 
 ## tasiyanc — post 7664
-
-<div align="center"><a href="files/post_7664_Fast ⚡ Unlimited.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast ⚡ Unlimited.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت 🔐
@@ -166,11 +172,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شرکت ها و سایتهای معتبر جهت اسپانسری (همکاری) و حمایت از چنل با آیدی پشتیبانی در ارتباط باشید
 @StarTasiyan
-</div>
-
-## tasiyanc — post 7629
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همتون اینجکتور & نت مود دانلود کردید بزارم کانفیگاشو دوباره؟
 </div>
 
