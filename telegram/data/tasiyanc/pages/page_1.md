@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/14 22:27
+📅 آخرین بروزرسانی: 1405/04/14 23:58
 
 ---
+
+## tasiyanc — post 7686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سن دریافت گواهینامه رانندگی از ۱۸ سال به ۱۶ سال کاهش پیدا کرد.
+</div>
 
 ## tasiyanc — post 7685
 
@@ -11,8 +17,6 @@ VIP 🎯 @Tasiyanc.nm
 </div>
 
 ## tasiyanc — post 7682
-
-<div align="center"><a href="files/post_7682_VIP ⚡ @Tasiyanc.nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 VIP ⚡ @Tasiyanc.nm</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی نت مود 📱
@@ -178,24 +182,5 @@ Fast ⚡ Unlimited.npvt
 Canada 🇨🇦 & Morocco 🇲🇦 🏆
 
 کی میبره
-</div>
-
-## tasiyanc — post 7645
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-2 سرور حجم و کاربر نامحدود ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال به اینجکتور ✨
-
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
 </div>
 

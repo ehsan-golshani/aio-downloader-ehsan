@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/04/14 22:27
+📅 آخرین بروزرسانی: 1405/04/14 23:58
 
 ---
+
+## tasiyanc — post 5685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+27 k 🥹🫂
+ممنون که با تاسیان همراهید
+</div>
 
 ## tasiyanc — post 5684
 
@@ -179,11 +186,5 @@ vless://d37a75db-76b6-4db8-b213-0d5b044d138d@172.64.152.100:443?path=%2F&securit
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 WİFİ موشک.npvt
-</div>
-
-## tasiyanc — post 5663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گوشه ای از محبت مردم عزیز وطنم ❤️ همه رو نمیشه بزارم ، سپاس از همتون
 </div>
 
