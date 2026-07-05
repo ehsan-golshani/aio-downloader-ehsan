@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/04/15 01:14
+📅 آخرین بروزرسانی: 1405/04/15 02:21
 
 ---
+
+## tasiyanc — post 6204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+NEW FAST ⚡ 🚀.npvt
+</div>
 
 ## tasiyanc — post 6202
 
@@ -180,18 +195,5 @@ GANG 🇳🇱🇬🇧🚀 (1).npvt
 دانلود iOS 📱
 آموزش⏩
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تست شده با ایرانسل & سامانتل   ♻️
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6175
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-NewMethod🌶️@Tasiyanc.conf
 </div>
 

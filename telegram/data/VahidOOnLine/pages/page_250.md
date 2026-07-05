@@ -1,8 +1,67 @@
 # آرشیو کانال VahidOOnLine - صفحه 250
 
-📅 آخرین بروزرسانی: 1405/04/15 01:11
+📅 آخرین بروزرسانی: 1405/04/15 02:18
 
 ---
+
+## VahidOOnLine — post 242099
+
+<div align="center"><img src="files/post_242099_VahidOOnLine_242099.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، گفت جمهوری اسلامی نباید در موضوع هسته‌ای تعهدی بدهد که قدرت بازدارندگی‌اش را تضعیف کند.
+
+او افزود: «جمهوری اسلامی نباید چیزی را که برای آن هزینه زیادی پرداخته، «دو دستی تقدیم دشمن» کند.
+
+او توان هسته‌ای را «دارایی استراتژیک» خواند و گفت واگذاری آن در مذاکره ممکن است خطراتی به همراه داشته باشد و دشمن را برای حمله مجدد «حریص‌تر» کند.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242098
+
+<div align="center"><img src="files/post_242098_VahidOOnLine_242098.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه در پیامی در خصوص انتخاب مجدد قالیباف به‌عنوان رییس مجلس شورای اسلامی، نوشت: «محمدباقر قالیباف که مدیری جهادی و نستوه و میدان‌دیده است و در جنگهای ۱۲ روزه و رمضان و پس از آن، در عرصه‌های میدان و دیپلماسی جهاد کرد.»
+
+او ادامه داد: «قوه قضاییه آماده است بیش از گذشته با مجلس و نمایندگان آن، همکاری و مساعدت داشته باشد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242097
+
+<div align="center"><video src="files/post_242097_VahidOOnLine_242097.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242097_VahidOOnLine_242097.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گفت‌وگو درباره اعتراضات خارج از کشور:
+« چه رفتارهایی به همبستگی و رساندن پیام مردم ایران کمک می‌کند؟»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242096
+
+<div align="center"><img src="files/post_242096_VahidOOnLine_242096.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مهدی خراطیان، تحلیلگر نزدیک به نهادهای امنیتی جمهوری اسلامی گفت: «رهبر انقلاب بر اساس پروتکل‌های پیچیده امنیتی، مدام جابه‌جا می‌شد و برای برگزاری جلسات به دفتر خود مراجعه می‌کرد. محل اقامت او نیز به‌طور مداوم تغییر می‌کرد و من کشته شدن او را جز در نتیجه نفوذ، به شکل دیگری قابل تفسیر نمی‌دانم.»
+
+او افزود موساد فرصتی برای کشتن علی خامنه‌ای به دست آورد.
+
+دفتر خامنه‌ای در نخستین ساعات آغاز جنگ میان جمهوری اسلامی، آمریکا و اسرائیل در ۹ اسفند ۱۴۰۴ هدف حمله موشکی قرار گرفت.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242095
 
