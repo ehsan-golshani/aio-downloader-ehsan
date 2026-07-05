@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/04/14 00:08
+📅 آخرین بروزرسانی: 1405/04/14 07:49
 
 ---
+
+## tasiyanc — post 5973
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان 
+
+۷سرور  سرعتی قدرتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5972
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک سرور شخصی openvpn می‌خوان برن سایت
+vpnbook.com
+Create openvpn
+پورت روی 443 یا 80 بزارید
+کشورهای اروپایی بهتر جواب میدن .
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 5971
 
@@ -151,30 +179,5 @@ TS premium Servers 🌲⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 TS premium Servers 🌲⚡.npvt
-</div>
-
-## tasiyanc — post 5949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  تست روی همراه اول 🛜 بقیه تست کنین
-
-6سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5948
-
-<div align="center"><img src="files/post_5948_tasiyanc_5948.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی تو راهه
 </div>
 

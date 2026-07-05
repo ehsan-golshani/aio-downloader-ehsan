@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/04/14 00:08
+📅 آخرین بروزرسانی: 1405/04/14 07:49
 
 ---
+
+## tasiyanc — post 6212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+3سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها 
+⏩
+
+🦁  @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6209
 
 ## tasiyanc — post 6208
 
@@ -165,23 +185,5 @@ https://t.me/TasiyanProxy
 Proxy 1 ✅ proxy 2
 Proxy 3 ✅ proxy 3
 @TasiyanProxy ✅
-</div>
-
-## tasiyanc — post 6185
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  👑
-
-دانلود اندروید  Wg tunnel 🕹
-
-دانلود iOS 📱
-آموزش⏩
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-GANG 🇳🇱🇬🇧🚀 (1).npvt
 </div>
 

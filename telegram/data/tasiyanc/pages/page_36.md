@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/04/14 00:08
+📅 آخرین بروزرسانی: 1405/04/14 07:49
 
 ---
+
+## tasiyanc — post 6435
+
+<div align="center"><img src="files/post_6435_tasiyanc_6435.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با توجه به احتمال اختلال و قطع شدن اینترنت به دلیل شرایط جنگی، برای اینکه ارتباطتون قطع نشه دو تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه براتون آماده کردیم.
+​همین الان تا اینترنت وصله وارد ربات زیر بشید و لینک‌هاتون رو تحویل بگیرید:
+
+
+دریافت کانفینگ رایگان
+دریافت کانفینگ رایگان
+</div>
+
+## tasiyanc — post 6434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡🪐 متد جدید.npvt
+</div>
 
 ## tasiyanc — post 6433
 
@@ -165,29 +184,5 @@ FAST⚡TASIYAN🚀.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حاجی ریکشن نمیزنید بریم بخوابیم
-</div>
-
-## tasiyanc — post 6412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🩷لحظات نفس‌گیر
-هم اکنون حریم های هوایی اسرائیل - سوریه - عراق - اردن بسته شده و غرب ایران آسمان کلییر شده
-@Tasiyanc ✅
 </div>
 
