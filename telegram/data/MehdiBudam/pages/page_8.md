@@ -1,8 +1,18 @@
 # آرشیو کانال MehdiBudam - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/14 13:35
+📅 آخرین بروزرسانی: 1405/04/14 19:53
 
 ---
+
+## MehdiBudam — post 8070
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+TCP
+
+79.127.76.226:53,95.38.15.205:53,109.162.251.14:53,185.112.38.46:53,185.140.240.162:53,193.19.144.10:53,95.38.245.146:53,185.124.113.224:53
+
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8069
 
@@ -235,11 +245,5 @@ slipnet-bundle-enc://AdtSdqSTEtBBogN045YOprvk9gVJe8rCB3HhE1cgDzIApDL3GrDJesg3AkN
 Pass: @MehdiBudam
 
 @MehdiBudam
-</div>
-
-## MehdiBudam — post 8038
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه تشکر هم از همه دوستانی که پستارو تو کانال های خودشون فوروارد میکنن و از طریق استارز و بوست هم حمایت کردن.
 </div>
 
