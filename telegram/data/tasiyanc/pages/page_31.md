@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/04/14 11:18
+📅 آخرین بروزرسانی: 1405/04/14 13:36
 
 ---
+
+## tasiyanc — post 6581
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6580
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال رو همراه 😐
+</div>
 
 ## tasiyanc — post 6579
 
@@ -204,23 +224,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6554
-
-<div align="center"><img src="files/post_6554_tasiyanc_6554.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون ورود B-52 به خاور میانه
-@Tasiyanproxy 
-✅
-</div>
-
-## tasiyanc — post 6553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه اخبار در چنل پروکسی
-
-https://t.me/TasiyanProxy
 </div>
 

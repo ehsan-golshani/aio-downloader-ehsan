@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/04/14 11:18
+📅 آخرین بروزرسانی: 1405/04/14 13:36
 
 ---
+
+## tasiyanc — post 7040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+2 سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7039
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیوزلند انقد کیری باز می‌کنه تیم شموشک بود دو تا گل میزد
+</div>
 
 ## tasiyanc — post 7035
 
@@ -203,37 +225,5 @@ matador ⚡ Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥⚡Tasiyanc.dark
-</div>
-
-## tasiyanc — post 6990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥⚡Tasiyanc.dark
-</div>
-
-## tasiyanc — post 6989
-
-<div align="center"><video src="files/post_6989_tasiyanc_6989.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6989_tasiyanc_6989.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 
-🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها 
-✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک 
-⏩
-
-T.me/Tasiyanc 
-✅
 </div>
 

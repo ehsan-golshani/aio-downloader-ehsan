@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/04/14 11:18
+📅 آخرین بروزرسانی: 1405/04/14 13:36
 
 ---
+
+## tasiyanc — post 6165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رو دوتا کانفیگ آخری( وایرگارد - نپستر)
+ریکشن رو هر کدوم بیشتر باشه پست بعدی از اون کانفیگ میزارم
+</div>
+
+## tasiyanc — post 6163
+
+<div align="center"><video src="files/post_6163_tasiyanc_6163.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6163_tasiyanc_6163.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  
+👑
+
+تست شده 
+🎚
+
+دانلود Wg tunnel 
+🕹
+
+آموزش ویدیویی 
+⏩
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6161
 
@@ -168,25 +197,5 @@ Premium 💙BLUE.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Jzzb 🔥Vip.npvt
-</div>
-
-## tasiyanc — post 6141
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  👑
-
-تست شده 🎚
-
-دانلود برنامه Wg tunnel 🕹
-
-آموزش ویدیویی ⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-vip 🚀🔥 @Tasiyanc.conf
 </div>
 

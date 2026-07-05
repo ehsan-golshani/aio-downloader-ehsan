@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/04/14 11:18
+📅 آخرین بروزرسانی: 1405/04/14 13:36
 
 ---
+
+## tasiyanc — post 7601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Saiedmusics
+برم رو مادرش یا نه؟ آیدیشو گذاشتم یه اکیپ دارم دارن کل پیامای تلگرامشو درمیارن به کل چنل ناموسی داده ببینم چیکار میکنین
+</div>
+
+## tasiyanc — post 7600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی لف بده😂
+</div>
 
 ## tasiyanc — post 7590
 
@@ -186,17 +199,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fast ⚡️🚀 Premium.npvt
-</div>
-
-## tasiyanc — post 7560
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️⁰⁷@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 7553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 💠
 </div>
 
