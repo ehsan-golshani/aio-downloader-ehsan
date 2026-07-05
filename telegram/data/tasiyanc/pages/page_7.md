@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/14 13:36
+📅 آخرین بروزرسانی: 1405/04/14 15:22
 
 ---
+
+## tasiyanc — post 7443
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام عزیزان یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7442
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام عزیزان
+یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
 
 ## tasiyanc — post 7441
 
@@ -183,17 +197,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گلللللللللللللللل رامین
-</div>
-
-## tasiyanc — post 7414
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پنالتی رو خراب می‌کنه طارمی
-</div>
-
-## tasiyanc — post 7413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پنالتیییی ایران
 </div>
 

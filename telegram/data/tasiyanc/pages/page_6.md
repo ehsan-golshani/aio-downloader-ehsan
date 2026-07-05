@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/14 13:36
+📅 آخرین بروزرسانی: 1405/04/14 15:22
 
 ---
+
+## tasiyanc — post 7478
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+توهین مجدد میثاقی به مردم ایران:
+کسایی که برای خوشحالی گل شجاع کلیپ می‌سازن همون جای خالی ان!
+</div>
+
+## tasiyanc — post 7477
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌هم اکنون شلیک موشک از ایران به سمت اردن
+</div>
 
 ## tasiyanc — post 7476
 
@@ -151,19 +164,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ آغاز حملات ایالات متحده به ایران
-</div>
-
-## tasiyanc — post 7443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام عزیزان یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 7442
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام عزیزان
-یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید
-https://t.me/+DhVkjFb6qhZmYTFk
 </div>
 

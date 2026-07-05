@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/04/14 13:36
+📅 آخرین بروزرسانی: 1405/04/14 15:22
 
 ---
+
+## tasiyanc — post 6834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[38]⚡@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6833
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6832
 
@@ -205,28 +225,5 @@ Vahid online
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نظر برخی از اعضاء
 پس توافق حتمیه !
-</div>
-
-## tasiyanc — post 6802
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴جزئیات مراسم وداع، تشییع و تدفین علی خامنه ای رسما اعلام شد
-
-شنبه و یکشنبه 13 و 14 تیر (19 و 20 محرم): مراسم وداع با پیکر در مصلای امام خمینی تهران
-
-دوشنبه 15 تیر (21 محرم): مراسم تشییع در تهران.
-
-سه شنبه 16 تیر (22 محرم): مراسم تشییع در شهر قم
-
-پنجشنبه 18 تیر (24 محرم، شب شهادت امام سجاد ): تشییع در مشهد مقدس و سپس خاکسپاری در حرم امام رضا
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6801
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴🆕 حملات سایبری به زیرساخت های تمام بانکای کشور کارت و خدمات اغلب بانک ها از دسترس خارج شده است
-@Tasiyanc ✅
 </div>
 
