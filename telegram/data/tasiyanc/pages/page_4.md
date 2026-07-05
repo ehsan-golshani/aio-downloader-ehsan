@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/04/14 15:22
+📅 آخرین بروزرسانی: 1405/04/14 21:17
 
 ---
+
+## tasiyanc — post 7566
+
+<div align="center"><img src="files/post_7566_tasiyanc_7566.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☕ Nitro⚡Fast.npvt
+</div>
+
+## tasiyanc — post 7565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+7سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
+
+🗝Password :  @Tasiyanc
+
+ 
+✅@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7564
 
@@ -225,35 +250,5 @@ Fast ⚡️🚀 Premium.npvt
 Password :  @Tasiyanc ❤️
 
  ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7527
-
-<div align="center"><video src="files/post_7527_tasiyanc_7527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7527_tasiyanc_7527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 کانفیگ اختصاصی نت مود 🚀
-
-۳ سرور  سرعتی پرمیوم 
-⚡️
-
-آموزش اتصال ⛓
-
-دانلود برنامه 
-🕹
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7526
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صداوسیما:
-اگر ترامپ را می‌کشتیم؛ آمریکا با ما مذاکره می‌کرد؟!
 </div>
 

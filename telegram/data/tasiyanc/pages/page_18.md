@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/04/14 15:22
+📅 آخرین بروزرسانی: 1405/04/14 21:17
 
 ---
+
+## tasiyanc — post 7050
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی با نتیجه مساوی پایان یافت
+</div>
+
+## tasiyanc — post 7047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاج صفی از بازیکنان آینده دار اومد زمین 🤣🤣
+</div>
 
 ## tasiyanc — post 7042
 
@@ -202,21 +214,4 @@ matador ⚡ Fast.npvt
 </div>
 
 ## tasiyanc — post 7001
-
-## tasiyanc — post 6996
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی های بعدی 22.30 بلژیک - مصر بامداد 4.30 نیوزلند - تیم ملی @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی های بعدی 22.30
-بلژیک - مصر
-
-بامداد 4.30
-نیوزلند - تیم ملی
-@Tasiyanc ✅
-</div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال MehdiBudam - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/14 19:53
+📅 آخرین بروزرسانی: 1405/04/14 21:15
 
 ---
+
+## MehdiBudam — post 8099
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طرف پیام داده میگه تو هم خوب از این داستانا پول زدی به جیب ها کسی این پولای مارو برنداشته؟ من ندیدمشون آخه
+</div>
 
 ## MehdiBudam — post 8098
 
@@ -195,11 +201,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 از دوستانی که میگفتن گیگی ۶۰۰ نمیصرفه ولی الان ۵ میصرفه چخبر.
-</div>
-
-## MehdiBudam — post 8071
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ فروش لف د گروپ.
 </div>
 

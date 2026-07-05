@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/04/14 15:22
+📅 آخرین بروزرسانی: 1405/04/14 21:17
 
 ---
+
+## tasiyanc — post 6244
+
+<div align="center"><img src="files/post_6244_tasiyanc_6244.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+HOT 🌶️.npvt
+</div>
+
+## tasiyanc — post 6243
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطورید چخبرااااا؟
+</div>
 
 ## tasiyanc — post 6242
 
@@ -173,41 +187,5 @@ FAST - MCI💥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر💋🦦
-</div>
-
-## tasiyanc — post 6222
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-
-6سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6221
-
-<div align="center"><video src="files/post_6221_tasiyanc_6221.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6221_tasiyanc_6221.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد CM  
-👑
-
-دانلود  Wg tunnel 
-🕹
-
-آموزش
-⏩
-
-@Tasiyanc 
-✅
 </div>
 
