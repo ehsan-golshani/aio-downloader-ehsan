@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/04/14 23:58
+📅 آخرین بروزرسانی: 1405/04/15 01:14
 
 ---
+
+## tasiyanc — post 7652
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☕⚡Mocha Fast.npvt
+</div>
+
+## tasiyanc — post 7651
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Canada 🇨🇦 & Morocco 🇲🇦 🏆
+
+کی میبره
+</div>
 
 ## tasiyanc — post 7645
 
@@ -144,19 +158,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ربات دانلودر اختصاصی تاسیان آپدیت شد ، پست ها و ریلز های اینستاگرام و بقیه شبکه های اجتماعی بفرستید مشخصات فیلم یا سریال و ... هم براتون نشون داده خواهد شد @TasiyanAploadBot
-</div>
-
-## tasiyanc — post 7619
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ربات دانلودر اختصاصی تاسیان آپدیت شد ، پست ها و ریلز های اینستاگرام و بقیه شبکه های اجتماعی بفرستید مشخصات فیلم یا سریال و ... هم براتون نشون داده خواهد شد
-@TasiyanAploadBot
-</div>
-
-## tasiyanc — post 7618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید گپ کارتون دارم
-https://t.me/+DhVkjFb6qhZmYTFk
 </div>
 

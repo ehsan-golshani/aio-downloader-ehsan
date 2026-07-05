@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/04/14 23:56
+📅 آخرین بروزرسانی: 1405/04/15 01:12
 
 ---
+
+## ProxyMTProto — post 48032
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: feed.proxytg.live
+Port: 443
+Secret: ee7c1dc73472aff6b273c603d9713900d1666565642e70726f787974672e6c697665
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48031
 
@@ -172,15 +181,6 @@ Secret: ee120e6efb5454d0945c4997bf6ea493c4617669746f2e7275
 Server: Unknown
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48012
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ya.proxyobhod.online
-Port: 8443
-Secret: ee2419e93e2af4bddd80bb8bc8936ea49879612e70726f78796f62686f642e6f6e6c696e65
 @ProxyMTProto
 </div>
 

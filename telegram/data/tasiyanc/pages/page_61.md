@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/04/14 23:58
+📅 آخرین بروزرسانی: 1405/04/15 01:14
 
 ---
+
+## tasiyanc — post 5805
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  ۲ سرور آلمان سرعتی  اختصاصی تاسیان  
+📱
+
+
+✅ تست شده روی همه اپراتورا 
+✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5804
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چن تا سرور بمب آماده کردم یکیشون تا ۵ مین دیگه میفرستم
+</div>
 
 ## tasiyanc — post 5803
 
@@ -172,19 +198,5 @@ Panda 🐼.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💘💘💘
 wlc to TASIYAN family ❤️‍🔥
-</div>
-
-## tasiyanc — post 5784
-
-<div align="center"><img src="files/post_5784_tasiyanc_5784.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-kiwi Speed 🥝.npvt
-</div>
-
-## tasiyanc — post 5783
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال گسترده در داده های همراه
 </div>
 

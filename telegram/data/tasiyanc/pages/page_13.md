@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/04/14 23:58
+📅 آخرین بروزرسانی: 1405/04/15 01:14
 
 ---
+
+## tasiyanc — post 7235
+
+<div align="center"><video src="files/post_7235_tasiyanc_7235.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7235_tasiyanc_7235.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی وایر Windscribe 🔐
+
+🟢حجم و کاربر نامحدود 🟢
+
+تمام اپراتورا 
+🔺
+
+مناسب گیم 🎲 دانلود
+⬇️ وب‌گردی🔍 جمینای
+
+دانلود ویندسکرایب : Android 
+📱  iOS 
+🕹
+
+آموزش اتصال به سرور ⏩
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐
+</div>
 
 ## tasiyanc — post 7231
 
@@ -333,52 +367,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 
 ✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7201
-
-<div align="center"><video src="files/post_7201_tasiyanc_7201.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7201_tasiyanc_7201.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  OpenVpn   📶
-
-تست شده تمام نتها 
-🚀
-
-دانلود 
-📱 Android  
-🕹 iOS
-
-آموزش اتصال
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7200
-
-<div align="center"><video src="files/post_7200_tasiyanc_7200.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7200_tasiyanc_7200.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 
-🔐
-
-vless://394f6981-a782-4779-9a85-e6cf22935d93@79.127.240.44:8443?security=tls&encryption=none&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=de1.fromblancwithlove.com#%F0%9F%87%A9%F0%9F%87%AAT.me%2Ftasiyanc
-vless://f3b8c2a1-9d4e-4b7f-a6c5-2e8d1f0b4a93@45.130.125.158:8443?path=%2F&security=tls&encryption=none&insecure=0&host=srv03.perfectbulk.info&fp=chrome&type=ws&allowInsecure=0&sni=srv03.perfectbulk.info#%F0%9F%87%A9%F0%9F%87%AA%20%E2%81%B0%C2%B2t.me%2FTasiyanc
-
-Location 
-🇩🇪 unlimited
-⚡️
-
-
-
-✔️ T.me/Tasiyanc 
 ✅
 </div>
 

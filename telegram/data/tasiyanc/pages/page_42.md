@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/04/14 23:58
+📅 آخرین بروزرسانی: 1405/04/15 01:14
 
 ---
+
+## tasiyanc — post 6300
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
+</div>
+
+## tasiyanc — post 6298
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+2سرور   سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها 
+⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6297
 
@@ -194,19 +217,5 @@ MCI - SamanTel - wifi تست شده
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم ⏩ @TasiyanProxy ⏩ @TasiyanProxy
-</div>
-
-## tasiyanc — post 6275
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم
-⏩ @TasiyanProxy
-⏩ @TasiyanProxy
-</div>
-
-## tasiyanc — post 6273
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ON TARGET ⚡✅.npvt
 </div>
 

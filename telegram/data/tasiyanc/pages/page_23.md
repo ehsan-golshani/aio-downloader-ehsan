@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/14 23:58
+📅 آخرین بروزرسانی: 1405/04/15 01:14
 
 ---
+
+## tasiyanc — post 6874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6873
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال شدید رو خطوط همراه داریم دلیلش نمیدونم
+</div>
 
 ## tasiyanc — post 6872
 
@@ -199,20 +219,5 @@ T.me/Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تسلیت به بت زنای محترم
-</div>
-
-## tasiyanc — post 6845
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قطر یکی زد به کمک های اولیه
-</div>
-
-## tasiyanc — post 6844
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✊امروز تولد مودی ترین خردادیه
-دونالد ترامپ متولد ۱۴ ژوئن ۱۹۴۶ است و امروز (یکشنبه ۱۴ ژوئن ۲۰۲۶) وارد ۸۰ سالگی می‌شود.
-@Tasiyanc 
-✅
 </div>
 
