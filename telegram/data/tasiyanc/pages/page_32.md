@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/04/15 02:21
+📅 آخرین بروزرسانی: 1405/04/15 12:27
 
 ---
+
+## tasiyanc — post 6574
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آمریکا میخواد بزنه تقصیر منه ریکشن نمیزنین؟
+</div>
+
+## tasiyanc — post 6573
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی متد جدید همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+PASSWORD 🔑 : @Tasiyanc
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6570
 
@@ -186,24 +210,5 @@ https://t.me/TasiyanProxy
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 منتظرم قطعی بشه پرایوت کنم چنلو اونای ک لف میدن حالشون میپرسم
-</div>
-
-## tasiyanc — post 6547
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بوی برخط شدن میاد اینبار
-</div>
-
-## tasiyanc — post 6546
-
-<div align="center"><video src="files/post_6546_tasiyanc_6546.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6546_tasiyanc_6546.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👍
-🔴 ترامپ: فاش نمی‌کنم که آیا پل‌ها و نیروگاه‌ها را هدف قرار خواهیم داد.
-@Tasiyanc 
-✅
 </div>
 

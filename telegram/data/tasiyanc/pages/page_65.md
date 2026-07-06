@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/04/15 02:21
+📅 آخرین بروزرسانی: 1405/04/15 12:27
 
 ---
+
+## tasiyanc — post 5714
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🥝.npvt
+</div>
+
+## tasiyanc — post 5713
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد اتصال در Npv tunnel
+وارد تلگرام یا .. شوید نیاز نی پینگ بگیرید ❤️‍🔥
+</div>
 
 ## tasiyanc — post 5712
 
@@ -180,25 +193,5 @@ vless://6202b230-417c-4d8e-b624-0f71afa9c75d@91.193.58.140:443?path=%2F%3Fhttps%
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5691
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 Config _ 🥇 sv 🇰🇿
-
-vless://6202b230-417c-4d8e-b624-0f71afa9c75d@31.43.179.191:2096?security=tls&encryption=none&insecure=1&host=sni.my111000.tech&type=ws&allowInsecure=1&sni=sni.my111000.tech#%40Tasiyanc%20%F0%9F%87%B0%F0%9F%87%BF
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5690
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 Config - vip sv 🇬🇧
-
-vless://6202b230-417c-4d8e-b624-0f71afa9c75d@5.10.245.191:443?path=Telegram%40WangCai2%2F&security=tls&encryption=none&insecure=1&host=sni.my111000.tech&fp=chrome&type=ws&allowInsecure=1&sni=sni.my111000.tech#%40Tasiyanc%20%F0%9F%87%AC%F0%9F%87%A7
-
-@Tasiyanc ☑️
 </div>
 

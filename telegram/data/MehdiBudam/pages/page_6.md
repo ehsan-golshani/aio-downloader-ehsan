@@ -1,8 +1,32 @@
 # آرشیو کانال MehdiBudam - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/14 21:15
+📅 آخرین بروزرسانی: 1405/04/15 12:26
 
 ---
+
+## MehdiBudam — post 8124
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان این تور های که گذاشته میشه همشون بریج هاشون متفاوته بخاطر همون برای بعضیا شاید وصل نشه نه اینکه مثل یه چنل دیگه که یدونه بریج پر سرعت پیدا کرده با همون چند‌تا تور گذاشته و همشون یکین و اگه یدونه Delete Duplicate بزنی کلا یدونه میمونه.
+</div>
+
+## MehdiBudam — post 8123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان این تور های که گذاشته میشه همشون بریج هاشون متفاوته بخاطر همون برای بعضیا شاید وصل نشه نه اینکه مثل یه چنل دیگه که یدونه بریج پر سرعت پیدا کرده با همون چند‌تا تور گذاشته و همشون یکین و اگه یدونه Delete Duplicate بزنی کلا یدونه میمونه.
+</div>
+
+## MehdiBudam — post 8122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor13
+
+
+slipnet-enc://AdqIx38cjZg0vZvUsWYOtV9WaKksPvoIURn9bDLrqhzpOujuDCET1JqAVR0iT4mDcT9pKMsH06mMadgThtMiMqtrFTAGCAV+D3bhFUnTJJRvGb+dDgRcMj6n1Z1bBZTRXdlVdPHpeZa0y6I7O88KttN4prOLSAvv5ouxtp7FFGfuz04ZB0y+u8S6LWfQh8DkWXaPbSbLuUwV14tUJFTOeoKRNEN6WPCF+OQstIX1SFsGxCg5pN1gYFdhfnW/jdm9uFzAAo6/v56khrvMleGTgrJcWYnZLtdreseG2EBJGBnNUmFCKzSu/jo++aViBBD8BHhG2YKxCS9BjQPCmQNhPKFVx7NxU1YBg2wuHTQHT/FplgrWzMDqfY8YKu80WB5Dh4GKaCmVnD9Wx+NBHm0b/o5LLidvnMwtkui2phLi8ik3Y7VBcU/oih0ORdqXu0nPwm+/wjyetOVOXuSEEa9PW2aNbIq7LpCe2ZXS0xwOTB/dSdda/wTG4z12hUEDvyBoZ0xrzBAMubVOCpUYmqSVAv0sFVnvZWlWCfyvk8W/jkF6TS0eXL0DLkxlN8spnlC9ZwGCg8BRi/vg248uqIUcvvjjxueAvmpxAf9pZ0dcDdIw9mXIBReLL2IN/dFktIurLXEQhCraxhEmv95Ftw0Ij/OTUA5wni/u7Vrc7m8fN3uy2WXp/4JJP9pSnDU4H+iYRRAsBWZ1x7TKOTEP8QGB5bnX7+0tmITvoozJRJk8
+
+﻿
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8121
 
@@ -176,28 +200,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 از متد تور استفاده میکنید؟
-</div>
-
-## MehdiBudam — post 8102
-
-<div align="center"><img src="files/post_8102_MehdiBudam_8102.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگر هنوز دسترسی به اینترنت جهانی براتون باز نشده و مجبورید از DNS Tunelling استفاده کنید:
-با قابلیت جدید DNS Pool دیگه نیازی نیست دستی دنبال DNS بگردید یا اسکن کنید. می‌تونید تا ۱۰۰۰ تا DNS به برنامه بدید تا خودش قبل اتصال تستشون کنه و ۱۰ تا از بهترین‌ها رو خودکار براتون انتخاب کنه.
-
-🕊@slipnet_app
-</div>
-
-## MehdiBudam — post 8101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان میگن Snowflake با برنامه های Orbot و Invisible pro هم وصل میشه.
-</div>
-
-## MehdiBudam — post 8100
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گفته یکی از دوستان تور رو با لینوکس و ترموکس تست کردن با اپدیت خود لینوکس راحت وصل شدن.
 </div>
 
