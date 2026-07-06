@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/04/15 16:34
+📅 آخرین بروزرسانی: 1405/04/15 20:07
 
 ---
+
+## tasiyanc — post 6983
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡⚡@Taisyanc.hc
+</div>
 
 ## tasiyanc — post 6982
 
@@ -255,12 +261,5 @@ https://play.google.com/store/apps/details?id=net.darktunnel.app
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشنا چ‌کم شده
-</div>
-
-## tasiyanc — post 6947
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تست کنید
-@Tasiyanc
 </div>
 

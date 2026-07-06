@@ -1,16 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/15 16:34
+📅 آخرین بروزرسانی: 1405/04/15 20:07
 
 ---
+
+## tasiyanc — post 7698
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه خبرا خوبید؟
+</div>
 
 ## tasiyanc — post 7697
 
 <div align="center"><video src="files/post_7697_tasiyanc_7697.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7697_tasiyanc_7697.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7697_𝐓 𝐀 𝐒 𝐈 𝐘 𝐀 𝐍 ⚡️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 𝐓 𝐀 𝐒 𝐈 𝐘 𝐀 𝐍 ⚡️.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت 
@@ -231,11 +235,5 @@ Fast ⚡ Unlimited.npvt
 
  
 ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7660
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از چنلای مردمی حمایت کنید ، بناموسم بخاطر خودم نمیگم ، ما مثل اینا جیره خور نبودیم همه چیو از جیب خودمون خرج کردیم نه کانفیگ گیگی یه میلیون فروختیم ، نه سکوت کردیم مثلاً امروز گروه تعطیل کنیم یا موقع قطعی فعالیت نکرده باشیم
 </div>
 

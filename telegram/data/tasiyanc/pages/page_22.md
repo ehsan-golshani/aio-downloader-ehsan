@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/04/15 16:34
+📅 آخرین بروزرسانی: 1405/04/15 20:07
 
 ---
+
+## tasiyanc — post 6925
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+DhVkjFb6qhZmYTFk
+بیاید گپمون (صحبت)
+</div>
 
 ## tasiyanc — post 6924
 
@@ -220,13 +227,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇳🇱🇫🇷⚡⚡.npvt
-</div>
-
-## tasiyanc — post 6881
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ قالیباف 🔗
-سخن گفتن از ادامه مسیر مذاکره ممکن نیست.
-@Tasiyanc ✅
 </div>
 
