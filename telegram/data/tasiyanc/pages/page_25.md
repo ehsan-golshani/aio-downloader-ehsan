@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/04/16 01:41
+📅 آخرین بروزرسانی: 1405/04/16 02:58
 
 ---
+
+## tasiyanc — post 6837
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتیجه بازی های جام جهانی تا الان (اتمام نیمه اول )
+
+تیم کمک های اولیه🇨🇭 1 قطر 0 🇶🇦
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6835
 
@@ -226,11 +235,5 @@ Vahid online
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظر برخی از اعضاء پس توافق حتمیه !
 </div>
 

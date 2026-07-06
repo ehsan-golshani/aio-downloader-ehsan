@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/16 01:41
+📅 آخرین بروزرسانی: 1405/04/16 02:58
 
 ---
+
+## tasiyanc — post 6449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+300 GB ⚡ VİP.npvt
+</div>
 
 ## tasiyanc — post 6448
 
@@ -192,19 +198,6 @@ FAST⚡TASIYAN🚀.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨کانال ۱۲ اسرائیل:
 طی چندساعت اخیر به ۲۰ هدف تو ایران حمله کردیم
-
-@TasiyanProxy
-</div>
-
-## tasiyanc — post 6422
-
-<div align="center"><video src="files/post_6422_tasiyanc_6422.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6422_tasiyanc_6422.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوووری فارس :
-مجتمع پتروشیمی کارون رو زدن
 
 @TasiyanProxy
 </div>
