@@ -1,8 +1,32 @@
 # آرشیو کانال MehdiBudam - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/15 12:26
+📅 آخرین بروزرسانی: 1405/04/15 16:33
 
 ---
+
+## MehdiBudam — post 8107
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوابه؟
+</div>
+
+## MehdiBudam — post 8106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor1
+
+
+slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyLGKkQHKIznMSk4my7NTS5FmWUYOkAfhuQvXCTPeI9jIEKUWFyF46hjy8LhQ5fENuYWt3JeizIBy81HAgvsvH/Gx/r5LHE5Bx+4E+GVOU3zJrmAq4i35cU3Nakvt3yHnzhhGgiJyoPVF4SJPa0Nkvdh3v39Wn0NwXOtRb0VQVoZmEluJcIdmTkDZhyUAcICVF7Erj6PGFoxP70SGmTNyzU3176Tu3kOe4cs+c0NThrBV5SF5yctMWLsbU5b/fl0slZRZVh2bsxe8aPqDVHqm25l1y4c/yz6cvEJddRS2U/j7khuFAYoEFiP8DLfnlnZoq+ESFiQ9XhsCi6B4joFGDJeVLqg7/BHHqZrA1i2wGQs3cgVBLlGMFG4aS/+Byw4h+Jp2ON/m5ZjJvi+9Tr2n7WikTSMt1o256YbOpzNVpgZShOMVsRwgfAgmibruTNv+p9N7U7cTf1IbJJXovSZzDcqUnaVPaEwq2UsrTCFSXM+OhRlVkky3zEq7a6nQJZHCO5nIk59MPJMhFKsqTii3Voxpwe10MALhtPX6qD1wORqdta5OrKkOF7jE2sIBaVY7RvUHeXsLiMPSF1HskZZtVv0d9VeW2B3aseoWBPkhtd/cwdGGysk0158Tu4F79MjcI9t7Zy7sVIC+BI3FAycGCuIcIk6E+y1GVw==
+
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از متد تور استفاده میکنید؟
+</div>
 
 ## MehdiBudam — post 8102
 
@@ -173,38 +197,5 @@
 
 
 🕊 @SlipNet_app
-</div>
-
-## MehdiBudam — post 8078
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🕊 @SlipNet_app
-</div>
-
-## MehdiBudam — post 8076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاوت نسخه‌ها: کامل (Full) در برابر سبک (Lite)
-
-- نسخه کامل (Full): این نسخه شامل تمامی انواع تونل‌های ارتباطی از جمله DNSTT، NoizDNS، VayDNS، Snowflake و NaiveProxy (که با Tor ادغام شده است) می‌شود. اگر به تمام قابلیت‌ها و پروتکل‌های پیشرفته نیاز دارید، این نسخه مناسب شماست.
-
-- نسخه سبک (Lite): این نسخه فقط شامل تونل‌های پایه یعنی DNSTT، NoizDNS و VayDNS است. به دلیل حذف Tor، Snowflake و NaiveProxy، حجم دانلود بسیار کمتری دارد و برای کسانی که فقط به امکانات اصلی نیاز دارند یا فضای خالی کمتری در گوشی خود دارند، ایده‌آل است.
-
-کدام فایل APK را باید دانلود کنیم؟
-برای نصب برنامه، نسخه‌های مختلفی بر اساس معماری پردازنده (CPU) دستگاه‌ها ارائه شده است:
-
-- یونیورسال (universal): این نسخه روی تمامی دستگاه‌ها به درستی کار می‌کند. اما از آنجایی که فایل‌های مربوط به تمام معماری‌ها را در خود جای داده است، حجم دانلود آن از بقیه نسخه‌ها بسیار بیشتر است.
-
-- نسخه arm64-v8a: این نسخه مخصوص اکثر گوشی‌های هوشمند مدرن و جدید (تولید سال ۲۰۱۶ به بعد) است. حجم دانلود آن کمتر از نسخه یونیورسال است. نکته: اگر مطمئن نیستید گوشی شما چه مدلی است، به احتمال بسیار زیاد همین نسخه برای شما مناسب است.
-
-- نسخه armeabi-v7a: این نسخه برای گوشی‌ها و دستگاه‌های قدیمی‌تر که دارای پردازنده‌های ۳۲ بیتی ARM هستند، طراحی شده است.
-
-- نسخه x86_64: این فایل منحصراً برای نصب روی شبیه‌سازهای اندروید (مانند بلواستکس در کامپیوتر) و لپ‌تاپ‌های کروم‌بوک (Chromebooks) کاربرد دارد.
-</div>
-
-## MehdiBudam — post 8075
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه هنوز نمیتونید وصل شید ۳ تا سرور آخر و بقیه رو تست کنید.
 </div>
 

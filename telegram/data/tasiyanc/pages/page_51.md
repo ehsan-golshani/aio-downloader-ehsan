@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/04/15 12:27
+📅 آخرین بروزرسانی: 1405/04/15 16:34
 
 ---
+
+## tasiyanc — post 6081
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+۲سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6080
 
@@ -189,13 +205,5 @@ Hot Servers 🔥🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خب بریم به آدرس و شماره تلفن یا چیزای دیگه بدم؟
-</div>
-
-## tasiyanc — post 6050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فایل تمام پیام‌های تلگرامش
-
-@ineedknife
 </div>
 

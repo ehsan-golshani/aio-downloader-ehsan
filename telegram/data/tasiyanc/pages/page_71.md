@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/04/15 12:27
+📅 آخرین بروزرسانی: 1405/04/15 16:34
 
 ---
+
+## tasiyanc — post 5543
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان  تمام اپراتورها  📶
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5540
 
@@ -337,16 +347,6 @@ t.me/TasiyanOwner
 📶اختصاصی تاسیان تست شده 📶
 
 برای اتصال پایدار زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5512
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان ۲سرور تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
 
 @Tasiyanc ✅
 </div>

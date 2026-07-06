@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/04/15 12:27
+📅 آخرین بروزرسانی: 1405/04/15 16:34
 
 ---
+
+## tasiyanc — post 5970
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پینگ نگیرید ، کانکت شدید بیاید تل یا اینستا بالا میاد خودش
+</div>
 
 ## tasiyanc — post 5969
 
@@ -170,11 +176,5 @@ TS premium Servers 🌲⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بمب بعدی تو راهه
-</div>
-
-## tasiyanc — post 5946
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
--FAST MCI & MTN & RighTel 🔥.npvt
 </div>
 

@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/04/15 12:27
+📅 آخرین بروزرسانی: 1405/04/15 16:34
 
 ---
+
+## tasiyanc — post 6711
+
+<div align="center"><img src="files/post_6711_tasiyanc_6711.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تجمعات شبانه
+گشت ارشاد به چاک سینه توجهی نداره اگه بمالید
+@tasiyanc✅
+</div>
 
 ## tasiyanc — post 6710
 
@@ -174,14 +184,5 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 دیگر همه چیز قطعی و تمام شده
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠⭕️⭕️ ترامپ : خودم احتمالاً نمی‌تونم تو مراسم امضای توافق حضور داشته باشم و ونس به نمایندگی از آمریکا اونجا خواهد بود
-- امضای توافق ممکنه خیلی زود انجام بشه، حتی شاید همین آخر هفته
-
-@Tasiyanc ✅
 </div>
 

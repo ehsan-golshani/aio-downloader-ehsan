@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/04/15 12:27
+📅 آخرین بروزرسانی: 1405/04/15 16:34
 
 ---
+
+## tasiyanc — post 6660
+
+<div align="center"><img src="files/post_6660_tasiyanc_6660.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ تو مراسم افتتاحیه جام جهانی امشب راس ساعت 21:00
+شکیرا، دنی اوشن، جی بالوین، بلیندا و لیسا توش قراره اجرا داشته باشن
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6659
 
@@ -220,11 +231,5 @@ vless://931729a8-3c20-4841-89a1-f18dc9ce0a6f@cdn7-09.vk-cdnvideo.com:8443?securi
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 غربالگری چنل ، انگل زدایی چنل ✅
-</div>
-
-## tasiyanc — post 6632
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Homayoun Shajarian & Sohrab Pournazeri – Irane Man
 </div>
 

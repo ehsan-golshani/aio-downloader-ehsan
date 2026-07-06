@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/04/15 12:27
+📅 آخرین بروزرسانی: 1405/04/15 16:34
 
 ---
+
+## tasiyanc — post 5762
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5761
 
@@ -206,8 +219,4 @@ vless://0dc22208-cea4-4423-b3c3-a36957e23233@91.225.217.26:443?security=reality&
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 https://t.me/Tasiyanc/5733
 </div>
-
-## tasiyanc — post 5739
-
-<div align="center"><img src="files/post_5739_tasiyanc_5739.jpg" alt="Photo"></div>
 

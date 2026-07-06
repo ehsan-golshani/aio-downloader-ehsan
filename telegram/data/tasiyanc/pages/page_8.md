@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/15 12:27
+📅 آخرین بروزرسانی: 1405/04/15 16:34
 
 ---
+
+## tasiyanc — post 7432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Password :  @Tasiyanc
+
+🔐 کانفیگ حجم نامحدود
+
+۳ سرور سرعتی ⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7431
 
@@ -173,11 +192,5 @@ https://t.me/TasiyanProxy/1840
 
 
 @Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 7400
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چیزی نشده همراه اول اختلال میخوره .....😡
 </div>
 

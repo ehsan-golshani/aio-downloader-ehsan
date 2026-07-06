@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/04/15 12:27
+📅 آخرین بروزرسانی: 1405/04/15 16:34
 
 ---
+
+## tasiyanc — post 6026
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوست من سه روز پیش اکانتش پرید
+</div>
 
 ## tasiyanc — post 6025
 
@@ -148,11 +154,5 @@ VİP 🔥.npvt
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6001
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴۰ هزار نفر ۲ تا ریکشن🤣🤣
 </div>
 
