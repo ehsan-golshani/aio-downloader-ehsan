@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/04/15 20:07
+📅 آخرین بروزرسانی: 1405/04/15 22:09
 
 ---
+
+## tasiyanc — post 6488
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوووووورییی با توییت امشب امریکا احتمال شروع دوباره جنگ هستت
+برا همین براتون توی بات  ۶۰۰‌گیگ کانفینگ اختصاصی گذاشتیم که یوقت دوباره نتو قطع کردن شماها قطع نشید❤
+
+کنارتون هستیم💝
+
+دریافت کانفینگ اختصاصی
+دریافت کانفینگ اختصاصی
+</div>
 
 ## tasiyanc — post 6487
 
@@ -214,11 +226,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6465
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقت الکی نزارید قربونتون برم من
 </div>
 

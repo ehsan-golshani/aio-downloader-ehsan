@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/04/15 20:07
+📅 آخرین بروزرسانی: 1405/04/15 22:09
 
 ---
+
+## tasiyanc — post 7213
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎉ایلان ماسک: هیچ دختری شکم شش تکه را
+به ۶ تا ماشین ترجیح نمیدهد
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7212
 
@@ -323,11 +331,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7185
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡⚡🇩🇪.npvt
 </div>
 

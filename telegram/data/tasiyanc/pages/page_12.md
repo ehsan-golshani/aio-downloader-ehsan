@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/15 20:07
+📅 آخرین بروزرسانی: 1405/04/15 22:09
 
 ---
+
+## tasiyanc — post 7284
 
 ## tasiyanc — post 7283
 
@@ -183,11 +185,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گل ایران رف وار آفساید شد
-</div>
-
-## tasiyanc — post 7251
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاهد حضور جوان و پدیده نو ظهور فوتبال احسان حاج صفی در ترکیب هستیم
 </div>
 

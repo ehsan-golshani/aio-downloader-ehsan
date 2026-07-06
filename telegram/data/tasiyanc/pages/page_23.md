@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/15 20:07
+📅 آخرین بروزرسانی: 1405/04/15 22:09
 
 ---
+
+## tasiyanc — post 6882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇳🇱🇫🇷⚡⚡.npvt
+</div>
 
 ## tasiyanc — post 6881
 
@@ -192,28 +198,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.189:8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ما سرور تکراری رو فایل نمیزاریم همشون تست کنین💋🚀
-</div>
-
-## tasiyanc — post 6856
-
-<div align="center"><video src="files/post_6856_tasiyanc_6856.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6856_tasiyanc_6856.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

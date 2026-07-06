@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/04/15 20:07
+📅 آخرین بروزرسانی: 1405/04/15 22:09
 
 ---
+
+## tasiyanc — post 6949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنا چ‌کم شده
+</div>
 
 ## tasiyanc — post 6947
 
@@ -196,15 +202,6 @@ T.me/Tasiyanc ✅
 نخست‌وزیر پاکستان اعلام کرد:
 مراسم امضای رسمی این توافق روز جمعه 19 ژوئن در سوئیس برگزار خواهد شد.
 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسمیییییییییییی
-توافق امضا شد
-@Tasiyanc
 ✅
 </div>
 
