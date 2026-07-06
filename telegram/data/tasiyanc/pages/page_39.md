@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/04/15 22:09
+📅 آخرین بروزرسانی: 1405/04/16 00:08
 
 ---
+
+## tasiyanc — post 6391
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووووورییییییی حمله کردننننننن
+</div>
+
+## tasiyanc — post 6390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدا و سیما :
+
+شهر نبطیه لبنان در حال سقوط است
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 6389
 
@@ -216,29 +232,6 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 📶  اختصاصی تاسیان  😏
 
 4سرور   سرعتی پرمیوم 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
-
-دانلود  NPV tunnel  🌐
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6360
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Speed ⚡ One.npvt
-</div>
-
-## tasiyanc — post 6359
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-5سرور   سرعتی تست شده با سامانتل🚀
 
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
 

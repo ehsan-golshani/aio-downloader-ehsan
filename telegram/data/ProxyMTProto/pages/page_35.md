@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/04/15 22:07
+📅 آخرین بروزرسانی: 1405/04/16 00:06
 
 ---
+
+## ProxyMTProto — post 48165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: get.utkanos.life
+Port: 443
+Secret: ee9657c0f5d3500ab1649000fcd8a0ad816765742e75746b616e6f732e6c696665
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48164
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: moh.kingproxynewdomailasiatech.ink
+Port: 25565
+Secret: FgMBAgABAAH8AxOG4kw63Q
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: login.klyuch1k.org
+Port: 443
+Secret: ee7b0d5223fb0484933823a8e0e823194c6c6f67696e2e6b6c79756368316b2e6f7267
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48162
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.nilmart.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48161
 
@@ -145,42 +181,6 @@ Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
 Server: mt.nowabst.net
 Port: 853
 Secret: 7hKJP_0gRM7NMRBO3AKn5VhhZHMueDUucnU
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48145
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: subobdoa.co.uk.
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48144
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy51.arixo.shop
-Port: 443
-Secret: ee5213729eae4670d804f594044f81b831617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48143
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 65.109.255.99
-Port: 443
-Secret: YyEEgYdJXfrFmgMCIMJdjgYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYY
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Gengbeng.etherealvpn.uk
-Port: 443
-Secret: eec3332fab3d82ff009bc26822e5b7dc84617669746f2e7275
 @ProxyMTProto
 </div>
 

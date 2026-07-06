@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/04/15 22:09
+📅 آخرین بروزرسانی: 1405/04/16 00:08
 
 ---
+
+## tasiyanc — post 6579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی متد جدید همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6578
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سیو کنین کانفیگارو
+</div>
 
 ## tasiyanc — post 6577
 
@@ -200,24 +222,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 ادامه اخبار در چنل پروکسی
 
 https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸
-🔴ترامپ:
-با بمب افکن های B_2 آنها را بسیار سخت هدف قرار خواهیم داد.
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 
-🔴ترامپ : تا اینجا هم بخاطر پاکستان فرصت داده بودم ، امروز بشدت به ایران ضربه خواهیم زد
-@Tasiyanc 
-✅
 </div>
 

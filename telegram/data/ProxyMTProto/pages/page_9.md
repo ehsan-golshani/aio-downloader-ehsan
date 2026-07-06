@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/04/15 22:07
+📅 آخرین بروزرسانی: 1405/04/16 00:06
 
 ---
+
+## ProxyMTProto — post 48687
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: openhostings.co.uk.
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: net.freetg.pw
+Port: 443
+Secret: ee5149538ef4476db6e76d74a7a7c8a48b6e65742e6672656574672e7077
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: basic.here-funnycloud.co.uk
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48684
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: alpha_fk35xklksl_sfklsomega_chjarl_qwinukkus.proproxies.top
+Port: 443
+Secret: ee66c007a679e4bac563190b5525d9a528616c7068615f666b3335786b6c6b736c5f73666b6c736f6d6567615f63686a61726c5f7177696e756b6b75732e70726f70726f786965732e746f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48683
 
@@ -145,42 +181,6 @@ Secret: eed083bcb9b8a3592fa7d6e8060b95992d39643530393933642e657468657265616c7670
 Server: 92.246.87.243
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48666
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 5223
-Secret: 7uao3_adb96sOIzKbSDMtEJ3d3cuYXBwbGUuY29t
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48662
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 @ProxyMTProto
 </div>
 
