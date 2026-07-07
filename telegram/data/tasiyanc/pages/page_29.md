@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/17 02:13
+📅 آخرین بروزرسانی: 1405/04/17 03:19
 
 ---
+
+## tasiyanc — post 6762
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان ( خانواده بزرگ من) ❤️
+</div>
+
+## tasiyanc — post 6732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VİP - ⛓️OMEGA ⚡.npvt
+</div>
 
 ## tasiyanc — post 6731
 
@@ -183,22 +195,5 @@ INFERNO ⚡ vip.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مسی و رونالدو اگه ایران بدنیا میومدن :
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 12 June ، روز جهانی تشکر از آدمیه که زندگی رو برات قشنگتر کرده.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6711
-
-<div align="center"><img src="files/post_6711_tasiyanc_6711.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تجمعات شبانه
-گشت ارشاد به چاک سینه توجهی نداره اگه بمالید
-@tasiyanc✅
 </div>
 

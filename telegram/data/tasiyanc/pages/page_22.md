@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/04/17 02:13
+📅 آخرین بروزرسانی: 1405/04/17 03:19
 
 ---
+
+## tasiyanc — post 6983
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡⚡@Taisyanc.hc
+</div>
+
+## tasiyanc — post 6982
+
+<div align="center"><video src="files/post_6982_tasiyanc_6982.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6982_tasiyanc_6982.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟اختصاصی تاسیان (جایگزین وایر) - کانفیگ HttpCustum 
+🌟
+
+Password: @Tasiyanc
+
+نامحدود سرعت بالا تست شده⚡
+
+دانلود برنامه httpCustum 
+🕹
+
+دانلود برنامه httpCustum 
+📱
+
+T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6981
 
@@ -231,32 +261,5 @@ https://play.google.com/store/apps/details?id=net.darktunnel.app
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشنا چ‌کم شده
-</div>
-
-## tasiyanc — post 6947
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تست کنید
-@Tasiyanc
-</div>
-
-## tasiyanc — post 6946
-
-<div align="center"><video src="files/post_6946_tasiyanc_6946.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6946_tasiyanc_6946.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 
-📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال 
-⛓
-
-T.me/Tasiyanc ✅
 </div>
 
