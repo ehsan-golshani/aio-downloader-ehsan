@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/04/16 02:58
+📅 آخرین بروزرسانی: 1405/04/16 09:25
 
 ---
+
+## tasiyanc — post 5982
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عشقید به مولا
+</div>
 
 ## tasiyanc — post 5981
 
@@ -168,12 +174,5 @@ Gold🥇Vip servers.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5958
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرسی از تبریک های قشنگتون 🥹❤️‍🔥
-بهترین ها نصیبتون شه ایشالا مرسی که هستید ❤️
 </div>
 

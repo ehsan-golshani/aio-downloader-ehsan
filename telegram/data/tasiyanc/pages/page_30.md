@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/04/16 02:58
+📅 آخرین بروزرسانی: 1405/04/16 09:25
 
 ---
+
+## tasiyanc — post 6674
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ موفق شد قیمت نفت رو با این خبر به زیر ۹۰ دلار برسونه
+ذات ترامپ :
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6673
 
@@ -196,13 +204,5 @@ Fotmob iOS
 🔩🔴ترامپ: ایران بزودی به پایان می‌رسد، امشب هم بشدت بمباران خواهند شد!
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6649
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ رویترز :
-لشکر 82 هوابرد آمریکا ملقب به لشکر شیطان به زودی جزایر نفتی ایران را تصرف خواهند کرد
-@Tasiyanc ✅
 </div>
 

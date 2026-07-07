@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/16 00:06
+📅 آخرین بروزرسانی: 1405/04/16 09:23
 
 ---
+
+## ProxyMTProto — post 48108
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cloud.prx.today
+Port: 443
+Secret: eeda2d39fb15ca8ddb6582b915b149465c636c6f75642e7072782e746f646179
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48107
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: go.vingardium.co.uk.
+Port: 8443
+Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: api.prxtoday.store
+Port: 443
+Secret: ee1fed31d4c3ce8255aedc8c4c14a36f536170692e707278746f6461792e73746f7265
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48105
 
@@ -154,33 +181,6 @@ Secret: ee46a405cdf38698927aa7352341e2ba0a6c756d656e2e70726f787975782e73697465
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: bolt.proxyonline.online
-Port: 443
-Secret: ee98741a4df96ee86a25ca542a538a3484626f6c742e70726f78796f6e6c696e652e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ%3D%3D
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: jet.proxym.world
-Port: 443
-Secret: ee894a8e1c70d3ec137af76968609e04666a65742e70726f78796d2e776f726c64
 @ProxyMTProto
 </div>
 

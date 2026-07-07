@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/04/16 02:58
+📅 آخرین بروزرسانی: 1405/04/16 09:25
 
 ---
+
+## tasiyanc — post 7196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+40.000 🖤 > 72
+</div>
 
 ## tasiyanc — post 7193
 
@@ -232,12 +238,5 @@ GN⚡⚡🇩🇪FST🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ حمله شدید اسرائیل به لبنان 😐
-</div>
-
-## tasiyanc — post 7170
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گفت نمیدانم چگونه اما تو تغییر کرده ای ، انگار غمی تجربه کرده ای که تو را بزرگ کرده !
-@Tasiyanc ✅
 </div>
 
