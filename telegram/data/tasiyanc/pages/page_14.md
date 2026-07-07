@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/04/16 21:26
+📅 آخرین بروزرسانی: 1405/04/16 23:09
 
 ---
+
+## tasiyanc — post 7259
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخرااااااااج بازیکن بلژیک 🔹
+</div>
+
+## tasiyanc — post 7257
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشمای بلژیک ریخته ۱۱ نفری دفاع میکنن
+</div>
+
+## tasiyanc — post 7256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه بجای طارمی سهراب سپهری بود با اختلاف گل میشد 😂
+</div>
+
+## tasiyanc — post 7255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجاست ک میگن بلژیک از کون ( طارمی) اورد 🤣
+</div>
 
 ## tasiyanc — post 7254
 
@@ -223,36 +247,5 @@ Wnd🍓 @Tasiyanc.conf
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7222
-
-<div align="center"><img src="files/post_7222_tasiyanc_7222.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ Windscribe 
-🔐 می‌خوام بزارم ، همونطوری ک میدونید بهترین کلاینت VPN حال حاضره از هر لحاظ ، دانلودش داشته باشید بریم تو کارش ، این کانفیگ ها مناسب گیم و وبگردی هستن
-</div>
-
-## tasiyanc — post 7221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جرمی دوکو ستاره بلژیک در آستانه بازی با ایران بخاطر زایمان همسرش از اردوی بلژیک جدا شد
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
-</div>
-
-## tasiyanc — post 7219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk
-کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
 </div>
 

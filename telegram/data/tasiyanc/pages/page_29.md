@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/16 21:26
+📅 آخرین بروزرسانی: 1405/04/16 23:09
 
 ---
+
+## tasiyanc — post 6721
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[30] 🪐@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6720
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6719
+
+<div align="center"><img src="files/post_6719_tasiyanc_6719.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎬 پیشنهاد سریال
+​📺 نام سریال: The Hunting Party 2025
+⚡️ ژانر: جنایی | درام | اکشن | معمایی
+
+خلاصه داستان:
+داستان از جایی شروع میشه که یک زندان فوق‌سرّی و فوق‌امنیتی که در اعماق زمین پنهان شده بود، بر اثر یک انفجار مشکوک تخریب میشه. با این اتفاق، گروهی از باهوش‌ترین و خطرناک‌ترین قاتلان زنجیره‌ای کشور فرار می‌کنن و دوباره به جامعه برمی‌گردن. حالا «بکس هندرسون» (با بازی ملیسا راکسبورگ)، مأمور و تحلیل‌گر ارشد سابق FBI، به همراه یک تیم زبده از جاسوس‌ها و سربازان وارد عمل میشن تا قبل از اینکه این قاتل‌ها دوباره دست به جنایت بزنن، پیداشون کنن. اما این فقط یک تعقیب و گریز ساده نیست؛ یک توطئه بزرگ پشت این انفجار وجود داره...
+
+⬇️ دانلود یا تماشای بدون سانسور
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6718
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+INFERNO ⚡ vip.npvt
+</div>
 
 ## tasiyanc — post 6717
 
@@ -153,33 +196,5 @@ vless://d39664df-5bc0-4f49-9894-8f03b4150082@germany-vip.soft26.ir:8443?mode=aut
 
 vless://da48859d-edf9-4a8c-a026-80910591f284@151.101.1.164:80?mode=auto&path=%2FTignal&security=none&encryption=none&host=tignaltofansv8.global.ssl.fastly.net&type=xhttp#T.me%2FTasiyanc%20%E2%9A%A1
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جام جهانی - 5.30 صبح 🏆
-
-بازی کره🇰🇷 - چک 🇨🇿
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توافق داره تو جنوب امضا میشه
-</div>
-
-## tasiyanc — post 6692
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار داغ و پروکسی های تاسیان ( حمایت کنین )
-https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6691
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Rend ⚡ (1).npvt
 </div>
 
