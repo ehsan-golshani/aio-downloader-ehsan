@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/16 09:25
+📅 آخرین بروزرسانی: 1405/04/16 13:36
 
 ---
+
+## tasiyanc — post 7717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP 🎯 @Tasiyanc.nm
+</div>
+
+## tasiyanc — post 7716
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه وضع ریکشن زدنه
+</div>
+
+## tasiyanc — post 7713
+
+<div align="center"><a href="files/post_7713_⚡☕@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡☕@Tasiyanc.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال  ⛓
+</div>
+
+## tasiyanc — post 7712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز July 7، روز جهانی شکلاته 🍫 🍫
+</div>
 
 ## tasiyanc — post 7709
 
@@ -169,34 +201,5 @@ Password @Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کارلو آنجلوتی رید برزیل و حذف کرد
-</div>
-
-## tasiyanc — post 7689
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گللللللللللل برا نروژ 🔥 هالللللند
-</div>
-
-## tasiyanc — post 7688
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ های وایرگارد آپدیت شد ، با سرعت مناسب گیم و اینستاگرام 🔥🚀
-
-فول سرعتی مناسب تمام اپراتورها
-
-
-👇 دریافت کانفیگ های وایرگارد 🔥
-</div>
-
-## tasiyanc — post 7686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سن دریافت گواهینامه رانندگی از ۱۸ سال به ۱۶ سال کاهش پیدا کرد.
-</div>
-
-## tasiyanc — post 7685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP 🎯 @Tasiyanc.nm
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/15 20:06
+📅 آخرین بروزرسانی: 1405/04/16 13:35
 
 ---
+
+## MehdiBudam — post 8090
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود و تشکر از همراهان همیشگی SlipNet که در دوره قطع و اختلال اینترنت همراهی کردند با توجه به وضعیت فعلی شبکه، می‌تونید از روش‌های زیر برای برقراری اتصال پایدار استفاده کنید: 🟢 ۱. اتصال از طریق Tor (نسخه Full - رایگان) (ویژه کاربران دارای دسترسی به اینترنت)…
+</div>
+
+## MehdiBudam — post 8089
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکثر سرورا وصلن اگه لازم داشتید.
+</div>
 
 ## MehdiBudam — post 8088
 
@@ -224,25 +236,5 @@ Pass: @MehdiBudam
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 120 113 109 107 106 104 103 99 98 97 96 95 88 84 79 77 75 74 73 71 70 69 66 61 58 57 47 46 31 25 22 و بقیه وصلن.
-</div>
-
-## MehdiBudam — post 8061
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از دلایلی که اکثر این سرورا دیگه کار نمیکنن یا ضعیف میشن اینه که یه سری آدم مثلا کاربلد میان سرورارو آنلاک میکنن بعد حتی دامین رو هم هاید نمیکنن و میارن تو یه چنل که ۱۵۰ ک ممبر داره همینطوری ول میدن میره از این ور هم ادعا دارن که اختصاصی و باعث میشن که کلا همچی فیلتر بشه یا قطع بشه کلا.
-</div>
-
-## MehdiBudam — post 8059
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-120
-
-
-slipnet-bundle-enc://AYIUT4dAbTv0xUl/UpqmqIN+EubjfDTGLG1YEQQRhlsqNCtJKks/mDn/hd8805irVqbHuuYvxn8V6WukeCp28HrKMu4hUnyNREs6rHUi8p6tVayx2LxSa+GX8Z6dIvLJ4XpBeJIZG/r/lMqMDr8au3hAHINQwGLFq+v22DIqB0PPRJZfWiXUJ2rEO8hZNtpnXzBKD9qwAVFFJtueMQRdPCrm3ZjfRvsYgeTFmYT0EtWu3vk8chTyJJnIaOq1jNLNI26as8XGwMMIXERdmrXqyxE+lN226hR5mlWWDay67m9CycR/JcqrGQxlvkrX5DmSwcKn7KBh0drQb2S5TTXT7TGhq8LkFoolqViUzOQVAjyp04ghb2VjDuyqXk1175MnIcQHoHpqL1EVL0y7mOWDJTRk/cSXnpHMlGmGuhHmNzdIjdOvgpLBRJZKkpA0vs74dz5Q1nKHEYaTgvd/BVQHDURkTk0nF8kGih8S5sXWpEW+/lIxNbyrdJMxnNpL+dbaqLbzhzr8qK/Ifas4PyGppIS2PEsgNEVAJC6hnRY4u+HRT/m3P3bR+AEwfdn7aJZlYxssKjvK7dnU1qgrqsO5wHq2B8w42c+rcXgUPkBJsq3KjIUYg01URZApbLfejOmEzwKkdxkUtGBqCwhCicmYzgrr4Y9IfFI/W3+ICS5AXpPqVresrvN1jfLPBO8d0PYLkLhRmqtNJfp7xAEItr4MoMYBCEkOvTF0ShYXQw9dZQztoCaY+qlqRhxATaCBlAhG1NLym7YN7/7sDQboT1NNxO1l7N5OtrWksV3Yme4jrqj4Zzfxg1oyge3ao6mNeQTU323+8p4yEuEo7p4T7BBDXz6Jgw5Ca7b0MQkEtN5B+/+psAO70jE6cLoi4ZpSP8bRCojqM9TOe7oSX5wt6Uou6rSphnl1AO04PSS97KK5SRUQKVPB7m+nFE1LtVJLpk0zfrkdp49b+7clwvsfZ5wUUPzcNXNCIWPZT4MMB/dpu/eKKh0ZXrgq4MFfxxJ8ynwLKDtQTOtOQE+UR+Use0Dr3o+QswZHduMurlaPgCNmfd5TIeJMP868Xi+bvJeJ3Kc=
-
-
-Pass: @MehdiBudam
-
-@MehdiBudam
 </div>
 
