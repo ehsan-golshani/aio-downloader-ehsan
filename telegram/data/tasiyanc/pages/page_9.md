@@ -1,8 +1,89 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/04/16 23:09
+📅 آخرین بروزرسانی: 1405/04/17 02:13
 
 ---
+
+## tasiyanc — post 7458
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیگه از بدشانسی زر نزن آقای رامین رضائیان
+</div>
+
+## tasiyanc — post 7457
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+3 تا احتمال بزرگ داشته باشی تا صعود کنی ولی نتونی ، تو بازی ۳ تا تیرک بزنی ، گل آفساید بزنی ، پنالتی نتونی بزنی
+
+آقای رضائیان حالا ببین چی میگم وقتی میگفتی دلیل این همه بد شانسی نمیدونی چیه
+آه مادرانی ک سر مزار بچشون میرقصیدن همینه
+</div>
+
+## tasiyanc — post 7456
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ تیم فوتبال جمهوری اسلامی از دور مسابقات کنار رفت و از صعود به مرحله بعد جام جهانی جا ماند
+</div>
+
+## tasiyanc — post 7453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 3 بازی پرتغال و کلمبیا ...
+</div>
+
+## tasiyanc — post 7450
+
+<div align="center"><video src="files/post_7450_tasiyanc_7450.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7450_tasiyanc_7450.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود DE 🇩🇪
+
+4 سرور سرعتی 
+⚡️
+
+دانلود برنامه 
+🕹 IOS 📱 Android 
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+🔑Password :  @Tasiyanc
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️حملات مجدد آمریکا به قشم
+</div>
+
+## tasiyanc — post 7448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️حمله آمریکا به بندرلنگه و بندر کنگ
+</div>
+
+## tasiyanc — post 7447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیما: دقایقی پیش چندین انفجار در شهرستان سیریک، جنوب ایران رخ داده است.
+</div>
+
+## tasiyanc — post 7446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ۳ انفجار در قشم
+</div>
+
+## tasiyanc — post 7445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ۴ انفجار شدید در سیریك
+</div>
 
 ## tasiyanc — post 7444
 
@@ -95,107 +176,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7431
-
-<div align="center"><video src="files/post_7431_tasiyanc_7431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7431_tasiyanc_7431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password : @Tasiyanc
-
-
-🔐 کانفیگ حجم نامحدود
-
-۳ سرور سرعتی 
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
- 
-💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆صعود چگونه محقق خواهد شد؟
-
-به یکی از اتفاقات زیر نیاز دارد تا به عنوان یکی از تیم های سوم صعود کند
-
-1.شکست کرواسی برابر غنا
-2.شکست نخوردن ازبکستان برابر کنگو
-3.عدم تساوی در دیدار اتریش و الجزایر
-
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7429
-
-<div align="center"><video src="files/post_7429_tasiyanc_7429.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7429_tasiyanc_7429.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقای رضاییان هنوز نمیدونی چرا بدشانسی میارید؟ 😒
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7428
-
-<div align="center"><img src="files/post_7428_tasiyanc_7428.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐😐😐
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آفسایدددددددددد
-</div>
-
-## tasiyanc — post 7420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم بره وار
-</div>
-
-## tasiyanc — post 7419
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گگگگگگگگگگگگگللللللللل ایران
-</div>
-
-## tasiyanc — post 7418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صلاح تعویض شد 😐
-</div>
-
-## tasiyanc — post 7417
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned «ساب لینک اختصاصی نامحدود 🚀 🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt 130 کانفیگ پروتکل Trojan سرعتی ( هر دوازده ساعت آپدیت خواهد شد ) آموزش ویدیویی اضافه کردن ساب 💘 @Tasiyanc 💠 | اتصال امن»
-</div>
-
-## tasiyanc — post 7416
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدایی گل خوبی زد رامین
 </div>
 
