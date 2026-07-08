@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/16 19:16
+📅 آخرین بروزرسانی: 1405/04/17 04:52
 
 ---
+
+## MehdiBudam — post 8094
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
+</div>
+
+## MehdiBudam — post 8093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه مورد دیگه ای هم که هست بعضیا میگن فقط با پروکسی مد روشن وصل میشه و بدون اون وصل نمیشه.
+</div>
 
 ## MehdiBudam — post 8092
 
@@ -200,33 +212,5 @@ Pass: @MehdiBudam
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 124 123 122 121 120 119 118 117 112 111 109 107 106 104 103 99 97 91 89 77 75 74 71 70 69 65 61 59 58 53 49 48 46 37 31 30 25 21 و بقیه وصلن.
-</div>
-
-## MehdiBudam — post 8066
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دانلود برنامه
-
-تفاوت نسخه های برنامه
-
-تنظیمات پیشنهادی و نکات بیشتر
-
-نحوه اسکن دی ان اس
-
-دایرکت چنل
-</div>
-
-## MehdiBudam — post 8065
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-123,124
-
-
-slipnet-bundle-enc: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
-
-﻿
-Pass: @MehdiBudam
-
-@MehdiBudam
 </div>
 
