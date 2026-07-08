@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/04/17 13:38
+📅 آخرین بروزرسانی: 1405/04/17 15:28
 
 ---
+
+## tasiyanc — post 6543
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️
+⭕️
+⭕️
+</div>
 
 ## tasiyanc — post 6542
 
@@ -194,24 +203,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 https://t.me/+RTGtcYWb8HdkNjdk
 گپ تحلیل گران جنگ ( تاسیان) 😂
-</div>
-
-## tasiyanc — post 6512
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور متد جدید🚀
-
-نامحدود  - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

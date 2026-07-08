@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/04/17 13:38
+📅 آخرین بروزرسانی: 1405/04/17 15:28
 
 ---
+
+## tasiyanc — post 5847
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عالیه
+</div>
 
 ## tasiyanc — post 5846
 
@@ -202,25 +208,5 @@ GM TASIYAN 💝
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هر بار باید بگیم ری اکشن بزنید 😂
-</div>
-
-## tasiyanc — post 5805
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  ۲ سرور آلمان سرعتی  اختصاصی تاسیان  
-📱
-
-
-✅ تست شده روی همه اپراتورا 
-✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 

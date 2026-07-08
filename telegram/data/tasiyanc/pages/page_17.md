@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/04/17 13:38
+📅 آخرین بروزرسانی: 1405/04/17 15:28
 
 ---
+
+## tasiyanc — post 7201
+
+<div align="center"><video src="files/post_7201_tasiyanc_7201.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7201_tasiyanc_7201.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  OpenVpn   📶
+
+تست شده تمام نتها 
+🚀
+
+دانلود 
+📱 Android  
+🕹 iOS
+
+آموزش اتصال
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7200
 
@@ -240,30 +263,5 @@ Milano 🇮🇹🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 GN⚡⚡🇩🇪FST🇮🇹.npvt
-</div>
-
-## tasiyanc — post 7175
-
-<div align="center"><video src="files/post_7175_tasiyanc_7175.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7175_tasiyanc_7175.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV
-
-3سرور سرعتی متد جدید
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/17 13:38
+📅 آخرین بروزرسانی: 1405/04/17 15:28
 
 ---
+
+## tasiyanc — post 7799
+
+<div align="center"><a href="files/post_7799_1⚡🇩🇪 Fast.ehi.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 1⚡🇩🇪 Fast.ehi</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+4 سرور سرعتی حجم و کاربر نامحدود ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال به اینجکتور ✨
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7798
 
@@ -13,8 +39,6 @@
 
 ## tasiyanc — post 7797
 
-<div align="center"><a href="files/post_7797_ShirOKhorshid-2026.05.14.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ShirOKhorshid-2026.05.14.apk</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نسخه شیر و خورشید قدیمی 👑
 آموزش اتصال
@@ -23,8 +47,6 @@
 </div>
 
 ## tasiyanc — post 7796
-
-<div align="center"><a href="files/post_7796_The Best ⚡ نت ملی.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 The Best ⚡ نت ملی.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت 🔐
@@ -182,11 +204,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 واکنش اسرائیل به جنگ فعلی : خوابیما قطعش کنین
-</div>
-
-## tasiyanc — post 7753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنگه هرمز بسته شد💪
 </div>
 

@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/17 13:38
+📅 آخرین بروزرسانی: 1405/04/17 15:28
 
 ---
+
+## tasiyanc — post 7619
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ربات دانلودر اختصاصی تاسیان آپدیت شد ، پست ها و ریلز های اینستاگرام و بقیه شبکه های اجتماعی بفرستید مشخصات فیلم یا سریال و ... هم براتون نشون داده خواهد شد
+@TasiyanAploadBot
+</div>
 
 ## tasiyanc — post 7618
 
@@ -165,11 +172,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختلال رو همه اپراتورا هم اکنون ( وصل اما قط وصل)
-</div>
-
-## tasiyanc — post 7576
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر گلای تو خونه
 </div>
 

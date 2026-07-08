@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/17 13:38
+📅 آخرین بروزرسانی: 1405/04/17 15:28
 
 ---
+
+## tasiyanc — post 7536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
+</div>
 
 ## tasiyanc — post 7535
 
@@ -230,11 +236,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چطور بود فیلما؟
-</div>
-
-## tasiyanc — post 7486
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی فیلم Heaven in Hell (2023) 📹 صحنه دار 🔞 ( مناسب بزرگسالان) عاشقانه ، درام - محصول 🇵🇱 کارگردان: Tomasz Mandes بازیگران : Simone Susinna & Magdalena Boczarska این فیلم داستان عشق پرشور و در عین حال چالش‌برانگیز بین «اولگا»، زنی موفق و مستقل که با مسئولیت‌های…
 </div>
 

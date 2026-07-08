@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/04/17 13:38
+📅 آخرین بروزرسانی: 1405/04/17 15:28
 
 ---
+
+## tasiyanc — post 6913
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📊 حجم : نامحدود  |  ⏳انقضا : 30Day 📶 وضعیت اتصال : فعال ✅ ⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید دریافت کانفیگ نامحدود رایگان 🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
+</div>
 
 ## tasiyanc — post 6912
 
@@ -189,19 +195,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpvWklvQTY5UTh5aGNRVjhrYTNQYTNB@82.38.31.11:80
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [48]🚀@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6874
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
 </div>
 

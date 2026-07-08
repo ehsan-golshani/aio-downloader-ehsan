@@ -1,8 +1,28 @@
 # آرشیو کانال MehdiBudam - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/04/17 13:36
+📅 آخرین بروزرسانی: 1405/04/17 15:27
 
 ---
+
+## MehdiBudam — post 8069
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از صبح وضعیت اینترنتتون بهتر شده؟
+</div>
+
+## MehdiBudam — post 8068
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+125,126,127
+
+
+slipnet-bundle-enc://AcRs+ZhYNvAPJf6ViRG+EWReCFNI6egNY/ueiJvfEGx3/gxa9yZUjhl4PHH9WsfbSURE7i9HIWsc6K5cIJg0Se3nwt+NJQ7/z9KbQHFBzQ5Rtv2aGDD/T8bpZD9uXEwwdPB6GMAxkZw2qCd1aDPwpevE8UayiRSws8zdIXiJt3xx9e4z1FASHAKyxdhYjC+JgZ1MXGnHhcsUIW4aEMDpP33dI37I00ErwLqzsSlokoJWwvZ5Kux1vIRYoUPVf+Ymv6LocnAXmSyHW7OfC1ZBoCoVWfl0W/rFWOEFKzDaFc6FhZvwM6DPYFvrhu84/5UsPPCHK1RAbZcgBMrasPSilOjCMCW+3u7q6YXRd5lPGge8C2Y3/igjtm3sAh565F0yQN8o3Qm+Wbt6bNcRUKF1H0N3Jf/joeUfImrSO2f0r+NcCXiC9Zhsshy8aGeWmBh3dTuxWz4fxFSNKdLzjqtAMLNus5QRXMS+9KnwMUY9CER3eyVfGiLJi5p2ZOSYcCQ/1YHXqrTJCHD/HHFs4i9fneTxke+qssbm9GRUuBNJh5Y+qQO4qLcsDDrt8wllxKS6NaHTEWg3QYlEv07FRc/VEpnIzcvY5H73tiYHcfpA+QOmy4nni1GQVM5lycSa5UZYTzNQ60cquPK32/XrMXJ3gW0lMd+2j1kcQnZHu633ib5NtPruO1DQ1FfrfIYEVj4clEPZPRJHyHURBGxuWG8YlfZkTSIKsJxFzsfGtvSbREtywznwXFt20rVVxnre24kmEl1nHLEBXa7bUNcgyw2CUwiQ1bT3ZMFogsZhVNbhG0NNny2gDtah/0qW3xwrnSCtB0Lwb4QK+BFuBWvoQKYJpaHuACSTpKEHEXtmHdzzBURSW2zBybSrlTe476DNmaBr7PVKE6wE7dwVY8gVzz5LzVsDlDR5v0kL1CliIl7jBPc5btJUXMzE7h1SFFvatCqTcH+/aNFwLnLylCtOhgaQvFQP3CQddiRGBMTz9Q6fm3SE+nRL7Rk8RCOLk5xZ7fokk0pLG3kePrcDR7tR1vvIuXyYhZCTyyd9VJYOeSan/JpBDXW0wk2m0VztgcYf/Pbb6DeE/+SQkrQe3ZskL2hJjKTUmOCnhRBlLNhmdi+K+UHagF9PsRb6bjZegf1562dgiDPJmqH2Szq4ebv0wbJ6k3wv95CwoqDfNBopYPttOEl+skSVEiQRKN66/7ZdmnGJbsoUdNwkEYzAJBw+9zNujYGNO0OTVTRJafWElKHFgO+WnwEkPd5MbhY/wBbiC5cczPJhQfKYL+a7BGkFVWqrnzLPWjs9JNrP6PziFbBlJKUnURIdX53TVoPSRz/mt5yJvXcJvqjPHKLlef+7svMOPMmMPnWQzGyahZyxA95WFpPK5D+nFs7tlqHkVD23LylxekTlcybr+ap6kpBLh+ohhPbJPbEK0/8V4kn39RkqvDIQXiwHVOwCsfAgKhjfsFeJG0IdrbqIiIqbhFhzfvNmOQ4h3s6i2H6W5328sacDbNe4fJXy+Bjn8WR8743gxTINqhus+VEP9joH9xjJpuJmBfpP47PU7ZFOy/xXHqGq/NR+yttKYXIVHkDDjddNYh7jx3UPxycHwfyJs6+SVjwhI+gpONsZCdCqTAo7TfuzZ01faj2vdouUI3yBq6iSrzvPyY5f++1EURXM6L7aII1yDzpo0Nm98gzYIzAfFGGrtJjX4ppaqq3M+NocoIf3pPsYGbsOpfa4KyS9olEoDKgX8y1NmT2Vc3IMk6ZGXgOfZGEu7phSRM9Jb4/1IaNGKuTF5nG+hhWiFaJlMEuLR5vFnPka+zwW9tju2aYQopReEYKu1Vds2RoUCD0q9j113OVOT1BkYmLMd/F+yeua+PnIucqdLDAsg+jY8GUb4SyeEnV41zCt+ALct61Fh+Tj5kbrpWoOapJbWTjsTJORjNWFJIfYw/kXjpRxIJMXXsBhZhPHWaLKMkYPKrRGYADxv7BKZ/bN3X/8XL6COBvzSKtPj8Y9UOFmURG9RP6526mnK77GZsCzKyHAv3K7jKM/R6we1M1BwJUrxQceq1c1+UgYXlFf6QTaDFYAzq/2EfcCiQfU+NTMEmjYQmjNSpmIeOijqSDSbvWP3rX1Be0V10mOKFMTNiTC3mnYxRDqJqW4hNButaNRYuVOvMWwBfNoh1xd2ywAI1UCSxA/m2rND0hoWwKSxA3gF7BQEbbdEExTXdM+Q2J2IDsYooAzBa0n4UsJKOGkS2D9YQ00LmlC1OFPUH58Ix5Z5f2VQ/AhaqbBJagnZv8uBE+zzMr0vAKju0MkIJ8NUYfBjRU+9N4A7q0SbX3UVORKzIlcE97YZQiSXhF2u/+78nOR4gEpabU/KDD4XeveupfNm/xHsa1HSi8D3Fw901ETJBZnahF8/h90yRBoc72Nzu0owyRtrYtc/BNIMiS4gHsXiEic6TvK+JxJaiYuT/3CRD7jfB0xlS9QRn67udqL3k6uAW2RNdRV/gL6vHL1nuyT6e118SJdCnnLEap/xO9bxfUSX3dQmIX5bsg8ce8KkjRyFbku1Z1G79Bc8ijIBgS80yE+wbspSFk2GU5SPPRRhgv0y6CyYDMANptX9rmus/FqKHZTnZMIhFrYe4REZBb6K5vTb/6kpKVlMi5FolYpgmp6VRhM+3f1MgPDi+4giUkxOWMFwAcz9K4C4jqBqhAqlSvP//Fjq1gBYnsI9DKkNprL59WDCXiudDZ2nEYYzoq2VBrGA7urFfd1XygQDHN5kfYDjSfDLIn57Kt0PSioTxiXTz4V6JvXhfNkuwOW/g3d68fa0aL5EIRhQSPO0VXyZbTz9DKTvI4uRVLH6bbCLtYd/V7hgsavuZvRmknsIn3uJ4lyQa7Hve70hE52hwAniSKMzlK7/P97rUu3JHa27X6qk2Br4Q1UD5v2/FkKtlPBAcs/akC8j6g9a+UUTnpGgH6DWcSbHcSvLShvpjfuDVHEaulAZWNCfHHDiA5x0Otkb0axnM8G1YVA53JQ6k/drD/OSF07gT7j9+z4AcV5i+DzmDKwaLu+lyVgTLsxNcrVNqjvxIH/YdS9YzSapNs+ItweZ/ow0CRxFc7p2UsUP55RnqK3bViyTyMQvFXnFXJ0d6FgMKvIXpNMhuCWwKtMb1Iy6EJsd1ouKZ0ENqoGIT3xEQ==
+
+﻿
+Pass: @MehdiBudam
+
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8067
 
@@ -221,29 +241,5 @@ Pass: @MehdiBudam
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه تشکر هم از همه دوستانی که پستارو تو کانال های خودشون فوروارد میکنن و از طریق استارز و بوست هم حمایت کردن.
-</div>
-
-## MehdiBudam — post 8035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-108
-
-
-slipnet-bundle-enc://AcHBTeQyfgD3xVlQcGtQ0kNbI0wc8MsWGgypOkv2e/vFk+d1/rqQBZfL37e4TBm3Sa4s69uaytHjD8XZvZl6A+EW87rgZPjHRuMR7rd2oVRjMg7iOsl5S6ADZSeTB1cK+SVAc5zIBiMQNQeHfKA04Egxigkfd1sIFVTNbWWmoEAYQ6hyHaEsIrJUZeOUT58Q40EHh8e9br3pTsNJ0+Q06JNf67lbSk1fZl35u53nCeP8B4+vw0jKfQGbfrmdx6hHjGUSEr25/9LLvP0W2tWcZrYKay0fK0VWxOianIRBkCuLEbJNFkRwtH7SbdYLCLo7jR+5dvcHG/oYR79uZDOyZw3VfgNmra86fBLwpCoDeDLbaUQaQmMK88hqNgnpvdNhnYMCM0GdYHqc0+eF1OFe5tgOoKxUt9Yumtp91mEA9tkw2SXVJW8z+uPrWUSOM3ULReaV4ln/1ThFOpRpZ4kbKaQRY9epR4h53DXtedQhqB7VAM+6qYePOj5k8PxysISYdHTuhc9buwp/L8DuFOcIervFunyh7JpoANOB5L+nlU2Egg/ghhyUr+xGIGMCiaFMNNZuzFSmwdVn6xzCWtcVxNsbBXlXvhyaSyYmUXNnrtIpBSc+ZqKyySSbR+/mBDwJD3Is5azUiB+/Xkh/xewCubkrjlAoX4vt6UN7szzpG+KvqbumnFSK5PiDX6o02SvFlGeBjVld7aOaF8bP5FWsj0A6GleteITIl01P0Mq68raSIFxVE0W6B0H/v3iM7KelX431G0DgXGQACRcb7GgIvLSXv45YK3jsoFpZ2zRNlMnS2n1O/sSqedrlFd5TBy0+If6DFoX4XDSJhSjBrlp8uzmD6ucD750+bbeypORLae53CASAzmyf8TWrBKxZS0gfta7kvn/fep5PoyUF/Zp/Z/76VnWsq+vICO2jS3ooBhP9Xe6h2qjLNECMJjFXWxCn9j9//6hPqYK6XPDIZI7ioqYczhqOjjDlhyHdXOT6HN0J2ZKjUbhyU5l4oFgR3NBceBIc/m60graoypYFhIhMTbultxcFJm3nfeCQFO66B0j+wQYg2z+NCrv61w==
-
-﻿
-Pass: @MehdiBudam
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8031
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-TCP
-
-185.140.56.21:53,176.65.241.236:53,185.143.207.253:53,95.38.15.205:53,80.75.4.24:53,185.14.161.36:53,217.219.163.18:53,185.53.140.250:53
-﻿
-@MehdiBudam
 </div>
 
