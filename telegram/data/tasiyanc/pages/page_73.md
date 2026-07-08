@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/04/17 15:28
+📅 آخرین بروزرسانی: 1405/04/17 21:38
 
 ---
+
+## tasiyanc — post 5569
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو ده مین ۱۰۰ تا فور 😐
+</div>
+
+## tasiyanc — post 5568
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نامحدودن بستگی داره چقد سرور شلوغ باشه
+</div>
 
 ## tasiyanc — post 5567
 
@@ -266,21 +278,5 @@ WAR 🔥.npvt
 trojan://humanity@188.121.109.79:40443?security=tls&type=ws&host=www.ignitelimit.com&path=%2Fassignment&sni=www.ignitelimit.com&allowInsecure=1#%40Tasiyanc%20%F0%9F%8D%B3%20TKB
 
 Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5538
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه ترکیبی پررو بریم اگه ری اکشن باشه
-</div>
-
-## tasiyanc — post 5537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده  📶
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

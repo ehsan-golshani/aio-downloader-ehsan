@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/04/17 19:55
+📅 آخرین بروزرسانی: 1405/04/17 21:36
 
 ---
+
+## ProxyMTProto — post 48564
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48563
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ru1.loveproxy.xyz
+Port: 443
+Secret: ee10a9bbc28226bf8b41915af388cd4eb562726f777365722e79616e6465782e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48562
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.acientirani-uor4.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48561
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad2.arixo.shop
+Port: 443
+Secret: eed09b88cbbd4e744865b890e5a0bd26876164322e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48560
 
@@ -145,42 +181,6 @@ Secret: eec81c41c38a9c5f7dee946eb5392d760f706f7274616c2e6d616c6576696368372e746f
 Server: gorbeye-7000-sale.asiaadomainsshatelhamrahaval.co.uk.
 Port: 443
 Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48544
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: portal.balalaika.click
-Port: 443
-Secret: ee6a119e12f7d82d45b226b5e48e85c3c5706f7274616c2e62616c616c61696b612e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48543
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48542
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: login.klyuch1k.org
-Port: 443
-Secret: eec9a190b323e85637c2cd236cc7b544216c6f67696e2e6b6c79756368316b2e6f7267
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48541
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 

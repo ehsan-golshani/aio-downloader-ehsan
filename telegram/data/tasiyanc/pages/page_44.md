@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/04/17 15:28
+📅 آخرین بروزرسانی: 1405/04/17 21:38
 
 ---
+
+## tasiyanc — post 6328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN♻️
+تست شده  🚀
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6327
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۰٪ کانفیگای ک روزهای گذشته گذاشتیم وصله
+</div>
 
 ## tasiyanc — post 6326
 
@@ -189,17 +203,5 @@ Password : @Tasiyanc  ⏩
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
-</div>
-
-## tasiyanc — post 6302
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به هرحال فشار میاد و تردید میکنم برای ادامه فعالیت
-</div>
-
-## tasiyanc — post 6301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما ک از اولش گفتم Ovpn تو حیطه من نی و نمیزارم ،چیزای ام ک میزاریم از Ovpn بیشتر از vpnbook یا vpnjantit که اشتراکشو دارم
 </div>
 

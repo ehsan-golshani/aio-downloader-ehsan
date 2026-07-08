@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/17 15:28
+📅 آخرین بروزرسانی: 1405/04/17 21:38
 
 ---
+
+## tasiyanc — post 6979
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ متد اختصاصی httpCustum میزارم تست کنید
+</div>
+
+## tasiyanc — post 6965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 سرور سرعتی NPV 
+🌟
+T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6964
 
@@ -245,19 +260,5 @@ T.me/Tasiyanc ✅
 امروز June 15
 روز جهانی گل گرفتنه 💐
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتونم بخیر 🥹
-</div>
-
-## tasiyanc — post 6942
-
-<div align="center"><img src="files/post_6942_tasiyanc_6942.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑ساب لینک اختصاصی تاسیان👑 https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt اینو بزنید 🔐🔐 هر ۴ ساعت کانفیگا آپدیت میشن بعد از ۴ ساعت update subscription بزنید تا آپدیت شن @Tasiyanc ✅
 </div>
 
