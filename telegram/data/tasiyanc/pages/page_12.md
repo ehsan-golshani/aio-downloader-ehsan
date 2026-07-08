@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/17 03:19
+📅 آخرین بروزرسانی: 1405/04/17 10:56
 
 ---
+
+## tasiyanc — post 7350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ دارک تانل رو از این به بعد تو گروه تاسیان میزارم پین میکنم یکم دیگه ۲.۳ تا می‌زارم ، هرکی خواست جوین بشه لینک عوض میشه https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ دارک تانل رو از این به بعد تو گروه تاسیان میزارم پین میکنم
+یکم دیگه ۲.۳ تا می‌زارم ، هرکی خواست جوین بشه لینک عوض میشه
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
 
 ## tasiyanc — post 7348
 
@@ -227,17 +241,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گلللللللللللللللل
-</div>
-
-## tasiyanc — post 7318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روناااااااااالدوووووووووووو زد
-</div>
-
-## tasiyanc — post 7317
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡@Tasiyanc⚡️.ovpn
 </div>
 

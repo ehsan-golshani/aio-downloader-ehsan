@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/04/17 03:19
+📅 آخرین بروزرسانی: 1405/04/17 10:56
 
 ---
+
+## tasiyanc — post 7079
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐
+🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@admin.c1.webramz.co:443#Fast%20%40Tasiyanc%20%F0%9F%AA%90
+نامحدود سرعتی 
+⚡️
+🇬🇧
+@Tasiyanc
+💠
+</div>
+
+## tasiyanc — post 7078
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast VIP ⚡🇳🇱″🇬🇧.npvt
+</div>
 
 ## tasiyanc — post 7077
 
@@ -192,20 +211,5 @@ Location 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گلللللللل نیوزلند
-</div>
-
-## tasiyanc — post 7025
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک از ماهواره نتونستن بگیرن میتونن از این سایت بدون نیاز به VPN از این شبکه ببینن
-TRT 1
-https://ritsatv.ru/mobile-version/movie-id901190-trt1
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بخاطر اون ۶۴۰۰۰ نفر بیدارم بازیو ببینیم
 </div>
 

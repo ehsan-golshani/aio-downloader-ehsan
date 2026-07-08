@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/17 03:19
+📅 آخرین بروزرسانی: 1405/04/17 10:56
 
 ---
+
+## tasiyanc — post 6500
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  
+😏
+
+4سرور   سرعتی پرمیوم متد جدید
+🚀
+
+نامحدود  - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6488
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوووووورییی با توییت امشب امریکا احتمال شروع دوباره جنگ هستت
+برا همین براتون توی بات  ۶۰۰‌گیگ کانفینگ اختصاصی گذاشتیم که یوقت دوباره نتو قطع کردن شماها قطع نشید❤
+
+کنارتون هستیم💝
+
+دریافت کانفینگ اختصاصی
+دریافت کانفینگ اختصاصی
+</div>
 
 ## tasiyanc — post 6487
 
@@ -198,27 +232,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6466
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  Ovpn ♻️
-
-تست شده 
-🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6465
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقت الکی نزارید قربونتون برم من
 </div>
 

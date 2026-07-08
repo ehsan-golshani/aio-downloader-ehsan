@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/17 03:19
+📅 آخرین بروزرسانی: 1405/04/17 10:56
 
 ---
+
+## tasiyanc — post 7785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عجب پخت پزی شد 💥 اندپوینتای جدید سرعتی
+دوستانی ک آیفون دارن تو ویندسکرایب بزنید
+</div>
+
+## tasiyanc — post 7778
+
+<div align="center"><a href="files/post_7778_☕🔥Fast.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ☕🔥Fast.conf</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ & گیم 🎮
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe ⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7777
 
@@ -12,8 +42,6 @@
 </div>
 
 ## tasiyanc — post 7764
-
-<div align="center"><a href="files/post_7764_J.N 🖤 Tayebeh Rezayi 🕊️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 J.N 🖤 Tayebeh Rezayi 🕊️.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت 🔐
@@ -150,17 +178,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه پاس به رونالدو ندادید دیشب
-</div>
-
-## tasiyanc — post 7731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بورنو فرناندز ، ویتینیا ناموستون گاییدم
-</div>
-
-## tasiyanc — post 7730
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سوپرررررر گللللللل زد
 </div>
 

@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/04/17 08:13
+📅 آخرین بروزرسانی: 1405/04/17 10:54
 
 ---
+
+## ProxyMTProto — post 48483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48482
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.garden-troll.life
+Port: 443
+Secret: ee0c3f91dda87adc073a65d989972871ec666173742e67617264656e2d74726f6c6c2e6c696665
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48480
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: edge.rknwatch.digital
+Port: 443
+Secret: ee7af7548a786b6603566172b91f413637656467652e726b6e77617463682e6469676974616c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48479
 
@@ -145,42 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: 34.51.192.156
 Port: 443
 Secret: dd99c304c8857034be7df934a6e5a95032
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48463
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy5.chunkycorp.shop
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48461
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp.nowabst.net
-Port: 853
-Secret: ee82ce1f84af4033cc7e7b021069be3d5b6164732e78352e7275
 @ProxyMTProto
 </div>
 

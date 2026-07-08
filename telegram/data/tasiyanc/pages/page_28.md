@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/04/17 03:19
+📅 آخرین بروزرسانی: 1405/04/17 10:56
 
 ---
+
+## tasiyanc — post 6792
+
+<div align="center"><video src="files/post_6792_tasiyanc_6792.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6792_tasiyanc_6792.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩ایلان ماسک اولین تریلیونر جهان شد!
+
+سهام SPCX قراره با قیمت 135 دلار معامله بشه و ارزش اسپیس‌ ایکس رو به حدود 1.8 تریلیون دلار برسونه!
+
+@Tasiyanc ✅ | تاسیان
+</div>
+
+## tasiyanc — post 6791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩 @Tasiyanc ✅ | تاسیان
+</div>
 
 ## tasiyanc — post 6790
 
@@ -177,25 +197,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 دیگه پیشگیری بهتر از درمانه بوس
 
 دریافت کانفنینگ‌اختصاصی〽️
-</div>
-
-## tasiyanc — post 6768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شرمنده ادمین تبادل پستهارو اشتباهی زده ❤️
 </div>
 

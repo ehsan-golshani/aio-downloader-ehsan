@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/04/17 08:13
+📅 آخرین بروزرسانی: 1405/04/17 10:54
 
 ---
+
+## ProxyMTProto — post 48003
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ge.nowabst.net
+Port: 853
+Secret: eefdf6175e50069c01bd22d786534aa2b26164732e78352e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 15
+Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48001
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 51.250.69.99
+Port: 443
+Secret: eea20cccd3366ea459a8057d24b1202153617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48000
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47999
 
@@ -145,42 +181,6 @@ Secret: ee2d3817c6b2bf469fb5064e6cb4b19790617669746f2e7275
 Server: 15.chunkycorp.shop
 Port: 443
 Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47983
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rec.nolags.pw
-Port: 443
-Secret: dd0603553657b3f54b6bff0d3759e8db1d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47982
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47981
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: feed.proxytg.live
-Port: 443
-Secret: ee7c1dc73472aff6b273c603d9713900d1666565642e70726f787974672e6c697665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47980
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: desk.proxytg.live
-Port: 443
-Secret: ee7930091e4348bb260a09c61562aa661a6465736b2e70726f787974672e6c697665
 @ProxyMTProto
 </div>
 
