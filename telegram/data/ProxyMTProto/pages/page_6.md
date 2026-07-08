@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/17 15:26
+📅 آخرین بروزرسانی: 1405/04/17 18:06
 
 ---
+
+## ProxyMTProto — post 48799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eee2c4f26e0246dea5eb84f95c325ea46062343233353730312e657468657265616c76706e2e756b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: best-sellerst.co.uk.
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad3.arixo.shop
+Port: 443
+Secret: ee722fba8d97b9027b5fc4deb041b290cb6164332e617269786f2e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48794
 
@@ -136,51 +181,6 @@ Secret: eee9b3ba71e9986a0601aaf9d8ec29b57c70726f78792e67617264656e2d74726f6c6c2e
 Server: should.be.wake.up.ir.yfdhjderkig.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48779
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: br.nowabst.net
-Port: 853
-Secret: eefdf6175e50069c01bd22d786534aa2b2766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 92.246.87.243
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.savelyev.click
-Port: 443
-Secret: ee5098400982be6b8f6bf938e483f64dd463646e2e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48776
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: FgMBAgABAAH8AxOG4kw63Q
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48775
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.savelyev.click
-Port: 443
-Secret: ee5098400982be6b8f6bf938e483f64dd463646e2e736176656c7965762e636c69636b
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/04/17 15:26
+📅 آخرین بروزرسانی: 1405/04/17 18:06
 
 ---
+
+## ProxyMTProto — post 48197
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 167.233.54.153
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: secure.gorbushkin.click
+Port: 443
+Secret: ee5ac55ea6f98997da2b0bd12591029feb7365637572652e676f72627573686b696e2e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 65.109.147.39
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48194
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn.toconvel.digital
+Port: 443
+Secret: eeddeeeeb0dda28d2a517ff1c71036f2c663646e2e746f636f6e76656c2e6469676974616c
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.nilmart.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48192
 
@@ -136,51 +181,6 @@ Secret: eeddeeeeb0dda28d2a517ff1c71036f2c663646e2e746f636f6e76656c2e646967697461
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48177
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy54.arixo.shop
-Port: 443
-Secret: ee8e76a8074d7aa4d1b5d279e3d2eecc82617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: For-best-download-iran.ir.gybshdjls.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48175
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy53.arixo.shop
-Port: 443
-Secret: eee790bfa33677c32f4794a52828bc229a617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48174
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: best-sellerst.co.uk.
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48173
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fast.garden-troll.life
-Port: 443
-Secret: eec90c608f031e8b582a2047afce34175f666173742e67617264656e2d74726f6c6c2e6c696665
 @ProxyMTProto
 </div>
 
