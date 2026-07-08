@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/04/17 21:38
+📅 آخرین بروزرسانی: 1405/04/18 00:55
 
 ---
+
+## tasiyanc — post 5877
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+ سه سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5873
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب خب.. یه کانفیگ اوکی کردیم برای همه اپراتور ها جوابه و همه چیو پرسرعت میاره. فقط برای 500 نفر اولی که سریعترن در دسترسه! ⚠️ دریافت رایگان کانفیگ اختصاصی
+</div>
 
 ## tasiyanc — post 5872
 
@@ -154,17 +177,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پیام‌ها تمومی نداره ، همچنان ما قطعیم😁❤️
-</div>
-
-## tasiyanc — post 5851
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دمت گرم داش
-</div>
-
-## tasiyanc — post 5850
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایول کارت حرف نداره تاسیان عشقی
 </div>
 

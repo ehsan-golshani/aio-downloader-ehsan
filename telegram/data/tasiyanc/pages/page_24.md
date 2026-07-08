@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/04/17 21:38
+📅 آخرین بروزرسانی: 1405/04/18 00:55
 
 ---
+
+## tasiyanc — post 6945
+
+<div align="center"><video src="files/post_6945_tasiyanc_6945.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6945_tasiyanc_6945.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 
+📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال 
+⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز June 15
+روز جهانی گل گرفتنه 💐
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6943
 
@@ -184,29 +212,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 🔹
 
 
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6921
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑ساب لینک اختصاصی تاسیان
-👑
-
-https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-اینو بزنید 🔐
-🔐 هر ۴ ساعت کانفیگا آپدیت میشن
-بعد از ۴ ساعت update subscription بزنید تا آپدیت شن
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟢 ساب لینک اختصاصی تاسیان 🔹پر سرعت و نامحدود 🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt 
-🔐 🔐 
 ✔️ T.me/Tasiyanc 
 ✅
 </div>
