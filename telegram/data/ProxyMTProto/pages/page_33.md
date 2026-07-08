@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/04/17 00:48
+📅 آخرین بروزرسانی: 1405/04/17 08:13
 
 ---
+
+## ProxyMTProto — post 48239
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Just-iraninan.com.the-nice-mtproto.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48238
 
@@ -172,15 +181,6 @@ Secret: ee0d12d8f206a08b06eced9a104734a824676f2e616e7469747370752e636f6d
 Server: football.world-pro.co.uk
 Port: 25565
 Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: edge.librava.click
-Port: 443
-Secret: eeb72954885d6fd069f16372f54e9c9939656467652e6c6962726176612e636c69636b
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/04/17 00:48
+📅 آخرین بروزرسانی: 1405/04/17 08:13
 
 ---
+
+## ProxyMTProto — post 47839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: boost.flowstreamhub.site
+Port: 8443
+Secret: ee7ee0a641b78ecc8d210e47981904a50a626f6f73742e666c6f7773747265616d6875622e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47838
 
@@ -174,15 +183,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
 Server: 89.125.49.250
 Port: 443
 Secret: eeb40eda3c7b6561f0ef22eb54b49eacf477622e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47819
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 61016
-Secret: 7nnnAQIAAQAH8AMDhuJMOt0%3D
 @ProxyMTProto
 </div>
 
