@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/04/18 00:55
+📅 آخرین بروزرسانی: 1405/04/18 02:25
 
 ---
+
+## tasiyanc — post 6285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد cm  👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش
+⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+MCI - SamanTel - wifi تست شده
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 6283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الان کسی از چنل رد شه میگه پشمام ریکشن تاسیانو نگا
+</div>
+
+## tasiyanc — post 6282
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+4سرور پرومیوم  سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6281
 
@@ -193,40 +234,5 @@ trojan://bb45f73f-795b-4a05-a8e0-ba717bce87e3@104.19.229.21:443?path=%2Fid-tksi&
 
 ✔️ @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6261
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارو 
-🦦
-</div>
-
-## tasiyanc — post 6260
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP OCTOPUS SV⚡🐙.npvt
-</div>
-
-## tasiyanc — post 6259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور  سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-BabyGirl 🪐.npvt
 </div>
 
