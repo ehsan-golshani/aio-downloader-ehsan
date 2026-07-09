@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/04/19 00:08
+📅 آخرین بروزرسانی: 1405/04/19 03:15
 
 ---
+
+## tasiyanc — post 5917
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی🔥🇩🇪.npvt
+</div>
+
+## tasiyanc — post 5916
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  🛜🛜🛜
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5915
 
@@ -203,25 +226,5 @@ New⚡Fast.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5894
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-channel@TASIYANC.ovpn
-</div>
-
-## tasiyanc — post 5893
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  
-♻️
-
-تست شده 
-🚀
-Username vpnbook
-Password 8zw5j9h
-
-@Tasiyanc ✅
 </div>
 

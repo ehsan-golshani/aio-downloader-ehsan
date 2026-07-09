@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/04/19 00:08
+📅 آخرین بروزرسانی: 1405/04/19 03:15
 
 ---
+
+## tasiyanc — post 6326
+
+<div align="center"><img src="files/post_6326_tasiyanc_6326.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+DE - Fast 🇩🇪⚡.npvt
+</div>
+
+## tasiyanc — post 6325
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی آلمان 🇩🇪
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  
+⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6324
 
@@ -176,28 +201,5 @@ Password : @Tasiyanc  ⏩
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ما ک از اولش گفتم Ovpn تو حیطه من نی و نمیزارم ،چیزای ام ک میزاریم از Ovpn بیشتر از vpnbook یا vpnjantit که اشتراکشو دارم
-</div>
-
-## tasiyanc — post 6300
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
-</div>
-
-## tasiyanc — post 6298
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-2سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها 
-⏩
-
-✔️ @Tasiyanc ✅
 </div>
 
