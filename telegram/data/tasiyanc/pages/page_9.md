@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/04/18 20:20
+📅 آخرین بروزرسانی: 1405/04/18 22:08
 
 ---
+
+## tasiyanc — post 7531
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc ⚡ Fast ⁰³.nm
+</div>
+
+## tasiyanc — post 7530
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 6 سرور سرعتی همه نت ها
+کانفیگ حجم نامحدود نپسترنت🚀
+
+آموزش اتصال ⛓
+
+Password :  @Tasiyanc ❤️
+
+ ✅@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7527
+
+<div align="center"><video src="files/post_7527_tasiyanc_7527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7527_tasiyanc_7527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+۳ سرور  سرعتی پرمیوم 
+⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 
+🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7526
 
@@ -185,41 +227,5 @@ T.me/Tasiyanc ✅
 
 💘 دانلود بدون سانسور فیلم 💘
 @Tasiyanc
-</div>
-
-## tasiyanc — post 7483
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی فیلم Protector 2026 📹 🔹ژانر : اکشن ، درام ، جنایی محصول 🇺🇸 با هنرنمایی Milla Jovovich ⭐️ کارگردان Adrian Grünberg 🔺 خلاصه داستان محافظ، زندگی آرام نیکی، قهرمان سابق جنگ، زمانی در هم میشکند که دخترش ربوده میشود. او که ناخواسته وارد دنیای زیرزمینی…
-</div>
-
-## tasiyanc — post 7482
-
-<div align="center"><img src="files/post_7482_tasiyanc_7482.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی فیلم Protector 2026 📹
-
-🔹ژانر : اکشن ، درام ، جنایی
-
-محصول 🇺🇸
-
-با هنرنمایی Milla Jovovich ⭐️
-کارگردان Adrian Grünberg 🔺
-
-خلاصه داستان
-محافظ، زندگی آرام نیکی، قهرمان سابق جنگ، زمانی در هم میشکند که دخترش ربوده میشود. او که ناخواسته وارد دنیای زیرزمینی جنایت شده و همزمان تحت تعقیب پلیس و نیروهای نظامی است، باید برای نجات فرزندش مبارزه کند …
-💘 دانلود دوبله فیلم بدون سانسور 💘
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 7481
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگر خاک ایران برفتد ز دست
-هنوز آخرین پر سیمرغ هست
-بگیرید ، بگیرید تیر و کمان را به دست
-جهنم بسازید بر هرچه پست .
 </div>
 

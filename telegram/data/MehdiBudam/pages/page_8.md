@@ -1,8 +1,25 @@
 # آرشیو کانال MehdiBudam - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/18 14:49
+📅 آخرین بروزرسانی: 1405/04/18 22:06
 
 ---
+
+## MehdiBudam — post 8105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از متد تور استفاده میکنید؟
+</div>
+
+## MehdiBudam — post 8102
+
+<div align="center"><img src="files/post_8102_MehdiBudam_8102.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگر هنوز دسترسی به اینترنت جهانی براتون باز نشده و مجبورید از DNS Tunelling استفاده کنید:
+با قابلیت جدید DNS Pool دیگه نیازی نیست دستی دنبال DNS بگردید یا اسکن کنید. می‌تونید تا ۱۰۰۰ تا DNS به برنامه بدید تا خودش قبل اتصال تستشون کنه و ۱۰ تا از بهترین‌ها رو خودکار براتون انتخاب کنه.
+
+🕊@slipnet_app
+</div>
 
 ## MehdiBudam — post 8101
 
@@ -189,17 +206,5 @@
 - نسخه armeabi-v7a: این نسخه برای گوشی‌ها و دستگاه‌های قدیمی‌تر که دارای پردازنده‌های ۳۲ بیتی ARM هستند، طراحی شده است.
 
 - نسخه x86_64: این فایل منحصراً برای نصب روی شبیه‌سازهای اندروید (مانند بلواستکس در کامپیوتر) و لپ‌تاپ‌های کروم‌بوک (Chromebooks) کاربرد دارد.
-</div>
-
-## MehdiBudam — post 8075
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه هنوز نمیتونید وصل شید ۳ تا سرور آخر و بقیه رو تست کنید.
-</div>
-
-## MehdiBudam — post 8074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-125,126,127 slipnet-bundle-enc://AcRs+ZhYNvAPJf6ViRG+EWReCFNI6egNY/ueiJvfEGx3/gxa9yZUjhl4PHH9WsfbSURE7i9HIWsc6K5cIJg0Se3nwt+NJQ7/z9KbQHFBzQ5Rtv2aGDD/T8bpZD9uXEwwdPB6GMAxkZw2qCd1aDPwpevE8UayiRSws8zdIXiJt3xx9e4z1FASHAKyxdhYjC+JgZ1MXGnHhcsUIW4aEMDpP33dI37I0…
 </div>
 

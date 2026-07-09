@@ -1,8 +1,32 @@
 # آرشیو کانال MehdiBudam - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/18 14:49
+📅 آخرین بروزرسانی: 1405/04/18 22:06
 
 ---
+
+## MehdiBudam — post 8145
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor28
+
+
+slipnet-enc://AbHR29fRQRnaGlGZxR/3KvyrigM6Qa9LjLYkyalWWSsExrPerdDnQzTquwCbar6IqD5+nP9APNtqZCM9oAs6XeCXcMrIwgwR0xe0Oj3oQ2Dqm7bQ/gEkCrA5FT6mfKa6UpK9ehkK5wMlZo7vi+VbDYVhbBz1Y12j8Y2xVNevPmUCDM1WRkZV6YHcW9t4FV2LJJ0s6Ck/ySWB/6sTrHVJtJUj36zl3od0IHDsIIvkwHFIhShnFCmSzkyUG/3A+DLTz+kpXeJDaUp89nvcenoYy+tjqnPEKuNkUS5UplgtjhnBAAGnU/s/5yKcXakGsT9xeRnPXfwWrtq6uZgnTuoJxQmIGkV9rlISVcTWqtu66qG6xmAS4I5qj6GJsFzs3bQc08Q6QtDbxyAGk8IL8kkuuLq06jSTWtk3SBvBNNQ/Ng1TR5FexzNgYshECeLW14WveaeWHuuDG0952uTvfWsp30OAsrlQksu4QEFul2EhcNaEpP2CmZwLCaRCJZ1MGipHnJW97KfbSKCSZMMU/cuOFauOkjiktMfUwqQKIHQT/aIQuv6KI70a0LvKla7wd5cYeyj/MhgL36kMYZkSGwHXioyKx7lfa6b5vDPwmLZR+BnOnvSzja5bXwrTHKOAjr9Ckggt3vt91RBKvfE7g+OhL7LsydPibnmBLMvRdQQt29v4elALlsSzA6t85ksSSHR/VO419RfEp4LlqvkoZwHTE1QTqaerIeephZFWIGpl
+
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8144
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor27
+
+
+slipnet-enc://Aa/sx3ZkUVM4wP3gnlNvmXo4pLJY9BN2uhvbTtwbIr+x2GN47Xj+qdxQaXGnIJ4Y6G5oSdJqb7TBVslVX7zZmwceKPr+YiGq/aLtgaIezkf4p7hHm9l1KZctXeekryVQHBg6j9VyVq4oPJI4734+siMchUl/et5dtweVh6nUhNfRZf6OGpsF+HU780YvJ2WbJ6pB0g0M3HR1YHgDQ1qt6aks5Hyu8sO247vYm6CtQf3fcxst/dbbNfIkQDTWNL6oM2lJC9RO0k5Bngk2F4MnojChjdlzQl6Frvmm7p1JSXLGbV4JS/+cJzMi9llPZSpGwZIv6x+3m89K2bzCa4rcp0AoU7rszFly/JZLCrxNhvGnPbIeVmucGRf/RiXsxhwg6hbHrj1ej3e0hg3Y5JGVAUGg4d/55iWWWgXOsEHE/SO/YrVp5vPis5JsNFKF/D5v9RGHCTgHNdkX76IdwYRKUw+pRNbUTb0W6bE97L70VPhCrHr/hlDlnkgiMiSxMYPNG3i0SYJbRbEuigokKYivFvKb2M9PJXoM7vO6Rum3zAh+751CPmhUTjuyaoa9M2ykkWvcgEh3x/oii3lVmM0/jmNoIR83xyqkGsbHqR7SFvrPl92Wz65ZwJ4iZfdGL+q35CxhM7/6sOnd7K2/CqFsoCuHKK7DK7IsaHWstTfR7xqy+Q5pOUTi+Eu8bWxkTEGdVIZE7sVUGBe8y0AOcRHI3lWzlieJlMTR/h/h7spC
+
+﻿
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8143
 
@@ -182,23 +206,5 @@ slipnet-enc://Abv+5Ov8/xXOdCDw8+UQoCK5YhF2V1jJH8Om0kMFLPowaybIyUN8o4LiE+GL8Iylc5
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Tor14 slipnet-enc://Ae01OTAJU4aYPHQ75hj7HbRwSBFIW2Mck5pIDbXW2/u2qkGAl8xsz8mrV1l4mHPLpEhNJoBuf4xpsj8hqpzYop/pPHTGyjYyT4rdche0S3PnpvavApuHQsYIw5bCiPY1Rt1/xx8i3wn8bSAYmJnUsw1eWDC6O57n59sgp8UyyTyZ3CA+M7kkfU4VYnUm5oAXlXGj8BeQF2GdGqoNm4eUHHbIswUewuUV2TEYspmm9r…
-</div>
-
-## MehdiBudam — post 8125
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tor14
-
-
-slipnet-enc://Ae01OTAJU4aYPHQ75hj7HbRwSBFIW2Mck5pIDbXW2/u2qkGAl8xsz8mrV1l4mHPLpEhNJoBuf4xpsj8hqpzYop/pPHTGyjYyT4rdche0S3PnpvavApuHQsYIw5bCiPY1Rt1/xx8i3wn8bSAYmJnUsw1eWDC6O57n59sgp8UyyTyZ3CA+M7kkfU4VYnUm5oAXlXGj8BeQF2GdGqoNm4eUHHbIswUewuUV2TEYspmm9rCXdnJyFgijL84hDLvROdgJZ4GETm2d/7o+OLpVy64VISntEgDRxk9rJI6u8E1LFNBCQTaLFNz9Vdky0mgP6uMc/iGRAik/1T4RSbtKZgyRq2waSp738jdOQEhNEQWlb/sglhT7c0Pl7m9T3y9flzaycutLIKTqUessPuRyTSVtstwIiV3g0vfiEq8/pkJIM+qok75nNXT+94qJVzOOJoUuPfZF5M5u0vVyCsJJvt46ak/yUqxUWipbU7MaB2iL9G3zm5NH8D6c4MZf4xTy3RULsaFdsf8gwyeHDbyShsYyQyh1pI9erH7lFmXDeBfZ7jj4ekgpxAcdeANCBse/xZBm4oJnaPzlRaH/FAz06oJ9ggstqWnZIBmsoCoIZJrWtuuPxnEgwmJZCLOpqvBIuxBiCbB3DJdzxJkPOOdm0Ts0iTC6bZMikF0n0n+S+zOPjxyzz9YjiBuPx7MhO5WlfKaJ67yLV2qgTSy6pLtekXdB3XasT1Tw24T0mspKkzZ/T3LqLQ==
-
-﻿
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان این تور های که گذاشته میشه همشون بریج هاشون متفاوته بخاطر همون برای بعضیا شاید وصل نشه نه اینکه مثل یه چنل دیگه که یدونه بریج پر سرعت پیدا کرده با همون چند‌تا تور گذاشته و همشون یکین و اگه یدونه Delete Duplicate بزنی کلا یدونه میمونه.
 </div>
 
