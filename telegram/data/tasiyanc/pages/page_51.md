@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/04/18 02:25
+📅 آخرین بروزرسانی: 1405/04/18 11:30
 
 ---
+
+## tasiyanc — post 6163
+
+<div align="center"><video src="files/post_6163_tasiyanc_6163.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6163_tasiyanc_6163.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  
+👑
+
+تست شده 
+🎚
+
+دانلود Wg tunnel 
+🕹
+
+آموزش ویدیویی 
+⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6161
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید 📱
+
+2سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها 
+⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6160
 
@@ -157,26 +196,6 @@ Jzzb 🔥Vip.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختصاصی وایرگارد  👑
-
-تست شده 🎚
-
-دانلود برنامه Wg tunnel 🕹
-
-آموزش ویدیویی ⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-vip 🚀🔥 @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6139
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد 👑
 
 تست شده 🎚
 

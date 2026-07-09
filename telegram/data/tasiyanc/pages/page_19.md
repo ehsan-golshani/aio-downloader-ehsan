@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/04/18 02:25
+📅 آخرین بروزرسانی: 1405/04/18 11:30
 
 ---
+
+## tasiyanc — post 7163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود مولتی لوکیشن
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7149
+
+<div align="center"><video src="files/post_7149_tasiyanc_7149.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7149_tasiyanc_7149.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Game DNS 
+🛒
+اختصاصی تاسیان
+8.20.247.20
+80.80.81.81
+76.76.2.2
+77.88.8.1
+223.6.6.6
+45.76.113.31
+
+
+🔑 DNS CHANGER 
+🕹
+
+آموزش استفاده 
+⏩
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7147
 
@@ -199,33 +244,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آماده باشید بریم‌چنتا سرور خفن بزاریم
-</div>
-
-## tasiyanc — post 7115
-
-<div align="center"><video src="files/post_7115_tasiyanc_7115.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7115_tasiyanc_7115.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-3سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود برنامه 
-🕹 IOS 📱 Android 
-
-آموزش اتصال ➡️
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرتغال رید ، مساوی کردیم
 </div>
 
