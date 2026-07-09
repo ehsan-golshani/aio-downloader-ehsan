@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/18 22:08
+📅 آخرین بروزرسانی: 1405/04/19 00:08
 
 ---
+
+## tasiyanc — post 7854
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ختم کلام
+
+از اونجایی ک رسالت ما وصل کردن مردم بود تو قطعیا و تو دوران وصل شدن اینترنت شاهد افت چنل و جذب نبودم خیلی چیزا ثابت شد برام ، پس لف و جذب مهم نیست برامون تو قطعی اینترنت، ما چنلو پرایوت خواهیم کرد عضو جدید نخواهیم پذیرفت و اونایی که الان کنارم هستن باید وصل باشن ❤️
+
+مجموعه تاسیان ❤️‍🔥
+
+آدرس پابلیک
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 7843
 
@@ -29,8 +42,6 @@
 <div align="center"><video src="files/post_7840_tasiyanc_7840.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7840_tasiyanc_7840.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7840_𝙈𝙪𝙡𝙩𝙞_𝙎𝙚𝙧𝙫𝙚𝙧'𝙨_𝙁𝙖𝙨𝙩☕⚡️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 𝙈𝙪𝙡𝙩𝙞_𝙎𝙚𝙧𝙫𝙚𝙧'𝙨_𝙁𝙖𝙨𝙩☕⚡️.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت 
@@ -240,15 +251,6 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 طبق گزارشات تایید نشده ترامپ با ناتو به توافق رسیده در ازای کمك آمریکا به اوکراین ، ناتو نیز کنار آمریکا به ایران حمله خواهد کرد
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7797
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نسخه شیر و خورشید قدیمی 👑
-آموزش اتصال
-
 @Tasiyanc ⭐️
 </div>
 

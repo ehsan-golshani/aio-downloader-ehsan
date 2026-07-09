@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/04/18 22:08
+📅 آخرین بروزرسانی: 1405/04/19 00:08
 
 ---
+
+## tasiyanc — post 5754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب بعدی تو راهه
+</div>
 
 ## tasiyanc — post 5753
 
@@ -185,13 +191,5 @@ vless://079c1b04-7ef9-4c49-8a7a-849a18ba7b9b@83.222.20.64:17910?security=reality
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💘💘💘
-</div>
-
-## tasiyanc — post 5731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 SamanTel
-trojan://7aXwJPnpAJ@yespaintstudio.rav-kraski.ru:50824?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%F0%9F%8C%A4%EF%B8%8F
-@Tasiyanc ☑️
 </div>
 
