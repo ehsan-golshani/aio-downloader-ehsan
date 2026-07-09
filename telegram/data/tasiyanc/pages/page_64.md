@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/04/18 11:30
+📅 آخرین بروزرسانی: 1405/04/18 14:50
 
 ---
+
+## tasiyanc — post 5818
+
+<div align="center"><img src="files/post_5818_tasiyanc_5818.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀 VIP SPEEEEEEEED.npvt
+</div>
+
+## tasiyanc — post 5817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوباره بگم؟
+</div>
 
 ## tasiyanc — post 5816
 
@@ -205,24 +219,5 @@ GM TASIYAN 💝
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fast ⚡.npvt
-</div>
-
-## tasiyanc — post 5796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡.npvt
-</div>
-
-## tasiyanc — post 5795
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈2سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
 </div>
 

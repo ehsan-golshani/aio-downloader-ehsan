@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/18 11:30
+📅 آخرین بروزرسانی: 1405/04/18 14:50
 
 ---
+
+## tasiyanc — post 6504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از عصر دارم بمب براتون آماده میکنم عشق کنین الان آماده شده
+</div>
+
+## tasiyanc — post 6503
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار رو از اینجا دنبال کنین + پروکسی
+@Tasiyanproxy 
+✅
+@Tasiyanproxy 
+✅
+@Tasiyanproxy 
+✅
+</div>
 
 ## tasiyanc — post 6502
 
@@ -213,18 +231,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جهت ارتباط با ادمین ها و تبادلات گپمون : https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا یکم اوضاع اوکی میشه مارو فراموش میکنین؟ 🤣
-</div>
-
-## tasiyanc — post 6469
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت ارتباط با ادمین ها و تبادلات گپمون :
-https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 

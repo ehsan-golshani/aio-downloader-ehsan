@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/04/18 11:30
+📅 آخرین بروزرسانی: 1405/04/18 14:50
 
 ---
+
+## tasiyanc — post 6644
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بهرحال منتی نیست ، به عشق شما ادامه میدیم 🦦
+</div>
+
+## tasiyanc — post 6640
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فکت عجیب : مردم ایران از چنلایی که سه ماه ۲۴ ساعت آنلاین بودن وصلشون کردن هیچ حمایتی نکردن و وقتی وصل شدن خیلیاشون لف دادن🤌😂
+</div>
 
 ## tasiyanc — post 6639
 
@@ -181,28 +193,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگای بالا ک گذاشتم همگی با سرعت وصلن ، درصورت فیلتر جدیدشو قرار میدیم ❤️
-</div>
-
-## tasiyanc — post 6583
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ تسنیم:
-
-هم اکنون یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه بمباران شد.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6581
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

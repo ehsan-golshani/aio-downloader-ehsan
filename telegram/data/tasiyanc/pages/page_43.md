@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/04/18 11:30
+📅 آخرین بروزرسانی: 1405/04/18 14:50
 
 ---
+
+## tasiyanc — post 6364
+
+<div align="center"><img src="files/post_6364_tasiyanc_6364.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡All Operators ⚡.npvt
+</div>
+
+## tasiyanc — post 6362
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡All Operators ⚡.npvt
+</div>
 
 ## tasiyanc — post 6361
 
@@ -182,17 +196,5 @@ FAST @Tasiyanc servers.txt
 بریزید ویتوباکس یا ویتوری پینگ بگیرید وصل شید 💚
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب تو راهه
-</div>
-
-## tasiyanc — post 6341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی کلاینت جدید VPN ساعت 18 🐾
 </div>
 
