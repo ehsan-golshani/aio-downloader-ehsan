@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/18 17:37
+📅 آخرین بروزرسانی: 1405/04/18 20:20
 
 ---
+
+## tasiyanc — post 7839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار جدید درباره تعویق امتحانات 👉 🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
+</div>
 
 ## tasiyanc — post 7838
 
@@ -216,11 +222,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ ترامپ : دستور لغو توافق و مذاکرات را صادر کردم
-</div>
-
-## tasiyanc — post 7793
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ ترامپ : آتش بس ایران به پایان رسید
 </div>
 

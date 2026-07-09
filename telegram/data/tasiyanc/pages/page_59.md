@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/04/18 17:37
+📅 آخرین بروزرسانی: 1405/04/18 20:20
 
 ---
+
+## tasiyanc — post 5956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+TS premium Servers 🌲⚡.npvt
+</div>
 
 ## tasiyanc — post 5955
 
@@ -145,23 +151,6 @@ TS premium Servers 🌲⚡.npvt
 📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
 
 5سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
-
-سرور  سرعتی🚀
 
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
 

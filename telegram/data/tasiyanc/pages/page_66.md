@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/04/18 17:37
+📅 آخرین بروزرسانی: 1405/04/18 20:20
 
 ---
+
+## tasiyanc — post 5775
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+CHATGBT ✅
+هم گویا رفع فیلتر شده
+</div>
 
 ## tasiyanc — post 5774
 
@@ -208,15 +215,5 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 
 🚀 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 5748
-
-<div align="center"><img src="files/post_5748_tasiyanc_5748.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-براتون یه فایل نپسترنت با ۶ تا کانفیگ درست کردیم ( عکس تستو ببینید برگاتون بریزه ) ❤️‍🔥
-
-دریافت کانفیگ نپسترنت ( رایگان )
 </div>
 
