@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/04/18 14:50
+📅 آخرین بروزرسانی: 1405/04/18 17:37
 
 ---
+
+## tasiyanc — post 6167
+
+<div align="center"><img src="files/post_6167_tasiyanc_6167.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Premium GOD SV 🚀🔥.npvt
+</div>
 
 ## tasiyanc — post 6166
 
@@ -194,19 +202,5 @@ Premium 💙BLUE.npvt
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6143
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  👑
-
-تست شده 🎚
-
-دانلود برنامه Wg tunnel 🕹
-
-آموزش ویدیویی ⏩
-
-@Tasiyanc ✅
 </div>
 
