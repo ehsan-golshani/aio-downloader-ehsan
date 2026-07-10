@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/04/19 18:41
+📅 آخرین بروزرسانی: 1405/04/19 22:26
 
 ---
+
+## tasiyanc — post 6855
+
+<div align="center"><video src="files/post_6855_tasiyanc_6855.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6855_tasiyanc_6855.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 
+👑
+
+حجم و کاربر نامحدود 
+🟢
+
+دانلود 
+📱 WG tunnel 
+🕹 iOS WG
+
+آموزش اتصال 
+⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6851
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 1.30 بامداد شروع بازی 🇧🇷 Brazil - 🇲🇦 Morocco @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6850
 
@@ -163,20 +192,5 @@ Qatar 🇶🇦 & Switzerland🇨🇭
 آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6821
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ:
-
-اگر توافق نشود؛ ما گزینه نهایی را در اختیار داریم؛ گزینه‌ای که امیدواریم هرگز دوباره مجبور به استفاده از آن نشویم
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6820
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ ترامپ در تروث : توافق فردا امضا می‌شود @Tasiyanc ✅
 </div>
 

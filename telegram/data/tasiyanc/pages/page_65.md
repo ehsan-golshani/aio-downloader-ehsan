@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/04/19 18:41
+📅 آخرین بروزرسانی: 1405/04/19 22:26
 
 ---
+
+## tasiyanc — post 5812
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا حق این سرور ۱۶ ریکشن است؟؟
+</div>
+
+## tasiyanc — post 5811
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+″رمز @Tasiyanc ″
+
+📱 ۵ سرور  سرعتی  اختصاصی تاسیان  📱
+
+✅ تست شده روی همه اپراتورا ✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5810
 
@@ -173,31 +198,5 @@ Fast ⚡.npvt
 🚨گزارشات از صدای انفجار در بندرعباس
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5790
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈3سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5789
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈2سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
 </div>
 

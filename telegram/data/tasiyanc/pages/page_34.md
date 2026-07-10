@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/04/19 18:41
+📅 آخرین بروزرسانی: 1405/04/19 22:26
 
 ---
+
+## tasiyanc — post 6663
+
+<div align="center"><video src="files/post_6663_tasiyanc_6663.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6663_tasiyanc_6663.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۴سرور سرعتی همه نت ها 
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 🕹 IOS 
+📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6660
+
+<div align="center"><img src="files/post_6660_tasiyanc_6660.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ تو مراسم افتتاحیه جام جهانی امشب راس ساعت 21:00
+شکیرا، دنی اوشن، جی بالوین، بلیندا و لیسا توش قراره اجرا داشته باشن
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6659
 
@@ -214,17 +248,5 @@ vless://931729a8-3c20-4841-89a1-f18dc9ce0a6f@cdn7-09.vk-cdnvideo.com:8443?securi
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6634
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-غربالگری چنل ، انگل زدایی چنل ✅
-</div>
-
-## tasiyanc — post 6632
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Homayoun Shajarian & Sohrab Pournazeri – Irane Man
 </div>
 
