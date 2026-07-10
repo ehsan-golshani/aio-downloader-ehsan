@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 6878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متاسفانه قضیه خیلی جدیه ( اختلال شدید رو تمام اپراتورا )
+</div>
 
 ## tasiyanc — post 6877
 
@@ -214,11 +220,5 @@ T.me/Tasiyanc ✅
 ساعت 1.30 بامداد شروع بازی
 🇧🇷 Brazil - 🇲🇦 Morocco
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6849
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بزنید نوش جونتون
 </div>
 

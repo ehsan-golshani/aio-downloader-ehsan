@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 6047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نزنه رسانه ای میکنم
+</div>
 
 ## tasiyanc — post 6046
 
@@ -122,12 +128,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دقیقا رفیقم اینجوری شد
-</div>
-
-## tasiyanc — post 6024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نصب نکنید دوستان
-جدی میپرونه
 </div>
 

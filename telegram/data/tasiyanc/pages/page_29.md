@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 6817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ در تروث : توافق فردا امضا می‌شود
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6816
 
@@ -218,21 +225,6 @@ Vahid online
 </div>
 
 ## tasiyanc — post 6788
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6787
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑

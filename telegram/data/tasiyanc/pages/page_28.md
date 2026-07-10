@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 6849
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بزنید نوش جونتون
+</div>
 
 ## tasiyanc — post 6847
 
@@ -170,12 +176,5 @@ Qatar 🇶🇦 & Switzerland🇨🇭
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قیمت هر یک دلار هم اکنون ۱۷۰ تومن
-</div>
-
-## tasiyanc — post 6817
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ ترامپ در تروث : توافق فردا امضا می‌شود
-@Tasiyanc ✅
 </div>
 

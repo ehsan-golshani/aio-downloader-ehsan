@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 7655
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی 🍑 🤬🍆
+</div>
 
 ## tasiyanc — post 7654
 
@@ -152,11 +158,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تیم انور سادات فقید 2 , استرالیا 1
-</div>
-
-## tasiyanc — post 7622
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید برد تیم بزرگ مصر میراث انور سادات فقید رفیق واقعی ایرانیان
 </div>
 

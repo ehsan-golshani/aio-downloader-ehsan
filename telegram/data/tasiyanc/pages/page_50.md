@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 6205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP 🚀@Tasiyanc GhdMethod .conf
+</div>
 
 ## tasiyanc — post 6204
 
@@ -185,15 +191,5 @@ GANG 🇳🇱🇬🇧🚀 (1).npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ریکشن چنگی به دل نمیزنه نپستر بزاریم
-</div>
-
-## tasiyanc — post 6178
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 📱
-آموزش⏩
-@Tasiyanc ✅
 </div>
 

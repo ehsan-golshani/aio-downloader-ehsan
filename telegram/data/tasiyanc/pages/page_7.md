@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 7622
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به امید برد تیم بزرگ مصر میراث انور سادات فقید رفیق واقعی ایرانیان
+</div>
 
 ## tasiyanc — post 7621
 
@@ -160,17 +166,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این کاپل امروز رفتن بالای empire state و پسره از دختره خواستگاری کرد چقدررر خفن و سکسی بود @TasiyanProxy✅
-</div>
-
-## tasiyanc — post 7580
-
-<div align="center"><img src="files/post_7580_tasiyanc_7580.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کاپل امروز رفتن بالای empire state و پسره از دختره خواستگاری کرد
-
-چقدررر خفن و سکسی بود
-
-@TasiyanProxy✅
 </div>
 

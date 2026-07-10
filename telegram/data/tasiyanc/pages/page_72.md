@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 5632
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور تست شده همه اپراتورا⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5631
 
@@ -158,11 +171,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
-</div>
-
-## tasiyanc — post 5600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥹💋 fadatooooooooooooonnn
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 6682
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با توجه به اخبار توافق حتمی می‌باشد ، البته قطعی نیست
+</div>
 
 ## tasiyanc — post 6681
 
@@ -192,11 +198,5 @@ Fotmob iOS
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6658
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطورید رو به راهید؟
 </div>
 

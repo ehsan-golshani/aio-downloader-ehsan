@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 6521
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ Premium ⚡.npvt
+</div>
 
 ## tasiyanc — post 6520
 
@@ -215,11 +221,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️
-</div>
-
-## tasiyanc — post 6484
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حواسم نبود ، ریکشن چرا نزدید؟ 😐
 </div>
 

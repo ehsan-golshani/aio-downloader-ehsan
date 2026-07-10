@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 5999
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده 🚀
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5998
 
@@ -182,12 +193,5 @@ Create openvpn
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گپ تاسیان 🦦
-https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 

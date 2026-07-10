@@ -1,8 +1,12 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 5737
+
+<div align="center"><img src="files/post_5737_tasiyanc_5737.jpg" alt="Photo"></div>
 
 ## tasiyanc — post 5736
 
@@ -187,12 +191,5 @@ vless://20ecee51-1044-4be3-89a9-f3c700425ead@45.67.230.230:443?security=reality&
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 🥝.npvt
-</div>
-
-## tasiyanc — post 5713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد اتصال در Npv tunnel
-وارد تلگرام یا .. شوید نیاز نی پینگ بگیرید ❤️‍🔥
 </div>
 

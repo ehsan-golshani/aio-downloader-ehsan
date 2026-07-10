@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/04/19 12:30
+📅 آخرین بروزرسانی: 1405/04/19 15:43
 
 ---
+
+## tasiyanc — post 6407
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شخص خودم فعالیتی تو روبیکا نخواهم داشت با توجه به اینکه ۳ تا اکانتم مسدوده ولی ادمینای تلگرام تو چنل و گروه روبیکا میگم کانفیگارو بفرستن در صورت قطعی
+https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
+</div>
 
 ## tasiyanc — post 6406
 
@@ -204,11 +211,5 @@
 😬Password :″  @Tasiyanc  ″
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6383
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[Fast] ⚡ @Tasiyanc.npvt
 </div>
 
