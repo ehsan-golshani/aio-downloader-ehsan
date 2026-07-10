@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/20 01:21
+📅 آخرین بروزرسانی: 1405/04/20 02:21
 
 ---
+
+## tasiyanc — post 7054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت دلار هم اکنون 155000
+</div>
+
+## tasiyanc — post 7052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختصاصی Ovpn  📶
+
+تست شده تمام نتها 
+🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7050
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی با نتیجه مساوی پایان یافت
+</div>
 
 ## tasiyanc — post 7047
 
@@ -188,30 +217,5 @@ matador ⚡ Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وای ببینید چی پیدا کردمه😂
-</div>
-
-## tasiyanc — post 7002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-۲ سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7001
-
-## tasiyanc — post 6996
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی های بعدی 22.30 بلژیک - مصر بامداد 4.30 نیوزلند - تیم ملی @Tasiyanc ✅
 </div>
 
