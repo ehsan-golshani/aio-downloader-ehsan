@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/20 00:30
+📅 آخرین بروزرسانی: 1405/04/20 01:21
 
 ---
+
+## tasiyanc — post 7444
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ آغاز حملات ایالات متحده به ایران
+</div>
 
 ## tasiyanc — post 7443
 
@@ -191,11 +197,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خدایی گل خوبی زد رامین
-</div>
-
-## tasiyanc — post 7415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللللللللللللل رامین
 </div>
 

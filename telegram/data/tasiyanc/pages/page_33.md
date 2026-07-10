@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/04/20 00:30
+📅 آخرین بروزرسانی: 1405/04/20 01:21
 
 ---
+
+## tasiyanc — post 6695
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جام جهانی - 5.30 صبح 🏆
+
+بازی کره🇰🇷 - چک 🇨🇿
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6694
 
@@ -177,12 +186,5 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نیویورک پست : ترامپ الان اعلام کرد توافق نهایی شده و تمومه @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6672
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک پست : ترامپ الان اعلام کرد توافق نهایی شده و تمومه
-@Tasiyanc ✅
 </div>
 

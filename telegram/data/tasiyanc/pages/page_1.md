@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/20 00:30
+📅 آخرین بروزرسانی: 1405/04/20 01:21
 
 ---
+
+## tasiyanc — post 7890
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای فرزندانی که سهمشان از وطن یک گلوله بود 🖤
+
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 7884
 
@@ -310,11 +318,5 @@
 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جدید درباره تعویق امتحانات 👉 🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
 </div>
 

@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/04/20 00:30
+📅 آخرین بروزرسانی: 1405/04/20 01:21
 
 ---
+
+## tasiyanc — post 7526
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیما:
+اگر ترامپ را می‌کشتیم؛ آمریکا با ما مذاکره می‌کرد؟!
+</div>
 
 ## tasiyanc — post 7525
 
@@ -214,11 +221,5 @@ T.me/Tasiyanc ✅
 هنوز آخرین پر سیمرغ هست
 بگیرید ، بگیرید تیر و کمان را به دست
 جهنم بسازید بر هرچه پست .
-</div>
-
-## tasiyanc — post 7480
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ESPRESSO 🔥☕.npvt
 </div>
 
