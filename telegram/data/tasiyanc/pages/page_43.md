@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/04/19 22:26
+📅 آخرین بروزرسانی: 1405/04/20 00:30
 
 ---
+
+## tasiyanc — post 6396
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آغاز عملیات وعده صادق ۵
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6394
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨فووووووری
+حملات موشکی سپاه به اسرائیل
+@Tasiyanc
+</div>
+
+## tasiyanc — post 6393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨حمله موشکی سپاه از کرمانشاه هم اکنون
+@Tasiyanc
+</div>
+
+## tasiyanc — post 6392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️
+</div>
+
+## tasiyanc — post 6391
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووووورییییییی حمله کردننننننن
+</div>
+
+## tasiyanc — post 6390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدا و سیما :
+
+شهر نبطیه لبنان در حال سقوط است
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 6389
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اضطراریه و هر لحظه ممکنه به خاطر شرایط جنگی اینترنت کل کشور قطع بشه! وقت رو تلف نکنید. برای اینکه ارتباطمون کاملاً قطع نشه، ۲ تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه اضطراری براتون آماده کردیم. ​تأکید می‌کنیم: همین الان، تا قبل از اینکه دسترسی‌ها…
+</div>
 
 ## tasiyanc — post 6386
 
@@ -172,81 +222,5 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر ❤️
-</div>
-
-## tasiyanc — post 6365
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🔝
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 🍏
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6364
-
-<div align="center"><img src="files/post_6364_tasiyanc_6364.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡All Operators ⚡.npvt
-</div>
-
-## tasiyanc — post 6362
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡All Operators ⚡.npvt
-</div>
-
-## tasiyanc — post 6361
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور   سرعتی پرمیوم 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
-
-دانلود  NPV tunnel  🌐
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6360
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Speed ⚡ One.npvt
-</div>
-
-## tasiyanc — post 6359
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-5سرور   سرعتی تست شده با سامانتل🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
-
-دانلود  NPV tunnel  🌐
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6358
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی ⚡ sv 3.npvt
 </div>
 

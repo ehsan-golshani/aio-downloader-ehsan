@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/19 22:26
+📅 آخرین بروزرسانی: 1405/04/20 00:30
 
 ---
+
+## tasiyanc — post 7706
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🐐 بعضی‌ها جام می‌برند، بعضی‌ها رکورد می‌شکنند؛
+اما فقط یک نفر معنای «GOAT» را تغییر داد...
+کریستیانو رونالدو؛
+نامی که از تاریخ فوتبال پاک نخواهد شد.
+پایان یک جام جهانی، اما نه پایان یک افسانه.
+CR7 GOAT Forever 🇵🇹❤️‍🔥
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7705
+
+<div align="center"><img src="files/post_7705_tasiyanc_7705.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پایان یک اسطوره CR7 💔🤔
+@Tasiyanc
+</div>
+
+## tasiyanc — post 7704
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رونالدو پر افتخارترین بازیکن جهان
+تا ابد در قلب ما خواهی بود
+</div>
+
+## tasiyanc — post 7702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانیا زد 💔
+</div>
+
+## tasiyanc — post 7701
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسطوره بچگی هامون امشب بازی حساسی داره و این آخرین جام جهانی Goat هست
+</div>
+
+## tasiyanc — post 7700
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لبیك یا رونالدو ، امیدوارم امشب خوشحال باشی ❤️ 7
+</div>
+
+## tasiyanc — post 7699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب بازی حساس ساعت 22:30 🏆
+
+🔵 Spain 🇪🇸 Portugal 🇵🇹 🐯
+</div>
 
 ## tasiyanc — post 7698
 
@@ -161,79 +216,5 @@ VIP 🎯 @Tasiyanc.nm
 💘 دانلود زبان اصلی 💘
 با ۴ کیفیت متفاوت😍
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️ 💘 دریافت کانفیگ👈 💘
-</div>
-
-## tasiyanc — post 7678
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️
-
-💘 دریافت کانفیگ👈 💘
-</div>
-
-## tasiyanc — post 7674
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-4 سرور سرعتی حجم و کاربر نامحدود ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال به اینجکتور ✨
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-
-@Tasiyanc | اتصال امن ✅
-</div>
-
-## tasiyanc — post 7673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آخر اسم چنل کلمه VPN اضافه شد
-</div>
-
-## tasiyanc — post 7666
-
-<div align="center"><img src="files/post_7666_tasiyanc_7666.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡ Unlimited.npvt
-</div>
-
-## tasiyanc — post 7665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا 😍
-</div>
-
-## tasiyanc — post 7664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-4سرور سرعتی پرمیوم متد جدید 
-⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
- 
-✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 

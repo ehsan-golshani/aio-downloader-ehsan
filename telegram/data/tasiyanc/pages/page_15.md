@@ -1,8 +1,84 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/04/19 22:26
+📅 آخرین بروزرسانی: 1405/04/20 00:30
 
 ---
+
+## tasiyanc — post 7325
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ دارک تانل 🇮🇹 Milan📍
+
+
+برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
+
+
+دانلود Dark Tunnel  🕹
+
+
+آموزش اتصال به سرور دارک ⏩
+
+
+✅@Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 7323
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود NPV لوکیشن Nuremberg 🇩🇪
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ ✅@Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 7322
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV لوکیشن 🇩🇪
+
+3سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ ✅@Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 7321
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دبل کرد حضرت عشق
+</div>
+
+## tasiyanc — post 7319
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گلللللللللللللللل
+</div>
+
+## tasiyanc — post 7318
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روناااااااااالدوووووووووووو زد
+</div>
+
+## tasiyanc — post 7317
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡@Tasiyanc⚡️.ovpn
+</div>
 
 ## tasiyanc — post 7316
 
@@ -141,59 +217,4 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 
 ✅ T.me/Tasiyanc
 </div>
-
-## tasiyanc — post 7291
-
-<div align="center"><img src="files/post_7291_tasiyanc_7291.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪🚀 Full Fast⚡.npvt
-</div>
-
-## tasiyanc — post 7290
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن Nuremberg🇩🇪
-
-4سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7289
-
-## tasiyanc — post 7288
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امیدوارم مافیای بورنو هرناندز و برناردو سیلوای احمق فقط یه ذره از بازیکنای آرژانتین یاد بگیرن و به کاپیتانشون (Cr7) اندازه بازیکنای آرژانتین اهمیت بدن
-</div>
-
-## tasiyanc — post 7287
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیونل مسی 🐐 نابغه تمام عیار فوتبال جهان امشب هم دبل کرد ، بازی قبلی هم هتریک کرده بود
-</div>
-
-## tasiyanc — post 7285
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
-
-برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
-
-دانلود Dark Tunnel  🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7284
 
