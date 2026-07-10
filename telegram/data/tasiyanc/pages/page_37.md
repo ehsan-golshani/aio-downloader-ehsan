@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/19 03:15
+📅 آخرین بروزرسانی: 1405/04/19 12:30
 
 ---
+
+## tasiyanc — post 6545
+
+<div align="center"><video src="files/post_6545_tasiyanc_6545.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6545_tasiyanc_6545.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👍 
+🔴ترامپ درباره ایران:
+
+ما به آن‌ها حمله خواهیم کرد و بسیار شدید حمله خواهیم کرد.
+
+ما بمباران را از سر می‌گیریم. ما حق انجام این کار را داریم. آن‌ها هلیکوپتر ما را سرنگون کردند.
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6544
+
+<div align="center"><video src="files/post_6544_tasiyanc_6544.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6544_tasiyanc_6544.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+👍 ترامپ: امروز بار دیگر حمله سنگینی به ایران خواهیم کرد .
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 6543
 
@@ -177,31 +207,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡ Premium ⚡.npvt
-</div>
-
-## tasiyanc — post 6520
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور متد جدید سرعتی🚀
-
-نامحدود  - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6516
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+RTGtcYWb8HdkNjdk
-گپ تحلیل گران جنگ ( تاسیان) 😂
 </div>
 

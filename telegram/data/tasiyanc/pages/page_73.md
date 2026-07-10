@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/04/19 03:15
+📅 آخرین بروزرسانی: 1405/04/19 12:30
 
 ---
+
+## tasiyanc — post 5599
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خیلی خوبن🥹
+</div>
+
+## tasiyanc — post 5598
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من فقط با نپستر این چنل وصلم
+</div>
 
 ## tasiyanc — post 5597
 
@@ -169,17 +181,5 @@
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو ده مین ۱۰۰ تا فور 😐
-</div>
-
-## tasiyanc — post 5568
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نامحدودن بستگی داره چقد سرور شلوغ باشه
 </div>
 

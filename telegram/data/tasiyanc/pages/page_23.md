@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/19 03:15
+📅 آخرین بروزرسانی: 1405/04/19 12:30
 
 ---
+
+## tasiyanc — post 7013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNToxa1ZyMEtBVElKSTdtd09G@admin.c1.havij.co:443#%40Tasiyanc%20%F0%9F%94%A5
+GB 🇬🇧
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7012
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+matador ⚡ Fast.npvt
+</div>
 
 ## tasiyanc — post 7010
 
@@ -238,20 +254,5 @@ T.me/Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ متد اختصاصی httpCustum میزارم تست کنید
-</div>
-
-## tasiyanc — post 6979
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ متد اختصاصی httpCustum میزارم تست کنید
-</div>
-
-## tasiyanc — post 6965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 سرور سرعتی NPV 
-🌟
-T.me/Tasiyanc 
-✅
 </div>
 

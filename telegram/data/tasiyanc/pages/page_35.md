@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/04/19 03:15
+📅 آخرین بروزرسانی: 1405/04/19 12:30
 
 ---
+
+## tasiyanc — post 6622
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعت سرویس ساب نامحدود ک براتون گذاشتیم 🚀 داخل چنل پروکسی پین شده ❤️ https://t.me/+v0wRP5SGNrg5MThk 👆
+</div>
+
+## tasiyanc — post 6621
+
+<div align="center"><img src="files/post_6621_tasiyanc_6621.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk
+</div>
 
 ## tasiyanc — post 6620
 
@@ -176,24 +190,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 PASSWORD 🔑 : @Tasiyanc
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6570
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 ⭕️هگست : اگر لازم باشد با بمب‌ها مذاکره کنیم، با بمب‌ها مذاکره خواهیم کرد.
-ما در این کار بسیار ماهریم
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تکمیلی
-
-🇺🇸⭕️ هگست:
-ایران فرصتی برای انجام یک معامله عالی دارد. آنها تمایلی به انجام آن نداشته‌اند. بمب‌ها به صورت ضربه‌ضربه بر روی تأسیسات کلیدی در ایران از سوی آمریکا فرود خواهند آمد؛ این کار برای شروع مجدد جنگ نیست بلکه برای تعیین شرایط یک معامله است.
-@Tasiyanc ✅
 </div>
 

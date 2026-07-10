@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/04/19 03:15
+📅 آخرین بروزرسانی: 1405/04/19 12:30
 
 ---
+
+## tasiyanc — post 6277
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده با سامانتل و ایرانسل🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6276
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم ⏩ @TasiyanProxy ⏩ @TasiyanProxy
+</div>
 
 ## tasiyanc — post 6275
 
@@ -206,23 +227,5 @@ BabyGirl 🪐.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🪐🇩🇪 @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6252
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐🇩🇪 @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6251
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB سرور آلمان  👑
-
-دانلود  Wg tunnel 🕹
-
-آموزش⏩
-
-@Tasiyanc ✅
 </div>
 

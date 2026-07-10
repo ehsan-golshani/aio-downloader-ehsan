@@ -1,8 +1,62 @@
 # آرشیو کانال ProxyMTProto - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/04/19 09:18
+📅 آخرین بروزرسانی: 1405/04/19 12:28
 
 ---
+
+## ProxyMTProto — post 47730
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 15
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 79.137.196.223
+Port: 7443
+Secret: eeeeb30662ee79541fb143515ad872d2e9dd7777772e636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47728
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 72.56.87.28
+Port: 443
+Secret: 7sEXmKsAiDG0dAZsnh6_XHZhdml0by5ydQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47727
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: vktop.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47726
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r29.proxytg.space
+Port: 8443
+Secret: ee5b741234768d8dda7d1c17e7e7cff98a7232392e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47725
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 77.73.131.117
+Port: 443
+Secret: ee97500cee8fa3bf21435e27cf09de8b72766b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47724
 
@@ -127,60 +181,6 @@ Secret: eecaac1a91ae05f458f64d9dfd54f99ec57233302e70726f787974672e7370616365
 Server: 85.192.29.173
 Port: 443
 Secret: ee764656762499295cd6aef0714a2a4bdf766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47710
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47709
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.19.42
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c62617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47708
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 79.137.196.223
-Port: 6443
-Secret: eeee121e233e90f2720d1154f701937cc5b67777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47707
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47706
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 95.182.86.60
-Port: 443
-Secret: ee82dd957be0c6899a82879d05fecfc73a617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47705
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r29.proxytg.space
-Port: 8443
-Secret: ee5b741234768d8dda7d1c17e7e7cff98a7232392e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 

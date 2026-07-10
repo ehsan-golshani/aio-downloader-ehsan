@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/04/19 03:15
+📅 آخرین بروزرسانی: 1405/04/19 12:30
 
 ---
+
+## tasiyanc — post 7179
+
+<div align="center"><video src="files/post_7179_tasiyanc_7179.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7179_tasiyanc_7179.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV
+
+2سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود
+⬇️ وب‌گردی🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GN⚡⚡🇩🇪FST🇮🇹.npvt
+</div>
 
 ## tasiyanc — post 7175
 
@@ -237,23 +270,5 @@ Game DNS
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مال ما شد وظیفه مال بعضیا شده لطف
-</div>
-
-## tasiyanc — post 7138
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️ تحریم‌های نفتی ایران لغو شد ( طی توافق نامه)
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️ اسماعیل بقایی سخنگوی وزارت خارجه : همین الان ریاست جمهوری ایران و آمریکا توافق نامه را بصورت آنلاین امضاء کردند
-@Tasiyanc 
-✅
 </div>
 

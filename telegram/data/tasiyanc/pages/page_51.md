@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/04/19 03:15
+📅 آخرین بروزرسانی: 1405/04/19 12:30
 
 ---
+
+## tasiyanc — post 6176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تست شده با ایرانسل & سامانتل   ♻️
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6175
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+NewMethod🌶️@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6174
 
@@ -186,18 +199,6 @@ VIP تاسیان 🪙 GOLD.npvt
 </div>
 
 ## tasiyanc — post 6155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium 💙BLUE.npvt
-</div>
-
-## tasiyanc — post 6152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Vip⚡💚fast.npvt
-</div>
-
-## tasiyanc — post 6151
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Premium 💙BLUE.npvt

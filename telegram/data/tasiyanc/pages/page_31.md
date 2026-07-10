@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/04/19 03:15
+📅 آخرین بروزرسانی: 1405/04/19 12:30
 
 ---
+
+## tasiyanc — post 6729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ايران از زمان قاجار تا قبل پزشكيان ۵ تا جنگ داشته از پزشكيان به بعد شده يه روز در ميون
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6728
+
+<div align="center"><img src="files/post_6728_tasiyanc_6728.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچی سلامتی هنوز آتش بسه
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6727
 
@@ -171,28 +187,6 @@ INFERNO ⚡ vip.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⏺قوه قضایی جمهوری اسلامی حکم اعدام نتانیاهو و ترامپ صادر کرد.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6708
-
-<div align="center"><img src="files/post_6708_tasiyanc_6708.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Configs⚡🚀.txt
-</div>
-
-## tasiyanc — post 6707
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی تاسیان 🆕
-
-✅50 کانفیگ تست شده سرعتی
-
-مناسب وب‌گردی ، استریم ، اینستاگرام 🦦
-
-فایل Txt رو باز کنین کانفیگ رو تو آپ 🔐 & 🔐 & 🔐 بزنید پینگ بگیرید وصل شید  🚀
-
 @Tasiyanc ✅
 </div>
 
