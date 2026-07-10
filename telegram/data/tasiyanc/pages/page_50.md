@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/04/19 15:43
+📅 آخرین بروزرسانی: 1405/04/19 18:41
 
 ---
+
+## tasiyanc — post 6206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یعنی هر بار باید بگم ؟؟؟؟؟؟؟؟؟
+</div>
 
 ## tasiyanc — post 6205
 
@@ -185,11 +191,5 @@ GANG 🇳🇱🇬🇧🚀 (1).npvt
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6180
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن چنگی به دل نمیزنه نپستر بزاریم
 </div>
 

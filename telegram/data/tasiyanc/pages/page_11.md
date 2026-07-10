@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/04/19 15:43
+📅 آخرین بروزرسانی: 1405/04/19 18:41
 
 ---
+
+## tasiyanc — post 7458
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیگه از بدشانسی زر نزن آقای رامین رضائیان
+</div>
 
 ## tasiyanc — post 7457
 
@@ -170,37 +176,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7431
-
-<div align="center"><video src="files/post_7431_tasiyanc_7431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7431_tasiyanc_7431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password : @Tasiyanc
-
-
-🔐 کانفیگ حجم نامحدود
-
-۳ سرور سرعتی 
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
- 
-💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 

@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/04/19 15:43
+📅 آخرین بروزرسانی: 1405/04/19 18:41
 
 ---
+
+## tasiyanc — post 7308
 
 ## tasiyanc — post 7307
 
@@ -196,6 +198,4 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 
 ✔️ T.me/Tasiyanc ✅
 </div>
-
-## tasiyanc — post 7279
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/04/19 15:43
+📅 آخرین بروزرسانی: 1405/04/19 18:41
 
 ---
+
+## tasiyanc — post 7819
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میترسم بخوابم صبح داخل روبیکا بیدار شم
+</div>
 
 ## tasiyanc — post 7818
 
@@ -199,11 +205,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 اتصال امن برای همه 🇮🇷
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7757
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ انفجار مهیب و آتش سوزی بسیار بزرگ در اسکله مرکزی بندرعباس
 </div>
 

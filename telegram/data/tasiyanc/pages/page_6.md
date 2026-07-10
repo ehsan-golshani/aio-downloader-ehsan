@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/19 15:43
+📅 آخرین بروزرسانی: 1405/04/19 18:41
 
 ---
+
+## tasiyanc — post 7658
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مدیتیشن تموم شد 😂
+</div>
 
 ## tasiyanc — post 7655
 
@@ -152,11 +158,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 محمد صلاح پشت توپ
-</div>
-
-## tasiyanc — post 7623
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تیم انور سادات فقید 2 , استرالیا 1
 </div>
 
