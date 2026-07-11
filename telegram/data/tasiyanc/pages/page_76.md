@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/04/20 14:00
+📅 آخرین بروزرسانی: 1405/04/20 15:09
 
 ---
+
+## tasiyanc — post 5561
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برخی مناطق گزارش میدن آنتن همراه اول قطع شده
+</div>
 
 ## tasiyanc — post 5559
 
@@ -445,15 +451,5 @@ Ip Shiro khorshid 🟢 & mahsang 6️⃣
 برنامه مورد نیاز🔑
 
 Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5530
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان سرور تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

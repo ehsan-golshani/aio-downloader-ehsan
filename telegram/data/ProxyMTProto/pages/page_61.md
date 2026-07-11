@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/04/20 13:58
+📅 آخرین بروزرسانی: 1405/04/20 15:07
 
 ---
+
+## ProxyMTProto — post 47789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wb.flowaccess.site
+Port: 8443
+Secret: ee2fcc64ad41fc313d96fb8cb686e5620677622e666c6f776163636573732e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: nolags.quickrouteapp.xyz
+Port: 8443
+Secret: ee6220eec9be6b790ee969f86c6c7baaa46e6f6c6167732e717569636b726f7574656170702e78797a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: big3.mtproxygram.lol
+Port: 853
+Secret: ee9909e7aa6bc62461a0b60f33af14a68462726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47786
 
@@ -154,38 +181,6 @@ Secret: eebf7b9e22c9202130923254db55f17ed07234342e70726f787974672e7370616365
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47769
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: poll900.mtproxygram.pro
-Port: 853
-Secret: ee18ccad215fa76f14969bb6da115ed56b62726f777365722e79616e6465782e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ Выделенный VPN или MTProxy?
-
-Заберите свой первый со скидкой 25% 🎁
-
-Промокод:
-PROXYMTPROTO
-
-💳 Кошелёк → 🎁 Применить промокод ⬇️
-@BlyatNetBot @BlyatNetBot
-</div>
-
-## ProxyMTProto — post 47767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r43.proxytg.space
-Port: 8443
-Secret: ee53e5dc51c0bc1af6f2e26c8462f60f2f7234332e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/20 14:00
+📅 آخرین بروزرسانی: 1405/04/20 15:09
 
 ---
+
+## tasiyanc — post 7088
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+تک سرور سرعتی 🇳🇱⚡️
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7086
 
@@ -250,11 +262,5 @@ T.me/Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بازی با نتیجه مساوی پایان یافت
-</div>
-
-## tasiyanc — post 7047
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاج صفی از بازیکنان آینده دار اومد زمین 🤣🤣
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/04/20 13:58
+📅 آخرین بروزرسانی: 1405/04/20 15:07
 
 ---
+
+## ProxyMTProto — post 47929
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: name.nolags.pw
+Port: 443
+Secret: dd287755b048284177f71c965b016b38cc
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47928
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47927
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: turbo.proxytelega.store
+Port: 443
+Secret: eedb7eda819ee3499ac5f5d2a8803be174747572626f2e70726f787974656c6567612e73746f7265
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47926
 
@@ -154,33 +181,6 @@ Secret: dd0208abd7e65df801ec0550d8ba07c1b3
 Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47909
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: legend.chunkycorp.shop
-Port: 443
-Secret: eef7fa42938dc7150beba27c0cc0df2f1d617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47908
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 9965
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47907
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 132.243.213.221
-Port: 443
-Secret: ee4d3cf6b01fed616495b9651ebe37313f766b2e7275
 @ProxyMTProto
 </div>
 

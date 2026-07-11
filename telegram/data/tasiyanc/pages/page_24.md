@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/04/20 14:00
+📅 آخرین بروزرسانی: 1405/04/20 15:09
 
 ---
+
+## tasiyanc — post 7047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاج صفی از بازیکنان آینده دار اومد زمین 🤣🤣
+</div>
 
 ## tasiyanc — post 7042
 
@@ -207,16 +213,5 @@ matador ⚡ Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بازی های بعدی 22.30 بلژیک - مصر بامداد 4.30 نیوزلند - تیم ملی @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی های بعدی 22.30
-بلژیک - مصر
-
-بامداد 4.30
-نیوزلند - تیم ملی
-@Tasiyanc ✅
 </div>
 

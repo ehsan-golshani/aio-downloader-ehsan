@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/20 14:00
+📅 آخرین بروزرسانی: 1405/04/20 15:09
 
 ---
+
+## tasiyanc — post 7707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فارغ از هر بحثی دوس داشتیم فینال دو اسطوره رو ببینیم ک نشد
+</div>
 
 ## tasiyanc — post 7706
 
@@ -200,21 +206,5 @@ VIP 🎯 @Tasiyanc.nm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 𝗘𝗰𝗵𝗼 𝗩𝗶𝗽 🔥⁰⁴.ehi
-</div>
-
-## tasiyanc — post 7680
-
-<div align="center"><img src="files/post_7680_tasiyanc_7680.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎥انیمیشن داستان اسباب بازی ها (Toy Story 5) 2026
-ژانر : انیمیشن ، خانوادگی ، کمدی
-مدت زمان 🕰: 102 دقیقه 
-کشور: 🇺🇸
-وودی، باز، جسی و دیگر اعضای گروه با چالشی تازه روبه‌رو می‌شوند؛ زمانی که با وسایل الکترونیکی آشنا می‌شوند، فناوری‌های جدیدی که به تهدیدی برای بازی و سرگرمی کودکان تبدیل شده‌اند و جایگاه آن‌ها را به خطر می‌اندازند.
-💘 برای دانلود دوبله فارسی کلیک کنید 💘
-💘 دانلود زبان اصلی 💘
-با ۴ کیفیت متفاوت😍
-@Tasiyanc ⭐️
 </div>
 

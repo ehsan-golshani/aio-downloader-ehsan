@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/04/20 14:00
+📅 آخرین بروزرسانی: 1405/04/20 15:09
 
 ---
+
+## tasiyanc — post 6119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc چنل تاسیان.conf
+</div>
 
 ## tasiyanc — post 6118
 
@@ -175,16 +181,5 @@ Vip SamanTel ⚡.npvt
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#تب
-
-⚡️ همونجوری که میدونید کانفیگ فریا بسیار ضعیفن، من خودم جهت مصرف شخصی از اینجا کانفیگ تهیه میکنم با قیمت ارزون و کیفیت بالا گفتم برا شماهم بذارم نیازتون میشه
-
-چنلشون : @nacconfig ⭐️
-ایدی فروش:@nac_config ⭐️
 </div>
 
