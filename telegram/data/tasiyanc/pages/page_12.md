@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/20 08:09
+📅 آخرین بروزرسانی: 1405/04/20 10:38
 
 ---
+
+## tasiyanc — post 7463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 28 June، روزِ  LGBTQ یا همون همجنسگراست
+بفرست واسه رفیق گِیت🤣
+</div>
+
+## tasiyanc — post 7460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال 
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمد حسین میساکی بدون اینکه خندش بگیره خیلی جدی : تیمهای الجزایر و اتریش تبانی کردن 🤣🤣🤣
+</div>
+
+## tasiyanc — post 7458
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیگه از بدشانسی زر نزن آقای رامین رضائیان
+</div>
+
+## tasiyanc — post 7457
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+3 تا احتمال بزرگ داشته باشی تا صعود کنی ولی نتونی ، تو بازی ۳ تا تیرک بزنی ، گل آفساید بزنی ، پنالتی نتونی بزنی
+
+آقای رضائیان حالا ببین چی میگم وقتی میگفتی دلیل این همه بد شانسی نمیدونی چیه
+آه مادرانی ک سر مزار بچشون میرقصیدن همینه
+</div>
+
+## tasiyanc — post 7456
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ تیم فوتبال جمهوری اسلامی از دور مسابقات کنار رفت و از صعود به مرحله بعد جام جهانی جا ماند
+</div>
 
 ## tasiyanc — post 7453
 
@@ -123,94 +172,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 برنامه بازی های امروز جام جهانی 🏆
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاهم هم رو هواس الان ، امشب احتمال داره شاهد تحرکات جدید از هر دو طرف باشیم
-</div>
-
-## tasiyanc — post 7433
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطوریددد؟
-</div>
-
-## tasiyanc — post 7432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password :  @Tasiyanc
-
-🔐 کانفیگ حجم نامحدود
-
-۳ سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7431
-
-<div align="center"><video src="files/post_7431_tasiyanc_7431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7431_tasiyanc_7431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password : @Tasiyanc
-
-
-🔐 کانفیگ حجم نامحدود
-
-۳ سرور سرعتی 
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
- 
-💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆صعود چگونه محقق خواهد شد؟
-
-به یکی از اتفاقات زیر نیاز دارد تا به عنوان یکی از تیم های سوم صعود کند
-
-1.شکست کرواسی برابر غنا
-2.شکست نخوردن ازبکستان برابر کنگو
-3.عدم تساوی در دیدار اتریش و الجزایر
-
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7429
-
-<div align="center"><video src="files/post_7429_tasiyanc_7429.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7429_tasiyanc_7429.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقای رضاییان هنوز نمیدونی چرا بدشانسی میارید؟ 😒
 @Tasiyanc 💠
 </div>
 

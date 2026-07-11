@@ -1,8 +1,45 @@
 # آرشیو کانال ProxyMTProto - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/04/20 08:07
+📅 آخرین بروزرسانی: 1405/04/20 10:36
 
 ---
+
+## ProxyMTProto — post 47699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ به‌دلیل محدودیت‌های جدید، پروکسی‌ها سریع مسدود می‌شن.
+
+برای اینکه ارتباطت با تلگرام قطع نشه، همین الان یه پروکسی فعال بگیر 👀
+
+🔥 پروکسی‌های جدید به‌صورت مداوم و رایگان منتشر می‌شن.
+</div>
+
+## ProxyMTProto — post 47698
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hotmtpro2.duckdns.org
+Port: 443
+Secret: 7kBjzU5SbZqTzIJZZEf4Tvp3d3cubWljcm9zb2Z0LmNvbQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47697
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.19.134
+Port: 443
+Secret: ee17867c11b83c2c36a3de356743602b2c617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47696
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: vpn.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47695
 
@@ -148,42 +185,6 @@ Secret: eeace5ab7ab128f81a0b16ada143ec10807232322e70726f787974672e7370616365
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r24.proxytg.space
-Port: 8443
-Secret: eeade4e42a3bee4969fcb706467380da727232342e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47678
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r23.proxytg.space
-Port: 8443
-Secret: eed8f9cb134573d3eff7e4e031965625177232332e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47677
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dns.vdl.lat
-Port: 853
-Secret: ee534adcf23a16f425cbae129c4cb574cb6164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47676
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 77.73.135.70
-Port: 443
-Secret: ee24fc31cd01228525d9052a343acbe717766b2e636f6d
 @ProxyMTProto
 </div>
 
