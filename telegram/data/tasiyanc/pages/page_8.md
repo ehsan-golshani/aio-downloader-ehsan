@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/20 22:15
+📅 آخرین بروزرسانی: 1405/04/20 23:31
 
 ---
+
+## tasiyanc — post 7660
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از چنلای مردمی حمایت کنید ، بناموسم بخاطر خودم نمیگم ، ما مثل اینا جیره خور نبودیم همه چیو از جیب خودمون خرج کردیم نه کانفیگ گیگی یه میلیون فروختیم ، نه سکوت کردیم مثلاً امروز گروه تعطیل کنیم یا موقع قطعی فعالیت نکرده باشیم
+</div>
+
+## tasiyanc — post 7659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خودتون خوبین قربونتون برم؟
+</div>
 
 ## tasiyanc — post 7658
 
@@ -146,17 +158,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این گل بشه تمومه
-</div>
-
-## tasiyanc — post 7625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللل
-</div>
-
-## tasiyanc — post 7624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد صلاح پشت توپ
 </div>
 

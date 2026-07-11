@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/04/20 22:15
+📅 آخرین بروزرسانی: 1405/04/20 23:31
 
 ---
+
+## tasiyanc — post 6333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دولت شیرکاکائوئیا (پاکستانی ها) اینترنت بین الملل رو بخاطر فراخوان اعتراضی بستند
+</div>
+
+## tasiyanc — post 6332
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حال ندارید ریکشن بزنید بریم بخوابیم
+</div>
 
 ## tasiyanc — post 6331
 
@@ -187,23 +199,5 @@ Password : @Tasiyanc  ⏩
 پروکسی • پروکسی
 
 @Tasiyanproxy ✅
-</div>
-
-## tasiyanc — post 6306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB  👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قصد حاشیه با هیچ بنی بشری ام ندارم چون نه حوصله ن وقتشو دارم درکل گفتم زحمتای بقیه رو بعضیا با دو تکست بگ* ندن
-با قدرت در خدمت شما هستیم❤️
 </div>
 

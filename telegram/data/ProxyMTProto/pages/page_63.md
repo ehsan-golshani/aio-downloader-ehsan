@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/04/20 22:13
+📅 آخرین بروزرسانی: 1405/04/20 23:30
 
 ---
+
+## ProxyMTProto — post 47765
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: FgMBAgABAAH8AxOG4kw63Q
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47764
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy.dreamerlook.ru
+Port: 444
+Secret: ee00000000000000000000000000000000766b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47763
 
@@ -166,24 +184,6 @@ Secret: ee11c7cb7399e1f38aaec2f5152c4f051c7233352e70726f787974672e7370616365
 Server: heart.nolags.pw
 Port: 443
 Secret: dd1d8f1aa6cb8726a39f24cc3943099e33
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47745
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: sosat.rkn.lat
-Port: 443
-Secret: ee66e66017432e98b7535ebbbc1588f8a26d61782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r34.proxytg.space
-Port: 8443
-Secret: eebb8fe6fb6d181e454f4454195b880e627233342e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/20 22:15
+📅 آخرین بروزرسانی: 1405/04/20 23:31
 
 ---
+
+## tasiyanc — post 6576
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز ب عشق خودتون ، قطعی باشه نباشه پیش همیم🩷🤝
+</div>
+
+## tasiyanc — post 6575
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6574
 
@@ -198,17 +218,5 @@ https://t.me/TasiyanProxy
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خلاصه برنامه زیاده ، البته امیدوارم قطعی پیش نیاد
-</div>
-
-## tasiyanc — post 6549
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حتی چنلمون تو اپای ایرانی ام قراره یه جور پرایوت شه اونایی ک ممبر چنلن بیان هر ۲۴ ساعت لینکو عوض میکنم
-</div>
-
-## tasiyanc — post 6548
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منتظرم قطعی بشه پرایوت کنم چنلو اونای ک لف میدن حالشون میپرسم
 </div>
 
