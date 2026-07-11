@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/04/20 19:04
+📅 آخرین بروزرسانی: 1405/04/20 21:15
 
 ---
+
+## tasiyanc — post 6406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی تاسیان 🆕
+
+✅77 کانفیگ پروتکل Trojan تست شده 🔄
+
+فایل Txt رو باز کنین کانفیگارو کپی کنین بریزید V2Box 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6405
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 📱
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6404
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتا داره بگ* می‌ره اختلال رو همراه اول
+</div>
+
+## tasiyanc — post 6403
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6402
 
@@ -157,46 +210,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [Fast] ⚡ @Tasiyanc.npvt
-</div>
-
-## tasiyanc — post 6382
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در صورت قطعی ، چنل تاسیان پرایوت میشه ، و دوستانی که به ما وفادار بودن و پیشمون موندن قرارع نزارم یه دقیقه قطعی بکشن
-عشق منین شما ک همیشه حمایت کردید ازم ❤️
-قطعی ایشالا تو کار نباشه ولی اگر باشه قوی تر از قبل برنامه داریم
-</div>
-
-## tasiyanc — post 6375
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد T.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6374
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد
-T.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6373
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور   سرعتی پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

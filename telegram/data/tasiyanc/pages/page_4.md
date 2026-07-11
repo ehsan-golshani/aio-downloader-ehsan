@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/04/20 19:04
+📅 آخرین بروزرسانی: 1405/04/20 21:15
 
 ---
+
+## tasiyanc — post 7807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچ اختلالی تو دیتا سنترا نداریم به کسشرات چنلای کانفیگ گوش ندید ، چیزی باشه خودم اطلاع رسانی میکنم
+همش برا جذب ممبره
+</div>
+
+## tasiyanc — post 7806
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ : ممکنه دوباره جنگ با ایران پر قدرت شروع بشه.
+</div>
+
+## tasiyanc — post 7799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+4 سرور سرعتی حجم و کاربر نامحدود ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال به اینجکتور ✨
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارشات تایید نشده ترامپ با ناتو به توافق رسیده در ازای کمك آمریکا به اوکراین ، ناتو نیز کنار آمریکا به ایران حمله خواهد کرد
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7797
 
@@ -159,29 +203,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ آکسیوس : حملات آمریکا ممکنه چند ساعت یا چند روز ادامه پیدا کنه
-</div>
-
-## tasiyanc — post 7755
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری حملات آمریکا به اسکله حقانی در سیریك
-</div>
-
-## tasiyanc — post 7754
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واکنش اسرائیل به جنگ فعلی : خوابیما قطعش کنین
-</div>
-
-## tasiyanc — post 7753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنگه هرمز بسته شد💪
-</div>
-
-## tasiyanc — post 7752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری فرودگاه بندرعباس زدن
 </div>
 
