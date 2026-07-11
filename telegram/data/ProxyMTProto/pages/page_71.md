@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/04/20 23:30
+📅 آخرین بروزرسانی: 1405/04/21 00:35
 
 ---
+
+## ProxyMTProto — post 47607
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s.proxytg.space
+Port: 8443
+Secret: eefefc4f17248e59437bb451447a9170b2732e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47606
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rus1.mtproxygram.pro
+Port: 443
+Secret: eefbee6e61d427a84d26b97590a8f63bab62726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47605
 
