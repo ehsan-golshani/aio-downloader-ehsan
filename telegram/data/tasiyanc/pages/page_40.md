@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/04/20 02:21
+📅 آخرین بروزرسانی: 1405/04/20 08:09
 
 ---
+
+## tasiyanc — post 6482
+
+<div align="center"><video src="files/post_6482_tasiyanc_6482.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6482_tasiyanc_6482.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   
+👑
+
+حجم و کاربر نامحدود 
+🟢
+
+دانلود  Wg tunnel 
+🕹
+
+دانلود iOS 
+📱
+
+آموزش اتصال 
+⛓
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی پرمیوم متد جدید🚀
+
+450 گیگ  - تمام اپراتور ها 
+⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6478
+
+<div align="center"><img src="files/post_6478_tasiyanc_6478.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هلیا خانم ایران ۵ قلو زایید 🥹
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6477
+
+<div align="center"><img src="files/post_6477_tasiyanc_6477.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+300 GB - 🇬🇧🇩🇪.npvt
+</div>
 
 ## tasiyanc — post 6476
 
@@ -164,55 +233,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6456
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3 سرور پرمیوم متد جدید
-🚀
-
-حجم نامحدود - تمام اپراتور ها 
-⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  
-✔
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6455
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-new@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 6453
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  OpenVPN♻️
-
-تست شده  سامانتل ، رایتل ، وای‌فای 🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6452
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-300 GB ⚡ VİP.npvt
 </div>
 

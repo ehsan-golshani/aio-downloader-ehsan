@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/20 00:28
+📅 آخرین بروزرسانی: 1405/04/20 08:07
 
 ---
+
+## ProxyMTProto — post 48535
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.nilmart.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48534
 
@@ -172,15 +181,6 @@ Secret: ddebf4e93d8565ca5d242efe5aa70822c3
 Server: Unknown
 Port: 443
 Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48515
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: node.nowabst.net
-Port: 853
-Secret: eef17eaf287401413739814ccc05a709a66164732e78352e7275
 @ProxyMTProto
 </div>
 
