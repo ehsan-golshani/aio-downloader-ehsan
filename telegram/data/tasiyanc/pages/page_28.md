@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/04/20 10:38
+📅 آخرین بروزرسانی: 1405/04/20 12:34
 
 ---
+
+## tasiyanc — post 6901
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی تست شده  🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6900
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[51] @Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6898
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6897
+
+<div align="center"><video src="files/post_6897_tasiyanc_6897.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6897_tasiyanc_6897.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان 🖤
+ارسالی از اعضای عزیزم💋
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 6882
 
@@ -160,43 +208,5 @@ trojan://humanity@104.16.174.121:443?path=%2Fassignment&security=tls&insecure=0&
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ربات دانلودر اختصاصی کانال تاسیان بدون جوین اجباری 💬📹💬
-
-دانلود با سرعت بالا , همراه با ارسال جدای فایل موزیک ریلز ها
-
-🟢 @TasiyanAploadBot
-</div>
-
-## tasiyanc — post 6860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.218:8080#%40Tasiyanc%20%F0%9F%94%B0%F0%9F%87%B3%F0%9F%87%B1
-Loc 🇳🇱
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6858
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 
-🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.214:8080#%E2%9A%A1%40Tasiyanc%2001%E2%9A%A1
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.189:8080#%E2%9A%A1%40Tasiyanc%2002%E2%9A%A1
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6857
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما سرور تکراری رو فایل نمیزاریم همشون تست کنین💋🚀
 </div>
 
