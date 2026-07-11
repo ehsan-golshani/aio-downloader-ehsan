@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/21 01:39
+📅 آخرین بروزرسانی: 1405/04/21 02:49
 
 ---
+
+## tasiyanc — post 7959
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Speed Fast ⚡ 🇩🇪.npvt
+</div>
+
+## tasiyanc — post 7958
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزیر جنگ اسرائیل 🇮🇱: 🔻من و نتانیاهو دستور آماده شدن ارتش برای حملات مستقل به ایران را صادر کردیم @TasiyanProxy ⭐️
+</div>
 
 ## tasiyanc — post 7946
 
@@ -11,8 +23,6 @@
 </div>
 
 ## tasiyanc — post 7944
-
-<div align="center"><a href="files/post_7944_Speed Fast ⚡ 🇩🇪.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Speed Fast ⚡ 🇩🇪.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت 🔐
@@ -228,23 +238,5 @@ home.by.me
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐 مشاهده فیلم 👉
-</div>
-
-## tasiyanc — post 7920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐
-
-مشاهده فیلم 👉
-</div>
-
-## tasiyanc — post 7919
-
-<div align="center"><img src="files/post_7919_tasiyanc_7919.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیستی از هوش مصنوعی‌های رایگان که اکثرا دوتای اول رو فقط میشناختید!
-
-@Tasiyanc✅
 </div>
 

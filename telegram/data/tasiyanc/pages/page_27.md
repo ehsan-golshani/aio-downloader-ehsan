@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/04/21 01:39
+📅 آخرین بروزرسانی: 1405/04/21 02:49
 
 ---
+
+## tasiyanc — post 6952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ Dark Tunnel 🌟 میزارم براتون اول از همه برنامه دارک تونل رو نصب کنین از پلی استور https://play.google.com/store/apps/details?id=net.darktunnel.app @Tasiyanc
+</div>
+
+## tasiyanc — post 6951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ Dark Tunnel 🌟 میزارم براتون
+اول از همه برنامه دارک تونل رو نصب کنین از پلی استور
+https://play.google.com/store/apps/details?id=net.darktunnel.app
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 6950
 
@@ -175,30 +191,5 @@ T.me/Tasiyanc ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️
 ⭕️ ترامپ: توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم! من بدینوسیله اجازه کامل بازگشایی تنگه هرمز را می‌دهم و همزمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دارم. کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید…
-</div>
-
-## tasiyanc — post 6930
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️ ترامپ:
-
-توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم!
-
-من بدینوسیله اجازه کامل بازگشایی تنگه هرمز را می‌دهم و همزمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دارم.
-
-کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد!
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6929
-
-<div align="center"><img src="files/post_6929_tasiyanc_6929.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زیرنویس شبکه خبر :
-توافق با امریکا را انجام شد
-@Tasiyanc 
-✅
 </div>
 

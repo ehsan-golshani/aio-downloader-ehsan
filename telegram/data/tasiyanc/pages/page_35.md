@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/04/21 01:39
+📅 آخرین بروزرسانی: 1405/04/21 02:49
 
 ---
+
+## tasiyanc — post 6690
+
+<div align="center"><video src="files/post_6690_tasiyanc_6690.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6690_tasiyanc_6690.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+😎
+
+2سرور سرعتی همه نت ها 
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+🔹
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6689
 
 ## tasiyanc — post 6688
 
@@ -157,21 +187,5 @@ https://ritsatv.ru/mobile-version/movie-id901190-trt1
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترامپ : حملات امشب لغو کردم
-</div>
-
-## tasiyanc — post 6667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20vip%20%40Tasiyanc%20%E2%99%82%EF%B8%8F vless://0058c215-ab1e-400c-a403-b5b2fd…
-</div>
-
-## tasiyanc — post 6666
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20vip%20%40Tasiyanc%20%E2%99%82%EF%B8%8F
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc%20%F0%9F%94%B1
-@Tasiyanc ✅
 </div>
 

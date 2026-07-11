@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/04/21 01:39
+📅 آخرین بروزرسانی: 1405/04/21 02:49
 
 ---
+
+## tasiyanc — post 6860
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.218:8080#%40Tasiyanc%20%F0%9F%94%B0%F0%9F%87%B3%F0%9F%87%B1
+Loc 🇳🇱
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6858
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 
+🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.214:8080#%E2%9A%A1%40Tasiyanc%2001%E2%9A%A1
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.189:8080#%E2%9A%A1%40Tasiyanc%2002%E2%9A%A1
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6857
 
@@ -185,18 +207,5 @@ vless://dc8eccdb-ecfa-435f-9ac1-5dc4882e7b51@162.19.228.119:80?path=%2Fhttp&secu
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ مخصوص روبیکا
 گیگی ۵۰۰ بدون قطعی🤣🤣🤣
-</div>
-
-## tasiyanc — post 6826
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون بازی شروع شد
-Qatar 🇶🇦 & Switzerland🇨🇭
-</div>
-
-## tasiyanc — post 6824
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به خاطر چس تومن پول میان نمیگن بعضی از چنلا ، راضی ام تا ۱۰۰ سال سیا اینا تبلیغ نزارن رو چنلم
 </div>
 
