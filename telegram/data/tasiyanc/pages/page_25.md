@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/04/20 15:09
+📅 آخرین بروزرسانی: 1405/04/20 17:51
 
 ---
+
+## tasiyanc — post 7001
+
+## tasiyanc — post 6996
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی های بعدی 22.30 بلژیک - مصر بامداد 4.30 نیوزلند - تیم ملی @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6995
 
@@ -274,39 +282,5 @@ T.me/Tasiyanc
 
 T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6959
-
-<div align="center"><video src="files/post_6959_tasiyanc_6959.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6959_tasiyanc_6959.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-۲سرور سرعتی تست شده  
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6957
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطوره؟
 </div>
 

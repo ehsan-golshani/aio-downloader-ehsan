@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/04/20 15:09
+📅 آخرین بروزرسانی: 1405/04/20 17:51
 
 ---
+
+## tasiyanc — post 7130
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات تاسیان؟
+</div>
+
+## tasiyanc — post 7128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم-وب‌گردی-اینستاگرام 
+👑
+
+2 کانفیگ حجم و کاربر نامحدود 
+🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال 
+⛓
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7127
 
@@ -204,37 +227,5 @@ T.me/Tasiyanc ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترامپ: یادداشت با ایران نهایی نیست. اگر از توافق خوشمان نیاید، دوباره به بمباران بازمی‌گردیم
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7093
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📥Game public DNS | All games
-195.46.39.39
-195.46.39.40
-
-🔑 DNS CHANGER
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7089
-
-<div align="center"><video src="files/post_7089_tasiyanc_7089.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7089_tasiyanc_7089.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 
-🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc 
-✅
 </div>
 

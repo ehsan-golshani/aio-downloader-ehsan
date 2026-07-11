@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/04/20 16:17
+📅 آخرین بروزرسانی: 1405/04/20 17:49
 
 ---
+
+## ProxyMTProto — post 47634
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dns.vdl.lat
+Port: 853
+Secret: ee534adcf23a16f425cbae129c4cb574cb6164732e78352e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47633
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r11.proxytg.space
+Port: 8443
+Secret: ee4e28f14af6d0e7d9dc65eecb94066c717231312e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47632
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.21.40
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c74617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47631
 
@@ -157,33 +184,6 @@ Secret: ee627bdd42b085906e41105ddd7dab8cca706574726f766963682e7275
 Server: dr1.dedus.pro
 Port: 443
 Secret: eeaf504aa56469ec880c9cb00515fc8a2d79616e6465782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47614
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dns.vdl.lat
-Port: 853
-Secret: ee534adcf23a16f425cbae129c4cb574cb6164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47613
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r1.proxytg.space
-Port: 8443
-Secret: eecd671d2032569f6cea0fb4c61c32756972312e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47612
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.21.34
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c75617669746f2e7275
 @ProxyMTProto
 </div>
 
