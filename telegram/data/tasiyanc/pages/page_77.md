@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/04/20 12:34
+📅 آخرین بروزرسانی: 1405/04/20 14:00
 
 ---
+
+## tasiyanc — post 5527
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همزمان با نسخه جدید شیر و خورشید، یه ربات درست شده IP های سفید رو لیست میکنه
+سرعتش عاالیه و اکثرا متصله ( تست کردیم )
+
+ورود به ربات و دریافت لیست
+</div>
+
+## tasiyanc — post 5525
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان سرور تست شده وای‌فای 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5524
 
@@ -163,28 +182,6 @@ Psiphon v2Ray 🔥
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶اختصاصی تاسیان تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5496
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Password @Tasiyanc
-
-📶اختصاصی تاسیان 2 سرور تست شده 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5495
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده 📶
 
 برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
 

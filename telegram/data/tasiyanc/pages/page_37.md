@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/20 12:34
+📅 آخرین بروزرسانی: 1405/04/20 14:00
 
 ---
+
+## tasiyanc — post 6586
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگای بالا ک گذاشتم همگی با سرعت وصلن ، درصورت فیلتر جدیدشو قرار میدیم ❤️
+</div>
+
+## tasiyanc — post 6583
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ تسنیم:
+
+هم اکنون یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه بمباران شد.
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6581
 
@@ -181,48 +196,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔻 فوووری بعد اعلام رسمی ترامپ که‌گفت امشب جنگ‌رو شروع میکنیم و به ایران حمله میکنیم  احتمال قطع شدن نت بشدددتتت بالاست تصمیم‌گرفتیم براتون کانفینگ اختصاصی بزاریم داخل بات‌مخصوص نت ملی که یوقت  قطع نشید 
 🚀 تست‌شده مخصوص نت‌ملیهههه نیاز داشتید برید برداریدد…
-</div>
-
-## tasiyanc — post 6556
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 فوووری بعد اعلام رسمی ترامپ که‌گفت امشب جنگ‌رو شروع میکنیم و به ایران حمله میکنیم  احتمال قطع شدن نت بشدددتتت بالاست
-
-تصمیم‌گرفتیم براتون کانفینگ اختصاصی بزاریم داخل بات‌مخصوص نت ملی که یوقت  قطع نشید 
-🚀
-
-تست‌شده مخصوص نت‌ملیهههه نیاز داشتید برید برداریدد حتما
-❤
-
-دریافت کانفینگ اختصاصی
-دریافت کانفینگ اختصاصی
-</div>
-
-## tasiyanc — post 6555
-
-<div align="center"><video src="files/post_6555_tasiyanc_6555.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6555_tasiyanc_6555.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-3سرور سرعتی مناسب همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

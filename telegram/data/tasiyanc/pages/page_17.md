@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/04/20 12:34
+📅 آخرین بروزرسانی: 1405/04/20 14:00
 
 ---
+
+## tasiyanc — post 7291
+
+<div align="center"><img src="files/post_7291_tasiyanc_7291.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪🚀 Full Fast⚡.npvt
+</div>
+
+## tasiyanc — post 7290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV لوکیشن Nuremberg🇩🇪
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7289
 
@@ -175,17 +200,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اخرااااااااج بازیکن بلژیک 🔹
-</div>
-
-## tasiyanc — post 7257
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشمای بلژیک ریخته ۱۱ نفری دفاع میکنن
-</div>
-
-## tasiyanc — post 7256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه بجای طارمی سهراب سپهری بود با اختلاف گل میشد 😂
 </div>
 

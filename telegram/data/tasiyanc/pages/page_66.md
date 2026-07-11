@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/04/20 12:34
+📅 آخرین بروزرسانی: 1405/04/20 14:00
 
 ---
+
+## tasiyanc — post 5819
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑 رمز @Tasiyanc ″
+
+📶  اختصاصی تاسیان  📶
+
+ سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5818
+
+<div align="center"><img src="files/post_5818_tasiyanc_5818.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀 VIP SPEEEEEEEED.npvt
+</div>
 
 ## tasiyanc — post 5817
 
@@ -205,17 +232,5 @@ GM TASIYAN 💝
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5797
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡.npvt
-</div>
-
-## tasiyanc — post 5796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡.npvt
 </div>
 
