@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/20 23:31
+📅 آخرین بروزرسانی: 1405/04/21 01:39
 
 ---
+
+## tasiyanc — post 6578
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سیو کنین کانفیگارو
+</div>
+
+## tasiyanc — post 6577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ سیریک و قشم مورد حمله قرار گرفت
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6576
 
@@ -203,20 +216,5 @@ https://t.me/TasiyanProxy
 با بمب افکن های B_2 آنها را بسیار سخت هدف قرار خواهیم داد.
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 
-🔴ترامپ : تا اینجا هم بخاطر پاکستان فرصت داده بودم ، امروز بشدت به ایران ضربه خواهیم زد
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6550
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خلاصه برنامه زیاده ، البته امیدوارم قطعی پیش نیاد
 </div>
 

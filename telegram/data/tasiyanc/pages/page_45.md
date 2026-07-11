@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/04/20 23:31
+📅 آخرین بروزرسانی: 1405/04/21 01:39
 
 ---
+
+## tasiyanc — post 6390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدا و سیما :
+
+شهر نبطیه لبنان در حال سقوط است
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 6389
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اضطراریه و هر لحظه ممکنه به خاطر شرایط جنگی اینترنت کل کشور قطع بشه! وقت رو تلف نکنید. برای اینکه ارتباطمون کاملاً قطع نشه، ۲ تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه اضطراری براتون آماده کردیم. ​تأکید می‌کنیم: همین الان، تا قبل از اینکه دسترسی‌ها…
+</div>
 
 ## tasiyanc — post 6386
 
@@ -225,28 +241,5 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Speed ⚡ One.npvt
-</div>
-
-## tasiyanc — post 6359
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-5سرور   سرعتی تست شده با سامانتل🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
-
-دانلود  NPV tunnel  🌐
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6358
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی ⚡ sv 3.npvt
 </div>
 
