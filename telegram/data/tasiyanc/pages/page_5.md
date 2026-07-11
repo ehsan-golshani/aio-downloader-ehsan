@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/20 17:51
+📅 آخرین بروزرسانی: 1405/04/20 19:04
 
 ---
+
+## tasiyanc — post 7751
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنظرتون جنگ تمام عیار میشه اسراییل ورود می‌کنه؟ یا آتش بس میشه تا صبح
+</div>
+
+## tasiyanc — post 7750
+
+<div align="center"><img src="files/post_7750_tasiyanc_7750.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت کارمندای نت‌بلاکس الان:
+</div>
 
 ## tasiyanc — post 7749
 
@@ -144,23 +158,5 @@ VIP 🎯 @Tasiyanc.nm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چه وضع ریکشن زدنه
-</div>
-
-## tasiyanc — post 7713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال  ⛓
-</div>
-
-## tasiyanc — post 7712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز July 7، روز جهانی شکلاته 🍫 🍫
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/04/20 17:51
+📅 آخرین بروزرسانی: 1405/04/20 19:04
 
 ---
+
+## tasiyanc — post 7300
+
+## tasiyanc — post 7299
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+WG🍓@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 7297
 
@@ -169,25 +177,5 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 📹💬💬
 
 @TasiyanAploadBot
-</div>
-
-## tasiyanc — post 7268
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز کردیم ریکشن نمیزنین
-</div>
-
-## tasiyanc — post 7266
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
-
-برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
-
-دانلود Dark Tunnel  🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

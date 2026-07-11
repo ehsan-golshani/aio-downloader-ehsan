@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/20 17:51
+📅 آخرین بروزرسانی: 1405/04/20 19:04
 
 ---
+
+## tasiyanc — post 6872
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۲ اسرائیل ⭕️⭕️ ❌
+نعیم قاسم فرمانده حزب الله ترور شد
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6871
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[46] 🪐@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6870
 
@@ -199,25 +213,6 @@ T.me/Tasiyanc
 ✊امروز تولد مودی ترین خردادیه
 دونالد ترامپ متولد ۱۴ ژوئن ۱۹۴۶ است و امروز (یکشنبه ۱۴ ژوئن ۲۰۲۶) وارد ۸۰ سالگی می‌شود.
 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6843
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-14 June
-روز جهانی اکسه 😭
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-vless://dc8eccdb-ecfa-435f-9ac1-5dc4882e7b51@162.19.228.119:80?path=%2Fhttp&security=none&encryption=none&host=de.vpnbase.net&type=ws#%5B%40Tasiyanc%5D%20%F0%9F%87%A9%F0%9F%87%AA%20De
-
- T.me/Tasiyanc 
 ✅
 </div>
 

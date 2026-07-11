@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/20 17:51
+📅 آخرین بروزرسانی: 1405/04/20 19:04
 
 ---
+
+## tasiyanc — post 7713
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال  ⛓
+</div>
+
+## tasiyanc — post 7712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز July 7، روز جهانی شکلاته 🍫 🍫
+</div>
 
 ## tasiyanc — post 7709
 
@@ -186,17 +204,5 @@ Password @Tasiyanc
 
 
 👇 دریافت کانفیگ های وایرگارد 🔥
-</div>
-
-## tasiyanc — post 7686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سن دریافت گواهینامه رانندگی از ۱۸ سال به ۱۶ سال کاهش پیدا کرد.
-</div>
-
-## tasiyanc — post 7685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP 🎯 @Tasiyanc.nm
 </div>
 

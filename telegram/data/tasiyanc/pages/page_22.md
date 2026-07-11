@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/04/20 17:51
+📅 آخرین بروزرسانی: 1405/04/20 19:04
 
 ---
+
+## tasiyanc — post 7133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟🌟
+ss://YWVzLTI1Ni1nY206RmpHM0lQYm55KzBaWVU0L3AxdlVMUDg0R2NLcEdvWnBXS0FheTE2VmhJdz0%3D@51.254.128.106:2083#%F0%9F%87%AB%F0%9F%87%B7FR%E2%9A%A1%20%40Tasiyanc
+Location 🇫🇷 حجم نامحدود
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات تاسیان؟
+</div>
 
 ## tasiyanc — post 7130
 
@@ -204,28 +219,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خوبید رو به راهید؟
-</div>
-
-## tasiyanc — post 7096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟3 کانفیگ اختصاصی دارک تانل 🌟
-
-حجم نامحدود - سرعتی 🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel  🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ: یادداشت با ایران نهایی نیست. اگر از توافق خوشمان نیاید، دوباره به بمباران بازمی‌گردیم
-@Tasiyanc✅
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/04/20 17:49
+📅 آخرین بروزرسانی: 1405/04/20 19:02
 
 ---
+
+## ProxyMTProto — post 48617
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad1.arixo.shop
+Port: 443
+Secret: eee09f46368021f91b92ad3dea14c7ac896164312e617269786f2e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48616
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: net.freetg.pw
+Port: 443
+Secret: ee83fa4fde388bf7da767bf4b9333fc8526e65742e6672656574672e7077
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48615
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48614
 
@@ -154,33 +181,6 @@ Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 Server: cdn.savelyev.click
 Port: 443
 Secret: ee0e25d36b89ee532fcc5767a9dae2669e63646e2e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48597
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: persian.gulf.ir.olsjddhf.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48596
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: get.utkanos.life
-Port: 443
-Secret: eef09a7a4c51b6bc6caf4d3134b312b0f56765742e75746b616e6f732e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48595
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/04/20 17:51
+📅 آخرین بروزرسانی: 1405/04/20 19:04
 
 ---
+
+## tasiyanc — post 5663
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گوشه ای از محبت مردم عزیز وطنم ❤️ همه رو نمیشه بزارم ، سپاس از همتون
+</div>
+
+## tasiyanc — post 5662
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود به دوستان گلم
+خسته نباشید میگم بهتون
+جا داره ازتون تشکر کنم بابت زحمات زیادی که کشیدید من به شخصه یادم میمونه که تو چه شرایطی پشت مردمتون بودید
+دم معرفتتون گرم
+امیدوارم بتونیم جبران کنیم 💙💙
+</div>
 
 ## tasiyanc — post 5646
 
@@ -178,25 +194,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بمب بعدی
-</div>
-
-## tasiyanc — post 5626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کی از همه قشنگتره؟ کامنتارو 🗿
-</div>
-
-## tasiyanc — post 5625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈1 سرور تست شده wifi⛈
-
-برای اتصال پایدار صبور باشید🚀
-
-🚀 @Tasiyanc ✅
 </div>
 

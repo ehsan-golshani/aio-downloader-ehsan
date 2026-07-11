@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/20 17:51
+📅 آخرین بروزرسانی: 1405/04/20 19:04
 
 ---
+
+## tasiyanc — post 6566
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی مناسب همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6561
 
@@ -208,18 +238,5 @@ https://t.me/TasiyanProxy
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6541
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
-</div>
-
-## tasiyanc — post 6540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو
-پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
 </div>
 

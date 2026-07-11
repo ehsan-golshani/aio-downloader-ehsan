@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/20 17:51
+📅 آخرین بروزرسانی: 1405/04/20 19:04
 
 ---
+
+## tasiyanc — post 7933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حس میکنم خیلی زود اسرائیل ترامپ رو ترور میکنه 😟
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7932
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#معرفی_سایت
+🔄✅بهترین سایت های کاریابی ایرانی⬇️
+
+1. www.karlancer.com
+2. www.iranjob.ir
+3. www.jobvision.io
+4. www.karlib.com
+5. www.jobinja.ir
+6. www.banikar.com
+7. www.karboom.io
+8. www.e-estekhdam.com
+9. www.infojob.ir
+10. www.iranestekhdam.ir
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7931
 
@@ -215,29 +243,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7894
-
-<div align="center"><img src="files/post_7894_tasiyanc_7894.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺امروز 11 July، روز شاد کردن آدم‌های تنهاست.
-
-
-@Tasiyanc ⭐️
-#Navid
-</div>
-
-## tasiyanc — post 7893
-
-<div align="center"><img src="files/post_7893_tasiyanc_7893.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نقش پدر در زندگی:
-
-روح تمام پدر های آسمانی شاد🖤
-
-@Tasiyanc✅
 </div>
 

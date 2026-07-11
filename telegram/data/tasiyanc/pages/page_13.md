@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/04/20 17:51
+📅 آخرین بروزرسانی: 1405/04/20 19:04
 
 ---
+
+## tasiyanc — post 7448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️حمله آمریکا به بندرلنگه و بندر کنگ
+</div>
+
+## tasiyanc — post 7447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیما: دقایقی پیش چندین انفجار در شهرستان سیریک، جنوب ایران رخ داده است.
+</div>
 
 ## tasiyanc — post 7446
 
@@ -185,17 +197,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فک کنم بره وار
-</div>
-
-## tasiyanc — post 7419
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گگگگگگگگگگگگگللللللللل ایران
-</div>
-
-## tasiyanc — post 7418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صلاح تعویض شد 😐
 </div>
 
