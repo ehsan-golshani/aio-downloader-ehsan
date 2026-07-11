@@ -1,8 +1,29 @@
 # آرشیو کانال ProxyMTProto - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/04/20 19:02
+📅 آخرین بروزرسانی: 1405/04/20 20:03
 
 ---
+
+## ProxyMTProto — post 48039
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.proxytelega.store
+Port: 8443
+Secret: ee3d75d4605342be40f01e37f606946e81666173742e70726f787974656c6567612e73746f7265
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48038
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 Телеграм тормозит?
+🚨 تلگرام کند شده؟
+
+⚡Бесплатный рабочий прокси
+⚡پروکسی رایگان و فعال
+
+👇Получить / دریافت پروکسی
+</div>
 
 ## ProxyMTProto — post 48037
 
@@ -163,24 +184,6 @@ Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
 Server: double.nolags.pw
 Port: 443
 Secret: dd96d0f04ace50bb54a492c1415bfff1e5
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48019
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48018
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ya.proxyobhod.online
-Port: 8443
-Secret: ee2419e93e2af4bddd80bb8bc8936ea49879612e70726f78796f62686f642e6f6e6c696e65
 @ProxyMTProto
 </div>
 
