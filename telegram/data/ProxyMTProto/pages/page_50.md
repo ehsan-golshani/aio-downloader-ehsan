@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/04/20 21:13
+📅 آخرین بروزرسانی: 1405/04/20 22:13
 
 ---
+
+## ProxyMTProto — post 48023
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: jet.proxyux.site
+Port: 443
+Secret: eed2024b83c7a14889f7d69bd82ca087c16a65742e70726f787975782e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48021
 
@@ -163,24 +181,6 @@ Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e63
 Server: yours.nolags.pw
 Port: 443
 Secret: ddaed3f129a293bdfc23d67204b50bbf87
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ge.nowabst.net
-Port: 853
-Secret: eefdf6175e50069c01bd22d786534aa2b26164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 15
-Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
 @ProxyMTProto
 </div>
 

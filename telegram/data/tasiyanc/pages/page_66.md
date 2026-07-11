@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/04/20 21:15
+📅 آخرین بروزرسانی: 1405/04/20 22:15
 
 ---
+
+## tasiyanc — post 5851
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دمت گرم داش
+</div>
+
+## tasiyanc — post 5850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایول کارت حرف نداره تاسیان عشقی
+</div>
 
 ## tasiyanc — post 5849
 
@@ -185,17 +197,5 @@ Premium Fast servers 🔥🌱.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5810
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موشك داره میاد
-</div>
-
-## tasiyanc — post 5809
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-GM TASIYAN 💝
 </div>
 

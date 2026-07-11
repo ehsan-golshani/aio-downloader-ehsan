@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/04/20 21:15
+📅 آخرین بروزرسانی: 1405/04/20 22:15
 
 ---
+
+## tasiyanc — post 6522
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباس جان ریدی با این مذاکره کردنات
+</div>
+
+## tasiyanc — post 6521
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ Premium ⚡.npvt
+</div>
 
 ## tasiyanc — post 6520
 
@@ -209,17 +221,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6485
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️
-</div>
-
-## tasiyanc — post 6484
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حواسم نبود ، ریکشن چرا نزدید؟ 😐
 </div>
 

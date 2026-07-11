@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/04/20 21:13
+📅 آخرین بروزرسانی: 1405/04/20 22:13
 
 ---
+
+## ProxyMTProto — post 48103
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowabst.net
+Port: 853
+Secret: 7hKJP_0gRM7NMRBO3AKn5VhhZHMueDUucnU
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48102
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 167.233.115.193
+Port: 100
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0YYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYY
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48101
 
@@ -163,24 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: apex.proxym.world
 Port: 443
 Secret: ee4459d77ba2b570d1a593a478d3cd94a4617065782e70726f78796d2e776f726c64
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48083
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48082
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lumen.proxytop.space
-Port: 443
-Secret: ee77a9c0a7c576db75ddb379ffc1ea49786c756d656e2e70726f7879746f702e7370616365
 @ProxyMTProto
 </div>
 
