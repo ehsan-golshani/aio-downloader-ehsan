@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/04/21 02:49
+📅 آخرین بروزرسانی: 1405/04/21 03:51
 
 ---
+
+## tasiyanc — post 6773
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VİP - ⛓️OMEGA ⚡.npvt
+</div>
 
 ## tasiyanc — post 6770
 
@@ -180,11 +186,5 @@ INFERNO ⚡ vip.npvt
 ⬇️ دانلود یا تماشای بدون سانسور
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-INFERNO ⚡ vip.npvt
 </div>
 

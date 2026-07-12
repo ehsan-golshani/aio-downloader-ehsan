@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/04/21 02:49
+📅 آخرین بروزرسانی: 1405/04/21 03:51
 
 ---
+
+## tasiyanc — post 6362
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡All Operators ⚡.npvt
+</div>
 
 ## tasiyanc — post 6361
 
@@ -188,11 +194,5 @@ FAST @Tasiyanc servers.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بمب تو راهه
-</div>
-
-## tasiyanc — post 6341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی کلاینت جدید VPN ساعت 18 🐾
 </div>
 

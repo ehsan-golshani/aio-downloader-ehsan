@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/04/21 02:49
+📅 آخرین بروزرسانی: 1405/04/21 03:51
 
 ---
+
+## tasiyanc — post 7082
+
+<div align="center"><video src="files/post_7082_tasiyanc_7082.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7082_tasiyanc_7082.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐
+🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@series-a2.samanehha.co:443#%F0%9F%87%AC%F0%9F%87%A7%20%40Tasiyanc%20%E2%9A%A1%EF%B8%8F%E2%9A%A1%EF%B8%8F
+نامحدود سرعتی - لندن 
+🇬🇧
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7081
 
@@ -224,21 +240,5 @@ Location 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇳🇱⚡⚡GGG.npvt
-</div>
-
-## tasiyanc — post 7040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-2 سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/04/21 02:49
+📅 آخرین بروزرسانی: 1405/04/21 03:51
 
 ---
+
+## tasiyanc — post 6953
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ دارک تونل 🌟
+
+حجم نامحدود - سرعتی 🚀
+
+تست شده رو تمام نت ها ✅
+
+دانلود Dark Tunnel 🕹
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6952
 
@@ -184,12 +198,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قیمت هر تتر 💎 164000
-</div>
-
-## tasiyanc — post 6931
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️ ترامپ: توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم! من بدینوسیله اجازه کامل بازگشایی تنگه هرمز را می‌دهم و همزمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دارم. کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید…
 </div>
 
