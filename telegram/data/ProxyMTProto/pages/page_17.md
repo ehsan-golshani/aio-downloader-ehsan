@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/04/21 17:21
+📅 آخرین بروزرسانی: 1405/04/21 18:20
 
 ---
+
+## ProxyMTProto — post 48709
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48708
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 34.6.107.226
+Port: 443
+Secret: dd576db7cb0acd36cefd91a4d8aad84ab3
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48707
 
@@ -163,24 +181,6 @@ Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e63
 Server: turbo.tg-proxy.fun
 Port: 9443
 Secret: a545c35eb2bdfa1a93df5ebe69957120
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48689
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48688
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 87.120.108.94
-Port: 443
-Secret: c40ebb0c21fe41fb96581bf994247f40
 @ProxyMTProto
 </div>
 
