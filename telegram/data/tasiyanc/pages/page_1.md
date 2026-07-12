@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/21 14:22
+📅 آخرین بروزرسانی: 1405/04/21 21:22
 
 ---
+
+## tasiyanc — post 7986
+
+<div align="center"><a href="files/post_7986_Melli Best ⚡ Nuremberg 🇩🇪.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Melli Best ⚡ Nuremberg 🇩🇪.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7985
+
+<div align="center"><img src="files/post_7985_tasiyanc_7985.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+A true friend of the Iranian people, may your soul rest in peace. You will always be remembered, dear Senator Graham 🖤
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7981
 
@@ -16,8 +52,6 @@
 <div align="center"><video src="files/post_7977_tasiyanc_7977.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_7977_tasiyanc_7977.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_7977_⚡️🗽 Vip By @Tasiyanc 🇩🇪.nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡️🗽 Vip By @Tasiyanc 🇩🇪.nm</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی نت مود 
@@ -220,29 +254,5 @@ Change the background behind those two people with white curtains. With hugging 
 ‏جوری که این مدت گذشت:
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7936
-
-<div align="center"><img src="files/post_7936_tasiyanc_7936.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همین گنده گوزیا بگاتون داد
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7935
-
-<div align="center"><img src="files/post_7935_tasiyanc_7935.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نوشته بود پدره واقعا باباست، مادره هم واقعا مامانه، بچه‌ها هم واقعا بچه‌ان
-
-اینم عکس خانوادگی آتلیه ایشون😭😭😭
-راستی پدر
-چپی مادر
-
-@Tasiyanc ⭐️
 </div>
 
