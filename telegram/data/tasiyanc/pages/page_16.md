@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/04/21 03:51
+📅 آخرین بروزرسانی: 1405/04/21 10:25
 
 ---
+
+## tasiyanc — post 7368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل عوض شد
+مرسی از آرمان موسس بانک خاورمیانه
+</div>
+
+## tasiyanc — post 7357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ نپسترنت 
+🔐
+
+۴ سرور نامحدود سرعتی ⚡️
+
+آموزش اتصال 💘
+</div>
+
+## tasiyanc — post 7356
+
+<div align="center"><img src="files/post_7356_tasiyanc_7356.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ Summer Vip.npvt
+</div>
 
 ## tasiyanc — post 7355
 
@@ -220,46 +246,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 💘.ایران در سال 1352 تنها کشور اسیا بود که در تمام دنیا پاسپورتش نیاز به ویزا نداشت
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو تا کانفیگ نپستر بالا وصلن بدون اینکه پینگ بگیرید وصل شید
-</div>
-
-## tasiyanc — post 7325
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ دارک تانل 🇮🇹 Milan📍
-
-
-برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
-
-
-دانلود Dark Tunnel  🕹
-
-
-آموزش اتصال به سرور دارک ⏩
-
-
-✅@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود NPV لوکیشن Nuremberg 🇩🇪
-
-4سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- ✅@Tasiyanc | تاسیان
 </div>
 
