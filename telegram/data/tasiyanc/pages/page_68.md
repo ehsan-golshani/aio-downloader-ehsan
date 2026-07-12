@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/04/21 21:22
+📅 آخرین بروزرسانی: 1405/04/22 02:50
 
 ---
+
+## tasiyanc — post 5807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر بار باید بگیم ری اکشن بزنید 😂
+</div>
 
 ## tasiyanc — post 5805
 
@@ -191,12 +197,5 @@ Panda 🐼.npvt
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💘💘💘
-wlc to TASIYAN family ❤️‍🔥
 </div>
 

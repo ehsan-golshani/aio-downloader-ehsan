@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/21 21:22
+📅 آخرین بروزرسانی: 1405/04/22 02:50
 
 ---
+
+## tasiyanc — post 6916
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زودتر برید بردارید عشقا  واسه چنلا هم از اینجا جوین شید که یراست توی ربات کانفینگو بگیرید👇😋 @TelNegah @BLUEGUARD_NEWSS @VLinews @kamkarstore
+</div>
 
 ## tasiyanc — post 6913
 
@@ -189,11 +195,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpvWklvQTY5UTh5aGNRVjhrYTNQYTNB@82.38.31.11:80
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6876
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[48]🚀@Tasiyanc.conf
 </div>
 

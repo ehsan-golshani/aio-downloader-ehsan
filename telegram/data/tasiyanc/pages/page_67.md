@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/04/21 21:22
+📅 آخرین بروزرسانی: 1405/04/22 02:50
 
 ---
+
+## tasiyanc — post 5848
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مثل بعضیا دوس ندارم تعریف کنم ولی خب وقتی دو سه نفر کونشور بیاد بگه وصل نیست مجبورم چند تا پیام از لطف عزیزانم رو بهشون بفرستم ❤️‍🔥
+</div>
 
 ## tasiyanc — post 5847
 
@@ -202,11 +208,5 @@ GM TASIYAN 💝
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5807
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر بار باید بگیم ری اکشن بزنید 😂
 </div>
 

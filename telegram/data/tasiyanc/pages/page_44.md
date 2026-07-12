@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/04/21 21:22
+📅 آخرین بروزرسانی: 1405/04/22 02:50
 
 ---
+
+## tasiyanc — post 6428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
+</div>
 
 ## tasiyanc — post 6427
 
@@ -178,21 +184,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 فایل Txt رو باز کنین کانفیگارو کپی کنین بریزید V2Box 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
 </div>
 

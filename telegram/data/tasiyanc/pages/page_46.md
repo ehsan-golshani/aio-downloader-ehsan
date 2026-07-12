@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/04/21 21:22
+📅 آخرین بروزرسانی: 1405/04/22 02:50
 
 ---
+
+## tasiyanc — post 6375
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد T.me/TasiyanProxy
+</div>
 
 ## tasiyanc — post 6374
 
@@ -218,15 +224,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ع سرورای تاسیان اسکی می‌ره پسوردم می‌زاره و میگه بیاید تشکر کنین ازم
 ساعت ۲۱.۱۸ سرور میزنم پنج دقیقه بعدش دیکد می‌کنه ، آدم میمونه چی بگه
-</div>
-
-## tasiyanc — post 6352
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-🔺@Tasiyanc ✅
 </div>
 
