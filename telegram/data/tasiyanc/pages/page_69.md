@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/04/21 12:47
+📅 آخرین بروزرسانی: 1405/04/21 14:22
 
 ---
+
+## tasiyanc — post 5782
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈2 سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5780
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈2 سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نگران نباشید منو دارین منم شمارو ❤️
+</div>
 
 ## tasiyanc — post 5778
 
@@ -166,37 +198,6 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 رمز : ″ @Tasiyanc ″
 
 در صورت اختلال حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-
-🚀 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 5754
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی تو راهه
-</div>
-
-## tasiyanc — post 5753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینستا بهتر از تلگرام بالا میاد ، کانکت شدید برید اینستا ببینین سرعتو
-</div>
-
-## tasiyanc — post 5752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
 
 
 
