@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/04/21 10:25
+📅 آخرین بروزرسانی: 1405/04/21 12:47
 
 ---
+
+## tasiyanc — post 6367
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🔝
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 🍏
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6366
 
@@ -192,11 +208,5 @@ Password : @Tasiyanc  ⏩
 🔺 مناسب برای استفاده از کانفیگ‌های مختلف در اندروید
 پروژه OLCNG یکی از محصولات OpenLibre Community است که با هدف ارائه ابزاری سریع و ساده برای مدیریت اتصال‌های مبتنی بر پروکسی توسعه داده شده است.
 Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST @Tasiyanc servers.txt
 </div>
 

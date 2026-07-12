@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/04/21 10:25
+📅 آخرین بروزرسانی: 1405/04/21 12:47
 
 ---
+
+## tasiyanc — post 6345
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST @Tasiyanc servers.txt
+</div>
 
 ## tasiyanc — post 6344
 
@@ -200,20 +206,5 @@ Password : @Tasiyanc 
 ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6320
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN♻️
-
-تست شده  🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
 </div>
 

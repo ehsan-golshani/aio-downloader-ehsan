@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/04/21 10:25
+📅 آخرین بروزرسانی: 1405/04/21 12:47
 
 ---
+
+## tasiyanc — post 6473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸@Tasiyanc.ovpn
+</div>
 
 ## tasiyanc — post 6472
 
@@ -214,11 +220,5 @@ new@Tasiyanc.ovpn
 فایل Txt رو باز کنین کانفیگ رو تو آپ NPV & V2BOX & V2RAYNG زیر بزنید پینگ بگیرید وصل شید  🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-300 GB ⚡ VİP.npvt
 </div>
 

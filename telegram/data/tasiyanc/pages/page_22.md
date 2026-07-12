@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/04/21 10:25
+📅 آخرین بروزرسانی: 1405/04/21 12:47
 
 ---
+
+## tasiyanc — post 7168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود مولتی لوکیشن
+
+3سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7167
 
@@ -232,22 +248,5 @@ Location 🇫🇷 حجم نامحدود
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ذات تاسیان؟
-</div>
-
-## tasiyanc — post 7128
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم-وب‌گردی-اینستاگرام 
-👑
-
-2 کانفیگ حجم و کاربر نامحدود 
-🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال 
-⛓
-
-T.me/Tasiyanc ✅
 </div>
 
