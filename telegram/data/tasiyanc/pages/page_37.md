@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/22 11:20
+📅 آخرین بروزرسانی: 1405/04/22 14:22
 
 ---
+
+## tasiyanc — post 6664
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌎🚀World Cup ⚡.npvt
+</div>
+
+## tasiyanc — post 6663
+
+<div align="center"><video src="files/post_6663_tasiyanc_6663.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6663_tasiyanc_6663.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۴سرور سرعتی همه نت ها 
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 🕹 IOS 
+📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6660
 
@@ -202,34 +231,5 @@ vless://931729a8-3c20-4841-89a1-f18dc9ce0a6f@cdn7-09.vk-cdnvideo.com:8443?securi
 آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6636
-
-<div align="center"><video src="files/post_6636_tasiyanc_6636.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6636_tasiyanc_6636.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-2سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6634
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-غربالگری چنل ، انگل زدایی چنل ✅
 </div>
 

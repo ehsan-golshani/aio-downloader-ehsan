@@ -1,12 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/22 11:20
+📅 آخرین بروزرسانی: 1405/04/22 14:22
 
 ---
 
-## tasiyanc — post 7993
+## tasiyanc — post 7996
 
-<div align="center"><a href="files/post_7993_01 Fast Service⚡🇮🇹.ehi.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 01 Fast Service⚡🇮🇹.ehi</a></div>
+<div align="center"><video src="files/post_7996_tasiyanc_7996.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7996_tasiyanc_7996.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادیتی از محمدرضا شاه فقید که تو چند ساعت، میلیونی بازدید خورده
+🇮🇷
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 7995
+
+<div align="center"><video src="files/post_7995_tasiyanc_7995.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7995_tasiyanc_7995.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختره نوشته: دوس پسرم برای چند ساعت رفت بیرون و منم تصمیم گرفتم سورپرایزش کنم.
+🚬
+
+@Tasiyanc
+✅
+</div>
+
+## tasiyanc — post 7993
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی İnjector📶
@@ -27,8 +53,6 @@
 </div>
 
 ## tasiyanc — post 7991
-
-<div align="center"><a href="files/post_7991_DarkTunnel 01 🇩🇪.dark.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 DarkTunnel 01 🇩🇪.dark</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
@@ -229,37 +253,5 @@ Speed Fast ⚡ 🇩🇪.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ حمله سپاه به یک کشتی غول پیکر در تنگه ، در جواب به ترامپ ک‌گفته بود باید تا آخر امشب ایران تنگه رو باز کنه کامل
-</div>
-
-## tasiyanc — post 7944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آخرین باری که دانش اموزا همه باهم دینی میخوندن یه نفر رو خرس خورد😹😹😹
-
-@Tasiyanc✅
 </div>
 

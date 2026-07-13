@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/22 11:20
+📅 آخرین بروزرسانی: 1405/04/22 14:22
 
 ---
+
+## tasiyanc — post 6926
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسمیییییییییییی
+توافق امضا شد
+@Tasiyanc
+✅
+</div>
+
+## tasiyanc — post 6925
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+DhVkjFb6qhZmYTFk
+بیاید گپمون (صحبت)
+</div>
 
 ## tasiyanc — post 6924
 
@@ -214,19 +230,5 @@ T.me/Tasiyanc ✅
 تاسیان 🖤
 ارسالی از اعضای عزیزم💋
 @Tasiyanc
-</div>
-
-## tasiyanc — post 6882
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇳🇱🇫🇷⚡⚡.npvt
-</div>
-
-## tasiyanc — post 6881
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ قالیباف 🔗
-سخن گفتن از ادامه مسیر مذاکره ممکن نیست.
-@Tasiyanc ✅
 </div>
 
