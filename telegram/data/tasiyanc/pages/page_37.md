@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/22 07:43
+📅 آخرین بروزرسانی: 1405/04/22 11:20
 
 ---
+
+## tasiyanc — post 6660
+
+<div align="center"><img src="files/post_6660_tasiyanc_6660.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ تو مراسم افتتاحیه جام جهانی امشب راس ساعت 21:00
+شکیرا، دنی اوشن، جی بالوین، بلیندا و لیسا توش قراره اجرا داشته باشن
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6659
+
+<div align="center"><video src="files/post_6659_tasiyanc_6659.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6659_tasiyanc_6659.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢معرفی اپ کاربردی برای فوتبالیا
+
+🔴برای اطلاع از زمان دقیق بازیها - جزئیات و ترکیب تیمها در جام جهانی کافیه این اپ جهانی رو نصب کنین و FIFA world cup رو فالو کنین
+
+Fotmob Android 
+🕹
+
+Fotmob iOS 
+📱
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6658
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطورید رو به راهید؟
+</div>
 
 ## tasiyanc — post 6657
 
@@ -193,23 +231,5 @@ vless://931729a8-3c20-4841-89a1-f18dc9ce0a6f@cdn7-09.vk-cdnvideo.com:8443?securi
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 غربالگری چنل ، انگل زدایی چنل ✅
-</div>
-
-## tasiyanc — post 6632
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Homayoun Shajarian & Sohrab Pournazeri – Irane Man
-</div>
-
-## tasiyanc — post 6630
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Homayoun Shajarian & Sohrab Pournazeri – Irane Man
-</div>
-
-## tasiyanc — post 6629
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به یاد فرزندان ایران 🖤 ۱۸ & ۱۹
 </div>
 

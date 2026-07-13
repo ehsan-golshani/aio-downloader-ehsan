@@ -1,8 +1,106 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/04/22 07:43
+📅 آخرین بروزرسانی: 1405/04/22 11:20
 
 ---
+
+## tasiyanc — post 7874
+
+<div align="center"><img src="files/post_7874_tasiyanc_7874.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاملگی مامان باب اسفنجیو دیده بودین :)))))؟
+
+
+@Tasiyanc 
+😌
+#Tina
+</div>
+
+## tasiyanc — post 7868
+
+<div align="center"><video src="files/post_7868_tasiyanc_7868.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7868_tasiyanc_7868.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 
+📱
+
+3سرور  سرعتی پرمیوم 
+⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال روی اندروید 
+⛓
+آموزش اتصال روی ویندوز  
+⛓
+
+دانلود برنامه اندروید 
+🕹
+
+دانلود برنامه برای ویندوز 
+💻
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7865
+
+<div align="center"><video src="files/post_7865_tasiyanc_7865.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7865_tasiyanc_7865.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 
+🔐
+
+سرور سرعتی پرمیوم متد جدید سرور 
+⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 اینستاگرام 
+📸 جمینای 
+🤖
+
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7864
 
@@ -235,26 +333,5 @@
 https://t.me/+v0wRP5SGNrg5MThk
 
 دریافت کانفیگ مخصوص اینترنت ملی 👆
-</div>
-
-## tasiyanc — post 7821
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریافت کانفیگ نت ملی در صورت قطعی 👉
-ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
-</div>
-
-## tasiyanc — post 7819
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میترسم بخوابم صبح داخل روبیکا بیدار شم
-</div>
-
-## tasiyanc — post 7818
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه اخبار رو از چنل پروکسی دنبال کنید ، چنلای مجموعه تاسیان بزودی همگی پرایوت میشه چه قطعی باشه نباشه
-
-https://t.me/+v0wRP5SGNrg5MThk ⭐️
 </div>
 
