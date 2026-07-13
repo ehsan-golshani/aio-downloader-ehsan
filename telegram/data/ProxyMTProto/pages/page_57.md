@@ -1,8 +1,62 @@
 # آرشیو کانال ProxyMTProto - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/04/22 16:46
+📅 آخرین بروزرسانی: 1405/04/22 19:37
 
 ---
+
+## ProxyMTProto — post 47943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: glide.proxyonline.online
+Port: 443
+Secret: eeb4cf448c2c66dc6151b6746bd1799ae5676c6964652e70726f78796f6e6c696e652e6f6e6c696e65
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47942
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47941
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fresh.nolags.pw
+Port: 443
+Secret: dd691fa48fcc661b68fe4f5200c5b174f9
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47940
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 2053
+Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47939
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s3.mowork.twc1.net
+Port: 443
+Secret: ee90872f20ccc37e3aa2681602f51df71273332e6d6f776f726b2e747763312e6e6574
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47938
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: russia2.loveproxy.xyz
+Port: 443
+Secret: dddf514ae4da112140933c25803d720852
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47937
 
@@ -127,60 +181,6 @@ Secret: 7nnnAQIAAQAH8AMDhuJMOt0%3D
 Server: s02.neo-trading.org
 Port: 443
 Secret: ee6ec9f7e082baf2397b450727ce78447e6f7a6f6e2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47923
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 9965
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47922
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: europe.nolags.pw
-Port: 443
-Secret: dd35cf6d34b82d8531a8c93aea1fa2f72b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47921
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: zoom.flowaccess.site
-Port: 443
-Secret: ee50179d3cf3b7e3600efe3b6001fa35c07a6f6f6d2e666c6f776163636573732e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47919
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47918
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 51.250.71.16
-Port: 443
-Secret: ee83664d92de321661cc33e6839bbeef1e617669746f2e7275
 @ProxyMTProto
 </div>
 

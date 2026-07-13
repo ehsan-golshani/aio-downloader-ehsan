@@ -1,8 +1,65 @@
 # آرشیو کانال ProxyMTProto - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/04/22 16:46
+📅 آخرین بروزرسانی: 1405/04/22 19:37
 
 ---
+
+## ProxyMTProto — post 47623
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 72.56.87.28
+Port: 443
+Secret: 7sEXmKsAiDG0dAZsnh6_XHZhdml0by5ydQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47622
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.21.40
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c74617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47621
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ Рабочие прокси сейчас быстро отключаются из-за новых ограничений
+
+Если Telegram снова плохо грузит — лучше подключиться заранее 👀
+
+Мы постоянно добавляем новые прокси и пока раздаём их бесплатно 🔥
+
+⬇️ Запусти бота и получи рабочий прокси прямо сейчас
+</div>
+
+## ProxyMTProto — post 47620
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r6.proxytg.space
+Port: 8443
+Secret: eea66a6c939a8f1a0596bd06f17dae253772362e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47619
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tproxy.ink
+Port: 443
+Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47618
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowaboost.com
+Port: 443
+Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47617
 
@@ -128,65 +185,6 @@ https://t.me/proxycenter_rubot?start
 Server: amoreszi.duckdns.org
 Port: 443
 Secret: 7uZ0yg4fr7vIQ5i_MUfeWQB3d3cuYXBwbGUuY29t
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47603
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 72.56.41.35
-Port: 443
-Secret: 7sEXmKsAiDG0dAZsnh6_XINhdml0by5ydQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47602
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 178.105.168.17
-Port: 443
-Secret: eeb67e98429f3ba8896ff33ab9ff9d18a1676f6f676c65617069732e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47601
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 72.56.41.35
-Port: 443
-Secret: 7sEXmKsAiDG0dAZsnh6_XINhdml0by5ydQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tproxy.mom
-Port: 8090
-Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47599
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Telegram опять еле дышит?
-
-BLYATNET фиксит это за минуту ⚡
-
-🚀 Быстрые MTProxy и VPN
-🛡 Стабильный доступ без мусора
-🌍 Серверы по всему миру
-
-💫 От 5 ⭐ — дешевле чем стикер 👇
-</div>
-
-## ProxyMTProto — post 47598
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dreams.nolags.pw
-Port: 443
-Secret: dd2d558135931b5e0c5da5e7501724b32c
 @ProxyMTProto
 </div>
 
