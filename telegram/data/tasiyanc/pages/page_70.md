@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/04/22 02:50
+📅 آخرین بروزرسانی: 1405/04/22 07:43
 
 ---
+
+## tasiyanc — post 5758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+
+🚀 @Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 5757
 
@@ -182,18 +198,4 @@ https://t.me/Tasiyanc/5733
 ## tasiyanc — post 5737
 
 <div align="center"><img src="files/post_5737_tasiyanc_5737.jpg" alt="Photo"></div>
-
-## tasiyanc — post 5736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده روی تمام اپراتورها ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-
-🚀 @Tasiyanc ✅
-</div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/04/22 02:50
+📅 آخرین بروزرسانی: 1405/04/22 07:43
 
 ---
+
+## tasiyanc — post 7654
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زجه بزن عرزشی ، زجه زدنای شما منو ارضا میکنه
+</div>
 
 ## tasiyanc — post 7653
 
@@ -152,11 +158,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 به امید برد تیم بزرگ مصر میراث انور سادات فقید رفیق واقعی ایرانیان
-</div>
-
-## tasiyanc — post 7621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تیم انور سادات بزرگ شاهنشاه فقید مصر و استرالیا رفت پنالتی
 </div>
 

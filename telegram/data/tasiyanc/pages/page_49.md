@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/04/22 02:50
+📅 آخرین بروزرسانی: 1405/04/22 07:43
 
 ---
+
+## tasiyanc — post 6302
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به هرحال فشار میاد و تردید میکنم برای ادامه فعالیت
+</div>
 
 ## tasiyanc — post 6301
 
@@ -195,21 +201,6 @@ MCI - SamanTel - wifi تست شده
 کانفیگ جدید OpenVPN سرور فنلاند  ♻️
 
 تست شده با سامانتل بقیه تست کنن 🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6277
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده با سامانتل و ایرانسل🚀
 
 دانلود OpenVpn  🕹
 

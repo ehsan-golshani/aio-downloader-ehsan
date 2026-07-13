@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/22 02:50
+📅 آخرین بروزرسانی: 1405/04/22 07:43
 
 ---
+
+## tasiyanc — post 7807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچ اختلالی تو دیتا سنترا نداریم به کسشرات چنلای کانفیگ گوش ندید ، چیزی باشه خودم اطلاع رسانی میکنم
+همش برا جذب ممبره
+</div>
 
 ## tasiyanc — post 7806
 
@@ -196,11 +203,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ آکسیوس : حملات آمریکا ممکنه چند ساعت یا چند روز ادامه پیدا کنه
-</div>
-
-## tasiyanc — post 7755
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری حملات آمریکا به اسکله حقانی در سیریك
 </div>
 

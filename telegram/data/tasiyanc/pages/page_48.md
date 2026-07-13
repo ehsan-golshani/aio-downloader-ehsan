@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/04/22 02:50
+📅 آخرین بروزرسانی: 1405/04/22 07:43
 
 ---
+
+## tasiyanc — post 6328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN♻️
+تست شده  🚀
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6327
 
@@ -195,11 +203,5 @@ Password : @Tasiyanc  ⏩
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
-</div>
-
-## tasiyanc — post 6302
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به هرحال فشار میاد و تردید میکنم برای ادامه فعالیت
 </div>
 
