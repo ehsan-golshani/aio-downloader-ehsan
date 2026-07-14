@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/04/23 21:00
+📅 آخرین بروزرسانی: 1405/04/23 22:21
 
 ---
+
+## ProxyMTProto — post 48016
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: apex.proxyux.site
+Port: 443
+Secret: ee1e16392ec634c2ebce9387a9edcf24e3617065782e70726f787975782e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy8.arixo.shop
+Port: 443
+Secret: eeb244bd047b4e9e68340bf827ab7bd9b1617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48014
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy7.arixo.shop
+Port: 443
+Secret: ee120e6efb5454d0945c4997bf6ea493c4617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48013
 
@@ -154,33 +181,6 @@ Secret: ee03d3d1b9bda832390669bc06167720d8726f636b65742e666c6f776163636573732e73
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47996
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rocket.flowaccess.site
-Port: 443
-Secret: ee03d3d1b9bda832390669bc06167720d8726f636b65742e666c6f776163636573732e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47994
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: memory.nolags.pw
-Port: 443
-Secret: ddb50d67677180b7c552ffe1ec0579ed76
 @ProxyMTProto
 </div>
 
