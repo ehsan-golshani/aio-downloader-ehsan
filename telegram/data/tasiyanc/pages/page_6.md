@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/23 19:27
+📅 آخرین بروزرسانی: 1405/04/23 21:02
 
 ---
+
+## tasiyanc — post 7842
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انفجار در چابهار 😐
+</div>
 
 ## tasiyanc — post 7840
 
@@ -251,12 +257,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 اتصال امن برای همه 🇮🇷
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7795
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری
-پیت هگست وزیر جنگ آمریکا بخاطر جنگ با ایران سفرش به اسرائیل را لغو کرد
 </div>
 

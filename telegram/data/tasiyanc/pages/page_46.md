@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/04/23 19:27
+📅 آخرین بروزرسانی: 1405/04/23 21:02
 
 ---
+
+## tasiyanc — post 6423
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨کانال ۱۲ اسرائیل:
+طی چندساعت اخیر به ۲۰ هدف تو ایران حمله کردیم
+
+@TasiyanProxy
+</div>
 
 ## tasiyanc — post 6422
 
@@ -206,12 +215,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 
 @Tasiyanproxy
 @Tasiyanproxy
-</div>
-
-## tasiyanc — post 6400
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ آسمان ایران کلیر شد
-@Tasiyanc
 </div>
 

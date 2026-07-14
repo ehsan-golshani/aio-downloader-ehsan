@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/04/23 19:27
+📅 آخرین بروزرسانی: 1405/04/23 21:02
 
 ---
+
+## tasiyanc — post 6017
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید پارتی داریم ( گپ تاسیان)
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 6016
 
@@ -179,11 +186,5 @@ VİP 🔥.npvt
 ⭐ قراره تو تاریخ 31 و 30 May (10و 9 خرداد 1405) ماه به مرحله کامل (بدر) برسه و پدیده ماه آبی به وجود میاد
 
 از برکات تولد مالک تاسیان😂❤️
-</div>
-
-## tasiyanc — post 5982
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عشقید به مولا
 </div>
 
