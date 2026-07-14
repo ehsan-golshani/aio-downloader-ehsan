@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/04/23 22:21
+📅 آخرین بروزرسانی: 1405/04/23 23:37
 
 ---
+
+## ProxyMTProto — post 48339
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: norm.quickdl.info
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48338
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn.kvakzon.top
+Port: 443
+Secret: ee774ecb55b96b5c3302852e6861ada11563646e2e6b76616b7a6f6e2e746f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48337
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.nilmart.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48336
 
@@ -154,33 +181,6 @@ Secret: eefcbdb65a11b00bbfbbd9de6fb0b17099706f7274616c2e62616c616c61696b612e636c
 Server: link.mishkalapy.life
 Port: 443
 Secret: eeb6b2b376ea60c64410542c640dc2765e6c696e6b2e6d6973686b616c6170792e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48319
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: persian.gulf.ir.olsjddhf.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: go.antitspu.com
-Port: 443
-Secret: ee0d12d8f206a08b06eced9a104734a824676f2e616e7469747370752e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48317
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 103.161.35.23
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 
