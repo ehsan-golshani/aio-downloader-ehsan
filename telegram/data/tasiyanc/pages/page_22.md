@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/04/24 22:20
+📅 آخرین بروزرسانی: 1405/04/24 23:35
 
 ---
+
+## tasiyanc — post 7279
+
+## tasiyanc — post 7278
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV لوکیشن 🇩🇪
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7277
 
 ## tasiyanc — post 7276
 
@@ -165,46 +185,5 @@
 
 🌟 Config DarkTunnel 
 💘
-</div>
-
-## tasiyanc — post 7248
-
-<div align="center"><video src="files/post_7248_tasiyanc_7248.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7248_tasiyanc_7248.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV
-
-4سرور سرعتی متد جدید
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7247
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐
-</div>
-
-## tasiyanc — post 7238
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توییت های ترامپ پوشش ندیم بهتره سیاست مدارا زیاد دروغ میگن قبول داریم ولی جایگاه دیپلماتیک فرق می‌کنه چون ایشون انقد موضع خودشو عوض کرد و دروغ گفت   علاوه بر اینکه پیش مردم ایران حرفاش اعتباری نداره بلکه در میان حکومت و سیاستمداران دنیا هم دیگه گردنش نمیگیرن و هیچ یک از حرفاش برای احدی مهم نیست جز قیمت بازار نفت که منبع درآمد خوبی براش شده با بالا پایین کردنش .
-پی‌نوشت : همین تنگه هرمز ک الان سرش دعواست قبل جنگ تا خرخره باز بود
 </div>
 
