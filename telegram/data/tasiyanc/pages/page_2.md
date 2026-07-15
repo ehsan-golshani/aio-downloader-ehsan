@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/04/24 15:44
+📅 آخرین بروزرسانی: 1405/04/24 17:53
 
 ---
+
+## tasiyanc — post 8069
+
+<div align="center"><img src="files/post_8069_tasiyanc_8069.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرغی که مامانم گذاشته بود رو گاز و گفته بود حواست باشه نسوزه!
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8067
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار 185
+</div>
+
+## tasiyanc — post 8066
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ قبل قطعی نخررررررررید به اسم کانفیگ ملی یا هر کسشر دیگه
+
+گول این کانفیگ فروش‌های احمق و بی سواد نخورید وقتی اینترنت ملی بشه ، آیپی های کلودفلیرر از کار میوفتن کانفیگی ک خریدی کار نمیده
+
+وقتی اینترنت قط شه ۹۰٪ این چنلا میرن رد کارشون یا میان کانفیگ مارو دیکد می‌کنن یا یکی دو تا از رفیقامو ، به هرحال گفتم دوباره این مطلبو بگم .
+</div>
+
+## tasiyanc — post 8063
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨 حمله آمریکا هم اکنون به بوشهر ۴ انفجار شدید @TasiyanProxy ☑️
+</div>
 
 ## tasiyanc — post 8059
 
@@ -223,55 +280,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پشماتون بریزه ، آمریکا دیشب اینجوری با قایق انتحاری عملیات انجام داده :
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ:
-🔻امشب ما مهمانی بسیار ویژه خواهیم داشت که در حملات ما به ایران شرکت خواهد داشت.
-فیکه خبر
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن فاک باز شد
-</div>
-
-## tasiyanc — post 8001
-
-<div align="center"><video src="files/post_8001_tasiyanc_8001.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8001_tasiyanc_8001.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جای اینکه مراقب دخترامون باشیم اینطوری باید تا کنین باشون؟؟؟ مرد ایرانی و با مرام و غیر.ت میشناسن جلوی گلوله وایستادن مردا که گلوله نخورن دخترامون ، این چه کاری بود کردید شما بی نا*موسا؟
-پی‌نوشت : اکثر این چنلا برای لرستان بودن که دستگیر شدن ادمیناشون امیدوارم لرستانیا این بیشرفارو ادب کنن .
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8000
-
-<div align="center"><img src="files/post_8000_tasiyanc_8000.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در حالی که داشتم سومین لیوان چاییم رو میخوردم اینو دیدم:
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7998
-
-<div align="center"><img src="files/post_7998_tasiyanc_7998.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هرکی گفت پول خوشبختی نمیاره اینو نشونش بده خفه شه؛ تعطیلات وینیسیوس با دوست دخترش:
 
 @Tasiyanc ⭐️
 </div>
