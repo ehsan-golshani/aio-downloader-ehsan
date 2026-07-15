@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/24 12:18
+📅 آخرین بروزرسانی: 1405/04/24 14:10
 
 ---
+
+## tasiyanc — post 7914
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ 🌟 : در صورتی ک جمهوری اسلامی منو ترور کنه بلافاصله هزاران موشک تا یکسال آماده شلیک هستند
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7904
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندار پاکدشت:
+
+🔻صدای انفجارهایی که چندی پیش در شرق استان تهران شنیده شد، نتیجه یک عملیات کنترل شده برای خنثی سازی مواد منفجره بود.
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 7902
+
+<div align="center"><img src="files/post_7902_tasiyanc_7902.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاکدشت - پارچین
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7897
 
@@ -184,109 +233,5 @@
 @Tasiyanc 
 ⭐️
 #Navid
-</div>
-
-## tasiyanc — post 7874
-
-<div align="center"><img src="files/post_7874_tasiyanc_7874.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاملگی مامان باب اسفنجیو دیده بودین :)))))؟
-
-
-@Tasiyanc 
-😌
-#Tina
-</div>
-
-## tasiyanc — post 7868
-
-<div align="center"><video src="files/post_7868_tasiyanc_7868.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7868_tasiyanc_7868.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 
-📱
-
-3سرور  سرعتی پرمیوم 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال روی اندروید 
-⛓
-آموزش اتصال روی ویندوز  
-⛓
-
-دانلود برنامه اندروید 
-🕹
-
-دانلود برنامه برای ویندوز 
-💻
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7865
-
-<div align="center"><video src="files/post_7865_tasiyanc_7865.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7865_tasiyanc_7865.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم متد جدید سرور 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 اینستاگرام 
-📸 جمینای 
-🤖
-
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7864
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺آمریکا اعلام کرد همچنان به تفاهم‌نامه با ایران متعهد است و به دنبال مسیر دیپلماتیک است
 </div>
 

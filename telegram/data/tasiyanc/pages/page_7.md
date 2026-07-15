@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/24 12:18
+📅 آخرین بروزرسانی: 1405/04/24 14:10
 
 ---
+
+## tasiyanc — post 7821
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دریافت کانفیگ نت ملی در صورت قطعی 👉
+ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
+</div>
+
+## tasiyanc — post 7819
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میترسم بخوابم صبح داخل روبیکا بیدار شم
+</div>
+
+## tasiyanc — post 7818
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادامه اخبار رو از چنل پروکسی دنبال کنید ، چنلای مجموعه تاسیان بزودی همگی پرایوت میشه چه قطعی باشه نباشه
+
+https://t.me/+v0wRP5SGNrg5MThk ⭐️
+</div>
+
+## tasiyanc — post 7807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچ اختلالی تو دیتا سنترا نداریم به کسشرات چنلای کانفیگ گوش ندید ، چیزی باشه خودم اطلاع رسانی میکنم
+همش برا جذب ممبره
+</div>
 
 ## tasiyanc — post 7806
 
@@ -158,49 +186,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبر هارو تو چنل پروکسی دنبال کنین
 @TasiyanProxy
-</div>
-
-## tasiyanc — post 7764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-2سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜
-🛜🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7757
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ انفجار مهیب و آتش سوزی بسیار بزرگ در اسکله مرکزی بندرعباس
-</div>
-
-## tasiyanc — post 7756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ آکسیوس : حملات آمریکا ممکنه چند ساعت یا چند روز ادامه پیدا کنه
-</div>
-
-## tasiyanc — post 7755
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری حملات آمریکا به اسکله حقانی در سیریك
 </div>
 
