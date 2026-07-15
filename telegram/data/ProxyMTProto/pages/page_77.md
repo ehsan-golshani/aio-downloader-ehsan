@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/04/24 23:33
+📅 آخرین بروزرسانی: 1405/04/25 00:48
 
 ---
+
+## ProxyMTProto — post 47613
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r1.proxytg.space
+Port: 8443
+Secret: eecd671d2032569f6cea0fb4c61c32756972312e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47612
 
@@ -178,15 +187,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: another.life.mambabot.net
 Port: 4515
 Secret: eec485b564c0178c338d8bf4f3f17539c4613234382e652e616b616d61692e6e6574
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47593
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s.proxytg.space
-Port: 8443
-Secret: eefefc4f17248e59437bb451447a9170b2732e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 

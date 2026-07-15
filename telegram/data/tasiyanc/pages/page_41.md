@@ -1,8 +1,101 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/04/24 23:35
+📅 آخرین بروزرسانی: 1405/04/25 00:50
 
 ---
+
+## tasiyanc — post 6644
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بهرحال منتی نیست ، به عشق شما ادامه میدیم 🦦
+</div>
+
+## tasiyanc — post 6640
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فکت عجیب : مردم ایران از چنلایی که سه ماه ۲۴ ساعت آنلاین بودن وصلشون کردن هیچ حمایتی نکردن و وقتی وصل شدن خیلیاشون لف دادن🤌😂
+</div>
+
+## tasiyanc — post 6639
+
+<div align="center"><video src="files/post_6639_tasiyanc_6639.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6639_tasiyanc_6639.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 🇯🇵♻️
+
+تست شده سامانتل - رایتل - وایفای 
+🚀
+دانلود OpenVpn  
+🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعت سرویس ساب نامحدود ک براتون گذاشتیم 🚀 داخل چنل پروکسی پین شده ❤️ https://t.me/+v0wRP5SGNrg5MThk 👆
+</div>
+
+## tasiyanc — post 6637
+
+<div align="center"><video src="files/post_6637_tasiyanc_6637.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6637_tasiyanc_6637.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 
+📱 WG tunnel 
+🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6636
+
+<div align="center"><video src="files/post_6636_tasiyanc_6636.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6636_tasiyanc_6636.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+2سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6634
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+غربالگری چنل ، انگل زدایی چنل ✅
+</div>
+
+## tasiyanc — post 6632
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Homayoun Shajarian & Sohrab Pournazeri – Irane Man
+</div>
 
 ## tasiyanc — post 6630
 
@@ -100,83 +193,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگای بالا ک گذاشتم همگی با سرعت وصلن ، درصورت فیلتر جدیدشو قرار میدیم ❤️
-</div>
-
-## tasiyanc — post 6583
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ تسنیم:
-
-هم اکنون یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه بمباران شد.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6581
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6580
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال رو همراه 😐
-</div>
-
-## tasiyanc — post 6579
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی متد جدید همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6578
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سیو کنین کانفیگارو
-</div>
-
-## tasiyanc — post 6577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ سیریک و قشم مورد حمله قرار گرفت
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6576
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز ب عشق خودتون ، قطعی باشه نباشه پیش همیم🩷🤝
-</div>
-
-## tasiyanc — post 6575
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

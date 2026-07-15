@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/04/24 23:33
+📅 آخرین بروزرسانی: 1405/04/25 00:48
 
 ---
+
+## ProxyMTProto — post 48373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.233.79.77
+Port: 443
+Secret: ee1c0eea3b7ab2529f5ebf8b67852ba490676f6f676c65617069732e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48372
 
@@ -172,15 +181,6 @@ Secret: ee20a5ef2d379cb45bcedd56e7092a93d36765742e75746b616e6f732e6c696665
 Server: moh.kingproxynewdomailasiatech.ink
 Port: 25565
 Secret: FgMBAgABAAH8AxOG4kw63Q
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48353
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: login.klyuch1k.org
-Port: 443
-Secret: ee62ae22cb0b6c1eb6a62d54ed50ec6c886c6f67696e2e6b6c79756368316b2e6f7267
 @ProxyMTProto
 </div>
 
