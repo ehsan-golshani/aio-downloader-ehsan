@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/24 14:10
+📅 آخرین بروزرسانی: 1405/04/24 15:44
 
 ---
+
+## tasiyanc — post 6985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از این به بعد ۲ فایل یه جا میزاریم
+یکی NPV TUNNEL یکی HTTPCUSTUM
+هر کی هر کدوم دوست داره وصل شه
+</div>
+
+## tasiyanc — post 6984
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡⚡@Taisyanc.hc
+</div>
+
+## tasiyanc — post 6983
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡⚡@Taisyanc.hc
+</div>
 
 ## tasiyanc — post 6982
 
@@ -242,25 +262,6 @@ T.me/Tasiyanc ✅
 اول از همه برنامه دارک تونل رو نصب کنین از پلی استور
 https://play.google.com/store/apps/details?id=net.darktunnel.app
 
-@Tasiyanc
-</div>
-
-## tasiyanc — post 6950
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب خب دست پر اومدیم
-</div>
-
-## tasiyanc — post 6949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنا چ‌کم شده
-</div>
-
-## tasiyanc — post 6947
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تست کنید
 @Tasiyanc
 </div>
 

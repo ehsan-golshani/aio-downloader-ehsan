@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/04/24 14:08
+📅 آخرین بروزرسانی: 1405/04/24 15:42
 
 ---
+
+## ProxyMTProto — post 47676
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 77.73.135.70
+Port: 443
+Secret: ee24fc31cd01228525d9052a343acbe717766b2e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47675
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.19.17
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c67617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47674
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 85.192.31.18
+Port: 443
+Secret: eecad61c6d50bf90c6c756f68bd926989b766b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47673
 
@@ -155,33 +182,6 @@ Secret: ee38f6acb959381bc6816ce7ccc2a213c162726f777365722e79616e6465782e636f6d
 Server: r20.proxytg.space
 Port: 8443
 Secret: ee882e7f1447939817016bb33afc4fe86c7232302e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47656
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 72.56.40.215
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c69617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47655
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47654
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.21.188
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c70617669746f2e7275
 @ProxyMTProto
 </div>
 

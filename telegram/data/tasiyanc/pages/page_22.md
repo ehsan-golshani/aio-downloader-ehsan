@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/04/24 14:10
+📅 آخرین بروزرسانی: 1405/04/24 15:44
 
 ---
+
+## tasiyanc — post 7252
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گل ایران رف وار آفساید شد
+</div>
+
+## tasiyanc — post 7251
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاهد حضور جوان و پدیده نو ظهور فوتبال احسان حاج صفی در ترکیب هستیم
+</div>
+
+## tasiyanc — post 7250
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی چند چند میشه؟
+</div>
 
 ## tasiyanc — post 7249
 
@@ -284,31 +302,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺امروز June 21، روز جهانی قدردانی از دخترای قد بلنده
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎉ایلان ماسک: هیچ دختری شکم شش تکه را
-به ۶ تا ماشین ترجیح نمیدهد
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگای دارک امیدوارم فراگیر شه و همه برنامشو بزنن کانفیگاش استفاده کنن واقعا یه لول از بقیه متد ها سر تره ،
-کوچکترین باگ نمیشه پیدا کرد توش با سرعت اتصال پایدار میده و هر ثانیه اتصال شمارو چک می‌کنه پینگ میده
-این کانفیگ ها در صورت قطعی قطعا باهاش خیلی کار خواهیم کرد
 </div>
 

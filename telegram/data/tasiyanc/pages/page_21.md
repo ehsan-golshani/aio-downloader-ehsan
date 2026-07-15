@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/04/24 14:10
+📅 آخرین بروزرسانی: 1405/04/24 15:44
 
 ---
+
+## tasiyanc — post 7285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
+
+برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
+
+دانلود Dark Tunnel  🕹
+
+آموزش اتصال به سرور دارک ⏩
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7284
+
+## tasiyanc — post 7283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪⚡ Fast 🚀.npvt
+</div>
 
 ## tasiyanc — post 7280
 
@@ -171,23 +193,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گل ایران رف وار آفساید شد
-</div>
-
-## tasiyanc — post 7252
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل ایران رف وار آفساید شد
-</div>
-
-## tasiyanc — post 7251
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاهد حضور جوان و پدیده نو ظهور فوتبال احسان حاج صفی در ترکیب هستیم
-</div>
-
-## tasiyanc — post 7250
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی چند چند میشه؟
 </div>
 

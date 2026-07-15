@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/04/24 14:10
+📅 آخرین بروزرسانی: 1405/04/24 15:44
 
 ---
+
+## tasiyanc — post 6435
+
+<div align="center"><img src="files/post_6435_tasiyanc_6435.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با توجه به احتمال اختلال و قطع شدن اینترنت به دلیل شرایط جنگی، برای اینکه ارتباطتون قطع نشه دو تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه براتون آماده کردیم.
+​همین الان تا اینترنت وصله وارد ربات زیر بشید و لینک‌هاتون رو تحویل بگیرید:
+
+
+دریافت کانفینگ رایگان
+دریافت کانفینگ رایگان
+</div>
+
+## tasiyanc — post 6434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡🪐 متد جدید.npvt
+</div>
+
+## tasiyanc — post 6433
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار و پروکسی ⚡️🚀
+https://t.me/TasiyanProxy
+</div>
 
 ## tasiyanc — post 6432
 
@@ -158,35 +184,5 @@ FAST⚡TASIYAN🚀.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حاجی ریکشن نمیزنید بریم بخوابیم
-</div>
-
-## tasiyanc — post 6412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🩷لحظات نفس‌گیر
-هم اکنون حریم های هوایی اسرائیل - سوریه - عراق - اردن بسته شده و غرب ایران آسمان کلییر شده
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رو همراه اول تست کردیم ولی اختلال زیاده❤️‍🔥
 </div>
 
