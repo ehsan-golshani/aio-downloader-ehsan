@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/04/24 17:53
+📅 آخرین بروزرسانی: 1405/04/24 19:34
 
 ---
+
+## tasiyanc — post 6837
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتیجه بازی های جام جهانی تا الان (اتمام نیمه اول )
+
+تیم کمک های اولیه🇨🇭 1 قطر 0 🇶🇦
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6835
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6834
 
@@ -212,18 +235,5 @@ Vahid online
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظر برخی از اعضاء پس توافق حتمیه !
-</div>
-
-## tasiyanc — post 6803
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظر برخی از اعضاء
-پس توافق حتمیه !
 </div>
 

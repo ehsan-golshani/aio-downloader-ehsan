@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/04/24 17:53
+📅 آخرین بروزرسانی: 1405/04/24 19:34
 
 ---
+
+## tasiyanc — post 7168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود مولتی لوکیشن
+
+3سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم-وب‌گردی-اینستاگرام 👑
+
+کانفیگ حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7166
 
@@ -218,43 +248,5 @@ Location 🇫🇷 حجم نامحدود
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ذات تاسیان؟
-</div>
-
-## tasiyanc — post 7128
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم-وب‌گردی-اینستاگرام 
-👑
-
-2 کانفیگ حجم و کاربر نامحدود 
-🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال 
-⛓
-
-T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7127
-
-<div align="center"><video src="files/post_7127_tasiyanc_7127.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7127_tasiyanc_7127.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 
-😎
-
-3سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ➡️
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
