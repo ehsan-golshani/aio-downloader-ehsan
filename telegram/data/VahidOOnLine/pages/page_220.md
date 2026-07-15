@@ -1,8 +1,75 @@
 # آرشیو کانال VahidOOnLine - صفحه 220
 
-📅 آخرین بروزرسانی: 1405/04/24 07:16
+📅 آخرین بروزرسانی: 1405/04/24 09:38
 
 ---
+
+## VahidOOnLine — post 244652
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️مصطفی خوش‌چشم، کارشناس صداوسیمای جمهوری اسلامی روز دوشنبه ۱۸ خردادماه با انتقاد از سازوکار پرداخت حقوق و مزایا به نیروهای مسلح ایران گفت: «بچه‌های نظامی تولیدکننده و کف میدان ما از چهار تا ۱۰ میلیون تومان می‌گیرند.» این کارشناس حکومتی علت کمبود حقوق و مزایای کارکنان وزارت دفاع را کشته شدن عزیز نصیرزاده، وزیر پیشین دفاع در حملات آمریکا و اسرائیل و بی‌سرپرست ماندن این وزارتخانه، توصیف کرد.
+
+این اظهارات در حالی بیان می‌شود که اسکات بسنت، وزیر خزانه‌داری آمریکا و مجری طرح «خشم اقتصادی» دولت دونالد ترامپ علیه جمهوری اسلامی ایران دو هفته پیش گفته بود که در پی تشدید تحریم‌های همه‌جانبه آمریکا، تهران توان پرداخت حقوق به نیروهای مسلح را ندارد و ماموران نیروی انتظامی ایران سر کارشان حاضر نمی‌شوند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244651
+
+<div align="center"><img src="files/post_244651_VahidOOnLine_244651.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌های ایران صبح چهارشنبه ۲۰ خرداد از شنیده شدن صدای چند انفجار در قشم خبر دادند.
+
+خبرگزاری مهر نوشت ماهیت دقیق صداها هنوز مشخص نیست، اما با توجه به شدت آن، ممکن است منبع انفجار در فاصله‌ای نسبتا دور از شهر قشم قرار داشته یا به تحرکاتی در تنگه هرمز مرتبط باشد.
+
+تا زمان انتشار این گزارش، مقام‌های رسمی درباره منشا این صداها یا خسارات احتمالی توضیحی ارائه نکرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244650
+
+<div align="center"><img src="files/post_244650_VahidOOnLine_244650.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لین جیان، سخنگوی وزارت خارجه چین، چهارشنبه ۲۰ خرداد در نشست خبری با خبرنگاران، در واکنش به حملات اخیر میان آمریکا و جمهوری اسلامی گفت چین «عمیقا نگران» این تنش‌ها است.
+
+او از طرف‌های درگیر خواست «خونسردی خود را حفظ کنند، خویشتنداری نشان دهند، از تشدید تنش‌ها خودداری و اقدام‌های ملموسی برای کاهش تنش انجام دهند.»
+
+سخنگوی وزارت خارجه چین همچنین از آمریکا و جمهوری اسلامی خواست از ابزارهای سیاسی و دیپلماتیک برای «دستیابی سریع به آتش‌بسی جامع و پایدار» استفاده کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244649
+
+<div align="center"><video src="files/post_244649_VahidOOnLine_244649.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244649_VahidOOnLine_244649.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان سه‌شنبه ۱۹ خرداد در اعتراض به اعدام‌های جمهوری اسلامی و در حمایت از شاهزاده رضا پهلوی در شهر هانوفر تجمع کردند و تصاویر اعدام‌شدگان و جاویدنامان را به دست گرفتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244642
+
+<div align="center"><video src="files/post_244642_VahidOOnLine_244642.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244642_VahidOOnLine_244642.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ناپدید شدن پول از حساب‌های بانکی فقط یک مشکل مالی نیست، نشانه‌ای از فروریختن اعتماد عمومی به نظام بانکی و توان دولت در حفاظت از دارایی شهروندان است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244637
 
@@ -207,59 +274,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 روز چهارشنبه، پس از ساعت ۳ بامداد و هم‌زمان با حملات ایالات متحده، در برنامه بخش خبر بامدادی صداوسیمای جمهوری اسلامی و هنگام پخش اخبار اقتصادی، برای مدت کوتاهی تصاویری از یک انفجار هسته‌ای پخش شد. عبارت «تسلیت بندرعباس» نیز در این تصاویر دیده می‌شد. هنوز دلیلی برای پخش چنین تصاویری از سوی صداوسیما اعلام نشده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244621
-
-<div align="center"><img src="files/post_244621_VahidOOnLine_244621.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️قرارگاه خاتم در بیانیه‌ای اعلام کرد که «پایگاه‌های آمریکا در منطقه» هدف حمله مشترک ارتش و سپاه قرار گرفته است و «در صورت تکرار تعرض آمریکا به جمهوری اسلامی ایران، حملات سهمگین‌ و گسترده‌تر علیه بانک اهداف تعیین شده در منطقه انجام خواهد شد.»
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244620
-
-<div align="center"><img src="files/post_244620_VahidOOnLine_244620.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ارتش کویت صبح چهارشنبه اعلام کرد سامانه‌های پدافند هوایی این کشور در حال درگیری با اهداف هوایی متخاصم هستند. پیشتر، سپاه و ارتش جمهوری اسلامی از حمله به «اهداف آمریکایی» در منطقه خبر داده بودند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244619
-
-<div align="center"><img src="files/post_244619_VahidOOnLine_244619.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سپاه از حمله به ۲۱ هدف در پایگاه‌های آمریکا در منطقه خبر داد و گفت نیروی هوافضای سپاه با موشک‌های سوخت جامد دوربرد، چهار «هدف مهم»، از جمله آشیانه‌های جنگنده‌های اف-۳۵ در پایگاه هوایی و مرکز فرماندهی و کنترل ارتش آمریکا در الازرق اردن را هدف قرار داد و منهدم کرد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️همزمان با حملات روز چهارشنبه آمریکا به جنوب ایران، بخش خبری ساعت ۳ بامداد صداوسیما، در حین اعلام یک خبر اقتصادی، تصاویر شبیه‌سازی شده از انفجار هسته‌ای در وسط یک شهر را پخش کرد و پس از آن عبارت «تسلیت بندرعباس» زیرنویس شد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244617
-
-<div align="center"><img src="files/post_244617_VahidOOnLine_244617.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت دفاع بحرین از فعال شدن آژیرهای خطر و پدافند هوایی در پی حمله‌هایی از سمت ایران خبر داد. طبق اعلام مشاور رسانه‌ای پادشاه بحرین، پدافند هوایی بحرین این حملات جمهوری اسلامی را دفع کرده‌‌ است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
