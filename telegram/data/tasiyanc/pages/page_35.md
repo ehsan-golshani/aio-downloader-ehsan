@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/04/24 21:05
+📅 آخرین بروزرسانی: 1405/04/24 22:20
 
 ---
+
+## tasiyanc — post 6815
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 📶
+
+تست شده تمام نتها 🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6813
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6811
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به درخواست همراه اولیا گذاشتم ، شیرخورشید 88.221.169.217 88.221.169.207 88.221.169.38 88.221.169.11 88.221.169.18 88.221.169.28 88.221.169.132 88.221.169.127 88.221.169.107 88.221.169.121 @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6810
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به درخواست همراه اولیا گذاشتم ، شیرخورشید
+88.221.169.217
+88.221.169.207
+88.221.169.38
+88.221.169.11
+88.221.169.18
+88.221.169.28
+88.221.169.132
+88.221.169.127
+88.221.169.107
+88.221.169.121
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6809
 
@@ -185,51 +240,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه وایر میزارم بخوابم
-</div>
-
-## tasiyanc — post 6785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP⚡ APEX ⛓️.npvt
-</div>
-
-## tasiyanc — post 6784
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6783
-
-<div align="center"><img src="files/post_6783_tasiyanc_6783.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی فیلم 🎬
-▪️ فیلم : Michael (2026)
-🩷​IMDb 7.7
-فیلم بیوگرافی و پرسروصدای مایکل جکسون سرانجام اکران شد. این اثر ۴ دهه زندگی، نبوغ هنری، پشت‌صحنه موزیک‌ویدیوهای شاهکار و چالش‌های شخصی مایکل رو به تصویر کشیده.
-با هنرنمایی Jaafar Jackson (برادرزاده واقعی مایکل جکسون)
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6781
-
-<div align="center"><img src="files/post_6781_tasiyanc_6781.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یادآوری : شات معنادار 😂 اگه گفتید کیه؟
 </div>
 
