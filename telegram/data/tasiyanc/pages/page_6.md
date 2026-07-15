@@ -1,8 +1,64 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/23 21:02
+📅 آخرین بروزرسانی: 1405/04/24 07:18
 
 ---
+
+## tasiyanc — post 7859
+
+<div align="center"><video src="files/post_7859_tasiyanc_7859.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7859_tasiyanc_7859.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   
+📶
+
+تست شده تمام نتها 
+🛜
+🛜
+🛜
+
+دانلود 
+📱 Android  
+🕹  iOS
+
+آموزش اتصال 
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7854
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ختم کلام
+
+از اونجایی ک رسالت ما وصل کردن مردم بود تو قطعیا و تو دوران وصل شدن اینترنت شاهد افت چنل و جذب نبودم خیلی چیزا ثابت شد برام ، پس لف و جذب مهم نیست برامون تو قطعی اینترنت، ما چنلو پرایوت خواهیم کرد عضو جدید نخواهیم پذیرفت و اونایی که الان کنارم هستن باید وصل باشن ❤️
+
+مجموعه تاسیان ❤️‍🔥
+
+آدرس پابلیک
+@Tasiyanc
+</div>
+
+## tasiyanc — post 7843
+
+<div align="center"><video src="files/post_7843_tasiyanc_7843.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7843_tasiyanc_7843.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دریافت کانفیگ نت مود مخصوص شرایط اضطراری پر سرعت ( برای گیم و دانلود و اینستاگرام)
+
+
+👈 دریافت کانفیگ ها 
+👉
+</div>
 
 ## tasiyanc — post 7842
 
@@ -217,45 +273,6 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 اتصال امن برای همه 🇮🇷
 
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گزارشات تایید نشده ترامپ با ناتو به توافق رسیده در ازای کمك آمریکا به اوکراین ، ناتو نیز کنار آمریکا به ایران حمله خواهد کرد
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7797
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نسخه شیر و خورشید قدیمی 👑
-آموزش اتصال
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
 ✔️ T.me/Tasiyanc
 </div>
 

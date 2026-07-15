@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/04/23 21:02
+📅 آخرین بروزرسانی: 1405/04/24 07:18
 
 ---
+
+## tasiyanc — post 6350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST @Tasiyanc servers.txt
+</div>
+
+## tasiyanc — post 6349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+5سرور   سرعتی  🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🔥
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6348
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کلاینت OLCNG ✅
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6346
 
@@ -177,34 +206,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 DE - Fast 🇩🇪⚡.npvt
-</div>
-
-## tasiyanc — post 6325
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور   سرعتی آلمان 🇩🇪
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  
-⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6324
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز در راه است
-</div>
-
-## tasiyanc — post 6323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐 ریکشن ۵ تا؟
 </div>
 

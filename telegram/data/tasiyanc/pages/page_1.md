@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/23 21:02
+📅 آخرین بروزرسانی: 1405/04/24 07:18
 
 ---
+
+## tasiyanc — post 8084
+
+<div align="center"><a href="files/post_8084_Fast ⚡ Servers 🚀🔥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast ⚡ Servers 🚀🔥.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8079
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری از حال‌وش : آمریکا امشب به تیپ 388 ارتش تو بمپورِ سیستان و بلوچستان حمله کرد! شدت انفجارها به حدی بوده که 10 نفر درجا کشته و بیشتر از 15 نفر زخمی شدن که حال دو نفرشون وخیمه. طبق گفته حال وش، آمریکا امشب به آسایشگاه سربازها هم حمله کرده که تعدادی از سربازها…
+</div>
+
+## tasiyanc — post 8078
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری از حال‌وش :
+آمریکا امشب به تیپ 388 ارتش تو بمپورِ سیستان و بلوچستان حمله کرد!
+شدت انفجارها به حدی بوده که 10 نفر درجا کشته و بیشتر از 15 نفر زخمی شدن که حال دو نفرشون وخیمه.
+طبق گفته حال وش، آمریکا امشب به آسایشگاه سربازها هم حمله کرده که تعدادی از سربازها موقع استراحت، کشته و زخمی شدن.. 🖤
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8073
 
@@ -258,30 +300,5 @@
 
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴موج جدید حملات گروهك تروریستی حوثی ها به عربستان
-@tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا دقایقی دیگه پرزیدنت ترامپ سخنرانی مهمی در کاخ سفید خواهد داشت
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8013
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جام جهانی اگه ایران برگزار می‌شد این ویدیو ده میلیون بازدید خورده :
-
-
-ثانیه به ثانیه‌اش عالیه😂
-
-@Tasiyanc ⭐️ | بانك کانفیگ
 </div>
 
