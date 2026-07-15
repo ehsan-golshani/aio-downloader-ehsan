@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/24 19:34
+📅 آخرین بروزرسانی: 1405/04/24 21:05
 
 ---
+
+## tasiyanc — post 7229
+
+<div align="center"><video src="files/post_7229_tasiyanc_7229.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7229_tasiyanc_7229.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ اختصاصی دارک تانل 🌟
+
+برای گیم 🎲 دانلود
+⬇️ وب‌گردی🔍 جمینای 🤖 
+
+حجم نامحدود - سرعتی 🚀
+
+تست شده رو تمام نت ها ✅
+
+دانلود Dark Tunnel  
+🕹
+
+آموزش اتصال به سرور دارک ⏩
+
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7228
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Wnd🍓 @Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 7223
 
@@ -327,27 +360,5 @@ Location
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 BERLIN 🇩🇪⚡️GN.npvt
-</div>
-
-## tasiyanc — post 7198
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن DE
-
-2سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-40.000 🖤 > 72
 </div>
 
