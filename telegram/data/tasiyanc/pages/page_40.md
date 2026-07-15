@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/04/24 07:18
+📅 آخرین بروزرسانی: 1405/04/24 12:18
 
 ---
+
+## tasiyanc — post 6621
+
+<div align="center"><img src="files/post_6621_tasiyanc_6621.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk
+</div>
+
+## tasiyanc — post 6620
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk
+</div>
 
 ## tasiyanc — post 6618
 
@@ -178,24 +192,6 @@ PASSWORD 🔑 : @Tasiyanc
 🇺🇸 ⭕️هگست : اگر لازم باشد با بمب‌ها مذاکره کنیم، با بمب‌ها مذاکره خواهیم کرد.
 ما در این کار بسیار ماهریم
 
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تکمیلی
-
-🇺🇸⭕️ هگست:
-ایران فرصتی برای انجام یک معامله عالی دارد. آنها تمایلی به انجام آن نداشته‌اند. بمب‌ها به صورت ضربه‌ضربه بر روی تأسیسات کلیدی در ایران از سوی آمریکا فرود خواهند آمد؛ این کار برای شروع مجدد جنگ نیست بلکه برای تعیین شرایط یک معامله است.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6568
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️
-وزیر جنگ آمریکا پیت هگست : امشب تاسیسات ایران را بمباران خواهیم کرد
 @Tasiyanc ✅
 </div>
 
