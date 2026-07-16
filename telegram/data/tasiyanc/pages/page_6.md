@@ -1,86 +1,159 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/26 00:09
+📅 آخرین بروزرسانی: 1405/04/26 01:20
 
 ---
 
-## tasiyanc — post 7985
-
-<div align="center"><img src="files/post_7985_tasiyanc_7985.jpg" alt="Photo"></div>
+## tasiyanc — post 8015
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-A true friend of the Iranian people, may your soul rest in peace. You will always be remembered, dear Senator Graham 🖤
+🔴موج جدید حملات گروهك تروریستی حوثی ها به عربستان
+@tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8014
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا دقایقی دیگه پرزیدنت ترامپ سخنرانی مهمی در کاخ سفید خواهد داشت
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جام جهانی اگه ایران برگزار می‌شد این ویدیو ده میلیون بازدید خورده :
+
+
+ثانیه به ثانیه‌اش عالیه😂
+
+@Tasiyanc ⭐️ | بانك کانفیگ
+</div>
+
+## tasiyanc — post 8011
+
+<div align="center"><img src="files/post_8011_tasiyanc_8011.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ارتش اسراییل تقه محکمی به کفر تبنیت جنوب لبنان زد
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8010
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قضیه داره پیچیده میشه
+🚨حمله موشکی حوثی ها به فرودگاه بین‌المللی «ابها» در جنوب عربستان
 
 @Tasiyanc ⭐️
 </div>
 
-## tasiyanc — post 7981
+## tasiyanc — post 8007
+
+<div align="center"><video src="files/post_8007_tasiyanc_8007.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8007_tasiyanc_8007.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ساعاتی پیش میچ مک‌کانل نزدیک به ترامپ و مخالف ج ا، یکی دیگه از سناتورهای جمهوری‌خواه آمریکایی بر اثر عارضه قلبی راهی بیمارستان شد. @TasiyanProxy
-⭐️
+پشماتون بریزه ، آمریکا دیشب اینجوری با قایق انتحاری عملیات انجام داده :
+
+@Tasiyanc ⭐️
 </div>
 
-## tasiyanc — post 7977
-
-<div align="center"><video src="files/post_7977_tasiyanc_7977.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7977_tasiyanc_7977.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## tasiyanc — post 8005
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 
-📱
+ترامپ:
+🔻امشب ما مهمانی بسیار ویژه خواهیم داشت که در حملات ما به ایران شرکت خواهد داشت.
+فیکه خبر
+@Tasiyanc ⭐️
+</div>
 
-3سرور  سرعتی پرمیوم 
-⚡️
+## tasiyanc — post 8004
 
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن فاک باز شد
+</div>
 
-آموزش اتصال روی اندروید 
-⛓
-آموزش اتصال روی ویندوز  
-⛓
+## tasiyanc — post 8001
 
-دانلود برنامه اندروید 
-🕹
+<div align="center"><video src="files/post_8001_tasiyanc_8001.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
 
-دانلود برنامه برای ویندوز 
-💻
+<div align="center"><a href="files/post_8001_tasiyanc_8001.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جای اینکه مراقب دخترامون باشیم اینطوری باید تا کنین باشون؟؟؟ مرد ایرانی و با مرام و غیر.ت میشناسن جلوی گلوله وایستادن مردا که گلوله نخورن دخترامون ، این چه کاری بود کردید شما بی نا*موسا؟
+پی‌نوشت : اکثر این چنلا برای لرستان بودن که دستگیر شدن ادمیناشون امیدوارم لرستانیا این بیشرفارو ادب کنن .
 
-اتصال امن برای همه 
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8000
+
+<div align="center"><img src="files/post_8000_tasiyanc_8000.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در حالی که داشتم سومین لیوان چاییم رو میخوردم اینو دیدم:
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7998
+
+<div align="center"><img src="files/post_7998_tasiyanc_7998.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هرکی گفت پول خوشبختی نمیاره اینو نشونش بده خفه شه؛ تعطیلات وینیسیوس با دوست دخترش:
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7997
+
+<div align="center"><img src="files/post_7997_tasiyanc_7997.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏نسل جدید چه میدونه "بقیه پول" چیه
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7996
+
+<div align="center"><video src="files/post_7996_tasiyanc_7996.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7996_tasiyanc_7996.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادیتی از محمدرضا شاه فقید که تو چند ساعت، میلیونی بازدید خورده
 🇮🇷
 
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7976
-
-<div align="center"><img src="files/post_7976_tasiyanc_7976.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺فروش ویژه پکیج نامحدود ، بدون محدودیت کاربر ، جهت ثبت سفارش پیام بدید
-
-
-👉@StarTasiyan 
+@Tasiyanc 
 ⭐️
 </div>
 
-## tasiyanc — post 7968
+## tasiyanc — post 7995
+
+<div align="center"><video src="files/post_7995_tasiyanc_7995.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7995_tasiyanc_7995.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
+دختره نوشته: دوس پسرم برای چند ساعت رفت بیرون و منم تصمیم گرفتم سورپرایزش کنم.
+🚬
 
-سه سرور سرعتی‌ تست شده💥
+@Tasiyanc
+✅
+</div>
+
+## tasiyanc — post 7993
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ تست شده 🔸
 
 دانلود برنامه اندروید 🕹
 
@@ -88,62 +161,52 @@ A true friend of the Iranian people, may your soul rest in peace. You will alway
 
 آموزش اتصال ⛓
 
-مناسب دانلود ⬇️ وب‌گردی 🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+اتصال امن برای همه 🇮🇷
 
+✔️ T.me/Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7991
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
+
+
+برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
+
+
+دانلود Dark Tunnel  🕹
+
+
+آموزش اتصال به سرور دارک ⏩
 
 اتصال امن برای همه 🇮🇷
 
-✔️ T.me/Tasiyanc
+✔️ T.me/Tasiyanc ✅
 </div>
 
-## tasiyanc — post 7967
+## tasiyanc — post 7990
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 بیانیه صفحه رسمی لیندسی گراهام: او بر اثر یه بیماری ناگهانی و کوتاه مدت درگذشت! تسلیت میگیم به خونوادش. @Tasiyanproxy ✅
+امروز 13 July، روزِ جهانی دخترای قد کوتاهه 👼
+@TasiyanC 
+⭐️
 </div>
 
-## tasiyanc — post 7966
-
-<div align="center"><img src="files/post_7966_tasiyanc_7966.jpg" alt="Photo"></div>
+## tasiyanc — post 7988
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤 در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره…
+🚨هم اکنون حملات آمریکا پایان یافت ، حملات سپاه به سمت کویت ، بحرین آغاز شد
+@TasiyanC ⭐️
 </div>
 
-## tasiyanc — post 7965
+## tasiyanc — post 7987
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤
-
-در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره بسیار سخت را دارند.
-@Tasiyanc ☑️
+هر شب جنگ خلیج فارس داریم همو میزنن روزا آروم میشن😐
 </div>
 
-## tasiyanc — post 7960
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️🇺🇸 هگست وزیر جنگ آمریکا: ایران انتخاب نادرستی انجام داد. اکنون باید عواقب آن را بپردازد. @TasiyanProxy ⭐️
-</div>
-
-## tasiyanc — post 7959
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Speed Fast ⚡ 🇩🇪.npvt
-</div>
-
-## tasiyanc — post 7958
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر جنگ اسرائیل 🇮🇱: 🔻من و نتانیاهو دستور آماده شدن ارتش برای حملات مستقل به ایران را صادر کردیم @TasiyanProxy ⭐️
-</div>
-
-## tasiyanc — post 7946
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ حمله سپاه به یک کشتی غول پیکر در تنگه ، در جواب به ترامپ ک‌گفته بود باید تا آخر امشب ایران تنگه رو باز کنه کامل
-</div>
-
-## tasiyanc — post 7944
+## tasiyanc — post 7986
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت 🔐
@@ -165,78 +228,5 @@ Speed Fast ⚡ 🇩🇪.npvt
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آخرین باری که دانش اموزا همه باهم دینی میخوندن یه نفر رو خرس خورد😹😹😹
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7942
-
-<div align="center"><img src="files/post_7942_tasiyanc_7942.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیازمندی ها:🥺
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7941
-
-<div align="center"><img src="files/post_7941_tasiyanc_7941.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺یه زمانی توماج صالحی نیش پشه‌ها رو به عنوان ساچمه میکرد تو چشم مردم.
-
-
-
-@Tasiyanc ⭐️ | مرجع کانفیگ وصل
-</div>
-
-## tasiyanc — post 7939
-
-<div align="center"><img src="files/post_7939_tasiyanc_7939.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اصفهان:
-
-@Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 7938
-
-<div align="center"><img src="files/post_7938_tasiyanc_7938.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با این پرامپت بچگیتو در آغوش بگیر 👼
-از اون پرامپت‌های وایرال شده و به شدت جذابه ..
-
-Take a photo taken with a Polaroid camera. The photo should look like an ordinary photograph, without an explicit subject or property. The photo should have a slight blur and consistent light source, like a flash from a dark room, scattered throughout the photo.Don't change the face.
-Change the background behind those two people with white curtains. With hugging me.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7937
-
-<div align="center"><img src="files/post_7937_tasiyanc_7937.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏جوری که این مدت گذشت:
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7936
-
-<div align="center"><img src="files/post_7936_tasiyanc_7936.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همین گنده گوزیا بگاتون داد
-
-@Tasiyanc ⭐️
 </div>
 
