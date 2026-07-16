@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/25 18:56
+📅 آخرین بروزرسانی: 1405/04/25 20:27
 
 ---
+
+## tasiyanc — post 6789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریکشن نزنید یه موقع زشته
+</div>
 
 ## tasiyanc — post 6788
 
@@ -189,11 +195,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تاسیان ( خانواده بزرگ من) ❤️
-</div>
-
-## tasiyanc — post 6732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VİP - ⛓️OMEGA ⚡.npvt
 </div>
 

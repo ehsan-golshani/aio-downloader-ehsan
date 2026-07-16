@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/04/25 18:56
+📅 آخرین بروزرسانی: 1405/04/25 20:27
 
 ---
+
+## tasiyanc — post 8090
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیروز که به یخچال نیاز داشتن، برق قطع نمیشد! به محض اینکه کارشون تموم شد، شروع کردن برقارو قطع کردن.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8089
 
@@ -202,18 +210,6 @@
 پول خوشبختی نمیاره :
 
 بانو برونا روتا هستن دوس دختر (اکس) رودریگو بازیکن کصمشنگ رئال مادرید 😐
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8052
-
-<div align="center"><img src="files/post_8052_tasiyanc_8052.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 14 July، روز جهانی Nude یا همون لخت بودنه ❤️
-بفرست برا کسی که میخوای نود بگیری ازش 😂🦦
-
 
 @Tasiyanc ⭐️
 </div>

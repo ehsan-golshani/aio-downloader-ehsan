@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/04/25 18:56
+📅 آخرین بروزرسانی: 1405/04/25 20:27
 
 ---
+
+## tasiyanc — post 6305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قصد حاشیه با هیچ بنی بشری ام ندارم چون نه حوصله ن وقتشو دارم درکل گفتم زحمتای بقیه رو بعضیا با دو تکست بگ* ندن
+با قدرت در خدمت شما هستیم❤️
+</div>
 
 ## tasiyanc — post 6304
 
@@ -187,21 +194,5 @@ MCI - SamanTel - wifi تست شده
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 الان کسی از چنل رد شه میگه پشمام ریکشن تاسیانو نگا
-</div>
-
-## tasiyanc — post 6282
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور پرومیوم  سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها ⏩
-
-✔️ @Tasiyanc ✅
 </div>
 

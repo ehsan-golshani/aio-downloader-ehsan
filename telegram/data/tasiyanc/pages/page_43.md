@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/04/25 18:56
+📅 آخرین بروزرسانی: 1405/04/25 20:27
 
 ---
+
+## tasiyanc — post 6575
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6574
 
@@ -204,11 +218,5 @@ https://t.me/TasiyanProxy
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حتی چنلمون تو اپای ایرانی ام قراره یه جور پرایوت شه اونایی ک ممبر چنلن بیان هر ۲۴ ساعت لینکو عوض میکنم
-</div>
-
-## tasiyanc — post 6548
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منتظرم قطعی بشه پرایوت کنم چنلو اونای ک لف میدن حالشون میپرسم
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/04/25 18:56
+📅 آخرین بروزرسانی: 1405/04/25 20:27
 
 ---
+
+## tasiyanc — post 5946
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+-FAST MCI & MTN & RighTel 🔥.npvt
+</div>
 
 ## tasiyanc — post 5945
 
@@ -165,13 +171,5 @@ Wifi نت خانگی⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 باید بگیییییم؟😭
-</div>
-
-## tasiyanc — post 5923
-
-<div align="center"><img src="files/post_5923_tasiyanc_5923.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀Sw Fast.npvt
 </div>
 

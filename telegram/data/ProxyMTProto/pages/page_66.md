@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/04/25 18:54
+📅 آخرین بروزرسانی: 1405/04/25 20:25
 
 ---
+
+## ProxyMTProto — post 47857
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47856
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sexy.arixo.shop
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c59617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47855
 
@@ -163,26 +181,6 @@ Secret: ee7ee0a641b78ecc8d210e47981904a50a626f6f73742e666c6f7773747265616d687562
 Server: Unknown
 Port: 9965
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47837
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ Telegram access is becoming less stable due to new restrictions.
-
-🔥 We're constantly adding new working proxies for free.
-
-🌎 Get your dedicated proxy now!
-👇 پروکسی اختصاصی خودتو بگیر
-</div>
-
-## ProxyMTProto — post 47836
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: london.nolags.pw
-Port: 443
-Secret: dd6fe89c6d1f5f8b54afc931cf4f640b91
 @ProxyMTProto
 </div>
 

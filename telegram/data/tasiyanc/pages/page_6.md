@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/25 18:56
+📅 آخرین بروزرسانی: 1405/04/25 20:27
 
 ---
+
+## tasiyanc — post 7942
+
+<div align="center"><img src="files/post_7942_tasiyanc_7942.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیازمندی ها:🥺
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7941
 
@@ -222,29 +232,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🦅⚡️ WAR.npvt
-</div>
-
-## tasiyanc — post 7914
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 
