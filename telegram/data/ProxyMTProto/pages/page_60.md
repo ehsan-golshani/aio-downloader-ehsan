@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/04/25 14:58
+📅 آخرین بروزرسانی: 1405/04/25 16:42
 
 ---
+
+## ProxyMTProto — post 47971
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47970
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47969
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: eco.nolags.pw
+Port: 443
+Secret: dd7bdb917e7aff23d5ab0f282665f9d3a9
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47968
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: goal.chunkycorp.shop
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47967
 
@@ -145,42 +181,6 @@ Secret: eee12b7ef9718c53b06c8a416387c8d4a6776176652e70726f787974656c6567612e7374
 Server: Unknown
 Port: 9965
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47951
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: june.nolags.pw
-Port: 443
-Secret: dd479dd5c298eb110a7c9cffc8d6ce500c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47950
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad.canvas-proxy.com
-Port: 443
-Secret: eeb7f10957fcefd87d5e8c336fc9851d8d61642e63616e7661732d70726f78792e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: spark.proxyonline.online
-Port: 443
-Secret: eed53c649a00ade7bf1f7071d019a426a7737061726b2e70726f78796f6e6c696e652e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47948
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 15
-Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
 @ProxyMTProto
 </div>
 
