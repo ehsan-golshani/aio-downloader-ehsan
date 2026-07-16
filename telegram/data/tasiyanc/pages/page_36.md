@@ -1,8 +1,99 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/04/25 23:07
+📅 آخرین بروزرسانی: 1405/04/26 00:09
 
 ---
+
+## tasiyanc — post 6844
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✊امروز تولد مودی ترین خردادیه
+دونالد ترامپ متولد ۱۴ ژوئن ۱۹۴۶ است و امروز (یکشنبه ۱۴ ژوئن ۲۰۲۶) وارد ۸۰ سالگی می‌شود.
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6843
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+14 June
+روز جهانی اکسه 😭
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 🔐
+vless://dc8eccdb-ecfa-435f-9ac1-5dc4882e7b51@162.19.228.119:80?path=%2Fhttp&security=none&encryption=none&host=de.vpnbase.net&type=ws#%5B%40Tasiyanc%5D%20%F0%9F%87%A9%F0%9F%87%AA%20De
+
+ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6838
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰٪ چنل با وایرگارد هامون بخوبی وصل میشن فک کنم
+</div>
+
+## tasiyanc — post 6837
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتیجه بازی های جام جهانی تا الان (اتمام نیمه اول )
+
+تیم کمک های اولیه🇨🇭 1 قطر 0 🇶🇦
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6835
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[38]⚡@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6833
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6832
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ مخصوص روبیکا
+گیگی ۵۰۰ بدون قطعی🤣🤣🤣
+</div>
+
+## tasiyanc — post 6826
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون بازی شروع شد
+Qatar 🇶🇦 & Switzerland🇨🇭
+</div>
 
 ## tasiyanc — post 6824
 
@@ -100,132 +191,5 @@ Vahid online
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به درخواست همراه اولیا گذاشتم ، شیرخورشید 88.221.169.217 88.221.169.207 88.221.169.38 88.221.169.11 88.221.169.18 88.221.169.28 88.221.169.132 88.221.169.127 88.221.169.107 88.221.169.121 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6810
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به درخواست همراه اولیا گذاشتم ، شیرخورشید
-88.221.169.217
-88.221.169.207
-88.221.169.38
-88.221.169.11
-88.221.169.18
-88.221.169.28
-88.221.169.132
-88.221.169.127
-88.221.169.107
-88.221.169.121
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6809
-
-<div align="center"><video src="files/post_6809_tasiyanc_6809.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6809_tasiyanc_6809.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-۳سرور سرعتی همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6808
-
-<div align="center"><video src="files/post_6808_tasiyanc_6808.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6808_tasiyanc_6808.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 
-👑
-
-حجم و کاربر نامحدود 
-🟢
-
-دانلود 
-📱 WG tunnel 
-🕹 iOS WG
-
-آموزش اتصال 
-⛓
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظر برخی از اعضاء پس توافق حتمیه !
-</div>
-
-## tasiyanc — post 6803
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظر برخی از اعضاء
-پس توافق حتمیه !
-</div>
-
-## tasiyanc — post 6802
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴جزئیات مراسم وداع، تشییع و تدفین علی خامنه ای رسما اعلام شد
-
-شنبه و یکشنبه 13 و 14 تیر (19 و 20 محرم): مراسم وداع با پیکر در مصلای امام خمینی تهران
-
-دوشنبه 15 تیر (21 محرم): مراسم تشییع در تهران.
-
-سه شنبه 16 تیر (22 محرم): مراسم تشییع در شهر قم
-
-پنجشنبه 18 تیر (24 محرم، شب شهادت امام سجاد ): تشییع در مشهد مقدس و سپس خاکسپاری در حرم امام رضا
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6801
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴🆕 حملات سایبری به زیرساخت های تمام بانکای کشور کارت و خدمات اغلب بانک ها از دسترس خارج شده است
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6799
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز فروش به احتمال زیاد باز شه ، آیپی ثابتن سرورا 🦦
-</div>
-
-## tasiyanc — post 6798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بخاطر نمک ریختنتون امروز کلا npv نمیزارم 😍
-فقط در صورتی میزارم ک ریکشن قلب بالای ۲۰۰ تا باشه رو پست
 </div>
 

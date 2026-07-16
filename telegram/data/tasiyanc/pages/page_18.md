@@ -1,8 +1,101 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/04/25 23:07
+📅 آخرین بروزرسانی: 1405/04/26 00:09
 
 ---
+
+## tasiyanc — post 7485
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز June 29، روز جهانی مردهاست❤️‍🔥
+روزتون مبارك گوگولیای پشمالو
+</div>
+
+## tasiyanc — post 7484
+
+<div align="center"><img src="files/post_7484_tasiyanc_7484.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معرفی فیلم Heaven in Hell (2023) 📹
+صحنه دار 🔞 ( مناسب بزرگسالان)
+
+عاشقانه ، درام - محصول 🇵🇱
+
+کارگردان: Tomasz Mandes
+بازیگران : Simone Susinna & Magdalena Boczarska
+
+این فیلم داستان عشق پرشور و در عین حال چالش‌برانگیز بین «اولگا»، زنی موفق و مستقل که با مسئولیت‌های زندگی دست‌وپنج نرم می‌کند، و «مکس»، مردی جوان‌تر و سرشار از انرژی که با رویکردی متفاوت به زندگی نگاه می‌کند، را روایت می‌کند. "Heaven in Hell" به این پرسش می‌پردازد که آیا تفاوت‌های سنی، سبک زندگی و انتظارات متفاوت از آینده می‌تواند سد راه یک عشق واقعی شود یا خیر.
+
+💘 دانلود بدون سانسور فیلم 💘
+@Tasiyanc
+</div>
+
+## tasiyanc — post 7483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معرفی فیلم Protector 2026 📹 🔹ژانر : اکشن ، درام ، جنایی محصول 🇺🇸 با هنرنمایی Milla Jovovich ⭐️ کارگردان Adrian Grünberg 🔺 خلاصه داستان محافظ، زندگی آرام نیکی، قهرمان سابق جنگ، زمانی در هم میشکند که دخترش ربوده میشود. او که ناخواسته وارد دنیای زیرزمینی…
+</div>
+
+## tasiyanc — post 7482
+
+<div align="center"><img src="files/post_7482_tasiyanc_7482.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معرفی فیلم Protector 2026 📹
+
+🔹ژانر : اکشن ، درام ، جنایی
+
+محصول 🇺🇸
+
+با هنرنمایی Milla Jovovich ⭐️
+کارگردان Adrian Grünberg 🔺
+
+خلاصه داستان
+محافظ، زندگی آرام نیکی، قهرمان سابق جنگ، زمانی در هم میشکند که دخترش ربوده میشود. او که ناخواسته وارد دنیای زیرزمینی جنایت شده و همزمان تحت تعقیب پلیس و نیروهای نظامی است، باید برای نجات فرزندش مبارزه کند …
+💘 دانلود دوبله فیلم بدون سانسور 💘
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 7481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگر خاک ایران برفتد ز دست
+هنوز آخرین پر سیمرغ هست
+بگیرید ، بگیرید تیر و کمان را به دست
+جهنم بسازید بر هرچه پست .
+</div>
+
+## tasiyanc — post 7480
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ESPRESSO 🔥☕.npvt
+</div>
+
+## tasiyanc — post 7478
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+توهین مجدد میثاقی به مردم ایران:
+کسایی که برای خوشحالی گل شجاع کلیپ می‌سازن همون جای خالی ان!
+</div>
+
+## tasiyanc — post 7477
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌هم اکنون شلیک موشک از ایران به سمت اردن
+</div>
+
+## tasiyanc — post 7476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌هم اکنون شلیک موشک از ایران به سمت اردن
+</div>
+
+## tasiyanc — post 7475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️مذاکرات تهران و واشینگتن ک قرار بود این هفته برگزار بشه لغو شد
+</div>
 
 ## tasiyanc — post 7474
 
@@ -103,79 +196,5 @@
 🔑Password :  @Tasiyanc
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️حملات مجدد آمریکا به قشم
-</div>
-
-## tasiyanc — post 7448
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️حمله آمریکا به بندرلنگه و بندر کنگ
-</div>
-
-## tasiyanc — post 7447
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صداوسیما: دقایقی پیش چندین انفجار در شهرستان سیریک، جنوب ایران رخ داده است.
-</div>
-
-## tasiyanc — post 7446
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ ۳ انفجار در قشم
-</div>
-
-## tasiyanc — post 7445
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ ۴ انفجار شدید در سیریك
-</div>
-
-## tasiyanc — post 7444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ آغاز حملات ایالات متحده به ایران
-</div>
-
-## tasiyanc — post 7443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام عزیزان یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 7442
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام عزیزان
-یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید
-https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 7441
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود 🇬🇧
-
-4 سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-🔑Password :  @Tasiyanc
-
- 💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروفایل چنل عوض شد --- ❤️
 </div>
 

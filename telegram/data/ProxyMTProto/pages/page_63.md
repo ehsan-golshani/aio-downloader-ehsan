@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/04/25 23:05
+📅 آخرین بروزرسانی: 1405/04/26 00:07
 
 ---
+
+## ProxyMTProto — post 47925
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 61016
+Secret: 7nnnAQIAAQAH8AMDhuJMOt0%3D
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47924
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s02.neo-trading.org
+Port: 443
+Secret: ee6ec9f7e082baf2397b450727ce78447e6f7a6f6e2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47923
 
@@ -163,24 +181,6 @@ Secret: ee4d3cf6b01fed616495b9651ebe37313f766b2e7275
 Server: s01.neo-trading.org
 Port: 443
 Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47904
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: swift.proxyobhod.online
-Port: 443
-Secret: eed25a52433fbaaea5848141bf382bf38073776966742e70726f78796f62686f642e6f6e6c696e65
 @ProxyMTProto
 </div>
 

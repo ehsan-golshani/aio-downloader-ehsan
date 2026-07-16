@@ -1,8 +1,135 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/25 23:07
+📅 آخرین بروزرسانی: 1405/04/26 00:09
 
 ---
+
+## tasiyanc — post 7985
+
+<div align="center"><img src="files/post_7985_tasiyanc_7985.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+A true friend of the Iranian people, may your soul rest in peace. You will always be remembered, dear Senator Graham 🖤
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7981
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ساعاتی پیش میچ مک‌کانل نزدیک به ترامپ و مخالف ج ا، یکی دیگه از سناتورهای جمهوری‌خواه آمریکایی بر اثر عارضه قلبی راهی بیمارستان شد. @TasiyanProxy
+⭐️
+</div>
+
+## tasiyanc — post 7977
+
+<div align="center"><video src="files/post_7977_tasiyanc_7977.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7977_tasiyanc_7977.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 
+📱
+
+3سرور  سرعتی پرمیوم 
+⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال روی اندروید 
+⛓
+آموزش اتصال روی ویندوز  
+⛓
+
+دانلود برنامه اندروید 
+🕹
+
+دانلود برنامه برای ویندوز 
+💻
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7976
+
+<div align="center"><img src="files/post_7976_tasiyanc_7976.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺فروش ویژه پکیج نامحدود ، بدون محدودیت کاربر ، جهت ثبت سفارش پیام بدید
+
+
+👉@StarTasiyan 
+⭐️
+</div>
+
+## tasiyanc — post 7968
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+سه سرور سرعتی‌ تست شده💥
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال ⛓
+
+مناسب دانلود ⬇️ وب‌گردی 🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7967
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 بیانیه صفحه رسمی لیندسی گراهام: او بر اثر یه بیماری ناگهانی و کوتاه مدت درگذشت! تسلیت میگیم به خونوادش. @Tasiyanproxy ✅
+</div>
+
+## tasiyanc — post 7966
+
+<div align="center"><img src="files/post_7966_tasiyanc_7966.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤 در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره…
+</div>
+
+## tasiyanc — post 7965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤
+
+در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره بسیار سخت را دارند.
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 7960
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️🇺🇸 هگست وزیر جنگ آمریکا: ایران انتخاب نادرستی انجام داد. اکنون باید عواقب آن را بپردازد. @TasiyanProxy ⭐️
+</div>
+
+## tasiyanc — post 7959
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Speed Fast ⚡ 🇩🇪.npvt
+</div>
 
 ## tasiyanc — post 7958
 
@@ -111,134 +238,5 @@ Change the background behind those two people with white curtains. With hugging 
 همین گنده گوزیا بگاتون داد
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7935
-
-<div align="center"><img src="files/post_7935_tasiyanc_7935.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نوشته بود پدره واقعا باباست، مادره هم واقعا مامانه، بچه‌ها هم واقعا بچه‌ان
-
-اینم عکس خانوادگی آتلیه ایشون😭😭😭
-راستی پدر
-چپی مادر
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حس میکنم خیلی زود اسرائیل ترامپ رو ترور میکنه 😟
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی_سایت
-🔄✅بهترین سایت های کاریابی ایرانی⬇️
-
-1. www.karlancer.com
-2. www.iranjob.ir
-3. www.jobvision.io
-4. www.karlib.com
-5. www.jobinja.ir
-6. www.banikar.com
-7. www.karboom.io
-8. www.e-estekhdam.com
-9. www.infojob.ir
-10. www.iranestekhdam.ir
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7931
-
-<div align="center"><img src="files/post_7931_tasiyanc_7931.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو کدومی؟خودم 15
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7930
-
-<div align="center"><img src="files/post_7930_tasiyanc_7930.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سایت کاربردی بهتون معرفی کنم:
-
-اگر یه خونه خالی یا حتی یه اتاق خالی دارید
-و نمیدونی چجوری دیزاینش کنید
-وارد این وبسایت خارجی بشید:
-home.by.me
-یه فضایی در اختیارتون میذاره که تصور می‌کنید
-الان وارد نرم‌افزارهای تخصصی دیزاین شدید.
-
-اول از همه ابعاد اتاق، دیوارهاش و به‌صورت کلی متراژ رو مشخص کنید، بعدش شروع کن به دیزاینش با محصولاتی که سایت در اختیارت می‌ذاره؛ مثل مبلمان، میز و
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7928
-
-<div align="center"><img src="files/post_7928_tasiyanc_7928.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام داداش به رفقا بگو استرس نکشن، دینی رو میشه تو یک ساعت
-جمع کرد😹
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد
-
-مناسب دانلود⬇️ &  گیم 🎮
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe ⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7924
-
-<div align="center"><img src="files/post_7924_tasiyanc_7924.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز روز جهانی کبابه😍
-
-بفرس برا رفیقت برات بخره☺️
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7922
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐 مشاهده فیلم 👉
-</div>
-
-## tasiyanc — post 7920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐
-
-مشاهده فیلم 👉
 </div>
 
