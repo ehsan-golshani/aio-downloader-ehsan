@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/04/25 01:55
+📅 آخرین بروزرسانی: 1405/04/25 10:45
 
 ---
+
+## tasiyanc — post 8073
+
+<div align="center"><img src="files/post_8073_tasiyanc_8073.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 طبق مطالعات، دخترا عاشق اینن، اون لحظه‌ای که ازشون خوشت اومدو براشون تعریف کنی.
+
+مثلا دو تایی خوابیدین رو بالشت، یهویی میگه چیشد از من خوشت اومد؟
+این لحظه باید وقت بذاری و با ذوق و شوق براشون تعریف کنی که چیشد ازشون خوشت اومد.
+صد بارم تعریف کنی بازم خوششون میاد، قشنگ جزئیات ظاهری و رفتاری رو کامل بگو که از چه چیزی‌شون خوشت اومد.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴گزارش‌های اولیه حاکی از آن است که نیروگاه «کیش» در استان هرمزگان ایران توسط یک موشک هدف قرار گرفت و تجهیزات آن آسیب دید. قطعی برق پیش‌بینی می‌شود. @TasiyanProxy✅
+</div>
 
 ## tasiyanc — post 8070
 
@@ -264,23 +283,5 @@
 ثانیه به ثانیه‌اش عالیه😂
 
 @Tasiyanc ⭐️ | بانك کانفیگ
-</div>
-
-## tasiyanc — post 8011
-
-<div align="center"><img src="files/post_8011_tasiyanc_8011.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ارتش اسراییل تقه محکمی به کفر تبنیت جنوب لبنان زد
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8010
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قضیه داره پیچیده میشه
-🚨حمله موشکی حوثی ها به فرودگاه بین‌المللی «ابها» در جنوب عربستان
-
-@Tasiyanc ⭐️
 </div>
 
