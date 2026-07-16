@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/04/25 13:11
+📅 آخرین بروزرسانی: 1405/04/25 15:00
 
 ---
+
+## tasiyanc — post 7015
+
+<div align="center"><video src="files/post_7015_tasiyanc_7015.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7015_tasiyanc_7015.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 📶
+
+تست شده تمام نتها 🚀
+
+دانلود OpenVpn  
+🕹
+
+آموزش اتصال
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNToxa1ZyMEtBVElKSTdtd09G@admin.c1.havij.co:443#%40Tasiyanc%20%F0%9F%94%A5
+GB 🇬🇧
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7012
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+matador ⚡ Fast.npvt
+</div>
 
 ## tasiyanc — post 7010
 
@@ -228,30 +264,5 @@ T.me/Tasiyanc
 🔺 آموزش برای اندروید و iOS یکیست
 @Tasiyanc 
 💠
-</div>
-
-## tasiyanc — post 6980
-
-<div align="center"><video src="files/post_6980_tasiyanc_6980.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6980_tasiyanc_6980.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ متد اختصاصی httpCustum میزارم تست کنید
-</div>
-
-## tasiyanc — post 6979
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ متد اختصاصی httpCustum میزارم تست کنید
-</div>
-
-## tasiyanc — post 6965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 سرور سرعتی NPV 
-🌟
-T.me/Tasiyanc 
-✅
 </div>
 

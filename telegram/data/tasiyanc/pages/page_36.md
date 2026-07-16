@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/04/25 13:11
+📅 آخرین بروزرسانی: 1405/04/25 15:00
 
 ---
+
+## tasiyanc — post 6817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ در تروث : توافق فردا امضا می‌شود
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨شبکه الجزیره به نقل از سخنگوی وزارت خارجه پاکستان گزارش داد که مراسم «امضای الکترونیکی» توافق میان آمریکا و جمهوری اسلامی یکشنبه ۲۳ خرداد برگزار خواهد کرد. به گفته او، پاکستان میزبان این مراسم خواهد بود و مراسم از طریق «ارتباط ویدیویی و آنلاین» برگزار می‌شود.
+
+او جزئیات بیشتری درباره شرکت‌کنندگان یا مفاد این توافق ارائه نکرد.
+Vahid online
+
+@Tasiyanc ✅ | تاسیـان
+</div>
+
+## tasiyanc — post 6815
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 📶
+
+تست شده تمام نتها 🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6813
 
@@ -205,32 +237,5 @@
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6787
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه وایر میزارم بخوابم
-</div>
-
-## tasiyanc — post 6785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP⚡ APEX ⛓️.npvt
 </div>
 

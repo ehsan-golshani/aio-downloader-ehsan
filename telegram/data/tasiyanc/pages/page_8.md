@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/25 13:11
+📅 آخرین بروزرسانی: 1405/04/25 15:00
 
 ---
+
+## tasiyanc — post 7865
+
+<div align="center"><video src="files/post_7865_tasiyanc_7865.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7865_tasiyanc_7865.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 
+🔐
+
+سرور سرعتی پرمیوم متد جدید سرور 
+⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 اینستاگرام 
+📸 جمینای 
+🤖
+
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7864
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺آمریکا اعلام کرد همچنان به تفاهم‌نامه با ایران متعهد است و به دنبال مسیر دیپلماتیک است
+</div>
+
+## tasiyanc — post 7863
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺آمریکا اعلام کرد همچنان به تفاهم‌نامه با ایران متعهد است و به دنبال مسیر دیپلماتیک است
+</div>
 
 ## tasiyanc — post 7861
 
@@ -236,26 +291,5 @@ https://t.me/+v0wRP5SGNrg5MThk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 میترسم بخوابم صبح داخل روبیکا بیدار شم
-</div>
-
-## tasiyanc — post 7818
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه اخبار رو از چنل پروکسی دنبال کنید ، چنلای مجموعه تاسیان بزودی همگی پرایوت میشه چه قطعی باشه نباشه
-
-https://t.me/+v0wRP5SGNrg5MThk ⭐️
-</div>
-
-## tasiyanc — post 7807
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیچ اختلالی تو دیتا سنترا نداریم به کسشرات چنلای کانفیگ گوش ندید ، چیزی باشه خودم اطلاع رسانی میکنم
-همش برا جذب ممبره
-</div>
-
-## tasiyanc — post 7806
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ : ممکنه دوباره جنگ با ایران پر قدرت شروع بشه.
 </div>
 

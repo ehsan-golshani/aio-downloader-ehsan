@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/04/25 13:09
+📅 آخرین بروزرسانی: 1405/04/25 14:58
 
 ---
+
+## ProxyMTProto — post 47787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: big3.mtproxygram.lol
+Port: 853
+Secret: ee9909e7aa6bc62461a0b60f33af14a68462726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47786
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dot.vdl.lat
+Port: 853
+Secret: ee9963ec50cf89d852bb1e084a44b196e4646f742e76646c2e6c6174
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7980
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47784
 
@@ -160,32 +187,5 @@ PROXYMTPROTO
 
 💳 Кошелёк → 🎁 Применить промокод ⬇️
 @BlyatNetBot @BlyatNetBot
-</div>
-
-## ProxyMTProto — post 47767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r43.proxytg.space
-Port: 8443
-Secret: ee53e5dc51c0bc1af6f2e26c8462f60f2f7234332e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ether.nolags.pw
-Port: 443
-Secret: dd86e17c6a253f59eac4b4909095ba3019
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47765
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: FgMBAgABAAH8AxOG4kw63Q
-@ProxyMTProto
 </div>
 

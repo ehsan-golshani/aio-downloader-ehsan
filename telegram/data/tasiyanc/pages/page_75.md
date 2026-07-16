@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/04/25 13:11
+📅 آخرین بروزرسانی: 1405/04/25 15:00
 
 ---
+
+## tasiyanc — post 5737
+
+<div align="center"><img src="files/post_5737_tasiyanc_5737.jpg" alt="Photo"></div>
+
+## tasiyanc — post 5736
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده روی تمام اپراتورها ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5734
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده روی رایتل و ایرانسل - بقیه اپراتورا تست کنن ⛈ 
+
+رمز : ″ @Tasiyanc ″
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5733
 
@@ -160,34 +191,5 @@ vless://20ecee51-1044-4be3-89a9-f3c700425ead@45.67.230.230:443?security=reality&
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 🥝.npvt
-</div>
-
-## tasiyanc — post 5713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد اتصال در Npv tunnel
-وارد تلگرام یا .. شوید نیاز نی پینگ بگیرید ❤️‍🔥
-</div>
-
-## tasiyanc — post 5712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 دو سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده با همراه اول و وایفای بقیه هم تست کنن⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5711
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ 📶 🔐
-
-vless://0f4d41cf-0be1-4fcc-ac41-53b843ba0752@172.66.44.118:443?path=%2F&security=tls&encryption=none&insecure=0&host=H7-83W.pAgeS.deV&type=ws&allowInsecure=0&sni=H7-83W.pAgeS.deV#%40Tasiyanc%20%7C%20%D8%AA%D8%A7%D8%B3%DB%8C%D8%A7%D9%86
-vless://ce069292-c8bf-40dd-a6b1-87818a1e64e9@ip.sb:443?path=%2F&security=tls&encryption=none&insecure=1&host=3-7ny.pages.dev&fp=chrome&type=ws&allowInsecure=1&sni=3-7ny.pages.dev#%40Tasiyanc%20%7C%20%D8%AA%D8%A7%D8%B3%DB%8C%D8%A7%D9%86
-
-@Tasiyanc ✅
 </div>
 

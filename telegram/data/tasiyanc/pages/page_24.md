@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/04/25 13:11
+📅 آخرین بروزرسانی: 1405/04/25 15:00
 
 ---
+
+## tasiyanc — post 7247
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐
+</div>
+
+## tasiyanc — post 7238
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+توییت های ترامپ پوشش ندیم بهتره سیاست مدارا زیاد دروغ میگن قبول داریم ولی جایگاه دیپلماتیک فرق می‌کنه چون ایشون انقد موضع خودشو عوض کرد و دروغ گفت   علاوه بر اینکه پیش مردم ایران حرفاش اعتباری نداره بلکه در میان حکومت و سیاستمداران دنیا هم دیگه گردنش نمیگیرن و هیچ یک از حرفاش برای احدی مهم نیست جز قیمت بازار نفت که منبع درآمد خوبی براش شده با بالا پایین کردنش .
+پی‌نوشت : همین تنگه هرمز ک الان سرش دعواست قبل جنگ تا خرخره باز بود
+</div>
+
+## tasiyanc — post 7237
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ های اخیر که گذاشتم همشون وصله
+( دارک - نپستر - ویندسکرایب) حمایت یادتون نره ❤️
+</div>
 
 ## tasiyanc — post 7235
 
@@ -300,73 +320,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 🟢@nac_config
 
 🔵@nacconfig
-</div>
-
-## tasiyanc — post 7208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹هیئت مذاکره کننده جمهوری اسلامی دقایقی قبل به ریاست قالیباف راهی سوئیس شد.
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7207
-
-<div align="center"><video src="files/post_7207_tasiyanc_7207.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7207_tasiyanc_7207.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن IT
-
-2سرور سرعتی متد جدید
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖 ترید 🤑
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7205
-
-<div align="center"><video src="files/post_7205_tasiyanc_7205.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7205_tasiyanc_7205.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖 ترید
-💰
-
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

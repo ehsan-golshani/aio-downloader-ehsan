@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/04/25 13:11
+📅 آخرین بروزرسانی: 1405/04/25 15:00
 
 ---
+
+## tasiyanc — post 5760
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Box 🔐 MCI
+
+vless://8b5acf77-2c2e-4eed-9ad1-be81851b99ea@172.66.44.161:443?path=%2F&security=tls&encryption=none&insecure=0&host=e1-f55.pages.dev&fp=chrome&type=ws&allowInsecure=0&sni=e1-f55.pages.dev#%40Tasiyanc%20%20%F0%9F%A7%A9
+vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2Fdl&security=tls&encryption=none&insecure=0&host=pagescm.freen29.cc.cd&fp=chrome&type=ws&allowInsecure=0&sni=pagescm.freen29.cc.cd#%40Tasiyanc%20%E2%9A%99%EF%B8%8F
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 5758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+
+🚀 @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 5757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز باشه
+</div>
 
 ## tasiyanc — post 5756
 
@@ -171,36 +205,5 @@ https://t.me/Tasiyanc/5733
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سلام، از زیبا بودن این صفحه چیزی نمیگم،خودتون ببینین 🥰
-</div>
-
-## tasiyanc — post 5737
-
-<div align="center"><img src="files/post_5737_tasiyanc_5737.jpg" alt="Photo"></div>
-
-## tasiyanc — post 5736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده روی تمام اپراتورها ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5734
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده روی رایتل و ایرانسل - بقیه اپراتورا تست کنن ⛈ 
-
-رمز : ″ @Tasiyanc ″
-
-
-🚀 @Tasiyanc ✅
 </div>
 
