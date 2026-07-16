@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/04/25 21:37
+📅 آخرین بروزرسانی: 1405/04/25 23:07
 
 ---
+
+## tasiyanc — post 6238
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ Speed servers 🥇⚡.npvt
+</div>
+
+## tasiyanc — post 6237
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+5 سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6236
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنام کو😐😐😐😐😐😐😐😐😐😐
+</div>
 
 ## tasiyanc — post 6234
 
@@ -166,30 +194,4 @@ NEW FAST ⚡ 🚀.npvt
 https://t.me/TasiyanProxy
 https://t.me/TasiyanProxy
 </div>
-
-## tasiyanc — post 6214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وایر های قبلی ک‌گذااشتم مثل موشك وصلن نیازی به جدید نی فعلا
-</div>
-
-## tasiyanc — post 6212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-
-3سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6209
 
