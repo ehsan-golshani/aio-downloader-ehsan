@@ -1,193 +1,86 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/04/26 01:20
+📅 آخرین بروزرسانی: 1405/04/26 02:16
 
 ---
 
-## tasiyanc — post 6678
+## tasiyanc — post 6700
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۰٪ کانفیگای NPV ک زدم امروز وصلن
+موقع بحران خانواده‌ایم، موقع آرامش غریبه‌ایم 😂
 </div>
 
-## tasiyanc — post 6677
+## tasiyanc — post 6698
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc - DE VIP 🇩🇪⚡.npvt
+🪐VelocityX 🇩🇪.npvt
 </div>
 
-## tasiyanc — post 6676
-
-<div align="center"><video src="files/post_6676_tasiyanc_6676.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6676_tasiyanc_6676.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## tasiyanc — post 6697
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 😎
 
-۳سرور سرعتی همه نت ها 
-🔥
+3سرور سرعتی همه نت ها 🔥
 
-دانلود  وب‌گردی ، اینستاگرام
-🚀
+دانلود  وب‌گردی ، اینستاگرام🚀
 
-دانلود برنامه 🕹 IOS 
-📱 Android 
+دانلود برنامه 🕹 IOS 📱 Android 
 
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
 </div>
 
-## tasiyanc — post 6674
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ موفق شد قیمت نفت رو با این خبر به زیر ۹۰ دلار برسونه
-ذات ترامپ :
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک پست : ترامپ الان اعلام کرد توافق نهایی شده و تمومه @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6672
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیویورک پست : ترامپ الان اعلام کرد توافق نهایی شده و تمومه
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6671
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بدون فیلتر شکن برید ببینید افتتاحیه و تماشای بازی افتتاحیه شبکه TRT https://ritsatv.ru/mobile-version/movie-id901190-trt1 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6670
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بدون فیلتر شکن برید ببینید
-افتتاحیه و تماشای بازی افتتاحیه شبکه TRT
-https://ritsatv.ru/mobile-version/movie-id901190-trt1
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6668
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ : حملات امشب لغو کردم
-</div>
-
-## tasiyanc — post 6667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20vip%20%40Tasiyanc%20%E2%99%82%EF%B8%8F vless://0058c215-ab1e-400c-a403-b5b2fd…
-</div>
-
-## tasiyanc — post 6666
+## tasiyanc — post 6696
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐🔐🔐
+vless://d39664df-5bc0-4f49-9894-8f03b4150082@germany-vip.soft26.ir:8443?mode=auto&path=%2F&security=reality&encryption=none&pbk=QLamtir13xwzyWVlPRN3C7lw_fhSBU7X4H3A8zAl5Fg&fp=chrome&type=xhttp&sni=www.yahoo.com&sid=6f3192#T.me%2FTasiyanc%20%E2%9A%A1
 
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20vip%20%40Tasiyanc%20%E2%99%82%EF%B8%8F
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc%20%F0%9F%94%B1
+vless://da48859d-edf9-4a8c-a026-80910591f284@151.101.1.164:80?mode=auto&path=%2FTignal&security=none&encryption=none&host=tignaltofansv8.global.ssl.fastly.net&type=xhttp#T.me%2FTasiyanc%20%E2%9A%A1
 @Tasiyanc ✅
 </div>
 
-## tasiyanc — post 6665
+## tasiyanc — post 6695
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیست پخش کانالهای خارجی افتتاحیه و بازیهای جام‌جهانی 🔻Persiana Sports HD 🗣 Yahsat / TurkmenAlem 🟢10762 V 27500 🟢 10803 H 27500 🟢 11420 V 27500 🟢 11383 H 27500 🔻​TRT 1 HD 🇹🇷 🗣 Turksat 42°E 🟢 11794 V 30000 🔻​ ATN HD 🗣 Yahsat1A 🟢11938 H 27500 🟢 BISS:1234569C7890ABB3…
+جام جهانی - 5.30 صبح 🏆
+
+بازی کره🇰🇷 - چک 🇨🇿
+@Tasiyanc ✅
 </div>
 
-## tasiyanc — post 6664
+## tasiyanc — post 6694
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌎🚀World Cup ⚡.npvt
+توافق داره تو جنوب امضا میشه
 </div>
 
-## tasiyanc — post 6663
-
-<div align="center"><video src="files/post_6663_tasiyanc_6663.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6663_tasiyanc_6663.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## tasiyanc — post 6692
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۴سرور سرعتی همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 🕹 IOS 
-📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
+اخبار داغ و پروکسی های تاسیان ( حمایت کنین )
+https://t.me/TasiyanProxy
 </div>
 
-## tasiyanc — post 6660
-
-<div align="center"><img src="files/post_6660_tasiyanc_6660.jpg" alt="Photo"></div>
+## tasiyanc — post 6691
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ تو مراسم افتتاحیه جام جهانی امشب راس ساعت 21:00
-شکیرا، دنی اوشن، جی بالوین، بلیندا و لیسا توش قراره اجرا داشته باشن
-@Tasiyanc 
-✅
+Rend ⚡ (1).npvt
 </div>
 
-## tasiyanc — post 6659
+## tasiyanc — post 6690
 
-<div align="center"><video src="files/post_6659_tasiyanc_6659.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+<div align="center"><video src="files/post_6690_tasiyanc_6690.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
-<div align="center"><a href="files/post_6659_tasiyanc_6659.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟢معرفی اپ کاربردی برای فوتبالیا
-
-🔴برای اطلاع از زمان دقیق بازیها - جزئیات و ترکیب تیمها در جام جهانی کافیه این اپ جهانی رو نصب کنین و FIFA world cup رو فالو کنین
-
-Fotmob Android 
-🕹
-
-Fotmob iOS 
-📱
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6658
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطورید رو به راهید؟
-</div>
-
-## tasiyanc — post 6657
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطورید رو به راهید؟
-</div>
-
-## tasiyanc — post 6656
-
-<div align="center"><video src="files/post_6656_tasiyanc_6656.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6656_tasiyanc_6656.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+<div align="center"><a href="files/post_6690_tasiyanc_6690.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 
 😎
 
-3سرور سرعتی همه نت ها 
+2سرور سرعتی همه نت ها 
 🔥
 
 دانلود  وب‌گردی ، اینستاگرام
@@ -205,15 +98,88 @@ Fotmob iOS
 ✅
 </div>
 
-## tasiyanc — post 6655
+## tasiyanc — post 6689
 
-<div align="center"><video src="files/post_6655_tasiyanc_6655.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6655_tasiyanc_6655.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## tasiyanc — post 6688
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید قهرمانی پرتغال به عشق آقام کریس 
-😱
-🤔
+هم اکنون ورود جنگنده ها و هواپیماهای سوخترسان برای امضای توافق
+</div>
+
+## tasiyanc — post 6687
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 🔐
+vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%E2%9A%A1%40Tasiyanc%F0%9F%94%B7
+🌐🇩🇪
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نورالدین الدغیر خبرنگار الجزیره در تهران:
+دیگر همه چیز قطعی و تمام شده
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠⭕️⭕️ ترامپ : خودم احتمالاً نمی‌تونم تو مراسم امضای توافق حضور داشته باشم و ونس به نمایندگی از آمریکا اونجا خواهد بود
+- امضای توافق ممکنه خیلی زود انجام بشه، حتی شاید همین آخر هفته
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6683
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ : محل امضای توافق بزودی اعلام میشود
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6682
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با توجه به اخبار توافق حتمی می‌باشد ، البته قطعی نیست
+</div>
+
+## tasiyanc — post 6681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️سپاه پاسداران:
+اگر امریکا تمام خواسته‌های ما را در سندی که ارائه دادیم بپذیرد، به احتمال زیاد ما این توافق را تایید خواهیم کرد.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6680
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ترامپ درباره توافق با ایران:
+ما به‌تازگی یک توافق عالی درباره جنگ با ایران انجام دادیم و در حال نهایی کردن مدارک هستیم. باید طی چند روز آینده کار تمام شود.
+
+احتمالاً امضا در اروپا انجام خواهد شد و این یک اتفاق عالی است.
+
+بازار سهام ۱۰۰۰ واحد رشد کرده است. این یعنی آن‌ها این توافق را دوست دارند.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️خبرگزاری فارس:
+
+با توجه به اینکه امریکا متن پیشنهادی ایران را پذیرفته است احتمال تایید این متن در مراجع اصلی‌نظام بالا است‌
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۰٪ کانفیگای NPV ک زدم امروز وصلن
 </div>
 

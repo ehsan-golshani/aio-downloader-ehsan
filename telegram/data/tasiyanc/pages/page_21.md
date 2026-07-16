@@ -1,123 +1,112 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/04/26 01:20
+📅 آخرین بروزرسانی: 1405/04/26 02:16
 
 ---
 
-## tasiyanc — post 7420
+## tasiyanc — post 7448
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم بره وار
+⭕️حمله آمریکا به بندرلنگه و بندر کنگ
 </div>
 
-## tasiyanc — post 7419
+## tasiyanc — post 7447
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گگگگگگگگگگگگگللللللللل ایران
+صداوسیما: دقایقی پیش چندین انفجار در شهرستان سیریک، جنوب ایران رخ داده است.
 </div>
 
-## tasiyanc — post 7418
+## tasiyanc — post 7446
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صلاح تعویض شد 😐
+⭕️ ۳ انفجار در قشم
 </div>
 
-## tasiyanc — post 7417
+## tasiyanc — post 7445
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned «ساب لینک اختصاصی نامحدود 🚀 🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt 130 کانفیگ پروتکل Trojan سرعتی ( هر دوازده ساعت آپدیت خواهد شد ) آموزش ویدیویی اضافه کردن ساب 💘 @Tasiyanc 💠 | اتصال امن»
+⭕️ ۴ انفجار شدید در سیریك
 </div>
 
-## tasiyanc — post 7416
+## tasiyanc — post 7444
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدایی گل خوبی زد رامین
+⭕️⭕️ آغاز حملات ایالات متحده به ایران
 </div>
 
-## tasiyanc — post 7415
+## tasiyanc — post 7443
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللللللللللللل رامین
+سلام عزیزان یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید https://t.me/+DhVkjFb6qhZmYTFk
 </div>
 
-## tasiyanc — post 7414
+## tasiyanc — post 7442
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پنالتی رو خراب می‌کنه طارمی
+سلام عزیزان
+یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید
+https://t.me/+DhVkjFb6qhZmYTFk
 </div>
 
-## tasiyanc — post 7413
+## tasiyanc — post 7441
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پنالتیییی ایران
+🔐 کانفیگ حجم نامحدود 🇬🇧
+
+4 سرور سرعتی ⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+🔑Password :  @Tasiyanc
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 
-## tasiyanc — post 7412
+## tasiyanc — post 7440
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللللللللللللللللل مصرررررر 🇪🇬
+پروفایل چنل عوض شد --- ❤️
 </div>
 
-## tasiyanc — post 7411
+## tasiyanc — post 7438
+
+<div align="center"><img src="files/post_7438_tasiyanc_7438.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیدارید؟
+برای خرید بازی GTA VI در‌ هر کشور چند روز باید کار کنی ؟
+@Tasiyanc 💠
 </div>
 
-## tasiyanc — post 7409
+## tasiyanc — post 7435
 
-<div align="center"><img src="files/post_7409_tasiyanc_7409.jpg" alt="Photo"></div>
+<div align="center"><img src="files/post_7435_tasiyanc_7435.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هوادارای حاضر در استادیوم با پرچم های رنگارنگ
-@Tasiyanc
+برنامه بازی های امروز جام جهانی 🏆
+@Tasiyanc 💠
 </div>
 
-## tasiyanc — post 7405
+## tasiyanc — post 7434
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/TasiyanProxy/1840
-نتیجه بازی رو پیش بینی دقیق کنید کانفیگ بگیرید ، باید عضو چنل پروکسی باشید تا جایزه رو بگیرید
+تفاهم هم رو هواس الان ، امشب احتمال داره شاهد تحرکات جدید از هر دو طرف باشیم
 </div>
 
-## tasiyanc — post 7403
+## tasiyanc — post 7433
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه وضع ریکشن به این پخت پز😐😐😐
+چطوریددد؟
 </div>
 
-## tasiyanc — post 7402
+## tasiyanc — post 7432
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب لینک اختصاصی نامحدود 🚀
+🔑Password :  @Tasiyanc
 
-🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-
-130 کانفیگ پروتکل Trojan سرعتی
-( هر دوازده ساعت آپدیت خواهد شد )
-
-
-آموزش ویدیویی اضافه کردن ساب 💘
-
-
-@Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 7400
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چیزی نشده همراه اول اختلال میخوره .....😡
-</div>
-
-## tasiyanc — post 7399
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST ⚡⚡🔥.npvt
-</div>
-
-## tasiyanc — post 7393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ حجم نامحدود
 
 ۳ سرور سرعتی ⚡️
@@ -132,21 +121,17 @@ FAST ⚡⚡🔥.npvt
  💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 
-## tasiyanc — post 7392
+## tasiyanc — post 7431
+
+<div align="center"><video src="files/post_7431_tasiyanc_7431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7431_tasiyanc_7431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ هم اکنون حملات آمریکا به سیریک
-</div>
+🔑Password : @Tasiyanc
 
-## tasiyanc — post 7391
 
-<div align="center"><video src="files/post_7391_tasiyanc_7391.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7391_tasiyanc_7391.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود سرور 
-🇮🇹
+🔐 کانفیگ حجم نامحدود
 
 ۳ سرور سرعتی 
 ⚡️
@@ -168,32 +153,49 @@ FAST ⚡⚡🔥.npvt
 💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 
-## tasiyanc — post 7390
-
-<div align="center"><video src="files/post_7390_tasiyanc_7390.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7390_tasiyanc_7390.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## tasiyanc — post 7430
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود مولتی SV
+🏆صعود چگونه محقق خواهد شد؟
 
-4سرور سرعتی 
-⚡️
+به یکی از اتفاقات زیر نیاز دارد تا به عنوان یکی از تیم های سوم صعود کند
 
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
+1.شکست کرواسی برابر غنا
+2.شکست نخوردن ازبکستان برابر کنگو
+3.عدم تساوی در دیدار اتریش و الجزایر
 
-آموزش اتصال 
-⛓
+@Tasiyanc 💠
+</div>
 
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
+## tasiyanc — post 7429
 
+<div align="center"><video src="files/post_7429_tasiyanc_7429.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
 
- 
-💘@Tasiyanc |  تاسیان اتصال امن
+<div align="center"><a href="files/post_7429_tasiyanc_7429.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقای رضاییان هنوز نمیدونی چرا بدشانسی میارید؟ 😒
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7428
+
+<div align="center"><img src="files/post_7428_tasiyanc_7428.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😐😐😐
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آفسایدددددددددد
+</div>
+
+## tasiyanc — post 7420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم بره وار
 </div>
 

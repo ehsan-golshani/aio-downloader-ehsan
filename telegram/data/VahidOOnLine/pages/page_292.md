@@ -1,8 +1,101 @@
 # آرشیو کانال VahidOOnLine - صفحه 292
 
-📅 آخرین بروزرسانی: 1405/04/26 01:17
+📅 آخرین بروزرسانی: 1405/04/26 02:14
 
 ---
+
+## VahidOOnLine — post 243049
+
+<div align="center"><video src="files/post_243049_VahidOOnLine_243049.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243049_VahidOOnLine_243049.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در پی راه‌اندازی کارزار مردمی رشت از سوی ایران‌اینترنشنال، ویدیوهایی از مراسم چهلم جاویدنام امیرحسین (شایان) شکاری به دست ما رسیده است.
+شکاری، ۲۱ ساله، عضو پیشین تیم ملی تکواندو نوجوانان که سابقه نایب‌قهرمانی آسیا را در کارنامه دارد، ۱۸ دی ۱۴۰۴ با شلیک مستقیم گلوله به سر کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243048
+
+<div align="center"><img src="files/post_243048_VahidOOnLine_243048.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرزانه صادق، وزیر راه و شهرسازی، در نشست «مجازی» مجلس گفت: «شاهد جنگ کریدورها هستیم و بر همین اساس بنادر جنوبی کشور در خط مقدم جنگ قرار دارند.»
+
+او افزود: «برای تامین کالاهای اساسی و ضروری، برنامه‌ریزی شد تا روند واردات و صادرات متوقف نشود. همچنین رایزنی با کشورهای همسایه به منظور افزایش ناوگان حمل و نقل نیز انجام شده است.»
+
+وزیر راه و شهرسازی اضافه کرد: «در جنگ اخیر خسارات زیادی نیز در حوزه راه و شهرسازی رخ داد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243047
+
+<div align="center"><img src="files/post_243047_VahidOOnLine_243047.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حمیدرضا حاجی‌بابایی، نایب‌رییس مجلس گفت: «محاصره اقتصادی دشمن را محاصره می‌کنیم و باید پرقدرت مسیرهای جایگزین و کریدورهای زمینی را پیگیری و فعال کرد.»
+
+او ادامه داد: «برنامه‌ریزی‌های ماه‌های آینده باید با فرض ادامه‌دار بودن محاصره باشد و نباید تحت تاثیر گشایش‌های مقطعی احتمالی از سوی دشمن قرار گرفت.»
+
+حاجی‌بابایی افزود: «باید تمهیداتی پیش‌بینی شود که از مسیر دریایی جنوب و بنادر مهم کشور با دور زدن محاصره و کم‌اثر کردن عملیاتی آن بتوان کماکان بخشی از کالاهای مورد نیاز را تامین کرد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243046
+
+<div align="center"><video src="files/post_243046_VahidOOnLine_243046.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243046_VahidOOnLine_243046.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️حملات هوایی اسرائیل به شهر صور در جنوب لبنان
+
+♦️جنگنده‌های ارتش اسرائیل روز یکشنبه دهم خرداد مواضع حزب‌الله را در شهر صور و مناطق اطراف آن در جنوب لبنان هدف حملات هوایی قرار دادند.
+
+همزمان با این حملات، ستون‌های دود در بخش‌هایی از منطقه مشاهده می‌شود.
+
+این حملات در ادامه درگیری‌های جاری میان اسرائیل و حزب‌الله و هم‌زمان با گسترش عملیات نظامی اسرائیل در جنوب لبنان انجام شده است.
+
+صور از مهم‌ترین شهرهای جنوب لبنان به شمار می‌رود و در هفته‌های اخیر بارها هدف حملات هوایی ارتش اسرائیل قرار گرفته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243045
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️محمدباقر قالیباف، رییس مجلس شورای اسلامی روز یکشنبه در جلسه صحن مجلس که به صورت مجازی برگزار شد با اشاره به مذاکرات با آمریکا، گفت: «تا اطمینان پیدا نکنیم که حقوق ملت ایران را گرفته‌ایم، هیچ توافقی را تایید نخواهیم کرد.»
+
+او با تاکید بر اینکه مقام‌های جمهوری اسلامی هیچ اعتمادی به آمریکا  ندارند، افزود: «سربازان میدان مبارزه دیپلماسی، هیچ اعتمادی به حرف‌ها و وعده‌های دشمن ندارند. آنچه برای ما ملاک است دستاوردهای عینی است که باید کسب کنیم.»
+
+قالیباف تاکید کرد: «تضمین این راهبرد، جان ماست که کف دست گرفته‌ایم تا نثار مردم ایران کنیم.»
+
+دونالد ترامپ، رئیس‌جمهور ایالات متحده، در گفتگویی اختصاصی با شبکه خبری «فاکس نیوز»، با اشاره به روند رایزنی‌های جاری، وضعیت گفتگوها را مثبت ارزیابی کرد و گفت: «ما به امضای یک توافق بسیار خوب با تهران نزدیک هستیم. اگر نتوانیم به یک توافق خوب و ایده‌آل دست پیدا کنیم، قطعا بازخواهیم گشت و کار را از طریق نظامی تمام خواهیم کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243044
+
+<div align="center"><video src="files/post_243044_VahidOOnLine_243044.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243044_VahidOOnLine_243044.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در پی راه‌اندازی کارزار مردمی رشت از سوی ایران‌اینترنشنال، ویدیوهایی از جمعیت گسترده مردم معترض این شهر در ۱۸ دی ۱۴۰۴ به دست ما رسیده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243043
 
@@ -202,97 +295,6 @@ iranintl
 
 او ادامه داد: «من شهادت می‌دهم که رئیسی فقط کارها را برای خدا، مردم و نظام جمهوری اسلامی انجام می‌داد.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243029
-
-<div align="center"><video src="files/post_243029_VahidOOnLine_243029.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243029_VahidOOnLine_243029.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهایی که تازه به دست ایران‌اینترنشنال رسیده، برگزاری مراسم چهلم جاویدنام احمد طراقیان را بر سر مزارش نشان می‌دهد.
-طراقیان، ۳۲ ساله، شامگاه ۱۹ دی‌ ۱۴۰۴ در شهر کرج، با شلیک گلوله جنگی به ناحیه سر هدف قرار گرفت و جان باخت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243028
-
-<div align="center"><video src="files/post_243028_VahidOOnLine_243028.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243028_VahidOOnLine_243028.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال، برگزاری مراسم تولد جاویدنام مصطفی نوری شیرازی را بر سر مزارش نشان می‌دهد.
-مصطفی نوری، جوان ۲۳ ساله اهل شهر نور در استان مازندران، جمعه ۱۹ دی‌ماه ۱۴۰۴ با شلیک مستقیم نیروهای سرکوبگر جان باخت. او را به بیمارستان خمینی‌شهر نور بردند اما جان باخت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243027
-
-<div align="center"><img src="files/post_243027_VahidOOnLine_243027.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ارتش اسرائیل روز یکشنبه ۱۰ خرداد به غیرنظامیان لبنانی ساکن جنوب رودخانه زهرانی هشدار داد که منطقه را تخلیه کنند و اعلام کرد که عملیات علیه حزب‌الله را تشدید می‌کند.
-
-آویخای ادرعی، سخنگوی عرب زبان ارتش اسرائیل در شبکه‌های اجتماعی نوشت: «ساکنان جنوب لبنان، شما باید فوراً به شمال زهرانی نقل مکان کنید.»
-
-به گزارش خبرگزاری فرانسه، در حالی که تلاش‌ها برای برای دستیابی به آتش‌بس در لبنان ادامه دارد، اسرائیل روز جمعه حملات سنگین خود به جنوباین کشور را ادامه داد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243026
-
-<div align="center"><video src="files/post_243026_VahidOOnLine_243026.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243026_VahidOOnLine_243026.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️انقلاب ملی ایران؛ جاوید نام محسن نمازی به ضرب گلوله سرکوبگران در تهران کشته شد
-
-♦️تصاویری که روز شنبه نهم خرداد در شبکه‌های اجتماعی منتشر شده، جاوید نام محسن نمازی را نشان می‌دهد که در کلاس مدرسه درحال گذراندن شور و حال جوانی است.
-محسن نمازی ۱۸ ساله، شامگاه پنجشنبه ۱۸ دی‌ماه ۱۴۰۴ در جریان انقلاب ملی ایرانیان به‌ضرب گلوله جنگی نیروهای سرکوبگر جمهوری اسلامی در منطقه بهارستان تهران کشته شد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243025
-
-<div align="center"><img src="files/post_243025_VahidOOnLine_243025.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدباقر قالیباف، رییس مجلس در سخنانی با اشاره به مذاکرات با آمریکا، گفت: «تا اطمینان پیدا نکنیم که حقوق ملت ایران را گرفته‌ایم، هیچ توافقی را تایید نخواهیم کرد.»
-
-او افزود: «سربازان میدان مبارزه دیپلماسی، هیچ اعتمادی به حرف‌ها و وعده‌های دشمن ندارند. آنچه برای ما ملاک است دستاوردهای عینی است که باید کسب کنیم.»
-
-قالیباف اضافه کرد: «تضمین این راهبرد، جان ماست که کف دست گرفته‌ایم تا نثار مردم ایران کنیم.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243024
-
-<div align="center"><video src="files/post_243024_VahidOOnLine_243024.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243024_VahidOOnLine_243024.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️نهم اسفند و آغاز جنگ؛ تصاویر جدید از لحظه اصابت موشک به بیت رهبر جمهوری اسلامی
-
-♦️تصاویری که روز یکشنبه و پس از وصل شدن اینترنت در ایران در شبکه‌های اجتماعی منتشر شده، لحظه اصابت موشک‌های «تاماهاک» به بیت علی خامنه‌ای، رهبر پیشین جمهوری اسلامی را نشان می‌دهد.
-
-علی خامنه‌ای، به همراه جمعی از فرماندهان ارشد نظامی جمهوری اسلامی ظهر نهم اسفند ۱۴۰۴ و همزمان با آغاز جنگ توسط ارتش‌های اسرائیل و آمریکا کشته شد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
