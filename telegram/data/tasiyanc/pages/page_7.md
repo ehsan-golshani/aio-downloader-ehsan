@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/25 20:27
+📅 آخرین بروزرسانی: 1405/04/25 21:37
 
 ---
+
+## tasiyanc — post 7915
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦅⚡️ WAR.npvt
+</div>
 
 ## tasiyanc — post 7914
 
@@ -224,14 +230,5 @@
 - ربکا | دافنه دوموریه
 ✔️ @Tasiyanc 🔋
 #Petros
-</div>
-
-## tasiyanc — post 7876
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حس میکنم نه دیگه ما می‌دونیم چی میشه، نه جمهوری اسلامی نه ترامپ. سرنوشت‌مون رو دادن دست کارگردان سریال فرام.
-@Tasiyanc 
-⭐️
-#Navid
 </div>
 

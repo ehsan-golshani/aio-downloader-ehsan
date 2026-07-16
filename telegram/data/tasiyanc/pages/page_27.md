@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/04/25 20:27
+📅 آخرین بروزرسانی: 1405/04/25 21:37
 
 ---
+
+## tasiyanc — post 7144
+
+<div align="center"><img src="files/post_7144_tasiyanc_7144.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز June 18، روز جهانی چشم خوشگلاست.
+
+@Tasiyanc ✅ | تاسیان
+</div>
 
 ## tasiyanc — post 7143
 
@@ -227,11 +237,5 @@ T.me/Tasiyanc ✅
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازیکنای احمق پرتغال پاس نمیدن به رونالدو
 </div>
 

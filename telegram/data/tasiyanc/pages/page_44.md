@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/04/25 20:27
+📅 آخرین بروزرسانی: 1405/04/25 21:37
 
 ---
+
+## tasiyanc — post 6549
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حتی چنلمون تو اپای ایرانی ام قراره یه جور پرایوت شه اونایی ک ممبر چنلن بیان هر ۲۴ ساعت لینکو عوض میکنم
+</div>
 
 ## tasiyanc — post 6548
 
@@ -193,22 +199,6 @@ https://t.me/+RTGtcYWb8HdkNjdk
 دانلود 📱 WG tunnel 🕹 iOS WG
 
 آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6527
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-2سرور سرعتی مناسب همه نت ها 🔥
-
-دانلود وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android
-
-آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
 </div>

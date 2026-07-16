@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/04/25 20:25
+📅 آخرین بروزرسانی: 1405/04/25 21:35
 
 ---
+
+## ProxyMTProto — post 48682
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: basic.here-funnycloud.co.uk
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: portal.malevich7.top
+Port: 443
+Secret: ee11a238b08b4be3863afe578bcbe7a6f9706f7274616c2e6d616c6576696368372e746f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48680
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48679
 
@@ -154,33 +181,6 @@ Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 Server: login.klyuch1k.org
 Port: 443
 Secret: ee13c922a6f02dc3ecdf8ea79cff5ab7696c6f67696e2e6b6c79756368316b2e6f7267
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48660
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 6775
-Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48659
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.savelyev.click
-Port: 443
-Secret: eefcacf4447d2bd244c9c0a8c8b0f4f1a563646e2e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48658
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: zentyo.co.uk.
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 

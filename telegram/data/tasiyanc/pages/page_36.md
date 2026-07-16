@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/04/25 20:27
+📅 آخرین بروزرسانی: 1405/04/25 21:37
 
 ---
+
+## tasiyanc — post 6821
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+
+اگر توافق نشود؛ ما گزینه نهایی را در اختیار داریم؛ گزینه‌ای که امیدواریم هرگز دوباره مجبور به استفاده از آن نشویم
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6820
 
@@ -220,13 +229,5 @@ Vahid online
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩 @Tasiyanc ✅ | تاسیان
-</div>
-
-## tasiyanc — post 6790
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩
-
-@Tasiyanc ✅ | تاسیان
 </div>
 

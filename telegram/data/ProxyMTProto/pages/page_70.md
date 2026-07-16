@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/04/25 20:25
+📅 آخرین بروزرسانی: 1405/04/25 21:35
 
 ---
+
+## ProxyMTProto — post 47780
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tuesday.nolags.pw
+Port: 443
+Secret: dd3e7613f9676439cd5f056828ef716da6
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 50.114.102.134
+Port: 443
+Secret: dd723f44bd19ff50a431878c6b2d0b46a0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: eboybey.flowaccess.site
+Port: 8443
+Secret: ee1a3341522f265448a11cbb608f42166f65626f796265792e666c6f776163636573732e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47777
 
@@ -159,33 +186,6 @@ Secret: ee77eea55483cdb42d81ab76a5ceddc28d64726976652e676f6f676c652e636f6d
 Server: 150.241.75.150
 Port: 443
 Secret: ee636c6f7564666c6172652e636f6dcb
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47760
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 31.76.251.25
-Port: 853
-Secret: ee6aa9eb2bd47d97b43be8ac203cfd3c0e6d742e616b656e61692e636c69636b,
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47759
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47758
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: usa.nolags.pw
-Port: 443
-Secret: dd1a0658ae4bb081c4270cd674e7b5ef5b
 @ProxyMTProto
 </div>
 

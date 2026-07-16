@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/25 20:25
+📅 آخرین بروزرسانی: 1405/04/25 21:35
 
 ---
+
+## ProxyMTProto — post 48942
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48941
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp.nowabst.net
+Port: 853
+Secret: 7oLOH4SvQDPMfnsCEGm-PVthZHMueDUucnU
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48940
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48939
 
@@ -154,33 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: Unknown
 Port: 443
 Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48922
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48921
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad3.arixo.shop
-Port: 443
-Secret: ee722fba8d97b9027b5fc4deb041b290cb6164332e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 

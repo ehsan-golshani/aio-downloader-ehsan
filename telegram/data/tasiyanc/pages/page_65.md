@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/04/25 20:27
+📅 آخرین بروزرسانی: 1405/04/25 21:37
 
 ---
+
+## tasiyanc — post 6002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده 🚀
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6001
 
@@ -176,11 +187,5 @@ Create openvpn
 پورت روی 443 یا 80 بزارید
 کشورهای اروپایی بهتر جواب میدن .
 @Tasiyanc
-</div>
-
-## tasiyanc — post 5971
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور های vip بعدی با متد جدید ساعت ۴ در حال تستشم جواب بده میزارم
 </div>
 

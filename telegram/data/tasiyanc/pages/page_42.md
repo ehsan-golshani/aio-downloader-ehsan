@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/04/25 20:27
+📅 آخرین بروزرسانی: 1405/04/25 21:37
 
 ---
+
+## tasiyanc — post 6634
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+غربالگری چنل ، انگل زدایی چنل ✅
+</div>
 
 ## tasiyanc — post 6632
 
@@ -164,11 +170,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ سیریک و قشم مورد حمله قرار گرفت
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6576
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز ب عشق خودتون ، قطعی باشه نباشه پیش همیم🩷🤝
 </div>
 
