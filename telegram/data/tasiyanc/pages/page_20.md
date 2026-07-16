@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/04/25 15:00
+📅 آخرین بروزرسانی: 1405/04/25 18:56
 
 ---
+
+## tasiyanc — post 7399
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST ⚡⚡🔥.npvt
+</div>
 
 ## tasiyanc — post 7393
 
@@ -258,16 +264,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned a photo
-</div>
-
-## tasiyanc — post 7345
-
-<div align="center"><img src="files/post_7345_tasiyanc_7345.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت تست (اسکن) سرورها از آدرس Gstatic استفاده کنید ، برید تنظیمات ( تو شات نشون دادم) نپستر و ویتوری لینک زیر رو پست کنید بعدش اسکن و تست بگیرید
-https://www.gstatic.com/generate_204
-
-@Tasiyanc
 </div>
 

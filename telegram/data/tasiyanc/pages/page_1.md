@@ -1,12 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/25 15:00
+📅 آخرین بروزرسانی: 1405/04/25 18:56
 
 ---
 
-## tasiyanc — post 8148
+## tasiyanc — post 8150
 
-<div align="center"><a href="files/post_8148_Full SPEED 🔥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Full SPEED 🔥.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زندگی در میان گروهی نادان دشوار است ، اما زندگی در جایی که قدرت در دست همان نادان ها باشد ، هولناك است
+آلبر کامو
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8148
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت 🔐
@@ -211,11 +218,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اهواز عزیز طاقت بیار ...
-</div>
-
-## tasiyanc — post 8116
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اهواز زیر دود بمباران 💔
 </div>
 

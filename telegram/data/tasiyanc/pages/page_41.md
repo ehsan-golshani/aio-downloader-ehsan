@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/04/25 15:00
+📅 آخرین بروزرسانی: 1405/04/25 18:56
 
 ---
+
+## tasiyanc — post 6659
+
+<div align="center"><video src="files/post_6659_tasiyanc_6659.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6659_tasiyanc_6659.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢معرفی اپ کاربردی برای فوتبالیا
+
+🔴برای اطلاع از زمان دقیق بازیها - جزئیات و ترکیب تیمها در جام جهانی کافیه این اپ جهانی رو نصب کنین و FIFA world cup رو فالو کنین
+
+Fotmob Android 
+🕹
+
+Fotmob iOS 
+📱
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6658
 
@@ -202,12 +223,6 @@ vless://931729a8-3c20-4841-89a1-f18dc9ce0a6f@cdn7-09.vk-cdnvideo.com:8443?securi
 </div>
 
 ## tasiyanc — post 6632
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Homayoun Shajarian & Sohrab Pournazeri – Irane Man
-</div>
-
-## tasiyanc — post 6630
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Homayoun Shajarian & Sohrab Pournazeri – Irane Man

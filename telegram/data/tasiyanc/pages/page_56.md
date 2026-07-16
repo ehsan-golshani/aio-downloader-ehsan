@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/04/25 15:00
+📅 آخرین بروزرسانی: 1405/04/25 18:56
 
 ---
+
+## tasiyanc — post 6231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد CM  👑
+
+دانلود  Wg tunnel 🕹
+
+آموزش
+⏩
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6230
 
@@ -180,11 +193,5 @@ https://t.me/TasiyanProxy
 دانلود  Wg tunnel 🕹
 آموزش⏩
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یعنی هر بار باید بگم ؟؟؟؟؟؟؟؟؟
 </div>
 

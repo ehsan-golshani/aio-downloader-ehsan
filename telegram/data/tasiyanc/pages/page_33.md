@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/04/25 15:00
+📅 آخرین بروزرسانی: 1405/04/25 18:56
 
 ---
+
+## tasiyanc — post 6921
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑ساب لینک اختصاصی تاسیان
+👑
+
+https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+اینو بزنید 🔐
+🔐 هر ۴ ساعت کانفیگا آپدیت میشن
+بعد از ۴ ساعت update subscription بزنید تا آپدیت شن
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6920
 
@@ -202,13 +216,5 @@ T.me/Tasiyanc ✅
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6879
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpvWklvQTY5UTh5aGNRVjhrYTNQYTNB@82.38.31.11:8080#%40Tasiyanc%20%E2%9B%93%EF%B8%8F
-@Tasiyanc ✅
 </div>
 

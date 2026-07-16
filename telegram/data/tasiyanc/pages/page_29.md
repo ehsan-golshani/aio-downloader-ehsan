@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/25 15:00
+📅 آخرین بروزرسانی: 1405/04/25 18:56
 
 ---
+
+## tasiyanc — post 7063
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+2 سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+Password ': @Tasiyanc
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7061
 
@@ -187,25 +205,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این ها پخت پز نیست چیه؟
-</div>
-
-## tasiyanc — post 7016
-
-<div align="center"><video src="files/post_7016_tasiyanc_7016.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7016_tasiyanc_7016.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  Ovpn سرور 🇸🇰📶
-
-تست شده تمام نتها 🚀
-
-دانلود OpenVpn  
-🕹
-
-آموزش اتصال
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 
