@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/27 01:45
+📅 آخرین بروزرسانی: 1405/04/27 02:48
 
 ---
+
+## tasiyanc — post 8321
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طرف کلا نمیدونه دیتاسنتر چیه هی تو چنلش میزنه در حال قطع شدن
+</div>
+
+## tasiyanc — post 8320
+
+<div align="center"><a href="files/post_8320_@Tasiyanc 🕸️ Vip.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🕸️ Vip.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+6سرور سرعتی پرمیوم متد جدید ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8316
 
@@ -148,22 +180,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴سپاه خورموج و اهواز مورد هدف موشکی.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨 انفجار در اهواز
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8295
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 هم اکنون آمریکا به بندرعباس،قشم،بوشهر و سیریک حمله کرد و صدای چندین انفجار تو این مناطق شنیده شد.
 
 @Tasiyanc✅
 </div>
