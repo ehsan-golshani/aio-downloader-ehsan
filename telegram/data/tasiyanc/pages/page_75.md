@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/04/26 14:44
+📅 آخرین بروزرسانی: 1405/04/26 19:35
 
 ---
+
+## tasiyanc — post 5851
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دمت گرم داش
+</div>
+
+## tasiyanc — post 5850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایول کارت حرف نداره تاسیان عشقی
+</div>
+
+## tasiyanc — post 5849
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دمتون گرم ، هر کانفیگی گذاشتین وصل شد ، دمتون گرم ، تنها کانالی که پر تلاش برای مردم است ، با تشکر از چنل عالی و خوب تاسیان مرسی
+</div>
+
+## tasiyanc — post 5848
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مثل بعضیا دوس ندارم تعریف کنم ولی خب وقتی دو سه نفر کونشور بیاد بگه وصل نیست مجبورم چند تا پیام از لطف عزیزانم رو بهشون بفرستم ❤️‍🔥
+</div>
+
+## tasiyanc — post 5847
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عالیه
+</div>
 
 ## tasiyanc — post 5846
 
@@ -162,61 +192,6 @@ Premium Fast servers 🔥🌱.npvt
 🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
 
 دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5810
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موشك داره میاد
-</div>
-
-## tasiyanc — post 5809
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-GM TASIYAN 💝
-</div>
-
-## tasiyanc — post 5808
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور سرعتی  اختصاصی تاسیان  📱
-
-✅ تست شده روی همه اپراتورا ✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5807
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر بار باید بگیم ری اکشن بزنید 😂
-</div>
-
-## tasiyanc — post 5805
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  ۲ سرور آلمان سرعتی  اختصاصی تاسیان  
-📱
-
-
-✅ تست شده روی همه اپراتورا 
-✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود NPV tunnel  🌐
 
 نحوه اتصال به سرورها ⏩
 
