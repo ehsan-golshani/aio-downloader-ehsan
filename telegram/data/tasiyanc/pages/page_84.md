@@ -1,8 +1,116 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/04/26 23:26
+📅 آخرین بروزرسانی: 1405/04/27 00:41
 
 ---
+
+## tasiyanc — post 5667
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان 📱
+
+⛈سرور سرور تست شده همراه بقیه اپراتورا تست کنن⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5666
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 🇸🇦
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈3 سرور وی ای پی تست شده وای‌فای ⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5665
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 V2RayNG wifi
+
+vless://d37a75db-76b6-4db8-b213-0d5b044d138d@172.64.152.100:443?path=%2F&security=tls&encryption=none&insecure=0&host=hio-awx.pages.dev&type=ws&allowInsecure=0&sni=hio-awx.pages.dev#%40Tasiyanc%20%F0%9F%87%BA%F0%9F%87%B8
+
+﻿@Tasiyanc ☑
+</div>
+
+## tasiyanc — post 5664
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+WİFİ موشک.npvt
+</div>
+
+## tasiyanc — post 5663
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گوشه ای از محبت مردم عزیز وطنم ❤️ همه رو نمیشه بزارم ، سپاس از همتون
+</div>
+
+## tasiyanc — post 5662
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود به دوستان گلم
+خسته نباشید میگم بهتون
+جا داره ازتون تشکر کنم بابت زحمات زیادی که کشیدید من به شخصه یادم میمونه که تو چه شرایطی پشت مردمتون بودید
+دم معرفتتون گرم
+امیدوارم بتونیم جبران کنیم 💙💙
+</div>
+
+## tasiyanc — post 5646
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️ پیرو اخبار بازگشت اینترنت بین المللی: درز های خیلی زیادی باز شده و یه کانفیگ نپستر درست شده که کار میکنه! دریافت کانفیگ نپسترنت مخصوص ( رایگان )
+</div>
+
+## tasiyanc — post 5645
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️ پیرو اخبار بازگشت اینترنت بین المللی:
+
+درز های خیلی زیادی باز شده و یه کانفیگ نپستر درست شده که کار میکنه!
+
+دریافت کانفیگ نپسترنت مخصوص ( رایگان )
+</div>
+
+## tasiyanc — post 5644
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعداد پیام دایرکت - گروه زیاده از همه شما عزیزان ، بزرگ کوچك ، زن مرد که کنار هم در روزهای سخت ایستادید سپاسگذارم و بابت پیام‌های خوبتون ممنون شما هستم ❤️‍🔥 امید است تیم تاسیان همواره کنار شما باشد تا شما عزیزان راضی باشید 🌹
+</div>
+
+## tasiyanc — post 5643
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امیدوارم نت اگه باز شد یادتون باشه کی پیش کی موند تا لحظه آخر ❤️🫂 و کنارمون باشید تا با قدرت ادامه بدیم ❤️‍🔥
+
+همه باهم ، برای هم 🤝
+کوچیک شما مالک چنل نوید 💙
+</div>
+
+## tasiyanc — post 5642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5641
+
+<div align="center"><img src="files/post_5641_tasiyanc_5641.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📈 Confirmed: Live metrics show a partial restoration to internet connectivity in #Iran on day 88, after 2093 hours of near-total isolation from international networks, the longest nationwide internet shutdown in modern history. It is unclear if the restoration will be sustained.
+</div>
 
 ## tasiyanc — post 5640
 
@@ -94,107 +202,5 @@
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5631
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمام سرورا با همراه اول & وای‌فای تست میشن
-</div>
-
-## tasiyanc — post 5629
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈۲سرور تست شده همه اپراتورا⛈
-
-برای اتصال پایدار صبور باشید🚀
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5628
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرورای وای‌فای ک بالا گذاشتم هنوز وصله✅
-</div>
-
-## tasiyanc — post 5627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی
-</div>
-
-## tasiyanc — post 5626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کی از همه قشنگتره؟ کامنتارو 🗿
-</div>
-
-## tasiyanc — post 5625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈1 سرور تست شده wifi⛈
-
-برای اتصال پایدار صبور باشید🚀
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5613
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈سرور تست شده wifi⛈
-
-برای اتصال پایدار صبور باشید🚀
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5612
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گوگل پلی برا بعضیا باز شده و اکثرا باز نشده ( طبق گزارش ممبرهای عزیزمون)
-</div>
-
-## tasiyanc — post 5611
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ گوگل پلی رفع فیلتر شد
-</div>
-
-## tasiyanc — post 5610
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ وزیر ارتباطات:
-با دستور رئیس‌جمهوری و پس از برگزاری ۳ جلسه فشرده کارشناسی، فرایند بازگرداندن اینترنت کشور به وضعیت قبل از دی‌ماه ۱۴۰۴ آغاز شده است.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5609
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوری 🚨
-صفحه خرید و درخواست اینترنت پرو از سایت همراه اول حذف شد
-
-و همچنین جی‌میل در دسترس قرار گرفت
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دارن وصل میکنن؟
 </div>
 

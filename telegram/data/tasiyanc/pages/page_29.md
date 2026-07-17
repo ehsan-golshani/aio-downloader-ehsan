@@ -1,8 +1,127 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/26 23:26
+📅 آخرین بروزرسانی: 1405/04/27 00:41
 
 ---
+
+## tasiyanc — post 7277
+
+## tasiyanc — post 7276
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 22 June ، روز جهانی بوسیدنه 💋
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7271
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال
+
+🤩🤩🤩
+🤩🤩🤩
+🤩🤩🤩
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7269
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ربات کاربردی اختصاصی چنلمون بدون عضویت اجباری
+
+دانلودر اینستاگرام ، ایکس(توئیتر) ، تیک تاک
+( + دانلود جداگانه موزیک ریلز ها)
+📹💬💬
+
+@TasiyanAploadBot
+</div>
+
+## tasiyanc — post 7268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز کردیم ریکشن نمیزنین
+</div>
+
+## tasiyanc — post 7266
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
+
+برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
+
+دانلود Dark Tunnel  🕹
+
+آموزش اتصال به سرور دارک ⏩
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7261
+
+<div align="center"><video src="files/post_7261_tasiyanc_7261.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7261_tasiyanc_7261.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV
+
+2سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7260
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی هجومی تیم ملی با مساوی به پایان رسید
+</div>
+
+## tasiyanc — post 7259
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخرااااااااج بازیکن بلژیک 🔹
+</div>
+
+## tasiyanc — post 7257
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشمای بلژیک ریخته ۱۱ نفری دفاع میکنن
+</div>
+
+## tasiyanc — post 7256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه بجای طارمی سهراب سپهری بود با اختلاف گل میشد 😂
+</div>
+
+## tasiyanc — post 7255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجاست ک میگن بلژیک از کون ( طارمی) اورد 🤣
+</div>
 
 ## tasiyanc — post 7254
 
@@ -82,177 +201,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐
-</div>
-
-## tasiyanc — post 7238
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توییت های ترامپ پوشش ندیم بهتره سیاست مدارا زیاد دروغ میگن قبول داریم ولی جایگاه دیپلماتیک فرق می‌کنه چون ایشون انقد موضع خودشو عوض کرد و دروغ گفت   علاوه بر اینکه پیش مردم ایران حرفاش اعتباری نداره بلکه در میان حکومت و سیاستمداران دنیا هم دیگه گردنش نمیگیرن و هیچ یک از حرفاش برای احدی مهم نیست جز قیمت بازار نفت که منبع درآمد خوبی براش شده با بالا پایین کردنش .
-پی‌نوشت : همین تنگه هرمز ک الان سرش دعواست قبل جنگ تا خرخره باز بود
-</div>
-
-## tasiyanc — post 7237
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ های اخیر که گذاشتم همشون وصله
-( دارک - نپستر - ویندسکرایب) حمایت یادتون نره ❤️
-</div>
-
-## tasiyanc — post 7235
-
-<div align="center"><video src="files/post_7235_tasiyanc_7235.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7235_tasiyanc_7235.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایر Windscribe 🔐
-
-🟢حجم و کاربر نامحدود 🟢
-
-تمام اپراتورا 
-🔺
-
-مناسب گیم 🎲 دانلود
-⬇️ وب‌گردی🔍 جمینای
-
-دانلود ویندسکرایب : Android 
-📱  iOS 
-🕹
-
-آموزش اتصال به سرور ⏩
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐
-</div>
-
-## tasiyanc — post 7231
-
-<div align="center"><video src="files/post_7231_tasiyanc_7231.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7231_tasiyanc_7231.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV
-
-2سرور سرعتی متد جدید
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود
-⬇️ وب‌گردی🔍 جمینای 🤖
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7229
-
-<div align="center"><video src="files/post_7229_tasiyanc_7229.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7229_tasiyanc_7229.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 🌟
-
-برای گیم 🎲 دانلود
-⬇️ وب‌گردی🔍 جمینای 🤖 
-
-حجم نامحدود - سرعتی 🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7228
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Wnd🍓 @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 7223
-
-<div align="center"><video src="files/post_7223_tasiyanc_7223.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7223_tasiyanc_7223.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایر Windscribe 
-🔐
-
-
-🟢حجم و کاربر نامحدود 
-🟢
-
-تمام اپراتورا 
-🔺
-
-مناسب گیم 
-🎲 دانلود
-⬇️ وب‌گردی
-🔍 جمینای
-
-دانلود ویندسکرایب : Android 
-📱  iOS 
-🕹
-
-آموزش اتصال به سرور 
-⏩
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7222
-
-<div align="center"><img src="files/post_7222_tasiyanc_7222.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ Windscribe 
-🔐 می‌خوام بزارم ، همونطوری ک میدونید بهترین کلاینت VPN حال حاضره از هر لحاظ ، دانلودش داشته باشید بریم تو کارش ، این کانفیگ ها مناسب گیم و وبگردی هستن
-</div>
-
-## tasiyanc — post 7221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جرمی دوکو ستاره بلژیک در آستانه بازی با ایران بخاطر زایمان همسرش از اردوی بلژیک جدا شد
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
-</div>
-
-## tasiyanc — post 7219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk
-کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
 </div>
 

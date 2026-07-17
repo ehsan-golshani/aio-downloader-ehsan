@@ -1,8 +1,116 @@
 # آرشیو کانال tasiyanc - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/04/26 23:26
+📅 آخرین بروزرسانی: 1405/04/27 00:41
 
 ---
+
+## tasiyanc — post 5507
+
+<div align="center"><img src="files/post_5507_tasiyanc_5507.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅2server VyDns  ⭕️
+
+🌟اسلیپ نت باز کنین ، قسمت import profile بزنید گزینه Qr code  اسکن کنید کانفیگ ها اد شن وصل بشید
+لینک داخلی آخرین نسخه اسلیپ نت👈
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5506
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش نداریم فعلا پول نزنید باز شه اطلاع میدم
+</div>
+
+## tasiyanc — post 5503
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+gül bana dünyalar benim olsun
+</div>
+
+## tasiyanc — post 5502
+
+<div align="center"><img src="files/post_5502_tasiyanc_5502.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+WiFi 🥝.npvt
+</div>
+
+## tasiyanc — post 5501
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده وای‌فای 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5500
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌐TARKIB 📶
+trojan://humanity@2.144.4.208:40443?security=tls&type=ws&host=www.creationlong.org&path=%2Fassignment&sni=www.creationlong.org&allowInsecure=1#%40Tasiyanc
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5498
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کدوم بزاریم ؟
+NPV ❤️
+
+Psiphon v2Ray 🔥
+</div>
+
+## tasiyanc — post 5497
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده وای‌فای 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5496
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Password @Tasiyanc
+
+📶اختصاصی تاسیان 2 سرور تست شده 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5495
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5494
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانلودی چیزی داری بزنید
+</div>
 
 ## tasiyanc — post 5493
 

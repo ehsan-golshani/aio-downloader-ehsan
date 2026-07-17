@@ -1,8 +1,170 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/04/26 23:26
+📅 آخرین بروزرسانی: 1405/04/27 00:41
 
 ---
+
+## tasiyanc — post 7392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ هم اکنون حملات آمریکا به سیریک
+</div>
+
+## tasiyanc — post 7391
+
+<div align="center"><video src="files/post_7391_tasiyanc_7391.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7391_tasiyanc_7391.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود سرور 
+🇮🇹
+
+۳ سرور سرعتی 
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+⛓
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+ 
+💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7390
+
+<div align="center"><video src="files/post_7390_tasiyanc_7390.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7390_tasiyanc_7390.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود مولتی SV
+
+4سرور سرعتی 
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+⛓
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+ 
+💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7389
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ نت مود 
+📱
+
+سرور سرعتی مناسب وب‌گردی و ..⚡
+
+آموزش اتصال 
+⛓
+@Tasiyanc 
+💠
+</div>
+
+## tasiyanc — post 7381
+
+## tasiyanc — post 7379
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀🍓@tasiyanc.conf
+</div>
+
+## tasiyanc — post 7378
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد نامحدود مخصوص گیم،وب‌گردی 👑
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7377
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود سرور 🇩🇪
+
+4سرور سرعتی ⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc | تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل عوض شد
+مرسی از آرمان موسس بانک خاورمیانه
+</div>
+
+## tasiyanc — post 7357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ نپسترنت 
+🔐
+
+۴ سرور نامحدود سرعتی ⚡️
+
+آموزش اتصال 💘
+</div>
+
+## tasiyanc — post 7356
+
+<div align="center"><img src="files/post_7356_tasiyanc_7356.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ Summer Vip.npvt
+</div>
+
+## tasiyanc — post 7355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆پخش زنده مسابقات جام جهانی 2026
+
+https://roxiestreams.su/soccer
+
+https://streamcorner.fyi/fifa-world-cup
+
+https://totalsportek.tips/football
+
+https://www.bintv.net
+
+https://soccerstreams.sbs
+
+https://strumyk.net
+سایت هایی که باز نمیشه رو باید با وی پی ان باز کنید
+💘@Tasiyanc | تاسیان
+</div>
 
 ## tasiyanc — post 7352
 
@@ -97,166 +259,5 @@ https://www.gstatic.com/generate_204
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ساعت 18.30 والیبال 😐
 ایران Vs آمریکا 🦦
-</div>
-
-## tasiyanc — post 7341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩
-</div>
-
-## tasiyanc — post 7340
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت
-
-۲سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 💘
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امید نخی‌است نازک اما محکم، که ما را از دلِ تاریکی به صبح می‌کشاند. وقتی همه‌چیز خاموش است، او آرام می‌گوید: ادامه بده، نور نزدیک است.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 7337
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-trojan://aR9EJWEB2Jp3m6xKJK%3DCt7kLyqFSU-iDBR@92.119.35.127:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%E2%9C%85%20%40Tasiyanc
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%F0%9F%92%AF%40Tasiyanc
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7336
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت
-
-4سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 💘
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7334
-
-<div align="center"><video src="files/post_7334_tasiyanc_7334.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7334_tasiyanc_7334.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت
-
-3سرور سرعتی ⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 💘
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۰٪ کانفیگای وایرگارد اندپوینتا اختلال دارن ، تا زمانیکه اندپوینت مناسب پیدا کنم تا اتصالتون پایدار باشه نمیزاریم
-</div>
-
-## tasiyanc — post 7332
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند فکت تاریخی :
-
-💘.سال 1352 ایران بعنوان ازادترین کشورجهان انتخاب شد
-
-💘.سال 1356 ایران قوی ترین نیروی هوایی آسیا و سوم دنیا بود
-
-💘.سال 1355 تهران سومین پایتخت پاکیزه جهان شد
-
-💘.سالی که ورزشگاه آزادی ساخته شد تو کشورهای عربی حتی توپ فوتبال هم نبود
-
-💘.ایران در سال 1352 تنها کشور اسیا بود که در تمام دنیا پاسپورتش نیاز به ویزا نداشت
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو تا کانفیگ نپستر بالا وصلن بدون اینکه پینگ بگیرید وصل شید
-</div>
-
-## tasiyanc — post 7325
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ دارک تانل 🇮🇹 Milan📍
-
-
-برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
-
-
-دانلود Dark Tunnel  🕹
-
-
-آموزش اتصال به سرور دارک ⏩
-
-
-✅@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود NPV لوکیشن Nuremberg 🇩🇪
-
-4سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- ✅@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7322
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن 🇩🇪
-
-3سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- ✅@Tasiyanc | تاسیان
 </div>
 
