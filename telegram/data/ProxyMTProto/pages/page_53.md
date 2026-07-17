@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/04/26 22:11
+📅 آخرین بروزرسانی: 1405/04/26 23:24
 
 ---
+
+## ProxyMTProto — post 48155
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 167.233.54.153
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48154
 
@@ -172,15 +181,6 @@ Secret: 870cd7d91c727fc7d9687a8fedd8c23d
 Server: fresh.t-proxy.info.
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48135
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Geng.etherealvpn.uk
-Port: 443
-Secret: eefd6c10517940b3ad79ce5e3d40c9972e617669746f2e7275
 @ProxyMTProto
 </div>
 
