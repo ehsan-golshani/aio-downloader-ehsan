@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/04/26 03:16
+📅 آخرین بروزرسانی: 1405/04/26 08:05
 
 ---
+
+## tasiyanc — post 5880
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+10سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+تست کنین بگین
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 5878
 
@@ -165,17 +190,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خدایی دمتون گرم هرچی بگم کم گفتم همیشه قوی پر سرعت پایدار مرسی بابت زحماتتون
-</div>
-
-## tasiyanc — post 5854
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بهرحال ما ک قطعیم
-</div>
-
-## tasiyanc — post 5853
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مثل برخی چنلا باید روزی ۲۰۰ پیام واسه سرور رایگان رضایت بفرستیم؟
 </div>
 

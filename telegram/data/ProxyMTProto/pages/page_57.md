@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/04/26 00:07
+📅 آخرین بروزرسانی: 1405/04/26 08:03
 
 ---
+
+## ProxyMTProto — post 48046
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: apex.proxyux.site
+Port: 443
+Secret: ee1e16392ec634c2ebce9387a9edcf24e3617065782e70726f787975782e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48045
 
@@ -175,15 +184,6 @@ Secret: ee939c94e58cb9ac7dec74ae86d8461089666c75782e70726f7879746f702e7370616365
 Server: Unknown
 Port: 25566
 Secret: FgMBAgABAAH8AxOG4kw63Q
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48026
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 51.250.82.201
-Port: 443
-Secret: eeb290d308106db4562c44aa36686c2c7c617669746f2e7275
 @ProxyMTProto
 </div>
 

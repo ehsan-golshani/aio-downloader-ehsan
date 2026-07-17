@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/04/26 03:16
+📅 آخرین بروزرسانی: 1405/04/26 08:05
 
 ---
+
+## tasiyanc — post 7944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آخرین باری که دانش اموزا همه باهم دینی میخوندن یه نفر رو خرس خورد😹😹😹
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7942
 
@@ -220,17 +252,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7916
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عکس مربوط به انفجار دزفول فیکه.
-</div>
-
-## tasiyanc — post 7915
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🦅⚡️ WAR.npvt
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/04/26 03:16
+📅 آخرین بروزرسانی: 1405/04/26 08:05
 
 ---
+
+## tasiyanc — post 7284
+
+## tasiyanc — post 7283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪⚡ Fast 🚀.npvt
+</div>
 
 ## tasiyanc — post 7280
 
@@ -177,17 +185,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گل ایران رف وار آفساید شد
-</div>
-
-## tasiyanc — post 7251
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاهد حضور جوان و پدیده نو ظهور فوتبال احسان حاج صفی در ترکیب هستیم
-</div>
-
-## tasiyanc — post 7250
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی چند چند میشه؟
 </div>
 

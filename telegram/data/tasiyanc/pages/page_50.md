@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/04/26 03:16
+📅 آخرین بروزرسانی: 1405/04/26 08:05
 
 ---
+
+## tasiyanc — post 6465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقت الکی نزارید قربونتون برم من
+</div>
+
+## tasiyanc — post 6464
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رباتی ک تون الکی میده اسکمه پرداختی نداره
+</div>
 
 ## tasiyanc — post 6460
 
@@ -204,18 +216,5 @@ new@Tasiyanc.ovpn
 
 دریافت کانفینگ رایگان
 دریافت کانفینگ رایگان
-</div>
-
-## tasiyanc — post 6434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡🪐 متد جدید.npvt
-</div>
-
-## tasiyanc — post 6433
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار و پروکسی ⚡️🚀
-https://t.me/TasiyanProxy
 </div>
 
