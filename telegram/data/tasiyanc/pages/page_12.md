@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/26 19:35
+📅 آخرین بروزرسانی: 1405/04/26 20:56
 
 ---
+
+## tasiyanc — post 7876
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حس میکنم نه دیگه ما می‌دونیم چی میشه، نه جمهوری اسلامی نه ترامپ. سرنوشت‌مون رو دادن دست کارگردان سریال فرام.
+@Tasiyanc 
+⭐️
+#Navid
+</div>
+
+## tasiyanc — post 7874
+
+<div align="center"><img src="files/post_7874_tasiyanc_7874.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاملگی مامان باب اسفنجیو دیده بودین :)))))؟
+
+
+@Tasiyanc 
+😌
+#Tina
+</div>
 
 ## tasiyanc — post 7868
 
@@ -311,21 +333,5 @@
 
 اتصال امن برای همه 🇮🇷
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7822
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار و پروکسی های پرسرعتمون 👇
-https://t.me/+v0wRP5SGNrg5MThk
-
-دریافت کانفیگ مخصوص اینترنت ملی 👆
-</div>
-
-## tasiyanc — post 7821
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریافت کانفیگ نت ملی در صورت قطعی 👉
-ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
 </div>
 
