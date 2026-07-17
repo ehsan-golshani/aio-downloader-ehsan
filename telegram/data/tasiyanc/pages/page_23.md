@@ -1,8 +1,88 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/26 20:56
+📅 آخرین بروزرسانی: 1405/04/26 22:13
 
 ---
+
+## tasiyanc — post 7446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ۳ انفجار در قشم
+</div>
+
+## tasiyanc — post 7445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ۴ انفجار شدید در سیریك
+</div>
+
+## tasiyanc — post 7444
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ آغاز حملات ایالات متحده به ایران
+</div>
+
+## tasiyanc — post 7443
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام عزیزان یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7442
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام عزیزان
+یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7441
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود 🇬🇧
+
+4 سرور سرعتی ⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+🔑Password :  @Tasiyanc
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7440
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل عوض شد --- ❤️
+</div>
+
+## tasiyanc — post 7438
+
+<div align="center"><img src="files/post_7438_tasiyanc_7438.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای خرید بازی GTA VI در‌ هر کشور چند روز باید کار کنی ؟
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7435
+
+<div align="center"><img src="files/post_7435_tasiyanc_7435.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برنامه بازی های امروز جام جهانی 🏆
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تفاهم هم رو هواس الان ، امشب احتمال داره شاهد تحرکات جدید از هر دو طرف باشیم
+</div>
 
 ## tasiyanc — post 7433
 
@@ -117,69 +197,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صلاح تعویض شد 😐
-</div>
-
-## tasiyanc — post 7417
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned «ساب لینک اختصاصی نامحدود 🚀 🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt 130 کانفیگ پروتکل Trojan سرعتی ( هر دوازده ساعت آپدیت خواهد شد ) آموزش ویدیویی اضافه کردن ساب 💘 @Tasiyanc 💠 | اتصال امن»
-</div>
-
-## tasiyanc — post 7416
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدایی گل خوبی زد رامین
-</div>
-
-## tasiyanc — post 7415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللللللللللللل رامین
-</div>
-
-## tasiyanc — post 7414
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پنالتی رو خراب می‌کنه طارمی
-</div>
-
-## tasiyanc — post 7413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پنالتیییی ایران
-</div>
-
-## tasiyanc — post 7412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللللللللللللللللل مصرررررر 🇪🇬
-</div>
-
-## tasiyanc — post 7411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیدارید؟
-</div>
-
-## tasiyanc — post 7409
-
-<div align="center"><img src="files/post_7409_tasiyanc_7409.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هوادارای حاضر در استادیوم با پرچم های رنگارنگ
-@Tasiyanc
-</div>
-
-## tasiyanc — post 7405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/TasiyanProxy/1840
-نتیجه بازی رو پیش بینی دقیق کنید کانفیگ بگیرید ، باید عضو چنل پروکسی باشید تا جایزه رو بگیرید
-</div>
-
-## tasiyanc — post 7403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه وضع ریکشن به این پخت پز😐😐😐
 </div>
 

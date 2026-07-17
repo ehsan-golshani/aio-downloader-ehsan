@@ -1,8 +1,112 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/04/26 20:56
+📅 آخرین بروزرسانی: 1405/04/26 22:13
 
 ---
+
+## tasiyanc — post 7976
+
+<div align="center"><img src="files/post_7976_tasiyanc_7976.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺فروش ویژه پکیج نامحدود ، بدون محدودیت کاربر ، جهت ثبت سفارش پیام بدید
+
+
+👉@StarTasiyan 
+⭐️
+</div>
+
+## tasiyanc — post 7968
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+سه سرور سرعتی‌ تست شده💥
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال ⛓
+
+مناسب دانلود ⬇️ وب‌گردی 🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7967
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 بیانیه صفحه رسمی لیندسی گراهام: او بر اثر یه بیماری ناگهانی و کوتاه مدت درگذشت! تسلیت میگیم به خونوادش. @Tasiyanproxy ✅
+</div>
+
+## tasiyanc — post 7966
+
+<div align="center"><img src="files/post_7966_tasiyanc_7966.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤 در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره…
+</div>
+
+## tasiyanc — post 7965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤
+
+در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره بسیار سخت را دارند.
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 7960
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️🇺🇸 هگست وزیر جنگ آمریکا: ایران انتخاب نادرستی انجام داد. اکنون باید عواقب آن را بپردازد. @TasiyanProxy ⭐️
+</div>
+
+## tasiyanc — post 7959
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Speed Fast ⚡ 🇩🇪.npvt
+</div>
+
+## tasiyanc — post 7958
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزیر جنگ اسرائیل 🇮🇱: 🔻من و نتانیاهو دستور آماده شدن ارتش برای حملات مستقل به ایران را صادر کردیم @TasiyanProxy ⭐️
+</div>
+
+## tasiyanc — post 7946
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ حمله سپاه به یک کشتی غول پیکر در تنگه ، در جواب به ترامپ ک‌گفته بود باید تا آخر امشب ایران تنگه رو باز کنه کامل
+</div>
+
+## tasiyanc — post 7944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7943
 
@@ -117,122 +221,5 @@ Change the background behind those two people with white curtains. With hugging 
 10. www.iranestekhdam.ir
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7931
-
-<div align="center"><img src="files/post_7931_tasiyanc_7931.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو کدومی؟خودم 15
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7930
-
-<div align="center"><img src="files/post_7930_tasiyanc_7930.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سایت کاربردی بهتون معرفی کنم:
-
-اگر یه خونه خالی یا حتی یه اتاق خالی دارید
-و نمیدونی چجوری دیزاینش کنید
-وارد این وبسایت خارجی بشید:
-home.by.me
-یه فضایی در اختیارتون میذاره که تصور می‌کنید
-الان وارد نرم‌افزارهای تخصصی دیزاین شدید.
-
-اول از همه ابعاد اتاق، دیوارهاش و به‌صورت کلی متراژ رو مشخص کنید، بعدش شروع کن به دیزاینش با محصولاتی که سایت در اختیارت می‌ذاره؛ مثل مبلمان، میز و
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7928
-
-<div align="center"><img src="files/post_7928_tasiyanc_7928.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام داداش به رفقا بگو استرس نکشن، دینی رو میشه تو یک ساعت
-جمع کرد😹
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد
-
-مناسب دانلود⬇️ &  گیم 🎮
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe ⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7924
-
-<div align="center"><img src="files/post_7924_tasiyanc_7924.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز روز جهانی کبابه😍
-
-بفرس برا رفیقت برات بخره☺️
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7922
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐 مشاهده فیلم 👉
-</div>
-
-## tasiyanc — post 7920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐
-
-مشاهده فیلم 👉
-</div>
-
-## tasiyanc — post 7919
-
-<div align="center"><img src="files/post_7919_tasiyanc_7919.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیستی از هوش مصنوعی‌های رایگان که اکثرا دوتای اول رو فقط میشناختید!
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7917
-
-<div align="center"><img src="files/post_7917_tasiyanc_7917.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت آوردم براتون که عکساتونو اینجوری خوشگل میکنه برای پست استوری ام خوبه
-
-
-Cinematic street photography, a person standing in a dense crowd of blurred pedestrians, looking up and to the side with a curious/wondering expression, shallow depth of field with crowd heavily out of focus (bokeh), moody overcast city atmosphere, muted cold color tones (blue-grey), soft diffused lighting, shot on 85mm lens, f
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7916
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عکس مربوط به انفجار دزفول فیکه.
 </div>
 
