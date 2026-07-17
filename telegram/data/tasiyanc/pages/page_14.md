@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/04/26 08:05
+📅 آخرین بروزرسانی: 1405/04/26 10:37
 
 ---
+
+## tasiyanc — post 7732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه پاس به رونالدو ندادید دیشب
+</div>
+
+## tasiyanc — post 7731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بورنو فرناندز ، ویتینیا ناموستون گاییدم
+</div>
 
 ## tasiyanc — post 7730
 
@@ -154,17 +166,5 @@ CR7 GOAT Forever 🇵🇹❤️‍🔥
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اسپانیا زد 💔
-</div>
-
-## tasiyanc — post 7701
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسطوره بچگی هامون امشب بازی حساسی داره و این آخرین جام جهانی Goat هست
-</div>
-
-## tasiyanc — post 7700
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لبیك یا رونالدو ، امیدوارم امشب خوشحال باشی ❤️ 7
 </div>
 

@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/04/26 08:05
+📅 آخرین بروزرسانی: 1405/04/26 10:37
 
 ---
+
+## tasiyanc — post 5639
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منو چقد دوس؟
+</div>
 
 ## tasiyanc — post 5637
 
@@ -176,27 +195,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc [02] WiFi ⚡ (1).npvt
-</div>
-
-## tasiyanc — post 5606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈سرور تست شده wifi⛈
-
-برای اتصال پایدار صبور باشید🚀
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5605
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حجم پیام زیاده
-
-قربون همتون عشقید ❤️‍🔥💋
 </div>
 

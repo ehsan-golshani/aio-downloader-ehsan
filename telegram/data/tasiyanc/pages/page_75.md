@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/04/26 08:05
+📅 آخرین بروزرسانی: 1405/04/26 10:37
 
 ---
+
+## tasiyanc — post 5815
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+″رمز @Tasiyanc ″
+
+📱 4 سرور  سرعتی  اختصاصی تاسیان  📱
+
+✅ تست شده روی همه اپراتورا ✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5814
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Premium Fast servers 🔥🌱.npvt
+</div>
 
 ## tasiyanc — post 5813
 
@@ -187,18 +212,5 @@ Fast ⚡.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️خبرگذاری فارس سه انفجار مهیب در بندرعباس را تایید کرد
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5793
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♨️ | آواکس‌های E-3G نیروی هوایی ایالات متحده از عربستان سعودی، P-8A Poseidon از اردن، تانکرهای سوخت از اسرائیل و جت‌های جنگنده بر فراز خلیج فارس فعال هستند
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5792
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♨️ فعال شدن پدافند در بندرعباس
 </div>
 
