@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/04/26 10:35
+📅 آخرین بروزرسانی: 1405/04/26 12:56
 
 ---
+
+## ProxyMTProto — post 48115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: node.prx.today
+Port: 443
+Secret: ee4fc23f27cad414e0ca758692e060323a6e6f64652e7072782e746f646179
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: static.prxtoday.store
+Port: 443
+Secret: ee3740849efd941157c45810d974fd66097374617469632e707278746f6461792e73746f7265
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48112
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: form.quickdl.info
+Port: 22
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48111
 
@@ -145,42 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e
 Server: assets.prx.today
 Port: 443
 Secret: ee595ef26a3a0072f97dadb2be7007dbac6173736574732e7072782e746f646179
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: milan.nolags.pw
-Port: 443
-Secret: ddc7540aa41b7e49710c19cb8a2a1426d3
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48094
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48093
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: comet.proxytelega.store
-Port: 443
-Secret: ee6ee3f38ac1fe7874f5eab381736e7eaa636f6d65742e70726f787974656c6567612e73746f7265
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48092
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: flux.proxytelega.store
-Port: 443
-Secret: eec57f379567b25a79cbd1fa0ad73b98d9666c75782e70726f787974656c6567612e73746f7265
 @ProxyMTProto
 </div>
 
