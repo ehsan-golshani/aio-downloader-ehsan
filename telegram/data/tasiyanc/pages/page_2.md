@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/04/27 23:25
+📅 آخرین بروزرسانی: 1405/04/28 00:36
 
 ---
+
+## tasiyanc — post 8343
+
+<div align="center"><img src="files/post_8343_tasiyanc_8343.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه خانواده بندرعباسی بچه‌شونو داخل یه تیکه کائوچو میذارن که کنار دریا بازی کنه
+حواس خانواده پرت میشه آب بچه رو میبره و نیروی دریایی ارتش این بچه رو لب مرز دریایی امارات پیدا میکنن و برمیگردونن🤣🤣
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8342
+
+<div align="center"><img src="files/post_8342_tasiyanc_8342.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معلم جلوی پروژکتور معلم کنار پروژکتور
+
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8341
+
+<div align="center"><img src="files/post_8341_tasiyanc_8341.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴10 فیلم معروفی که پایان‌بندی‌شون غافلگیرتون می‌کنه و پشماتون از دیدنشون میریزه:
+
+▪️The Sixth Sense 1999
+▫️Se7en 1995
+▪️Fight Club 1999
+▫️The Prestige 2006
+▪️Shutter Island 2010
+▫️The Usual Suspects 1995
+▪️ Oldboy 2003
+▫️Primal Fear 1996
+▪️The Mist 2007
+▫️Incendies 2010
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8339
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 18 July، روز جهانی گوش دادن
+گوش دادن به آهنگ و چیزای دیگه مثل کسشرای رفیقته
+
+@Tasiyanc ✅| مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8335
 
@@ -136,51 +188,5 @@
 🚨گزارش انفجار ۱۰ مین پیش در یزد از اعضای عزیز
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خاورمیانه آرومه امشب انگار؟
-</div>
-
-## tasiyanc — post 8306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ شنیده شدن صدای انفجار در اهواز
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاهش پهنای باند داره گزارش میشه
-کانفیگ مخصوص نت ملی رو بگیرید
-
-دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8303
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-3سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید ⛓
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 
