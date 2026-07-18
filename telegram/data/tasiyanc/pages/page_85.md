@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/04/28 01:38
+📅 آخرین بروزرسانی: 1405/04/28 02:50
 
 ---
+
+## tasiyanc — post 5692
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈2 سرور vip تست شده همراه اول⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5691
 
@@ -180,11 +191,5 @@ vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5670
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وایفای بزارم ؟
 </div>
 

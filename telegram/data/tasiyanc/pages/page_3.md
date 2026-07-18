@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/04/28 01:38
+📅 آخرین بروزرسانی: 1405/04/28 02:50
 
 ---
+
+## tasiyanc — post 8309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاهش پهنای باند داره گزارش میشه کانفیگ مخصوص نت ملی رو بگیرید دریافت کانفیگ 👉
+</div>
 
 ## tasiyanc — post 8308
 
@@ -172,11 +178,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وقتی با عرزشی بحث میکنم احساس میکنم نجس میشم و مثل این میمونه ۱ ماه تو تابستون نری حموم
-</div>
-
-## tasiyanc — post 8286
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
 </div>
 

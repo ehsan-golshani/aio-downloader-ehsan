@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/04/28 01:38
+📅 آخرین بروزرسانی: 1405/04/28 02:50
 
 ---
+
+## tasiyanc — post 7400
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چیزی نشده همراه اول اختلال میخوره .....😡
+</div>
 
 ## tasiyanc — post 7399
 
@@ -258,11 +264,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 
  💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7347
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned a photo
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/04/28 01:38
+📅 آخرین بروزرسانی: 1405/04/28 02:50
 
 ---
+
+## tasiyanc — post 5878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد اتصال بدون گرفتن پینگ سریع به تلگرام بیاید خودش را میوفته
+</div>
 
 ## tasiyanc — post 5877
 
@@ -171,11 +177,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مثل برخی چنلا باید روزی ۲۰۰ پیام واسه سرور رایگان رضایت بفرستیم؟
-</div>
-
-## tasiyanc — post 5852
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام‌ها تمومی نداره ، همچنان ما قطعیم😁❤️
 </div>
 
