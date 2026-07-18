@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/04/27 14:48
+📅 آخرین بروزرسانی: 1405/04/27 15:44
 
 ---
+
+## tasiyanc — post 7822
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار و پروکسی های پرسرعتمون 👇
+https://t.me/+v0wRP5SGNrg5MThk
+
+دریافت کانفیگ مخصوص اینترنت ملی 👆
+</div>
+
+## tasiyanc — post 7821
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دریافت کانفیگ نت ملی در صورت قطعی 👉
+ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
+</div>
 
 ## tasiyanc — post 7819
 
@@ -167,39 +183,6 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 آموزش اتصال با WgTunnel ⛓
 
 آموزش اتصال با windscribe ⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر هارو تو چنل پروکسی دنبال کنین
-@TasiyanProxy
-</div>
-
-## tasiyanc — post 7764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-2سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜
-🛜🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
 
 
 

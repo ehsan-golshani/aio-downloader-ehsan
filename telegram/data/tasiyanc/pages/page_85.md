@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/04/27 14:48
+📅 آخرین بروزرسانی: 1405/04/27 15:44
 
 ---
+
+## tasiyanc — post 5671
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان 📱
+
+⛈سرور سرور تست شده همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5670
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وایفای بزارم ؟
+</div>
 
 ## tasiyanc — post 5669
 
@@ -164,31 +181,6 @@ WİFİ موشک.npvt
 
 ⛈۲ سرور وی ای پی سرور تست شده نت خانگی⛈
 
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5636
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈4 سرور وی ای پی تست شده نت خانگی⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5634
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈سرور تست شده همه اپراتورا⛈
 
 🚀 @Tasiyanc ✅
 </div>

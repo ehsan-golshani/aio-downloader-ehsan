@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/04/27 14:46
+📅 آخرین بروزرسانی: 1405/04/27 15:42
 
 ---
+
+## ProxyMTProto — post 48152
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: assets.prx.today
+Port: 443
+Secret: ee595ef26a3a0072f97dadb2be7007dbac6173736574732e7072782e746f646179
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48151
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: iran.protocolsix.info
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48150
 
@@ -163,24 +181,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: proxy45.arixo.shop
 Port: 443
 Secret: eea91f379099ba53e83fea21dec0db748d617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48132
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 176.65.135.69
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 51.250.75.249
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 
