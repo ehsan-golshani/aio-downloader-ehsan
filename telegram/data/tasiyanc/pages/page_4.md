@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/04/27 19:50
+📅 آخرین بروزرسانی: 1405/04/27 20:58
 
 ---
+
+## tasiyanc — post 8274
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ انفجار شدید در بوشهر
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8273
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 حملات بی سابقه سپاه به مواضع کرد ها در سلیمانیه ، دلیلش چی می‌تونه باشه 🤔
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8272
 
@@ -180,22 +196,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دلاااااااااار 195 😐
-</div>
-
-## tasiyanc — post 8243
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش اعضا : اصفهان و استان های جنوبی اینترنت بشدت ضعیفه ،
-
-کامنت بزارید وضعیت نتتون چطوره
-</div>
-
-## tasiyanc — post 8242
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨اخبار منتشر شده راجب قطعی اینترنت و دیتا سنترا فعلا کذبه نگران نباشید
-
-@Tasiyanc 
-⭐️
 </div>
 

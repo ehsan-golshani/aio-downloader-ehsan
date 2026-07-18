@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/04/27 19:50
+📅 آخرین بروزرسانی: 1405/04/27 20:58
 
 ---
+
+## tasiyanc — post 7793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ : آتش بس ایران به پایان رسید
+</div>
+
+## tasiyanc — post 7792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه
+</div>
 
 ## tasiyanc — post 7791
 
@@ -161,17 +173,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 همین الان ، حمله وحشتناک آمریکا به بندرعباس
-</div>
-
-## tasiyanc — post 7746
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک نفتکش متعلق به امارات هم اکنون مورد اثابت قرار گرفت
-</div>
-
-## tasiyanc — post 7745
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری تحریم های فروش نفت ایران دوباره برگشت
 </div>
 
