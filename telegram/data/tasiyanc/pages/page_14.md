@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/04/27 11:40
+📅 آخرین بروزرسانی: 1405/04/27 13:24
 
 ---
+
+## tasiyanc — post 7902
+
+<div align="center"><img src="files/post_7902_tasiyanc_7902.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاکدشت - پارچین
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7897
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦅 FALCON VIP ⚡.npvt
+</div>
 
 ## tasiyanc — post 7896
 
@@ -276,17 +291,5 @@
 
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7864
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺آمریکا اعلام کرد همچنان به تفاهم‌نامه با ایران متعهد است و به دنبال مسیر دیپلماتیک است
-</div>
-
-## tasiyanc — post 7863
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺آمریکا اعلام کرد همچنان به تفاهم‌نامه با ایران متعهد است و به دنبال مسیر دیپلماتیک است
 </div>
 

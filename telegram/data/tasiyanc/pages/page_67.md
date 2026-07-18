@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/04/27 11:40
+📅 آخرین بروزرسانی: 1405/04/27 13:24
 
 ---
+
+## tasiyanc — post 6128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+4سرور  سرعتی تست شده 
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡Premium Fast 🗿.npvt
+</div>
 
 ## tasiyanc — post 6126
 
@@ -168,21 +191,5 @@ https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunne
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6103
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨خبرگزاری تسنیم:
-استعفای پزشکیان کذب است
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6102
-
-<div align="center"><img src="files/post_6102_tasiyanc_6102.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-غیر رسمی پزشکیان استعفاء داد تایید شده نیست
 </div>
 
