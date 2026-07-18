@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/27 15:44
+📅 آخرین بروزرسانی: 1405/04/27 17:30
 
 ---
+
+## tasiyanc — post 8350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت دریافت وایرگارد مخصوص گیم و وبگردی وارد ربات تاسیان شوید بگیرید ظرفیت پر شه لینک پاک میکنم
+
+دریافت کانفیگ 🤜
+</div>
+
+## tasiyanc — post 8349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Multi Location ⚡ Fast.npvt
+</div>
+
+## tasiyanc — post 8348
+
+<div align="center"><a href="files/post_8348_Multi Location ⚡ Fast.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Multi Location ⚡ Fast.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+6سرور سرعتی پرمیوم متد جدید ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8347
+
+<div align="center"><a href="files/post_8347_🇹🇷 İstanbul ⚡️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇹🇷 İstanbul ⚡️.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8346
 
@@ -184,31 +236,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این ربات بصورت ناشناس ساخته بودم مجبور کردن اطلاع رسانی کنیم پست ها پاک میشه خواستم بگم جریانو فقط ❤️
-</div>
-
-## tasiyanc — post 8314
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرچ نامحدود ۲۰۰ استارز میکنم از پسفردا چون اینا می‌خوان اطلاعات بزارن ❤️
-</div>
-
-## tasiyanc — post 8313
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
-</div>
-
-## tasiyanc — post 8312
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ ۴ انفجار در یزد شنیده شد
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8311
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
 </div>
 

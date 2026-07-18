@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/04/27 15:44
+📅 آخرین بروزرسانی: 1405/04/27 17:30
 
 ---
+
+## tasiyanc — post 6031
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جامپ جامپ برای آیفون هم اپل آیدی میپرونه و بات شناسایی میکنه
+لطفا اطلاع رسانی کنید برای دوستانی ک اپل دارن
+</div>
+
+## tasiyanc — post 6030
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مال منم حالا چیکاکنم برکرده
+</div>
+
+## tasiyanc — post 6029
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اره برامنم امروز پرید
+</div>
+
+## tasiyanc — post 6028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم لیمیت خوردم
+</div>
 
 ## tasiyanc — post 6027
 
@@ -122,32 +147,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 دوستانی ک فیلتر شکن استفاده میکنن
 امروز شنیدم هرکی با jumpjump وصل شده رفته اینستا ، اکانتش از دسترس خارج شده و نیاز به احراز هویت ( فیلم) داره تا اکانتش برگرده ، مراقب باشید با هر فیلترشکنی وصل نشید
 پ ن : نمی‌دونم درسته یا نه ولی دو سه نفر بهم گفتن
-</div>
-
-## tasiyanc — post 6006
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VİP 🔥.npvt
-</div>
-
-## tasiyanc — post 6005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🇫🇷.npvt
-</div>
-
-## tasiyanc — post 6004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کی قهرمان میشه ؟
-
-🔴 آرسنال ❤️
-🇫🇷 پاریس 🔥
-</div>
-
-## tasiyanc — post 6003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هردو کانفیگ اوپن وصله برید حالشو ببرید
 </div>
 

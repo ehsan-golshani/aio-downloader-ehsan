@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/27 15:44
+📅 آخرین بروزرسانی: 1405/04/27 17:30
 
 ---
+
+## tasiyanc — post 7553
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+6سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال 
+⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
+
+
+ ✅@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کادو منو نمیدید روز پسره؟
+</div>
+
+## tasiyanc — post 7550
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
+</div>
 
 ## tasiyanc — post 7546
 
@@ -223,55 +257,5 @@ Password :  @Tasiyanc ❤️
 
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7519
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-6سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-Password :  @Tasiyanc ❤️
-
- ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7518
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐😐😐😐 آلمان حذف شد
-</div>
-
-## tasiyanc — post 7517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ARABICA ☕⚡️HoT.npvt
-</div>
-
-## tasiyanc — post 7515
-
-<div align="center"><img src="files/post_7515_tasiyanc_7515.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▪️احضار: آخرین مراسم 2025 [the Conjuring]
-
-🎭 ژانر: ترسناک & ماورایی & هیجان_انگیز
-⭐️ امتیاز: 6.5 از 10
-🌐 محصول کشور: 🇺🇸
-
-📜خلاصه داستان:  اد و لورن وارن، متخصص حل پرونده‌های فراطبیعی، خطرناک‌ترین پرونده زندگی خود را بررسی می‌کنند. جک و جنت اسمرل به همراه فرزندان خود به خانه‌ای جدید نقل‌مکان می‌کنند که همیشه آرزویش را داشتند، اما به‌ زودی این خانه به کابوسی وحشتناک تبدیل می‌شود، وقتی نشانه‌های تسخیر ارواح شیطانی در آن پدیدار می‌گردد و ...
-
-✍️نسخه زیرنویس فارسی بدون سانسور
-📧 [ برای دانلود فیلم کلیک کنید ]
-
-🔉نسخه دوبله فارسی بدون سانسور
-📧 [ برای دانلود فیلم کلیک کنید ]
-
-@Tasiyanc 💠 | اتصال امن
 </div>
 
