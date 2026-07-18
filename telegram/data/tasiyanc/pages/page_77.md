@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/04/27 03:47
+📅 آخرین بروزرسانی: 1405/04/27 09:30
 
 ---
+
+## tasiyanc — post 5864
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+ 2 سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5863
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+
+گروه تاسیان
+</div>
 
 ## tasiyanc — post 5862
 
@@ -129,19 +154,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ناموسا وحشی طور وصله تازه هم استارت زدم
-</div>
-
-## tasiyanc — post 5844
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هرچی فرستادی وصلع
-</div>
-
-## tasiyanc — post 5822
-
-<div align="center"><img src="files/post_5822_tasiyanc_5822.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-34k ⚡ Fast 🔥.npvt
 </div>
 

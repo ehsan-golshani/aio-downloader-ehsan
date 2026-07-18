@@ -1,8 +1,171 @@
 # آرشیو کانال VahidOOnLine - صفحه 239
 
-📅 آخرین بروزرسانی: 1405/04/27 07:11
+📅 آخرین بروزرسانی: 1405/04/27 09:28
 
 ---
+
+## VahidOOnLine — post 244900
+
+<div align="center"><video src="files/post_244900_VahidOOnLine_244900.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244900_VahidOOnLine_244900.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان‌دهنده برخاستن دود ناشی از انفجار در حوالی دانشگاه آزاد پیشوا در شهرستان ورامین است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244899
+
+<div align="center"><video src="files/post_244899_VahidOOnLine_244899.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244899_VahidOOnLine_244899.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️پرواز نمایشی نیروی هوایی فرانسه بر فراز «مجسمه آزادی» در نیویورک
+
+♦️تیم آکروباتیک نیروی هوایی فرانسه با اجرای یک پرواز نمایشی بر فراز مجسمه آزادی در نیویورک، در مراسم‌های مرتبط با دویست‌وپنجاهمین سالگرد اعلامیه استقلال آمریکا شرکت کرد.
+
+این نمایش هوایی بخشی از برنامه‌های بزرگداشت سالگرد استقلال ایالات متحده بود و با حضور شماری از شهروندان و گردشگران در اطراف بندر نیویورک برگزار شد.
+
+مجسمه آزادی که در سال ۱۸۸۶ از سوی فرانسه به ایالات متحده اهدا شد، یکی از نمادهای تاریخی دوستی میان دو کشور به شمار می‌رود. آمریکا در سال ۲۰۲۶ دویست‌وپنجاهمین سالگرد تصویب اعلامیه استقلال خود را گرامی می‌دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244898
+
+<div align="center"><video src="files/post_244898_VahidOOnLine_244898.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244898_VahidOOnLine_244898.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوی رسیده به ایران اینترنشنال، حدود ساعت ۴ بامداد ۲۱ خردادماه محدوده پایگاه نظامی حصارک در کمالشهر کرج، پیاپی هدف گرفته شد. بنا بر گزارش‌ها این نقطه دست‌کم ۵ بار مورد اصابت قرار گرفت و در زمان وقوع حمله، نشانه‌ای از حضور جنگنده‌ها مشاهده نشد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244897
+
+<div align="center"><img src="files/post_244897_VahidOOnLine_244897.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری ایرنا، صبح پنجشنبه ۲۱ خرداد به نقل از رئیس اورژانس تهران گزارش کرد که در پی حملات بامداد پنجشنبه آمریکا، سه نفر در استان تهران مصدوم و به بیمارستان منتقل شدند.
+
+ایالات متحده بامداد پنجشنبه و برای نخستین بار پس از آتش‌بس ۱۹ فروردین، علاوه بر جنوب ایران، مناطقی در مرکز و استان تهران را هم بمباران کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244896
+
+<div align="center"><video src="files/post_244896_VahidOOnLine_244896.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244896_VahidOOnLine_244896.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استرالیا و بریتانیا در بیانیه‌ای مشترک حمله‌های جمهوری اسلامی را در منطقه محکوم کردند و گفتند که نباید به سلاح هسته‌ای دست یابد. همزمان ۲۲ کشور اعلام کردند نهادهای امنیتی جمهوری اسلامی در طرح‌های ترور و آدم‌ربایی در غرب دست دارند
+
+گفت‌وگو با علیرضا محبی، خبرنگار ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244895
+
+<div align="center"><video src="files/post_244895_VahidOOnLine_244895.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244895_VahidOOnLine_244895.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنیامین نتانیاهو گفت اسرائیل به اقدام قاطع علیه جمهوری اسلامی و نیروهای نیابتی‌‌اش ادامه می‌دهد و اگر لازم بداند به تنهایی و بدون پشتیبانی ایالات متحده با جمهوری اسلامی مقابله خواهد کرد
+
+بابک اسحاقی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244894
+
+<div align="center"><video src="files/post_244894_VahidOOnLine_244894.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244894_VahidOOnLine_244894.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روایت زنان بازداشت‌شده در هرات از برخوردهای خشن و تحقیرآمیز نیروهای طالبان حکایت دارد. این زنان می‌گویند با آن‌ها با خشونت رفتار شده و شماری نیز در زندان طالبان مورد تعرض و شکنجه قرار گرفته‌اند. الهام کریمی در گزارشی به این روایت‌ها پرداخته است
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244893
+
+<div align="center"><video src="files/post_244893_VahidOOnLine_244893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244893_VahidOOnLine_244893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق ویدیوها و گزارش رسیده به ایران اینترنشنال، حدود ساعت پنج بامداد ۲۱ خرداد از محدوده پایگاه نظامی ازناب در ابهر، دست‌کم یک پرتابه شلیک شد. به گفته شهروندان، این دومین بار در سه روز گذشته است که از این نقطه شلیک انجام گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244892
+
+<div align="center"><img src="files/post_244892_VahidOOnLine_244892.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محسن اراکی، عضو هیئت رییسه مجلس خبرگان رهبری و عضو شورای عالی حوزه‌های علمیه، در پیامی خطاب به مسلمانان اعلام کرد حمله به منافع آمریکا در هر نقطه‌ای «واجب شرعی» است.
+
+او با اشاره به حملات اسرائیل و توافق این کشور با لبنان برای خلع سلاح حزب‌الله، نوشت هرگونه اقدامی که به «تضعیف روحیه مقاومت در میان ملت‌های منطقه منجر شود، از نظر شرعی حرام است.»
+
+محسن اراکی آمریکا را «کافر حربی» خواند و گفت: «جهاد با او با تمام توان، بر هر مومن آزاده‌ای که به احکام اسلام باور دارد، واجب است.» او افزود حمله به منافع آمریکا در هر کجا و مقابله با افرادی که در خدمت قدرت آمریکا هستند، برای هر فردی که توانایی انجام آن را دارد، واجب شرعی محسوب می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244891
+
+<div align="center"><img src="files/post_244891_VahidOOnLine_244891.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی کل نیروی دفاع بحرین اعلام کرد سامانه‌های پدافند هوایی این کشور بامداد پنجشنبه ۲۱ خرداد با حملات هوایی جمهوری اسلامی مقابله کرده و شماری از آن‌ها را رهگیری و منهدم کردند.
+
+در بیانیه این نهاد آمده است جمهوری اسلامی همچنان به رویکرد خصمانه و سازمان‌یافته خود از طریق حملات موشکی و پهپادی که غیرنظامیان در بحرین را هدف قرار می‌دهد ادامه می‌دهد.
+
+فرماندهی کل نیروی دفاع بحرین تاکید کرد همه یگان‌ها و تسلیحات این نیرو در بالاترین سطح آمادگی قرار دارند و آماده دفاع از کشور هستند. در این بیانیه همچنین استفاده عامدانه از موشک‌ها و پهپادها برای هدف قرار دادن غیرنظامیان و اموال خصوصی، نقض آشکار حقوق بین‌الملل بشردوستانه توصیف شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244890
+
+<div align="center"><img src="files/post_244890_VahidOOnLine_244890.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی کل نیروهای مسلح اردن در بیانیه‌ای اعلام کرد سامانه‌های پدافند هوایی و هواپیماهای نیروی هوایی سلطنتی این کشور بامداد پنج‌شنبه ۲۰ موشک را که از ایران به سمت منطقه الازرق در استان الزرقا شلیک شده بود، رهگیری و منهدم کردند.
+
+یک منبع نظامی مسئول در ارتش اردن گفت در پی این عملیات، شماری ترکش در مناطق مختلف سقوط کرد اما هیچ تلفات جانی یا خسارت مادی گزارش نشده است.
+
+او افزود تیم‌های مهندسی ارتش با بقایای موشک‌ها برخورد کرده و اقدامات لازم را برای اطمینان از نبود مواد منفجره در آن‌ها انجام داده‌اند.
+
+این منبع تاکید کرد نیروهای مسلح اردن تحولات منطقه را به طور مستمر زیر نظر دارند و با بالاترین سطح آمادگی از حریم هوایی، حاکمیت و تمامیت ارضی کشور دفاع می‌کنند.
+
+در این بیانیه همچنین آمده است که اردن اجازه نخواهد داد هیچ طرفی حریم هوایی این کشور را نقض کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244889
 
@@ -114,154 +277,6 @@
 ♦️مشاور رسانه‌ای پادشاه بحرین در پیامی در شبکه اجتماعی ایکس اعلام کرد سامانه‌های پدافند هوایی بحرین حملات هوایی ایران را رهگیری و منهدم کرده‌اند.
 سپاه پاسداران صبح پنج‌شنبه اعلام کرد که در واکنش به آخرین حملات آمریکا، پایگاه‌هایی در کویت و بحرین را هدف قرار داده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244867
-
-<div align="center"><img src="files/post_244867_VahidOOnLine_244867.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشاور رسانه‌ای پادشاه بحرین اعلام کرد سامانه‌های پدافند هوایی این کشور پرتابه‌های شلیک‌شده از سوی جمهوری اسلامی را رهگیری و منهدم کرده‌اند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244866
-
-<div align="center"><video src="files/post_244866_VahidOOnLine_244866.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244866_VahidOOnLine_244866.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️کانال تلگرامی «وحیدآنلاین» بامداد پنجشنبه ۲۱ خردادماه تصاویری از انفجارها و ستون‌های دود در مناطقی از غرب استان البرز و شهر کرج منتشر کرد.
-
-بر اساس این گزارش، تصاویر ارسالی از حوالی حصارک، کمال‌شهر و مسیر کرج به قزوین دود ناشی از انفجارها را نشان می‌دهد.
-
-این گزارش همزمان با آن منتشر شد که فرماندهی مرکزی ایالات متحده (سنتکام) که هدایت عملیات نظامی آمریکا در خاورمیانه را بر عهده دارد، اعلام کرد در تازه‌ترین دور حملات به ایران، سایت‌های راداری، ارتباطی و سامانه‌های پدافند هوایی را هدف قرار داده است. به گفته سنتکام، نیروی هوایی و دریایی آمریکا با استفاده از مهمات هدایت‌شونده دقیق در این عملیات مشارکت داشته‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244865
-
-<div align="center"><video src="files/post_244865_VahidOOnLine_244865.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244865_VahidOOnLine_244865.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای منتشرشده در حساب کاربری «وحید آنلاین»، دود ناشی از انفجارها را در بامداد پنج‌شنبه ۲۱ خرداد، در پی حملات آمریکا به حوالی حصارک و کمال‌شهرِ استان البرز، نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244864
-
-<div align="center"><video src="files/post_244864_VahidOOnLine_244864.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244864_VahidOOnLine_244864.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در شبکه‌های اجتماعی، عبور یک موشک را در میان رد موشک‌های شلیک‌شده پیشین، در بامداد پنج‌شنبه ۲۱ خرداد در آسمان تبریز نشان می‌دهد.
-رسانه‌های جمهوری اسلامی نیز در پی حمله آمریکا، از حمله موشکی به پایگاه موفق‌السلطی در اردن خبر دادند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244863
-
-<div align="center"><video src="files/post_244863_VahidOOnLine_244863.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244863_VahidOOnLine_244863.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ستاد فرماندهی مرکزی آمریکا، سنتکام، با انتشار ویدیویی از عملیات خود علیه جمهوری اسلامی، از پایان آن خبر داد.
-سنتکام اعلام کرد نیروهای این فرماندهی در ۲۰ خرداد، حملات دفاعی تازه‌ای را علیه چندین هدف در ایران به پایان رساندند.
-به گفته سنتکام، این حملات سامانه‌های نظارتی، ارتباطی و پدافند هوایی جمهوری اسلامی را هدف گرفت و در پاسخ به آنچه «اقدامات تهاجمی بی‌دلیل و مداوم ایران» خوانده شد، انجام شده است.
-سنتکام افزود نیروهای آمریکایی همچنان هوشیار، قدرتمند و آماده اقدام هستند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244862
-
-<div align="center"><img src="files/post_244862_VahidOOnLine_244862.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اداره امور کنسولی وزارت خارجه آمریکا در حساب رسمی اعلام کرد گزارش‌ها نشان می‌دهد موشک‌ها، پهپادها یا راکت‌ها در حریم هوایی اردن مشاهده شده‌اند. در این هشدار از افراد خواسته شده فورا به پناهگاه یا مکان دارای پوشش مناسب بروند و در محل امن باقی بمانند.
-
-سفارت آمریکا در اردن نیز اعلام کرده وضعیت را به طور مستمر بررسی می‌کند و در صورت لزوم اطلاعات بیشتری منتشر خواهد کرد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244861
-
-<div align="center"><img src="files/post_244861_VahidOOnLine_244861.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیات هواپیمایی کشوری کویت اعلام کرد در پی آنچه حملات حکومت ایران عنوان شده، حریم هوایی این کشور به طور موقت بسته شده است. iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244860
-
-<div align="center"><img src="files/post_244860_VahidOOnLine_244860.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️سفارت آمریکا در ادن در بیانیه‌ای اعلام کرد، گزارش‌ها نشان می‌دهد موشک‌ها، پهپادها یا راکت‌هایی در حریم هوایی اردن حضور دارند. فورا به پناهگاه امن زیر سقف بروید و در محل خود بمانید. در فضای بسته باقی بمانید و به اطلاعیه‌ها و هشدارهای محلی توجه کنید.
-در ادامه این بیانیه آمده است: سفارت ایالات متحده در اردن به بررسی وضعیت ادامه خواهد داد و در صورت نیاز اطلاعات بیشتری ارائه می‌کند
-پیش‌تر سپاه پاسداران در بیانیه‌ای اعلام کرد با ۱۲ موشک بالستیک، هواپیماهای آمریکایی مستقر در پایگاه هوایی الازرق در اردن را هدف قرار داده است. وزارت کشور بحرین نیز اعلام کرد آژیر هشدار در سراسر این کشور به صدا درآمده است و از شهروندان و ساکنان خواست آرامش خود را حفظ کرده و به نزدیک‌ترین مکان امن مراجعه کنند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244859
-
-<div align="center"><img src="files/post_244859_VahidOOnLine_244859.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ سازمان هوانوردی غیرنظامی کویت اعلام کرد که به‌طور موقت حریم هوایی این کشور را به دلیل حملات ایران و خطرات احتمالی برای هواپیماهای غیرنظامی بسته است.
-این نهاد همچنین افزود که پروازها به فرودگاه‌های جایگزین هدایت شده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244858
-
-<div align="center"><img src="files/post_244858_VahidOOnLine_244858.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های ایران گزارش دادند پایگاه هوایی «علی السالم» در کویت که محل استقرار نیروهای آمریکایی است، هدف موشک‌ها و پهپادهای ایران قرار گرفته است.
-
-همزمان ارتش کویت اعلام کرد پدافند هوایی این کشور در حال مقابله با پرتابه‌های متخاصم است.
-
-وزارت کشور بحرین نیز از به صدا درآمدن آژیرهای هشدار خبر داد و گزارش شده آژیرهای خطر بار دیگر در این کشور فعال شده‌اند.
-
-مقام‌های کویت و بحرین جزئیات بیشتری درباره منشا یا اهداف احتمالی این حملات منتشر نکرده‌اند و این ادعاها به طور مستقل تایید نشده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244857
-
-<div align="center"><img src="files/post_244857_VahidOOnLine_244857.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شبکه خبر اعلام کرد ایران پایگاه موفق‌السلطی در اردن را هدف حمله موشکی قرار داده است. روزنامه پیام‌ما نیز گزارش داد این موشک‌ها از استان‌های شمال غربی ایران شلیک شده‌اند. مقام‌های رسمی اردن تاکنون جزئیات مستقلی درباره این ادعا منتشر نکرده‌اند. شبکه‌های العربیه و الحدث نیز گزارش دادند پدافند هوایی اردن در حال مقابله با حمله موشکی از سمت ایران است. این گزارش‌ها تاکنون به طور مستقل تایید نشده است iranintl
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
