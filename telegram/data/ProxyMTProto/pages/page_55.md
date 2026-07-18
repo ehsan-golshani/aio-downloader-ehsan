@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/04/27 13:22
+📅 آخرین بروزرسانی: 1405/04/27 14:46
 
 ---
+
+## ProxyMTProto — post 48130
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowabst.net
+Port: 853
+Secret: ee12893ffd2044cecd31104edc02a7e5586164732e78352e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48129
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.nilmart.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wgwg.etherealvpn.uk
+Port: 443
+Secret: ee3b7ca716f61b904f00c0f93d9419de06617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48127
 
@@ -154,33 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e63
 Server: data.proxyvpn.site
 Port: 443
 Secret: ee7d75b7a3d02eefad99691681a534c1fe646174612e70726f787976706e2e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48110
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mx.proxyz.site
-Port: 443
-Secret: ee76166fbf55209edbcfbe009bcc16f4646d782e70726f78797a2e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48108
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cloud.prx.today
-Port: 443
-Secret: eeda2d39fb15ca8ddb6582b915b149465c636c6f75642e7072782e746f646179
 @ProxyMTProto
 </div>
 

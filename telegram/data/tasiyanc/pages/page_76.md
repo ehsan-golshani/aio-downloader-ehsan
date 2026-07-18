@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/04/27 13:24
+📅 آخرین بروزرسانی: 1405/04/27 14:48
 
 ---
+
+## tasiyanc — post 5899
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Fast ⚡💗.npvt
+</div>
+
+## tasiyanc — post 5898
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+سرور  سرعتی
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  ⚡️
+
+نحوه اتصال به سرورها ⏩
+
+🛜
+
+
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5897
 
@@ -180,28 +208,5 @@ GANG 🌙 10 SERVER FAST.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بعد اتصال بدون گرفتن پینگ سریع به تلگرام بیاید خودش را میوفته
-</div>
-
-## tasiyanc — post 5877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
- سه سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5873
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب خب.. یه کانفیگ اوکی کردیم برای همه اپراتور ها جوابه و همه چیو پرسرعت میاره. فقط برای 500 نفر اولی که سریعترن در دسترسه! ⚠️ دریافت رایگان کانفیگ اختصاصی
 </div>
 

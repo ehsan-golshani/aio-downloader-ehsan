@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/27 13:24
+📅 آخرین بروزرسانی: 1405/04/27 14:48
 
 ---
+
+## tasiyanc — post 8209
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 فرودگاه ایرانشهر مورد حمله قرار گرفت
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سپاه جون دارن جنوب میزنن خب؟چرا گیر دادی ب کردستان عراق داری اشتباهی میزنی ها😹
+</div>
 
 ## tasiyanc — post 8207
 
@@ -151,19 +165,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نظرتون چیه آخرش چی میشه؟؟؟
-</div>
-
-## tasiyanc — post 8187
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سخنرانی مهم پرزیدنت ترامپ ۳ ساعت دیگه در کاخ سفید شروع میشه
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8186
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حملات امشب بی سابقه اس
 </div>
 

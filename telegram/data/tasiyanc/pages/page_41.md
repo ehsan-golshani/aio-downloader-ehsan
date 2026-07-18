@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/04/27 13:24
+📅 آخرین بروزرسانی: 1405/04/27 14:48
 
 ---
+
+## tasiyanc — post 6879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpvWklvQTY5UTh5aGNRVjhrYTNQYTNB@82.38.31.11:8080#%40Tasiyanc%20%E2%9B%93%EF%B8%8F
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متاسفانه قضیه خیلی جدیه ( اختلال شدید رو تمام اپراتورا )
+</div>
 
 ## tasiyanc — post 6877
 
@@ -206,19 +220,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ساعت 1.30 بامداد شروع بازی 🇧🇷 Brazil - 🇲🇦 Morocco @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6850
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساعت 1.30 بامداد شروع بازی
-🇧🇷 Brazil - 🇲🇦 Morocco
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6849
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بزنید نوش جونتون
 </div>
 
