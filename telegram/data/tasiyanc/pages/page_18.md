@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/04/27 02:48
+📅 آخرین بروزرسانی: 1405/04/27 03:47
 
 ---
+
+## tasiyanc — post 7708
+
+<div align="center"><video src="files/post_7708_tasiyanc_7708.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7708_tasiyanc_7708.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+5 کانفیگ وایرگارد مخصوص گیم و وبگردی در ربات آپلود شد سریع بردارید ظرفیت محدوده - تبلیغ نیست ربات اختصاصی تاسیان هست
+
+
+👈 دریافت کانفیگ ها 
+👉
+</div>
 
 ## tasiyanc — post 7707
 
@@ -200,11 +214,5 @@ VIP 🎯 @Tasiyanc.nm
 
 
 🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-</div>
-
-## tasiyanc — post 7681
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗘𝗰𝗵𝗼 𝗩𝗶𝗽 🔥⁰⁴.ehi
 </div>
 

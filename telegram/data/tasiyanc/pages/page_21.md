@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/04/27 02:48
+📅 آخرین بروزرسانی: 1405/04/27 03:47
 
 ---
+
+## tasiyanc — post 7610
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ SuperFast⚡.npvt
+</div>
 
 ## tasiyanc — post 7608
 
@@ -180,13 +186,5 @@
 📧 [ برای دانلود  کلیک کنید ]
 
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7566
-
-<div align="center"><img src="files/post_7566_tasiyanc_7566.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☕ Nitro⚡Fast.npvt
 </div>
 

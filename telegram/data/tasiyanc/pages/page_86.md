@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/04/27 02:48
+📅 آخرین بروزرسانی: 1405/04/27 03:47
 
 ---
+
+## tasiyanc — post 5612
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گوگل پلی برا بعضیا باز شده و اکثرا باز نشده ( طبق گزارش ممبرهای عزیزمون)
+</div>
 
 ## tasiyanc — post 5611
 
@@ -136,20 +142,6 @@
 📱 اختصاصی تاسیان 📱
 
 ⛈ سرور تست شده همه اپراتورها⛈
-
-برای اتصال پایدار صبور باشید
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈دو سرور تست شده همه اپراتورها⛈
 
 برای اتصال پایدار صبور باشید
 

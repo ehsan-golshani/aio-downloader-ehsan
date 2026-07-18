@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/27 02:48
+📅 آخرین بروزرسانی: 1405/04/27 03:47
 
 ---
+
+## tasiyanc — post 8170
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢طبق گزارش‌ها، اینترنت تو بعضی از نقاط کشور به شدت ضعیف شده
+
+وضعیت نت شما چطوره؟
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8169
 
@@ -211,14 +221,5 @@
 
 @Tasiyanc 
 ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8128
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠فوری علیرضا فغانی داور فینال جام‌جهانی بین اسپانیا و آرژانتین شد.
-
-@Tasiyanc 
-⭐️
 </div>
 
