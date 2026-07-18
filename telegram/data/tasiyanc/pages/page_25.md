@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 7477
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌هم اکنون شلیک موشک از ایران به سمت اردن
+</div>
+
+## tasiyanc — post 7476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌هم اکنون شلیک موشک از ایران به سمت اردن
+</div>
 
 ## tasiyanc — post 7475
 
@@ -151,31 +163,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سلام عزیزان یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 7442
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام عزیزان
-یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید
-https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 7441
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود 🇬🇧
-
-4 سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-🔑Password :  @Tasiyanc
-
- 💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 

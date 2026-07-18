@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 5495
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5494
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانلودی چیزی داری بزنید
+</div>
 
 ## tasiyanc — post 5493
 

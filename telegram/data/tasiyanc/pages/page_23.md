@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 7563
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡️🚀 Premium.npvt
+</div>
+
+## tasiyanc — post 7560
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️⁰⁷@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 7553
 
@@ -234,28 +246,5 @@ Password :  @Tasiyanc ❤️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 همه دوستانی که اندروید دارن نت مود دانلود کنن بیشتر میزارم از امروز همراه نپستر
-</div>
-
-## tasiyanc — post 7524
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇦🇪@Tasiyanc ⚡️.nm
-</div>
-
-## tasiyanc — post 7520
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 کانفیگ اختصاصی نت مود 🚀
-
-4 سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-دانلود برنامه 🕹
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 

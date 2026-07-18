@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 7834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگ رسما و شرعا آغاز شد
+</div>
+
+## tasiyanc — post 7832
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 4 تا کانفیگ پرسرعت OpenVpn 
+📶 گذاشتم تو ربات خودمون برید بردارید چون ظرفیت محدوده چنل نمیزارم
+
+
+👈 دریافت کانفیگ ها 
+👆
+</div>
 
 ## tasiyanc — post 7829
 
@@ -204,20 +221,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اوه
-</div>
-
-## tasiyanc — post 7791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️رسما توافق با آمریکا سرش گرد شد
-</div>
-
-## tasiyanc — post 7790
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ترامپ : سران ایران یه مشت آدم کثیفن. اصلاً ازشون خوشم نمیاد. کلی وقتمون رو باهاشون هدر دادیم. بی‌عرضه و ناتوانن. بهتره فقط کار خودمون رو انجام بدیم.
-اونا می‌خوان رهبر آمریکا، یعنی من رو ترور کنن. سال‌هاست که من نفر اول لیستشونم.
-باید سرطان رو از همون اول ریشه‌کن کرد. من این‌طوری به قضیه نگاه می‌کنم.
-@Tasiyanc ⭐️
 </div>
 

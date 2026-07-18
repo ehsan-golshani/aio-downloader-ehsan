@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 7602
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی لف بده تو چنل تاسیان نباشید
+</div>
+
+## tasiyanc — post 7601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Saiedmusics
+برم رو مادرش یا نه؟ آیدیشو گذاشتم یه اکیپ دارم دارن کل پیامای تلگرامشو درمیارن به کل چنل ناموسی داده ببینم چیکار میکنین
+</div>
 
 ## tasiyanc — post 7600
 
@@ -186,17 +199,5 @@
 
 
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7563
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡️🚀 Premium.npvt
-</div>
-
-## tasiyanc — post 7560
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️⁰⁷@Tasiyanc.conf
 </div>
 

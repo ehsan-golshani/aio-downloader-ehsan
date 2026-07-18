@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 6991
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥⚡Tasiyanc.dark
+</div>
+
+## tasiyanc — post 6990
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥⚡Tasiyanc.dark
+</div>
 
 ## tasiyanc — post 6989
 
@@ -288,25 +300,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ Dark Tunnel 🌟 میزارم براتون اول از همه برنامه دارک تونل رو نصب کنین از پلی استور https://play.google.com/store/apps/details?id=net.darktunnel.app @Tasiyanc
-</div>
-
-## tasiyanc — post 6954
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc🇫🇷.dark
-</div>
-
-## tasiyanc — post 6953
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ دارک تونل 🌟
-
-حجم نامحدود - سرعتی 🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel 🕹
-
-T.me/Tasiyanc ✅
 </div>
 

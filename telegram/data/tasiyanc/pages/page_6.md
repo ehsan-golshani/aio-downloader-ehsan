@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 8219
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرتاب موشک از کرمانشاه
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8217
+
+<div align="center"><video src="files/post_8217_tasiyanc_8217.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8217_tasiyanc_8217.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺ از سنتکام : فیلم توقیف نفتکش ایرانی توسط ارتش نیروی دریایی آمریکا
+
+
+@Tasiyanc ⭐️| مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8216
 
@@ -150,22 +171,5 @@ Ohhh
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 روبیکا لینک سیو کنین در صورت قطعی عضو شید فعلا فعالیت نداریم
 https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
-</div>
-
-## tasiyanc — post 8196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨
-🚨۷ انفجار مهیب در بوشهر
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8195
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
 </div>
 

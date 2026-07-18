@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 5579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن یادتون نره 💋
+</div>
+
+## tasiyanc — post 5578
+
+<div align="center"><img src="files/post_5578_tasiyanc_5578.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ وای‌فای.npvt
+</div>
 
 ## tasiyanc — post 5577
 
@@ -152,21 +166,6 @@ WAR 🔥.npvt
 فوری | تابناک:
 
 🚨باند پروازی فرودگاه بندرعباس مورد اصابت موشک قرار گرفت
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5558
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️⭕️⭕️
-</div>
-
-## tasiyanc — post 5555
-
-<div align="center"><img src="files/post_5555_tasiyanc_5555.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هم اکنون پرواز هواپیمای سوخت رسان ایالت متحده KC46 Pegasus بر فراز خلیج عمان
 @Tasiyanc ✅
 </div>
 

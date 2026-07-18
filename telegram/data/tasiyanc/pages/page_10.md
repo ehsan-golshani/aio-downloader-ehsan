@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 8100
+
+<div align="center"><img src="files/post_8100_tasiyanc_8100.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شخصیت‌های کارتونی که باهاشون خندیدیم پیر شدن....
+
+@Tasiyanc ⭐️ | بانك کانفیگ
+</div>
+
+## tasiyanc — post 8099
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢 فوری، رمضان رحیمی عضو کمیسیون آموزش: اگر شرایط جنگ و بحرانی ادامه پیدا کنه، کنکور به تعویق خواهد خورد.
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8095
 
@@ -193,35 +210,5 @@
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8067
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار 185
-</div>
-
-## tasiyanc — post 8066
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

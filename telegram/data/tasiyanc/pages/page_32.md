@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 7220
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+DhVkjFb6qhZmYTFk کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
+</div>
+
+## tasiyanc — post 7219
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+DhVkjFb6qhZmYTFk
+کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
+</div>
 
 ## tasiyanc — post 7217
 
@@ -320,24 +333,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 SIUUUUUUUUUUUUUUUUUU! 🐐🌟
-</div>
-
-## tasiyanc — post 7190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-(با تمام احترامی که به مسی و هوادارانش قائلم)ترجیح میدم طرفدار آقای گل جهان باشم کسی ک به هر تیمی رف مثل ستاره درخشید و همیشه نامبر وان شد و هست ، رونالدو اگه مثل پسر فیفا ۲۰ سال تو رئال میموند مسی گرد پاشم نمیشد
-
-لبیک یا رونالدو
-</div>
-
-## tasiyanc — post 7189
-
-<div align="center"><img src="files/post_7189_tasiyanc_7189.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تیم ملی فوتبال الجزایر از داور بخاطر این خطای پسرشون (لیونل مسی) و حتی نگرفتن اخطار شکایت کرد.
-پی‌نوشت : فک کنم الجزایر رو محروم کنن بخاطر اینکه پسر فیفا رو شکایت کردن 😐
-
-@Tasiyanc ✅
 </div>
 

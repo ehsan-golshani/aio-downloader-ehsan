@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 8316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از قدیم گفتن مراقب تله مرغابی های زندگیت باش
+</div>
+
+## tasiyanc — post 8315
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این ربات بصورت ناشناس ساخته بودم مجبور کردن اطلاع رسانی کنیم پست ها پاک میشه خواستم بگم جریانو فقط ❤️
+</div>
 
 ## tasiyanc — post 8314
 
@@ -154,27 +166,5 @@
 🔴 هم اکنون آمریکا به بندرعباس،قشم،بوشهر و سیریک حمله کرد و صدای چندین انفجار تو این مناطق شنیده شد.
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صداوسیما واسه حسن نصرالله و اسماعیل هنیه واسه هرکدوم پنج روز روبان مشکی گذاشت و عزا عمومی اعلام کرد ولی واسه سربازهای کشور خودمون حتی یک روز عزا عمومی و یک پرچم مشکی نزد!!
-حالا فهمیدید وطن فروش های واقعی کیان؟
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8293
-
-<div align="center"><img src="files/post_8293_tasiyanc_8293.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری
-
-سنتکام از آغاز موج جدید حملات به ایران برای هفتمین شب متوالی خبر داد
-
-
-@Tasiyanc ✅
 </div>
 

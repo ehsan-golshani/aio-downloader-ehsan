@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 6470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا یکم اوضاع اوکی میشه مارو فراموش میکنین؟ 🤣
+</div>
+
+## tasiyanc — post 6469
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت ارتباط با ادمین ها و تبادلات گپمون :
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 6468
 
@@ -206,42 +219,5 @@ new@Tasiyanc.ovpn
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡ Fast 🚀 💥.npvt
-</div>
-
-## tasiyanc — post 6446
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۴سرور   سرعتی پرمیوم متد جدید🚀
-
-حجم نامحدود - تمام اپراتور ها 
-⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

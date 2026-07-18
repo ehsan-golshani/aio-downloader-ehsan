@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/04/27 17:30
+📅 آخرین بروزرسانی: 1405/04/27 19:50
 
 ---
+
+## tasiyanc — post 6419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+
+بیاید گپمون
+</div>
+
+## tasiyanc — post 6415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST⚡TASIYAN🚀.npvt
+</div>
 
 ## tasiyanc — post 6414
 
@@ -196,20 +210,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آغاز عملیات وعده صادق ۵
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6394
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨فووووووری
-حملات موشکی سپاه به اسرائیل
-@Tasiyanc
-</div>
-
-## tasiyanc — post 6393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حمله موشکی سپاه از کرمانشاه هم اکنون
-@Tasiyanc
 </div>
 
