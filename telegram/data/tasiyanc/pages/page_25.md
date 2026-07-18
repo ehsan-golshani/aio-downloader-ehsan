@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/04/27 20:58
+📅 آخرین بروزرسانی: 1405/04/27 22:08
 
 ---
+
+## tasiyanc — post 7481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگر خاک ایران برفتد ز دست
+هنوز آخرین پر سیمرغ هست
+بگیرید ، بگیرید تیر و کمان را به دست
+جهنم بسازید بر هرچه پست .
+</div>
 
 ## tasiyanc — post 7480
 
@@ -158,11 +167,5 @@ ESPRESSO 🔥☕.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ ۳ انفجار در قشم
-</div>
-
-## tasiyanc — post 7445
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ ۴ انفجار شدید در سیریك
 </div>
 
