@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/04/28 00:36
+📅 آخرین بروزرسانی: 1405/04/28 01:38
 
 ---
+
+## tasiyanc — post 7868
+
+<div align="center"><video src="files/post_7868_tasiyanc_7868.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7868_tasiyanc_7868.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 
+📱
+
+3سرور  سرعتی پرمیوم 
+⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال روی اندروید 
+⛓
+آموزش اتصال روی ویندوز  
+⛓
+
+دانلود برنامه اندروید 
+🕹
+
+دانلود برنامه برای ویندوز 
+💻
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7865
 
@@ -285,11 +327,5 @@ https://t.me/+v0wRP5SGNrg5MThk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دریافت کانفیگ نت ملی در صورت قطعی 👉
 ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
-</div>
-
-## tasiyanc — post 7819
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میترسم بخوابم صبح داخل روبیکا بیدار شم
 </div>
 

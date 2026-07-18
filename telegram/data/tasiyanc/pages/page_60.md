@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/04/28 00:37
+📅 آخرین بروزرسانی: 1405/04/28 01:38
 
 ---
+
+## tasiyanc — post 6331
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6330
 
@@ -194,11 +205,5 @@ Password : @Tasiyanc  ⏩
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قصد حاشیه با هیچ بنی بشری ام ندارم چون نه حوصله ن وقتشو دارم درکل گفتم زحمتای بقیه رو بعضیا با دو تکست بگ* ندن
 با قدرت در خدمت شما هستیم❤️
-</div>
-
-## tasiyanc — post 6304
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شما باشید فشار نمیخورید؟
 </div>
 

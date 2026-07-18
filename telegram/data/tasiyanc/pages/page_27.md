@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/04/28 00:36
+📅 آخرین بروزرسانی: 1405/04/28 01:38
 
 ---
+
+## tasiyanc — post 7431
+
+<div align="center"><video src="files/post_7431_tasiyanc_7431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7431_tasiyanc_7431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Password : @Tasiyanc
+
+
+🔐 کانفیگ حجم نامحدود
+
+۳ سرور سرعتی 
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+⛓
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+ 
+💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7430
 
@@ -147,11 +179,5 @@ https://t.me/TasiyanProxy/1840
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چیزی نشده همراه اول اختلال میخوره .....😡
-</div>
-
-## tasiyanc — post 7399
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST ⚡⚡🔥.npvt
 </div>
 

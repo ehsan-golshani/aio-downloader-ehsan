@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/04/28 00:36
+📅 آخرین بروزرسانی: 1405/04/28 01:38
 
 ---
+
+## tasiyanc — post 7248
+
+<div align="center"><video src="files/post_7248_tasiyanc_7248.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7248_tasiyanc_7248.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV
+
+4سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7247
 
@@ -302,23 +330,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7209
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅سرویس های حجم نامحدود با بهترین قیمت و کیفیت براتون تخفیف خورد 
-⭕️
-
-تک کاربر:290 هزار تومان
-دو کاربر:580هزار تومان
-سه کاربر:870هزارتومان
-
-
-🔥جهت خرید میتونید به PV زیر مراجعه کنید :
-
-🟢@nac_config
-
-🔵@nacconfig
 </div>
 

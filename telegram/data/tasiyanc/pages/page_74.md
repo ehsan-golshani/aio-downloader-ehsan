@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/04/28 00:37
+📅 آخرین بروزرسانی: 1405/04/28 01:38
 
 ---
+
+## tasiyanc — post 5969
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان 
+
+5سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5968
 
@@ -159,11 +176,5 @@ TS premium Servers 🌲⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 -FAST MCI & MTN & RighTel 🔥.npvt
-</div>
-
-## tasiyanc — post 5945
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قربون تک تکتون ، با اینکه نت وصله ولی اختلال همچنان بسیار بالاست تلاش میشه بهترین سرورارو بزاریم امیدوارم سرعت خوبی بگیرید
 </div>
 

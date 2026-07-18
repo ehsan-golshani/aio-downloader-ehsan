@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/04/28 00:37
+📅 آخرین بروزرسانی: 1405/04/28 01:38
 
 ---
+
+## tasiyanc — post 5810
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موشك داره میاد
+</div>
 
 ## tasiyanc — post 5809
 
@@ -193,11 +199,5 @@ Fast ⚡.npvt
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5788
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبلیغاتی ک زیر پستها میاد متعلق به ما نیست از طرف تلگرامه
 </div>
 
