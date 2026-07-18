@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/04/27 09:30
+📅 آخرین بروزرسانی: 1405/04/27 11:40
 
 ---
+
+## tasiyanc — post 8227
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم‌اکنون➖جنوب ایران➖هنگامه بمباران بی‌وقفه
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8226
+
+<div align="center"><img src="files/post_8226_tasiyanc_8226.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ضربه سختی در راه است
+خواهیم دید چه میشود🤣
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 پیت هگست: کنترل تنگه هرمز دست ایران نیست
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8224
 
@@ -148,31 +175,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 حملات موشکی سپاه آغاز شد
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 سازمان ملل دیگه خیلییییییی نگران شدیم
-</div>
-
-## tasiyanc — post 8203
-
-<div align="center"><img src="files/post_8203_tasiyanc_8203.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨وضعیت آسمان ایران هم اکنون
-
-@Tasiyanc 
-⭐️
 </div>
 

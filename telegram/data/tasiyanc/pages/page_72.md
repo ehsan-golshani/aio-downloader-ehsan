@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/04/27 09:30
+📅 آخرین بروزرسانی: 1405/04/27 11:40
 
 ---
+
+## tasiyanc — post 5995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروکسی ۱
+پروکسی ۲
+پروکسی ۳
+پروکسی ۴
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور جدید با متد جدید ساعت ۸
+</div>
+
+## tasiyanc — post 5988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حتی ماه هم داخل خرداد مودی شده 😂
+خودمم خردادی ام ❤️❤️
+</div>
 
 ## tasiyanc — post 5987
 
@@ -142,28 +165,6 @@ https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 
 ## tasiyanc — post 5966
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Gold🥇Vip servers.npvt
-</div>
-
-## tasiyanc — post 5965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی - 🇫🇷
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5963
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ npv سرعت بالا (تست)
-@Tasiyanc
-</div>
-
-## tasiyanc — post 5960
-
-<div align="center"><img src="files/post_5960_tasiyanc_5960.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Gold🥇Vip servers.npvt

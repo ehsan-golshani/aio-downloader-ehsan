@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/04/27 09:30
+📅 آخرین بروزرسانی: 1405/04/27 11:40
 
 ---
+
+## tasiyanc — post 6404
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتا داره بگ* می‌ره اختلال رو همراه اول
+</div>
+
+## tasiyanc — post 6403
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6402
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 📱
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6401
 
@@ -155,48 +196,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد T.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6374
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد
-T.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6373
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور   سرعتی پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
 </div>
 

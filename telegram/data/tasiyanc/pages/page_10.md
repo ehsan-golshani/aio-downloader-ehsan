@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/04/27 09:30
+📅 آخرین بروزرسانی: 1405/04/27 11:40
 
 ---
+
+## tasiyanc — post 8085
+
+<div align="center"><img src="files/post_8085_tasiyanc_8085.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جدول خاموشی مناطق مختلف تهران منتشر شد بفرستید به آشنا هاتون مطلع شن
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8084
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8079
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری از حال‌وش : آمریکا امشب به تیپ 388 ارتش تو بمپورِ سیستان و بلوچستان حمله کرد! شدت انفجارها به حدی بوده که 10 نفر درجا کشته و بیشتر از 15 نفر زخمی شدن که حال دو نفرشون وخیمه. طبق گفته حال وش، آمریکا امشب به آسایشگاه سربازها هم حمله کرده که تعدادی از سربازها…
+</div>
 
 ## tasiyanc — post 8078
 
@@ -235,52 +275,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⏺نیروی دریایی آمریکا اعلام کرد از فردا ساعت ٨ شب به وقت گرینویچ (٢٣:٣٠ به وقت ایران) محاصره دریایی دوباره آغاز میشه. @TasiyanProxy✅
-</div>
-
-## tasiyanc — post 8016
-
-<div align="center"><video src="files/post_8016_tasiyanc_8016.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8016_tasiyanc_8016.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴موج جدید حملات گروهك تروریستی حوثی ها به عربستان
-@tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا دقایقی دیگه پرزیدنت ترامپ سخنرانی مهمی در کاخ سفید خواهد داشت
-@Tasiyanc ⭐️
 </div>
 

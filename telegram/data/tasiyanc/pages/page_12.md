@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/27 09:30
+📅 آخرین بروزرسانی: 1405/04/27 11:40
 
 ---
+
+## tasiyanc — post 7986
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7985
+
+<div align="center"><img src="files/post_7985_tasiyanc_7985.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+A true friend of the Iranian people, may your soul rest in peace. You will always be remembered, dear Senator Graham 🖤
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7981
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ساعاتی پیش میچ مک‌کانل نزدیک به ترامپ و مخالف ج ا، یکی دیگه از سناتورهای جمهوری‌خواه آمریکایی بر اثر عارضه قلبی راهی بیمارستان شد. @TasiyanProxy
+⭐️
+</div>
 
 ## tasiyanc — post 7977
 
@@ -209,38 +250,6 @@ Change the background behind those two people with white curtains. With hugging 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ‏جوری که این مدت گذشت:
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7936
-
-<div align="center"><img src="files/post_7936_tasiyanc_7936.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همین گنده گوزیا بگاتون داد
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7935
-
-<div align="center"><img src="files/post_7935_tasiyanc_7935.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نوشته بود پدره واقعا باباست، مادره هم واقعا مامانه، بچه‌ها هم واقعا بچه‌ان
-
-اینم عکس خانوادگی آتلیه ایشون😭😭😭
-راستی پدر
-چپی مادر
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حس میکنم خیلی زود اسرائیل ترامپ رو ترور میکنه 😟
 
 @Tasiyanc✅
 </div>

@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/04/27 09:30
+📅 آخرین بروزرسانی: 1405/04/27 11:40
 
 ---
+
+## tasiyanc — post 6427
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST⚡TASIYAN🚀.npvt
+</div>
+
+## tasiyanc — post 6426
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون سپاه :
+آغاز عملیات نصر 🚀
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6425
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه مقدار نقض نمک آتش بسه
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6424
 
@@ -160,47 +181,6 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 </div>
 
 ## tasiyanc — post 6405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6404
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتا داره بگ* می‌ره اختلال رو همراه اول
-</div>
-
-## tasiyanc — post 6403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور   سرعتی پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6402
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد   👑

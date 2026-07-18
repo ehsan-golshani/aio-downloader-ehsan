@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/04/27 09:28
+📅 آخرین بروزرسانی: 1405/04/27 11:39
 
 ---
+
+## ProxyMTProto — post 48004
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: yours.nolags.pw
+Port: 443
+Secret: ddaed3f129a293bdfc23d67204b50bbf87
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48003
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ge.nowabst.net
+Port: 853
+Secret: eefdf6175e50069c01bd22d786534aa2b26164732e78352e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 15
+Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48001
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 51.250.69.99
+Port: 443
+Secret: eea20cccd3366ea459a8057d24b1202153617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48000
 
@@ -145,42 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e63
 Server: proxy5.arixo.shop
 Port: 443
 Secret: ee2d3817c6b2bf469fb5064e6cb4b19790617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47984
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 15.chunkycorp.shop
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47983
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rec.nolags.pw
-Port: 443
-Secret: dd0603553657b3f54b6bff0d3759e8db1d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47982
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47981
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: feed.proxytg.live
-Port: 443
-Secret: ee7c1dc73472aff6b273c603d9713900d1666565642e70726f787974672e6c697665
 @ProxyMTProto
 </div>
 

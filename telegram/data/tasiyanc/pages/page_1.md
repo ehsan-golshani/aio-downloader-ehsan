@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/27 09:30
+📅 آخرین بروزرسانی: 1405/04/27 11:40
 
 ---
+
+## tasiyanc — post 8339
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 18 July، روز جهانی گوش دادن
+گوش دادن به آهنگ و چیزای دیگه مثل کسشرای رفیقته
+
+@Tasiyanc ✅| مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8335
+
+<div align="center"><img src="files/post_8335_tasiyanc_8335.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زیبایي کوههای مریخيِ چابهارِ زیبا
+
+پروکسی | پروکسی | پروکسی | پروکسی
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
+</div>
 
 ## tasiyanc — post 8324
 
@@ -141,46 +168,5 @@
 کانفیگ مخصوص نت ملی رو بگیرید
 
 دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8303
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-3سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید ⛓
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8302
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاطمه مهاجرانی، سخنگوی دولت:
-
-دولت پزشکیان تا پای جان کنار مردم خونگرم جنوبه و از صبر و ایستادگیشون تو دوران متشنج جنگی تشکر میکنه
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 کویت اعلام کرد که موشک‌های بالستیک و پهپادهای ایرانی را که وارد فضای هوایی این کشور شده بودند، رهگیری کرده است.
-
-@Tasiyanc ✅
 </div>
 

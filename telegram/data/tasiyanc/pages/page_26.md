@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/04/27 09:30
+📅 آخرین بروزرسانی: 1405/04/27 11:40
 
 ---
+
+## tasiyanc — post 7421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آفسایدددددددددد
+</div>
+
+## tasiyanc — post 7420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم بره وار
+</div>
+
+## tasiyanc — post 7419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گگگگگگگگگگگگگللللللللل ایران
+</div>
 
 ## tasiyanc — post 7418
 
@@ -155,49 +173,4 @@ FAST ⚡⚡🔥.npvt
  
 💘@Tasiyanc |  تاسیان اتصال امن
 </div>
-
-## tasiyanc — post 7390
-
-<div align="center"><video src="files/post_7390_tasiyanc_7390.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7390_tasiyanc_7390.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود مولتی SV
-
-4سرور سرعتی 
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
- 
-💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7389
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ نت مود 
-📱
-
-سرور سرعتی مناسب وب‌گردی و ..⚡
-
-آموزش اتصال 
-⛓
-@Tasiyanc 
-💠
-</div>
-
-## tasiyanc — post 7381
 
