@@ -1,8 +1,83 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/04/28 02:50
+📅 آخرین بروزرسانی: 1405/04/28 03:50
 
 ---
+
+## tasiyanc — post 6956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ دارک تونل 🌟
+
+حجم نامحدود - سرعتی 🚀
+
+تست شده رو تمام نت ها ✅
+
+دانلود Dark Tunnel  🕹
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6955
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ Dark Tunnel 🌟 میزارم براتون اول از همه برنامه دارک تونل رو نصب کنین از پلی استور https://play.google.com/store/apps/details?id=net.darktunnel.app @Tasiyanc
+</div>
+
+## tasiyanc — post 6954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc🇫🇷.dark
+</div>
+
+## tasiyanc — post 6953
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ دارک تونل 🌟
+
+حجم نامحدود - سرعتی 🚀
+
+تست شده رو تمام نت ها ✅
+
+دانلود Dark Tunnel 🕹
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ Dark Tunnel 🌟 میزارم براتون اول از همه برنامه دارک تونل رو نصب کنین از پلی استور https://play.google.com/store/apps/details?id=net.darktunnel.app @Tasiyanc
+</div>
+
+## tasiyanc — post 6951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ Dark Tunnel 🌟 میزارم براتون
+اول از همه برنامه دارک تونل رو نصب کنین از پلی استور
+https://play.google.com/store/apps/details?id=net.darktunnel.app
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 6950
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب خب دست پر اومدیم
+</div>
+
+## tasiyanc — post 6949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنا چ‌کم شده
+</div>
+
+## tasiyanc — post 6947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تست کنید
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 6946
 
@@ -118,93 +193,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حالتون خوبه قربونتون برم من 🥹؟
-</div>
-
-## tasiyanc — post 6934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی تست شده  🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسنیم
-لحظاتی دیگر مقامات راجب توافق با مردم صحبت خواهند کرد
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت هر تتر 💎 164000
-</div>
-
-## tasiyanc — post 6931
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️ ترامپ: توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم! من بدینوسیله اجازه کامل بازگشایی تنگه هرمز را می‌دهم و همزمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دارم. کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید…
-</div>
-
-## tasiyanc — post 6930
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️ ترامپ:
-
-توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم!
-
-من بدینوسیله اجازه کامل بازگشایی تنگه هرمز را می‌دهم و همزمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دارم.
-
-کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد!
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6929
-
-<div align="center"><img src="files/post_6929_tasiyanc_6929.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زیرنویس شبکه خبر :
-توافق با امریکا را انجام شد
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6927
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نخست‌وزیر پاکستان اعلام کرد:
-مراسم امضای رسمی این توافق روز جمعه 19 ژوئن در سوئیس برگزار خواهد شد.
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسمیییییییییییی
-توافق امضا شد
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 6925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk
-بیاید گپمون (صحبت)
 </div>
 

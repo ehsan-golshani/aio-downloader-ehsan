@@ -1,8 +1,106 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/04/28 02:50
+📅 آخرین بروزرسانی: 1405/04/28 03:50
 
 ---
+
+## tasiyanc — post 6366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ❤️
+</div>
+
+## tasiyanc — post 6365
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🔝
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 🍏
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6364
+
+<div align="center"><img src="files/post_6364_tasiyanc_6364.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡All Operators ⚡.npvt
+</div>
+
+## tasiyanc — post 6362
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡All Operators ⚡.npvt
+</div>
+
+## tasiyanc — post 6361
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+4سرور   سرعتی پرمیوم 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
+
+دانلود  NPV tunnel  🌐
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6360
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Speed ⚡ One.npvt
+</div>
+
+## tasiyanc — post 6359
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+5سرور   سرعتی تست شده با سامانتل🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
+
+دانلود  NPV tunnel  🌐
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6358
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی ⚡ sv 3.npvt
+</div>
+
+## tasiyanc — post 6357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۳سرور   سرعتی تست شده با همراه 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
+
+دانلود  NPV tunnel  🌐
+
+😬Password :″ @Tasiyanc  ″
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6356
 
@@ -100,111 +198,5 @@ Join As @Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FAST @Tasiyanc servers.txt
-</div>
-
-## tasiyanc — post 6344
-
-<div align="center"><img src="files/post_6344_tasiyanc_6344.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST @Tasiyanc servers.txt
-</div>
-
-## tasiyanc — post 6343
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪼 اختصاصی تاسیان 👑
-
-85 کانفیگ Fast پروتکل Trojan ⚡
-
-بریزید ویتوباکس یا ویتوری پینگ بگیرید وصل شید 💚
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب تو راهه
-</div>
-
-## tasiyanc — post 6341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی کلاینت جدید VPN ساعت 18 🐾
-</div>
-
-## tasiyanc — post 6339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست کاربردی
-⚡️ دانلودرهای تلگرامی
-
-با این بات‌ها می‌تونید لینک ویدیو یا پست از شبکه‌های مختلف رو بفرستید و فایل رو با کیفیت‌ها و فرمت‌های مختلف دانلود کنید؛ حتی تبدیل به فایل صوتی هم انجام میدن 🎧
-
-💬 اینستاگرام — استوری & ریلز
-📹 تیک‌تاک — ویدیو بدون واترمارک
-📹 یوتیوب — ویدیو، Shorts و فایل صوتی
-💬 ایکس (توییتر) — عکس و ویدیو
-📍 پینترست — عکس و ویدیو
-💬 فیسبوک — ویدیو
-📱 ردیت — عکس و ویدیو
-
-Robot's 🤖
-@MegaSaverBot
-@YoutubeDownloader_l_Bot
-@govd_bot
-@downloadlyio_bot
-@MultiSaverXbot
-@catdlbot
-@InstaMediaDownloaderBot
-@download_it_bot
-@instagramersbot
-@YoutubeDoBot
-@MrDragar_AudioBot
-@SaveMedia_bot
-@instadowbot
-@FullSavebot
-@tikloadtokbot
-@PicTubeBot
-Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6337
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6336
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبید چخبرا ؟
-</div>
-
-## tasiyanc — post 6334
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور   سرعتی  🇮🇹 🇩🇪 🇳🇱
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🚀
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دولت شیرکاکائوئیا (پاکستانی ها) اینترنت بین الملل رو بخاطر فراخوان اعتراضی بستند
 </div>
 
