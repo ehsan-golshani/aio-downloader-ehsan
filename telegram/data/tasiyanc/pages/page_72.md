@@ -1,8 +1,112 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/04/28 23:34
+📅 آخرین بروزرسانی: 1405/04/29 00:40
 
 ---
+
+## tasiyanc — post 6086
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنا بالا باشه❤️
+</div>
+
+## tasiyanc — post 6085
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی برای وای‌فای تا دقایقی دیگه میزارم به درخواست اعضای تاسیان
+</div>
+
+## tasiyanc — post 6084
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+۴سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6082
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀🇮🇹🇳🇱 سرعتی - VIP.npvt
+</div>
+
+## tasiyanc — post 6081
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+۲سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک سرویس خریداری کردید هر ۲۴ ساعت کانفیگ ها آپدیت میشن برید ساب لینکتون و کانفیگ های جدید رو بردارید
+</div>
+
+## tasiyanc — post 6077
+
+<div align="center"><img src="files/post_6077_tasiyanc_6077.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠آموزش اتصال با فیلترشکن امن Windscribe 🔐
+
+🔢 با جی‌میل یا ایمیل فیک یه اکانت ایجاد کنین
+
+🔢وارد setting بشین
+Connection →Anti Censorship
+حتما گزینه Protocol Tweaks رو Enable باشه و پایین دو تا گزینه به اسم Iran مشاهده خواهید کرد یکیشو انتخاب کنین
+🔢هر دو پروتکل طبق تستی ک انجام دادم کار کرد برام ، روی همراه اول روی ایرانسل هم کار میده تست شده
+UDP 53 & TCP 80 TCP 8080
+
+دانلود از طریق AppStore 📱
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+150 گیگ تو گپ تاسیان کانفیگ ویتوری
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6075
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FastVip⚡.npvt
+</div>
+
+## tasiyanc — post 6074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی همه اپراتورا🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6073
 
@@ -112,66 +216,4 @@ Hot Servers 🔥🌶️.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۵ مین دیگه میزارم
 </div>
-
-## tasiyanc — post 6054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اماده باشین
-</div>
-
-## tasiyanc — post 6053
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه چیزای دستم رسیده نمی‌دونم بزارم نزارم🤣
-</div>
-
-## tasiyanc — post 6052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عکس و ..؟
-</div>
-
-## tasiyanc — post 6051
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب بریم به آدرس و شماره تلفن یا چیزای دیگه بدم؟
-</div>
-
-## tasiyanc — post 6050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فایل تمام پیام‌های تلگرامش
-
-@ineedknife
-</div>
-
-## tasiyanc — post 6048
-
-<div align="center"><img src="files/post_6048_tasiyanc_6048.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6047
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نزنه رسانه ای میکنم
-</div>
-
-## tasiyanc — post 6046
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکم صبر میکنم دیل آک بزنه
-</div>
-
-## tasiyanc — post 6045
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امین زحمت کشید شماره و آدرس و شماره بابای جاکشش درآورده
-</div>
-
-## tasiyanc — post 6044
-
-<div align="center"><img src="files/post_6044_tasiyanc_6044.jpg" alt="Photo"></div>
 

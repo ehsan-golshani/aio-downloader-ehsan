@@ -1,8 +1,101 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/04/28 23:34
+📅 آخرین بروزرسانی: 1405/04/29 00:40
 
 ---
+
+## tasiyanc — post 6769
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با این شرایطی که هرشب داریم صدای بلند توافق رو میشنویم احتمال قطعی نت بشدت زیاده
+برای‌همین براتون کانفینگ‌اختصاصی شارژ کردیم داخل بات  که هر فرد  کانفینگ‌ خودشک اختصاصی بگیره❤️
+
+دیگه پیشگیری بهتر از درمانه بوس
+
+دریافت کانفنینگ‌اختصاصی〽️
+</div>
+
+## tasiyanc — post 6768
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6767
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرمنده ادمین تبادل پستهارو اشتباهی زده ❤️
+</div>
+
+## tasiyanc — post 6762
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان ( خانواده بزرگ من) ❤️
+</div>
+
+## tasiyanc — post 6732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VİP - ⛓️OMEGA ⚡.npvt
+</div>
+
+## tasiyanc — post 6731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6730
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️وزیر انرژی آمریکا:
+
+🔻  ممکن است به عنوان بخشی از امتیازاتی که ما ارائه می‌دهیم، بخشی از تحریم‌های ایران لغو شود
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ايران از زمان قاجار تا قبل پزشكيان ۵ تا جنگ داشته از پزشكيان به بعد شده يه روز در ميون
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6728
+
+<div align="center"><img src="files/post_6728_tasiyanc_6728.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچی سلامتی هنوز آتش بسه
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6727
+
+<div align="center"><img src="files/post_6727_tasiyanc_6727.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی یه شیر تو ایران به دنیا میاد 😈
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6726
 
@@ -103,94 +196,5 @@ INFERNO ⚡ vip.npvt
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6716
-
-<div align="center"><img src="files/post_6716_tasiyanc_6716.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴شکیرا در جام جهانی 2006 & 2010 & 2014 & 2026
-
-‏شکیرا حتی از پیکه هم تو فوتبال موفق تره 🤣
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6715
-
-<div align="center"><img src="files/post_6715_tasiyanc_6715.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز جهانی دوس داشتنو بهتون تبریک میگیم
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6714
-
-<div align="center"><img src="files/post_6714_tasiyanc_6714.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسی و رونالدو اگه ایران بدنیا میومدن :
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 12 June ، روز جهانی تشکر از آدمیه که زندگی رو برات قشنگتر کرده.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6711
-
-<div align="center"><img src="files/post_6711_tasiyanc_6711.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تجمعات شبانه
-گشت ارشاد به چاک سینه توجهی نداره اگه بمالید
-@tasiyanc✅
-</div>
-
-## tasiyanc — post 6710
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن خنده بازه
-</div>
-
-## tasiyanc — post 6709
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺قوه قضایی جمهوری اسلامی حکم اعدام نتانیاهو و ترامپ صادر کرد.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6708
-
-<div align="center"><img src="files/post_6708_tasiyanc_6708.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Configs⚡🚀.txt
-</div>
-
-## tasiyanc — post 6707
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی تاسیان 🆕
-
-✅50 کانفیگ تست شده سرعتی
-
-مناسب وب‌گردی ، استریم ، اینستاگرام 🦦
-
-فایل Txt رو باز کنین کانفیگ رو تو آپ 🔐 & 🔐 & 🔐 بزنید پینگ بگیرید وصل شید  🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگای رایگان مارو تو بله روبیکا به اسم نامحدود ۶۰۰ تومن میفروشن 😐
-تاسیان تو هیچ اپ ایرانی فعالیتی نداره و فروشی ام ندارع تا اطلاع ثانوی،بخدا دیگه خستم شدم انقد گفتم مراقب باشید
 </div>
 

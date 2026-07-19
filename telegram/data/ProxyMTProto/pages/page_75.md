@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/04/28 23:32
+📅 آخرین بروزرسانی: 1405/04/29 00:38
 
 ---
+
+## ProxyMTProto — post 47781
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: kut12.mtproxygram.pro
+Port: 853
+Secret: eea3ca58d8b2b643f3ad10ebc94303ab8562726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47780
 
@@ -177,15 +186,6 @@ Secret: ee1c88677acf461e09e68f4ff0cef5724a617669746f2e7275
 Server: mtp7.sosproxy.space
 Port: 443
 Secret: ee77eea55483cdb42d81ab76a5ceddc28d64726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47761
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 150.241.75.150
-Port: 443
-Secret: ee636c6f7564666c6172652e636f6dcb
 @ProxyMTProto
 </div>
 
