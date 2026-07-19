@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/28 07:37
+📅 آخرین بروزرسانی: 1405/04/28 10:18
 
 ---
+
+## tasiyanc — post 8078
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری از حال‌وش :
+آمریکا امشب به تیپ 388 ارتش تو بمپورِ سیستان و بلوچستان حمله کرد!
+شدت انفجارها به حدی بوده که 10 نفر درجا کشته و بیشتر از 15 نفر زخمی شدن که حال دو نفرشون وخیمه.
+طبق گفته حال وش، آمریکا امشب به آسایشگاه سربازها هم حمله کرده که تعدادی از سربازها موقع استراحت، کشته و زخمی شدن.. 🖤
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8073
+
+<div align="center"><img src="files/post_8073_tasiyanc_8073.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 طبق مطالعات، دخترا عاشق اینن، اون لحظه‌ای که ازشون خوشت اومدو براشون تعریف کنی.
+
+مثلا دو تایی خوابیدین رو بالشت، یهویی میگه چیشد از من خوشت اومد؟
+این لحظه باید وقت بذاری و با ذوق و شوق براشون تعریف کنی که چیشد ازشون خوشت اومد.
+صد بارم تعریف کنی بازم خوششون میاد، قشنگ جزئیات ظاهری و رفتاری رو کامل بگو که از چه چیزی‌شون خوشت اومد.
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8072
 
@@ -258,26 +281,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تا دقایقی دیگه پرزیدنت ترامپ سخنرانی مهمی در کاخ سفید خواهد داشت
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8013
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جام جهانی اگه ایران برگزار می‌شد این ویدیو ده میلیون بازدید خورده :
-
-
-ثانیه به ثانیه‌اش عالیه😂
-
-@Tasiyanc ⭐️ | بانك کانفیگ
-</div>
-
-## tasiyanc — post 8011
-
-<div align="center"><img src="files/post_8011_tasiyanc_8011.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ارتش اسراییل تقه محکمی به کفر تبنیت جنوب لبنان زد
 @Tasiyanc ⭐️
 </div>
 

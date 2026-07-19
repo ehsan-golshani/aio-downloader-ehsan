@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/04/28 07:37
+📅 آخرین بروزرسانی: 1405/04/28 10:18
 
 ---
+
+## tasiyanc — post 7334
+
+<div align="center"><video src="files/post_7334_tasiyanc_7334.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7334_tasiyanc_7334.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت
+
+3سرور سرعتی ⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 💘
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 7333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۰٪ کانفیگای وایرگارد اندپوینتا اختلال دارن ، تا زمانیکه اندپوینت مناسب پیدا کنم تا اتصالتون پایدار باشه نمیزاریم
+</div>
 
 ## tasiyanc — post 7332
 
@@ -206,24 +235,4 @@
 </div>
 
 ## tasiyanc — post 7300
-
-## tasiyanc — post 7299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-WG🍓@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 7297
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
-</div>
 

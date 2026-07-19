@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/04/28 07:37
+📅 آخرین بروزرسانی: 1405/04/28 10:18
 
 ---
+
+## tasiyanc — post 5844
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هرچی فرستادی وصلع
+</div>
+
+## tasiyanc — post 5822
+
+<div align="center"><img src="files/post_5822_tasiyanc_5822.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+34k ⚡ Fast 🔥.npvt
+</div>
 
 ## tasiyanc — post 5821
 
@@ -217,28 +231,5 @@ GM TASIYAN 💝
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5801
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن چقد زیاده 😐
-</div>
-
-## tasiyanc — post 5800
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  ۲ سرور سرعتی  اختصاصی تاسیان  📱
-
-✅ تست شده روی همه اپراتورا ✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود اپلیکیشن NPV tunnel  ⏩
-
-نحوه اتصال به سرورهای تاسیان ⏩
-
-
-🦁 @Tasiyanc ✅
 </div>
 

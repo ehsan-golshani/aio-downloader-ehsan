@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/04/28 07:37
+📅 آخرین بروزرسانی: 1405/04/28 10:18
 
 ---
+
+## tasiyanc — post 7932
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#معرفی_سایت
+🔄✅بهترین سایت های کاریابی ایرانی⬇️
+
+1. www.karlancer.com
+2. www.iranjob.ir
+3. www.jobvision.io
+4. www.karlib.com
+5. www.jobinja.ir
+6. www.banikar.com
+7. www.karboom.io
+8. www.e-estekhdam.com
+9. www.infojob.ir
+10. www.iranestekhdam.ir
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7931
+
+<div align="center"><img src="files/post_7931_tasiyanc_7931.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو کدومی؟خودم 15
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7930
 
@@ -214,33 +244,6 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔺امروز 11 July، روز شاد کردن آدم‌های تنهاست.
 
-
-@Tasiyanc ⭐️
-#Navid
-</div>
-
-## tasiyanc — post 7893
-
-<div align="center"><img src="files/post_7893_tasiyanc_7893.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نقش پدر در زندگی:
-
-روح تمام پدر های آسمانی شاد🖤
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7892
-
-<div align="center"><video src="files/post_7892_tasiyanc_7892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7892_tasiyanc_7892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعتان چووونه رفته نوکِ چرخ و فلک داره تبلیغ بالشت و پتو میکنه😐
-
-بالشتش هم اون وسط پرت شد پایین، میگه عیبی نداره یکم ترسو بود...
 
 @Tasiyanc ⭐️
 #Navid

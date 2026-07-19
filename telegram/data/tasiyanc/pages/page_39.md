@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/04/28 07:37
+📅 آخرین بروزرسانی: 1405/04/28 10:18
 
 ---
+
+## tasiyanc — post 7002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+۲ سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7001
 
 ## tasiyanc — post 6996
 
@@ -253,60 +272,6 @@ T.me/Tasiyanc
 ⏩
 
 T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6960
-
-<div align="center"><video src="files/post_6960_tasiyanc_6960.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6960_tasiyanc_6960.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ دارک تانل 
-🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها 
-✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک 
-⏩
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6959
-
-<div align="center"><video src="files/post_6959_tasiyanc_6959.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6959_tasiyanc_6959.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-۲سرور سرعتی تست شده  
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
 ✅
 </div>
 
