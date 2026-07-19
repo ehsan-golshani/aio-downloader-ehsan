@@ -1,8 +1,72 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/04/28 12:36
+📅 آخرین بروزرسانی: 1405/04/28 14:19
 
 ---
+
+## tasiyanc — post 7179
+
+<div align="center"><video src="files/post_7179_tasiyanc_7179.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7179_tasiyanc_7179.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV
+
+2سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود
+⬇️ وب‌گردی🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GN⚡⚡🇩🇪FST🇮🇹.npvt
+</div>
+
+## tasiyanc — post 7175
+
+<div align="center"><video src="files/post_7175_tasiyanc_7175.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7175_tasiyanc_7175.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV
+
+3سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حملات شدید توپخانه ای هم اکنون به نبطیه و تلاش اسرائیل برای تصرف تپه علی طاهر ، و مقاومت حزب الله
+</div>
 
 ## tasiyanc — post 7173
 
@@ -206,45 +270,5 @@ Game DNS
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مال ما شد وظیفه مال بعضیا شده لطف
-</div>
-
-## tasiyanc — post 7138
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️ تحریم‌های نفتی ایران لغو شد ( طی توافق نامه)
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️ اسماعیل بقایی سخنگوی وزارت خارجه : همین الان ریاست جمهوری ایران و آمریکا توافق نامه را بصورت آنلاین امضاء کردند
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇹🇷⛓️⚡️VIP -IST.npvt
-</div>
-
-## tasiyanc — post 7134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود لوکیشن🇹🇷
-
-4سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ➡️
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
