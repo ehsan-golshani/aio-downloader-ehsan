@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/04/28 15:22
+📅 آخرین بروزرسانی: 1405/04/28 16:19
 
 ---
+
+## tasiyanc — post 6357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۳سرور   سرعتی تست شده با همراه 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
+
+دانلود  NPV tunnel  🌐
+
+😬Password :″ @Tasiyanc  ″
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6356
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+گپمون هنو ۴ کا نشده 🗽😐 جوین شید عشقا
+</div>
 
 ## tasiyanc — post 6355
 
@@ -193,17 +216,5 @@ Join As @Tasiyanc ✅
 Password : @Tasiyanc  ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دولت شیرکاکائوئیا (پاکستانی ها) اینترنت بین الملل رو بخاطر فراخوان اعتراضی بستند
-</div>
-
-## tasiyanc — post 6332
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حال ندارید ریکشن بزنید بریم بخوابیم
 </div>
 

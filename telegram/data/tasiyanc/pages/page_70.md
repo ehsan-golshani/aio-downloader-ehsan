@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/04/28 15:22
+📅 آخرین بروزرسانی: 1405/04/28 16:19
 
 ---
+
+## tasiyanc — post 6108
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ وایرگارد میزارم تست کنین
+
+برنامشو دان کنین
+
+دانلود Wg tunnel
+https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunnel
+</div>
+
+## tasiyanc — post 6107
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪🚀 رایتل.npvt
+</div>
 
 ## tasiyanc — post 6106
 
@@ -159,28 +176,6 @@ Channel@Tasiyanc.ovpn
 📶  اختصاصی تاسیان  متد جدید
 
 ۴سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6082
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀🇮🇹🇳🇱 سرعتی - VIP.npvt
-</div>
-
-## tasiyanc — post 6081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-۲سرور  سرعتی🚀
 
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
 
