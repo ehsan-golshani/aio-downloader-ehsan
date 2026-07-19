@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/04/28 14:17
+📅 آخرین بروزرسانی: 1405/04/28 15:20
 
 ---
+
+## ProxyMTProto — post 47863
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rocket.flowaccess.site
+Port: 443
+Secret: ee03d3d1b9bda832390669bc06167720d8726f636b65742e666c6f776163636573732e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47862
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47861
 
@@ -163,24 +181,6 @@ Secret: eec799e0af5c33d8ffc2310d4f0154379c626c617a652e666c6f776163636573732e7369
 Server: Unknown
 Port: 9965
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47843
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: nova.flowstreamhub.site
-Port: 443
-Secret: eeb1a90b2bd080b288badd320bf824277c6e6f76612e666c6f7773747265616d6875622e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47842
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: dd79e7010200010007f0030386e24c3add
 @ProxyMTProto
 </div>
 

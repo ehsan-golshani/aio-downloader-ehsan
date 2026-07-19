@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/04/28 14:19
+📅 آخرین بروزرسانی: 1405/04/28 15:22
 
 ---
+
+## tasiyanc — post 7182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌تنگه هرمز بدلیل کرم ریختن اسرائیل و حمله به مناطق نظامی و غیر نظامی لبنان بسته شد
+</div>
+
+## tasiyanc — post 7181
+
+<div align="center"><img src="files/post_7181_tasiyanc_7181.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Milano 🇮🇹🔥.npvt
+</div>
 
 ## tasiyanc — post 7179
 
@@ -256,19 +270,5 @@ Game DNS
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7141
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میدونی چیه ؟ لطف بیش از حد انجام بدی میشه وظیفه
-و همه بعد یه مدت میگن طرف کسخله ولت میکنن بدون اینکه به یاد بیارن چیکارا کردی
-با پوست استخون دارم تجربه میکنم همین الان ، فقط میشه تاسف خورد
-</div>
-
-## tasiyanc — post 7140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مال ما شد وظیفه مال بعضیا شده لطف
 </div>
 

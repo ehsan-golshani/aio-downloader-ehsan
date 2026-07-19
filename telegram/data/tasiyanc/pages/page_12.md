@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/28 14:19
+📅 آخرین بروزرسانی: 1405/04/28 15:22
 
 ---
+
+## tasiyanc — post 8089
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تتر 190 - ریدید تو زندگی ما
+</div>
+
+## tasiyanc — post 8088
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ یک مقام ارشد آمریکایی : جمهوری اسلامی از توافق با آمریکا رسما خارج شد
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8087
 
@@ -202,38 +216,5 @@
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8049
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیک نیوز چقد زیاد شده 😐
-خبر هارو از اینجا دنبال کنین ، تبلیغ نیست چنل خودمونه
-📶⭕️@TasiyanProxy
-⭕️📶@TasiyanProxy
-</div>
-
-## tasiyanc — post 8045
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 
