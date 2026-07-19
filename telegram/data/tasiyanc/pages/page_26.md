@@ -1,8 +1,83 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/04/28 20:07
+📅 آخرین بروزرسانی: 1405/04/28 22:19
 
 ---
+
+## tasiyanc — post 7527
+
+<div align="center"><video src="files/post_7527_tasiyanc_7527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7527_tasiyanc_7527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+۳ سرور  سرعتی پرمیوم 
+⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 
+🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7526
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیما:
+اگر ترامپ را می‌کشتیم؛ آمریکا با ما مذاکره می‌کرد؟!
+</div>
+
+## tasiyanc — post 7525
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همه دوستانی که اندروید دارن نت مود دانلود کنن بیشتر میزارم از امروز همراه نپستر
+</div>
+
+## tasiyanc — post 7524
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇦🇪@Tasiyanc ⚡️.nm
+</div>
+
+## tasiyanc — post 7520
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+4 سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7519
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+6سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+Password :  @Tasiyanc ❤️
+
+ ✅@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7518
 
@@ -160,45 +235,5 @@ T.me/Tasiyanc ✅
 💘 دانلود دوبله فیلم بدون سانسور 💘
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 7481
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگر خاک ایران برفتد ز دست
-هنوز آخرین پر سیمرغ هست
-بگیرید ، بگیرید تیر و کمان را به دست
-جهنم بسازید بر هرچه پست .
-</div>
-
-## tasiyanc — post 7480
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ESPRESSO 🔥☕.npvt
-</div>
-
-## tasiyanc — post 7478
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توهین مجدد میثاقی به مردم ایران:
-کسایی که برای خوشحالی گل شجاع کلیپ می‌سازن همون جای خالی ان!
-</div>
-
-## tasiyanc — post 7477
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌هم اکنون شلیک موشک از ایران به سمت اردن
-</div>
-
-## tasiyanc — post 7476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌هم اکنون شلیک موشک از ایران به سمت اردن
-</div>
-
-## tasiyanc — post 7475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️مذاکرات تهران و واشینگتن ک قرار بود این هفته برگزار بشه لغو شد
 </div>
 

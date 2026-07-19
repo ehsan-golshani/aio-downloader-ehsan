@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/28 20:07
+📅 آخرین بروزرسانی: 1405/04/28 22:19
 
 ---
+
+## tasiyanc — post 7416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدایی گل خوبی زد رامین
+</div>
+
+## tasiyanc — post 7415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گلللللللللللللللل رامین
+</div>
+
+## tasiyanc — post 7414
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پنالتی رو خراب می‌کنه طارمی
+</div>
+
+## tasiyanc — post 7413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پنالتیییی ایران
+</div>
+
+## tasiyanc — post 7412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گلللللللللللللللللللل مصرررررر 🇪🇬
+</div>
+
+## tasiyanc — post 7411
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیدارید؟
+</div>
 
 ## tasiyanc — post 7409
 
@@ -169,74 +205,5 @@ FAST ⚡⚡🔥.npvt
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7377
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود سرور 🇩🇪
-
-4سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc | تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروفایل چنل عوض شد
-مرسی از آرمان موسس بانک خاورمیانه
-</div>
-
-## tasiyanc — post 7357
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ نپسترنت 
-🔐
-
-۴ سرور نامحدود سرعتی ⚡️
-
-آموزش اتصال 💘
-</div>
-
-## tasiyanc — post 7356
-
-<div align="center"><img src="files/post_7356_tasiyanc_7356.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ Summer Vip.npvt
-</div>
-
-## tasiyanc — post 7355
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆پخش زنده مسابقات جام جهانی 2026
-
-https://roxiestreams.su/soccer
-
-https://streamcorner.fyi/fifa-world-cup
-
-https://totalsportek.tips/football
-
-https://www.bintv.net
-
-https://soccerstreams.sbs
-
-https://strumyk.net
-سایت هایی که باز نمیشه رو باید با وی پی ان باز کنید
-💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7352
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Melody 🚀.npvt
 </div>
 
