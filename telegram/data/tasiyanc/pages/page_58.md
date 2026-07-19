@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/04/28 10:18
+📅 آخرین بروزرسانی: 1405/04/28 12:36
 
 ---
+
+## tasiyanc — post 6402
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 📱
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6401
 
@@ -182,21 +198,5 @@ T.me/TasiyanProxy
 😬Password :″  @Tasiyanc  ″
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
 </div>
 

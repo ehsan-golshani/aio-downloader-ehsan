@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/04/28 10:18
+📅 آخرین بروزرسانی: 1405/04/28 12:36
 
 ---
+
+## tasiyanc — post 6477
+
+<div align="center"><img src="files/post_6477_tasiyanc_6477.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+300 GB - 🇬🇧🇩🇪.npvt
+</div>
 
 ## tasiyanc — post 6476
 
@@ -208,11 +216,5 @@ new@Tasiyanc.ovpn
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6452
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-300 GB ⚡ VİP.npvt
 </div>
 

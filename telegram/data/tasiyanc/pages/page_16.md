@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/04/28 10:18
+📅 آخرین بروزرسانی: 1405/04/28 12:36
 
 ---
+
+## tasiyanc — post 7894
+
+<div align="center"><img src="files/post_7894_tasiyanc_7894.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺امروز 11 July، روز شاد کردن آدم‌های تنهاست.
+
+
+@Tasiyanc ⭐️
+#Navid
+</div>
 
 ## tasiyanc — post 7893
 
@@ -277,18 +289,5 @@
 
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7854
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ختم کلام
-
-از اونجایی ک رسالت ما وصل کردن مردم بود تو قطعیا و تو دوران وصل شدن اینترنت شاهد افت چنل و جذب نبودم خیلی چیزا ثابت شد برام ، پس لف و جذب مهم نیست برامون تو قطعی اینترنت، ما چنلو پرایوت خواهیم کرد عضو جدید نخواهیم پذیرفت و اونایی که الان کنارم هستن باید وصل باشن ❤️
-
-مجموعه تاسیان ❤️‍🔥
-
-آدرس پابلیک
-@Tasiyanc
 </div>
 

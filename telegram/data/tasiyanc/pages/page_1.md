@@ -1,12 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/28 10:18
+📅 آخرین بروزرسانی: 1405/04/28 12:36
 
 ---
 
-## tasiyanc — post 8392
+## tasiyanc — post 8396
 
-<div align="center"><a href="files/post_8392_[01]⚡@Tasiyanc .ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [01]⚡@Tasiyanc .ovpn</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[04]⚡@Tasiyanc.ovpn
+</div>
+
+## tasiyanc — post 8392
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی نامحدود OpenVpn 📶
@@ -188,16 +192,6 @@ IP
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨خبرگزرای CBS به نقل از مقام نظامی: حملات امشب دقایقی دیگر آغاز میشود و گستردگی بیشتری دارد
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8367
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌انفجار در سنندج
-
-۴انفجار در بندر عباس
 
 @Tasiyanc✅
 </div>

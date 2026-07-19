@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/04/28 10:18
+📅 آخرین بروزرسانی: 1405/04/28 12:36
 
 ---
+
+## tasiyanc — post 7751
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنظرتون جنگ تمام عیار میشه اسراییل ورود می‌کنه؟ یا آتش بس میشه تا صبح
+</div>
 
 ## tasiyanc — post 7750
 
@@ -152,17 +158,5 @@ VIP 🎯 @Tasiyanc.nm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چه وضع ریکشن زدنه
-</div>
-
-## tasiyanc — post 7713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال  ⛓
 </div>
 

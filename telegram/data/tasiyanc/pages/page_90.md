@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/04/28 10:18
+📅 آخرین بروزرسانی: 1405/04/28 12:36
 
 ---
+
+## tasiyanc — post 5565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+باز تاسیان پخت پز شروع کرد
+</div>
 
 ## tasiyanc — post 5564
 
@@ -280,11 +286,5 @@ vless://5b34187f-f811-58b1-7e68-3cc63df5df3b@meli.masterdadeh.ir:80?type=ws&host
 
 Join @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 5534
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال یک ساعتی رو پنل داشتیم بخاطر ارسال کانفیگ توسط دوستان به اپ های ایرانی آیپی ما فیلتر میشه و این مشکلات طبیعیه ، اختلال رفع شده و مثل همیشه وصلیم
 </div>
 

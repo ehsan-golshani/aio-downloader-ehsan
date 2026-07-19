@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/04/28 10:18
+📅 آخرین بروزرسانی: 1405/04/28 12:36
 
 ---
+
+## tasiyanc — post 8301
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 کویت اعلام کرد که موشک‌های بالستیک و پهپادهای ایرانی را که وارد فضای هوایی این کشور شده بودند، رهگیری کرده است.
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8300
 
@@ -149,17 +157,5 @@ JAVID SHAH 👑
 دستش چوبیه پس از خودشونه :)
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8278
-
-<div align="center"><video src="files/post_8278_tasiyanc_8278.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8278_tasiyanc_8278.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از کتاب تاریخ نسل ما خونهای بسیاری میچکه....😞💔
-
-@Tasiyanc ⭐️
 </div>
 
