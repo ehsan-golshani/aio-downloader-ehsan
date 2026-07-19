@@ -1,8 +1,119 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/04/29 00:40
+📅 آخرین بروزرسانی: 1405/04/29 01:48
 
 ---
+
+## tasiyanc — post 8433
+
+<div align="center"><img src="files/post_8433_tasiyanc_8433.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
+</div>
+
+## tasiyanc — post 8432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موقع قطعی خودتو بکشی ام رات نمیدم
+</div>
+
+## tasiyanc — post 8431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
+</div>
+
+## tasiyanc — post 8430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تموم شد بریم بازی کسشر رو ببینیم
+</div>
+
+## tasiyanc — post 8429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانوووووو شکیرا اومد
+</div>
+
+## tasiyanc — post 8428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این بیژن مرتضوی ما چی شد
+</div>
+
+## tasiyanc — post 8427
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه بازی کسشریه
+</div>
+
+## tasiyanc — post 8425
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داور خطای واضح روی اسپانیارو نمیگیره🤣
+</div>
+
+## tasiyanc — post 8424
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه آرژانتین از کون اورد
+</div>
+
+## tasiyanc — post 8423
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرزیدنت ترامپ کنار اینفانتینو امشب در استادیومه و قراره جام قهرمانی رو شخصا خودش به تیم قهرمان بده
+</div>
+
+## tasiyanc — post 8421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺سایت AparatSport فینال با گزارش عادل فردوسی پور هست
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆پخش زنده مسابقات جام جهانی 2026 https://roxiestreams.su/soccer https://streamcorner.fyi/fifa-world-cup https://totalsportek.tips/football https://www.bintv.net https://soccerstreams.sbs https://strumyk.net سایت هایی که باز نمیشه رو باید با وی پی ان…
+</div>
+
+## tasiyanc — post 8419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همه چی به کنار خوب این عربارو گاییدن🤣
+بی خایه های کودن
+</div>
+
+## tasiyanc — post 8418
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شبکه 13 اسرائیل: ترامپ پیامی به کشورهای خلیج ارسال کرد: «اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.» @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شبکه 13 اسرائیل: ترامپ پیامی به کشورهای خلیج ارسال کرد:
+
+«اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.»
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8415
+
+<div align="center"><video src="files/post_8415_tasiyanc_8415.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8415_tasiyanc_8415.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴🚨هدف قرار گرفتن مستقیم یک نیروگاه برق در کویت
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8413
 
@@ -44,167 +155,5 @@
 
 
 @Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8408
-
-<div align="center"><img src="files/post_8408_tasiyanc_8408.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آبادان، پنجاه‌سال پیش، ملقب به مروارید خاورمیانه.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8406
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04]⚡@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 8405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.138:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%E2%9A%A1%F0%9F%87%A9%F0%9F%87%AA
-
-Ip 🇩🇪 🇩🇪
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂 دریافت رسانه 👉
-</div>
-
-## tasiyanc — post 8400
-
-<div align="center"><img src="files/post_8400_tasiyanc_8400.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂
-
-دریافت رسانه 👉
-</div>
-
-## tasiyanc — post 8398
-
-<div align="center"><video src="files/post_8398_tasiyanc_8398.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8398_tasiyanc_8398.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔸توصیف عشق در یک جمله ...
-بفرست براش:)
-
-پروکسی | پروکسی
-
-
-@TASIYANC ✅
-#Nvd
-</div>
-
-## tasiyanc — post 8397
-
-<div align="center"><video src="files/post_8397_tasiyanc_8397.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8397_tasiyanc_8397.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو عشق ابدی ورژن اسپانیایی، یه پسره معتقد بود بالاخره عشق واقعیش رو پیدا کرده و عاشق هم دیگه ان که همون موقع سک* دختر رو با یه پسر دیگه پخش کردن .
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04]⚡@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 8392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون 📱
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8391
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر
-</div>
-
-## tasiyanc — post 8390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 
-🔐 
-🔐 FAST ⚡
-
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.142:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=185.137.157.142#%40Tasiyanc%20%E2%9A%A1
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%F0%9F%92%A5
-
-IP 
-🇩🇪
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8388
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 گزارش انفجار شدید در بوشهر
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8387
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 6 انفجار شدید در قشم @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8386
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 انفجار در سیریک
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8385
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 4 انفجار شدید در بندرعباس گزارش میشه
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8384
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 6 انفجار شدید در قشم
-
-@Tasiyanc ✅
 </div>
 

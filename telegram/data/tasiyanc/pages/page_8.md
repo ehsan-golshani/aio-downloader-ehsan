@@ -1,8 +1,174 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/29 00:40
+📅 آخرین بروزرسانی: 1405/04/29 01:48
 
 ---
+
+## tasiyanc — post 8262
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💪🚨 ترامپ:
+توافق اینقدر خوب پیش رفته که به زودی هزاران شهروند آمریکایی مهاجرت میکنن به ایران، منتها لباس نظامی تنشونه.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8259
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8258
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8257
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت تون چطوره؟
+</div>
+
+## tasiyanc — post 8255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+6سرور سرعتی پرمیوم متد جدید ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8252
+
+<div align="center"><img src="files/post_8252_tasiyanc_8252.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل
+فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️
+
+مدیریت مجموعه تاسیان
+</div>
+
+## tasiyanc — post 8249
+
+<div align="center"><img src="files/post_8249_tasiyanc_8249.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چی میشه گفت واقن به اینا :)
+
+کامنت آزاد ☺️
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8246
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+3سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8245
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلاااااااااار 195 😐
+</div>
+
+## tasiyanc — post 8244
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلاااااااااار 195 😐
+</div>
+
+## tasiyanc — post 8243
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش اعضا : اصفهان و استان های جنوبی اینترنت بشدت ضعیفه ،
+
+کامنت بزارید وضعیت نتتون چطوره
+</div>
+
+## tasiyanc — post 8242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨اخبار منتشر شده راجب قطعی اینترنت و دیتا سنترا فعلا کذبه نگران نباشید
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8241
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک نفت کش سپاهی توسط کماندو های امریکا به اسارت گرفته شد.
+
+با اعلام سنت‌کام تمام خدمه نفتکش سپاهی توسط تفنگداران آمریکایی بازداشت شدند
+
+@Tasiyanc
+✅
+</div>
+
+## tasiyanc — post 8240
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رئیس مرکز روابط عمومی وزارت بهداشت: تا ساعت ۶:۳۰صبح ۲۶ تیر، شمار مصدومین حملات آمریکا از ۴۰۰ نفر عبور و ۳۸ نفر هموطن جانشان را از دست دادند
+
+@Tasiyanc
+✅
+</div>
+
+## tasiyanc — post 8239
+
+<div align="center"><video src="files/post_8239_tasiyanc_8239.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8239_tasiyanc_8239.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی که از یکی از سرباز های تیپ 388 بمپور ایرانشهر به شدت وایرال شده که داره آهنگ میخونه 💔
+
+@Tasiyanc ✅| بانك کانفیگ رایگان
+</div>
 
 ## tasiyanc — post 8236
 
@@ -52,141 +218,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر ❤️
-</div>
-
-## tasiyanc — post 8232
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میره جنوب لبنان و نجات بده🤨
-</div>
-
-## tasiyanc — post 8231
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هواپیمای عراقچی در حال خروج از ایران @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8230
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واقعا مثل کشورم شدم همونطور که همه‌ جای ایران درد و غم داره منم کل بدنم درد و غم داره.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8229
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هواپیمای عراقچی در حال خروج از ایران
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8228
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨لحظاتی پیش حمله به پایگاه هوایی و دریایی بوشهر
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8227
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم‌اکنون➖جنوب ایران➖هنگامه بمباران بی‌وقفه
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8226
-
-<div align="center"><img src="files/post_8226_tasiyanc_8226.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ضربه سختی در راه است
-خواهیم دید چه میشود🤣
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 پیت هگست: کنترل تنگه هرمز دست ایران نیست
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8224
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨جمهوری اسلامی یکی از رادار های آمریکا در کویت را مورد هدف قرار داد
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8223
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وطن عشق من🇮🇷
-هموطن جان من💔
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8222
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⁉️پل ارتباطی جم سیراف رو هم زدن
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استانداری بوشهر :
-
-در حملۀ دقایقی پیش به بوشهر چند موشک به پایگاه‌های هوایی و پایگاه دریایی بوشهر اصابت کرد.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹27 خرداد معاون وزیر ارتباطات گفت که اینترنت دیگه در شرایط بحران قطع نخواهد شد.
-با این حال طی ۲۴ ساعت گذشته وضعیت ترافیک اینترنت چند استان از جمله اصفهان، فارس، خراسان رضوی، البرز و تهران با کاهش نسبی ترافیک اینترنت مواجه بوده‌اند.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرتاب موشک از کرمانشاه
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8217
-
-<div align="center"><video src="files/post_8217_tasiyanc_8217.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8217_tasiyanc_8217.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺ از سنتکام : فیلم توقیف نفتکش ایرانی توسط ارتش نیروی دریایی آمریکا
-
-
-@Tasiyanc ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8216
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺حمله آمریکا به بندرلنگه
-
-@Tasiyanc✅
 </div>
 

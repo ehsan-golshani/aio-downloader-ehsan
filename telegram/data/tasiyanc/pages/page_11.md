@@ -1,8 +1,137 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/04/29 00:40
+📅 آخرین بروزرسانی: 1405/04/29 01:48
 
 ---
+
+## tasiyanc — post 8188
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظرتون چیه آخرش چی میشه؟؟؟
+</div>
+
+## tasiyanc — post 8187
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سخنرانی مهم پرزیدنت ترامپ ۳ ساعت دیگه در کاخ سفید شروع میشه
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8186
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حملات امشب بی سابقه اس
+</div>
+
+## tasiyanc — post 8185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
+</div>
+
+## tasiyanc — post 8184
+
+<div align="center"><img src="files/post_8184_tasiyanc_8184.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨تصویر تخریب پل کهورستان در بندر خمیر
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8183
+
+<div align="center"><video src="files/post_8183_tasiyanc_8183.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8183_tasiyanc_8183.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دو نفر از کارکنان ایستگاه راه آهن کشته شدن 
+💔
+
+@Tasiyanc
+✅
+</div>
+
+## tasiyanc — post 8174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
+</div>
+
+## tasiyanc — post 8173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هدف قرار گرفتن پل کهورستان بندرعباس و قطع ارتباط شهرهای جنوب با همدیگه نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده @Tasiyanc
+</div>
+
+## tasiyanc — post 8172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
+</div>
+
+## tasiyanc — post 8171
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چند پل دیگه رو داره میزنه که به بندرعباس راه دارن
+وقتی این پل ها زده بشه هیچ چیزی نمیتونه بره بندرعباس
+طبق چیزایی که داره اتفاق میوفته احتمالاً آمریکا می‌خواد نیرو زمینی پیاده کنه!
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8170
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢طبق گزارش‌ها، اینترنت تو بعضی از نقاط کشور به شدت ضعیف شده
+
+وضعیت نت شما چطوره؟
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📰تسنیم:
+
+🇺🇸💢آمریکا شروع به زدن زیرساخت ها و پل ها کرده
+اونا به شهرستان بندرخمیر و بخش کهورستان حمله کردن و پل ارتباطی بندرعباس به شیراز که معروف به پل بندرعباس - کهورستان - لار هست رو هدف قرار دادن.
+برق مناطقی از کهورستان هم قطع شده
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عجیب اما واقعی جنوب ایران زیر بمباران هست صدا سیما از جنوب لبنان میگه
+</div>
+
+## tasiyanc — post 8167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هدف قرار گرفتن پل کهورستان بندرعباس و قطع ارتباط شهرهای جنوب با همدیگه
+نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️حمله به فرودگاه ایرانشهر در سیستان و بلوچستان @TasiyanProxy
+</div>
+
+## tasiyanc — post 8163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بندرعباس عزیز زیر حملات شدید آمریکا 💔
+</div>
 
 ## tasiyanc — post 8161
 
@@ -51,191 +180,5 @@
 
 محققای هاروارد بعد از سال‌ها تحقیق به این نتیجه رسیدن که دخترا با بوسیدن پسرای کچل عمرشون بیشتر میشه؛ تازه میگن میزان افزایش عمر هم با درجه کچلی نسبت مستقیم داره.
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8152
-
-<div align="center"><img src="files/post_8152_tasiyanc_8152.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سایت کاربردی معرفی کنم:
-
-اگر در پروسه یادگیری زبان هستید یا یه روز تصمیم گرفتید زبان شروع کنید،
-یکی از سایت‌هایی که می‌تونه کمک بزرگی در استفاده درست از دایره واژگان انگلیسی شما کنه، همین سایت YouGlish هست.
-
-تو این سایت هر کلمه‌ای که سرچ کنید، تمام لحظاتی که در ویدئوهای یوتیوب از این کلمه استفاده شده رو نشونتون میده تا با کاربرد صحیحش در مکالمات آشنا بشید.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8150
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زندگی در میان گروهی نادان دشوار است ، اما زندگی در جایی که قدرت در دست همان نادان ها باشد ، هولناك است
-آلبر کامو
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8148
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8145
-
-<div align="center"><img src="files/post_8145_tasiyanc_8145.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏔 روستای کندوان تبریز از معدود روستاهای صخره‌ای جهان است طبیعت زیبا، آب‌وهوای خنک و معماری منحصربه‌فرد، کندوان را به یکی از محبوب‌ترین جاذبه‌های گردشگری ایران تبدیل کرده است.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8142
-
-<div align="center"><img src="files/post_8142_tasiyanc_8142.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بانو Ester هستن زید مدل اسپانیایی امباپه بازیکن رئال 🦥
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گزارش هایی مبنی بر اینکه حرم امام رضا اتیش گرفته تاییذ و تکذیب نمیشه @TasiyanProxy✅
-</div>
-
-## tasiyanc — post 8138
-
-<div align="center"><video src="files/post_8138_tasiyanc_8138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8138_tasiyanc_8138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈یکی از مقام‌های طالبان که خودش 63 ساله بوده، یه دختر 14 ساله به اسم نازگل رو میخره و باهاش ازدواج می‌کنه.
-
-و اما بعد از چند روز، این دختر معصوم رو بخاطر پخش شدن فیلم عروسی خفه می‌کنه و به قتل میرسونه!
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 ترامپ در مصاحبه با فاکس نیوز:
-تغییر حکومت در ایران شدنی است بشرطی که مردم ایران بتوانند با سلاح از خودشان دفاع کنند
-اگر لازم بدونم نیروی زمینی به ایران اعزام خواهم کرد هنوز وضعیت رو نهایی نکردیم
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺امروز July 16، روز جهانی ماره 🌟
-
-+ این روزو به آدمای سمی زندگیت تبریک بگو
-
-@Tasiyanc ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8130
-
-<div align="center"><video src="files/post_8130_tasiyanc_8130.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8130_tasiyanc_8130.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساحل فیتوپلانکتون ، چابهار زیبا 🌴🌊
-
-@Tasiyanc 
-⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8128
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠فوری علیرضا فغانی داور فینال جام‌جهانی بین اسپانیا و آرژانتین شد.
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8127
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال تموم شه خواهیم دید چه خواهد شد
-</div>
-
-## tasiyanc — post 8126
-
-<div align="center"><img src="files/post_8126_tasiyanc_8126.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال جام جهانی 🌍
-اسپانیا 🇪🇸 و آرژانتین 🇦🇷
-
-🗓 28 تیر ساعت 22.30
-🏟 استادیوم (MetLife Stadium )نیویورک نیوجرسی
-
-@Tasiyanc ⭐️ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8125
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کامبککککک میزنه آرژانتین
-</div>
-
-## tasiyanc — post 8123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آرژانتین زددد
 </div>
 
