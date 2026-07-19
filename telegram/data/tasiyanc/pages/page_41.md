@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/04/28 03:50
+📅 آخرین بروزرسانی: 1405/04/28 07:37
 
 ---
+
+## tasiyanc — post 6935
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حالتون خوبه قربونتون برم من 🥹؟
+</div>
 
 ## tasiyanc — post 6934
 
@@ -215,21 +221,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🟢 ساب لینک اختصاصی تاسیان 🔹پر سرعت و نامحدود 🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt 🔐 🔐 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟢 ساب لینک اختصاصی تاسیان
-
-🔹پر سرعت و نامحدود
-
-🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید
-
-https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
-
-🔐 🔐
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/04/28 03:50
+📅 آخرین بروزرسانی: 1405/04/28 07:37
 
 ---
+
+## tasiyanc — post 5705
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنارو 😐
+</div>
 
 ## tasiyanc — post 5704
 
@@ -187,15 +193,5 @@ vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5680
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان برای همراه اول 📶
-
-🔑تست شده و متصل ✅
-
-💙 @Tasiyanc 😎
 </div>
 

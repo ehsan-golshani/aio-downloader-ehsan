@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/28 03:50
+📅 آخرین بروزرسانی: 1405/04/28 07:37
 
 ---
+
+## tasiyanc — post 7089
+
+<div align="center"><video src="files/post_7089_tasiyanc_7089.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7089_tasiyanc_7089.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 
+🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7088
 
@@ -256,11 +276,5 @@ T.me/Tasiyanc
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی با نتیجه مساوی پایان یافت
 </div>
 
