@@ -1,8 +1,119 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/04/29 01:48
+📅 آخرین بروزرسانی: 1405/04/29 02:52
 
 ---
+
+## tasiyanc — post 7617
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+سرور  سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7612
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت شما چطوره؟
+</div>
+
+## tasiyanc — post 7611
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+حجم و کاربر نامحدود ⚡️
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال به اینجکتور ✨
+
+@Tasiyanc 
+💠 | اتصال امن
+</div>
+
+## tasiyanc — post 7610
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ SuperFast⚡.npvt
+</div>
+
+## tasiyanc — post 7608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرتغال به رهبری رونالدو 🇵🇹 به دور یک هشتم رفت و رقیب اسپانیا شد ⚡️
+</div>
+
+## tasiyanc — post 7605
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+10سرور سرعتی پرمیوم متد جدید ⚡️
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
+
+ 
+✅@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7602
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی لف بده تو چنل تاسیان نباشید
+</div>
+
+## tasiyanc — post 7601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Saiedmusics
+برم رو مادرش یا نه؟ آیدیشو گذاشتم یه اکیپ دارم دارن کل پیامای تلگرامشو درمیارن به کل چنل ناموسی داده ببینم چیکار میکنین
+</div>
+
+## tasiyanc — post 7600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی لف بده😂
+</div>
+
+## tasiyanc — post 7590
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مادران داغ دیده ی دی ماه شما یه فرزند از دست دادید ولی میلیون ها فرزند بدست آوردید ، هرچی از غم و داغ دل شما بگیم کم گفتیم ...
+تا ابد اسم فرزندان شما هك خواهد ماند روی قلب تک تک ایرانیان وطن پرست
+</div>
+
+## tasiyanc — post 7589
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجکتور خیلی پایداریش عجیبه کانفیگای دیروز هم وصله با سرعت
+</div>
+
+## tasiyanc — post 7588
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حالتون چطوره؟
+</div>
+
+## tasiyanc — post 7586
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🍊⚡ Fast Orange.npvt
+</div>
 
 ## tasiyanc — post 7585
 
@@ -70,142 +181,5 @@
 
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7571
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-حجم و کاربر نامحدود ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال به اینجکتور ✨
-
-@Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 7569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎥 اسم فیلم: " Pleasure 2021 " ‌🎭 ژانر: درام بزرگسالان ⚠️🔞 ❌ بدون س‍‌.انسور و ح‍‌.ذفیات کارگردان:  Ninja Thyberg با هنرنمایی : Sofia Kappel خلاصه داستان: «بلا» دختری ۱۹ ساله است که با رویای ستاره شدن، از سوئد به لس‌آنجلس می‌رود تا وارد صنعت فیلم‌های بزرگسال…
-</div>
-
-## tasiyanc — post 7568
-
-<div align="center"><img src="files/post_7568_tasiyanc_7568.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎥 اسم فیلم: " Pleasure 2021 "
-
-‌🎭 ژانر: درام بزرگسالان ⚠️🔞
-
-❌ بدون س‍‌.انسور و ح‍‌.ذفیات
-کارگردان:  Ninja Thyberg
-با هنرنمایی : Sofia Kappel
-خلاصه داستان:
-«بلا» دختری ۱۹ ساله است که با رویای ستاره شدن، از سوئد به لس‌آنجلس می‌رود تا وارد صنعت فیلم‌های بزرگسال شود. اما این سفرِ پرزرق‌وبرق، به کابوسی از واقعیت‌های بی‌رحم تبدیل می‌شود. فیلمی درباره بهای سنگینِ شهرت، از دست رفتن هویت و سقوط در دنیایی که هیچ‌کس راه برگشتی از آن ندارد.
-💬 نسخه زیرنویس چسبیده فارسی 🔻
-
-📧 [ برای دانلود  کلیک کنید ]
-
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7566
-
-<div align="center"><img src="files/post_7566_tasiyanc_7566.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☕ Nitro⚡Fast.npvt
-</div>
-
-## tasiyanc — post 7565
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-7سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
-
-🗝Password :  @Tasiyanc
-
- 
-✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7564
-
-<div align="center"><video src="files/post_7564_tasiyanc_7564.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7564_tasiyanc_7564.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیروز کریمی رو آنتن زنده صداوسیما:
-
-قلعه‌نویی ۵ سانت و ۱۰ سانت رو تحمل کرد ولی ۳۰ سانت رو میخواد کجاش بذاره؟!
-
-
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7563
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡️🚀 Premium.npvt
-</div>
-
-## tasiyanc — post 7560
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️⁰⁷@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 7553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-6سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
-
-
- ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کادو منو نمیدید روز پسره؟
-</div>
-
-## tasiyanc — post 7550
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
-</div>
-
-## tasiyanc — post 7546
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☕Türk Kahvesi⚡️.npvt
 </div>
 
