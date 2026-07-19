@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/04/28 16:19
+📅 آخرین بروزرسانی: 1405/04/28 20:07
 
 ---
+
+## tasiyanc — post 5882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SamanTel 🛜 🏳
+vless://394f6981-a782-4779-9a85-e6cf22935d93@152.233.28.198:8443?security=tls&alpn=h2&encryption=none&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=uk1.fromblancwithlove.com#%F0%9F%8F%B3%EF%B8%8F%20Samantel%20-%20%40Tasiyanc
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5881
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GANG 🌙 10 SERVER FAST.npvt
+</div>
+
+## tasiyanc — post 5880
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+10سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5879
 
@@ -159,25 +191,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این سرعتی هم عالیه
-</div>
-
-## tasiyanc — post 5856
-
-<div align="center"><img src="files/post_5856_tasiyanc_5856.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی همین الان وصل کردم ببین سرعت دانلود
-</div>
-
-## tasiyanc — post 5855
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدایی دمتون گرم هرچی بگم کم گفتم همیشه قوی پر سرعت پایدار مرسی بابت زحماتتون
-</div>
-
-## tasiyanc — post 5854
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بهرحال ما ک قطعیم
 </div>
 

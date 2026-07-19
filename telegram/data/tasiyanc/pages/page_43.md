@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/04/28 16:19
+📅 آخرین بروزرسانی: 1405/04/28 20:07
 
 ---
+
+## tasiyanc — post 6898
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6897
+
+<div align="center"><video src="files/post_6897_tasiyanc_6897.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6897_tasiyanc_6897.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان 🖤
+ارسالی از اعضای عزیزم💋
+@Tasiyanc
+</div>
+
+## tasiyanc — post 6882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇳🇱🇫🇷⚡⚡.npvt
+</div>
 
 ## tasiyanc — post 6881
 
@@ -172,48 +204,6 @@ trojan://humanity@104.16.174.121:443?path=%2Fassignment&security=tls&insecure=0&
 🔐🔐🔐
 ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.218:8080#%40Tasiyanc%20%F0%9F%94%B0%F0%9F%87%B3%F0%9F%87%B1
 Loc 🇳🇱
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6858
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 
-🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.214:8080#%E2%9A%A1%40Tasiyanc%2001%E2%9A%A1
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.189:8080#%E2%9A%A1%40Tasiyanc%2002%E2%9A%A1
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6857
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما سرور تکراری رو فایل نمیزاریم همشون تست کنین💋🚀
-</div>
-
-## tasiyanc — post 6856
-
-<div align="center"><video src="files/post_6856_tasiyanc_6856.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6856_tasiyanc_6856.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 🔹
-
-
 ✔️ T.me/Tasiyanc ✅
 </div>
 

@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/04/28 16:19
+📅 آخرین بروزرسانی: 1405/04/28 20:07
 
 ---
+
+## tasiyanc — post 8122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انگلیس زددددد
+</div>
+
+## tasiyanc — post 8120
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ حمله شدید آمریکا به کرمان
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴قرارگاه مرکزی سپاه پاسداران در راسک توسط آمریکا هدف قرار گرفت
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8118
 
@@ -195,39 +217,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 
 اتصال امن برای همه 🇮🇷
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8094
-
-<div align="center"><img src="files/post_8094_tasiyanc_8094.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺دیوار نگاره جدید دوستان عرزشی در میدان انقلاب:  ترامپ را می کـــشیم
-
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8093
-
-<div align="center"><video src="files/post_8093_tasiyanc_8093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8093_tasiyanc_8093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوس پسرم جوابمو نمی‌ده حتما داره بهم خیانت می‌کنه ، دوس پسرش :
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8092
-
-<div align="center"><img src="files/post_8092_tasiyanc_8092.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیس و دیس بک😂
-
-
-@Tasiyanc ⭐️
 </div>
 

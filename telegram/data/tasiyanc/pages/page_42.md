@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/04/28 16:19
+📅 آخرین بروزرسانی: 1405/04/28 20:07
 
 ---
+
+## tasiyanc — post 6929
+
+<div align="center"><img src="files/post_6929_tasiyanc_6929.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زیرنویس شبکه خبر :
+توافق با امریکا را انجام شد
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6927
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نخست‌وزیر پاکستان اعلام کرد:
+مراسم امضای رسمی این توافق روز جمعه 19 ژوئن در سوئیس برگزار خواهد شد.
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6926
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسمیییییییییییی
+توافق امضا شد
+@Tasiyanc
+✅
+</div>
 
 ## tasiyanc — post 6925
 
@@ -195,37 +224,5 @@ https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [51] @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6898
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6897
-
-<div align="center"><video src="files/post_6897_tasiyanc_6897.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6897_tasiyanc_6897.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاسیان 🖤
-ارسالی از اعضای عزیزم💋
-@Tasiyanc
-</div>
-
-## tasiyanc — post 6882
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇳🇱🇫🇷⚡⚡.npvt
 </div>
 

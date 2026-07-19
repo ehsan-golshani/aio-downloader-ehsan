@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/04/28 16:19
+📅 آخرین بروزرسانی: 1405/04/28 20:07
 
 ---
+
+## tasiyanc — post 7590
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مادران داغ دیده ی دی ماه شما یه فرزند از دست دادید ولی میلیون ها فرزند بدست آوردید ، هرچی از غم و داغ دل شما بگیم کم گفتیم ...
+تا ابد اسم فرزندان شما هك خواهد ماند روی قلب تک تک ایرانیان وطن پرست
+</div>
+
+## tasiyanc — post 7589
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجکتور خیلی پایداریش عجیبه کانفیگای دیروز هم وصله با سرعت
+</div>
+
+## tasiyanc — post 7588
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حالتون چطوره؟
+</div>
 
 ## tasiyanc — post 7586
 
@@ -179,33 +198,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-6سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
-
-
- ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کادو منو نمیدید روز پسره؟
-</div>
-
-## tasiyanc — post 7550
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
 </div>
 
