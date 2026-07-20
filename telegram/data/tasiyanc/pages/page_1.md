@@ -1,16 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/29 22:47
+📅 آخرین بروزرسانی: 1405/04/30 00:23
 
 ---
+
+## tasiyanc — post 8508
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال تاسیان متعلق به تمام کسانی هست که وطن پرستن نه حکومت پرست ❤️
+</div>
+
+## tasiyanc — post 8507
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری دنیا جهانبخت از حضور در مراسم عزاداری. وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8504
+
+<div align="center"><img src="files/post_8504_tasiyanc_8504.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری دنیا جهانبخت از حضور در مراسم عزاداری.
+
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان.
+
+مشاهده فیلم 👉
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8499
 
 <div align="center"><video src="files/post_8499_tasiyanc_8499.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_8499_tasiyanc_8499.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_8499_♨️🇹🇷 Fast 01.ehi.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ♨️🇹🇷 Fast 01.ehi</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی نامحدود اینجکتور 📶
@@ -37,8 +61,6 @@
 <div align="center"><video src="files/post_8491_tasiyanc_8491.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_8491_tasiyanc_8491.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_8491_🇫🇷 Paris - Vip 🔥⚡️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇫🇷 Paris - Vip 🔥⚡️.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت 
@@ -233,27 +255,5 @@ Loc 🇩🇪 🇩🇪
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8469
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ سنتکام : حملات ما به ایران آغاز شد
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8468
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ گزارش از انفجار در منطقه سردرود تبریز
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8467
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ گزارش انفجار در تبریز تایید یا تکذیب نمیشه @TASIYANC ⭐️
 </div>
 

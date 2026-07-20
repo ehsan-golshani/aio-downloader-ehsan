@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/04/29 22:47
+📅 آخرین بروزرسانی: 1405/04/30 00:23
 
 ---
+
+## tasiyanc — post 5627
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب بعدی
+</div>
+
+## tasiyanc — post 5626
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کی از همه قشنگتره؟ کامنتارو 🗿
+</div>
+
+## tasiyanc — post 5625
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان 📱
+
+⛈1 سرور تست شده wifi⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5613
 
@@ -130,23 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
-</div>
-
-## tasiyanc — post 5596
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ممنون که کنارمون بودی این روزای سخت هم وطن🤍🕊
-</div>
-
-## tasiyanc — post 5595
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانالت عالیه من همیشه با تو وصلم
-</div>
-
-## tasiyanc — post 5594
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ممنون از همه زحماتتون تیم تاسیان مرسی من با npv تونستم وصل شم
 </div>
 

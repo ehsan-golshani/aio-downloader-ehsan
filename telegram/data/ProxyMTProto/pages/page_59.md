@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/04/29 22:45
+📅 آخرین بروزرسانی: 1405/04/30 00:21
 
 ---
+
+## ProxyMTProto — post 48134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy45.arixo.shop
+Port: 443
+Secret: eea91f379099ba53e83fea21dec0db748d617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48132
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 176.65.135.69
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48131
 
@@ -154,33 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: node.prx.today
 Port: 443
 Secret: ee4fc23f27cad414e0ca758692e060323a6e6f64652e7072782e746f646179
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: static.prxtoday.store
-Port: 443
-Secret: ee3740849efd941157c45810d974fd66097374617469632e707278746f6461792e73746f7265
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: form.quickdl.info
-Port: 22
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

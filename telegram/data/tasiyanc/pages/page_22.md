@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/04/29 22:47
+📅 آخرین بروزرسانی: 1405/04/30 00:23
 
 ---
+
+## tasiyanc — post 7798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارشات تایید نشده ترامپ با ناتو به توافق رسیده در ازای کمك آمریکا به اوکراین ، ناتو نیز کنار آمریکا به ایران حمله خواهد کرد
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نسخه شیر و خورشید قدیمی 👑
+آموزش اتصال
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7795
 
@@ -145,25 +184,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تنگه هرمز بسته شد💪
-</div>
-
-## tasiyanc — post 7752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری فرودگاه بندرعباس زدن
-</div>
-
-## tasiyanc — post 7751
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنظرتون جنگ تمام عیار میشه اسراییل ورود می‌کنه؟ یا آتش بس میشه تا صبح
-</div>
-
-## tasiyanc — post 7750
-
-<div align="center"><img src="files/post_7750_tasiyanc_7750.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت کارمندای نت‌بلاکس الان:
 </div>
 
