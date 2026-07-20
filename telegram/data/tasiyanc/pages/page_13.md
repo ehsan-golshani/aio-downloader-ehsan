@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/04/30 00:23
+📅 آخرین بروزرسانی: 1405/04/30 01:30
 
 ---
+
+## tasiyanc — post 8189
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 تمامی پل‌هایی که بندر خمیر را به بندرعباس متصل می کرد توسط آمریکا مورد حمله قرار گرفت.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8188
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظرتون چیه آخرش چی میشه؟؟؟
+</div>
+
+## tasiyanc — post 8187
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سخنرانی مهم پرزیدنت ترامپ ۳ ساعت دیگه در کاخ سفید شروع میشه
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8186
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حملات امشب بی سابقه اس
+</div>
+
+## tasiyanc — post 8185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
+</div>
+
+## tasiyanc — post 8184
+
+<div align="center"><img src="files/post_8184_tasiyanc_8184.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨تصویر تخریب پل کهورستان در بندر خمیر
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8183
+
+<div align="center"><video src="files/post_8183_tasiyanc_8183.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8183_tasiyanc_8183.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دو نفر از کارکنان ایستگاه راه آهن کشته شدن 
+💔
+
+@Tasiyanc
+✅
+</div>
 
 ## tasiyanc — post 8174
 
@@ -117,90 +177,5 @@
 4:5 cinematic portrait reel cover of one young adult male, extreme close-up head-and-shoulders framing, eye-level, centered, very shallow depth of field, built 100% from the unaltered facial features of the reference image; preserve the original face 100% exactly, hair unchanged, same skin tone, proportions, age, and identity. He looks directly at the camera with a serious confident expression. Thick textured dark-brown quiff with natural shine, beard if present in reference, round vintage sunglasses with gold frame and dark-brown lenses, subtle silver neck chain, plain charcoal-black T-shirt. Outdoor nature setting with soft blurred forest bokeh, out-of-focus leaves and foliage around frame edges. Golden-hour light filtered through leaves, dappled shadows, soft highlights, warm skin glow, medium-high contrast, warm grading with golden yellow, warm brown, deep green, and natural skin tones. 85mm portrait lens, f/1.4, face tracking, high clarity, subtle vignette, minimal skin retouch, no HDR, no noise. STRICT MASCULINE LOCK: strictly masculine styling only, menswear presence, masculine proportions, no feminine elements, no makeup, no facial or hair alteration, no text, logo, watermark, cartoon style, artificial skin, heavy filters, extra people, or distortion.
 
 @Tasiyanc ⭐️ | بانك کانفیگ
-</div>
-
-## tasiyanc — post 8153
-
-<div align="center"><img src="files/post_8153_tasiyanc_8153.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢بوسیدن کچل ها باعث افزایش طول عمر دخترا میشه.
-
-محققای هاروارد بعد از سال‌ها تحقیق به این نتیجه رسیدن که دخترا با بوسیدن پسرای کچل عمرشون بیشتر میشه؛ تازه میگن میزان افزایش عمر هم با درجه کچلی نسبت مستقیم داره.
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8152
-
-<div align="center"><img src="files/post_8152_tasiyanc_8152.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سایت کاربردی معرفی کنم:
-
-اگر در پروسه یادگیری زبان هستید یا یه روز تصمیم گرفتید زبان شروع کنید،
-یکی از سایت‌هایی که می‌تونه کمک بزرگی در استفاده درست از دایره واژگان انگلیسی شما کنه، همین سایت YouGlish هست.
-
-تو این سایت هر کلمه‌ای که سرچ کنید، تمام لحظاتی که در ویدئوهای یوتیوب از این کلمه استفاده شده رو نشونتون میده تا با کاربرد صحیحش در مکالمات آشنا بشید.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8150
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زندگی در میان گروهی نادان دشوار است ، اما زندگی در جایی که قدرت در دست همان نادان ها باشد ، هولناك است
-آلبر کامو
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8148
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8145
-
-<div align="center"><img src="files/post_8145_tasiyanc_8145.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏔 روستای کندوان تبریز از معدود روستاهای صخره‌ای جهان است طبیعت زیبا، آب‌وهوای خنک و معماری منحصربه‌فرد، کندوان را به یکی از محبوب‌ترین جاذبه‌های گردشگری ایران تبدیل کرده است.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8142
-
-<div align="center"><img src="files/post_8142_tasiyanc_8142.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بانو Ester هستن زید مدل اسپانیایی امباپه بازیکن رئال 🦥
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گزارش هایی مبنی بر اینکه حرم امام رضا اتیش گرفته تاییذ و تکذیب نمیشه @TasiyanProxy✅
 </div>
 

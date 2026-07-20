@@ -1,8 +1,64 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/04/30 00:23
+📅 آخرین بروزرسانی: 1405/04/30 01:30
 
 ---
+
+## tasiyanc — post 5971
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور های vip بعدی با متد جدید ساعت ۴ در حال تستشم جواب بده میزارم
+</div>
+
+## tasiyanc — post 5970
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پینگ نگیرید ، کانکت شدید بیاید تل یا اینستا بالا میاد خودش
+</div>
+
+## tasiyanc — post 5969
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان 
+
+5سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5968
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گپ تاسیان 🦦
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 5967
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور ها چک میشن هر نیم ساعت
+ضعیف شن جدیدشو میزاریم ، با قدرت وصلیم ❤️
+</div>
+
+## tasiyanc — post 5966
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Gold🥇Vip servers.npvt
+</div>
+
+## tasiyanc — post 5965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی - 🇫🇷
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5963
 
@@ -120,54 +176,5 @@ TS premium Servers 🌲⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بمب بعدی تو راهه
-</div>
-
-## tasiyanc — post 5947
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی تو راهه
-</div>
-
-## tasiyanc — post 5946
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
--FAST MCI & MTN & RighTel 🔥.npvt
-</div>
-
-## tasiyanc — post 5945
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قربون تک تکتون ، با اینکه نت وصله ولی اختلال همچنان بسیار بالاست تلاش میشه بهترین سرورارو بزاریم امیدوارم سرعت خوبی بگیرید
-</div>
-
-## tasiyanc — post 5944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واقعا سرورهای خوبی می‌زاری دم غیرتت گرم ب جان خودم
-عشقی عشق ❤️🥲
-</div>
-
-## tasiyanc — post 5943
-
-<div align="center"><img src="files/post_5943_tasiyanc_5943.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینستا مثل برق میاره ، ❤️❤️❤️
-</div>
-
-## tasiyanc — post 5942
-
-<div align="center"><img src="files/post_5942_tasiyanc_5942.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک دقیقه نیست استارت کردم ، بهترین کانال جهانی دمت گرم ، عالیی ،🙏🙏❤️❤️
-</div>
-
-## tasiyanc — post 5941
-
-<div align="center"><img src="files/post_5941_tasiyanc_5941.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی🤭
 </div>
 

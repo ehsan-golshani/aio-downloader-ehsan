@@ -1,8 +1,105 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/04/30 00:23
+📅 آخرین بروزرسانی: 1405/04/30 01:30
 
 ---
+
+## tasiyanc — post 7433
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطوریددد؟
+</div>
+
+## tasiyanc — post 7432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Password :  @Tasiyanc
+
+🔐 کانفیگ حجم نامحدود
+
+۳ سرور سرعتی ⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7431
+
+<div align="center"><video src="files/post_7431_tasiyanc_7431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7431_tasiyanc_7431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Password : @Tasiyanc
+
+
+🔐 کانفیگ حجم نامحدود
+
+۳ سرور سرعتی 
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+⛓
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+ 
+💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆صعود چگونه محقق خواهد شد؟
+
+به یکی از اتفاقات زیر نیاز دارد تا به عنوان یکی از تیم های سوم صعود کند
+
+1.شکست کرواسی برابر غنا
+2.شکست نخوردن ازبکستان برابر کنگو
+3.عدم تساوی در دیدار اتریش و الجزایر
+
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7429
+
+<div align="center"><video src="files/post_7429_tasiyanc_7429.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7429_tasiyanc_7429.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقای رضاییان هنوز نمیدونی چرا بدشانسی میارید؟ 😒
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7428
+
+<div align="center"><img src="files/post_7428_tasiyanc_7428.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😐😐😐
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آفسایدددددددددد
+</div>
 
 ## tasiyanc — post 7420
 
@@ -84,116 +181,5 @@ https://t.me/TasiyanProxy/1840
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چه وضع ریکشن به این پخت پز😐😐😐
-</div>
-
-## tasiyanc — post 7402
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب لینک اختصاصی نامحدود 🚀
-
-🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-
-130 کانفیگ پروتکل Trojan سرعتی
-( هر دوازده ساعت آپدیت خواهد شد )
-
-
-آموزش ویدیویی اضافه کردن ساب 💘
-
-
-@Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 7400
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چیزی نشده همراه اول اختلال میخوره .....😡
-</div>
-
-## tasiyanc — post 7399
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST ⚡⚡🔥.npvt
-</div>
-
-## tasiyanc — post 7393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود
-
-۳ سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ هم اکنون حملات آمریکا به سیریک
-</div>
-
-## tasiyanc — post 7391
-
-<div align="center"><video src="files/post_7391_tasiyanc_7391.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7391_tasiyanc_7391.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود سرور 
-🇮🇹
-
-۳ سرور سرعتی 
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
- 
-💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7390
-
-<div align="center"><video src="files/post_7390_tasiyanc_7390.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7390_tasiyanc_7390.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود مولتی SV
-
-4سرور سرعتی 
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
- 
-💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 

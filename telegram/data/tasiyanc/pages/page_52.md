@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/04/30 00:23
+📅 آخرین بروزرسانی: 1405/04/30 01:30
 
 ---
+
+## tasiyanc — post 6712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 12 June ، روز جهانی تشکر از آدمیه که زندگی رو برات قشنگتر کرده.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6711
+
+<div align="center"><img src="files/post_6711_tasiyanc_6711.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تجمعات شبانه
+گشت ارشاد به چاک سینه توجهی نداره اگه بمالید
+@tasiyanc✅
+</div>
+
+## tasiyanc — post 6710
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن خنده بازه
+</div>
+
+## tasiyanc — post 6709
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺قوه قضایی جمهوری اسلامی حکم اعدام نتانیاهو و ترامپ صادر کرد.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6708
+
+<div align="center"><img src="files/post_6708_tasiyanc_6708.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Configs⚡🚀.txt
+</div>
+
+## tasiyanc — post 6707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی تاسیان 🆕
+
+✅50 کانفیگ تست شده سرعتی
+
+مناسب وب‌گردی ، استریم ، اینستاگرام 🦦
+
+فایل Txt رو باز کنین کانفیگ رو تو آپ 🔐 & 🔐 & 🔐 بزنید پینگ بگیرید وصل شید  🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگای رایگان مارو تو بله روبیکا به اسم نامحدود ۶۰۰ تومن میفروشن 😐
+تاسیان تو هیچ اپ ایرانی فعالیتی نداره و فروشی ام ندارع تا اطلاع ثانوی،بخدا دیگه خستم شدم انقد گفتم مراقب باشید
+</div>
 
 ## tasiyanc — post 6701
 
@@ -123,65 +182,5 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نورالدین الدغیر خبرنگار الجزیره در تهران:
-دیگر همه چیز قطعی و تمام شده
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠⭕️⭕️ ترامپ : خودم احتمالاً نمی‌تونم تو مراسم امضای توافق حضور داشته باشم و ونس به نمایندگی از آمریکا اونجا خواهد بود
-- امضای توافق ممکنه خیلی زود انجام بشه، حتی شاید همین آخر هفته
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6683
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ ترامپ : محل امضای توافق بزودی اعلام میشود
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با توجه به اخبار توافق حتمی می‌باشد ، البته قطعی نیست
-</div>
-
-## tasiyanc — post 6681
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️سپاه پاسداران:
-اگر امریکا تمام خواسته‌های ما را در سندی که ارائه دادیم بپذیرد، به احتمال زیاد ما این توافق را تایید خواهیم کرد.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6680
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ترامپ درباره توافق با ایران:
-ما به‌تازگی یک توافق عالی درباره جنگ با ایران انجام دادیم و در حال نهایی کردن مدارک هستیم. باید طی چند روز آینده کار تمام شود.
-
-احتمالاً امضا در اروپا انجام خواهد شد و این یک اتفاق عالی است.
-
-بازار سهام ۱۰۰۰ واحد رشد کرده است. این یعنی آن‌ها این توافق را دوست دارند.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️خبرگزاری فارس:
-
-با توجه به اینکه امریکا متن پیشنهادی ایران را پذیرفته است احتمال تایید این متن در مراجع اصلی‌نظام بالا است‌
-@Tasiyanc ✅
 </div>
 

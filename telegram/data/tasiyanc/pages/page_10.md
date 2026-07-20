@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/04/30 00:23
+📅 آخرین بروزرسانی: 1405/04/30 01:30
 
 ---
+
+## tasiyanc — post 8265
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار از چنل اصلی پوشش بدیم ؟ همه بگن
+
+بله 👍 نه 👎
+</div>
+
+## tasiyanc — post 8262
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💪🚨 ترامپ:
+توافق اینقدر خوب پیش رفته که به زودی هزاران شهروند آمریکایی مهاجرت میکنن به ایران، منتها لباس نظامی تنشونه.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8259
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8258
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8257
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت تون چطوره؟
+</div>
+
+## tasiyanc — post 8255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+6سرور سرعتی پرمیوم متد جدید ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8252
 
@@ -153,55 +220,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc 💠
-</div>
-
-## tasiyanc — post 8233
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر ❤️
-</div>
-
-## tasiyanc — post 8232
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میره جنوب لبنان و نجات بده🤨
-</div>
-
-## tasiyanc — post 8231
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هواپیمای عراقچی در حال خروج از ایران @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8230
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واقعا مثل کشورم شدم همونطور که همه‌ جای ایران درد و غم داره منم کل بدنم درد و غم داره.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8229
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هواپیمای عراقچی در حال خروج از ایران
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8228
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨لحظاتی پیش حمله به پایگاه هوایی و دریایی بوشهر
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8227
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم‌اکنون➖جنوب ایران➖هنگامه بمباران بی‌وقفه
-
-@Tasiyanc✅
 </div>
 
