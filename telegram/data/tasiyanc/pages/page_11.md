@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/04/29 20:41
+📅 آخرین بروزرسانی: 1405/04/29 22:47
 
 ---
+
+## tasiyanc — post 8223
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وطن عشق من🇮🇷
+هموطن جان من💔
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8222
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⁉️پل ارتباطی جم سیراف رو هم زدن
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8221
 
@@ -155,23 +172,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 ارتش آمریکا یک عملیات هلی‌بورنی را بر روی یک نفتکش ایرانی انجام داد هم اکنون
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ohhh
-</div>
-
-## tasiyanc — post 8200
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨
-🚨 تمامی پرواز های ایران هم اکنون کنسل شد
-
 @Tasiyanc 
 ⭐️
 </div>

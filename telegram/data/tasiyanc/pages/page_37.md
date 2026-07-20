@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/29 20:41
+📅 آخرین بروزرسانی: 1405/04/29 22:47
 
 ---
+
+## tasiyanc — post 7228
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Wnd🍓 @Tasiyanc.conf
+</div>
+
+## tasiyanc — post 7223
+
+<div align="center"><video src="files/post_7223_tasiyanc_7223.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7223_tasiyanc_7223.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی وایر Windscribe 
+🔐
+
+
+🟢حجم و کاربر نامحدود 
+🟢
+
+تمام اپراتورا 
+🔺
+
+مناسب گیم 
+🎲 دانلود
+⬇️ وب‌گردی
+🔍 جمینای
+
+دانلود ویندسکرایب : Android 
+📱  iOS 
+🕹
+
+آموزش اتصال به سرور 
+⏩
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7222
 
@@ -309,25 +349,5 @@ BERLIN 🇩🇪⚡️GN.npvt
 مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-40.000 🖤 > 72
-</div>
-
-## tasiyanc — post 7193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم-وب‌گردی-اینستاگرام 👑
-
-کانفیگ حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
 </div>
 

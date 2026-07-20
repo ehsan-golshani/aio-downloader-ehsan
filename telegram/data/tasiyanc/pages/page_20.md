@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/04/29 20:41
+📅 آخرین بروزرسانی: 1405/04/29 22:47
 
 ---
+
+## tasiyanc — post 7892
+
+<div align="center"><video src="files/post_7892_tasiyanc_7892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7892_tasiyanc_7892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعتان چووونه رفته نوکِ چرخ و فلک داره تبلیغ بالشت و پتو میکنه😐
+
+بالشتش هم اون وسط پرت شد پایین، میگه عیبی نداره یکم ترسو بود...
+
+@Tasiyanc ⭐️
+#Navid
+</div>
+
+## tasiyanc — post 7891
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جای خالیشان قدر یک وطن درد میکند ؛ نه فقط در خانه هایشان که در دل تمام ایران
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7890
 
@@ -270,53 +292,5 @@
 
 👈 دریافت کانفیگ ها 
 👉
-</div>
-
-## tasiyanc — post 7842
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انفجار در چابهار 😐
-</div>
-
-## tasiyanc — post 7840
-
-<div align="center"><video src="files/post_7840_tasiyanc_7840.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7840_tasiyanc_7840.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم متد جدید سرور 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 اینستاگرام 
-📸 جمینای 
-🤖
-
-
-
-اتصال امن برای همه 
-🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 
