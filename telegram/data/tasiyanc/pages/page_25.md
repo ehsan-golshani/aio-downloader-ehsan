@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/04/30 01:30
+📅 آخرین بروزرسانی: 1405/04/30 02:46
 
 ---
+
+## tasiyanc — post 7702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانیا زد 💔
+</div>
+
+## tasiyanc — post 7701
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسطوره بچگی هامون امشب بازی حساسی داره و این آخرین جام جهانی Goat هست
+</div>
+
+## tasiyanc — post 7700
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لبیك یا رونالدو ، امیدوارم امشب خوشحال باشی ❤️ 7
+</div>
+
+## tasiyanc — post 7699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب بازی حساس ساعت 22:30 🏆
+
+🔵 Spain 🇪🇸 Portugal 🇵🇹 🐯
+</div>
 
 ## tasiyanc — post 7698
 
@@ -197,43 +223,5 @@ VIP 🎯 @Tasiyanc.nm
 🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
 
 @Tasiyanc | اتصال امن ✅
-</div>
-
-## tasiyanc — post 7673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آخر اسم چنل کلمه VPN اضافه شد
-</div>
-
-## tasiyanc — post 7666
-
-<div align="center"><img src="files/post_7666_tasiyanc_7666.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡ Unlimited.npvt
-</div>
-
-## tasiyanc — post 7665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا 😍
-</div>
-
-## tasiyanc — post 7664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-4سرور سرعتی پرمیوم متد جدید 
-⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
- 
-✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 

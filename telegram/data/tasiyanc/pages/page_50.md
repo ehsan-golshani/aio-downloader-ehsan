@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/04/30 01:30
+📅 آخرین بروزرسانی: 1405/04/30 02:46
 
 ---
+
+## tasiyanc — post 6798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بخاطر نمک ریختنتون امروز کلا npv نمیزارم 😍
+فقط در صورتی میزارم ک ریکشن قلب بالای ۲۰۰ تا باشه رو پست
+</div>
+
+## tasiyanc — post 6793
+
+<div align="center"><video src="files/post_6793_tasiyanc_6793.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6793_tasiyanc_6793.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واقعاً تأسف می‌خورم به‌حال کسانی که هنوز با تاسیان آشنا نشدند! 😌
+#تست_سرعت
+</div>
+
+## tasiyanc — post 6792
+
+<div align="center"><video src="files/post_6792_tasiyanc_6792.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6792_tasiyanc_6792.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩ایلان ماسک اولین تریلیونر جهان شد!
+
+سهام SPCX قراره با قیمت 135 دلار معامله بشه و ارزش اسپیس‌ ایکس رو به حدود 1.8 تریلیون دلار برسونه!
+
+@Tasiyanc ✅ | تاسیان
+</div>
+
+## tasiyanc — post 6791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩 @Tasiyanc ✅ | تاسیان
+</div>
 
 ## tasiyanc — post 6790
 
@@ -160,42 +198,5 @@ VIP⚡ APEX ⛓️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 VİP - ⛓️OMEGA ⚡.npvt
-</div>
-
-## tasiyanc — post 6770
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داداش بقران بهترین‌چنلی هستی دمت‌‌گرم که بفکری سرعتتتش‌موشکهه🥲😭😭😭
-</div>
-
-## tasiyanc — post 6769
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با این شرایطی که هرشب داریم صدای بلند توافق رو میشنویم احتمال قطعی نت بشدت زیاده
-برای‌همین براتون کانفینگ‌اختصاصی شارژ کردیم داخل بات  که هر فرد  کانفینگ‌ خودشک اختصاصی بگیره❤️
-
-دیگه پیشگیری بهتر از درمانه بوس
-
-دریافت کانفنینگ‌اختصاصی〽️
-</div>
-
-## tasiyanc — post 6768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شرمنده ادمین تبادل پستهارو اشتباهی زده ❤️
 </div>
 
