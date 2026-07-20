@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/04/29 03:54
+📅 آخرین بروزرسانی: 1405/04/29 11:21
 
 ---
+
+## tasiyanc — post 6362
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡All Operators ⚡.npvt
+</div>
+
+## tasiyanc — post 6361
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+4سرور   سرعتی پرمیوم 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
+
+دانلود  NPV tunnel  🌐
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6360
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Speed ⚡ One.npvt
+</div>
 
 ## tasiyanc — post 6359
 
@@ -165,57 +194,5 @@ FAST @Tasiyanc servers.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بمب تو راهه
-</div>
-
-## tasiyanc — post 6341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی کلاینت جدید VPN ساعت 18 🐾
-</div>
-
-## tasiyanc — post 6339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست کاربردی
-⚡️ دانلودرهای تلگرامی
-
-با این بات‌ها می‌تونید لینک ویدیو یا پست از شبکه‌های مختلف رو بفرستید و فایل رو با کیفیت‌ها و فرمت‌های مختلف دانلود کنید؛ حتی تبدیل به فایل صوتی هم انجام میدن 🎧
-
-💬 اینستاگرام — استوری & ریلز
-📹 تیک‌تاک — ویدیو بدون واترمارک
-📹 یوتیوب — ویدیو، Shorts و فایل صوتی
-💬 ایکس (توییتر) — عکس و ویدیو
-📍 پینترست — عکس و ویدیو
-💬 فیسبوک — ویدیو
-📱 ردیت — عکس و ویدیو
-
-Robot's 🤖
-@MegaSaverBot
-@YoutubeDownloader_l_Bot
-@govd_bot
-@downloadlyio_bot
-@MultiSaverXbot
-@catdlbot
-@InstaMediaDownloaderBot
-@download_it_bot
-@instagramersbot
-@YoutubeDoBot
-@MrDragar_AudioBot
-@SaveMedia_bot
-@instadowbot
-@FullSavebot
-@tikloadtokbot
-@PicTubeBot
-Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6337
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-🔺@Tasiyanc ✅
 </div>
 

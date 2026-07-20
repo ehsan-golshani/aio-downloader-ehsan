@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/04/29 03:54
+📅 آخرین بروزرسانی: 1405/04/29 11:21
 
 ---
+
+## tasiyanc — post 6218
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگ میشه یا آتش بس برقراره؟
+</div>
+
+## tasiyanc — post 6217
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پوشش اخبار جنگ در چنل پروکسی
+زیر هر خبر ادمینا و خودم پروکسی های وصل قرار میدیم
+https://t.me/TasiyanProxy
+https://t.me/TasiyanProxy
+</div>
+
+## tasiyanc — post 6214
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وایر های قبلی ک‌گذااشتم مثل موشك وصلن نیازی به جدید نی فعلا
+</div>
 
 ## tasiyanc — post 6212
 
@@ -160,30 +181,5 @@ SuperFast @Tasiyanc 🪐⚡.npvt
 
 🦁  @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-2سرور  سرعتی تست شده 🚀
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چنل پروکسی های وصل تاسیان
-https://t.me/TasiyanProxy
-
-از امروز شروع بکار کرد
-</div>
-
-## tasiyanc — post 6190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Proxy 1 ✅ proxy 2
-Proxy 3 ✅ proxy 3
-@TasiyanProxy ✅
 </div>
 

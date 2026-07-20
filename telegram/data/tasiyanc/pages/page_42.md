@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/04/29 03:54
+📅 آخرین بروزرسانی: 1405/04/29 11:21
 
 ---
+
+## tasiyanc — post 7040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+2 سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7039
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیوزلند انقد کیری باز می‌کنه تیم شموشک بود دو تا گل میزد
+</div>
+
+## tasiyanc — post 7035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گلللللللل نیوزلند
+</div>
 
 ## tasiyanc — post 7025
 
@@ -197,72 +225,5 @@ matador ⚡ Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥⚡Tasiyanc.dark
-</div>
-
-## tasiyanc — post 6990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥⚡Tasiyanc.dark
-</div>
-
-## tasiyanc — post 6989
-
-<div align="center"><video src="files/post_6989_tasiyanc_6989.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6989_tasiyanc_6989.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 
-🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها 
-✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک 
-⏩
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6986
-
-<div align="center"><video src="files/post_6986_tasiyanc_6986.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6986_tasiyanc_6986.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟
-🌟اختصاصی تاسیان 
-🌟
-🌟
-
-سه کانفیگ نپسترنت و یک کانفیگ Http 🚀
-
-تست شده - حجم نامحدود 
-🤩
-
-HttpCustum 
-📱 android 
-🕹 iOS
-
-NPV Tunnel 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال با HttpCustum 
-🔻
-
-آموزش اتصال با NPV TUNNEL 
-🔻
-
-@Tasiyanc 
-✅
 </div>
 
