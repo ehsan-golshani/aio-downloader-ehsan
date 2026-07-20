@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/04/29 11:21
+📅 آخرین بروزرسانی: 1405/04/29 14:11
 
 ---
+
+## tasiyanc — post 6394
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨فووووووری
+حملات موشکی سپاه به اسرائیل
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 6393
 
@@ -223,13 +231,5 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 آموزش اتصال ⛓
 
 🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6364
-
-<div align="center"><img src="files/post_6364_tasiyanc_6364.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡All Operators ⚡.npvt
 </div>
 

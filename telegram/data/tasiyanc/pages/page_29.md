@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/29 11:21
+📅 آخرین بروزرسانی: 1405/04/29 14:11
 
 ---
+
+## tasiyanc — post 7524
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇦🇪@Tasiyanc ⚡️.nm
+</div>
 
 ## tasiyanc — post 7520
 
@@ -215,11 +221,5 @@ ESPRESSO 🔥☕.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 توهین مجدد میثاقی به مردم ایران:
 کسایی که برای خوشحالی گل شجاع کلیپ می‌سازن همون جای خالی ان!
-</div>
-
-## tasiyanc — post 7477
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌هم اکنون شلیک موشک از ایران به سمت اردن
 </div>
 

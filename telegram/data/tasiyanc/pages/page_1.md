@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/29 11:21
+📅 آخرین بروزرسانی: 1405/04/29 14:11
 
 ---
+
+## tasiyanc — post 8486
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 20 July روز جهانی ماهه
+
+به تمام دختر پسرای چنلمون تبریك میگیم این روز رو 🌚
+</div>
 
 ## tasiyanc — post 8484
 
@@ -11,8 +19,6 @@
 </div>
 
 ## tasiyanc — post 8483
-
-<div align="center"><a href="files/post_8483_🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت 🔐
@@ -186,14 +192,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خوبه به ترامپ میکروفن ندادن وگرنه میخواست بگه ایران نباید سلاح هسته ای داشته باشه وسط زمین
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویس علی دایی در مورد باخت آرژانتین 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
 
 @TASIYANC ✅
 </div>

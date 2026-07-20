@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/04/29 11:21
+📅 آخرین بروزرسانی: 1405/04/29 14:11
 
 ---
+
+## tasiyanc — post 8272
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش از چهار انفجار وحشتناک در بندرعباس
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8271
 
@@ -189,16 +197,5 @@
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8241
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک نفت کش سپاهی توسط کماندو های امریکا به اسارت گرفته شد.
-
-با اعلام سنت‌کام تمام خدمه نفتکش سپاهی توسط تفنگداران آمریکایی بازداشت شدند
-
-@Tasiyanc
-✅
 </div>
 

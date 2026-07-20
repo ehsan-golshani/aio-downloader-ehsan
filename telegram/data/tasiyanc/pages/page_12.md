@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/04/29 11:21
+📅 آخرین بروزرسانی: 1405/04/29 14:11
 
 ---
+
+## tasiyanc — post 8196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨
+🚨۷ انفجار مهیب در بوشهر
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8195
 
@@ -161,14 +172,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عجیب اما واقعی جنوب ایران زیر بمباران هست صدا سیما از جنوب لبنان میگه
-</div>
-
-## tasiyanc — post 8167
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هدف قرار گرفتن پل کهورستان بندرعباس و قطع ارتباط شهرهای جنوب با همدیگه
-نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده
-
-@Tasiyanc
 </div>
 
