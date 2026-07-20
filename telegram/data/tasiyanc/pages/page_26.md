@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/04/29 14:11
+📅 آخرین بروزرسانی: 1405/04/29 20:41
 
 ---
+
+## tasiyanc — post 7640
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز کردم براتون🔥
+</div>
+
+## tasiyanc — post 7634
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+سرور  سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
+</div>
 
 ## tasiyanc — post 7633
 
@@ -143,26 +166,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc _ SuperFast⚡.npvt
-</div>
-
-## tasiyanc — post 7608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرتغال به رهبری رونالدو 🇵🇹 به دور یک هشتم رفت و رقیب اسپانیا شد ⚡️
-</div>
-
-## tasiyanc — post 7605
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-10سرور سرعتی پرمیوم متد جدید ⚡️
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
-
- 
-✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 

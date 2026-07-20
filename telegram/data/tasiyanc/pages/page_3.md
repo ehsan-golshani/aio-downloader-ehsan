@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/04/29 14:11
+📅 آخرین بروزرسانی: 1405/04/29 20:41
 
 ---
+
+## tasiyanc — post 8444
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گگگگگگگگگگگگگگگگگگگگل
+</div>
+
+## tasiyanc — post 8443
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقت اول اضافه تموم شد ، میریم پنالتیا؟
+</div>
 
 ## tasiyanc — post 8440
 
@@ -134,18 +146,5 @@
 🔺سایت AparatSport فینال با گزارش عادل فردوسی پور هست
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆پخش زنده مسابقات جام جهانی 2026 https://roxiestreams.su/soccer https://streamcorner.fyi/fifa-world-cup https://totalsportek.tips/football https://www.bintv.net https://soccerstreams.sbs https://strumyk.net سایت هایی که باز نمیشه رو باید با وی پی ان…
-</div>
-
-## tasiyanc — post 8419
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همه چی به کنار خوب این عربارو گاییدن🤣
-بی خایه های کودن
 </div>
 

@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/04/29 14:11
+📅 آخرین بروزرسانی: 1405/04/29 20:41
 
 ---
+
+## tasiyanc — post 7890
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای فرزندانی که سهمشان از وطن یک گلوله بود 🖤
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 7884
+
+<div align="center"><img src="files/post_7884_tasiyanc_7884.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 جدیدا دخترای ایرانی توی توییتر، با انتشار این تصاویر دارن پسرا رو به کتابخوانی دعوت میکنن😂
+
+@Tasiyanc ⭐️
+#Navid
+</div>
 
 ## tasiyanc — post 7883
 
@@ -299,18 +318,5 @@
 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جدید درباره تعویق امتحانات 👉 🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
-</div>
-
-## tasiyanc — post 7838
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جدید درباره تعویق امتحانات 👉
-🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
 </div>
 

@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/04/29 14:11
+📅 آخرین بروزرسانی: 1405/04/29 20:41
 
 ---
+
+## tasiyanc — post 7608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرتغال به رهبری رونالدو 🇵🇹 به دور یک هشتم رفت و رقیب اسپانیا شد ⚡️
+</div>
+
+## tasiyanc — post 7605
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+10سرور سرعتی پرمیوم متد جدید ⚡️
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
+
+ 
+✅@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7602
 
@@ -167,37 +188,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ☕ Nitro⚡Fast.npvt
-</div>
-
-## tasiyanc — post 7565
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-7سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
-
-🗝Password :  @Tasiyanc
-
- 
-✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7564
-
-<div align="center"><video src="files/post_7564_tasiyanc_7564.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7564_tasiyanc_7564.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیروز کریمی رو آنتن زنده صداوسیما:
-
-قلعه‌نویی ۵ سانت و ۱۰ سانت رو تحمل کرد ولی ۳۰ سانت رو میخواد کجاش بذاره؟!
-
-
-@Tasiyanc 💠
 </div>
 
