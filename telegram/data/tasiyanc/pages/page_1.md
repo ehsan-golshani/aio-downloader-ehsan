@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/30 10:14
+📅 آخرین بروزرسانی: 1405/04/30 12:56
 
 ---
+
+## tasiyanc — post 8541
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇹🇷🍃 HotFast.npvt
+</div>
+
+## tasiyanc — post 8540
+
+<div align="center"><video src="files/post_8540_tasiyanc_8540.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8540_tasiyanc_8540.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_8540_🇹🇷🍃 HotFast.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇹🇷🍃 HotFast.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 
+🔐
+
+سرور سرعتی پرمیوم  ترکیه - استانبول
+⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود 
+⬇️ ترید 
+🤑
+اینستاگرام 
+📸 جمینای 
+🤖
+
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 8525
 
@@ -13,8 +66,6 @@
 </div>
 
 ## tasiyanc — post 8524
-
-<div align="center"><a href="files/post_8524_🚀 Fast .nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🚀 Fast .nm</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی نت مود 📱
@@ -181,56 +232,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc 💠
-</div>
-
-## tasiyanc — post 8491
-
-<div align="center"><video src="files/post_8491_tasiyanc_8491.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8491_tasiyanc_8491.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم فرانسه
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8489
-
-<div align="center"><img src="files/post_8489_tasiyanc_8489.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🔴 دونالد ترامپ، از طریق شبکه Truth Social:
-
-بنجامین نتانیاهو به هیچ وجه، تحت هیچ شرایطی، در ایالات متحده آمریکا دستگیر نخواهد شد.
-او در حال مبارزه با جمهوری اسلامی ایران است، کشوری که اخیراً ۵۲۰۰۰ معترض بی‌گناه را به قتل رساند و در طول ۴۷ سال گذشته، سربازان آمریکایی و دیگران را به قتل رسانده است.
-تنها کسانی که باید دستگیر شوند، افرادی هستند که ایران را به این وضعیت بی‌سابقه از مرگ و ویرانی سوق دادند، وضعیتی که باید سال‌ها پیش، توسط روسای جمهور پیشین، مورد رسیدگی قرار می‌گرفت.
-
-
-@TASIYANC ✅
 </div>
 

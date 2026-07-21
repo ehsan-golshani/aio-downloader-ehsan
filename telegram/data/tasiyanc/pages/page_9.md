@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/04/30 10:14
+📅 آخرین بروزرسانی: 1405/04/30 12:56
 
 ---
+
+## tasiyanc — post 8297
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سپاه خورموج و اهواز مورد هدف موشکی.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8296
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 انفجار در اهواز
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8295
 
@@ -145,21 +161,5 @@ JAVID SHAH 👑
 بریم به کی بگیم این ایرانِ ۵۰ سال پیش ما بود !
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8275
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ انفجار در یگان امداد سنندج ، تایید / تکذیب نمیشه
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8274
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ انفجار شدید در بوشهر
-
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/04/30 10:14
+📅 آخرین بروزرسانی: 1405/04/30 12:56
 
 ---
+
+## tasiyanc — post 8170
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢طبق گزارش‌ها، اینترنت تو بعضی از نقاط کشور به شدت ضعیف شده
+
+وضعیت نت شما چطوره؟
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📰تسنیم:
+
+🇺🇸💢آمریکا شروع به زدن زیرساخت ها و پل ها کرده
+اونا به شهرستان بندرخمیر و بخش کهورستان حمله کردن و پل ارتباطی بندرعباس به شیراز که معروف به پل بندرعباس - کهورستان - لار هست رو هدف قرار دادن.
+برق مناطقی از کهورستان هم قطع شده
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8168
 
@@ -199,20 +221,5 @@
 
 @Tasiyanc 
 ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8128
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠فوری علیرضا فغانی داور فینال جام‌جهانی بین اسپانیا و آرژانتین شد.
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8127
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال تموم شه خواهیم دید چه خواهد شد
 </div>
 

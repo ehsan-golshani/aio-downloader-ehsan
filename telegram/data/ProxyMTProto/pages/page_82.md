@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/04/30 10:12
+📅 آخرین بروزرسانی: 1405/04/30 12:55
 
 ---
+
+## ProxyMTProto — post 47684
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: live.russia.mambabot.net
+Port: 7866
+Secret: ee843223f372ef32e718c5271b5580714c6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47683
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxymtproto.tproxy.rest
+Port: 8443
+Secret: ee79e7010200010007f0030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47682
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: russia.nolags.pw
+Port: 443
+Secret: dd04dbf1f1459ffbc5e646db206794163a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r22.proxytg.space
+Port: 8443
+Secret: eeace5ab7ab128f81a0b16ada143ec10807232322e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47680
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47679
 
@@ -136,52 +181,6 @@ Secret: ee58ff3d2285478b5a749af32da19f36707231362e70726f787974672e7370616365
 Server: 186.246.21.181
 Port: 443
 Secret: eec11798ab008831b474066c9e1ebf5c70617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dns.vdl.lat
-Port: 853
-Secret: ee534adcf23a16f425cbae129c4cb574cb6164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r18.proxytg.space
-Port: 8443
-Secret: eeeaf4cdef4ff30b4e3308e93f8a881ddd7231382e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47662
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👨‍💻 Staying connected to Telegram is getting harder in many regions, our proxies are actively working in Russia, Iran, and Iraq ⚡
-
--Получите бесплатный прокси в нашем боте
--Get your free proxy from our bot
--پروکسی رایگان از ربات دریافت کنید
-</div>
-
-## ProxyMTProto — post 47661
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: otklyuchi-vpn.nolags.pw
-Port: 443
-Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47660
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Iran
-Port: 8443
-Secret: dd79e7010200010007f0030386e24c3add
 @ProxyMTProto
 </div>
 
