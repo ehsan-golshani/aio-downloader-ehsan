@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/04/30 21:44
+📅 آخرین بروزرسانی: 1405/04/31 00:59
 
 ---
+
+## tasiyanc — post 8519
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقا این جان فداهای ما چی شد؟
+</div>
+
+## tasiyanc — post 8518
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 چابهار چندین انفجار مهیب
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8517
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انفجار در شیراز ، تایید میکنید شیرازیا؟
+</div>
+
+## tasiyanc — post 8516
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اختلال اینترنت در سراسر ایران
+</div>
 
 ## tasiyanc — post 8515
 
@@ -207,51 +233,5 @@ Loc 🇩🇪 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ممنون بابت حمایت‌هاتون @i_am_souji_2 ❤️ شب بالای ۵۰ استارز زده زیر پست کانفیگا
-</div>
-
-## tasiyanc — post 8481
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-5سرور سرعتی پرمیوم دارای ۲لوکیشن  ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8479
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب بخوابید آروم شد
-</div>
-
-## tasiyanc — post 8476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 دو انفجار در بندر امام
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
 </div>
 

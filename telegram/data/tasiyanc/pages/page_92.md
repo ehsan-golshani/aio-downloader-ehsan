@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/04/30 21:44
+📅 آخرین بروزرسانی: 1405/04/31 00:59
 
 ---
+
+## tasiyanc — post 5673
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان نامحدود📱
+
+⛈سرور vip تست شده همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5672
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان 📱
+
+⛈سرور vip تست شده همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5671
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان 📱
+
+⛈سرور سرور تست شده همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5670
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وایفای بزارم ؟
+</div>
 
 ## tasiyanc — post 5669
 
@@ -145,50 +184,6 @@ WİFİ موشک.npvt
 
 ⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
 
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5638
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منو چقد دوس؟
-</div>
-
-## tasiyanc — post 5637
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈۲ سرور وی ای پی سرور تست شده نت خانگی⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5636
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈4 سرور وی ای پی تست شده نت خانگی⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5634
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈سرور تست شده همه اپراتورا⛈
 
 🚀 @Tasiyanc ✅
 </div>

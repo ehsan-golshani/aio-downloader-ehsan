@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/04/30 21:44
+📅 آخرین بروزرسانی: 1405/04/31 00:59
 
 ---
+
+## tasiyanc — post 7824
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دریافت کانفیگ نت ملی در صورت قطعی 👉 ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
+</div>
+
+## tasiyanc — post 7823
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7822
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار و پروکسی های پرسرعتمون 👇
+https://t.me/+v0wRP5SGNrg5MThk
+
+دریافت کانفیگ مخصوص اینترنت ملی 👆
+</div>
+
+## tasiyanc — post 7821
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دریافت کانفیگ نت ملی در صورت قطعی 👉
+ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
+</div>
 
 ## tasiyanc — post 7819
 
@@ -144,66 +189,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پروفایل چنل با اجازتون عوض شد ❤️
-</div>
-
-## tasiyanc — post 7785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجب پخت پزی شد 💥 اندپوینتای جدید سرعتی
-دوستانی ک آیفون دارن تو ویندسکرایب بزنید
-</div>
-
-## tasiyanc — post 7778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد
-
-مناسب دانلود⬇️ & گیم 🎮
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe ⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر هارو تو چنل پروکسی دنبال کنین
-@TasiyanProxy
-</div>
-
-## tasiyanc — post 7764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-2سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜
-🛜🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
 </div>
 

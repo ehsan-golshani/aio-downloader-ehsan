@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/04/30 23:32
+📅 آخرین بروزرسانی: 1405/04/31 00:57
 
 ---
+
+## ProxyMTProto — post 48147
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: web.vingardium.co.uk.
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48146
 
@@ -172,15 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e63
 Server: wgwg.etherealvpn.uk
 Port: 443
 Secret: ee3b7ca716f61b904f00c0f93d9419de06617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48127
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Ehsgh.kon.khoshgele.ir.biobarmesh.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 
