@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/04/30 16:36
+📅 آخرین بروزرسانی: 1405/04/30 18:50
 
 ---
+
+## tasiyanc — post 8452
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماااااامممممممم
+</div>
 
 ## tasiyanc — post 8451
 
@@ -138,11 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
-</div>
-
-## tasiyanc — post 8430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تموم شد بریم بازی کسشر رو ببینیم
 </div>
 

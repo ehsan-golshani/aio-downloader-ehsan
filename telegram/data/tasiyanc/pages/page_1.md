@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/30 16:36
+📅 آخرین بروزرسانی: 1405/04/30 18:50
 
 ---
+
+## tasiyanc — post 8556
+
+<div align="center"><img src="files/post_8556_tasiyanc_8556.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست‌های جدید ترامپ در تروث:
+
+جدیدترین مورد از بیش از 52 هزار معترض بی‌گناه. وحشی‌ها!!! دموکرات‌ها کِی میخوان بیدار بشن؟؟؟
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8555
 
@@ -196,16 +208,6 @@ Location 🤯 🇫🇷
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨
 💪 حمله سپاه به کویت
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8513
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-⭕️ انفجار در بندرعباس
-
 @Tasiyanc 
 ⭐️
 </div>

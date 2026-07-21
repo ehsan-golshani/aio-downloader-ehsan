@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/04/30 16:36
+📅 آخرین بروزرسانی: 1405/04/30 18:50
 
 ---
+
+## tasiyanc — post 8185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
+</div>
 
 ## tasiyanc — post 8184
 
@@ -202,15 +208,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8145
-
-<div align="center"><img src="files/post_8145_tasiyanc_8145.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏔 روستای کندوان تبریز از معدود روستاهای صخره‌ای جهان است طبیعت زیبا، آب‌وهوای خنک و معماری منحصربه‌فرد، کندوان را به یکی از محبوب‌ترین جاذبه‌های گردشگری ایران تبدیل کرده است.
-
-@Tasiyanc ⭐️
 </div>
 

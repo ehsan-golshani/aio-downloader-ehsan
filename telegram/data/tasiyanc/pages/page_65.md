@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/04/30 16:36
+📅 آخرین بروزرسانی: 1405/04/30 18:50
 
 ---
+
+## tasiyanc — post 6353
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ع سرورای تاسیان اسکی می‌ره پسوردم می‌زاره و میگه بیاید تشکر کنین ازم
+ساعت ۲۱.۱۸ سرور میزنم پنج دقیقه بعدش دیکد می‌کنه ، آدم میمونه چی بگه
+</div>
 
 ## tasiyanc — post 6352
 
@@ -204,13 +211,5 @@ Password : @Tasiyanc  ⏩
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بیاید گپمون - تبادل کانفیگ & ...
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN♻️
-تست شده  🚀
-@Tasiyanc ✅
 </div>
 

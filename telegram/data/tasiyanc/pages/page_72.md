@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/04/30 16:36
+📅 آخرین بروزرسانی: 1405/04/30 18:50
 
 ---
+
+## tasiyanc — post 6176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تست شده با ایرانسل & سامانتل   ♻️
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6175
 
@@ -195,11 +202,5 @@ VIP تاسیان 🪙 GOLD.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Premium 💙BLUE.npvt
-</div>
-
-## tasiyanc — post 6152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Vip⚡💚fast.npvt
 </div>
 
