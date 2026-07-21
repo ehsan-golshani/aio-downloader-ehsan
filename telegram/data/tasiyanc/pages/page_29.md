@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/04/30 02:46
+📅 آخرین بروزرسانی: 1405/04/30 10:14
 
 ---
+
+## tasiyanc — post 7564
+
+<div align="center"><video src="files/post_7564_tasiyanc_7564.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7564_tasiyanc_7564.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیروز کریمی رو آنتن زنده صداوسیما:
+
+قلعه‌نویی ۵ سانت و ۱۰ سانت رو تحمل کرد ولی ۳۰ سانت رو میخواد کجاش بذاره؟!
+
+
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7563
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡️🚀 Premium.npvt
+</div>
+
+## tasiyanc — post 7560
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️⁰⁷@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 7553
 
@@ -228,34 +255,5 @@ Password :  @Tasiyanc ❤️
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صداوسیما:
 اگر ترامپ را می‌کشتیم؛ آمریکا با ما مذاکره می‌کرد؟!
-</div>
-
-## tasiyanc — post 7525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همه دوستانی که اندروید دارن نت مود دانلود کنن بیشتر میزارم از امروز همراه نپستر
-</div>
-
-## tasiyanc — post 7524
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇦🇪@Tasiyanc ⚡️.nm
-</div>
-
-## tasiyanc — post 7520
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 کانفیگ اختصاصی نت مود 🚀
-
-4 سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-دانلود برنامه 🕹
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 

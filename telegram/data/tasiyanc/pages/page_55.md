@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/04/30 02:46
+📅 آخرین بروزرسانی: 1405/04/30 10:14
 
 ---
+
+## tasiyanc — post 6645
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 🔐
+vless://d39664df-5bc0-4f49-9894-8f03b4150082@germany-vip.soft26.ir:8443?mode=auto&path=%2F&security=reality&encryption=none&pbk=QLamtir13xwzyWVlPRN3C7lw_fhSBU7X4H3A8zAl5Fg&fp=chrome&type=xhttp&sni=www.yahoo.com&sid=6f3192#T.me%2FTasiYanc%20%E2%9A%A1%E2%99%82%EF%B8%8F
+vless://931729a8-3c20-4841-89a1-f18dc9ce0a6f@cdn7-09.vk-cdnvideo.com:8443?security=tls&encryption=none&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=cdn7-09.vk-cdnvideo.com#t.me%2FTasiyanc%20%E2%9A%A1%E2%99%82%EF%B8%8F%202
+
+📍 🇨🇭
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6644
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بهرحال منتی نیست ، به عشق شما ادامه میدیم 🦦
+</div>
+
+## tasiyanc — post 6640
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فکت عجیب : مردم ایران از چنلایی که سه ماه ۲۴ ساعت آنلاین بودن وصلشون کردن هیچ حمایتی نکردن و وقتی وصل شدن خیلیاشون لف دادن🤌😂
+</div>
 
 ## tasiyanc — post 6639
 
@@ -173,35 +196,6 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 دانلود برنامه 🕹 IOS 📱 Android 
 
 آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6586
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگای بالا ک گذاشتم همگی با سرعت وصلن ، درصورت فیلتر جدیدشو قرار میدیم ❤️
-</div>
-
-## tasiyanc — post 6583
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ تسنیم:
-
-هم اکنون یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه بمباران شد.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6581
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
 </div>

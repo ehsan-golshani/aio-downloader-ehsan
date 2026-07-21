@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/04/30 00:21
+📅 آخرین بروزرسانی: 1405/04/30 10:12
 
 ---
+
+## ProxyMTProto — post 49146
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Fighter-Man.ir-proxy.Manege-Desktop-For.Co.Im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49145
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49144
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.acientirani-uor4.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49143
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ads.canvas-proxy.com
+Port: 443
+Secret: eeb7f10957fcefd87d5e8c336fc9851d8d6c6f6e672e7476
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: vagon.belotfelipo.co.uk
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49141
 
@@ -136,51 +181,6 @@ Secret: ee846d23933361faa6211c7ac6765023be6164322e617269786f2e73686f70
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49126
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tg50c2200a.koshkaproxy.shop
-Port: 443
-Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49125
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 103.161.35.23
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tgde594f14.koshkaproxy.shop
-Port: 443
-Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s2.postpulse.space
-Port: 443
-Secret: ee263bf8f7de3c2b04aa1c008ab21e4a566164322e617269786f2e73686f70
 @ProxyMTProto
 </div>
 
