@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/04/30 12:56
+📅 آخرین بروزرسانی: 1405/04/30 15:04
 
 ---
+
+## tasiyanc — post 8249
+
+<div align="center"><img src="files/post_8249_tasiyanc_8249.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چی میشه گفت واقن به اینا :)
+
+کامنت آزاد ☺️
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8246
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+3سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8245
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلاااااااااار 195 😐
+</div>
 
 ## tasiyanc — post 8244
 
@@ -160,31 +201,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ضربه سختی در راه است
 خواهیم دید چه میشود🤣
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 پیت هگست: کنترل تنگه هرمز دست ایران نیست
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8224
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨جمهوری اسلامی یکی از رادار های آمریکا در کویت را مورد هدف قرار داد
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8223
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وطن عشق من🇮🇷
-هموطن جان من💔
 
 @Tasiyanc✅
 </div>

@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/04/30 12:56
+📅 آخرین بروزرسانی: 1405/04/30 15:04
 
 ---
+
+## tasiyanc — post 6566
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی مناسب همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6561
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✊🔴ترامپ : ما واقعاً به توافق نزدیک بودیم - اما آنها همچنان ما را به بازی می‌گیرند.
+آنها مدام ما را احمق جلوه می‌دهند، چون می‌دانید چیست؟ آنها با چند رئیس جمهور بسیار احمق معامله کردن
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6560
 
@@ -200,25 +238,5 @@ https://t.me/TasiyanProxy
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6541
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
-</div>
-
-## tasiyanc — post 6540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو
-پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
-</div>
-
-## tasiyanc — post 6539
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرزیدنت ترامپ: من نزدیک به دستور دادن حملات جدید به نیروگاه‌ها و پل‌های ایرانی هستم
-@Tasiyanc ✅
 </div>
 

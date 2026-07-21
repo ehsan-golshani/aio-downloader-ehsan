@@ -1,8 +1,88 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/04/30 12:56
+📅 آخرین بروزرسانی: 1405/04/30 15:04
 
 ---
+
+## tasiyanc — post 6961
+
+<div align="center"><video src="files/post_6961_tasiyanc_6961.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6961_tasiyanc_6961.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ دارک تانل 
+🌟
+
+حجم نامحدود - سرعتی 
+🚀
+
+تست شده رو تمام نت ها 
+✅
+
+دانلود Dark Tunnel  
+🕹
+
+آموزش اتصال به سرور دارک 
+⏩
+
+T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6960
+
+<div align="center"><video src="files/post_6960_tasiyanc_6960.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6960_tasiyanc_6960.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ دارک تانل 
+🌟
+
+حجم نامحدود - سرعتی 
+🚀
+
+تست شده رو تمام نت ها 
+✅
+
+دانلود Dark Tunnel  
+🕹
+
+آموزش اتصال به سرور دارک 
+⏩
+
+T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6959
+
+<div align="center"><video src="files/post_6959_tasiyanc_6959.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6959_tasiyanc_6959.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+😎
+
+۲سرور سرعتی تست شده  
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+🔹
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6957
 
@@ -167,31 +247,5 @@ Vip SPEED ⚡⚡.npvt
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6938
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑ساب لینک اختصاصی تاسیان👑 https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt اینو بزنید 🔐🔐 هر ۴ ساعت کانفیگا آپدیت میشن بعد از ۴ ساعت update subscription بزنید تا آپدیت شن @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6937
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آخرش یکی به این ترامپ کسخل نگفت قبل اینکه حمله کنی تنگه باز بود عوارضم نداشت ، الان باز شدن تنگه رو دست آورد بزرگ می‌دونه برا خودش کسخل کله زرد املاکی
-</div>
-
-## tasiyanc — post 6936
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
 </div>
 

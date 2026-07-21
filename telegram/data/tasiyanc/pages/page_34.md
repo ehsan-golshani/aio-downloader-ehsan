@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/04/30 12:56
+📅 آخرین بروزرسانی: 1405/04/30 15:04
 
 ---
+
+## tasiyanc — post 7381
+
+## tasiyanc — post 7379
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀🍓@tasiyanc.conf
+</div>
+
+## tasiyanc — post 7378
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد نامحدود مخصوص گیم،وب‌گردی 👑
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7377
 
@@ -199,51 +219,5 @@ https://www.gstatic.com/generate_204
 trojan://aR9EJWEB2Jp3m6xKJK%3DCt7kLyqFSU-iDBR@92.119.35.127:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%E2%9C%85%20%40Tasiyanc
 trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%F0%9F%92%AF%40Tasiyanc
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7336
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت
-
-4سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 💘
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7334
-
-<div align="center"><video src="files/post_7334_tasiyanc_7334.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7334_tasiyanc_7334.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت
-
-3سرور سرعتی ⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 💘
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۰٪ کانفیگای وایرگارد اندپوینتا اختلال دارن ، تا زمانیکه اندپوینت مناسب پیدا کنم تا اتصالتون پایدار باشه نمیزاریم
 </div>
 

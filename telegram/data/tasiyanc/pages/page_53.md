@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/04/30 12:56
+📅 آخرین بروزرسانی: 1405/04/30 15:04
 
 ---
+
+## tasiyanc — post 6700
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موقع بحران خانواده‌ایم، موقع آرامش غریبه‌ایم 😂
+</div>
+
+## tasiyanc — post 6698
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪐VelocityX 🇩🇪.npvt
+</div>
+
+## tasiyanc — post 6697
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+3سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6696
 
@@ -153,42 +181,5 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۹۰٪ کانفیگای NPV ک زدم امروز وصلن
-</div>
-
-## tasiyanc — post 6677
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc - DE VIP 🇩🇪⚡.npvt
-</div>
-
-## tasiyanc — post 6676
-
-<div align="center"><video src="files/post_6676_tasiyanc_6676.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6676_tasiyanc_6676.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 🕹 IOS 
-📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6674
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ موفق شد قیمت نفت رو با این خبر به زیر ۹۰ دلار برسونه
-ذات ترامپ :
-@Tasiyanc ✅
 </div>
 
