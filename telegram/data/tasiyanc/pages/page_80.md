@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/04/30 18:50
+📅 آخرین بروزرسانی: 1405/04/30 20:24
 
 ---
+
+## tasiyanc — post 5968
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گپ تاسیان 🦦
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 5967
 
@@ -158,12 +165,5 @@ TS premium Servers 🌲⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قربون تک تکتون ، با اینکه نت وصله ولی اختلال همچنان بسیار بالاست تلاش میشه بهترین سرورارو بزاریم امیدوارم سرعت خوبی بگیرید
-</div>
-
-## tasiyanc — post 5944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واقعا سرورهای خوبی می‌زاری دم غیرتت گرم ب جان خودم
-عشقی عشق ❤️🥲
 </div>
 

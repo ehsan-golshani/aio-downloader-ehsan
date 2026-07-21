@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/04/30 18:50
+📅 آخرین بروزرسانی: 1405/04/30 20:24
 
 ---
+
+## tasiyanc — post 5873
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب خب.. یه کانفیگ اوکی کردیم برای همه اپراتور ها جوابه و همه چیو پرسرعت میاره. فقط برای 500 نفر اولی که سریعترن در دسترسه! ⚠️ دریافت رایگان کانفیگ اختصاصی
+</div>
 
 ## tasiyanc — post 5872
 
@@ -160,11 +166,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دمت گرم داش
-</div>
-
-## tasiyanc — post 5850
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایول کارت حرف نداره تاسیان عشقی
 </div>
 

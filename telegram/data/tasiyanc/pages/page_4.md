@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/04/30 18:50
+📅 آخرین بروزرسانی: 1405/04/30 20:24
 
 ---
+
+## tasiyanc — post 8453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانییییییییییییا قهرمان جام جهانی شد
+</div>
 
 ## tasiyanc — post 8452
 
@@ -138,11 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 موقع قطعی خودتو بکشی ام رات نمیدم
-</div>
-
-## tasiyanc — post 8431
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
 </div>
 
