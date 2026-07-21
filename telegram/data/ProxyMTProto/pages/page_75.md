@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/04/30 15:02
+📅 آخرین بروزرسانی: 1405/04/30 16:34
 
 ---
+
+## ProxyMTProto — post 47832
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: pulse.flowstreamhub.site
+Port: 8443
+Secret: ee993b027bf939e8b65e48c633930c8b6770756c73652e666c6f7773747265616d6875622e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47831
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47830
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: warsaw.nolags.pw
+Port: 443
+Secret: dd68c2ee708b2e88d8d12802479d4d5026
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47829
 
@@ -154,33 +181,6 @@ Secret: ee8168c0b7cfbbb15a4fe4691243e6dc94617669746f2e7275
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47812
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: durov.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: network.nolags.pw
-Port: 443
-Secret: dd8ee55939bfea58827fd6f140bca62a63
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47810
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dash.flowstreamhub.site
-Port: 8443
-Secret: eeef254d73d0f3c934acf304ca0e6b9cc2646173682e666c6f7773747265616d6875622e73697465
 @ProxyMTProto
 </div>
 

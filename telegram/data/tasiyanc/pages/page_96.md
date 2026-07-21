@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/04/30 15:04
+📅 آخرین بروزرسانی: 1405/04/30 16:36
 
 ---
+
+## tasiyanc — post 5537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده  📶
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترکیبی ✅ vless://5b34187f-f811-58b1-7e68-3cc63df5df3b@meli.masterdadeh.ir:80?type=ws&host=meli.masterdadeh.ir&path=%2F#%40Tasiyanc%20%D8%AA%D8%B1%DA%A9%DB%8C%D8%A8%DB%8C%C2%B9 Join @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 5535
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترکیبی ✅
+
+vless://5b34187f-f811-58b1-7e68-3cc63df5df3b@meli.masterdadeh.ir:80?type=ws&host=meli.masterdadeh.ir&path=%2F#%40Tasiyanc%20%D8%AA%D8%B1%DA%A9%DB%8C%D8%A8%DB%8C%C2%B9
+
+Join @Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 5534
 
@@ -328,25 +356,5 @@ Tarkibi
 لینک داخلی آخرین نسخه اسلیپ نت👈
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5506
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش نداریم فعلا پول نزنید باز شه اطلاع میدم
-</div>
-
-## tasiyanc — post 5503
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-gül bana dünyalar benim olsun
-</div>
-
-## tasiyanc — post 5502
-
-<div align="center"><img src="files/post_5502_tasiyanc_5502.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-WiFi 🥝.npvt
 </div>
 

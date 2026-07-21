@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/04/30 15:04
+📅 آخرین بروزرسانی: 1405/04/30 16:36
 
 ---
+
+## tasiyanc — post 6045
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امین زحمت کشید شماره و آدرس و شماره بابای جاکشش درآورده
+</div>
+
+## tasiyanc — post 6044
+
+<div align="center"><img src="files/post_6044_tasiyanc_6044.jpg" alt="Photo"></div>
+
+## tasiyanc — post 6043
+
+<div align="center"><img src="files/post_6043_tasiyanc_6043.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
+</div>
 
 ## tasiyanc — post 6042
 
@@ -113,23 +131,5 @@
 من فقط جوین شدم که جواب شمارو بدم
 آره مال من پرید
 احراز هویت کردم برگشت
-</div>
-
-## tasiyanc — post 6022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپل آیدی لاک میشه
-</div>
-
-## tasiyanc — post 6021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من سه تا اپل ایدی سرش بگا دادم
-</div>
-
-## tasiyanc — post 6020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این فیلتر شکن مخربو سریع حذف کنین بخدا من فشاری شدم دیگه ،
 </div>
 
