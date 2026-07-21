@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/04/30 20:24
+📅 آخرین بروزرسانی: 1405/04/30 21:44
 
 ---
+
+## tasiyanc — post 7910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ 🌟 : در صورتی ک جمهوری اسلامی منو ترور کنه بلافاصله هزاران موشک تا یکسال آماده شلیک هستند
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7904
 
@@ -215,47 +222,5 @@
 @Tasiyanc 
 😌
 #Tina
-</div>
-
-## tasiyanc — post 7868
-
-<div align="center"><video src="files/post_7868_tasiyanc_7868.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7868_tasiyanc_7868.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 
-📱
-
-3سرور  سرعتی پرمیوم 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال روی اندروید 
-⛓
-آموزش اتصال روی ویندوز  
-⛓
-
-دانلود برنامه اندروید 
-🕹
-
-دانلود برنامه برای ویندوز 
-💻
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc
 </div>
 

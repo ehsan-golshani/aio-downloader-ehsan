@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/04/30 20:24
+📅 آخرین بروزرسانی: 1405/04/30 21:44
 
 ---
+
+## tasiyanc — post 8515
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8514
 
@@ -246,18 +253,5 @@ Loc 🇩🇪 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
-</div>
-
-## tasiyanc — post 8474
-
-<div align="center"><video src="files/post_8474_tasiyanc_8474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8474_tasiyanc_8474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨از کویت به سمت ایران موشک شلیک شده
-
-@TASIYANC 
-✅
 </div>
 

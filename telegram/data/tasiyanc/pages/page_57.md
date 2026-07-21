@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/04/30 20:24
+📅 آخرین بروزرسانی: 1405/04/30 21:44
 
 ---
+
+## tasiyanc — post 6574
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آمریکا میخواد بزنه تقصیر منه ریکشن نمیزنین؟
+</div>
 
 ## tasiyanc — post 6573
 
@@ -204,11 +210,5 @@ https://t.me/TasiyanProxy
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 منتظرم قطعی بشه پرایوت کنم چنلو اونای ک لف میدن حالشون میپرسم
-</div>
-
-## tasiyanc — post 6547
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بوی برخط شدن میاد اینبار
 </div>
 

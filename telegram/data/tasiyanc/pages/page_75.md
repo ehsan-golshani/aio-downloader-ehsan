@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/04/30 20:24
+📅 آخرین بروزرسانی: 1405/04/30 21:44
 
 ---
+
+## tasiyanc — post 6106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc ⚡🔥HOT.npvt
+</div>
 
 ## tasiyanc — post 6104
 
@@ -183,11 +189,5 @@ Channel@Tasiyanc.ovpn
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک سرویس خریداری کردید هر ۲۴ ساعت کانفیگ ها آپدیت میشن برید ساب لینکتون و کانفیگ های جدید رو بردارید
 </div>
 

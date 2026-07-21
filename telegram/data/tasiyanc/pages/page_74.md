@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/04/30 20:24
+📅 آخرین بروزرسانی: 1405/04/30 21:44
 
 ---
+
+## tasiyanc — post 6130
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر 💋
+</div>
 
 ## tasiyanc — post 6129
 
@@ -181,11 +187,5 @@ https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunne
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇩🇪🚀 رایتل.npvt
-</div>
-
-## tasiyanc — post 6106
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ⚡🔥HOT.npvt
 </div>
 

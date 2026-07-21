@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/04/30 20:24
+📅 آخرین بروزرسانی: 1405/04/30 21:44
 
 ---
+
+## tasiyanc — post 6304
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شما باشید فشار نمیخورید؟
+</div>
 
 ## tasiyanc — post 6303
 
@@ -197,11 +203,5 @@ MCI - SamanTel - wifi تست شده
 اتصال به سرورها ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6281
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز 🦦
 </div>
 

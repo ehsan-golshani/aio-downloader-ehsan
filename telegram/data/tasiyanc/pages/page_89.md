@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/04/30 20:24
+📅 آخرین بروزرسانی: 1405/04/30 21:44
 
 ---
+
+## tasiyanc — post 5738
+
+<div align="center"><img src="files/post_5738_tasiyanc_5738.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام، از زیبا بودن این صفحه چیزی نمیگم،خودتون ببینین 🥰
+</div>
 
 ## tasiyanc — post 5737
 
@@ -185,11 +193,5 @@ vless://20ecee51-1044-4be3-89a9-f3c700425ead@45.67.230.230:443?security=reality&
 رمز : ″ @Tasiyanc ″
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5714
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🥝.npvt
 </div>
 

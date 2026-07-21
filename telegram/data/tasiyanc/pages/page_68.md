@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/04/30 20:24
+📅 آخرین بروزرسانی: 1405/04/30 21:44
 
 ---
+
+## tasiyanc — post 6281
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز 🦦
+</div>
 
 ## tasiyanc — post 6280
 
@@ -222,19 +228,5 @@ VIP OCTOPUS SV⚡🐙.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 BabyGirl 🪐.npvt
-</div>
-
-## tasiyanc — post 6254
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB سرور آلمان  👑
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 🍏
-
-آموزش⏩
-
-@Tasiyanc ✅
 </div>
 
