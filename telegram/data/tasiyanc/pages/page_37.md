@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/04/31 13:43
+📅 آخرین بروزرسانی: 1405/04/31 15:45
 
 ---
+
+## tasiyanc — post 7296
+
+## tasiyanc — post 7293
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 New Protocol⚡️سرعتی
+
+hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls&insecure=0&sni=de1.xiaoliyu.cyou#T.me%2FTasiyanc%20%F0%9F%87%A9%F0%9F%87%AA%E2%9A%A1%E2%81%B0%C2%B9
+hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls&insecure=0&sni=de1.xiaoliyu.cyou#T.me%2FTasiyanc%20%F0%9F%87%A9%F0%9F%87%AA%E2%9A%A1%E2%81%B0%C2%B2
+
+📍🇩🇪
+
+✅ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7291
+
+<div align="center"><img src="files/post_7291_tasiyanc_7291.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪🚀 Full Fast⚡.npvt
+</div>
 
 ## tasiyanc — post 7290
 
@@ -180,23 +203,5 @@
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7260
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی هجومی تیم ملی با مساوی به پایان رسید
-</div>
-
-## tasiyanc — post 7259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخرااااااااج بازیکن بلژیک 🔹
-</div>
-
-## tasiyanc — post 7257
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشمای بلژیک ریخته ۱۱ نفری دفاع میکنن
 </div>
 
