@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/04/31 18:05
+📅 آخرین بروزرسانی: 1405/04/31 19:44
 
 ---
+
+## tasiyanc — post 6451
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🚀⚡.txt
+</div>
 
 ## tasiyanc — post 6450
 
@@ -194,14 +200,6 @@ FAST⚡TASIYAN🚀.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه مقدار نقض نمک آتش بسه
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر فوری
-هم اکنون حمله اسرائیل به چند سایت راداری در تهران
 @Tasiyanc ✅
 </div>
 

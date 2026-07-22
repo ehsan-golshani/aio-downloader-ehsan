@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/04/31 18:05
+📅 آخرین بروزرسانی: 1405/04/31 19:44
 
 ---
+
+## tasiyanc — post 6224
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد XB   👑
+
+دانلود  Wg tunnel 🕹
+
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6223
 
@@ -164,17 +176,6 @@ NEW FAST ⚡ 🚀.npvt
 </div>
 
 ## tasiyanc — post 6200
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  
-👑
-دانلود  Wg tunnel 🕹
-آموزش⏩
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6199
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختصاصی وایرگارد  

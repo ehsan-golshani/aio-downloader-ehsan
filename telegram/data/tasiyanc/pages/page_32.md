@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/04/31 18:05
+📅 آخرین بروزرسانی: 1405/04/31 19:44
 
 ---
+
+## tasiyanc — post 7483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معرفی فیلم Protector 2026 📹 🔹ژانر : اکشن ، درام ، جنایی محصول 🇺🇸 با هنرنمایی Milla Jovovich ⭐️ کارگردان Adrian Grünberg 🔺 خلاصه داستان محافظ، زندگی آرام نیکی، قهرمان سابق جنگ، زمانی در هم میشکند که دخترش ربوده میشود. او که ناخواسته وارد دنیای زیرزمینی…
+</div>
 
 ## tasiyanc — post 7482
 
@@ -176,11 +182,5 @@ ESPRESSO 🔥☕.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️حمله آمریکا به بندرلنگه و بندر کنگ
-</div>
-
-## tasiyanc — post 7447
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صداوسیما: دقایقی پیش چندین انفجار در شهرستان سیریک، جنوب ایران رخ داده است.
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/04/31 18:05
+📅 آخرین بروزرسانی: 1405/04/31 19:44
 
 ---
+
+## tasiyanc — post 6509
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
+</div>
 
 ## tasiyanc — post 6508
 
@@ -219,11 +225,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 300 GB - 🇬🇧🇩🇪.npvt
-</div>
-
-## tasiyanc — post 6476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امسال ( خرداد ماه) آب تراز دریاچه اورمیه نسبت به سال گذشته (خرداد)۲۰ برابر افزایش داشته 😂😐
 </div>
 
