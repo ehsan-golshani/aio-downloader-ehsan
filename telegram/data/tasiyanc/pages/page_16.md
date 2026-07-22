@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/04/31 23:57
+📅 آخرین بروزرسانی: 1405/05/01 01:19
 
 ---
+
+## tasiyanc — post 8142
+
+<div align="center"><img src="files/post_8142_tasiyanc_8142.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانو Ester هستن زید مدل اسپانیایی امباپه بازیکن رئال 🦥
+
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 8140
 
@@ -185,11 +195,5 @@
 🔴حملات شدید آمریکا به اهواز عزیز
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتیجه دقیق بازی آرژانتین 🇦🇷 و انگلیس 🏴󠁧󠁢󠁥󠁮󠁧󠁿 بگید کانفیگ وایرگارد بگیرید
 </div>
 

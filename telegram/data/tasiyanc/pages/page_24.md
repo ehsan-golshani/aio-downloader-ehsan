@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/04/31 23:57
+📅 آخرین بروزرسانی: 1405/05/01 01:19
 
 ---
+
+## tasiyanc — post 7806
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ : ممکنه دوباره جنگ با ایران پر قدرت شروع بشه.
+</div>
 
 ## tasiyanc — post 7799
 
@@ -196,11 +202,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فووووووری حملات آمریکا به اسکله حقانی در سیریك
-</div>
-
-## tasiyanc — post 7754
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واکنش اسرائیل به جنگ فعلی : خوابیما قطعش کنین
 </div>
 

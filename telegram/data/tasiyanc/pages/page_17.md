@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/04/31 23:57
+📅 آخرین بروزرسانی: 1405/05/01 01:19
 
 ---
+
+## tasiyanc — post 8113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتیجه دقیق بازی آرژانتین 🇦🇷 و انگلیس 🏴󠁧󠁢󠁥󠁮󠁧󠁿 بگید کانفیگ وایرگارد بگیرید
+</div>
 
 ## tasiyanc — post 8112
 
@@ -218,11 +224,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 🚨💢 فوری صنایع الکترونیک شیراز زدن
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گرمهههههههههههههههههه
 </div>
 

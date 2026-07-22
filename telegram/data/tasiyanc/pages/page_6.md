@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/31 23:57
+📅 آخرین بروزرسانی: 1405/05/01 01:19
 
 ---
+
+## tasiyanc — post 8429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانوووووو شکیرا اومد
+</div>
 
 ## tasiyanc — post 8428
 
@@ -158,15 +164,5 @@ Ip 🇩🇪 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂 دریافت رسانه 👉
-</div>
-
-## tasiyanc — post 8400
-
-<div align="center"><img src="files/post_8400_tasiyanc_8400.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂
-
-دریافت رسانه 👉
 </div>
 
