@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/04/31 15:43
+📅 آخرین بروزرسانی: 1405/04/31 18:03
 
 ---
+
+## ProxyMTProto — post 47648
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: yard-yaystal-menyat.yard-tg-bot.ru
+Port: 443
+Secret: ee6a441d3845f1bfec1100662ce671d8ed76762e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47647
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47646
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 178.105.168.17
+Port: 443
+Secret: eeb67e98429f3ba8896ff33ab9ff9d18a1676f6f676c65617069732e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47645
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: For Russia and Iran
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQRueWVrdGFuZXQuY29tZmFyYWthdi5jb212YW4ubmFqdmEuY29tAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47644
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.21.87
+Port: 443
+Secret: 7sEXmKsAiDG0dAZsnh6_XHFhdml0by5ydQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47643
 
@@ -139,51 +184,6 @@ Secret: eefe281d2bfa13f991ed6be43138e5e14c79612e7275
 Server: s15.proxyru.top
 Port: 993
 Secret: eefe281d2bfa13f991ed6be43138e5e14c7777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47628
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 2.26.252.43
-Port: 443
-Secret: ee6cc9e422a51432ca4df25293389adef06172746c6562656465762e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r9.proxytg.space
-Port: 8443
-Secret: ee3e77e6aa740bda96a1dabd06717f51b272392e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: amorecoin.duckdns.org
-Port: 443
-Secret: 7mYW_5fPLJzJxcvUupkA3pN3d3cuZ29vZ2xlLmNvbQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: nd1.mowork.twc1.net
-Port: 443
-Secret: ee79faca7ec8bd1b9125007dee535716f47777772e6d6963726f736f66742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 45.12.109.223
-Port: 443
-Secret: ee43db025a33093757dadf5ab0aa9966b1676f6f676c65617069732e636f6d
 @ProxyMTProto
 </div>
 

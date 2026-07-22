@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/04/31 15:45
+📅 آخرین بروزرسانی: 1405/04/31 18:05
 
 ---
+
+## tasiyanc — post 7052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختصاصی Ovpn  📶
+
+تست شده تمام نتها 
+🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7050
 
@@ -212,6 +229,4 @@ matador ⚡ Fast.npvt
 
 ✔️ T.me/Tasiyanc ✅
 </div>
-
-## tasiyanc — post 7001
 
