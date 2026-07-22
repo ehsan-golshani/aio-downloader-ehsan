@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/04/31 11:04
+📅 آخرین بروزرسانی: 1405/04/31 13:43
 
 ---
+
+## tasiyanc — post 8386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 انفجار در سیریک
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8385
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 4 انفجار شدید در بندرعباس گزارش میشه
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8384
 
@@ -168,30 +184,5 @@
 در سال ۱۹۸۳، ریک چارلز با شیرجه از ارتفاع ۵۲ متر در سی‌ورلد، یکی از خطرناک‌ترین شیرجه‌های تاریخ را ثبت کرد. او با سرعتی بیش از ۱۱۶ کیلومتر بر ساعت و ورودی کاملاً عمودی، بدون آسیب جدی از آب بیرون آمد. این شیرجه هنوز هم یکی از شگفت‌انگیزترین اجراهای تاریخ ورزش محسوب می‌شود.
 
 @Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8359
-
-<div align="center"><video src="files/post_8359_tasiyanc_8359.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8359_tasiyanc_8359.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 وضعیت مسکو روسیه بعد از حملات امروز اوکراین
-
-انگار فیلم آخر الزمانی هست
-
-
-@Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8358
-
-<div align="center"><img src="files/post_8358_tasiyanc_8358.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐 ترامپ کلی هزینه کرد که پل تو جنوب رو بزنه، اما بخاطر اینکه رودخونه‌ی کنار پل خشک شده بود، مردم یه جاده خاکی از همونجا درست کردن و تردد میکنن 😂
-
-@Tasiyanc ✅
 </div>
 
