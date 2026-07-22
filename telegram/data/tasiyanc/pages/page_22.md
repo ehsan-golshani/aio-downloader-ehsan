@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/04/31 00:59
+📅 آخرین بروزرسانی: 1405/04/31 11:04
 
 ---
+
+## tasiyanc — post 7881
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تفاهم ایران و امریکا مثل مهریه‌ست
+کی داده کی گرفته🤣
+
+@Tasiyanc✅
+#Mobina
+</div>
+
+## tasiyanc — post 7879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💀با این سایت های ارزشمند تنبلی رو بزار کنار و خودخوانی زبان رو شروع کن : #معرفی_سایت
+
+1- سایت : TalkEnglish.com
+2- سایت : Storynory.com
+3- سایت : Lingua.com
+4- سایت : Grammerly.com
+5- سایت : Oysterenglish.com
+
+@Tasiyanc✅
+#Mobina
+</div>
 
 ## tasiyanc — post 7878
 
@@ -282,47 +307,5 @@
 
 👈 دریافت کانفیگ ها 
 👆
-</div>
-
-## tasiyanc — post 7829
-
-<div align="center"><video src="files/post_7829_tasiyanc_7829.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7829_tasiyanc_7829.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  
-📶
-
-سه سرور سرعتی‌ تست شده
-💥
-
-دانلود برنامه اندروید 
-🕹
-
-دانلود برنامه آیفون 
-📱
-
-آموزش اتصال به اینجکتور ✨
-
-
-مناسب دانلود 
-⬇️ وب‌گردی 
-🔍 اینستاگرام 
-📸 جمینای 
-🤖 گیم 
-🎮
-
-
-اتصال امن برای همه 
-🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7828
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سپاه پاسداران : تنگه هرمز اکنون به طور دائم بسته شده است و ایالات متحده و متحدان آن دیگر هرگز از خلیج فارس نفت دریافت نخواهند کرد @Tasiyanproxy
 </div>
 

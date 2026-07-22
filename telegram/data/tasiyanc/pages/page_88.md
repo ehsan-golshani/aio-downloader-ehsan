@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/04/31 00:59
+📅 آخرین بروزرسانی: 1405/04/31 11:04
 
 ---
+
+## tasiyanc — post 5767
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈4 سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5766
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریکشن 😐😐?
+</div>
 
 ## tasiyanc — post 5765
 
@@ -207,31 +226,5 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Crocodile 🐊 VIP.npvt
-</div>
-
-## tasiyanc — post 5744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده روی همراه اول - رایتل ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5743
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🌟 MCI - WiFi
-
-vless://0dc22208-cea4-4423-b3c3-a36957e23233@91.225.217.26:443?security=reality&encryption=none&pbk=Zd5BqaW-kyJqZANUH2cIARr466QZw09pNngYjsEK1w8&headerType=none&fp=chrome&type=tcp&sni=yahoo.com&sid=30fa#%40Tasiyanc%20%E2%80%A2%20MCI
-
-@Tasiyanc ✅
 </div>
 

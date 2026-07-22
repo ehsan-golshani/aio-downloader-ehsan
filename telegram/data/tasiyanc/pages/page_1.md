@@ -1,12 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/04/31 00:59
+📅 آخرین بروزرسانی: 1405/04/31 11:04
 
 ---
 
-## tasiyanc — post 8572
+## tasiyanc — post 8574
 
-<div align="center"><a href="files/post_8572_Turkey ⚡ Fast.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Turkey ⚡ Fast.npvt</a></div>
+<div align="center"><img src="files/post_8574_tasiyanc_8574.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•پرامپت اختصاصی جدید مرد - زن 🤖🤖
+
+•عکساتو زیباتر کن 💖
+
+•آموزش استفاده 👉
+
+
+🔺 دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8573
+
+<div align="center"><a href="files/post_8573_@Tasiyanc 💖⚡.nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 💖⚡.nm</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود📱
+
+سرور  سرعتی پرمیوم 🇺🇸 ⚡️
+
+تست شده روی همه نت ها 
+🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8572
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت🔐
@@ -260,19 +301,5 @@ Location 🤯 🇫🇷
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر 💘
-</div>
-
-## tasiyanc — post 8522
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8520
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 انفجار در کنارك
-
-@Tasiyanc
 </div>
 

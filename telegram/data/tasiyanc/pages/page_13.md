@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/04/31 00:59
+📅 آخرین بروزرسانی: 1405/04/31 11:04
 
 ---
+
+## tasiyanc — post 8216
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺حمله آمریکا به بندرلنگه
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8215
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برق ایرانشهر انگار کاملا رفته @Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8214
 
@@ -153,25 +167,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8194
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه
-
-دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-🚨 یک مقام آمریکایی به ان‌بی‌سی:
-
-همانطور که رئیس جمهور گفته بود این هفته حمله به زیرساخت‌ها، پل‌ها و نیروگاه‌ها انجام میشود.
-
-@Tasiyanc 
-⭐️
 </div>
 

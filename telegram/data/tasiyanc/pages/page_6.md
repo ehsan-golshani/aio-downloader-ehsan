@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/04/31 00:59
+📅 آخرین بروزرسانی: 1405/04/31 11:04
 
 ---
+
+## tasiyanc — post 8415
+
+<div align="center"><video src="files/post_8415_tasiyanc_8415.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8415_tasiyanc_8415.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴🚨هدف قرار گرفتن مستقیم یک نیروگاه برق در کویت
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشاهده نود آنتونلا زن مسی ✨
+</div>
 
 ## tasiyanc — post 8412
 
@@ -192,19 +210,5 @@ IP
 🚨💪 4 انفجار شدید در بندرعباس گزارش میشه
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8384
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 6 انفجار شدید در قشم
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8383
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۹٪ اخبار امشب فیکن و پوشش ندادیم
 </div>
 

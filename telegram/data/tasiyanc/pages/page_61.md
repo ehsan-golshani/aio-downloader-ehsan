@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/04/31 00:59
+📅 آخرین بروزرسانی: 1405/04/31 11:04
 
 ---
+
+## tasiyanc — post 6468
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۲سرور   سرعتی پرمیوم متد جدید🚀
+
+300 گیگ - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6467
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 📱
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6466
 
@@ -207,17 +243,5 @@ new@Tasiyanc.ovpn
 😬Password :″  @Tasiyanc  ″
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داش این‌کانفنیگی که گذاشتی بات موشکه؟؟؟؟😐😂پشمماامممممم سرعتتوووووو
-</div>
-
-## tasiyanc — post 6442
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با توجه به احتمال اختلال و قطع شدن اینترنت به دلیل شرایط جنگی، برای اینکه ارتباطتون قطع نشه دو تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه براتون آماده کردیم. ​همین الان تا اینترنت وصله وارد ربات زیر بشید و لینک‌هاتون رو تحویل بگیرید: دریافت کانفینگ…
 </div>
 

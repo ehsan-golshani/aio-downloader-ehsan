@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/31 00:59
+📅 آخرین بروزرسانی: 1405/04/31 11:04
 
 ---
+
+## tasiyanc — post 8350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت دریافت وایرگارد مخصوص گیم و وبگردی وارد ربات تاسیان شوید بگیرید ظرفیت پر شه لینک پاک میکنم
+
+دریافت کانفیگ 🤜
+</div>
+
+## tasiyanc — post 8349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Multi Location ⚡ Fast.npvt
+</div>
 
 ## tasiyanc — post 8348
 
@@ -218,17 +232,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این ربات بصورت ناشناس ساخته بودم مجبور کردن اطلاع رسانی کنیم پست ها پاک میشه خواستم بگم جریانو فقط ❤️
-</div>
-
-## tasiyanc — post 8314
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرچ نامحدود ۲۰۰ استارز میکنم از پسفردا چون اینا می‌خوان اطلاعات بزارن ❤️
-</div>
-
-## tasiyanc — post 8313
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
 </div>
 

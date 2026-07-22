@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/04/31 00:59
+📅 آخرین بروزرسانی: 1405/04/31 11:04
 
 ---
+
+## tasiyanc — post 8095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ &  گیم 🎮 & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe ⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8094
+
+<div align="center"><img src="files/post_8094_tasiyanc_8094.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺دیوار نگاره جدید دوستان عرزشی در میدان انقلاب:  ترامپ را می کـــشیم
+
+
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 8093
 
@@ -191,21 +223,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ قبل قطعی نخررررررررید به اسم کانفیگ ملی یا هر کسشر دیگه
-
-گول این کانفیگ فروش‌های احمق و بی سواد نخورید وقتی اینترنت ملی بشه ، آیپی های کلودفلیرر از کار میوفتن کانفیگی ک خریدی کار نمیده
-
-وقتی اینترنت قط شه ۹۰٪ این چنلا میرن رد کارشون یا میان کانفیگ مارو دیکد می‌کنن یا یکی دو تا از رفیقامو ، به هرحال گفتم دوباره این مطلبو بگم .
-</div>
-
-## tasiyanc — post 8063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨 حمله آمریکا هم اکنون به بوشهر ۴ انفجار شدید @TasiyanProxy ☑️
 </div>
 
