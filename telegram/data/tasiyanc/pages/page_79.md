@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/04/31 22:29
+📅 آخرین بروزرسانی: 1405/04/31 23:57
 
 ---
+
+## tasiyanc — post 6021
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من سه تا اپل ایدی سرش بگا دادم
+</div>
 
 ## tasiyanc — post 6020
 
@@ -172,15 +178,5 @@ VİP 🔥.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروکسی ۱
-پروکسی ۲
-پروکسی ۳
-پروکسی ۴
-@Tasiyanc ✅
 </div>
 
