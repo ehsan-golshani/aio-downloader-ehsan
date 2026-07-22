@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/04/31 21:21
+📅 آخرین بروزرسانی: 1405/04/31 22:27
 
 ---
+
+## ProxyMTProto — post 48136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fresh.t-proxy.info.
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48135
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Geng.etherealvpn.uk
+Port: 443
+Secret: eefd6c10517940b3ad79ce5e3d40c9972e617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48134
 
@@ -163,24 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e
 Server: get.proxyz.site
 Port: 443
 Secret: ee8bfeb37ebe59a0f6aed1ccae9b9981566765742e70726f78797a2e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48116
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 65.108.126.206
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: node.prx.today
-Port: 443
-Secret: ee4fc23f27cad414e0ca758692e060323a6e6f64652e7072782e746f646179
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/04/31 19:44
+📅 آخرین بروزرسانی: 1405/04/31 22:29
 
 ---
+
+## tasiyanc — post 6963
+
+<div align="center"><img src="files/post_6963_tasiyanc_6963.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪐@Tasiyanc.dark
+</div>
+
+## tasiyanc — post 6961
+
+<div align="center"><video src="files/post_6961_tasiyanc_6961.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6961_tasiyanc_6961.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ دارک تانل 
+🌟
+
+حجم نامحدود - سرعتی 
+🚀
+
+تست شده رو تمام نت ها 
+✅
+
+دانلود Dark Tunnel  
+🕹
+
+آموزش اتصال به سرور دارک 
+⏩
+
+T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6960
 
@@ -205,27 +239,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Vip SPEED ⚡⚡.npvt
-</div>
-
-## tasiyanc — post 6939
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی تست شده  🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6938
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑ساب لینک اختصاصی تاسیان👑 https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt اینو بزنید 🔐🔐 هر ۴ ساعت کانفیگا آپدیت میشن بعد از ۴ ساعت update subscription بزنید تا آپدیت شن @Tasiyanc ✅
 </div>
 

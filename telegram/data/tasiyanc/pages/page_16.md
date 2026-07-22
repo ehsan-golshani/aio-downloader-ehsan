@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/04/31 19:44
+📅 آخرین بروزرسانی: 1405/04/31 22:29
 
 ---
+
+## tasiyanc — post 8138
+
+<div align="center"><video src="files/post_8138_tasiyanc_8138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8138_tasiyanc_8138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈یکی از مقام‌های طالبان که خودش 63 ساله بوده، یه دختر 14 ساله به اسم نازگل رو میخره و باهاش ازدواج می‌کنه.
+
+و اما بعد از چند روز، این دختر معصوم رو بخاطر پخش شدن فیلم عروسی خفه می‌کنه و به قتل میرسونه!
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 ترامپ در مصاحبه با فاکس نیوز:
+تغییر حکومت در ایران شدنی است بشرطی که مردم ایران بتوانند با سلاح از خودشان دفاع کنند
+اگر لازم بدونم نیروی زمینی به ایران اعزام خواهم کرد هنوز وضعیت رو نهایی نکردیم
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8136
 
@@ -171,19 +195,5 @@
 🔻 حملات علیه ایران هفته آینده گسترش خواهد یافت و خاورمیانه برای آنچه بعداً رخ خواهد داد آماده میشود
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️💪 ترامپ :امشب، فردا و پس‌فردا به ایران حمله سختی خواهیم کرد و در آخر اگر تسلیم نشن، تمام پل‌‌ها و نیروگاه هاشون رو نابود میکنیم
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8108
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توی مسجد سلیمان یه خانم 31 ساله بعد از اینکه به خواستگارش جواب رد میده، خواستگارِ حرومزاده‌اش با 5 تا گلوله، این خانوم رو جلوی دختر 12 سالش به قتل می‌رسونه. اون بارها به مقامات اعلام کرده بود که جونش توسط این شخص در خطره، ولی توجهی نکردن! @Tasiyanc ⭐️ |…
 </div>
 

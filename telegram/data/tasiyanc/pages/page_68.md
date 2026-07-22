@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/04/31 19:44
+📅 آخرین بروزرسانی: 1405/04/31 22:29
 
 ---
+
+## tasiyanc — post 6298
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+2سرور   سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها 
+⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6297
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•𝐅_𝟐𝟐_⚡💣_ᴾʳᵉᵐᶤᵘᵐ_ᶳᵉʳᵛᵉʳᶳ.npvt
+</div>
 
 ## tasiyanc — post 6295
 
@@ -196,23 +219,5 @@ MCI - SamanTel - wifi تست شده
 😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم
 ⏩ @TasiyanProxy
 ⏩ @TasiyanProxy
-</div>
-
-## tasiyanc — post 6273
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ON TARGET ⚡✅.npvt
-</div>
-
-## tasiyanc — post 6272
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور پرمیوم  آلمان 🇩🇪
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
-
-✔️ @Tasiyanc ✅
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/04/31 19:44
+📅 آخرین بروزرسانی: 1405/04/31 22:29
 
 ---
+
+## tasiyanc — post 5566
+
+<div align="center"><img src="files/post_5566_tasiyanc_5566.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀 4 SRVR.npvt
+</div>
+
+## tasiyanc — post 5565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+باز تاسیان پخت پز شروع کرد
+</div>
 
 ## tasiyanc — post 5564
 
@@ -269,22 +283,5 @@ Join @Tasiyanc ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترکیبی ✅ vless://5b34187f-f811-58b1-7e68-3cc63df5df3b@meli.masterdadeh.ir:80?type=ws&host=meli.masterdadeh.ir&path=%2F#%40Tasiyanc%20%D8%AA%D8%B1%DA%A9%DB%8C%D8%A8%DB%8C%C2%B9 Join @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 5535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترکیبی ✅
-
-vless://5b34187f-f811-58b1-7e68-3cc63df5df3b@meli.masterdadeh.ir:80?type=ws&host=meli.masterdadeh.ir&path=%2F#%40Tasiyanc%20%D8%AA%D8%B1%DA%A9%DB%8C%D8%A8%DB%8C%C2%B9
-
-Join @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 5534
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال یک ساعتی رو پنل داشتیم بخاطر ارسال کانفیگ توسط دوستان به اپ های ایرانی آیپی ما فیلتر میشه و این مشکلات طبیعیه ، اختلال رفع شده و مثل همیشه وصلیم
 </div>
 

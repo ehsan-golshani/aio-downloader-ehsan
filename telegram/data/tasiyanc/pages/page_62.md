@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/04/31 19:44
+📅 آخرین بروزرسانی: 1405/04/31 22:29
 
 ---
+
+## tasiyanc — post 6453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  OpenVPN♻️
+
+تست شده  سامانتل ، رایتل ، وای‌فای 🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6452
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+300 GB ⚡ VİP.npvt
+</div>
 
 ## tasiyanc — post 6451
 
@@ -186,20 +207,5 @@ Fast ⚡🪐 متد جدید.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FAST⚡TASIYAN🚀.npvt
-</div>
-
-## tasiyanc — post 6426
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون سپاه :
-آغاز عملیات نصر 🚀
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه مقدار نقض نمک آتش بسه
-@Tasiyanc ✅
 </div>
 
