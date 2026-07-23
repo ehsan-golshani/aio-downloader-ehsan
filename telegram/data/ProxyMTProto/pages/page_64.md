@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/05/01 23:40
+📅 آخرین بروزرسانی: 1405/05/02 01:09
 
 ---
+
+## ProxyMTProto — post 48135
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Geng.etherealvpn.uk
+Port: 443
+Secret: eefd6c10517940b3ad79ce5e3d40c9972e617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48134
 
@@ -172,15 +181,6 @@ Secret: ee8bfeb37ebe59a0f6aed1ccae9b9981566765742e70726f78797a2e73697465
 Server: 65.108.126.206
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: node.prx.today
-Port: 443
-Secret: ee4fc23f27cad414e0ca758692e060323a6e6f64652e7072782e746f646179
 @ProxyMTProto
 </div>
 

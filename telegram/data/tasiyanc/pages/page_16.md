@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/01 23:42
+📅 آخرین بروزرسانی: 1405/05/02 01:11
 
 ---
+
+## tasiyanc — post 8191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⁉️پدافند تهران فعال شده؟
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8190
 
@@ -157,16 +165,5 @@
 ابرهای نادر استراتوسفر قطبی - ایسلند🇮🇸
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8155
-
-<div align="center"><img src="files/post_8155_tasiyanc_8155.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیدی گاگا تو کنسرتش لخت پرید بقل طرفداراش 😐
-
-
-@Tasiyanc ⭐️
 </div>
 

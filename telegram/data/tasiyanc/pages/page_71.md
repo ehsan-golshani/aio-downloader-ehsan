@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/01 23:42
+📅 آخرین بروزرسانی: 1405/05/02 01:11
 
 ---
+
+## tasiyanc — post 6261
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنارو 
+🦦
+</div>
 
 ## tasiyanc — post 6260
 
@@ -181,21 +188,5 @@ HOT 🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc _ Speed servers 🥇⚡.npvt
-</div>
-
-## tasiyanc — post 6237
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-5 سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها ⏩
-
-✔️ @Tasiyanc ✅
 </div>
 

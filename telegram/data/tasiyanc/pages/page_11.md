@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/01 23:42
+📅 آخرین بروزرسانی: 1405/05/02 01:11
 
 ---
+
+## tasiyanc — post 8312
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ ۴ انفجار در یزد شنیده شد
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8311
 
@@ -168,11 +176,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مشخصات کامل بزاریم؟
-</div>
-
-## tasiyanc — post 8289
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعدیا بیان پیوی
 </div>
 

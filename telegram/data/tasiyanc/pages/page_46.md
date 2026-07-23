@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/01 23:42
+📅 آخرین بروزرسانی: 1405/05/02 01:11
 
 ---
+
+## tasiyanc — post 7025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک از ماهواره نتونستن بگیرن میتونن از این سایت بدون نیاز به VPN از این شبکه ببینن
+TRT 1
+https://ritsatv.ru/mobile-version/movie-id901190-trt1
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7024
 
@@ -255,13 +264,5 @@ NPV Tunnel
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از این به بعد ۲ فایل یه جا میزاریم
-یکی NPV TUNNEL یکی HTTPCUSTUM
-هر کی هر کدوم دوست داره وصل شه
 </div>
 

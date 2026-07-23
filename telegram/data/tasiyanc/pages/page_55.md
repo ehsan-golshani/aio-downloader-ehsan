@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/01 23:42
+📅 آخرین بروزرسانی: 1405/05/02 01:11
 
 ---
+
+## tasiyanc — post 6715
+
+<div align="center"><img src="files/post_6715_tasiyanc_6715.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روز جهانی دوس داشتنو بهتون تبریک میگیم
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6714
 
@@ -175,10 +184,4 @@ Rend ⚡ (1).npvt
 </div>
 
 ## tasiyanc — post 6689
-
-## tasiyanc — post 6688
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون ورود جنگنده ها و هواپیماهای سوخترسان برای امضای توافق
-</div>
 

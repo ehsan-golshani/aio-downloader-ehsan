@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/01 23:42
+📅 آخرین بروزرسانی: 1405/05/02 01:11
 
 ---
+
+## tasiyanc — post 6085
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی برای وای‌فای تا دقایقی دیگه میزارم به درخواست اعضای تاسیان
+</div>
 
 ## tasiyanc — post 6084
 
@@ -209,11 +215,5 @@ Hot Servers 🔥🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اماده باشین
-</div>
-
-## tasiyanc — post 6053
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه چیزای دستم رسیده نمی‌دونم بزارم نزارم🤣
 </div>
 

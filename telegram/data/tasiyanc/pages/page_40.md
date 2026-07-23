@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/01 23:42
+📅 آخرین بروزرسانی: 1405/05/02 01:11
 
 ---
+
+## tasiyanc — post 7252
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گل ایران رف وار آفساید شد
+</div>
 
 ## tasiyanc — post 7251
 
@@ -295,16 +301,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 
 ✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺امروز June 21، روز جهانی قدردانی از دخترای قد بلنده
-
-
-✔️ T.me/Tasiyanc 
 ✅
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/01 23:42
+📅 آخرین بروزرسانی: 1405/05/02 01:11
 
 ---
+
+## tasiyanc — post 8214
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨دو انفجار سنگین در قشم
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8213
 
@@ -165,13 +173,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⁉️پدافند تهران فعال شده؟
-
-@Tasiyanc
 </div>
 

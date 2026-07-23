@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/01 23:42
+📅 آخرین بروزرسانی: 1405/05/02 01:11
 
 ---
+
+## tasiyanc — post 8267
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرگزاری تسنیم: هم اکنون حمله موشکی سپاه به یک کشتی تجاری در تنگه هرمز
+
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8266
 
@@ -198,15 +207,5 @@
 
 
 @Tasiyanc ✅| بانك کانفیگ رایگان
-</div>
-
-## tasiyanc — post 8235
-
-<div align="center"><img src="files/post_8235_tasiyanc_8235.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی ۲۴ ساعت اخیر، سرچِ لغو عضویت جانفدا افزایش چند هزار درصدی داشته و به سرچ اول و ترند گوگل تبدیل شده!
-
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/05/01 23:42
+📅 آخرین بروزرسانی: 1405/05/02 01:11
 
 ---
+
+## tasiyanc — post 6551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 
+🔴ترامپ : تا اینجا هم بخاطر پاکستان فرصت داده بودم ، امروز بشدت به ایران ضربه خواهیم زد
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6550
 
@@ -187,11 +196,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6530
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[23]⚡🇩🇪@Tasiyanc.conf
 </div>
 
