@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/01 07:15
+📅 آخرین بروزرسانی: 1405/05/01 09:59
 
 ---
+
+## tasiyanc — post 7403
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه وضع ریکشن به این پخت پز😐😐😐
+</div>
+
+## tasiyanc — post 7402
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب لینک اختصاصی نامحدود 🚀
+
+🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+
+130 کانفیگ پروتکل Trojan سرعتی
+( هر دوازده ساعت آپدیت خواهد شد )
+
+
+آموزش ویدیویی اضافه کردن ساب 💘
+
+
+@Tasiyanc 💠 | اتصال امن
+</div>
+
+## tasiyanc — post 7400
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چیزی نشده همراه اول اختلال میخوره .....😡
+</div>
+
+## tasiyanc — post 7399
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST ⚡⚡🔥.npvt
+</div>
 
 ## tasiyanc — post 7393
 
@@ -216,58 +251,5 @@ Melody 🚀.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ دارک تانل رو از این به بعد تو گروه تاسیان میزارم پین میکنم یکم دیگه ۲.۳ تا می‌زارم ، هرکی خواست جوین بشه لینک عوض میشه https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 7349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ دارک تانل رو از این به بعد تو گروه تاسیان میزارم پین میکنم
-یکم دیگه ۲.۳ تا می‌زارم ، هرکی خواست جوین بشه لینک عوض میشه
-https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 7348
-
-<div align="center"><video src="files/post_7348_tasiyanc_7348.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7348_tasiyanc_7348.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود مولتی لوکیشن
-
-۴سرور سرعتی 
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-💘
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
- 💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7347
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned a photo
-</div>
-
-## tasiyanc — post 7345
-
-<div align="center"><img src="files/post_7345_tasiyanc_7345.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت تست (اسکن) سرورها از آدرس Gstatic استفاده کنید ، برید تنظیمات ( تو شات نشون دادم) نپستر و ویتوری لینک زیر رو پست کنید بعدش اسکن و تست بگیرید
-https://www.gstatic.com/generate_204
-
-@Tasiyanc
 </div>
 
