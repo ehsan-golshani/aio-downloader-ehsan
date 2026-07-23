@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/01 12:52
+📅 آخرین بروزرسانی: 1405/05/01 15:02
 
 ---
+
+## tasiyanc — post 7368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل عوض شد
+مرسی از آرمان موسس بانک خاورمیانه
+</div>
+
+## tasiyanc — post 7357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ نپسترنت 
+🔐
+
+۴ سرور نامحدود سرعتی ⚡️
+
+آموزش اتصال 💘
+</div>
 
 ## tasiyanc — post 7356
 
@@ -228,29 +246,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 💘.ایران در سال 1352 تنها کشور اسیا بود که در تمام دنیا پاسپورتش نیاز به ویزا نداشت
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو تا کانفیگ نپستر بالا وصلن بدون اینکه پینگ بگیرید وصل شید
-</div>
-
-## tasiyanc — post 7325
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ دارک تانل 🇮🇹 Milan📍
-
-
-برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
-
-
-دانلود Dark Tunnel  🕹
-
-
-آموزش اتصال به سرور دارک ⏩
-
-
-✅@Tasiyanc | تاسیان
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/01 12:52
+📅 آخرین بروزرسانی: 1405/05/01 15:02
 
 ---
+
+## tasiyanc — post 7526
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیما:
+اگر ترامپ را می‌کشتیم؛ آمریکا با ما مذاکره می‌کرد؟!
+</div>
+
+## tasiyanc — post 7525
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همه دوستانی که اندروید دارن نت مود دانلود کنن بیشتر میزارم از امروز همراه نپستر
+</div>
 
 ## tasiyanc — post 7524
 
@@ -208,18 +221,5 @@ T.me/Tasiyanc ✅
 هنوز آخرین پر سیمرغ هست
 بگیرید ، بگیرید تیر و کمان را به دست
 جهنم بسازید بر هرچه پست .
-</div>
-
-## tasiyanc — post 7480
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ESPRESSO 🔥☕.npvt
-</div>
-
-## tasiyanc — post 7478
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توهین مجدد میثاقی به مردم ایران:
-کسایی که برای خوشحالی گل شجاع کلیپ می‌سازن همون جای خالی ان!
 </div>
 

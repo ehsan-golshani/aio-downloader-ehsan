@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/01 12:52
+📅 آخرین بروزرسانی: 1405/05/01 15:02
 
 ---
+
+## tasiyanc — post 8388
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 گزارش انفجار شدید در بوشهر
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8387
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 6 انفجار شدید در قشم @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8386
 
@@ -162,27 +176,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8363
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8362
-
-<div align="center"><video src="files/post_8362_tasiyanc_8362.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8362_tasiyanc_8362.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹مرگبارترین رکورد گینس
-
-در سال ۱۹۸۳، ریک چارلز با شیرجه از ارتفاع ۵۲ متر در سی‌ورلد، یکی از خطرناک‌ترین شیرجه‌های تاریخ را ثبت کرد. او با سرعتی بیش از ۱۱۶ کیلومتر بر ساعت و ورودی کاملاً عمودی، بدون آسیب جدی از آب بیرون آمد. این شیرجه هنوز هم یکی از شگفت‌انگیزترین اجراهای تاریخ ورزش محسوب می‌شود.
-
-@Tasiyanc ✅ | مرجع کانفیگ
 </div>
 
