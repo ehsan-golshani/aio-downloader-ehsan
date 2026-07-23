@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/01 09:59
+📅 آخرین بروزرسانی: 1405/05/01 12:52
 
 ---
+
+## tasiyanc — post 6008
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاریس لوئیز انریکه قهرمان جام باشگاه های اروپا شد
+</div>
+
+## tasiyanc — post 6007
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک فیلتر شکن استفاده میکنن
+امروز شنیدم هرکی با jumpjump وصل شده رفته اینستا ، اکانتش از دسترس خارج شده و نیاز به احراز هویت ( فیلم) داره تا اکانتش برگرده ، مراقب باشید با هر فیلترشکنی وصل نشید
+پ ن : نمی‌دونم درسته یا نه ولی دو سه نفر بهم گفتن
+</div>
+
+## tasiyanc — post 6006
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VİP 🔥.npvt
+</div>
+
+## tasiyanc — post 6005
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🇫🇷.npvt
+</div>
+
+## tasiyanc — post 6004
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کی قهرمان میشه ؟
+
+🔴 آرسنال ❤️
+🇫🇷 پاریس 🔥
+</div>
 
 ## tasiyanc — post 6003
 
@@ -134,53 +169,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عشق تولدت مبارک ، تو گروه هم برات فرستادم ❤️ دوباره با متود جدید وصل شدم ، دمت گرم عالیهههههه
-</div>
-
-## tasiyanc — post 5978
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متد جدید 🔥.npvt
-</div>
-
-## tasiyanc — post 5977
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بازه 5 GB 170 10 GB 310 20 GB 580 30 GB 900 @StarTasiyan ثبت سفارش
-</div>
-
-## tasiyanc — post 5976
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بازه
-5 GB 170
-10 GB 310
-20 GB 580
-30 GB 900
-@StarTasiyan ثبت سفارش
-</div>
-
-## tasiyanc — post 5975
-
-<div align="center"><img src="files/post_5975_tasiyanc_5975.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متد جدید 🔥.npvt
-</div>
-
-## tasiyanc — post 5973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان 
-
-۷سرور  سرعتی قدرتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 

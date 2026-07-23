@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/01 09:59
+📅 آخرین بروزرسانی: 1405/05/01 12:52
 
 ---
+
+## tasiyanc — post 8524
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+سرور  سرعتی پرمیوم 
+⚡️
+
+تست شده روی همه نت ها 
+🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر 💘
+</div>
+
+## tasiyanc — post 8522
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8520
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 انفجار در کنارك
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8519
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقا این جان فداهای ما چی شد؟
+</div>
 
 ## tasiyanc — post 8518
 
@@ -183,74 +234,5 @@ vless://e7961655-9674-4cbd-a36f-ec0d5d7d660c@45.130.125.138:2053?path=%2F&securi
 Loc 🇩🇪 🇩🇪
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8486
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 20 July روز جهانی ماهه
-
-به تمام دختر پسرای چنلمون تبریك میگیم این روز رو 🌚
-</div>
-
-## tasiyanc — post 8484
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt
-</div>
-
-## tasiyanc — post 8483
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-10سرور سرعتی پرمیوم سرور ترکیه⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8482
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ممنون بابت حمایت‌هاتون @i_am_souji_2 ❤️ شب بالای ۵۰ استارز زده زیر پست کانفیگا
-</div>
-
-## tasiyanc — post 8481
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-5سرور سرعتی پرمیوم دارای ۲لوکیشن  ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 
