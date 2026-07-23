@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/01 16:47
+📅 آخرین بروزرسانی: 1405/05/01 19:07
 
 ---
+
+## tasiyanc — post 8226
+
+<div align="center"><img src="files/post_8226_tasiyanc_8226.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ضربه سختی در راه است
+خواهیم دید چه میشود🤣
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 پیت هگست: کنترل تنگه هرمز دست ایران نیست
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8224
 
@@ -156,23 +175,5 @@
 🚨 حملات موشکی سپاه آغاز شد
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 سازمان ملل دیگه خیلییییییی نگران شدیم
-</div>
-
-## tasiyanc — post 8203
-
-<div align="center"><img src="files/post_8203_tasiyanc_8203.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨وضعیت آسمان ایران هم اکنون
-
-@Tasiyanc 
-⭐️
 </div>
 

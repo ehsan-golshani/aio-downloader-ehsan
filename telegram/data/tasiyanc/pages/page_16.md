@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/01 16:47
+📅 آخرین بروزرسانی: 1405/05/01 19:07
 
 ---
+
+## tasiyanc — post 8174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
+</div>
+
+## tasiyanc — post 8173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هدف قرار گرفتن پل کهورستان بندرعباس و قطع ارتباط شهرهای جنوب با همدیگه نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده @Tasiyanc
+</div>
 
 ## tasiyanc — post 8172
 
@@ -190,29 +202,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴گزارش هایی مبنی بر اینکه حرم امام رضا اتیش گرفته تاییذ و تکذیب نمیشه @TasiyanProxy✅
-</div>
-
-## tasiyanc — post 8138
-
-<div align="center"><video src="files/post_8138_tasiyanc_8138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8138_tasiyanc_8138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈یکی از مقام‌های طالبان که خودش 63 ساله بوده، یه دختر 14 ساله به اسم نازگل رو میخره و باهاش ازدواج می‌کنه.
-
-و اما بعد از چند روز، این دختر معصوم رو بخاطر پخش شدن فیلم عروسی خفه می‌کنه و به قتل میرسونه!
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 ترامپ در مصاحبه با فاکس نیوز:
-تغییر حکومت در ایران شدنی است بشرطی که مردم ایران بتوانند با سلاح از خودشان دفاع کنند
-اگر لازم بدونم نیروی زمینی به ایران اعزام خواهم کرد هنوز وضعیت رو نهایی نکردیم
-
-@Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/01 16:47
+📅 آخرین بروزرسانی: 1405/05/01 19:07
 
 ---
+
+## tasiyanc — post 8204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 سازمان ملل دیگه خیلییییییی نگران شدیم
+</div>
+
+## tasiyanc — post 8203
+
+<div align="center"><img src="files/post_8203_tasiyanc_8203.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨وضعیت آسمان ایران هم اکنون
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8202
 
@@ -157,17 +175,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 @Tasiyanc
 ✅
-</div>
-
-## tasiyanc — post 8174
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
-</div>
-
-## tasiyanc — post 8173
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هدف قرار گرفتن پل کهورستان بندرعباس و قطع ارتباط شهرهای جنوب با همدیگه نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده @Tasiyanc
 </div>
 

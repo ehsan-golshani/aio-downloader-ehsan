@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/05/01 16:47
+📅 آخرین بروزرسانی: 1405/05/01 19:07
 
 ---
+
+## tasiyanc — post 5916
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  🛜🛜🛜
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5915
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  🛜🛜🛜
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5914
 
@@ -192,25 +226,5 @@ New⚡Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 channel@TASIYANC.ovpn
-</div>
-
-## tasiyanc — post 5893
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  
-♻️
-
-تست شده 
-🚀
-Username vpnbook
-Password 8zw5j9h
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5891
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوباره باید بگیم؟
 </div>
 

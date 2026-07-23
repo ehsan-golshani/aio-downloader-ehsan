@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/01 16:47
+📅 آخرین بروزرسانی: 1405/05/01 19:07
 
 ---
+
+## tasiyanc — post 6325
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی آلمان 🇩🇪
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  
+⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6324
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز در راه است
+</div>
 
 ## tasiyanc — post 6323
 
@@ -176,28 +199,5 @@ Password : @Tasiyanc  ⏩
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
-</div>
-
-## tasiyanc — post 6298
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-2سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها 
-⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6297
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•𝐅_𝟐𝟐_⚡💣_ᴾʳᵉᵐᶤᵘᵐ_ᶳᵉʳᵛᵉʳᶳ.npvt
 </div>
 

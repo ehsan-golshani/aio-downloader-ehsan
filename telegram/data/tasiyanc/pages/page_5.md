@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/01 16:47
+📅 آخرین بروزرسانی: 1405/05/01 19:07
 
 ---
+
+## tasiyanc — post 8469
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ سنتکام : حملات ما به ایران آغاز شد
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8468
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش از انفجار در منطقه سردرود تبریز
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8467
 
@@ -144,17 +160,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه گل صحیح اسپانیا هم آفساید گرفته شد
-</div>
-
-## tasiyanc — post 8449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی بعدی فینال ایران و امریکا
-</div>
-
-## tasiyanc — post 8448
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل شد ولی افساید
 </div>
 

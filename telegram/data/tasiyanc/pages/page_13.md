@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/01 16:47
+📅 آخرین بروزرسانی: 1405/05/01 19:07
 
 ---
+
+## tasiyanc — post 8252
+
+<div align="center"><img src="files/post_8252_tasiyanc_8252.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل
+فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️
+
+مدیریت مجموعه تاسیان
+</div>
+
+## tasiyanc — post 8249
+
+<div align="center"><img src="files/post_8249_tasiyanc_8249.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چی میشه گفت واقن به اینا :)
+
+کامنت آزاد ☺️
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8246
 
@@ -178,25 +201,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هم‌اکنون➖جنوب ایران➖هنگامه بمباران بی‌وقفه
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8226
-
-<div align="center"><img src="files/post_8226_tasiyanc_8226.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ضربه سختی در راه است
-خواهیم دید چه میشود🤣
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 پیت هگست: کنترل تنگه هرمز دست ایران نیست
 
 @Tasiyanc✅
 </div>
