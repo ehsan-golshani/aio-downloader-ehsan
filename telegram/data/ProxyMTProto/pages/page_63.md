@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/01 19:05
+📅 آخرین بروزرسانی: 1405/05/01 20:39
 
 ---
+
+## ProxyMTProto — post 48148
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mail.proxyz.site
+Port: 443
+Secret: ee34cce08e4b2b62d5f9b3c4d71f6bd2646d61696c2e70726f78797a2e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48147
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: web.vingardium.co.uk.
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48146
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowabst.net
+Port: 853
+Secret: 7hKJP_0gRM7NMRBO3AKn5VhhZHMueDUucnU
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48145
 
@@ -154,33 +181,6 @@ Secret: ee12893ffd2044cecd31104edc02a7e5586164732e78352e7275
 Server: www2.nilmart.ir
 Port: 443
 Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48128
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: wgwg.etherealvpn.uk
-Port: 443
-Secret: ee3b7ca716f61b904f00c0f93d9419de06617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48127
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Ehsgh.kon.khoshgele.ir.biobarmesh.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48126
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 93.77.178.229
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 

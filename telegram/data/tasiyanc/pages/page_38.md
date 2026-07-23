@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/01 19:07
+📅 آخرین بروزرسانی: 1405/05/01 20:41
 
 ---
+
+## tasiyanc — post 7303
+
+<div align="center"><video src="files/post_7303_tasiyanc_7303.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7303_tasiyanc_7303.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪 ⚡Unlimited .dark
+</div>
 
 ## tasiyanc — post 7301
 
@@ -177,24 +187,5 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 امروز 22 June ، روز جهانی بوسیدنه 💋
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7271
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال
-
-🤩🤩🤩
-🤩🤩🤩
-🤩🤩🤩
-
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

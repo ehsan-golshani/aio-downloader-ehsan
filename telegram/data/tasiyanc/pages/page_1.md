@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/01 19:07
+📅 آخرین بروزرسانی: 1405/05/01 20:41
 
 ---
+
+## tasiyanc — post 8621
+
+<div align="center"><a href="files/post_8621_IR FAST ⚡🍃 VIP.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 IR FAST ⚡🍃 VIP.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت
+🔐
+
+سرور سرعتی 
+⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8620
 
@@ -225,21 +255,5 @@ Fact @TASIYANC ✅
 اما نمیدونم چرا هیچکس راجب این موضوع صحبت نمی‌کنه، هیچ رسانه ای ازش نمیگه!
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8599
-
-<div align="center"><video src="files/post_8599_tasiyanc_8599.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8599_tasiyanc_8599.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ امشب فاز نصیحت برداشته:
-
-یه پلیس بهم گفت از وقتی زنم فهمیده هوش مالی بالایی دارم و خوب پول در میارم، بیشتر دوسم داره.
-شما نباید کسیو بخاطر پول دوس داشته باشین.
-
-
-@TASIYANC ⭐️
 </div>
 
