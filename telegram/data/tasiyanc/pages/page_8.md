@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/01 15:02
+📅 آخرین بروزرسانی: 1405/05/01 16:47
 
 ---
+
+## tasiyanc — post 8392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون 📱
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8391
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر
+</div>
+
+## tasiyanc — post 8390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 
+🔐 
+🔐 FAST ⚡
+
+trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.142:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=185.137.157.142#%40Tasiyanc%20%E2%9A%A1
+trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%F0%9F%92%A5
+
+IP 
+🇩🇪
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 8388
 
@@ -154,27 +198,5 @@
 ۴انفجار در بندر عباس
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌دلار ۱۹۵رو شکست
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8365
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌انفجار در بندر عباس و بیرجند
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8364
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند @Tasiyanc ✅
 </div>
 
