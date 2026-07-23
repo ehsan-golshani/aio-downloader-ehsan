@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/01 20:41
+📅 آخرین بروزرسانی: 1405/05/01 23:42
 
 ---
+
+## tasiyanc — post 6822
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6821
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+
+اگر توافق نشود؛ ما گزینه نهایی را در اختیار داریم؛ گزینه‌ای که امیدواریم هرگز دوباره مجبور به استفاده از آن نشویم
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6820
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ در تروث : توافق فردا امضا می‌شود @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6818
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت هر یک دلار هم اکنون ۱۷۰ تومن
+</div>
+
+## tasiyanc — post 6817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ در تروث : توافق فردا امضا می‌شود
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨شبکه الجزیره به نقل از سخنگوی وزارت خارجه پاکستان گزارش داد که مراسم «امضای الکترونیکی» توافق میان آمریکا و جمهوری اسلامی یکشنبه ۲۳ خرداد برگزار خواهد کرد. به گفته او، پاکستان میزبان این مراسم خواهد بود و مراسم از طریق «ارتباط ویدیویی و آنلاین» برگزار می‌شود.
+
+او جزئیات بیشتری درباره شرکت‌کنندگان یا مفاد این توافق ارائه نکرد.
+Vahid online
+
+@Tasiyanc ✅ | تاسیـان
+</div>
+
+## tasiyanc — post 6815
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 📶
+
+تست شده تمام نتها 🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6813
 
@@ -170,67 +237,5 @@
 سهام SPCX قراره با قیمت 135 دلار معامله بشه و ارزش اسپیس‌ ایکس رو به حدود 1.8 تریلیون دلار برسونه!
 
 @Tasiyanc ✅ | تاسیان
-</div>
-
-## tasiyanc — post 6791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩 @Tasiyanc ✅ | تاسیان
-</div>
-
-## tasiyanc — post 6790
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩
-
-@Tasiyanc ✅ | تاسیان
-</div>
-
-## tasiyanc — post 6789
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن نزنید یه موقع زشته
-</div>
-
-## tasiyanc — post 6788
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6787
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه وایر میزارم بخوابم
-</div>
-
-## tasiyanc — post 6785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP⚡ APEX ⛓️.npvt
 </div>
 

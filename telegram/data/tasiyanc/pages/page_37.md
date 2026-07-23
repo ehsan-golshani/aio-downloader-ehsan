@@ -1,8 +1,91 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/01 20:41
+📅 آخرین بروزرسانی: 1405/05/01 23:42
 
 ---
+
+## tasiyanc — post 7349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ دارک تانل رو از این به بعد تو گروه تاسیان میزارم پین میکنم
+یکم دیگه ۲.۳ تا می‌زارم ، هرکی خواست جوین بشه لینک عوض میشه
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7348
+
+<div align="center"><video src="files/post_7348_tasiyanc_7348.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7348_tasiyanc_7348.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود مولتی لوکیشن
+
+۴سرور سرعتی 
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+💘
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+ 💘@Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 7347
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned a photo
+</div>
+
+## tasiyanc — post 7345
+
+<div align="center"><img src="files/post_7345_tasiyanc_7345.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت تست (اسکن) سرورها از آدرس Gstatic استفاده کنید ، برید تنظیمات ( تو شات نشون دادم) نپستر و ویتوری لینک زیر رو پست کنید بعدش اسکن و تست بگیرید
+https://www.gstatic.com/generate_204
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 7344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 18.30 والیبال 😐
+ایران Vs آمریکا 🦦
+</div>
+
+## tasiyanc — post 7341
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩
+</div>
+
+## tasiyanc — post 7340
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت
+
+۲سرور سرعتی ⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 💘
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc | تاسیان
+</div>
 
 ## tasiyanc — post 7339
 
@@ -159,70 +242,4 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 روناااااااااالدوووووووووووو زد
 </div>
-
-## tasiyanc — post 7317
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡@Tasiyanc⚡️.ovpn
-</div>
-
-## tasiyanc — post 7316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی پرتغال شروع شروع شد
-به امید گلزنی و درخشش ستاره بی بدیل جهان حضرت رونالدو کبیر🤩❤️‍🔥
-</div>
-
-## tasiyanc — post 7309
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال 
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7308
-
-## tasiyanc — post 7307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مردم خوبی داریم ، از چنلای حمایت میکنن ک تو ۳ ماه قطعی یه کانفیگم نزاشتن 😂😂
-</div>
-
-## tasiyanc — post 7306
-
-<div align="center"><video src="files/post_7306_tasiyanc_7306.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7306_tasiyanc_7306.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن 
-🇩🇪
-
-4سرور سرعتی متد جدید
-⚡️
-
-دانلود برنامه 
-🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
- 
-✅@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7305
 
