@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/01 01:19
+📅 آخرین بروزرسانی: 1405/05/01 07:15
 
 ---
+
+## tasiyanc — post 8514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+💪 حمله سپاه به کویت
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8513
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+⭕️ انفجار در بندرعباس
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8512
 
@@ -237,23 +256,6 @@ Loc 🇩🇪 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨از کویت به سمت ایران موشک شلیک شده
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ گزارش انفجار در زنجان ، تابیده؟
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8472
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ صدای انفجار در خرم آباد
 
 @TASIYANC 
 ✅

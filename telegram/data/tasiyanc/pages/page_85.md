@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/01 01:19
+📅 آخرین بروزرسانی: 1405/05/01 07:15
 
 ---
+
+## tasiyanc — post 5873
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب خب.. یه کانفیگ اوکی کردیم برای همه اپراتور ها جوابه و همه چیو پرسرعت میاره. فقط برای 500 نفر اولی که سریعترن در دسترسه! ⚠️ دریافت رایگان کانفیگ اختصاصی
+</div>
+
+## tasiyanc — post 5872
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب خب..
+یه کانفیگ اوکی کردیم برای همه اپراتور ها جوابه
+و همه چیو پرسرعت میاره.
+
+فقط برای 500 نفر اولی که سریعترن در دسترسه! ⚠️
+
+دریافت رایگان کانفیگ اختصاصی
+</div>
 
 ## tasiyanc — post 5871
 
@@ -148,17 +166,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دمت گرم داش
-</div>
-
-## tasiyanc — post 5850
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایول کارت حرف نداره تاسیان عشقی
-</div>
-
-## tasiyanc — post 5849
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دمتون گرم ، هر کانفیگی گذاشتین وصل شد ، دمتون گرم ، تنها کانالی که پر تلاش برای مردم است ، با تشکر از چنل عالی و خوب تاسیان مرسی
 </div>
 

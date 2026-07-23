@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/05/01 01:19
+📅 آخرین بروزرسانی: 1405/05/01 07:15
 
 ---
+
+## tasiyanc — post 6709
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺قوه قضایی جمهوری اسلامی حکم اعدام نتانیاهو و ترامپ صادر کرد.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6708
+
+<div align="center"><img src="files/post_6708_tasiyanc_6708.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Configs⚡🚀.txt
+</div>
 
 ## tasiyanc — post 6707
 
@@ -168,20 +183,6 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ ترامپ : محل امضای توافق بزودی اعلام میشود
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با توجه به اخبار توافق حتمی می‌باشد ، البته قطعی نیست
-</div>
-
-## tasiyanc — post 6681
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️سپاه پاسداران:
-اگر امریکا تمام خواسته‌های ما را در سندی که ارائه دادیم بپذیرد، به احتمال زیاد ما این توافق را تایید خواهیم کرد.
 @Tasiyanc ✅
 </div>
 
