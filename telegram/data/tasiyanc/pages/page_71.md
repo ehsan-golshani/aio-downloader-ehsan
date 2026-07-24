@@ -1,8 +1,97 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/02 22:41
+📅 آخرین بروزرسانی: 1405/05/03 00:18
 
 ---
+
+## tasiyanc — post 6287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ سرعتی (2).npvt
+</div>
+
+## tasiyanc — post 6286
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Green Eyes ⚡💚.npvt
+</div>
+
+## tasiyanc — post 6285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد cm  👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش
+⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+MCI - SamanTel - wifi تست شده
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 6283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الان کسی از چنل رد شه میگه پشمام ریکشن تاسیانو نگا
+</div>
+
+## tasiyanc — post 6282
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+4سرور پرومیوم  سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6281
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز 🦦
+</div>
+
+## tasiyanc — post 6280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN سرور فنلاند  ♻️
+
+تست شده با سامانتل بقیه تست کنن 🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6277
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده با سامانتل و ایرانسل🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6276
 
@@ -129,94 +218,5 @@ BadBoys 🚀 موشک.npvt
 🔐 امنیت دیجیتال شوخی نیست؛ به توصیه افرادی که تخصص کافی ندارند، کورکورانه اعتماد نکنید.
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6263
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐
-
-trojan://bb45f73f-795b-4a05-a8e0-ba717bce87e3@104.19.229.21:443?path=%2Fid-tksi&security=tls&insecure=0&host=api24-normal.tiktokv.com.cyylr.eu.cc&type=ws&allowInsecure=0&sni=api24-normal.tiktokv.com.cyylr.eu.cc#%F0%9F%AA%90%20%40Tasiyanc vless://47422044-85e3-426b-b6c4-3588cb24a3e5@45.130.125.160:443?path=%2Fae-bo&security=tls&encryption=none&insecure=0&host=s.blibli.com.cyylr.eu.cc&type=ws&allowInsecure=0&sni=s.blibli.com.cyylr.eu.cc#%E2%9A%A1%20%40Tasiyanc
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6262
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-سرور  سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها 
-⏩
-
-✔️ @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6261
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارو 
-🦦
-</div>
-
-## tasiyanc — post 6260
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP OCTOPUS SV⚡🐙.npvt
-</div>
-
-## tasiyanc — post 6259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور  سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-BabyGirl 🪐.npvt
-</div>
-
-## tasiyanc — post 6254
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB سرور آلمان  👑
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 🍏
-
-آموزش⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6253
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐🇩🇪 @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6252
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐🇩🇪 @Tasiyanc.conf
 </div>
 
