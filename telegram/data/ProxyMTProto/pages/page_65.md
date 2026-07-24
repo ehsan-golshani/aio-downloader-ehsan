@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/05/02 01:09
+📅 آخرین بروزرسانی: 1405/05/02 08:17
 
 ---
+
+## ProxyMTProto — post 48116
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 65.108.126.206
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48115
 
@@ -172,15 +181,6 @@ Secret: eed449877a1e5b7a264124d13085899647617669746f2e7275
 Server: Together-for-iran.jetish.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: assets.prx.today
-Port: 443
-Secret: ee595ef26a3a0072f97dadb2be7007dbac6173736574732e7072782e746f646179
 @ProxyMTProto
 </div>
 
