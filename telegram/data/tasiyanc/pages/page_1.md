@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/03 00:18
+📅 آخرین بروزرسانی: 1405/05/03 01:25
 
 ---
+
+## tasiyanc — post 8674
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨حمله آمریکا به سیریک
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8673
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هم اکنون حمله سپاه به بحرین
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8672
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب چقد آرومه 🦦
+</div>
+
+## tasiyanc — post 8671
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 انفجار در امیدیه - تایید میشه\نمیشه
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8670
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 بهبهان صدای انفجاررررررر
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8667
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨حمله پهپادی سپاه به مواضع کردها در اربیل
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8666
 
@@ -88,8 +130,6 @@
 
 ## tasiyanc — post 8657
 
-<div align="center"><a href="files/post_8657_Bibi Gol~GuitarMusic.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Bibi Gol~GuitarMusic</a></div>
-
 ## tasiyanc — post 8656
 
 <div align="center"><video src="files/post_8656_tasiyanc_8656.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
@@ -148,78 +188,6 @@
 🔹تنها جنگنده ای که آمریکا به متحدانش نمیفرشه 🗽
 
 جنگنده ی F22Raptor مرموزترین ، پیشرفته ترین ، گرانترین جنگنده آمریکا که فقط 187 فروند ازش هست و همشون در اختیار ارتش آمریکاست
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8651
-
-<div align="center"><video src="files/post_8651_tasiyanc_8651.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8651_tasiyanc_8651.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹یادی کنیم از عملیات « شوک وحشت» آمریکا در سال ۲۰۰۳ علیه رژیم صدام
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8650
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در صورت تداوم عدم حمایت و نداشتن جذب ، چنل بزودی بفروش خواهد رسید و اتمام فعالیت تاسیان بزودی اعلام خواهد شد ❤️
-</div>
-
-## tasiyanc — post 8647
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8646
-
-<div align="center"><video src="files/post_8646_tasiyanc_8646.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8646_tasiyanc_8646.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹وقتی یه عالمه اسباب‌بازی داری ولی هیشکی باهات بازی نمیکنه :)
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8643
-
-<div align="center"><img src="files/post_8643_tasiyanc_8643.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🇮🇱 مانور مشترک ارتش آمریکا و اسرائیل در صحرای نقب
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8642
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سپاه :
-در بیست‌وهفتمین موج عملیات «نصر ۲»، ساختمان باقی‌ماندهٔ مرکز داده شرکت آمازون که برای پشتیبانی از اطلاعات و عملیات اطلاعاتی ارتش آمریکا مورد استفاده قرار می‌گرفت، هدف قرار گرفت و منهدم شد.
 @TASIYANC ✅
 </div>
 

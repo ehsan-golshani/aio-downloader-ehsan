@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/03 00:18
+📅 آخرین بروزرسانی: 1405/05/03 01:25
 
 ---
+
+## tasiyanc — post 8466
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 گزارش اعضا : انفجار در گردنه ی بانه
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش انفجار در تبریز
+
+تایید یا تکذیب نمیشه
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8464
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 بازی ایران آمریکا آغاز شد
+</div>
+
+## tasiyanc — post 8463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبه به ترامپ میکروفن ندادن وگرنه میخواست بگه ایران نباید سلاح هسته ای داشته باشه وسط زمین
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8462
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویس علی دایی در مورد باخت آرژانتین 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8461
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ میخواست با بازیکنا اسپانیا قهرمانیو جشن بگیره که رئیس فیفا اومد بهش گفت مشتی بیا اینور 😂😂😂😂😂
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8460
 
@@ -108,41 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آرژانتین کامبک میزنه یا ن؟
-</div>
-
-## tasiyanc — post 8446
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسپانیااااااااااا میزنه
-</div>
-
-## tasiyanc — post 8445
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرررررررررررررررران تووووووووووورس
-</div>
-
-## tasiyanc — post 8444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گگگگگگگگگگگگگگگگگگگگل
-</div>
-
-## tasiyanc — post 8443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقت اول اضافه تموم شد ، میریم پنالتیا؟
-</div>
-
-## tasiyanc — post 8440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل شد برا اسپانیا ولی داور خطا گرف
-</div>
-
-## tasiyanc — post 8439
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نود زن مسی 😂
 </div>
 

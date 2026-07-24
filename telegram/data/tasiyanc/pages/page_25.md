@@ -1,8 +1,71 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/03 00:18
+📅 آخرین بروزرسانی: 1405/05/03 01:25
 
 ---
+
+## tasiyanc — post 7892
+
+<div align="center"><video src="files/post_7892_tasiyanc_7892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7892_tasiyanc_7892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعتان چووونه رفته نوکِ چرخ و فلک داره تبلیغ بالشت و پتو میکنه😐
+
+بالشتش هم اون وسط پرت شد پایین، میگه عیبی نداره یکم ترسو بود...
+
+@Tasiyanc ⭐️
+#Navid
+</div>
+
+## tasiyanc — post 7891
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جای خالیشان قدر یک وطن درد میکند ؛ نه فقط در خانه هایشان که در دل تمام ایران
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7890
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای فرزندانی که سهمشان از وطن یک گلوله بود 🖤
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 7884
+
+<div align="center"><img src="files/post_7884_tasiyanc_7884.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 جدیدا دخترای ایرانی توی توییتر، با انتشار این تصاویر دارن پسرا رو به کتابخوانی دعوت میکنن😂
+
+@Tasiyanc ⭐️
+#Navid
+</div>
+
+## tasiyanc — post 7883
+
+<div align="center"><img src="files/post_7883_tasiyanc_7883.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc✅
+#Mobina
+</div>
+
+## tasiyanc — post 7882
+
+<div align="center"><img src="files/post_7882_tasiyanc_7882.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀‼️اینستاگرام در اقدامی جنجالی، قابلیتی اضافه کرده که بقیه می‌تونن باهاش از عکس‌های شما برای ساخت تصاویر هوش مصنوعی استفاده کنن.
+
+اگه اکانتتون پابلیکه، این قابلیت به‌صورت پیش‌فرض روشنه؛ اینطوری خاموشش کنید.
+
+@Tasiyanc✅
+#Mobina
+</div>
 
 ## tasiyanc — post 7881
 
@@ -229,83 +292,5 @@
 
 👈 دریافت کانفیگ ها 
 👉
-</div>
-
-## tasiyanc — post 7842
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انفجار در چابهار 😐
-</div>
-
-## tasiyanc — post 7840
-
-<div align="center"><video src="files/post_7840_tasiyanc_7840.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7840_tasiyanc_7840.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم متد جدید سرور 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 اینستاگرام 
-📸 جمینای 
-🤖
-
-
-
-اتصال امن برای همه 
-🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جدید درباره تعویق امتحانات 👉 🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
-</div>
-
-## tasiyanc — post 7838
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جدید درباره تعویق امتحانات 👉
-🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
-</div>
-
-## tasiyanc — post 7834
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ رسما و شرعا آغاز شد
-</div>
-
-## tasiyanc — post 7832
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 4 تا کانفیگ پرسرعت OpenVpn 
-📶 گذاشتم تو ربات خودمون برید بردارید چون ظرفیت محدوده چنل نمیزارم
-
-
-👈 دریافت کانفیگ ها 
-👆
 </div>
 

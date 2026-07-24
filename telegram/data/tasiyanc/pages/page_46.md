@@ -1,8 +1,100 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/03 00:18
+📅 آخرین بروزرسانی: 1405/05/03 01:25
 
 ---
+
+## tasiyanc — post 7093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📥Game public DNS | All games
+195.46.39.39
+195.46.39.40
+
+🔑 DNS CHANGER
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7089
+
+<div align="center"><video src="files/post_7089_tasiyanc_7089.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7089_tasiyanc_7089.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 
+🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7088
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+تک سرور سرعتی 🇳🇱⚡️
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7086
+
+<div align="center"><video src="files/post_7086_tasiyanc_7086.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7086_tasiyanc_7086.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+3سرور سرعتی مناسب تمام نت‌ها
+⚡️
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 
+🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7083
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦦 تمام متد هامون با سرعت وصلن پستهای بالا وصل شید 
+👍
+</div>
+
+## tasiyanc — post 7082
+
+<div align="center"><video src="files/post_7082_tasiyanc_7082.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7082_tasiyanc_7082.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐
+🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@series-a2.samanehha.co:443#%F0%9F%87%AC%F0%9F%87%A7%20%40Tasiyanc%20%E2%9A%A1%EF%B8%8F%E2%9A%A1%EF%B8%8F
+نامحدود سرعتی - لندن 
+🇬🇧
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7081
 
@@ -179,66 +271,5 @@ T.me/Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قیمت دلار هم اکنون 155000
-</div>
-
-## tasiyanc — post 7052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختصاصی Ovpn  📶
-
-تست شده تمام نتها 
-🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی با نتیجه مساوی پایان یافت
-</div>
-
-## tasiyanc — post 7047
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاج صفی از بازیکنان آینده دار اومد زمین 🤣🤣
-</div>
-
-## tasiyanc — post 7042
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟🌟 New Method (Hysteria2) ⚡️🔥
-
-hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@185.228.139.247:4433?security=tls&insecure=1&sni=de2.xiaoliyu.cyou#%F0%9F%87%A9%F0%9F%87%AA%F0%9F%AA%90%40Tasiyanc%F0%9F%AA%90
-Location 🇩🇪
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇳🇱⚡⚡GGG.npvt
-</div>
-
-## tasiyanc — post 7040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-2 سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
