@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/05/02 15:26
+📅 آخرین بروزرسانی: 1405/05/02 19:22
 
 ---
+
+## tasiyanc — post 6674
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ موفق شد قیمت نفت رو با این خبر به زیر ۹۰ دلار برسونه
+ذات ترامپ :
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6673
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک پست : ترامپ الان اعلام کرد توافق نهایی شده و تمومه @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6672
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک پست : ترامپ الان اعلام کرد توافق نهایی شده و تمومه
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6671
 
@@ -183,28 +204,5 @@ Fotmob iOS
 🔩🔴ترامپ: ایران بزودی به پایان می‌رسد، امشب هم بشدت بمباران خواهند شد!
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6649
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ رویترز :
-لشکر 82 هوابرد آمریکا ملقب به لشکر شیطان به زودی جزایر نفتی ایران را تصرف خواهند کرد
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6648
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔩⭕️⭕️ امشب بمباران وحشتناکی در راه است
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6647
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔩🔴ترامپ: ما با جنگنده و هواپیما‌های خود بر فراز تهران پرواز می‌کنیم و ایرانی‌ها از آن خبر ندارن. ایران در تبلیغات خوبه اما در جنگیدن خوب نیست.
-@Tasiyanc ✅
 </div>
 

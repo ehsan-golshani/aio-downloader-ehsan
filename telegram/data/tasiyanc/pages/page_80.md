@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/02 15:26
+📅 آخرین بروزرسانی: 1405/05/02 19:22
 
 ---
+
+## tasiyanc — post 6040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور های جدید نپستر ساعت ۱.۳۰
+</div>
+
+## tasiyanc — post 6036
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیام مردم بالا ببینید راجب این فیلترشکن
+</div>
+
+## tasiyanc — post 6035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+باز الان یکی میاد چرت چند میگه نه اینجور نیست خب پاره شدیم تحقیق کردیم جامپ مخربه و ربطی به آیپی نداره بری فعال یا غیر فعال کنی ، بقیه فیلترشکنا چنین چیزی گزارش نشده
+</div>
 
 ## tasiyanc — post 6034
 
@@ -111,41 +129,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 راجب jumjump اینو بگم کی کلی از دوستان میگن حسابشون از دسترس خارج شده ، ربطی به آیپی نداره، من هرروز با ۱۰ تا آیپی میرم اینستا و بقیه ، چرا فقط هرکی این vpn استفاده کرده زده اکانتشو بگا داده؟ بقیه VPN ها چنین چیزی نشده گزارشی نیست
 بهرحال به حرف هرچنلی گوش میدید بدید ولی مراقب باشید دیگه این vpn کاملا مخربه ، هرکس قبول نداره بیاد گپ تاسیان ببینه چقد آدم حسابش بگا رفته
-</div>
-
-## tasiyanc — post 6017
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید پارتی داریم ( گپ تاسیان)
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6016
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🇬🇧.npvt
-</div>
-
-## tasiyanc — post 6015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-سرور  سرعتی
-🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
-✅
-
-دانلود  NPV tunnel  
-🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-
-
-🦁  @Tasiyanc 
-✅
 </div>
 

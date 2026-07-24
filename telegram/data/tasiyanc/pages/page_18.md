@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/02 15:26
+📅 آخرین بروزرسانی: 1405/05/02 19:22
 
 ---
+
+## tasiyanc — post 8130
+
+<div align="center"><video src="files/post_8130_tasiyanc_8130.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8130_tasiyanc_8130.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساحل فیتوپلانکتون ، چابهار زیبا 🌴🌊
+
+@Tasiyanc 
+⭐️| مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠فوری علیرضا فغانی داور فینال جام‌جهانی بین اسپانیا و آرژانتین شد.
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فینال تموم شه خواهیم دید چه خواهد شد
+</div>
 
 ## tasiyanc — post 8126
 
@@ -159,59 +187,5 @@
 
 
 @Tasiyanc ⭐️ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8106
-
-<div align="center"><img src="files/post_8106_tasiyanc_8106.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه مربی پرواز وسط آموزش به شاگرد 22 ساله‌اش گفته “ ازینجا به بعد خودت میدونی چیکار کنی” بعد در هواپیمارو باز کرده و پریده و خودکشی کرده،شاگرد هم در نهایت موفق شده هواپیمارو تنهایی و سالم فرود بیاره.
-
-@Tasiyanc ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8103
-
-<div align="center"><img src="files/post_8103_tasiyanc_8103.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ابوالفضل ملایی، سربازی که فقط یک روز از خدمتش مونده بود و مادرش منتظر بود برگرده خونه، اما جنازه‌شو برای مادرش آوردن💔
-
-@Tasiyanc ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8102
-
-<div align="center"><img src="files/post_8102_tasiyanc_8102.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏✈️آپدیت 12.9.0 تلگرام منتشر شد !
-
-🏠انجمن‌ها (Communities):
-حالا می‌توانید چندین گروه، کانال و ربات مرتبط را در یک انجمن واحد جمع کنید تا مدیریت آن‌ها بسیار ساده‌تر و منظم‌تر شود
-✍️ویرایشگر پیشرفته پیام + Ai:
-
-یک ویرایشگر جدید با امکانات حرفه‌ای:
-• عنوان، نقل‌قول، جدول، کد، لیست، معادلات LaTeX و بلوک‌های تاشو
-• امکان افزودن عکس، فایل صوتی و موقعیت مکانی داخل پیام
-• ساخت خودکار پیام‌های حرفه‌ای با کمک هوش مصنوعی
-این قابلیت مخصوص کاربران پریمیوم است
-
-⌛️پیام‌های موقت:
-
-ربات‌ها اکنون می‌توانند پیام‌هایی ارسال کنند که فقط برای همان کاربر قابل مشاهده هستند.این پیام‌ها پس از ورود مجدد به تلگرام حذف می‌شوند، قابل فوروارد یا ثبت ریکشن نیستند، اما امکان کپی، ترجمه و گزارش آن‌ها وجود دارد.حتی مدیران گروه نیز به این پیام‌ها دسترسی ندارند.
-
-🌐ترجمه پیام‌های غنی:
-
-اکنون می‌توانید پیام‌های دارای قالب‌بندی پیشرفته را بدون از بین رفتن ساختار آن‌ها ترجمه کنید؛ از جمله جدول‌ها، عنوان‌ها، لیست‌ها و سایر اجزای قالب‌بندی.
-
-⬇️دانلود آپدیت «Android» و «iOS»
-📱 Play Store 📱 Apple Store
-
-📰 بلاگ این آپدیت منتشر شد.
-بلاگ انگلیسی - بلاگ فارسی
-
-@Tasiyanc ⭐️| مرجع کانفیگ
 </div>
 
