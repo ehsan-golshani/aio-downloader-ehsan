@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/02 21:22
+📅 آخرین بروزرسانی: 1405/05/02 22:41
 
 ---
+
+## tasiyanc — post 8471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️صدای انفجار مهیب در کنارك
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ اورمیه و چابهار صدای انفجارررر
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8469
 
@@ -148,17 +166,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تماااااامممممممم
-</div>
-
-## tasiyanc — post 8451
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه اوه اسپانیا از کون اورد
-</div>
-
-## tasiyanc — post 8450
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه گل صحیح اسپانیا هم آفساید گرفته شد
 </div>
 

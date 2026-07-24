@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/02 21:22
+📅 آخرین بروزرسانی: 1405/05/02 22:41
 
 ---
+
+## tasiyanc — post 6405
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 📱
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6404
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتا داره بگ* می‌ره اختلال رو همراه اول
+</div>
 
 ## tasiyanc — post 6403
 
@@ -184,18 +206,5 @@
 در صورت قطعی ، چنل تاسیان پرایوت میشه ، و دوستانی که به ما وفادار بودن و پیشمون موندن قرارع نزارم یه دقیقه قطعی بکشن
 عشق منین شما ک همیشه حمایت کردید ازم ❤️
 قطعی ایشالا تو کار نباشه ولی اگر باشه قوی تر از قبل برنامه داریم
-</div>
-
-## tasiyanc — post 6375
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد T.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6374
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد
-T.me/TasiyanProxy
 </div>
 

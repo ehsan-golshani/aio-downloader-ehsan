@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/02 21:22
+📅 آخرین بروزرسانی: 1405/05/02 22:41
 
 ---
+
+## tasiyanc — post 5506
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش نداریم فعلا پول نزنید باز شه اطلاع میدم
+</div>
+
+## tasiyanc — post 5503
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+gül bana dünyalar benim olsun
+</div>
 
 ## tasiyanc — post 5502
 

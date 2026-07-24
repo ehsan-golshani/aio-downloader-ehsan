@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/02 21:22
+📅 آخرین بروزرسانی: 1405/05/02 22:41
 
 ---
+
+## tasiyanc — post 6352
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6351
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+🔺@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6350
 
@@ -192,19 +212,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 کانفیگ جدید OpenVPN♻️
 تست شده  🚀
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6327
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۰٪ کانفیگای ک روزهای گذشته گذاشتیم وصله
-</div>
-
-## tasiyanc — post 6326
-
-<div align="center"><img src="files/post_6326_tasiyanc_6326.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DE - Fast 🇩🇪⚡.npvt
 </div>
 

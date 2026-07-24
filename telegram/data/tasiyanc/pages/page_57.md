@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/05/02 21:22
+📅 آخرین بروزرسانی: 1405/05/02 22:41
 
 ---
+
+## tasiyanc — post 6680
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ترامپ درباره توافق با ایران:
+ما به‌تازگی یک توافق عالی درباره جنگ با ایران انجام دادیم و در حال نهایی کردن مدارک هستیم. باید طی چند روز آینده کار تمام شود.
+
+احتمالاً امضا در اروپا انجام خواهد شد و این یک اتفاق عالی است.
+
+بازار سهام ۱۰۰۰ واحد رشد کرده است. این یعنی آن‌ها این توافق را دوست دارند.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️خبرگزاری فارس:
+
+با توجه به اینکه امریکا متن پیشنهادی ایران را پذیرفته است احتمال تایید این متن در مراجع اصلی‌نظام بالا است‌
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6678
 
@@ -175,45 +196,5 @@ Fotmob iOS
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چطورید رو به راهید؟
-</div>
-
-## tasiyanc — post 6656
-
-<div align="center"><video src="files/post_6656_tasiyanc_6656.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6656_tasiyanc_6656.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-3سرور سرعتی همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6655
-
-<div align="center"><video src="files/post_6655_tasiyanc_6655.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6655_tasiyanc_6655.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید قهرمانی پرتغال به عشق آقام کریس 
-😱
-🤔
 </div>
 

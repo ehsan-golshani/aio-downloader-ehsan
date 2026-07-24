@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/05/02 21:22
+📅 آخرین بروزرسانی: 1405/05/02 22:41
 
 ---
+
+## tasiyanc — post 6544
+
+<div align="center"><video src="files/post_6544_tasiyanc_6544.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6544_tasiyanc_6544.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+👍 ترامپ: امروز بار دیگر حمله سنگینی به ایران خواهیم کرد .
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 6543
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️
+⭕️
+⭕️
+</div>
 
 ## tasiyanc — post 6542
 
@@ -176,32 +198,6 @@ https://t.me/+RTGtcYWb8HdkNjdk
 📶  اختصاصی تاسیان  😏
 
 3سرور متد جدید سرعتی🚀
-
-نامحدود  - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6516
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+RTGtcYWb8HdkNjdk
-گپ تحلیل گران جنگ ( تاسیان) 😂
-</div>
-
-## tasiyanc — post 6512
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور متد جدید🚀
 
 نامحدود  - تمام اپراتور ها ⚡️
 

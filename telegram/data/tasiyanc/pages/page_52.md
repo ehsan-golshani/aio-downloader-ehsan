@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/02 21:22
+📅 آخرین بروزرسانی: 1405/05/02 22:41
 
 ---
+
+## tasiyanc — post 6846
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسلیت به بت زنای محترم
+</div>
+
+## tasiyanc — post 6845
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قطر یکی زد به کمک های اولیه
+</div>
 
 ## tasiyanc — post 6844
 
@@ -161,35 +173,5 @@ Qatar 🇶🇦 & Switzerland🇨🇭
 Vahid online
 
 @Tasiyanc ✅ | تاسیـان
-</div>
-
-## tasiyanc — post 6815
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  Ovpn 📶
-
-تست شده تمام نتها 🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6813
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

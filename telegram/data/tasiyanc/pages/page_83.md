@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/05/02 21:22
+📅 آخرین بروزرسانی: 1405/05/02 22:41
 
 ---
+
+## tasiyanc — post 5966
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Gold🥇Vip servers.npvt
+</div>
+
+## tasiyanc — post 5965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی - 🇫🇷
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5963
 
@@ -153,21 +166,5 @@ TS premium Servers 🌲⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اینستا مثل برق میاره ، ❤️❤️❤️
-</div>
-
-## tasiyanc — post 5942
-
-<div align="center"><img src="files/post_5942_tasiyanc_5942.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک دقیقه نیست استارت کردم ، بهترین کانال جهانی دمت گرم ، عالیی ،🙏🙏❤️❤️
-</div>
-
-## tasiyanc — post 5941
-
-<div align="center"><img src="files/post_5941_tasiyanc_5941.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی🤭
 </div>
 

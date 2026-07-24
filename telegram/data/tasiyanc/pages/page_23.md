@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/02 21:22
+📅 آخرین بروزرسانی: 1405/05/02 22:41
 
 ---
+
+## tasiyanc — post 7937
+
+<div align="center"><img src="files/post_7937_tasiyanc_7937.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏جوری که این مدت گذشت:
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7936
+
+<div align="center"><img src="files/post_7936_tasiyanc_7936.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همین گنده گوزیا بگاتون داد
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7935
 
@@ -216,35 +236,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پاکدشت - پارچین
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7897
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🦅 FALCON VIP ⚡.npvt
-</div>
-
-## tasiyanc — post 7896
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 
