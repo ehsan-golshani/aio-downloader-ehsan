@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/05/02 19:22
+📅 آخرین بروزرسانی: 1405/05/02 21:22
 
 ---
+
+## tasiyanc — post 7752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری فرودگاه بندرعباس زدن
+</div>
+
+## tasiyanc — post 7751
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنظرتون جنگ تمام عیار میشه اسراییل ورود می‌کنه؟ یا آتش بس میشه تا صبح
+</div>
+
+## tasiyanc — post 7750
+
+<div align="center"><img src="files/post_7750_tasiyanc_7750.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت کارمندای نت‌بلاکس الان:
+</div>
 
 ## tasiyanc — post 7749
 
@@ -138,29 +158,5 @@ Egypt 🇪🇬 🇦🇷 Argentina
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 VIP 🎯 @Tasiyanc.nm
-</div>
-
-## tasiyanc — post 7716
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه وضع ریکشن زدنه
-</div>
-
-## tasiyanc — post 7713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال  ⛓
-</div>
-
-## tasiyanc — post 7712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز July 7، روز جهانی شکلاته 🍫 🍫
 </div>
 

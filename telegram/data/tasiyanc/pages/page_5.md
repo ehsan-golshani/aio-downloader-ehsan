@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/02 19:22
+📅 آخرین بروزرسانی: 1405/05/02 21:22
 
 ---
+
+## tasiyanc — post 8508
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال تاسیان متعلق به تمام کسانی هست که وطن پرستن نه حکومت پرست ❤️
+</div>
+
+## tasiyanc — post 8507
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری دنیا جهانبخت از حضور در مراسم عزاداری. وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8504
+
+<div align="center"><img src="files/post_8504_tasiyanc_8504.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری دنیا جهانبخت از حضور در مراسم عزاداری.
+
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان.
+
+مشاهده فیلم 👉
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8499
 
@@ -229,27 +255,5 @@ Loc 🇩🇪 🇩🇪
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8469
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ سنتکام : حملات ما به ایران آغاز شد
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8468
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ گزارش از انفجار در منطقه سردرود تبریز
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8467
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ گزارش انفجار در تبریز تایید یا تکذیب نمیشه @TASIYANC ⭐️
 </div>
 

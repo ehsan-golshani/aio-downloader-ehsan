@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/02 19:22
+📅 آخرین بروزرسانی: 1405/05/02 21:22
 
 ---
+
+## tasiyanc — post 8015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴موج جدید حملات گروهك تروریستی حوثی ها به عربستان
+@tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8014
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا دقایقی دیگه پرزیدنت ترامپ سخنرانی مهمی در کاخ سفید خواهد داشت
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جام جهانی اگه ایران برگزار می‌شد این ویدیو ده میلیون بازدید خورده :
+
+
+ثانیه به ثانیه‌اش عالیه😂
+
+@Tasiyanc ⭐️ | بانك کانفیگ
+</div>
 
 ## tasiyanc — post 8011
 
@@ -201,65 +226,6 @@
 
 
 اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7985
-
-<div align="center"><img src="files/post_7985_tasiyanc_7985.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-A true friend of the Iranian people, may your soul rest in peace. You will always be remembered, dear Senator Graham 🖤
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7981
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ساعاتی پیش میچ مک‌کانل نزدیک به ترامپ و مخالف ج ا، یکی دیگه از سناتورهای جمهوری‌خواه آمریکایی بر اثر عارضه قلبی راهی بیمارستان شد. @TasiyanProxy
-⭐️
-</div>
-
-## tasiyanc — post 7977
-
-<div align="center"><video src="files/post_7977_tasiyanc_7977.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7977_tasiyanc_7977.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 
-📱
-
-3سرور  سرعتی پرمیوم 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال روی اندروید 
-⛓
-آموزش اتصال روی ویندوز  
-⛓
-
-دانلود برنامه اندروید 
-🕹
-
-دانلود برنامه برای ویندوز 
-💻
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-اتصال امن برای همه 
-🇮🇷
-
 
 ✔️ T.me/Tasiyanc
 </div>
