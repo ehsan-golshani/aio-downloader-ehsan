@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/02 11:01
+📅 آخرین بروزرسانی: 1405/05/02 15:26
 
 ---
+
+## tasiyanc — post 8525
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ فاکس نیوز رسانه نزدیک به ترامپ:
+اسرائیل به جنگ‌ خواهد پیوست.
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8524
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+سرور  سرعتی پرمیوم 
+⚡️
+
+تست شده روی همه نت ها 
+🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر 💘
+</div>
+
+## tasiyanc — post 8522
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8520
 
@@ -185,55 +230,5 @@
 
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8488
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-vless://e7961655-9674-4cbd-a36f-ec0d5d7d660c@45.130.125.200:2053?path=%2F&security=tls&encryption=none&insecure=0&fp=chrome&type=ws&allowInsecure=0&sni=po.fastbrokencompony.com#%40Tasiyanc%20Nuremberg%20%F0%9F%87%A9%F0%9F%87%AA
-vless://e7961655-9674-4cbd-a36f-ec0d5d7d660c@45.130.125.138:2053?path=%2F&security=tls&encryption=none&insecure=0&fp=chrome&type=ws&allowInsecure=0&sni=po.fastbrokencompony.com#%40Tasiyanc%20Nuremberg%20%F0%9F%87%A9%F0%9F%87%AA2
-
-Loc 🇩🇪 🇩🇪
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8486
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 20 July روز جهانی ماهه
-
-به تمام دختر پسرای چنلمون تبریك میگیم این روز رو 🌚
-</div>
-
-## tasiyanc — post 8484
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt
-</div>
-
-## tasiyanc — post 8483
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-10سرور سرعتی پرمیوم سرور ترکیه⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

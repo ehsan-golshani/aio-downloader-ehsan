@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/02 11:01
+📅 آخرین بروزرسانی: 1405/05/02 15:26
 
 ---
+
+## tasiyanc — post 7706
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🐐 بعضی‌ها جام می‌برند، بعضی‌ها رکورد می‌شکنند؛
+اما فقط یک نفر معنای «GOAT» را تغییر داد...
+کریستیانو رونالدو؛
+نامی که از تاریخ فوتبال پاک نخواهد شد.
+پایان یک جام جهانی، اما نه پایان یک افسانه.
+CR7 GOAT Forever 🇵🇹❤️‍🔥
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7705
+
+<div align="center"><img src="files/post_7705_tasiyanc_7705.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پایان یک اسطوره CR7 💔🤔
+@Tasiyanc
+</div>
+
+## tasiyanc — post 7704
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رونالدو پر افتخارترین بازیکن جهان
+تا ابد در قلب ما خواهی بود
+</div>
+
+## tasiyanc — post 7702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانیا زد 💔
+</div>
 
 ## tasiyanc — post 7701
 
@@ -181,47 +216,5 @@ VIP 🎯 @Tasiyanc.nm
 💘 دانلود زبان اصلی 💘
 با ۴ کیفیت متفاوت😍
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️ 💘 دریافت کانفیگ👈 💘
-</div>
-
-## tasiyanc — post 7678
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️
-
-💘 دریافت کانفیگ👈 💘
-</div>
-
-## tasiyanc — post 7674
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-4 سرور سرعتی حجم و کاربر نامحدود ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال به اینجکتور ✨
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-
-@Tasiyanc | اتصال امن ✅
-</div>
-
-## tasiyanc — post 7673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آخر اسم چنل کلمه VPN اضافه شد
 </div>
 
