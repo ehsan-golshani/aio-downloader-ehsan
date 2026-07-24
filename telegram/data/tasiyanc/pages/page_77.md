@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/02 01:11
+📅 آخرین بروزرسانی: 1405/05/02 11:01
 
 ---
+
+## tasiyanc — post 6112
+
+<div align="center"><img src="files/post_6112_tasiyanc_6112.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc(01).conf
+</div>
 
 ## tasiyanc — post 6111
 
@@ -173,11 +181,5 @@ vless://1b9e301d-cecd-4eb1-8b36-eef811c2696d@de1.vitok.cc:443?security=reality&e
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Channel@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 6086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنا بالا باشه❤️
 </div>
 

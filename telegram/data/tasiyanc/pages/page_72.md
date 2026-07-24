@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/02 01:11
+📅 آخرین بروزرسانی: 1405/05/02 11:01
 
 ---
+
+## tasiyanc — post 6238
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ Speed servers 🥇⚡.npvt
+</div>
 
 ## tasiyanc — post 6237
 
@@ -187,11 +193,5 @@ NEW FAST ⚡ 🚀.npvt
 زیر هر خبر ادمینا و خودم پروکسی های وصل قرار میدیم
 https://t.me/TasiyanProxy
 https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وایر های قبلی ک‌گذااشتم مثل موشك وصلن نیازی به جدید نی فعلا
 </div>
 

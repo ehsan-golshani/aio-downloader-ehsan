@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/02 01:11
+📅 آخرین بروزرسانی: 1405/05/02 11:01
 
 ---
+
+## tasiyanc — post 8459
+
+<div align="center"><img src="files/post_8459_tasiyanc_8459.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فقط دو سرمربی تو این دوره از جام جهانی باخت نداشتن:
+
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8458
 
@@ -129,29 +140,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قرممممممز آرژانتین ۱۰ نفره شد
-</div>
-
-## tasiyanc — post 8437
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-5سرور سرعتی پرمیوم دارای ۳ لوکیشن  ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

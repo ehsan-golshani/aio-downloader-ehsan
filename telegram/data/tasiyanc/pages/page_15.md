@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/02 01:11
+📅 آخرین بروزرسانی: 1405/05/02 11:01
 
 ---
+
+## tasiyanc — post 8215
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برق ایرانشهر انگار کاملا رفته @Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8214
 
@@ -161,17 +167,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه
 
 دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-🚨 یک مقام آمریکایی به ان‌بی‌سی:
-
-همانطور که رئیس جمهور گفته بود این هفته حمله به زیرساخت‌ها، پل‌ها و نیروگاه‌ها انجام میشود.
-
-@Tasiyanc 
-⭐️
 </div>
 

@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/05/02 01:11
+📅 آخرین بروزرسانی: 1405/05/02 11:01
 
 ---
+
+## tasiyanc — post 5793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♨️ | آواکس‌های E-3G نیروی هوایی ایالات متحده از عربستان سعودی، P-8A Poseidon از اردن، تانکرهای سوخت از اسرائیل و جت‌های جنگنده بر فراز خلیج فارس فعال هستند
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5792
 
@@ -170,11 +177,5 @@ vless://4dc0eec9-f0e1-4755-be7e-7ba628522d1b@91.99.145.207:443?path=%2F&security
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن 😐😐?
 </div>
 
