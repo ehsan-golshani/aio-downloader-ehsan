@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/03 15:23
+📅 آخرین بروزرسانی: 1405/05/03 17:29
 
 ---
+
+## tasiyanc — post 7345
+
+<div align="center"><img src="files/post_7345_tasiyanc_7345.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت تست (اسکن) سرورها از آدرس Gstatic استفاده کنید ، برید تنظیمات ( تو شات نشون دادم) نپستر و ویتوری لینک زیر رو پست کنید بعدش اسکن و تست بگیرید
+https://www.gstatic.com/generate_204
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 7344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 18.30 والیبال 😐
+ایران Vs آمریکا 🦦
+</div>
 
 ## tasiyanc — post 7341
 
@@ -209,13 +227,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7308
-
-## tasiyanc — post 7307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مردم خوبی داریم ، از چنلای حمایت میکنن ک تو ۳ ماه قطعی یه کانفیگم نزاشتن 😂😂
 </div>
 

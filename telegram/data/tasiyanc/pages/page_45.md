@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/03 15:23
+📅 آخرین بروزرسانی: 1405/05/03 17:29
 
 ---
+
+## tasiyanc — post 7141
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میدونی چیه ؟ لطف بیش از حد انجام بدی میشه وظیفه
+و همه بعد یه مدت میگن طرف کسخله ولت میکنن بدون اینکه به یاد بیارن چیکارا کردی
+با پوست استخون دارم تجربه میکنم همین الان ، فقط میشه تاسف خورد
+</div>
+
+## tasiyanc — post 7140
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مال ما شد وظیفه مال بعضیا شده لطف
+</div>
 
 ## tasiyanc — post 7138
 
@@ -200,20 +214,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 به امید قهرمانی آقام رونالدوووووووووووو
-</div>
-
-## tasiyanc — post 7105
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی پرتغاااااال شروع شد
-</div>
-
-## tasiyanc — post 7104
-
-<div align="center"><img src="files/post_7104_tasiyanc_7104.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه برنامه تیم ملی در جام جهانی 2026
-@Tasiyanc ✅
 </div>
 

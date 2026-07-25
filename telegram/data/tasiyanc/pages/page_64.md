@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/05/03 15:23
+📅 آخرین بروزرسانی: 1405/05/03 17:29
 
 ---
+
+## tasiyanc — post 6485
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️
+</div>
+
+## tasiyanc — post 6484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حواسم نبود ، ریکشن چرا نزدید؟ 😐
+</div>
 
 ## tasiyanc — post 6483
 
@@ -211,18 +223,5 @@ https://t.me/gramevents_bot
 ادد لیست جهت جوین تو چنلا
 https://t.me/addlist/IiFVViQyys81OWM0
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کمی صحبت؟ ( گپمون)
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارووووووووو
 </div>
 

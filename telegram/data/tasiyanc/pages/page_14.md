@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/03 15:23
+📅 آخرین بروزرسانی: 1405/05/03 17:29
 
 ---
+
+## tasiyanc — post 8285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
+</div>
+
+## tasiyanc — post 8284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو امام سجاد نیستی بگی مریضم و نمیتونم بجنگم. جانفدا ثبت نام کردی بااااید بری😹😹😹
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8283
 
@@ -155,17 +169,5 @@ JAVID SHAH 👑
 توافق اینقدر خوب پیش رفته که به زودی هزاران شهروند آمریکایی مهاجرت میکنن به ایران، منتها لباس نظامی تنشونه.
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8258
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن @Tasiyanc ⭐️
 </div>
 

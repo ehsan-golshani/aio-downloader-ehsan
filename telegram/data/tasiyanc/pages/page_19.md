@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/03 15:23
+📅 آخرین بروزرسانی: 1405/05/03 17:29
 
 ---
+
+## tasiyanc — post 8150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زندگی در میان گروهی نادان دشوار است ، اما زندگی در جایی که قدرت در دست همان نادان ها باشد ، هولناك است
+آلبر کامو
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8148
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8145
 
@@ -185,17 +218,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اهواز عزیز طاقت بیار ...
-</div>
-
-## tasiyanc — post 8116
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اهواز زیر دود بمباران 💔
-</div>
-
-## tasiyanc — post 8115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاش جنوب ایران هم اندازه جنوب لبنان براتون مهم بود
 </div>
 

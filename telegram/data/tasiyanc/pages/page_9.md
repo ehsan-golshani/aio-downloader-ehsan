@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/03 15:23
+📅 آخرین بروزرسانی: 1405/05/03 17:29
 
 ---
+
+## tasiyanc — post 8432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موقع قطعی خودتو بکشی ام رات نمیدم
+</div>
+
+## tasiyanc — post 8431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
+</div>
 
 ## tasiyanc — post 8430
 
@@ -143,25 +155,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آبادان، پنجاه‌سال پیش، ملقب به مروارید خاورمیانه.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8406
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04]⚡@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 8405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.138:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%E2%9A%A1%F0%9F%87%A9%F0%9F%87%AA
-
-Ip 🇩🇪 🇩🇪
 
 @Tasiyanc ✅
 </div>

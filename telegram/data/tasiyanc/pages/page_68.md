@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/03 15:23
+📅 آخرین بروزرسانی: 1405/05/03 17:29
 
 ---
+
+## tasiyanc — post 6384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+7سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6383
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[Fast] ⚡ @Tasiyanc.npvt
+</div>
 
 ## tasiyanc — post 6382
 
@@ -213,17 +239,5 @@ Speed ⚡ One.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 https://t.me/+RTGtcYWb8HdkNjdk
 گپمون هنو ۴ کا نشده 🗽😐 جوین شید عشقا
-</div>
-
-## tasiyanc — post 6355
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سری چنلهای عزیز هم ک باهاشون رفیقم فور میکنن بدون اینکه دیکد کنن ، جا داره ازشون تشکر کنم ❤️‍🔥
-</div>
-
-## tasiyanc — post 6354
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی لاقل اجازه بده ممبرای خودم وصل شن بعد
 </div>
 

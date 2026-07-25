@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/05/03 15:23
+📅 آخرین بروزرسانی: 1405/05/03 17:29
 
 ---
+
+## tasiyanc — post 7542
+
+<div align="center"><video src="files/post_7542_tasiyanc_7542.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7542_tasiyanc_7542.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  
+📶
+
+حجم و کاربر نامحدود 
+⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+
+دانلود برنامه اندروید 
+🕹
+
+دانلود برنامه آیفون 
+📱
+
+آموزش اتصال به اینجکتور ✨
+
+@Tasiyanc 
+💠 | اتصال امن
+</div>
+
+## tasiyanc — post 7541
+
+<div align="center"><img src="files/post_7541_tasiyanc_7541.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎥 اسم فیلم: " برلین لعنتی 2016 "
+
+‌🎭 ژانر: درام عاشقانه
+❌ بدون س‍‌.انسور و ح‍‌.ذفیات
+
+خلاصه داستان: سونیا که بیست سال سن دارد دختری زیبا ، بی حوصله و گرسنه برای زندگی ، از آزادی تازه پیدا شده خود و دور از پدر و مادرش استفاده می کند و فکر میکند که اگر به برلین برود اوقات سرگرم کننده تری خواهد داشت و به همین دلیل به برلین نقل مکان میکند و..
+﻿
+⭕️ تماشای این فیلم به اشخاص زیر 18 سال توصیه نمی شود
+
+💬 نسخه زیرنویس چسبیده فارسی 🔻
+📧 برای دانلود اینجا کلیک کنید
+
+@Tasiyanc💠
+</div>
 
 ## tasiyanc — post 7539
 
@@ -233,26 +283,5 @@ ARABICA ☕⚡️HoT.npvt
 
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7498
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلم جدید تو چنل پروکسی فور شد به دلایلی , خواستید ببینید از اینجا دان کنید
-💘@TasiyanProxy
-</div>
-
-## tasiyanc — post 7494
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
 </div>
 

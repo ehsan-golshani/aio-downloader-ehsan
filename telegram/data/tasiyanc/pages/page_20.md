@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/03 15:23
+📅 آخرین بروزرسانی: 1405/05/03 17:29
 
 ---
+
+## tasiyanc — post 8116
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اهواز زیر دود بمباران 💔
+</div>
+
+## tasiyanc — post 8115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش جنوب ایران هم اندازه جنوب لبنان براتون مهم بود
+</div>
 
 ## tasiyanc — post 8114
 
@@ -208,20 +220,6 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دیروز که به یخچال نیاز داشتن، برق قطع نمیشد! به محض اینکه کارشون تموم شد، شروع کردن برقارو قطع کردن.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تتر 190 - ریدید تو زندگی ما
-</div>
-
-## tasiyanc — post 8088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ یک مقام ارشد آمریکایی : جمهوری اسلامی از توافق با آمریکا رسما خارج شد
 
 @Tasiyanc ⭐️
 </div>
