@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/05/03 01:25
+📅 آخرین بروزرسانی: 1405/05/03 10:01
 
 ---
+
+## tasiyanc — post 5844
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هرچی فرستادی وصلع
+</div>
 
 ## tasiyanc — post 5822
 
@@ -225,11 +231,5 @@ GM TASIYAN 💝
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5801
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن چقد زیاده 😐
 </div>
 

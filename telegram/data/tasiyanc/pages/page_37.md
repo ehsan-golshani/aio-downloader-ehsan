@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/03 01:25
+📅 آخرین بروزرسانی: 1405/05/03 10:01
 
 ---
+
+## tasiyanc — post 7418
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صلاح تعویض شد 😐
+</div>
 
 ## tasiyanc — post 7417
 
@@ -194,10 +200,4 @@ FAST ⚡⚡🔥.npvt
 </div>
 
 ## tasiyanc — post 7381
-
-## tasiyanc — post 7379
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀🍓@tasiyanc.conf
-</div>
 
