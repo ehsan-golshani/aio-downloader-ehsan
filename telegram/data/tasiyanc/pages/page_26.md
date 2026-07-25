@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/03 17:29
+📅 آخرین بروزرسانی: 1405/05/03 19:50
 
 ---
+
+## tasiyanc — post 7874
+
+<div align="center"><img src="files/post_7874_tasiyanc_7874.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاملگی مامان باب اسفنجیو دیده بودین :)))))؟
+
+
+@Tasiyanc 
+😌
+#Tina
+</div>
 
 ## tasiyanc — post 7868
 
@@ -320,12 +333,5 @@
 https://t.me/+v0wRP5SGNrg5MThk
 
 دریافت کانفیگ مخصوص اینترنت ملی 👆
-</div>
-
-## tasiyanc — post 7821
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریافت کانفیگ نت ملی در صورت قطعی 👉
-ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/05/03 18:46
+📅 آخرین بروزرسانی: 1405/05/03 19:48
 
 ---
+
+## ProxyMTProto — post 48795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48794
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: c4eab88e.etherealvpn.uk
+Port: 443
+Secret: eee2c4f26e0246dea5eb84f95c325ea46062343233353730312e657468657265616c76706e2e756b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48793
 
@@ -163,24 +181,6 @@ Secret: ee5098400982be6b8f6bf938e483f64dd463646e2e736176656c7965762e636c69636b
 Server: Unknown
 Port: 25565
 Secret: FgMBAgABAAH8AxOG4kw63Q
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48775
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.savelyev.click
-Port: 443
-Secret: ee5098400982be6b8f6bf938e483f64dd463646e2e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

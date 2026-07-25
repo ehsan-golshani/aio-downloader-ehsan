@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/05/03 17:29
+📅 آخرین بروزرسانی: 1405/05/03 19:50
 
 ---
+
+## tasiyanc — post 5572
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هدیه 25 کا شدن ما تمومی ندارع بازم میزارم سرور
+</div>
 
 ## tasiyanc — post 5571
 
@@ -263,16 +269,6 @@ WAR 🔥.npvt
 "balancers": []
 }
 }
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5543
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان  تمام اپراتورها  📶
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
 
 @Tasiyanc ✅
 </div>

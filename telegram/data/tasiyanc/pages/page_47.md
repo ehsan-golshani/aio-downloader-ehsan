@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/05/03 17:29
+📅 آخرین بروزرسانی: 1405/05/03 19:50
 
 ---
+
+## tasiyanc — post 7076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دی ان اس اختصاصی تاسیان برای گیم ✅
+ریج تیر & زد لگ
+
+Primary address ⚡️ 117.50.10.10
+
+Primary address ⚡️ 117.50.22.22
+
+Primary address ⚡️123.125.81.6
+
+Primary address ⚡️119.29.29.29
+
+🔑 DNS CHANGER ⬜️ برنامه مورد نیاز
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7063
 
@@ -199,11 +218,5 @@ https://ritsatv.ru/mobile-version/movie-id901190-trt1
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7017
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این ها پخت پز نیست چیه؟
 </div>
 

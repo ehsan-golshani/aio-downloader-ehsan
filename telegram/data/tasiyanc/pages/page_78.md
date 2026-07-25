@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/03 17:29
+📅 آخرین بروزرسانی: 1405/05/03 19:50
 
 ---
+
+## tasiyanc — post 6131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast2⚡@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6130
 
@@ -181,11 +187,5 @@
 
 دانلود Wg tunnel
 https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunnel
-</div>
-
-## tasiyanc — post 6107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪🚀 رایتل.npvt
 </div>
 

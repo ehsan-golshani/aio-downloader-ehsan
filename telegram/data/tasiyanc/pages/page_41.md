@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/03 17:29
+📅 آخرین بروزرسانی: 1405/05/03 19:50
 
 ---
+
+## tasiyanc — post 7280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی وایر Windscribe 🔐
+
+🟢حجم و کاربر نامحدود 🟢
+
+تمام اپراتورا 🔺
+
+مناسب گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای
+
+دانلود ویندسکرایب : Android 📱  iOS 🕹
+
+آموزش اتصال به سرور ⏩
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7279
 
@@ -171,19 +189,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بازی چند چند میشه؟
-</div>
-
-## tasiyanc — post 7249
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وصله با سرعت ( مناسب گیم و وبگردی) 
-💓
-
-
-🔐 Config Win⁰¹ - Win⁰² 
-💘
-
-🌟 Config DarkTunnel 
-💘
 </div>
 

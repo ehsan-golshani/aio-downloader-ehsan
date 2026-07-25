@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/03 17:29
+📅 آخرین بروزرسانی: 1405/05/03 19:50
 
 ---
+
+## tasiyanc — post 7993
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ تست شده 🔸
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 💠
+</div>
 
 ## tasiyanc — post 7991
 
@@ -235,16 +255,6 @@ Speed Fast ⚡ 🇩🇪.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آخرین باری که دانش اموزا همه باهم دینی میخوندن یه نفر رو خرس خورد😹😹😹
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7942
-
-<div align="center"><img src="files/post_7942_tasiyanc_7942.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیازمندی ها:🥺
 
 @Tasiyanc✅
 </div>

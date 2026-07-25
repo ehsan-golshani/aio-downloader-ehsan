@@ -1,8 +1,78 @@
 # آرشیو کانال VahidOOnLine - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/03 18:45
+📅 آخرین بروزرسانی: 1405/05/03 19:47
 
 ---
+
+## VahidOOnLine — post 251517
+
+<div align="center"><img src="files/post_251517_VahidOOnLine_251517.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی روز چهارشنبه ۳۱ تیرماه با انتشار پیامی در اکس نوشت که ایران هیچ فعالیت هسته‌ای در «کوه‌گلنگ» ندارد.
+
+این نخستین واکنش رسمی یک مقام جمهوری اسلامی به گزارش‌ها از انتقال هزاران سانتریفیوژ به کوه‌کلنگ در پاییز سال گذشته به شمار می‌رود.
+
+بقایی در این پیام نوشت:‌ «حملات و تهدیدات مکرر ایالات متحده علیه تاسیسات هسته‌ای صلح‌آمیز ایران نه تنها نقض آشکار اصول اساسی منشور سازمان ملل متحد، حقوق بین‌الملل و قطعنامه‌های شورای حکام آژانس بین‌المللی انرژی اتمی، کنفرانس عمومی و شورای امنیت سازمان ملل متحد است، بلکه دشمنی ریشه‌دار ایالات متحده با پیشرفت علمی و توسعه فناوری ایران را نیز آشکار می‌کند.»
+
+دونالد ترامپ، رئیس جمهوری آمریکا روز گذشته و در جریان دیدار با رئیس جمهوری لبنان گفته بود فکر می‌کند به‌زودی ضربه سختی به این تاسیسات هسته‌ای ایران خواهد زد.
+
+بقایی بار دیگر بر قانونی بودن برنامه اتمی جمهوری اسلامی تاکید کرد و نوشت: «فعالیت‌های هسته‌ای ایران مطابق با تعهدات پادمانی به طور کامل به آژانس بین‌المللی انرژی اتمی اعلام شده است. تمرکز وسواس‌گونه واشنگتن بر کولنگ کوه که در آن هیچ فعالیت هسته‌ای در حال انجام نیست، چیزی بیش از بهانه‌ای ساختگی برای تجاوز، تخریب و خرابکاری نیست.»
+
+بازرسان آژانس بین‌المللی انرژی هسته‌ای از سال گذشته و پس از بمباران تاسیات هسته‌ای ایران در جنگ ۱۲ روزه، امکان بازدید از آن‌ها را نداشته‌اند.
+
+سخنگوی وزارت امرو خارجه جمهوری اسلامی در همین پیام و با لحنی کنایه‌آمیز خطاب به رافائل گروسی نوشت: «راستی! مدیرکل آژانس بین‌المللی انرژی اتمی که نامزد دبیرکلی سازمان ملل متحد نیز هست، کجاست؟»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251516
+
+<div align="center"><video src="files/post_251516_VahidOOnLine_251516.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251516_VahidOOnLine_251516.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کمیسیون دفاع پارلمان بلغارستان با پیشنهاد دولت برای استقرار موقت هواپیماهای سوخت‌رسان و نیروهای نظامی آمریکا در این کشور موافقت کرد؛ طرحی که برای اجرا به تصویب نهایی پارلمان نیاز دارد.
+
+بر اساس این طرح، حداکثر هشت هواپیمای سوخت‌رسان و ۲۵۰ نیروی نظامی آمریکا می‌توانند به طور موقت در بلغارستان مستقر شوند.
+
+گفت‌وگو با لیلی نیک‌فر، خبرنگار ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251515
+
+<div align="center"><video src="files/post_251515_VahidOOnLine_251515.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251515_VahidOOnLine_251515.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنی گانتس، رهبر حزب وحدت ملی و وزیر دفاع پیشین اسرائیل، نسبت به توافق ۳۰ ساله هسته‌ای آمریکا و عربستان سعودی هشدار داد و گفت برنامه هسته‌ای غیرنظامی عربستان، بدون ائتلاف منطقه‌ای، امنیت اسرائیل را تهدید می‌کند.
+
+گفت‌وگو با مهدی بیگی، خبرنگار ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251514
+
+<div align="center"><img src="files/post_251514_VahidOOnLine_251514.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری فارس عصر چهارشنبه ۳۱ تیرماه از شنیده شدن صدای سه انفجار در بندر سیریک استان هرمزگان خبر داد.
+
+به گفته مقام‌های محلی هنوز منشاء این انفجارها مشخص نیست. با این حال برخی منابع می‌گویند یک دکل مخابراتی در این منطقه مورد حمله قرار گرفته است.
+
+سنتکام هنوز واکنشی به این خبر نشان نداده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251513
 
@@ -219,68 +289,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که حدود ساعت ۸:۳۰ صبح چهارشنبه ۳۱ تیر، دود ناشی از انفجار در حوالی فرودگاه شیراز مشاهده شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251488
-
-<div align="center"><video src="files/post_251488_VahidOOnLine_251488.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251488_VahidOOnLine_251488.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️گزارش‌ها از حمله موشکی سپاه به بندر عقبه اردن
-
-♦️رسانه‌های داخلی ایران و شبکه الجزیره قطر از حمله موشکی به بندر عقبه اردن در ظهر چهارشنبه ۳۱ تیرماه خبر دادند.
-
-الجزیره به نقل از خبرنگار خود در عقبه اردن نوشت صدای انفجار در این شهر همزمان با فعالیت سامانه پدافندی ارتش اردن به گوش می‌رسد. الجزیره همچنین از لغو پرواز یک هواپیما مسافربری اسرائیلی در پی حمله موشکی به اردن خبر داد.
-
-یک کاربر اسرائیلی ساکن بندر ایلات هم ویدیویی را منتشر کرده که دود ناشی از انفجار را در این منطقه نشان می‌دهد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251487
-
-<div align="center"><video src="files/post_251487_VahidOOnLine_251487.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251487_VahidOOnLine_251487.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ویدیوهای منتشرشده از شیراز، شامگاه سه‌شنبه ۳۰ تیرماه، آتش‌سوزی گسترده در ارتفاعات کوه دراک را نشان می‌دهد؛ آتشی که بخش‌هایی از مراتع این منطقه را دربر گرفته است.
-
-بر اساس گزارش‌ها، آتش‌نشانان و نیروهای امدادی در محل حادثه حضور دارند و عملیات مهار آتش همچنان ادامه دارد. علت آغاز این آتش‌سوزی هنوز مشخص نیست و گفته شده موضوع در دست بررسی است.
-
-مقام‌ها و رسانه‌های جمهوری اسلامی هنوز گزارشی درباره رابطه احتمالی این آتش‌سوزی‌ها با حملات آمریکا منتشر نکرده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251486
-
-<div align="center"><video src="files/post_251486_VahidOOnLine_251486.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251486_VahidOOnLine_251486.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوی رسیده به ایران اینترنشنال از جنوب استان آذربایجان غربی، بامداد چهارشنبه صدای پدافند در آسمان مهاباد شنیده شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251485
-
-<div align="center"><video src="files/post_251485_VahidOOnLine_251485.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251485_VahidOOnLine_251485.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گزارش و ویدیوهای رسیده به ایران اینترنشنال، تیپ سپاه امام حسن مجتبی در بهبهان استان خوزستان، بامداد چهارشنبه هدف حمله موشکی قرار گرفت و دچار آتش‌سوزی شد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

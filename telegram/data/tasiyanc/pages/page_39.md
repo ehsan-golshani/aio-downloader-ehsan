@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/03 17:29
+📅 آخرین بروزرسانی: 1405/05/03 19:50
 
 ---
+
+## tasiyanc — post 7347
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned a photo
+</div>
 
 ## tasiyanc — post 7345
 
@@ -212,20 +218,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بازی پرتغال شروع شروع شد
 به امید گلزنی و درخشش ستاره بی بدیل جهان حضرت رونالدو کبیر🤩❤️‍🔥
-</div>
-
-## tasiyanc — post 7309
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال 
-
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
