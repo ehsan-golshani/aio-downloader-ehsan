@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/05/04 01:49
+📅 آخرین بروزرسانی: 1405/05/04 02:52
 
 ---
+
+## tasiyanc — post 6064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Hot Servers 🔥🌶️.npvt
+</div>
 
 ## tasiyanc — post 6062
 
@@ -150,11 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پیام مردم بالا ببینید راجب این فیلترشکن
-</div>
-
-## tasiyanc — post 6035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باز الان یکی میاد چرت چند میگه نه اینجور نیست خب پاره شدیم تحقیق کردیم جامپ مخربه و ربطی به آیپی نداره بری فعال یا غیر فعال کنی ، بقیه فیلترشکنا چنین چیزی گزارش نشده
 </div>
 

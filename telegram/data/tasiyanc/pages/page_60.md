@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/05/04 01:49
+📅 آخرین بروزرسانی: 1405/05/04 02:52
 
 ---
+
+## tasiyanc — post 6647
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔩🔴ترامپ: ما با جنگنده و هواپیما‌های خود بر فراز تهران پرواز می‌کنیم و ایرانی‌ها از آن خبر ندارن. ایران در تبلیغات خوبه اما در جنگیدن خوب نیست.
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6645
 
@@ -182,21 +189,5 @@ vless://d39664df-5bc0-4f49-9894-8f03b4150082@germany-vip.soft26.ir:8443?mode=aut
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
-</div>
-
-## tasiyanc — post 6598
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان نامحدود😎
-
-۳سرور سرعتی متد جدید همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

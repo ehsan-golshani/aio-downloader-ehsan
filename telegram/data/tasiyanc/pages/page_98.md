@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/05/04 01:49
+📅 آخرین بروزرسانی: 1405/05/04 02:52
 
 ---
+
+## tasiyanc — post 5611
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ گوگل پلی رفع فیلتر شد
+</div>
 
 ## tasiyanc — post 5610
 
@@ -148,11 +154,5 @@
 برای اتصال پایدار صبور باشید
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5583
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ اموزش ویدیویی ترکیبی سایفون با کلاینت MahsaNg 1 - وارد بخش get EMS  config شوید گزینه Mahsa repo رو بزنید بعد روی get emergency config بزنید تا کانفیگ ها اضافه بشن 2 - وارد تنظیمات سایفون شوید protocol روی Auto قرار بدید و aggressive هم ON باشه 3 -…
 </div>
 
