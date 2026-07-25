@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/05/03 10:01
+📅 آخرین بروزرسانی: 1405/05/03 12:09
 
 ---
+
+## tasiyanc — post 5710
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈2 سرور تست شده vip تمام اپراتورا ⛈ 
+sv Country 🇬🇧
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5709
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈ سرور تست شده تمام اپراتورا ⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5708
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجموعه تاسیان تلاش خواهد کرد بصورت رایگان بهترین سرور ها و بهترین کانفیگارو براتون ارائه بده تا بصورت امن در این فضا فعالیت خوبی داشته باشید نه اپ های مخرب و vpn های نا امنی ک اطلاعات شمارو تو خطر میندازه
+</div>
 
 ## tasiyanc — post 5707
 
@@ -166,28 +197,5 @@ vless://6202b230-417c-4d8e-b624-0f71afa9c75d@5.10.245.191:443?path=Telegram%40Wa
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✅V2rayNG 3 vip server 🔐 vless://bafacd98-136a-4530-838d-4e5c51838dac@188.226.180.209:443?path=%2Fshows%2Fregister%2Fjuzibaipiao&security=tls&encryption=none&insecure=0&host=juzi8186.qea.ccwu.cc&type=ws&allowInsecure=0&sni=juzi8186.qea.ccwu.cc#%40Tasiyanc…
-</div>
-
-## tasiyanc — post 5687
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅V2rayNG 3 vip server 🔐
-vless://bafacd98-136a-4530-838d-4e5c51838dac@188.226.180.209:443?path=%2Fshows%2Fregister%2Fjuzibaipiao&security=tls&encryption=none&insecure=0&host=juzi8186.qea.ccwu.cc&type=ws&allowInsecure=0&sni=juzi8186.qea.ccwu.cc#%40Tasiyanc%20%F0%9F%87%B3%F0%9F%87%B1
-vmess://eyJhZGQiOiIxNzIuMjMzLjE3Ljc2IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiIiLCJpZCI6IjA0NjIxYmFlLWFiMzYtMTFlYy1iOTA5LTAyNDJhYzEyMDAwMiIsImluc2VjdXJlIjoiMCIsIm5ldCI6InRjcCIsInBhdGgiOiIvIiwicG9ydCI6IjIyMzI0IiwicHMiOiJAVGFzaXlhbmMgQnJhemlsIHZpcCIsInNjeSI6ImF1dG8iLCJzbmkiOiIiLCJ0bHMiOiIiLCJ0eXBlIjoibm9uZSIsInYiOiIyIn0
-vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=tls&encryption=none&insecure=0&host=uin-ape.pages.dev&type=ws&allowInsecure=0&sni=uin-ape.pages.dev#%40Tasiyanc%20%E2%9A%A1
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ ویتوری یکی دوتا بزارم بعدش بریم سمت نپستر
-</div>
-
-## tasiyanc — post 5685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-27 k 🥹🫂
-ممنون که با تاسیان همراهید
 </div>
 

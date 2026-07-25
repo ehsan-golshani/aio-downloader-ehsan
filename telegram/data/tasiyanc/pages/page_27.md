@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/05/03 10:01
+📅 آخرین بروزرسانی: 1405/05/03 12:09
 
 ---
+
+## tasiyanc — post 7799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+4 سرور سرعتی حجم و کاربر نامحدود ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال به اینجکتور ✨
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارشات تایید نشده ترامپ با ناتو به توافق رسیده در ازای کمك آمریکا به اوکراین ، ناتو نیز کنار آمریکا به ایران حمله خواهد کرد
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نسخه شیر و خورشید قدیمی 👑
+آموزش اتصال
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7796
 
@@ -162,23 +202,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 واکنش اسرائیل به جنگ فعلی : خوابیما قطعش کنین
-</div>
-
-## tasiyanc — post 7753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنگه هرمز بسته شد💪
-</div>
-
-## tasiyanc — post 7752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری فرودگاه بندرعباس زدن
-</div>
-
-## tasiyanc — post 7751
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنظرتون جنگ تمام عیار میشه اسراییل ورود می‌کنه؟ یا آتش بس میشه تا صبح
 </div>
 
