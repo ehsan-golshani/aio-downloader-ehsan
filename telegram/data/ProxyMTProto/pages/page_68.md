@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/03 22:04
+📅 آخرین بروزرسانی: 1405/05/03 23:24
 
 ---
+
+## ProxyMTProto — post 48121
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: web.prxtoday.store
+Port: 443
+Secret: ee7a5660b84770213722fe3581bcb17faa7765622e707278746f6461792e73746f7265
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48120
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.120.230.120
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48119
 
@@ -163,24 +181,6 @@ Secret: 7hKJP_0gRM7NMRBO3AKn5VhhZHMueDUucnU
 Server: 167.233.115.193
 Port: 100
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0YYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYY
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp.nowabst.net
-Port: 853
-Secret: ee82ce1f84af4033cc7e7b021069be3d5b6164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48100
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

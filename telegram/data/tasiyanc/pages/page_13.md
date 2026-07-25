@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/03 19:50
+📅 آخرین بروزرسانی: 1405/05/03 23:26
 
 ---
+
+## tasiyanc — post 8314
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرچ نامحدود ۲۰۰ استارز میکنم از پسفردا چون اینا می‌خوان اطلاعات بزارن ❤️
+</div>
+
+## tasiyanc — post 8313
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
+</div>
+
+## tasiyanc — post 8312
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ ۴ انفجار در یزد شنیده شد
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8311
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
+</div>
+
+## tasiyanc — post 8310
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
+</div>
 
 ## tasiyanc — post 8309
 
@@ -144,39 +176,5 @@
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8291
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آدرس ، کد ملی با ادرس
-</div>
-
-## tasiyanc — post 8290
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشخصات کامل بزاریم؟
-</div>
-
-## tasiyanc — post 8289
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعدیا بیان پیوی
-</div>
-
-## tasiyanc — post 8288
-
-<div align="center"><img src="files/post_8288_tasiyanc_8288.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-09197478492
-
-ثمینه جعفری ، مادر جنده اعظم
-</div>
-
-## tasiyanc — post 8287
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتی با عرزشی بحث میکنم احساس میکنم نجس میشم و مثل این میمونه ۱ ماه تو تابستون نری حموم
 </div>
 

@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/03 19:50
+📅 آخرین بروزرسانی: 1405/05/03 23:26
 
 ---
+
+## tasiyanc — post 6311
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطوره؟
+</div>
+
+## tasiyanc — post 6310
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لوگو چنل مرتبط با اسم تغییراتی کوچک دادیم ، گممون نکنین ❤️
+</div>
+
+## tasiyanc — post 6308
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3 سرور   سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سندروم Survivor's Guilt:
+حالت روانی‌ای که فرد پس از زنده موندن از یه فاجعه یا تجربه مرگبار با وجود بی تقصیر بودن، دچار احساس گناه از زنده موندن میشه، به ویژه وقتی دیگران آسیب دیده یا جان باختن.
+
+پروکسی • پروکسی
+
+@Tasiyanproxy ✅
+</div>
+
+## tasiyanc — post 6306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد XB  👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6305
 
@@ -157,42 +207,5 @@ Join As @Tasiyanc ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تا دقایقی دیگر VPN معرفی میکنم
 از امروز مرتب تحقیق میکنم درباره پروژه ها و تیم توسعه دهنده فیلترشکنها ، مناسب هاشو تست میکنم براتون معرفی میکنم
-</div>
-
-## tasiyanc — post 6287
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ سرعتی (2).npvt
-</div>
-
-## tasiyanc — post 6286
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Green Eyes ⚡💚.npvt
-</div>
-
-## tasiyanc — post 6285
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد cm  👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش
-⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-MCI - SamanTel - wifi تست شده
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 6283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-الان کسی از چنل رد شه میگه پشمام ریکشن تاسیانو نگا
 </div>
 

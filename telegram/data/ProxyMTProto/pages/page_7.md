@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/03 22:04
+📅 آخرین بروزرسانی: 1405/05/03 23:24
 
 ---
+
+## ProxyMTProto — post 49349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49348
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fleet.telehelp.top
+Port: 443
+Secret: ee77bbf78a169e505b117bc2c1df39463d666c6565742e74656c6568656c702e746f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49347
 
@@ -163,24 +181,6 @@ Secret: 7hBEYoISSb16xRkTAiDCXQljZG4ueWVrdGFuZXQuY29t
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49329
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: one1.mtproxygram.lol
-Port: 443
-Secret: ee563dc88ae5d1c70b18d01472f77a969962726f777365722e79616e6465782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

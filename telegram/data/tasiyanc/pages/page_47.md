@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/05/03 19:50
+📅 آخرین بروزرسانی: 1405/05/03 23:26
 
 ---
+
+## tasiyanc — post 7081
+
+<div align="center"><img src="files/post_7081_tasiyanc_7081.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️پخش زنده مسابقات جام جهانی 2026
+
+https://roxiestreams.su/soccer
+
+https://streamcorner.fyi/fifa-world-cup
+
+https://totalsportek.tips/football
+
+https://www.bintv.net
+
+https://soccerstreams.sbs
+
+https://strumyk.net
+
+سایت هایی که باز نمیشه رو باید با وی پی ان باز کنید
+
+گزارش فارسی:(نیازمند ثبت نام،
+فیک میل میتونید بزنید)
+https://persianasports.com/live.html
+
+
+🔗ربات ایمیل فیک:
+@TempMail_org_bot
+
+@Tasiyanc 
+✅ | تاسیان
+</div>
+
+## tasiyanc — post 7080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شب نشینی با تاسیان😁
+🦦
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7079
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐
+🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@admin.c1.webramz.co:443#Fast%20%40Tasiyanc%20%F0%9F%AA%90
+نامحدود سرعتی 
+⚡️
+🇬🇧
+@Tasiyanc
+💠
+</div>
+
+## tasiyanc — post 7078
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast VIP ⚡🇳🇱″🇬🇧.npvt
+</div>
+
+## tasiyanc — post 7077
+
+<div align="center"><img src="files/post_7077_tasiyanc_7077.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دی ان اس اختصاصی تاسیان برای گیم ✅ ریج تیر & زد لگ Primary address ⚡️ 117.50.10.10 Primary address ⚡️ 117.50.22.22 Primary address ⚡️123.125.81.6 Primary address ⚡️119.29.29.29 🔑 DNS CHANGER ⬜️ برنامه مورد نیاز @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7076
 
@@ -172,51 +240,5 @@ Location 🇩🇪
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7039
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیوزلند انقد کیری باز می‌کنه تیم شموشک بود دو تا گل میزد
-</div>
-
-## tasiyanc — post 7035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللللل نیوزلند
-</div>
-
-## tasiyanc — post 7025
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک از ماهواره نتونستن بگیرن میتونن از این سایت بدون نیاز به VPN از این شبکه ببینن
-TRT 1
-https://ritsatv.ru/mobile-version/movie-id901190-trt1
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بخاطر اون ۶۴۰۰۰ نفر بیدارم بازیو ببینیم
-</div>
-
-## tasiyanc — post 7022
-
-<div align="center"><video src="files/post_7022_tasiyanc_7022.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7022_tasiyanc_7022.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 
-📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
 </div>
 

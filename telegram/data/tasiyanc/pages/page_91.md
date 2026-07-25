@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/05/03 19:50
+📅 آخرین بروزرسانی: 1405/05/03 23:26
 
 ---
+
+## tasiyanc — post 5794
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️خبرگذاری فارس سه انفجار مهیب در بندرعباس را تایید کرد
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♨️ | آواکس‌های E-3G نیروی هوایی ایالات متحده از عربستان سعودی، P-8A Poseidon از اردن، تانکرهای سوخت از اسرائیل و جت‌های جنگنده بر فراز خلیج فارس فعال هستند
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♨️ فعال شدن پدافند در بندرعباس
+</div>
+
+## tasiyanc — post 5791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارشات از صدای انفجار در بندرعباس
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5790
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈3سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5789
 
@@ -130,55 +171,5 @@ vless://4dc0eec9-f0e1-4755-be7e-7ba628522d1b@91.99.145.207:443?path=%2F&security
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگا روی رایتل تست شدن و همشون مثل موشک کار میدن بقیه هم تست کنن 💋
-</div>
-
-## tasiyanc — post 5767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈4 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن 😐😐?
-</div>
-
-## tasiyanc — post 5765
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-PREMIUM 💥.npvt
-</div>
-
-## tasiyanc — post 5764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈4 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید 
-✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5763
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🔐 RighTel
-
-vless://da2ab05b-6b96-4d0c-96eb-7b320b343fc0@zdas.zeabur.app:443?path=%2Fsecurity%3Dtls&security=tls&encryption=none&insecure=0&host=zdas.zeabur.app&type=ws&allowInsecure=0#%40Tasiyanc%20RighTel%20%E2%9B%93%EF%B8%8F
-
-@Tasiyanc ✔️
 </div>
 

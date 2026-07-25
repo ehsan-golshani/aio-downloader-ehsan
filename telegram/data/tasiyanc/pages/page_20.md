@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/03 19:50
+📅 آخرین بروزرسانی: 1405/05/03 23:26
 
 ---
+
+## tasiyanc — post 8123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آرژانتین زددد
+</div>
+
+## tasiyanc — post 8122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انگلیس زددددد
+</div>
+
+## tasiyanc — post 8120
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ حمله شدید آمریکا به کرمان
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴قرارگاه مرکزی سپاه پاسداران در راسک توسط آمریکا هدف قرار گرفت
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8118
+
+<div align="center"><video src="files/post_8118_tasiyanc_8118.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8118_tasiyanc_8118.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ جی دی ونس:
+ـ اگه مردم ایران بخوان قیام کنن و حکومتشون رو عوض کنن، این مربوط به خودشونه.
+ـ ما قرار نیست ۱۵۰ هزار نیروی زمینی بفرستیم تا برای تغییر حکومت ایران بجنگن.
+ـ ما در هر صورت نیرو اعزام نمی‌کنیم.
+چون اگه چنین کاری بکنیم، یعنی ارتش آمریکا داره کار مردم ایران رو انجام می‌ده.
+ـ دیگه وارد چنین بازی‌هایی نمی‌شیم؛ اون دوران گذشته.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8117
 
@@ -157,68 +202,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💢 فوری، رمضان رحیمی عضو کمیسیون آموزش: اگر شرایط جنگ و بحرانی ادامه پیدا کنه، کنکور به تعویق خواهد خورد.
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد
-
-مناسب دانلود⬇️ &  گیم 🎮 & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe ⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8094
-
-<div align="center"><img src="files/post_8094_tasiyanc_8094.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺دیوار نگاره جدید دوستان عرزشی در میدان انقلاب:  ترامپ را می کـــشیم
-
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8093
-
-<div align="center"><video src="files/post_8093_tasiyanc_8093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8093_tasiyanc_8093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوس پسرم جوابمو نمی‌ده حتما داره بهم خیانت می‌کنه ، دوس پسرش :
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8092
-
-<div align="center"><img src="files/post_8092_tasiyanc_8092.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیس و دیس بک😂
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری بر اساس تصمیم ستاد عالی آزمون های وزارت آموزش و پرورش و با توجه به شرایط خاص کشور در استان های هرمزگان، بوشهر، خوزستان و سیستان_و_بلوچستان امتحانات نهایی تمامی رشته های تحصیلی پایه دوازدهم در روز پنجشنبه؛ مورخ 1405/04/25 و پایه یازدهم در روز شنبه، 1405/04/27 لغو و به زمان دیگری که متعاقباً اعلام خواهد شد، موکول می شود.
-
-@Tasiyanc ⭐️ | بانك کانفیگ
 </div>
 

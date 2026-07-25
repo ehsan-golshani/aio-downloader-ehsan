@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/03 19:50
+📅 آخرین بروزرسانی: 1405/05/03 23:26
 
 ---
+
+## tasiyanc — post 8522
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8520
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 انفجار در کنارك
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8519
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقا این جان فداهای ما چی شد؟
+</div>
+
+## tasiyanc — post 8518
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 چابهار چندین انفجار مهیب
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8517
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انفجار در شیراز ، تایید میکنید شیرازیا؟
+</div>
 
 ## tasiyanc — post 8516
 
@@ -183,75 +217,5 @@ Loc 🇩🇪 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt
-</div>
-
-## tasiyanc — post 8483
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-10سرور سرعتی پرمیوم سرور ترکیه⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8482
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ممنون بابت حمایت‌هاتون @i_am_souji_2 ❤️ شب بالای ۵۰ استارز زده زیر پست کانفیگا
-</div>
-
-## tasiyanc — post 8481
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-5سرور سرعتی پرمیوم دارای ۲لوکیشن  ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8479
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب بخوابید آروم شد
-</div>
-
-## tasiyanc — post 8476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 دو انفجار در بندر امام
-
-@TASIYANC 
-✅
 </div>
 

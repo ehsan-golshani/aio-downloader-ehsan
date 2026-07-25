@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/03 19:50
+📅 آخرین بروزرسانی: 1405/05/03 23:26
 
 ---
+
+## tasiyanc — post 7789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه اوه ترامپ عصبانی شد
+</div>
+
+## tasiyanc — post 7788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل با اجازتون عوض شد ❤️
+</div>
+
+## tasiyanc — post 7785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عجب پخت پزی شد 💥 اندپوینتای جدید سرعتی
+دوستانی ک آیفون دارن تو ویندسکرایب بزنید
+</div>
+
+## tasiyanc — post 7778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ & گیم 🎮
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe ⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7777
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر هارو تو چنل پروکسی دنبال کنین
+@TasiyanProxy
+</div>
 
 ## tasiyanc — post 7764
 
@@ -129,35 +176,5 @@
 
 دوستانی ک از گروه بن شدن با پشتیبانی در ارتباط باشن
 @StarTasiyan
-</div>
-
-## tasiyanc — post 7733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حرومزاده ها
-</div>
-
-## tasiyanc — post 7732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه پاس به رونالدو ندادید دیشب
-</div>
-
-## tasiyanc — post 7731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بورنو فرناندز ، ویتینیا ناموستون گاییدم
-</div>
-
-## tasiyanc — post 7730
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سوپرررررر گللللللل زد
-</div>
-
-## tasiyanc — post 7729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسییییییییی
 </div>
 
