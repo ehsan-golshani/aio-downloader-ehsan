@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/03 23:26
+📅 آخرین بروزرسانی: 1405/05/04 00:38
 
 ---
+
+## tasiyanc — post 7256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه بجای طارمی سهراب سپهری بود با اختلاف گل میشد 😂
+</div>
+
+## tasiyanc — post 7255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجاست ک میگن بلژیک از کون ( طارمی) اورد 🤣
+</div>
 
 ## tasiyanc — post 7254
 
@@ -241,18 +253,5 @@ Wnd🍓 @Tasiyanc.conf
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
-</div>
-
-## tasiyanc — post 7219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk
-کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
 </div>
 

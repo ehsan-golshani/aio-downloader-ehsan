@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/03 23:26
+📅 آخرین بروزرسانی: 1405/05/04 00:38
 
 ---
+
+## tasiyanc — post 6142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Jzzb 🔥Vip.npvt
+</div>
+
+## tasiyanc — post 6141
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+
+تست شده 🎚
+
+دانلود برنامه Wg tunnel 🕹
+
+آموزش ویدیویی ⏩
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6140
 
@@ -182,22 +202,5 @@ Fast2⚡@Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc چنل تاسیان.conf
-</div>
-
-## tasiyanc — post 6117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نپستر عضو جداناپذیر تاسیانه دوستان نگران نباشید میزاریم ، راه های دیگه رو هم فقط تست میکنیم ❤️
-</div>
-
-## tasiyanc — post 6115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی کانفیگ وایرگارد ✅
-
-تست شده 🎚
-
-دانلود برنامه Wg tunnel 🕹
-@Tasiyanc ✅
 </div>
 

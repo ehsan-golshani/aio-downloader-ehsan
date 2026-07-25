@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/03 23:26
+📅 آخرین بروزرسانی: 1405/05/04 00:38
 
 ---
+
+## tasiyanc — post 8524
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+سرور  سرعتی پرمیوم 
+⚡️
+
+تست شده روی همه نت ها 
+🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر 💘
+</div>
 
 ## tasiyanc — post 8522
 
@@ -203,19 +234,5 @@ vless://e7961655-9674-4cbd-a36f-ec0d5d7d660c@45.130.125.138:2053?path=%2F&securi
 Loc 🇩🇪 🇩🇪
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8486
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 20 July روز جهانی ماهه
-
-به تمام دختر پسرای چنلمون تبریك میگیم این روز رو 🌚
-</div>
-
-## tasiyanc — post 8484
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt
 </div>
 

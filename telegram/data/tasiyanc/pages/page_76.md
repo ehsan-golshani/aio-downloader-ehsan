@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/05/03 23:26
+📅 آخرین بروزرسانی: 1405/05/04 00:38
 
 ---
+
+## tasiyanc — post 6194
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+4سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+2سرور  سرعتی تست شده 🚀
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6191
 
@@ -164,29 +189,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Premium GOD SV 🚀🔥.npvt
-</div>
-
-## tasiyanc — post 6166
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-
-4سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6165
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رو دوتا کانفیگ آخری( وایرگارد - نپستر)
-ریکشن رو هر کدوم بیشتر باشه پست بعدی از اون کانفیگ میزارم
 </div>
 

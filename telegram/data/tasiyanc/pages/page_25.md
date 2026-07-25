@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/03 23:26
+📅 آخرین بروزرسانی: 1405/05/04 00:38
 
 ---
+
+## tasiyanc — post 7924
+
+<div align="center"><img src="files/post_7924_tasiyanc_7924.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز روز جهانی کبابه😍
+
+بفرس برا رفیقت برات بخره☺️
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7922
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐 مشاهده فیلم 👉
+</div>
 
 ## tasiyanc — post 7920
 
@@ -201,27 +219,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 @Tasiyanc ⭐️
 #Navid
-</div>
-
-## tasiyanc — post 7883
-
-<div align="center"><img src="files/post_7883_tasiyanc_7883.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc✅
-#Mobina
-</div>
-
-## tasiyanc — post 7882
-
-<div align="center"><img src="files/post_7882_tasiyanc_7882.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀‼️اینستاگرام در اقدامی جنجالی، قابلیتی اضافه کرده که بقیه می‌تونن باهاش از عکس‌های شما برای ساخت تصاویر هوش مصنوعی استفاده کنن.
-
-اگه اکانتتون پابلیکه، این قابلیت به‌صورت پیش‌فرض روشنه؛ اینطوری خاموشش کنید.
-
-@Tasiyanc✅
-#Mobina
 </div>
 

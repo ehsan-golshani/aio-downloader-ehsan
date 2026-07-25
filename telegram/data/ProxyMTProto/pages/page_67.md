@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/05/03 23:24
+📅 آخرین بروزرسانی: 1405/05/04 00:36
 
 ---
+
+## ProxyMTProto — post 48143
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 65.109.255.99
+Port: 443
+Secret: YyEEgYdJXfrFmgMCIMJdjgYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYY
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Gengbeng.etherealvpn.uk
+Port: 443
+Secret: eec3332fab3d82ff009bc26822e5b7dc84617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48141
 
@@ -163,24 +181,6 @@ Secret: ee8e4bd7b2a034418fd924aeed3c97cd7b6f6e79782e70726f787974672e6c697665
 Server: 176.65.135.69
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: my.proxyz.site
-Port: 443
-Secret: ee0a9ab2b66d72b6797fa11106f55707056d792e70726f78797a2e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: moh.kingproxynewdomailasiatech.ink
-Port: 25565
-Secret: FgMBAgABAAH8AxOG4kw63Q
 @ProxyMTProto
 </div>
 
