@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/05/03 13:51
+📅 آخرین بروزرسانی: 1405/05/03 15:21
 
 ---
+
+## ProxyMTProto — post 47844
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 9965
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47843
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: nova.flowstreamhub.site
+Port: 443
+Secret: eeb1a90b2bd080b288badd320bf824277c6e6f76612e666c6f7773747265616d6875622e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47842
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd79e7010200010007f0030386e24c3add
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47841
 
@@ -156,33 +183,6 @@ Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
 Server: wave.flowaccess.site
 Port: 8443
 Secret: eeea2f80ea6628006a3db2a8678d65bd07776176652e666c6f776163636573732e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47824
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: starsvpn.obhod.fun
-Port: 6443
-Secret: 76706e76706e76706e76706e76706e76
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47823
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: spain.nolags.pw
-Port: 443
-Secret: ddda11050e6e98fb151d0094b549b0344a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47822
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: jet.quickrouteapp.xyz
-Port: 8443
-Secret: eeedca657d767c71c26de484e74182c3076a65742e717569636b726f7574656170702e78797a
 @ProxyMTProto
 </div>
 

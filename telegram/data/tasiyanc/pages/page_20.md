@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/03 12:09
+📅 آخرین بروزرسانی: 1405/05/03 15:23
 
 ---
+
+## tasiyanc — post 8114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴حملات شدید آمریکا به اهواز عزیز
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتیجه دقیق بازی آرژانتین 🇦🇷 و انگلیس 🏴󠁧󠁢󠁥󠁮󠁧󠁿 بگید کانفیگ وایرگارد بگیرید
+</div>
 
 ## tasiyanc — post 8112
 
@@ -210,19 +224,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 ⭕️⭕️ یک مقام ارشد آمریکایی : جمهوری اسلامی از توافق با آمریکا رسما خارج شد
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💢 فوری صنایع الکترونیک شیراز زدن
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گرمهههههههههههههههههه
 </div>
 

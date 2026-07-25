@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/05/03 13:51
+📅 آخرین بروزرسانی: 1405/05/03 15:21
 
 ---
+
+## ProxyMTProto — post 47804
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 89.169.173.127
+Port: 443
+Secret: ee0f8e5e42ea0dd0f9639d851090e69760617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47803
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47802
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 89.169.173.127
+Port: 443
+Secret: ee0f8e5e42ea0dd0f9639d851090e69760617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47801
 
@@ -154,33 +181,6 @@ Secret: ee9963ec50cf89d852bb1e084a44b196e4646f742e76646c2e6c6174
 Server: Unknown
 Port: 7980
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47784
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.21.131
-Port: 443
-Secret: ee112a55bdf58d4ffd21bc53f7947e5769617669746f2e727
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47783
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: trump.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47782
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rkn.quickrouteapp.xyz
-Port: 8443
-Secret: eeae82b9fd491e0fde6eb677e47099729b726b6e2e717569636b726f7574656170702e78797a
 @ProxyMTProto
 </div>
 
