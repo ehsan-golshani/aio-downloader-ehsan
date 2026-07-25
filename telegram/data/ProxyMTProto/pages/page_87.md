@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/03 21:02
+📅 آخرین بروزرسانی: 1405/05/03 22:04
 
 ---
+
+## ProxyMTProto — post 47739
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 89.208.113.182
+Port: 443
+Secret: ee171a9375170afdb5095d7bc9c19cc562766b2e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47738
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47737
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: vktop.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47736
 
@@ -154,33 +181,6 @@ Secret: EERighJJvXrFGRMCIMJdCQRueWVrdGFuZXQuY29tZmFyYWthdi5jb212YW4ubmFqdmEuY29t
 Server: evening.nolags.pw
 Port: 443
 Secret: dd29b3afb209c4427676b4c43eecb7f556
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47719
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad.canvas-proxy.com
-Port: 443
-Secret: eeb7f10957fcefd87d5e8c336fc9851d8d61642e63616e7661732d70726f78792e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 95.182.86.60
-Port: 443
-Secret: ee82dd957be0c6899a82879d05fecfc73a617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r28.proxytg.space
-Port: 8443
-Secret: eed5f4455563d14c2b8c8a38868c7d91607232382e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 

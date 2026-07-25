@@ -1,8 +1,54 @@
 # آرشیو کانال VahidOOnLine - صفحه 201
 
-📅 آخرین بروزرسانی: 1405/05/03 21:01
+📅 آخرین بروزرسانی: 1405/05/03 22:04
 
 ---
+
+## VahidOOnLine — post 247540
+
+<div align="center"><img src="files/post_247540_VahidOOnLine_247540.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️رامین رضاییان در دقیقه ۱۴ بازی توانست با باز کردن دروازه مصر، نتیجه بازی را ۱-۱ مساوی کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247539
+
+<div align="center"><img src="files/post_247539_VahidOOnLine_247539.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حمیدرضا محمدحسینی تختی، مدیر بنادر شرق استان هرمزگان، گفت: وضعیت بندر سیریک عادی است و خسارتی به بندر و تجهیزات و اسکله‌های آن وارد نشده است.
+
+به گزارش خبرگزاری مهر، او اشاره کرد که بندر سیریک روال طبیعی و عادی دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247538
+
+<div align="center"><img src="files/post_247538_VahidOOnLine_247538.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️محمود صابر در دقیقه ۵ بازی موفق شد گل اول را برای تیم ملی مصر مقابل ایران به ثمر برساند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247537
+
+<div align="center"><img src="files/post_247537_VahidOOnLine_247537.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سوت آغاز دیدار «سرنوشت‌ساز» تیم‌های ملی فوتبال ایران و مصر در مرحله گروهی رقابت‌های جام جهانی ۲۰۲۶، صبح جمعه به وقت تهران، به صدا درآمد و دو تیم در ورزشگاه سیاتل ایالات متحده به مصاف یکدیگر رفتند. این مسابقه که به دلیل موقعیت دو تیم در جدول گروه G و تلاش برای صعود به مرحله یک‌سی‌ودوم نهایی از اهمیت بالایی برخوردار است، در حالی آغاز شده که تب فوتبال در میان هواداران به اوج خود رسیده و بر اساس مصوبه استانداری‌ها، ساعت آغاز به‌کار ادارات در ۱۹ استان کشور با «تاخیر ۲ ساعته» همراه شده است. شاگردان امیر قلعه‌نویی پس از تساوی برابر بلژیک و نیوزیلند، در این مسابقه تنها با هدف کسب امتیاز کامل و قطعی کردن صعود خود به مرحله حذفی گام به میدان گذاشته‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247536
 
@@ -217,54 +263,6 @@
 
 او تاکید کرد توافق‌نامه‌ «آغاز راهی برای ثمربخشیدن فداکاری‌های» مردم است، تا بتوانند به سرزمین آزاد شده‌ خود بازگردند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247513
-
-<div align="center"><video src="files/post_247513_VahidOOnLine_247513.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247513_VahidOOnLine_247513.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️طرفداران حزب‌الله، جمعه‌شب، در پی امضای «توافق‌نامه سه‌جانبه» لبنان با اسرائیل و ایالات متحده، پایتخت لبنان را به ناآرامی و آشوب کشاندند. براساس گزارش‌های منتشر شده از بیروت، طرفداران حزب‌الله با حضور در خیابان‌ها، آتش زدن لاستیک‌ها و مسدود کردن راه‌ها، خشم خود را نسبت به این اقدام مقامات لبنانی ابراز کرده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247512
-
-<div align="center"><img src="files/post_247512_VahidOOnLine_247512.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تام کاتن، سناتور جمهوری‌خواه در ایکس نوشت: «وحشی‌های حزب‌الله خون آمریکایی‌ها را بر دستان خود دارند. از ترامپ و وزیر خارجه آمریکا به‌دلیل دستیابی به این توافق مهم که گروه نیابتی تروریستی جمهوری اسلامی را مهار خواهد کرد، قدردانی می‌کنم. بگذارید صریح بگویم: تهران هیچ آینده‌ای در لبنان ندارد»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247511
-
-<div align="center"><img src="files/post_247511_VahidOOnLine_247511.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ابراهیم عزیزی، رییس کمیسیون امنیت ملی و سیاست خارجی مجلس جمهوری اسلامی، آمریکا را متهم کرد که «در میانه مذاکره به ایران حمله کرده است.»
-
-او نوشت دونالد ترامپ به اصول مذاکره و آتش‌بس پایبند نیست و مدعی شد نقض آتش‌بس از سوی آمریکا به عقب‌نشینی و پشیمانی این کشور منجر خواهد شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247510
-
-<div align="center"><img src="files/post_247510_VahidOOnLine_247510.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️«نیویورک تایمز» روز جمعه، به نقل از یک مقام آمریکایی گزارش داد که حملات هوایی ایالات متحده علیه اهداف موشکی و پهپادی ایران به پایان رسیده است. این مقام مسئول اعلام کرد: «شش جنگنده نیروی هوایی آمریکا شامل جنگنده‌های اف-۳۵ و اف-۱۶، چهار سایت متعلق به ایران را در امتداد تنگه هرمز و جزیره قشم هدف قرار دادند.» به گزارش نیویورک تایمز، این عملیات تلافی‌جویانه که در پاسخ به حمله پهپادی ایران به یک کشتی تجاری با پرچم سنگاپور انجام شد، حدود «۹۰ دقیقه» به طول انجامید و انبارها، محل‌های نگهداری موشک و پهپاد و همچنین سایت‌های راداری ساحلی در این مناطق بمباران شدند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
