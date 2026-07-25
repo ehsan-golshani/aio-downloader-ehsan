@@ -1,8 +1,123 @@
 # آرشیو کانال VahidOOnLine - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/05/03 12:06
+📅 آخرین بروزرسانی: 1405/05/03 13:51
 
 ---
+
+## VahidOOnLine — post 250228
+
+<div align="center"><img src="files/post_250228_VahidOOnLine_250228.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سنتکام اعلام کرد نیروهای فرماندهی مرکزی آمریکا، ظهر دوشنبه به وقت ایران، موجی از حملات را علیه جمهوری اسلامی آغاز کردند.
+
+به گفته سنتکام این حملات به منظور تضعیف بیشتر قابلیت‌های نظامی نیروهای ایرانی برای حمله به کشتی‌های تجاری در تنگه هرمز طراحی شده‌اند.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250227
+
+<div align="center"><video src="files/post_250227_VahidOOnLine_250227.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250227_VahidOOnLine_250227.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدجواد اکبرین، عضو تحریریه ایران‌اینترنشنال، در واکنش به پیام‌های سپاه خطاب به مردم اردن و کویت، که از آن‌ها خواسته موسسات آمریکایی را در کشورشان تخریب کنند، گفت این اقدام را روح‌الله خمینی نیز انجام می‌داد و به گفته برخی، این رفتار در آغاز جنگ با عراق تاثیر داشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250226
+
+<div align="center"><video src="files/post_250226_VahidOOnLine_250226.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250226_VahidOOnLine_250226.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال در واکنش به اظهارات ترامپ درباره حمله زمینی و هدف قرار دادن زیرساخت‌های ایران گفت اگر هدف، خلع سلاح گسترده جمهوری اسلامی باشد، عملیات نظامی باید هفته‌ها ادامه یابد؛ در غیر این صورت، این تهدیدها با هدف وادار کردن تهران به مذاکره است
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250225
+
+<div align="center"><img src="files/post_250225_VahidOOnLine_250225.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خانواده کریگ و لیندزی فورمن، زوج بریتانیایی زندانی در ایران اعلام کردند که دادگاه حکم زندان کریگ فورمن را به دلیل گفت‌وگو با رسانه‌ها دو سال افزایش داده است.
+
+پیش‌تر خانواده این زوج بریتانیایی اعلام کرده بودند این دو نفر به اتهام جاسوسی، به ۱۰ سال زندان محکوم شده‌اند.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250224
+
+<div align="center"><video src="files/post_250224_VahidOOnLine_250224.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250224_VahidOOnLine_250224.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش‌های دریافتی از ممسنی از وقوع آتش‌سوزی گسترده در مناطق پادراز و مورکی و پیشروی شعله‌ها به سمت کوه دکل، اشکان و روستاهای اطراف حکایت دارد. بر اساس این گزارش‌ها، مردم با درخواست کمک برای مهار آتش، نسبت به گسترش لحظه‌به‌لحظه آن ابراز نگرانی کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250223
+
+<div align="center"><video src="files/post_250223_VahidOOnLine_250223.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250223_VahidOOnLine_250223.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیلگر سیاسی، به ایران‌اینترنشنال گفت با وجود حملات جمهوری اسلامی به هشت کشور منطقه، این کشورها به همکاری نظامی با آمریکا ادامه خواهند داد، اما هنوز نشانه‌ای از تصمیم آن‌ها برای حمله مستقل به جمهوری اسلامی دیده نمی‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250222
+
+<div align="center"><img src="files/post_250222_VahidOOnLine_250222.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سالار ولایتمدار، عضو کمیسیون امنیت ملی مجلس، در گفت‌وگو با باشگاه خبرنگاران جوان اعلام کرد جمهوری اسلامی می‌خواهد بتی را بشکند که سال‌ها به مردم «ظلم کرده و خون‌ها خورده و خون‌ها ریخته» است.
+
+ولایتمدار گفت: «مردم ما در خیابان فریاد می‌زنند حرف ما یک کلام، انتقام، انتقام؛ که شعار بسیار راهبردی است.» او افزود این امر هزینه دارد و مردم باید پرداخت این هزینه را بپذیرند.
+
+عضو کمیسیون امنیت ملی مجلس گفت: «ممکن است در این راه زیرساخت‌های ما آسیب ببیند و در سطح جامعه با کمبود مواجه شویم، به همین دلیل باید از همین حالا برای مردم تشریح شود و رسانه‌ها در این موضوع کار کنند.»
+
+او ادامه داد: «همه باید این را بدانند که ما بعد از کشته شدن رهبرمان، دنیا را سه‌طلاقه کردیم.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250221
+
+<div align="center"><video src="files/post_250221_VahidOOnLine_250221.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250221_VahidOOnLine_250221.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تصاویری از دکل مخابراتی بندرعباس پس از حملات نیمه‌شب سه‌شنبه و بامداد چهارشنبه آمریکا در صبح چهارشنبه ۲۴ تیرماه در شبکه‌های اجتماعی و رسانه‌های داخلی ایران منتشر شده است.
+
+بر اساس این تصاویر، بخشی از تاسیسات مخابراتی در این منطقه آسیب دیده، اما هنوز جزئیات رسمی درباره میزان خسارات، اختلالات احتمالی ارتباطی یا هدف دقیق این حمله اعلام نشده است.
+
+بندرعباس در ساعات گذشته یکی از مناطقی بوده که گزارش‌هایی از شنیده‌شدن صدای انفجار و حملات آمریکا به اهداف مرتبط با زیرساخت‌های نظامی و پشتیبانی جمهوری اسلامی در آن منتشر شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250220
 
@@ -191,119 +306,6 @@ iranintl
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس گزارش و ویدیوی ارسالی به ایران اینترنشنال، حدود ساعت ۵:۲۶ بامداد چهارشنبه ۲۴ تیر، انفجار شدیدی در سایت موشکی فاز ۴ سربندر رخ داد. در این گزارش آمده است که پس از انفجار، دود سفیدی در محل مشاهده شد که ماهیت آن مشخص نیست. ویدیوی ارسالی دقایقی پس از انفجار ضبط شده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250208
-
-<div align="center"><img src="files/post_250208_VahidOOnLine_250208.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری قوه قضائیه جمهوری اسلامی صبح چهارشنبه ۲۴ تیرماه از اعدام  محمد امینی دهاقانی، یکی از معترضان انقلاب ملی ایرانیان خبر داد.
-
-میزان نوشته است محمد امینی دهاقانی به جرم پرتاب کوکتل مولوتوف به‌سوی ساختمان کلانتری و فرمانداری شهرستان دهاقان استان اصفهان در جریان اعتراضات ۱۹ دی‌ماه به اعدام محکوم شده بود و حکم وی بامداد امروز و پس از تائید دیوان عالی کشور اجرا شد.
-
-شورای حقوق بشر سازمان ملل متحد می‌گوید از دی‌ماه سال ۱۴۰۴ تاکنون دست‌کم ۱۵۶ نفر در ایران اعدام شده‌اند. به گفته همین نهاد حداقل ۲۰ نفر به جرم شرکت در اعتراضات اعدام شده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250207
-
-<div align="center"><img src="files/post_250207_VahidOOnLine_250207.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منوچهر متکی، نماینده تهران در مجلس، در یک برنامه تلویزیونی اعلام کرد پایگاه‌هایی در منطقه که از آن به خاک ایران حمله می‌شود، «اهداف مشروع» هستند و باید یکی از آنها از سوی جمهوری اسلامی تصرف شود.
-
-نماینده تهران در مجلس گفت: «باید به صورت زمینی به پایگاه‌های نظامی آمریکا در منطقه حمله و آنها را تصرف کنیم و هزاران سرباز آمریکایی اسیر بگیریم و به ایران بیاوریم.»
-
-او افزود: «ما باید حمله زمینی را آغاز کنیم، چیزی که آمریکایی‌ها مدت‌ها تهدید کردند اما جرات اقدام نداشتند.»
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250206
-
-<div align="center"><video src="files/post_250206_VahidOOnLine_250206.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250206_VahidOOnLine_250206.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال، نشان می‌دهد که بامداد ۲۴ تیر، یک فروند موشک از تبریز پرتاب شد. جزئیات بیشتری درباره محل دقیق پرتاب یا مقصد احتمالی آن منتشر نشده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250205
-
-<div align="center"><video src="files/post_250205_VahidOOnLine_250205.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250205_VahidOOnLine_250205.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اداره‌ کل بنادر و دریانوردی استان سیستان‌وبلوچستان صبح چهارشنبه ۲۴ تیرماه اعلام کرد درپی حملات شب  ساعات آمریکا به بندر چابهار، مرکز کنترل ترافیک دریایی این بندر برای دومین بار در هفته گذشته مورد اصابت قرار گرفت و خساراتی به سازه آن وارد شد.
-به گفته مقام‌های محلی حملات نیمه‌شب سه‌شنبه و بامداد چهارشنبه به چابهار کسی کشته یا زخمی نشده است.
-
-ویدیوهای منتشر شده در شبکه‌های اجتماعی وقوع انفجارهای پیاپی و برخاستن ستون دود از مناطق مختلف در چابهار را نشان می‌دهد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250204
-
-<div align="center"><img src="files/post_250204_VahidOOnLine_250204.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️اردن: سه موشک شلیک شده از ایران را رهگیری و منهدم کردیم
-
-♦️ارتش اردن صبح چهارشنبه ۲۴ تیرماه اعلام کرد که در ساعات گذشته موفق شده است سه موشک شلیک شده از ایران را در آسمان این کشور رهگیری و منهدم کند.
-
-نیروهای مسلح جمهوری اسلامی از زمان آغاز دوباره درگیری‌ها در تنگه هرمز، علاوه بر کشورهای حاشیه جنوبی خلیج فارس، بارها به سوی اردن هم موشک و پهپاد شلیک کرده‌اند.
-ارتش اردن می‌گوید سامانه پدافند هوایی این کشور پرتابه‌های ایرانی را رهگیری و منهدم می‌کند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️یک مغازه‌دار در شهر دلیجان استان مرکزی روز دوشنبه ۲۲ تیرماه با انتشار ویدیویی در شبکه‌های اجتماعی گفت قطع برق خارج از برنامه، حدود ۱۸۰ کیلوگرم بستنی او را از بین برده و خسارت سنگینی به کسب‌وکارش وارد کرده است.
-
-به گفته این مغازه‌دار، قرار بود برق واحد صنفی او هر روز از ساعت چهار تا شش بعدازظهر قطع شود و او نیز برای کاهش خسارت، موتور برق تهیه و برنامه کاری خود را با زمان خاموشی هماهنگ کرده بود. با این حال، روز ۲۲ تیر برق از ساعت دو بعدازظهر قطع شد و او فرصت آمادگی برای مقابله با این وضعیت را نداشت.
-
-این مغازه‌دار با اشاره به هزینه بالای مواد اولیه از جمله پسته، خامه، زعفران و مغز گردو، می‌گوید که قطعی بی‌برنامه برق خسارات سنگینی به او وارد کرده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ،‌به فاکس نیوز گفت: «اهداف مرتبط با بخش انرژی ایران را برای مرحله آخر حفظ خواهیم کرد.»
-
-او افزود: «هفته آینده نوبت پل‌ها خواهد بود. ما تمام نیروگاه‌های آن‌ها را از کار خواهیم انداخت. همه پل‌هایشان را نابود خواهیم کرد، مگر اینکه پای میز مذاکره بیایند.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250201
-
-<div align="center"><img src="files/post_250201_VahidOOnLine_250201.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندار دهلران بامداد چهارشنبه ۲۴ تیرماه و همزمان با ادامه حملات هوایی سنتکام به خبرگزاری‌ ایرنا گفت یک کارخانه تولید آب معدنی «در اطراف روستای نهرعنبر بخش موسیان شهرستان دهلران هدف سه پرتابه دشمن قرار گرفت.»
-
-به گفته این مقام محلی وزارت کشور، این حمله تلفات جانی نداشته اما به تاسیسات و تجهیزات کارخانه خسارت وارد کرده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
