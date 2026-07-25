@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/04 00:38
+📅 آخرین بروزرسانی: 1405/05/04 01:49
 
 ---
+
+## tasiyanc — post 7221
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جرمی دوکو ستاره بلژیک در آستانه بازی با ایران بخاطر زایمان همسرش از اردوی بلژیک جدا شد
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7220
 
@@ -327,11 +336,5 @@ T.me/Tasiyanc ✅
 مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SIUUUUUUUUUUUUUUUUUU! 🐐🌟
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/05/04 00:38
+📅 آخرین بروزرسانی: 1405/05/04 01:49
 
 ---
+
+## tasiyanc — post 5703
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈ تمام اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5701
 
@@ -190,11 +202,5 @@ vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5678
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور بعدی مخصوص گیمرا
 </div>
 

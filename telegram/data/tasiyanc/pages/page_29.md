@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/04 00:38
+📅 آخرین بروزرسانی: 1405/05/04 01:49
 
 ---
+
+## tasiyanc — post 7745
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری تحریم های فروش نفت ایران دوباره برگشت
+</div>
 
 ## tasiyanc — post 7744
 
@@ -155,18 +161,5 @@ VIP 🎯 @Tasiyanc.nm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فارغ از هر بحثی دوس داشتیم فینال دو اسطوره رو ببینیم ک نشد
-</div>
-
-## tasiyanc — post 7706
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🐐 بعضی‌ها جام می‌برند، بعضی‌ها رکورد می‌شکنند؛
-اما فقط یک نفر معنای «GOAT» را تغییر داد...
-کریستیانو رونالدو؛
-نامی که از تاریخ فوتبال پاک نخواهد شد.
-پایان یک جام جهانی، اما نه پایان یک افسانه.
-CR7 GOAT Forever 🇵🇹❤️‍🔥
-
-@Tasiyanc ⭐️
 </div>
 

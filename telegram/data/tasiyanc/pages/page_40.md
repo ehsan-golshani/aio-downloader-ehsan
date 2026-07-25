@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/04 00:38
+📅 آخرین بروزرسانی: 1405/05/04 01:49
 
 ---
+
+## tasiyanc — post 7325
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ دارک تانل 🇮🇹 Milan📍
+
+
+برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
+
+
+دانلود Dark Tunnel  🕹
+
+
+آموزش اتصال به سرور دارک ⏩
+
+
+✅@Tasiyanc | تاسیان
+</div>
 
 ## tasiyanc — post 7323
 
@@ -198,13 +216,5 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 📍🇩🇪
 
 ✅ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7291
-
-<div align="center"><img src="files/post_7291_tasiyanc_7291.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪🚀 Full Fast⚡.npvt
 </div>
 

@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/04 00:38
+📅 آخرین بروزرسانی: 1405/05/04 01:49
 
 ---
+
+## tasiyanc — post 5955
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی تست
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5954
 
@@ -164,15 +171,5 @@ TS premium Servers 🌲⚡.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑
-Proxy 0
-Proxy 1
-Proxy 2
-Proxy 3
 </div>
 

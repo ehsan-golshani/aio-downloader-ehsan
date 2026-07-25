@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/04 00:38
+📅 آخرین بروزرسانی: 1405/05/04 01:49
 
 ---
+
+## tasiyanc — post 8612
+
+<div align="center"><video src="files/post_8612_tasiyanc_8612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8612_tasiyanc_8612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺والنتینا واسیلیوا زنی بود که طبق اسناد تاریخی، در روسیه قرن هجدهم ۲۷ بار زایمان کرد و صاحب ۶۹ فرزند شد؛ ۱۶ بار دوقلو، ۷ بار سه قلو و ۴ بار چهارقلو 😐
+
+شگفت انگیزتر اینکه ۶۷ نفر از این کودکان از دوران نوزادی جان سالم به در بردند؛ اتفاقی بسیار نادر در آن زمان.
+
+Fact @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8611
 
@@ -211,15 +225,5 @@ Fact @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 حمله به عربستان هم اکنوننننننن
-</div>
-
-## tasiyanc — post 8580
-
-<div align="center"><img src="files/post_8580_tasiyanc_8580.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه خانوم از اروپا بلند شده بره افغانستان و مثلا نشون بده که اره افغانیا خوبن و رفتارشون عالیه روز آخر توسط یه نفر مورد تجاوز قرار میگیره
-
-@TASIYANC ⭐️
 </div>
 
