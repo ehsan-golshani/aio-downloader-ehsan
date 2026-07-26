@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/05/04 11:05
+📅 آخرین بروزرسانی: 1405/05/04 13:13
 
 ---
+
+## tasiyanc — post 7055
+
+<div align="center"><img src="files/post_7055_tasiyanc_7055.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت دلار هم اکنون 155000
+</div>
+
+## tasiyanc — post 7054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت دلار هم اکنون 155000
+</div>
 
 ## tasiyanc — post 7052
 
@@ -205,28 +219,5 @@ matador ⚡ Fast.npvt
 کارگردان سریع نما رو عوض کرد ولی فیلم تماشاچیا از این صحنه اومد. کلیک کن فیلمشو ببین تا پاک نشده 👇
 
 مشاهده بدون سانسور ویدیو🔞
-</div>
-
-## tasiyanc — post 7003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وای ببینید چی پیدا کردمه😂
-</div>
-
-## tasiyanc — post 7002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-۲ سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/04 11:05
+📅 آخرین بروزرسانی: 1405/05/04 13:13
 
 ---
+
+## tasiyanc — post 8173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هدف قرار گرفتن پل کهورستان بندرعباس و قطع ارتباط شهرهای جنوب با همدیگه نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده @Tasiyanc
+</div>
+
+## tasiyanc — post 8172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
+</div>
 
 ## tasiyanc — post 8171
 
@@ -198,25 +210,5 @@
 و اما بعد از چند روز، این دختر معصوم رو بخاطر پخش شدن فیلم عروسی خفه می‌کنه و به قتل میرسونه!
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 ترامپ در مصاحبه با فاکس نیوز:
-تغییر حکومت در ایران شدنی است بشرطی که مردم ایران بتوانند با سلاح از خودشان دفاع کنند
-اگر لازم بدونم نیروی زمینی به ایران اعزام خواهم کرد هنوز وضعیت رو نهایی نکردیم
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺امروز July 16، روز جهانی ماره 🌟
-
-+ این روزو به آدمای سمی زندگیت تبریک بگو
-
-@Tasiyanc ⭐️| مرجع کانفیگ
 </div>
 

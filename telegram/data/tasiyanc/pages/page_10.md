@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/04 11:05
+📅 آخرین بروزرسانی: 1405/05/04 13:13
 
 ---
+
+## tasiyanc — post 8425
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داور خطای واضح روی اسپانیارو نمیگیره🤣
+</div>
+
+## tasiyanc — post 8424
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه آرژانتین از کون اورد
+</div>
 
 ## tasiyanc — post 8423
 
@@ -173,32 +185,5 @@ Ip 🇩🇪 🇩🇪
 تو عشق ابدی ورژن اسپانیایی، یه پسره معتقد بود بالاخره عشق واقعیش رو پیدا کرده و عاشق هم دیگه ان که همون موقع سک* دختر رو با یه پسر دیگه پخش کردن .
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04]⚡@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 8392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون 📱
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

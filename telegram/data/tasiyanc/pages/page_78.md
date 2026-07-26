@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/04 11:05
+📅 آخرین بروزرسانی: 1405/05/04 13:13
 
 ---
+
+## tasiyanc — post 6148
+
+<div align="center"><img src="files/post_6148_tasiyanc_6148.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پابجیم آپدیت شد
+ای فوتبال هم گذاشتم
+تشکر واقعا
+</div>
+
+## tasiyanc — post 6147
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Premium 💙BLUE.npvt
+</div>
 
 ## tasiyanc — post 6146
 
@@ -196,29 +212,5 @@ Fast2⚡@Tasiyanc.conf
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-5سرور  سرعتی تست شده 
-🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند سرورNPV میزارم بعدش وایر
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/04 11:05
+📅 آخرین بروزرسانی: 1405/05/04 13:13
 
 ---
+
+## tasiyanc — post 8333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
+</div>
+
+## tasiyanc — post 8324
+
+<div align="center"><img src="files/post_8324_tasiyanc_8324.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تفاوت‌های جنسی در دنیای جانوران 🦋
+
+پروکسی | پروکسی | پروکسی | پروکسی
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8323
 
@@ -162,22 +180,5 @@
 دولت پزشکیان تا پای جان کنار مردم خونگرم جنوبه و از صبر و ایستادگیشون تو دوران متشنج جنگی تشکر میکنه
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 کویت اعلام کرد که موشک‌های بالستیک و پهپادهای ایرانی را که وارد فضای هوایی این کشور شده بودند، رهگیری کرده است.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8300
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺ صداوسیما : ۳ انفجار در سیریک شنیده شد.
-
-
-@Tasiyanc ✅
 </div>
 
