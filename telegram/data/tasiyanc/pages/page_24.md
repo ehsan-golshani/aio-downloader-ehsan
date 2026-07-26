@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/05 00:10
+📅 آخرین بروزرسانی: 1405/05/05 01:19
 
 ---
+
+## tasiyanc — post 7997
+
+<div align="center"><img src="files/post_7997_tasiyanc_7997.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏نسل جدید چه میدونه "بقیه پول" چیه
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7996
 
@@ -247,11 +257,5 @@ Speed Fast ⚡ 🇩🇪.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وزیر جنگ اسرائیل 🇮🇱: 🔻من و نتانیاهو دستور آماده شدن ارتش برای حملات مستقل به ایران را صادر کردیم @TasiyanProxy ⭐️
-</div>
-
-## tasiyanc — post 7946
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ حمله سپاه به یک کشتی غول پیکر در تنگه ، در جواب به ترامپ ک‌گفته بود باید تا آخر امشب ایران تنگه رو باز کنه کامل
 </div>
 

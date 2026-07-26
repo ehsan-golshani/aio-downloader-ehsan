@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/05 00:10
+📅 آخرین بروزرسانی: 1405/05/05 01:19
 
 ---
+
+## tasiyanc — post 7665
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر عشقا 😍
+</div>
 
 ## tasiyanc — post 7664
 
@@ -164,11 +170,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 همتون اینجکتور & نت مود دانلود کردید بزارم کانفیگاشو دوباره؟
-</div>
-
-## tasiyanc — post 7627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمام تیم مصر عزیز به مرحله بعدی رفت ، درود به شرف مصری‌ها و روان پاک انور سادات تنها رفیق شاهنشاه فقید
 </div>
 

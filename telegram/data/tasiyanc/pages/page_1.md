@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/05 00:10
+📅 آخرین بروزرسانی: 1405/05/05 01:19
 
 ---
+
+## tasiyanc — post 8719
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنظرم زیباترین هدیه 5/5/5 به من شمایید ک دارمتون 💘
+</div>
 
 ## tasiyanc — post 8718
 
@@ -11,8 +17,6 @@
 </div>
 
 ## tasiyanc — post 8717
-
-<div align="center"><a href="files/post_8717_v2rayNG_2.2.6-fdroid_arm64-v8a.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 v2rayNG_2.2.6-fdroid_arm64-v8a.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✅ آخرین نسخه ی V2rayNG اندروید
@@ -246,18 +250,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 🔺ویدیویی دیده نشده از ورود محمدرضا شاه و ملکه فرح پهلوی به آمریکا و استقبال از او در زمان ریاست جمهوری جان اف کندی
 
 @TASIYANC 💠
-</div>
-
-## tasiyanc — post 8692
-
-<div align="center"><video src="files/post_8692_tasiyanc_8692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8692_tasiyanc_8692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺صحبت های شگفت‌انگیز پدر بمب اتم «رابرت اوپنهایمر» ...
-اکنون من خود مرگ شده ام .... نابودگر جهان!
-
-@TASIYANC ⭐️
 </div>
 

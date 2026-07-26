@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/05 00:10
+📅 آخرین بروزرسانی: 1405/05/05 01:19
 
 ---
+
+## tasiyanc — post 8458
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقای ترامپ دنس معروفشم زد موقع اهدای کاپ به اسپانیا
+</div>
 
 ## tasiyanc — post 8457
 
@@ -147,13 +153,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8436
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش انفجار از اصفهان ، قم ، اراک
-
-تایید یا تکذیب نمیشه
 </div>
 

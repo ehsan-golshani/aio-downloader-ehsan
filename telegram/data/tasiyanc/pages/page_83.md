@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/05/05 00:10
+📅 آخرین بروزرسانی: 1405/05/05 01:19
 
 ---
+
+## tasiyanc — post 6029
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اره برامنم امروز پرید
+</div>
 
 ## tasiyanc — post 6028
 
@@ -140,14 +146,5 @@ VİP 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 🇫🇷.npvt
-</div>
-
-## tasiyanc — post 6004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کی قهرمان میشه ؟
-
-🔴 آرسنال ❤️
-🇫🇷 پاریس 🔥
 </div>
 

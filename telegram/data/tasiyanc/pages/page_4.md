@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/05 00:10
+📅 آخرین بروزرسانی: 1405/05/05 01:19
 
 ---
+
+## tasiyanc — post 8629
+
+<div align="center"><img src="files/post_8629_tasiyanc_8629.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات توافق :
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8628
 
@@ -223,17 +233,5 @@ Fact @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
-</div>
-
-## tasiyanc — post 8607
-
-<div align="center"><video src="files/post_8607_tasiyanc_8607.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8607_tasiyanc_8607.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیه به هر کدوم فک کنی اونو می‌شنوی 😂😂😂
-
-@TASIYANC ✅
 </div>
 

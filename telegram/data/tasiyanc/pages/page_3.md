@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/05 00:10
+📅 آخرین بروزرسانی: 1405/05/05 01:19
 
 ---
+
+## tasiyanc — post 8663
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 مقر حوثی ها در جزیره کمران توسط عربستان بمباران شد
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8662
 
@@ -219,15 +226,5 @@
 
 
 Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8629
-
-<div align="center"><img src="files/post_8629_tasiyanc_8629.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ذات توافق :
-
-@Tasiyanc
 </div>
 
