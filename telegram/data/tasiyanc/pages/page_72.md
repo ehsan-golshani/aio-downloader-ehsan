@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/04 14:47
+📅 آخرین بروزرسانی: 1405/05/04 20:34
 
 ---
+
+## tasiyanc — post 6300
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
+</div>
 
 ## tasiyanc — post 6298
 
@@ -211,13 +217,5 @@ MCI - SamanTel - wifi تست شده
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم ⏩ @TasiyanProxy ⏩ @TasiyanProxy
-</div>
-
-## tasiyanc — post 6275
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم
-⏩ @TasiyanProxy
-⏩ @TasiyanProxy
 </div>
 

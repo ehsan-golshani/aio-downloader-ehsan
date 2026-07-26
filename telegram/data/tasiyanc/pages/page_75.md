@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/04 14:47
+📅 آخرین بروزرسانی: 1405/05/04 20:34
 
 ---
+
+## tasiyanc — post 6227
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST - MCI💥.npvt
+</div>
 
 ## tasiyanc — post 6226
 
@@ -176,21 +182,5 @@ VIP 🚀@Tasiyanc GhdMethod .conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 NEW FAST ⚡ 🚀.npvt
-</div>
-
-## tasiyanc — post 6202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-
-4سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
 </div>
 

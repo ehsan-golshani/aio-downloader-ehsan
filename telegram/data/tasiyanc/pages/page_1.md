@@ -1,12 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/04 14:47
+📅 آخرین بروزرسانی: 1405/05/04 20:34
 
 ---
 
-## tasiyanc — post 8705
+## tasiyanc — post 8707
 
-<div align="center"><a href="files/post_8705_@Tasiyanc 🇹🇷 01.ehi.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🇹🇷 01.ehi</a></div>
+<div align="center"><a href="files/post_8707_@TASIYANC 💥 سرعتی.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @TASIYANC 💥 سرعتی.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی اهدایی ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8705
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی نامحدود اینجکتور 📶
@@ -262,14 +286,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خیلیییییی گرمهههههه
-</div>
-
-## tasiyanc — post 8679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرنگار کاخ سفید به نقل از سنتکام:
-
-بعضی اوقات ما به ایران حمله نمی‌کردیم ولی میدیدیم که کلی موشک در آسمان به طرف ایران میره، بعد می‌فهمیدیم که کویت و بحرین و عربستان و … در حال حمله به ایران بودند ولی به طور رسمی اعلام نمی‌کردند
-@TASIYANC ⭐️
 </div>
 

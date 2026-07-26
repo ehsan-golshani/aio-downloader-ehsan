@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/05/04 14:47
+📅 آخرین بروزرسانی: 1405/05/04 20:34
 
 ---
+
+## tasiyanc — post 6845
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قطر یکی زد به کمک های اولیه
+</div>
 
 ## tasiyanc — post 6844
 
@@ -173,22 +179,6 @@ Vahid online
 دانلود OpenVpn  🕹
 
 آموزش اتصال
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6813
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
 </div>

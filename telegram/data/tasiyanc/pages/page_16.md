@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/04 14:47
+📅 آخرین بروزرسانی: 1405/05/04 20:34
 
 ---
+
+## tasiyanc — post 8255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+6سرور سرعتی پرمیوم متد جدید ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8252
 
@@ -193,14 +217,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨لحظاتی پیش حمله به پایگاه هوایی و دریایی بوشهر
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8227
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم‌اکنون➖جنوب ایران➖هنگامه بمباران بی‌وقفه
 
 @Tasiyanc✅
 </div>

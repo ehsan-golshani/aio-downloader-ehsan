@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/05/04 14:47
+📅 آخرین بروزرسانی: 1405/05/04 20:34
 
 ---
+
+## tasiyanc — post 5733
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 RighTel - Moscow
+vless://079c1b04-7ef9-4c49-8a7a-849a18ba7b9b@83.222.20.64:17910?security=reality&encryption=none&pbk=KUhrhiJBplVCVCrAKP2KjIA_asOgkkvEEAxUJVofjgc&headerType=none&fp=chrome&spx=%2F&type=tcp&sni=yahoo.com&sid=8c09fb78b12f#%40Tasiyanc%20%E2%9C%A8%20Rightel
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5732
 
@@ -181,18 +189,5 @@ vless://0f4d41cf-0be1-4fcc-ac41-53b843ba0752@172.66.44.118:443?path=%2F&security
 vless://ce069292-c8bf-40dd-a6b1-87818a1e64e9@ip.sb:443?path=%2F&security=tls&encryption=none&insecure=1&host=3-7ny.pages.dev&fp=chrome&type=ws&allowInsecure=1&sni=3-7ny.pages.dev#%40Tasiyanc%20%7C%20%D8%AA%D8%A7%D8%B3%DB%8C%D8%A7%D9%86
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5710
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈2 سرور تست شده vip تمام اپراتورا ⛈ 
-sv Country 🇬🇧
-
-
-🚀 @Tasiyanc ✅
 </div>
 
