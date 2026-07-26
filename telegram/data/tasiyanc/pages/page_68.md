@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/05 01:19
+📅 آخرین بروزرسانی: 1405/05/05 03:23
 
 ---
+
+## tasiyanc — post 6413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاجی ریکشن نمیزنید بریم بخوابیم
+</div>
 
 ## tasiyanc — post 6412
 
@@ -192,11 +198,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️
-</div>
-
-## tasiyanc — post 6391
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووووورییییییی حمله کردننننننن
 </div>
 

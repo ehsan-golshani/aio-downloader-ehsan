@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/05 01:19
+📅 آخرین بروزرسانی: 1405/05/05 03:23
 
 ---
+
+## tasiyanc — post 6552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸
+🔴ترامپ:
+با بمب افکن های B_2 آنها را بسیار سخت هدف قرار خواهیم داد.
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6551
 
@@ -182,19 +192,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡موشک - GN 🌙.npvt
-</div>
-
-## tasiyanc — post 6531
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

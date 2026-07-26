@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/05 01:19
+📅 آخرین بروزرسانی: 1405/05/05 03:23
 
 ---
+
+## tasiyanc — post 7409
+
+<div align="center"><img src="files/post_7409_tasiyanc_7409.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هوادارای حاضر در استادیوم با پرچم های رنگارنگ
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 7405
 
@@ -229,28 +238,5 @@ https://strumyk.net
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Melody 🚀.npvt
-</div>
-
-## tasiyanc — post 7351
-
-<div align="center"><video src="files/post_7351_tasiyanc_7351.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7351_tasiyanc_7351.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود مولتی لوکیشن
-
-3سرور سرعتی ⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 💘
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc | تاسیان
 </div>
 

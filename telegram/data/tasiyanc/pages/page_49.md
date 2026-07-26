@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/05/05 01:19
+📅 آخرین بروزرسانی: 1405/05/05 03:23
 
 ---
+
+## tasiyanc — post 7035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گلللللللل نیوزلند
+</div>
 
 ## tasiyanc — post 7025
 
@@ -228,41 +234,6 @@ matador ⚡ Fast.npvt
 ⏩
 
 T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6986
-
-<div align="center"><video src="files/post_6986_tasiyanc_6986.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6986_tasiyanc_6986.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟
-🌟اختصاصی تاسیان 
-🌟
-🌟
-
-سه کانفیگ نپسترنت و یک کانفیگ Http 🚀
-
-تست شده - حجم نامحدود 
-🤩
-
-HttpCustum 
-📱 android 
-🕹 iOS
-
-NPV Tunnel 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال با HttpCustum 
-🔻
-
-آموزش اتصال با NPV TUNNEL 
-🔻
-
-@Tasiyanc 
 ✅
 </div>
 

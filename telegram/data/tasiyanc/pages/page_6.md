@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/05 01:19
+📅 آخرین بروزرسانی: 1405/05/05 03:23
 
 ---
+
+## tasiyanc — post 8573
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود📱
+
+سرور  سرعتی پرمیوم 🇺🇸 ⚡️
+
+تست شده روی همه نت ها 
+🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8572
 
@@ -264,13 +288,5 @@ Location 🤯 🇫🇷
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8520
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 انفجار در کنارك
-
-@Tasiyanc
 </div>
 

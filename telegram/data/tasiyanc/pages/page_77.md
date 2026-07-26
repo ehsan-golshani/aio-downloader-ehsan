@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/05 01:19
+📅 آخرین بروزرسانی: 1405/05/05 03:23
 
 ---
+
+## tasiyanc — post 6190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Proxy 1 ✅ proxy 2
+Proxy 3 ✅ proxy 3
+@TasiyanProxy ✅
+</div>
 
 ## tasiyanc — post 6185
 
@@ -193,22 +201,5 @@ Premium GOD SV 🚀🔥.npvt
 ⏩
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-
-2سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc ✅
 </div>
 

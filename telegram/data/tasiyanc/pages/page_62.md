@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/05 01:19
+📅 آخرین بروزرسانی: 1405/05/05 03:23
 
 ---
+
+## tasiyanc — post 6579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی متد جدید همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6578
 
@@ -206,15 +222,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 ادامه اخبار در چنل پروکسی
 
 https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸
-🔴ترامپ:
-با بمب افکن های B_2 آنها را بسیار سخت هدف قرار خواهیم داد.
-@Tasiyanc 
-✅
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/05 01:19
+📅 آخرین بروزرسانی: 1405/05/05 03:23
 
 ---
+
+## tasiyanc — post 7287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیونل مسی 🐐 نابغه تمام عیار فوتبال جهان امشب هم دبل کرد ، بازی قبلی هم هتریک کرده بود
+</div>
 
 ## tasiyanc — post 7285
 
@@ -185,13 +191,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 طارمی اگه کون نداشت الان یک صفر بود بازی😒
-</div>
-
-## tasiyanc — post 7253
-
-<div align="center"><img src="files/post_7253_tasiyanc_7253.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل ایران رف وار آفساید شد
 </div>
 
