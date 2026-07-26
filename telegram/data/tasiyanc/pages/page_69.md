@@ -1,8 +1,72 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/05/04 22:59
+📅 آخرین بروزرسانی: 1405/05/05 00:10
 
 ---
+
+## tasiyanc — post 6389
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اضطراریه و هر لحظه ممکنه به خاطر شرایط جنگی اینترنت کل کشور قطع بشه! وقت رو تلف نکنید. برای اینکه ارتباطمون کاملاً قطع نشه، ۲ تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه اضطراری براتون آماده کردیم. ​تأکید می‌کنیم: همین الان، تا قبل از اینکه دسترسی‌ها…
+</div>
+
+## tasiyanc — post 6386
+
+<div align="center"><img src="files/post_6386_tasiyanc_6386.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اضطراریه و هر لحظه ممکنه به خاطر شرایط جنگی اینترنت کل کشور قطع بشه! وقت رو تلف نکنید. برای اینکه ارتباطمون کاملاً قطع نشه، ۲ تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه اضطراری براتون آماده کردیم.
+​تأکید می‌کنیم: همین الان، تا قبل از اینکه دسترسی‌ها قطع بشه وارد ربات زیر بشید و لینک‌هاتون رو دریافت کنید. بعداً هیچ اعتراضی پذیرفته نیست!
+
+
+دریافت کانفینگ  اختصاصی
+دریافت کانفنیگ اختصاصی
+</div>
+
+## tasiyanc — post 6385
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۶سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+7سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6383
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[Fast] ⚡ @Tasiyanc.npvt
+</div>
 
 ## tasiyanc — post 6382
 
@@ -184,46 +248,5 @@ Speed ⚡ One.npvt
 
 ✔️ @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6358
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی ⚡ sv 3.npvt
-</div>
-
-## tasiyanc — post 6357
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۳سرور   سرعتی تست شده با همراه 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
-
-دانلود  NPV tunnel  🌐
-
-😬Password :″ @Tasiyanc  ″
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6356
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+RTGtcYWb8HdkNjdk
-گپمون هنو ۴ کا نشده 🗽😐 جوین شید عشقا
-</div>
-
-## tasiyanc — post 6355
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سری چنلهای عزیز هم ک باهاشون رفیقم فور میکنن بدون اینکه دیکد کنن ، جا داره ازشون تشکر کنم ❤️‍🔥
-</div>
-
-## tasiyanc — post 6354
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی لاقل اجازه بده ممبرای خودم وصل شن بعد
 </div>
 

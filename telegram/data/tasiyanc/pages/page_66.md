@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/04 22:59
+📅 آخرین بروزرسانی: 1405/05/05 00:10
 
 ---
+
+## tasiyanc — post 6465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقت الکی نزارید قربونتون برم من
+</div>
+
+## tasiyanc — post 6464
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رباتی ک تون الکی میده اسکمه پرداختی نداره
+</div>
+
+## tasiyanc — post 6460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این ربات تون میده و برداشت شده ازش تایید شده ، میتونید با چند ثانیه وقت گذاشتن به درآمد برسید , برداشت بزنم می‌زارم شاتو خودمم
+https://t.me/gramevents_bot
+
+ارزششو داره برید تست کنین
+
+ادد لیست جهت جوین تو چنلا
+https://t.me/addlist/IiFVViQyys81OWM0
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کمی صحبت؟ ( گپمون)
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6458
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنارووووووووو
+</div>
 
 ## tasiyanc — post 6457
 
@@ -178,60 +216,5 @@ new@Tasiyanc.ovpn
 
 دریافت کانفینگ رایگان
 دریافت کانفینگ رایگان
-</div>
-
-## tasiyanc — post 6434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡🪐 متد جدید.npvt
-</div>
-
-## tasiyanc — post 6433
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار و پروکسی ⚡️🚀
-https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6431
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡🪐 متد جدید.npvt
-</div>
-
-## tasiyanc — post 6430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۳سرور   سرعتی پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
