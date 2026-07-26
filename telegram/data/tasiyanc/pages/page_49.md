@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/05/04 20:34
+📅 آخرین بروزرسانی: 1405/05/04 21:34
 
 ---
+
+## tasiyanc — post 7012
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+matador ⚡ Fast.npvt
+</div>
 
 ## tasiyanc — post 7010
 
@@ -244,14 +250,5 @@ T.me/Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ متد اختصاصی httpCustum میزارم تست کنید
-</div>
-
-## tasiyanc — post 6965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 سرور سرعتی NPV 
-🌟
-T.me/Tasiyanc 
-✅
 </div>
 

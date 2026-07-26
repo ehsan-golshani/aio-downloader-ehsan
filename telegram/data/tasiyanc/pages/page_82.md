@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/05/04 20:34
+📅 آخرین بروزرسانی: 1405/05/04 21:34
 
 ---
+
+## tasiyanc — post 6045
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امین زحمت کشید شماره و آدرس و شماره بابای جاکشش درآورده
+</div>
 
 ## tasiyanc — post 6044
 
@@ -125,11 +131,5 @@
 من فقط جوین شدم که جواب شمارو بدم
 آره مال من پرید
 احراز هویت کردم برگشت
-</div>
-
-## tasiyanc — post 6022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپل آیدی لاک میشه
 </div>
 

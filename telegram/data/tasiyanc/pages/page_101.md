@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 101
 
-📅 آخرین بروزرسانی: 1405/05/04 20:34
+📅 آخرین بروزرسانی: 1405/05/04 21:34
 
 ---
+
+## tasiyanc — post 5537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده  📶
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5536
 
@@ -346,11 +356,5 @@ Tarkibi
 لینک داخلی آخرین نسخه اسلیپ نت👈
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5506
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش نداریم فعلا پول نزنید باز شه اطلاع میدم
 </div>
 

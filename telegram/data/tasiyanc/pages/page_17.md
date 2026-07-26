@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/04 20:34
+📅 آخرین بروزرسانی: 1405/05/04 21:34
 
 ---
+
+## tasiyanc — post 8228
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨لحظاتی پیش حمله به پایگاه هوایی و دریایی بوشهر
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8227
 
@@ -169,11 +177,5 @@
 ⭕️⭕️ آمریکا رفته سراغ پل های ارتباطی بوشهر - تایید نشده
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
 </div>
 

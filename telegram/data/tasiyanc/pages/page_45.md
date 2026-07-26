@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/04 20:34
+📅 آخرین بروزرسانی: 1405/05/04 21:34
 
 ---
+
+## tasiyanc — post 7176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GN⚡⚡🇩🇪FST🇮🇹.npvt
+</div>
 
 ## tasiyanc — post 7175
 
@@ -244,15 +250,6 @@ Game DNS
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️
 ⭕️ تحریم‌های نفتی ایران لغو شد ( طی توافق نامه)
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️ اسماعیل بقایی سخنگوی وزارت خارجه : همین الان ریاست جمهوری ایران و آمریکا توافق نامه را بصورت آنلاین امضاء کردند
 @Tasiyanc 
 ✅
 </div>

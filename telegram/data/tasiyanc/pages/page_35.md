@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/04 20:34
+📅 آخرین بروزرسانی: 1405/05/04 21:34
 
 ---
+
+## tasiyanc — post 7537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ولی پسرامون ( دخترامونم ) ثابت کردن چقد باغیرتن
+</div>
 
 ## tasiyanc — post 7536
 
@@ -230,11 +236,5 @@ T.me/Tasiyanc ✅
 
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7487
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطور بود فیلما؟
 </div>
 
