@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/05/04 14:45
+📅 آخرین بروزرسانی: 1405/05/04 15:53
 
 ---
+
+## ProxyMTProto — post 47840
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: connect.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: boost.flowstreamhub.site
+Port: 8443
+Secret: ee7ee0a641b78ecc8d210e47981904a50a626f6f73742e666c6f7773747265616d6875622e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47838
 
@@ -165,24 +183,6 @@ Secret: eeedca657d767c71c26de484e74182c3076a65742e717569636b726f7574656170702e78
 Server: Unknown
 Port: 25565
 Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47820
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 89.125.49.250
-Port: 443
-Secret: eeb40eda3c7b6561f0ef22eb54b49eacf477622e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47819
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 61016
-Secret: 7nnnAQIAAQAH8AMDhuJMOt0%3D
 @ProxyMTProto
 </div>
 
