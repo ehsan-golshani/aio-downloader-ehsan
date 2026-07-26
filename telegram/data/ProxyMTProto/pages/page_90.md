@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/05/04 21:32
+📅 آخرین بروزرسانی: 1405/05/04 22:57
 
 ---
+
+## ProxyMTProto — post 47715
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.femboylover.org
+Port: 443
+Secret: 5f52936aa7e559b6bf6b6c62d28f0ae6
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47714
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: perfect.nolags.pw
+Port: 443
+Secret: dd4658543dd0973d78171da4552480fd23
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47713
 
@@ -164,24 +182,6 @@ Secret: ee17867c11b83c2c36a3de356743602b2c617669746f2e7275
 Server: vpn.chunkycorp.shop
 Port: 443
 Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r25.proxytg.space
-Port: 8443
-Secret: eecc4a140a0d61e4ead7c5fede495c6cd97232352e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 

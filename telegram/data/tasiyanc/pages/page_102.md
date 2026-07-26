@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/05/04 21:34
+📅 آخرین بروزرسانی: 1405/05/04 22:59
 
 ---
+
+## tasiyanc — post 5507
+
+<div align="center"><img src="files/post_5507_tasiyanc_5507.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅2server VyDns  ⭕️
+
+🌟اسلیپ نت باز کنین ، قسمت import profile بزنید گزینه Qr code  اسکن کنید کانفیگ ها اد شن وصل بشید
+لینک داخلی آخرین نسخه اسلیپ نت👈
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5506
 

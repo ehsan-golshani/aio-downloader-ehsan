@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/04 21:34
+📅 آخرین بروزرسانی: 1405/05/04 22:59
 
 ---
+
+## tasiyanc — post 7138
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️ تحریم‌های نفتی ایران لغو شد ( طی توافق نامه)
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7137
 
@@ -206,11 +215,5 @@ T.me/Tasiyanc ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ادامه برنامه تیم ملی در جام جهانی 2026
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7103
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقام رونالدو تو ترکیبه 🥹❤️
 </div>
 

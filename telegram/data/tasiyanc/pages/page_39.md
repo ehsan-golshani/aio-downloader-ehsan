@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/04 21:34
+📅 آخرین بروزرسانی: 1405/05/04 22:59
 
 ---
+
+## tasiyanc — post 7392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ هم اکنون حملات آمریکا به سیریک
+</div>
 
 ## tasiyanc — post 7391
 
@@ -253,11 +259,5 @@ https://www.gstatic.com/generate_204
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ساعت 18.30 والیبال 😐
 ایران Vs آمریکا 🦦
-</div>
-
-## tasiyanc — post 7341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩
 </div>
 
