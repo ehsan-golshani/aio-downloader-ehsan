@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/04 13:13
+📅 آخرین بروزرسانی: 1405/05/04 14:47
 
 ---
+
+## tasiyanc — post 7134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود لوکیشن🇹🇷
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7133
 
@@ -213,11 +229,5 @@ T.me/Tasiyanc ✅
 🛡Password Zip: @Tasiyanc
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7099
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبید رو به راهید؟
 </div>
 

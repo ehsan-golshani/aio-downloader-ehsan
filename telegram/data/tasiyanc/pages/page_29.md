@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/04 13:13
+📅 آخرین بروزرسانی: 1405/05/04 14:47
 
 ---
+
+## tasiyanc — post 7752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری فرودگاه بندرعباس زدن
+</div>
 
 ## tasiyanc — post 7751
 
@@ -152,11 +158,5 @@ Egypt 🇪🇬 🇦🇷 Argentina
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 VIP 🎯 @Tasiyanc.nm
-</div>
-
-## tasiyanc — post 7716
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه وضع ریکشن زدنه
 </div>
 

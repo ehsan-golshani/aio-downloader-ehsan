@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/05/04 13:13
+📅 آخرین بروزرسانی: 1405/05/04 14:47
 
 ---
+
+## tasiyanc — post 6678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۰٪ کانفیگای NPV ک زدم امروز وصلن
+</div>
 
 ## tasiyanc — post 6677
 
@@ -209,13 +215,5 @@ Fotmob iOS
 به امید قهرمانی پرتغال به عشق آقام کریس 
 😱
 🤔
-</div>
-
-## tasiyanc — post 6654
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆افتتاحیه جام‌جهانی امشب ساعت 22.30
-
-جدال مکزیک و آفریقا
 </div>
 

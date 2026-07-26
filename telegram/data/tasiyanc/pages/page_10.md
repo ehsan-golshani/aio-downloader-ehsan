@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/04 13:13
+📅 آخرین بروزرسانی: 1405/05/04 14:47
 
 ---
+
+## tasiyanc — post 8427
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه بازی کسشریه
+</div>
 
 ## tasiyanc — post 8425
 
@@ -173,17 +179,5 @@ Ip 🇩🇪 🇩🇪
 
 @TASIYANC ✅
 #Nvd
-</div>
-
-## tasiyanc — post 8397
-
-<div align="center"><video src="files/post_8397_tasiyanc_8397.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8397_tasiyanc_8397.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو عشق ابدی ورژن اسپانیایی، یه پسره معتقد بود بالاخره عشق واقعیش رو پیدا کرده و عاشق هم دیگه ان که همون موقع سک* دختر رو با یه پسر دیگه پخش کردن .
-
-@Tasiyanc ✅
 </div>
 

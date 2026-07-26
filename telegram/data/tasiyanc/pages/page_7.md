@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/04 13:13
+📅 آخرین بروزرسانی: 1405/05/04 14:47
 
 ---
+
+## tasiyanc — post 8508
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال تاسیان متعلق به تمام کسانی هست که وطن پرستن نه حکومت پرست ❤️
+</div>
 
 ## tasiyanc — post 8507
 
@@ -249,13 +255,5 @@ Loc 🇩🇪 🇩🇪
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8469
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ سنتکام : حملات ما به ایران آغاز شد
-
-@TASIYANC ⭐️
 </div>
 

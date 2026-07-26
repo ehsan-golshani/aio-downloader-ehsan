@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/04 13:13
+📅 آخرین بروزرسانی: 1405/05/04 14:47
 
 ---
+
+## tasiyanc — post 8226
+
+<div align="center"><img src="files/post_8226_tasiyanc_8226.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ضربه سختی در راه است
+خواهیم دید چه میشود🤣
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8225
 
@@ -164,11 +175,5 @@
 🚨 حملات موشکی سپاه آغاز شد
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 سازمان ملل دیگه خیلییییییی نگران شدیم
 </div>
 

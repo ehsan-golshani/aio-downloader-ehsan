@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/05/04 13:13
+📅 آخرین بروزرسانی: 1405/05/04 14:47
 
 ---
+
+## tasiyanc — post 5868
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوکی کنم میفرسم
+</div>
 
 ## tasiyanc — post 5865
 
@@ -146,11 +152,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عالیه
-</div>
-
-## tasiyanc — post 5846
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاسیان خدایی دمت گرم تنها کانال که کانفینگاش پرسرعته تویی دمت گرم خدایی
 </div>
 

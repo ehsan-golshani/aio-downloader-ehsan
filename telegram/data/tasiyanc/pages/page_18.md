@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/04 13:13
+📅 آخرین بروزرسانی: 1405/05/04 14:47
 
 ---
+
+## tasiyanc — post 8204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 سازمان ملل دیگه خیلییییییی نگران شدیم
+</div>
 
 ## tasiyanc — post 8203
 
@@ -169,11 +175,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 @Tasiyanc
 ✅
-</div>
-
-## tasiyanc — post 8174
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
 </div>
 

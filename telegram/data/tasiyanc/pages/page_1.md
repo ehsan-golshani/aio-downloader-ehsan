@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/04 13:13
+📅 آخرین بروزرسانی: 1405/05/04 14:47
 
 ---
+
+## tasiyanc — post 8705
+
+<div align="center"><a href="files/post_8705_@Tasiyanc 🇹🇷 01.ehi.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🇹🇷 01.ehi</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ تست شده 🔸
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 💠
+</div>
 
 ## tasiyanc — post 8704
 
@@ -249,14 +271,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 
 بعضی اوقات ما به ایران حمله نمی‌کردیم ولی میدیدیم که کلی موشک در آسمان به طرف ایران میره، بعد می‌فهمیدیم که کویت و بحرین و عربستان و … در حال حمله به ایران بودند ولی به طور رسمی اعلام نمی‌کردند
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8677
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سی‌ان‌ان:
-
-سنتکام پس از ۱۳ شب حمله علیه ایران، جمعه بیانیه‌ای منتشر نکرد
-@Tasiyanc
 </div>
 
