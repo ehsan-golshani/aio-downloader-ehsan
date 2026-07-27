@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/05 07:28
+📅 آخرین بروزرسانی: 1405/05/05 11:18
 
 ---
+
+## tasiyanc — post 8362
+
+<div align="center"><video src="files/post_8362_tasiyanc_8362.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8362_tasiyanc_8362.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹مرگبارترین رکورد گینس
+
+در سال ۱۹۸۳، ریک چارلز با شیرجه از ارتفاع ۵۲ متر در سی‌ورلد، یکی از خطرناک‌ترین شیرجه‌های تاریخ را ثبت کرد. او با سرعتی بیش از ۱۱۶ کیلومتر بر ساعت و ورودی کاملاً عمودی، بدون آسیب جدی از آب بیرون آمد. این شیرجه هنوز هم یکی از شگفت‌انگیزترین اجراهای تاریخ ورزش محسوب می‌شود.
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8359
+
+<div align="center"><video src="files/post_8359_tasiyanc_8359.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8359_tasiyanc_8359.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 وضعیت مسکو روسیه بعد از حملات امروز اوکراین
+
+انگار فیلم آخر الزمانی هست
+
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8358
 
@@ -206,35 +235,5 @@ Multi Location ⚡ Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 طرف کلا نمیدونه دیتاسنتر چیه هی تو چنلش میزنه در حال قطع شدن
-</div>
-
-## tasiyanc — post 8320
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-6سرور سرعتی پرمیوم متد جدید ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از قدیم گفتن مراقب تله مرغابی های زندگیت باش
 </div>
 

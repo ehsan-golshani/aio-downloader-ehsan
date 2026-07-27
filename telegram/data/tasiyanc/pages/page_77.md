@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/05 07:28
+📅 آخرین بروزرسانی: 1405/05/05 11:18
 
 ---
+
+## tasiyanc — post 6195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SuperFast @Tasiyanc 🪐⚡.npvt
+</div>
+
+## tasiyanc — post 6194
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+4سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6193
 
@@ -164,30 +187,5 @@ trojan://r-_YbwF.j0TtHVewoFIppramjAnmSfqYzJ@172.238.120.124:443?security=tls&ins
 کانفیگ برای نت خانگی (وای‌فای)
 چندتا سرور پرمیوم تو گپ خودمون می‌زارم بیاید بزنید عشق کنین
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6167
-
-<div align="center"><img src="files/post_6167_tasiyanc_6167.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium GOD SV 🚀🔥.npvt
-</div>
-
-## tasiyanc — post 6166
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-
-4سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc ✅
 </div>
 

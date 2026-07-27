@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/05 07:28
+📅 آخرین بروزرسانی: 1405/05/05 11:18
 
 ---
+
+## tasiyanc — post 7166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطوریددد؟
+</div>
+
+## tasiyanc — post 7165
+
+<div align="center"><video src="files/post_7165_tasiyanc_7165.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7165_tasiyanc_7165.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود مولتی لوکیشن
+
+2سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+➡️
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7164
 
@@ -221,28 +256,5 @@ T.me/Tasiyanc ✅
 مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7119
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ناموصاااا پختو پز کردیممم‌این حق ری اکشنمونننن برید اینستاااا عشق کنیددددد
-</div>
-
-## tasiyanc — post 7118
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مخصوص گیمینگ و اینستا انگار رفع فیلتریه
-
-📊 حجم : نامحدود  |  ⏳انقضا : 120Day
-
-📶 وضعیت اتصال : فعال ✅
-
-
-⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید
-
-دریافت کانفیگ نامحدود رایگان
-
-🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
 </div>
 

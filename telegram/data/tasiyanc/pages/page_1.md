@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/05 07:28
+📅 آخرین بروزرسانی: 1405/05/05 11:18
 
 ---
+
+## tasiyanc — post 8726
+
+<div align="center"><a href="files/post_8726_T.me_Tasiyanc 🇹🇷🏆 (1).nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 T.me_Tasiyanc 🇹🇷🏆 (1).nm</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc ⚡🇹🇷.nm
+</div>
+
+## tasiyanc — post 8725
+
+<div align="center"><a href="files/post_8725_@Tasiyanc ⚡🇹🇷.nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ⚡🇹🇷.nm</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+تست شده روی همه نت ها
+
+آموزش اتصال روی اندروید
+⛓
+آموزش اتصال روی ویندوز  
+⛓
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ @TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8724
 
@@ -224,35 +253,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 🔎 اگه دنبال یه شهر خاص باشی، فقط کافیه اسمش رو سرچ کنی…
 ﻿
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8698
-
-<div align="center"><video src="files/post_8698_tasiyanc_8698.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8698_tasiyanc_8698.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺پروفسور نادر انقطاع فیزیک‌دان و دانشمند نخبه ایرانی متولد سال 1334 تهران , دارنده نشان بنجامین فرانکلین( مدالی که انیشتین و تسلا هم گرفته بود)
-کسی که تحول عظیمی در رادار گریزی جنگنده های نسل جدید آمریکا مثل F22 Raptor و F35 و B-52 ایجاد کرد !
-
-@TASIYANC 💠
-</div>
-
-## tasiyanc — post 8696
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر تمام عزیزان دلم
-
-کانال تاسیان همواره خدمتگزار شما عزیزان بوده و در تمامی لحظات، در کنار شما و همراهتان بوده است؛ درست مثل روزهای سخت قطعی اینترنت که با هم پشت سر گذاشتیم.
-​می‌خواستیم از این فرصت استفاده کنیم و از حمایت بی‌دریغ تک‌تک شما ممبرهای عزیز، چه در دوران قطعی و چه در شرایط فعلی، صمیمانه تشکر کنیم. حضور گرم و همراهی‌تان بزرگ‌ترین دلگرمی ماست.
-
-​همچنین به اطلاعتان می‌رسانیم مجموعه تاسیان مثل قبل با قدرت به فعالیت ادامه خواهد داد و علاوه بر کانفیگ‌های رایگان، از این به بعد مطالب و محتواهای کاربردی، آموزشی، هوش مصنوعی، اخبار و موارد جذاب دیگر را هم در کانال قرار خواهیم داد؛ امیدواریم با حمایت‌های همیشگی‌تان ما را همراهی کنید.
-
-​برای دسترسی به سایر بخش‌ها و حمایت بیشتر از مجموعه، حتماً به زیرمجموعه‌های ما هم سر بزنید:
-@TasiyanProxy
-@TasiyanInfo
-
-امیدوارم روز های خوبی همواره شاد و خوب در انتظار تمام هموطنان عزیزم باشد 💖 عاشقتونم 💋
 </div>
 

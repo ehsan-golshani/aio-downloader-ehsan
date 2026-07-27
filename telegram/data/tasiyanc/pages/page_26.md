@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/05 07:28
+📅 آخرین بروزرسانی: 1405/05/05 11:18
 
 ---
+
+## tasiyanc — post 7925
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ &  گیم 🎮
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe ⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7924
+
+<div align="center"><img src="files/post_7924_tasiyanc_7924.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز روز جهانی کبابه😍
+
+بفرس برا رفیقت برات بخره☺️
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7922
 
@@ -196,25 +229,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 برای فرزندانی که سهمشان از وطن یک گلوله بود 🖤
 
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 7884
-
-<div align="center"><img src="files/post_7884_tasiyanc_7884.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 جدیدا دخترای ایرانی توی توییتر، با انتشار این تصاویر دارن پسرا رو به کتابخوانی دعوت میکنن😂
-
-@Tasiyanc ⭐️
-#Navid
-</div>
-
-## tasiyanc — post 7883
-
-<div align="center"><img src="files/post_7883_tasiyanc_7883.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc✅
-#Mobina
 </div>
 
