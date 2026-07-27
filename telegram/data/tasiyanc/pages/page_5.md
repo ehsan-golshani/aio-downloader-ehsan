@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/06 00:57
+📅 آخرین بروزرسانی: 1405/05/06 03:25
 
 ---
+
+## tasiyanc — post 8627
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شب جمعه به این آرومی؟ مشکوکه
+</div>
+
+## tasiyanc — post 8626
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احوال شما؟
+</div>
 
 ## tasiyanc — post 8625
 
@@ -222,26 +234,5 @@ Fact @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چخبر امتحانتونو چطور دادید؟
-</div>
-
-## tasiyanc — post 8605
-
-<div align="center"><video src="files/post_8605_tasiyanc_8605.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8605_tasiyanc_8605.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واکنش عجیب مردم کره شمالی به دیدن اولین کنسرت ( موزیک) گروه کی پاپ در سال ۲۰۱۸ ...
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ کوبا در مسیر آزادی
-مارکو روبیو:
-"هدف ما این است که به کشوری به نام کوبا برسیم که مردم آن بتوانند از رفاه، امنیت، و یک زندگی بهتر در آینده بهره‌مند شوند."
-@TASIYANC ✅
 </div>
 

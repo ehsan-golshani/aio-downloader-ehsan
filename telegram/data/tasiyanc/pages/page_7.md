@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/06 00:57
+📅 آخرین بروزرسانی: 1405/05/06 03:25
 
 ---
+
+## tasiyanc — post 8570
+
+<div align="center"><img src="files/post_8570_tasiyanc_8570.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید ✨
+
+تحلیل زیبایی شما 💖
+
+آموزش استفاده 👉
+
+دانلود Gemini 🤖
+
+دانلود ChatGpt 🤖
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8569
+
+<div align="center"><img src="files/post_8569_tasiyanc_8569.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 NEW prompt
+عکساتو زیباتر کن 🦦
+
+آموزش استفاده 👉
+
+دانلود Gemini 🤖
+
+دانلود ChatGpt 🤖
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8562
 
@@ -218,17 +253,5 @@ Location 🤯 🇫🇷
 🚨💪 چابهار چندین انفجار مهیب
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انفجار در شیراز ، تایید میکنید شیرازیا؟
-</div>
-
-## tasiyanc — post 8516
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اختلال اینترنت در سراسر ایران
 </div>
 

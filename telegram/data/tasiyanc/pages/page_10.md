@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/06 00:57
+📅 آخرین بروزرسانی: 1405/05/06 03:25
 
 ---
+
+## tasiyanc — post 8456
+
+<div align="center"><img src="files/post_8456_tasiyanc_8456.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حضور پرزیدنت ترامپ با اینفانتینو برای اهدای جام
+
+@TASIYANC⭐️
+</div>
+
+## tasiyanc — post 8455
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الان ک ترامپ ممنوع تصویره نمی‌خواین تقدیم جام رو نشون بدید کسخلا؟
+</div>
 
 ## tasiyanc — post 8454
 
@@ -135,19 +151,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مقابل خدمات رایگانی ک میدم انتظار حمایت دارم ، چون منم می‌تونستم مثل خیلیا فروش بزارم
-</div>
-
-## tasiyanc — post 8434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبح یه اوپن VPN زدم هنوزم کار می‌کنه 😂 کاش همه چنلا مثل ما بودن به ناموسم قسم جوین میزدم براش
-</div>
-
-## tasiyanc — post 8433
-
-<div align="center"><img src="files/post_8433_tasiyanc_8433.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
 </div>
 
