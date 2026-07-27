@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/05 21:35
+📅 آخرین بروزرسانی: 1405/05/06 00:57
 
 ---
+
+## tasiyanc — post 6630
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Homayoun Shajarian & Sohrab Pournazeri – Irane Man
+</div>
 
 ## tasiyanc — post 6629
 
@@ -172,11 +178,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6574
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آمریکا میخواد بزنه تقصیر منه ریکشن نمیزنین؟
 </div>
 

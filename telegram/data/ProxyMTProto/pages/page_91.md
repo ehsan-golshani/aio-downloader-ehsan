@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/05/05 23:24
+📅 آخرین بروزرسانی: 1405/05/06 00:55
 
 ---
+
+## ProxyMTProto — post 47734
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 85
+Secret: =FgMBAgABAAH8AxOG4kw63Q
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47733
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 31.56.178.248
+Port: 443
+Secret: ee4ce23663740cbaf7be12448a22abd6fe617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47732
 
@@ -163,24 +181,6 @@ Secret: ee2b1199d55f2189e508d07f1f5503faf2766b2e636f6d
 Server: mt.femboylover.org
 Port: 443
 Secret: 5f52936aa7e559b6bf6b6c62d28f0ae6
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47714
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: perfect.nolags.pw
-Port: 443
-Secret: dd4658543dd0973d78171da4552480fd23
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 

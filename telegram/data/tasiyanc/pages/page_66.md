@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/05 21:35
+📅 آخرین بروزرسانی: 1405/05/06 00:57
 
 ---
+
+## tasiyanc — post 6485
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️
+</div>
 
 ## tasiyanc — post 6484
 
@@ -217,12 +223,5 @@ https://t.me/gramevents_bot
 ادد لیست جهت جوین تو چنلا
 https://t.me/addlist/IiFVViQyys81OWM0
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کمی صحبت؟ ( گپمون)
-https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 

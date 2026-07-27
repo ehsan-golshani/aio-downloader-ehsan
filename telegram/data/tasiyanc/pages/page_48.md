@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/05/05 21:35
+📅 آخرین بروزرسانی: 1405/05/06 00:57
 
 ---
+
+## tasiyanc — post 7105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی پرتغاااااال شروع شد
+</div>
 
 ## tasiyanc — post 7104
 
@@ -257,23 +263,5 @@ Primary address ⚡️119.29.29.29
 🔑 DNS CHANGER ⬜️ برنامه مورد نیاز
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-2 سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-Password ': @Tasiyanc
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

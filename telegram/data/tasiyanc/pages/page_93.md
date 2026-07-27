@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/05/05 21:35
+📅 آخرین بروزرسانی: 1405/05/06 00:57
 
 ---
+
+## tasiyanc — post 5788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبلیغاتی ک زیر پستها میاد متعلق به ما نیست از طرف تلگرامه
+</div>
 
 ## tasiyanc — post 5787
 
@@ -174,17 +180,5 @@ vless://da2ab05b-6b96-4d0c-96eb-7b320b343fc0@zdas.zeabur.app:443?path=%2Fsecurit
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5761
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🔐 وای‌فای
-
-vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2Fdl&security=tls&encryption=none&insecure=0&host=pagescm.freen29.cc.cd&fp=chrome&type=ws&allowInsecure=0&sni=pagescm.freen29.cc.cd#%40Tasiyanc%20%E2%9A%99%EF%B8%8F
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpFUjJ4Q2NKa21SMXBmdG1OMzAwQ05K@62.60.233.226:62763#%40Tasiyanc%20%F0%9F%A7%A0
-vless://900ca7c5-6c69-4536-b0f8-efa4e3976016@51.79.89.68:443?security=&encryption=none&headerType=none&type=tcp#%20By%20EbraSha%20%E2%99%A0%EF%B8%8F
-
-@Tasiyanc 💙
 </div>
 

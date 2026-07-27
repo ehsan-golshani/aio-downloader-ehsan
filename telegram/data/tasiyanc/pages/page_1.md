@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/05 21:35
+📅 آخرین بروزرسانی: 1405/05/06 00:57
 
 ---
+
+## tasiyanc — post 8742
+
+<div align="center"><a href="files/post_8742_🇹🇷 Vip @TASIYANC.ehi.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇹🇷 Vip @TASIYANC.ehi</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ تست شده 🔸
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 💠
+</div>
 
 ## tasiyanc — post 8741
 
@@ -199,13 +221,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود
-
-@TASIYANC ✅
 </div>
 

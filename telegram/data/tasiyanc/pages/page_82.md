@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/05/05 21:35
+📅 آخرین بروزرسانی: 1405/05/06 00:57
 
 ---
+
+## tasiyanc — post 6080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک سرویس خریداری کردید هر ۲۴ ساعت کانفیگ ها آپدیت میشن برید ساب لینکتون و کانفیگ های جدید رو بردارید
+</div>
 
 ## tasiyanc — post 6077
 
@@ -191,13 +197,5 @@ Hot Servers 🔥🌶️.npvt
 فایل تمام پیام‌های تلگرامش
 
 @ineedknife
-</div>
-
-## tasiyanc — post 6048
-
-<div align="center"><img src="files/post_6048_tasiyanc_6048.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
 </div>
 

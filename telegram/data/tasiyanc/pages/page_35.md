@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/05 21:35
+📅 آخرین بروزرسانی: 1405/05/06 00:57
 
 ---
+
+## tasiyanc — post 7584
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کاپل امروز رفتن بالای empire state و پسره از دختره خواستگاری کرد چقدررر خفن و سکسی بود @TasiyanProxy✅
+</div>
 
 ## tasiyanc — post 7580
 
@@ -192,35 +198,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc ⚡️☕².ehi
-</div>
-
-## tasiyanc — post 7542
-
-<div align="center"><video src="files/post_7542_tasiyanc_7542.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7542_tasiyanc_7542.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  
-📶
-
-حجم و کاربر نامحدود 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-
-دانلود برنامه اندروید 
-🕹
-
-دانلود برنامه آیفون 
-📱
-
-آموزش اتصال به اینجکتور ✨
-
-@Tasiyanc 
-💠 | اتصال امن
 </div>
 
