@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/05 14:34
+📅 آخرین بروزرسانی: 1405/05/05 17:21
 
 ---
+
+## tasiyanc — post 7537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ولی پسرامون ( دخترامونم ) ثابت کردن چقد باغیرتن
+</div>
+
+## tasiyanc — post 7536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
+</div>
+
+## tasiyanc — post 7535
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+5سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ ✅@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7534
+
+<div align="center"><img src="files/post_7534_tasiyanc_7534.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔤 فیلم کوتاه « گرمای خانه »
+
+📃 زیرنویس چسبیده فارسی
+⚠️ ژانر : #بزرگسال 🔞 
+
+محصول کشور Taiwan
+کارگردان: Xavier Villaverde
+بازیگران:   Cervantes,  Llorenç
+خلاصه داستان : الیسا بعد از کلی دردسر به دانشگاه پایتخت قبول میشه در این بین با دختری آشنا میشه که زندگیشو تغییر
+میده . ...
+💘دانلود بدون سانسور فیلم 💘
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 7531
 
@@ -189,43 +236,5 @@ T.me/Tasiyanc ✅
 
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7487
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطور بود فیلما؟
-</div>
-
-## tasiyanc — post 7486
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی فیلم Heaven in Hell (2023) 📹 صحنه دار 🔞 ( مناسب بزرگسالان) عاشقانه ، درام - محصول 🇵🇱 کارگردان: Tomasz Mandes بازیگران : Simone Susinna & Magdalena Boczarska این فیلم داستان عشق پرشور و در عین حال چالش‌برانگیز بین «اولگا»، زنی موفق و مستقل که با مسئولیت‌های…
-</div>
-
-## tasiyanc — post 7485
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز June 29، روز جهانی مردهاست❤️‍🔥
-روزتون مبارك گوگولیای پشمالو
-</div>
-
-## tasiyanc — post 7484
-
-<div align="center"><img src="files/post_7484_tasiyanc_7484.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی فیلم Heaven in Hell (2023) 📹
-صحنه دار 🔞 ( مناسب بزرگسالان)
-
-عاشقانه ، درام - محصول 🇵🇱
-
-کارگردان: Tomasz Mandes
-بازیگران : Simone Susinna & Magdalena Boczarska
-
-این فیلم داستان عشق پرشور و در عین حال چالش‌برانگیز بین «اولگا»، زنی موفق و مستقل که با مسئولیت‌های زندگی دست‌وپنج نرم می‌کند، و «مکس»، مردی جوان‌تر و سرشار از انرژی که با رویکردی متفاوت به زندگی نگاه می‌کند، را روایت می‌کند. "Heaven in Hell" به این پرسش می‌پردازد که آیا تفاوت‌های سنی، سبک زندگی و انتظارات متفاوت از آینده می‌تواند سد راه یک عشق واقعی شود یا خیر.
-
-💘 دانلود بدون سانسور فیلم 💘
-@Tasiyanc
 </div>
 

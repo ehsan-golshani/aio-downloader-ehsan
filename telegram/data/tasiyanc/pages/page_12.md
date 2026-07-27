@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/05 14:34
+📅 آخرین بروزرسانی: 1405/05/05 17:21
 
 ---
+
+## tasiyanc — post 8400
+
+<div align="center"><img src="files/post_8400_tasiyanc_8400.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂
+
+دریافت رسانه 👉
+</div>
+
+## tasiyanc — post 8398
+
+<div align="center"><video src="files/post_8398_tasiyanc_8398.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8398_tasiyanc_8398.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔸توصیف عشق در یک جمله ...
+بفرست براش:)
+
+پروکسی | پروکسی
+
+
+@TASIYANC ✅
+#Nvd
+</div>
+
+## tasiyanc — post 8397
+
+<div align="center"><video src="files/post_8397_tasiyanc_8397.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8397_tasiyanc_8397.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو عشق ابدی ورژن اسپانیایی، یه پسره معتقد بود بالاخره عشق واقعیش رو پیدا کرده و عاشق هم دیگه ان که همون موقع سک* دختر رو با یه پسر دیگه پخش کردن .
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8396
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[04]⚡@Tasiyanc.ovpn
+</div>
 
 ## tasiyanc — post 8392
 
@@ -146,57 +191,5 @@ IP
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امشب زیادی ساکته اوضاع و این موضوع بیشتر ترسناک و دلهره آوره
-</div>
-
-## tasiyanc — post 8372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-5سرور سرعتی پرمیوم دارای ۳ لوکیشن  ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8371
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏴󠁧󠁢󠁥󠁮󠁧󠁿 🇫🇷 کدوم می‌بره؟
-
-
-نتیجه دقیق بگید تا قبل شروع بازی کانفیگ وایرگارد هدیه بگیرید
-</div>
-
-## tasiyanc — post 8369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨خبرگزرای CBS به نقل از مقام نظامی: حملات امشب دقایقی دیگر آغاز میشود و گستردگی بیشتری دارد
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8367
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌انفجار در سنندج
-
-۴انفجار در بندر عباس
-
-@Tasiyanc✅
 </div>
 
