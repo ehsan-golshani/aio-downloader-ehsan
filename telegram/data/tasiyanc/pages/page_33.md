@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/05 11:18
+📅 آخرین بروزرسانی: 1405/05/05 14:34
 
 ---
+
+## tasiyanc — post 7643
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید https://t.me/FreeConfigTsBot?start=facac4538f0c
+</div>
+
+## tasiyanc — post 7642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید https://t.me/FreeConfigTsBot?start=facac4538f0c
+</div>
+
+## tasiyanc — post 7641
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید
+https://t.me/FreeConfigTsBot?start=facac4538f0c
+</div>
+
+## tasiyanc — post 7640
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز کردم براتون🔥
+</div>
 
 ## tasiyanc — post 7634
 
@@ -131,40 +156,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7612
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اینترنت شما چطوره؟
-</div>
-
-## tasiyanc — post 7611
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-حجم و کاربر نامحدود ⚡️
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال به اینجکتور ✨
-
-@Tasiyanc 
-💠 | اتصال امن
-</div>
-
-## tasiyanc — post 7610
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc _ SuperFast⚡.npvt
-</div>
-
-## tasiyanc — post 7608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرتغال به رهبری رونالدو 🇵🇹 به دور یک هشتم رفت و رقیب اسپانیا شد ⚡️
 </div>
 

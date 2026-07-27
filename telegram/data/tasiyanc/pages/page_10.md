@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/05 11:18
+📅 آخرین بروزرسانی: 1405/05/05 14:34
 
 ---
+
+## tasiyanc — post 8447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آرژانتین کامبک میزنه یا ن؟
+</div>
+
+## tasiyanc — post 8446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانیااااااااااا میزنه
+</div>
+
+## tasiyanc — post 8445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرررررررررررررررران تووووووووووورس
+</div>
+
+## tasiyanc — post 8444
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گگگگگگگگگگگگگگگگگگگگل
+</div>
 
 ## tasiyanc — post 8443
 
@@ -120,31 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 داور خطای واضح روی اسپانیارو نمیگیره🤣
-</div>
-
-## tasiyanc — post 8424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه آرژانتین از کون اورد
-</div>
-
-## tasiyanc — post 8423
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت ترامپ کنار اینفانتینو امشب در استادیومه و قراره جام قهرمانی رو شخصا خودش به تیم قهرمان بده
-</div>
-
-## tasiyanc — post 8421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺سایت AparatSport فینال با گزارش عادل فردوسی پور هست
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆پخش زنده مسابقات جام جهانی 2026 https://roxiestreams.su/soccer https://streamcorner.fyi/fifa-world-cup https://totalsportek.tips/football https://www.bintv.net https://soccerstreams.sbs https://strumyk.net سایت هایی که باز نمیشه رو باید با وی پی ان…
 </div>
 

@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/05 11:18
+📅 آخرین بروزرسانی: 1405/05/05 14:34
 
 ---
+
+## tasiyanc — post 7932
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#معرفی_سایت
+🔄✅بهترین سایت های کاریابی ایرانی⬇️
+
+1. www.karlancer.com
+2. www.iranjob.ir
+3. www.jobvision.io
+4. www.karlib.com
+5. www.jobinja.ir
+6. www.banikar.com
+7. www.karboom.io
+8. www.e-estekhdam.com
+9. www.infojob.ir
+10. www.iranestekhdam.ir
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7931
+
+<div align="center"><img src="files/post_7931_tasiyanc_7931.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو کدومی؟خودم 15
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7930
+
+<div align="center"><img src="files/post_7930_tasiyanc_7930.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سایت کاربردی بهتون معرفی کنم:
+
+اگر یه خونه خالی یا حتی یه اتاق خالی دارید
+و نمیدونی چجوری دیزاینش کنید
+وارد این وبسایت خارجی بشید:
+home.by.me
+یه فضایی در اختیارتون میذاره که تصور می‌کنید
+الان وارد نرم‌افزارهای تخصصی دیزاین شدید.
+
+اول از همه ابعاد اتاق، دیوارهاش و به‌صورت کلی متراژ رو مشخص کنید، بعدش شروع کن به دیزاینش با محصولاتی که سایت در اختیارت می‌ذاره؛ مثل مبلمان، میز و
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7928
+
+<div align="center"><img src="files/post_7928_tasiyanc_7928.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام داداش به رفقا بگو استرس نکشن، دینی رو میشه تو یک ساعت
+جمع کرد😹
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7925
 
@@ -187,47 +247,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 @Tasiyanc ⭐️
 #Navid
-</div>
-
-## tasiyanc — post 7893
-
-<div align="center"><img src="files/post_7893_tasiyanc_7893.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نقش پدر در زندگی:
-
-روح تمام پدر های آسمانی شاد🖤
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7892
-
-<div align="center"><video src="files/post_7892_tasiyanc_7892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7892_tasiyanc_7892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعتان چووونه رفته نوکِ چرخ و فلک داره تبلیغ بالشت و پتو میکنه😐
-
-بالشتش هم اون وسط پرت شد پایین، میگه عیبی نداره یکم ترسو بود...
-
-@Tasiyanc ⭐️
-#Navid
-</div>
-
-## tasiyanc — post 7891
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جای خالیشان قدر یک وطن درد میکند ؛ نه فقط در خانه هایشان که در دل تمام ایران
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7890
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای فرزندانی که سهمشان از وطن یک گلوله بود 🖤
-
-@Tasiyanc ☑️
 </div>
 

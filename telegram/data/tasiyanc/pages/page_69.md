@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/05/05 11:18
+📅 آخرین بروزرسانی: 1405/05/05 14:34
 
 ---
+
+## tasiyanc — post 6401
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادامه خبر ها + پروکسی های تاسیان
+
+@Tasiyanproxy
+@Tasiyanproxy
+</div>
+
+## tasiyanc — post 6400
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ آسمان ایران کلیر شد
+@Tasiyanc
+</div>
+
+## tasiyanc — post 6398
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چند تا کانفیگ خوب آماده میکنم یه کم دیگه
+</div>
+
+## tasiyanc — post 6397
+
+<div align="center"><img src="files/post_6397_tasiyanc_6397.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨فوری | هم اکنون حملات موشکی سپاه به سمت اسرائیل‼️
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6396
 
@@ -167,60 +198,5 @@ T.me/TasiyanProxy
 آموزش اتصال ⛓
 
 🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6369
-
-<div align="center"><img src="files/post_6369_tasiyanc_6369.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New Prompt 🤖 🤖
-
-سینماتیک زن🖤
-Vertical 2:3, high-end cinematic photography, professional depth of field, cinematic black-and-white contrast with subtle film grain; young adult female sitting low on a minimalist metal stool outdoors on uneven terrain, legs spread forward in a relaxed grounded pose, feet planted; one hand loosely resting between knees holding thin leather jacket reins; shoulders slightly slouched, head tilted downward with calm introspective expression; dark oversized layered clothing, wide-leg trousers, leather boots, dark sunglasses; a strong black horse stands closely behind her, aligned protectively and partially overlapping her silhouette; open natural landscape with rough ground and wild grass, bright overexposed sky creating strong negative space; high-contrast lighting with deep blacks, soft highlights, matte texture; medium-format film look, monochrome fine-art fashion editorial, avant-garde luxury mood; output 1080p; Use the uploaded reference image as the ONLY identity source; preserve the original face 100% exactly and hair unchanged; "built 100% from the unaltered facial features of the reference image"; no text, no logo, no watermark.
-
-
-
-سینماتیک مرد🐎
-Vertical 2:3, high-end cinematic photography, professional depth of field, cinematic black-and-white contrast with subtle film grain; young adult male sitting low on a minimalist metal stool outdoors on uneven terrain, legs spread forward in a relaxed grounded pose, feet planted; one hand loosely resting between knees holding thin leather jacket reins; shoulders slightly slouched, head tilted downward with calm introspective expression; dark oversized layered clothing in strictly masculine styling only, menswear tailoring; structured shoulders, straighter silhouette, boxier fit; men’s fit, masculine proportions, sharp lines; wide-leg trousers, leather boots, dark sunglasses; ONE minimal masculine accessory only: metal watch; a strong black horse stands closely behind him, aligned protectively and partially overlapping his silhouette; open natural landscape with rough ground and wild grass, bright overexposed sky creating strong negative space; high-contrast lighting with deep blacks, soft highlights, matte texture; medium-format film look, monochrome fine-art fashion editorial, avant-garde luxury mood; output 1080p; Do NOT mirror the female wardrobe or accessories; convert everything into masculine equivalents; Use the uploaded reference image as the ONLY identity source; preserve the original face 100% exactly and hair unchanged; "built 100% from the unaltered facial features of the reference image"; grooming consistent with the reference image (keep facial hair if present; if not, clean-shaven); strictly masculine styling only, menswear tailoring; structured shoulders, straighter silhouette, boxier fit; men’s fit, masculine proportions, sharp lines; Ban List: no feminine elements, no makeup, no lipstick, no eyeliner, no nail polish, no long manicured nails no dress, no skirt, no corset, no lace lingerie vibe, no delicate jewelry, no handbag/purse no feminine pose or feminine body language; STRICT MASCULINE LOCK:strictly masculine styling only, menswear tailoring, structured shoulders and straighter silhouette, one minimal masculine accessory only (metal watch OR signet ring OR thick chain), no feminine elements, no makeup, no handbag/purse, no delicate jewelry, no feminine pose.; no text, no logo, no watermark.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ OpenVPN♻️
-
-تست شده  🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6367
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🔝
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 🍏
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر ❤️
 </div>
 

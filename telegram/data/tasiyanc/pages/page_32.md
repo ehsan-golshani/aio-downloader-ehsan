@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/05 11:18
+📅 آخرین بروزرسانی: 1405/05/05 14:34
 
 ---
+
+## tasiyanc — post 7685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP 🎯 @Tasiyanc.nm
+</div>
+
+## tasiyanc — post 7682
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+3سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
+</div>
+
+## tasiyanc — post 7681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗘𝗰𝗵𝗼 𝗩𝗶𝗽 🔥⁰⁴.ehi
+</div>
+
+## tasiyanc — post 7680
+
+<div align="center"><img src="files/post_7680_tasiyanc_7680.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎥انیمیشن داستان اسباب بازی ها (Toy Story 5) 2026
+ژانر : انیمیشن ، خانوادگی ، کمدی
+مدت زمان 🕰: 102 دقیقه 
+کشور: 🇺🇸
+وودی، باز، جسی و دیگر اعضای گروه با چالشی تازه روبه‌رو می‌شوند؛ زمانی که با وسایل الکترونیکی آشنا می‌شوند، فناوری‌های جدیدی که به تهدیدی برای بازی و سرگرمی کودکان تبدیل شده‌اند و جایگاه آن‌ها را به خطر می‌اندازند.
+💘 برای دانلود دوبله فارسی کلیک کنید 💘
+💘 دانلود زبان اصلی 💘
+با ۴ کیفیت متفاوت😍
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7679
 
@@ -145,30 +195,5 @@ Canada 🇨🇦 & Morocco 🇲🇦 🏆
 
 
 🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-</div>
-
-## tasiyanc — post 7643
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید https://t.me/FreeConfigTsBot?start=facac4538f0c
-</div>
-
-## tasiyanc — post 7642
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید https://t.me/FreeConfigTsBot?start=facac4538f0c
-</div>
-
-## tasiyanc — post 7641
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید
-https://t.me/FreeConfigTsBot?start=facac4538f0c
-</div>
-
-## tasiyanc — post 7640
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز کردم براتون🔥
 </div>
 
