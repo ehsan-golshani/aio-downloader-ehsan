@@ -1,12 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/05 17:21
+📅 آخرین بروزرسانی: 1405/05/05 21:35
 
 ---
 
-## tasiyanc — post 8735
+## tasiyanc — post 8741
 
-<div align="center"><a href="files/post_8735_Multi Loc ⚡ @Tasiyanc.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Multi Loc ⚡ @Tasiyanc.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینم چنل جدیدمون ک بیشتر فیلم و سریال خواهیم گذاشت دوس داشتید برای حمایت جوین بشید دوستون دارم 💖
+https://t.me/TsMoviee
+</div>
+
+## tasiyanc — post 8740
+
+<div align="center"><img src="files/post_8740_tasiyanc_8740.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Multi Loc ⚡ @Tasiyanc.npvt
+</div>
+
+## tasiyanc — post 8735
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت🔐
@@ -194,23 +207,5 @@
 🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8714
-
-<div align="center"><video src="files/post_8714_tasiyanc_8714.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8714_tasiyanc_8714.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴ و ۵ مرداد سالگرد مرگ دو ابر مرد تاریخ رضاشاه کبیر و محمدرضا شاه فقید 🖤
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@TASIYANC 💥 سرعتی.npvt
 </div>
 

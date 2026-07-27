@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/05 17:21
+📅 آخرین بروزرسانی: 1405/05/05 21:35
 
 ---
+
+## tasiyanc — post 8208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سپاه جون دارن جنوب میزنن خب؟چرا گیر دادی ب کردستان عراق داری اشتباهی میزنی ها😹
+</div>
+
+## tasiyanc — post 8207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ آمریکا رفته سراغ پل های ارتباطی بوشهر - تایید نشده
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8206
 
@@ -151,17 +165,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 🚨سخنرانی مهم پرزیدنت ترامپ ۳ ساعت دیگه در کاخ سفید شروع میشه
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8186
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حملات امشب بی سابقه اس
-</div>
-
-## tasiyanc — post 8185
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
 </div>
 

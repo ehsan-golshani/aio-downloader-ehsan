@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/05 17:21
+📅 آخرین بروزرسانی: 1405/05/05 21:35
 
 ---
+
+## tasiyanc — post 5944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واقعا سرورهای خوبی می‌زاری دم غیرتت گرم ب جان خودم
+عشقی عشق ❤️🥲
+</div>
+
+## tasiyanc — post 5943
+
+<div align="center"><img src="files/post_5943_tasiyanc_5943.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینستا مثل برق میاره ، ❤️❤️❤️
+</div>
 
 ## tasiyanc — post 5942
 
@@ -169,20 +184,5 @@ Wifi نت خانگی⚡.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5921
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐 وصل رو تمام اپراتورا ✅ vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.254:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=donya-e-eqtesad.com.tasnimnews.com.alef.ir.en.mehrnews.com.ent…
-</div>
-
-## tasiyanc — post 5920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐
-وصل رو تمام اپراتورا ✅
-vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.254:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=donya-e-eqtesad.com.tasnimnews.com.alef.ir.en.mehrnews.com.entekhab.ir.tasnimnews.com.tehrantimes.com&allowInsecure=0&sni=Humble-FigUREFnHk81kxjx.CarboNblaCkBmw.iR#%40Tasiyanc%20-%20%F0%9F%8C%99
-@Tasiyanc ✅
 </div>
 

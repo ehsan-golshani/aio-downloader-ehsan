@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/05/05 17:21
+📅 آخرین بروزرسانی: 1405/05/05 21:35
 
 ---
+
+## tasiyanc — post 6730
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️وزیر انرژی آمریکا:
+
+🔻  ممکن است به عنوان بخشی از امتیازاتی که ما ارائه می‌دهیم، بخشی از تحریم‌های ایران لغو شود
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ايران از زمان قاجار تا قبل پزشكيان ۵ تا جنگ داشته از پزشكيان به بعد شده يه روز در ميون
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6728
 
@@ -174,20 +190,5 @@ INFERNO ⚡ vip.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشن خنده بازه
-</div>
-
-## tasiyanc — post 6709
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺قوه قضایی جمهوری اسلامی حکم اعدام نتانیاهو و ترامپ صادر کرد.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6708
-
-<div align="center"><img src="files/post_6708_tasiyanc_6708.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Configs⚡🚀.txt
 </div>
 

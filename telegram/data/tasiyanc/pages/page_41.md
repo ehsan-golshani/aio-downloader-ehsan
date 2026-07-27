@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/05 17:21
+📅 آخرین بروزرسانی: 1405/05/05 21:35
 
 ---
+
+## tasiyanc — post 7344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 18.30 والیبال 😐
+ایران Vs آمریکا 🦦
+</div>
+
+## tasiyanc — post 7341
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩
+</div>
 
 ## tasiyanc — post 7340
 
@@ -206,38 +219,4 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 </div>
 
 ## tasiyanc — post 7308
-
-## tasiyanc — post 7307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مردم خوبی داریم ، از چنلای حمایت میکنن ک تو ۳ ماه قطعی یه کانفیگم نزاشتن 😂😂
-</div>
-
-## tasiyanc — post 7306
-
-<div align="center"><video src="files/post_7306_tasiyanc_7306.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7306_tasiyanc_7306.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن 
-🇩🇪
-
-4سرور سرعتی متد جدید
-⚡️
-
-دانلود برنامه 
-🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
- 
-✅@Tasiyanc | تاسیان
-</div>
 

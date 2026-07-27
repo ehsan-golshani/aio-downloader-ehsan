@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/05 17:21
+📅 آخرین بروزرسانی: 1405/05/05 21:35
 
 ---
+
+## tasiyanc — post 8374
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب زیادی ساکته اوضاع و این موضوع بیشتر ترسناک و دلهره آوره
+</div>
+
+## tasiyanc — post 8373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب زیادی ساکته اوضاع و این موضوع بیشتر ترسناک و دلهره آوره
+</div>
 
 ## tasiyanc — post 8372
 
@@ -211,28 +223,6 @@ Multi Location ⚡ Fast.npvt
 
 پروکسی |  پروکسی | پروکسی
 پروکسی |  پروکسی | پروکسی
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8343
-
-<div align="center"><img src="files/post_8343_tasiyanc_8343.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه خانواده بندرعباسی بچه‌شونو داخل یه تیکه کائوچو میذارن که کنار دریا بازی کنه
-حواس خانواده پرت میشه آب بچه رو میبره و نیروی دریایی ارتش این بچه رو لب مرز دریایی امارات پیدا میکنن و برمیگردونن🤣🤣
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8342
-
-<div align="center"><img src="files/post_8342_tasiyanc_8342.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معلم جلوی پروژکتور معلم کنار پروژکتور
-
 
 @Tasiyanc✅
 </div>

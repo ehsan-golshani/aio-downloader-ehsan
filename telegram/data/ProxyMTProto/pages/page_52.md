@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/05 19:42
+📅 آخرین بروزرسانی: 1405/05/05 21:33
 
 ---
+
+## ProxyMTProto — post 48509
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 34.6.97.246
+Port: 443
+Secret: dde15c0efa2f77bf7378cb3dc8cea5ddde
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48508
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48507
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: portal.balalaika.click
+Port: 443
+Secret: eed9b57dfbf5b124dd877540301c89c774706f7274616c2e62616c616c61696b612e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48506
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: br.kingproxynewdomailasiatech.ink
+Port: 22
+Secret: dd79e7010200010007f0030386e24c3add
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48505
 
@@ -145,42 +181,6 @@ Secret: eeee52288a1c9bf20ef3423488f8418c3f087777772e636c6f7564666c6172652e636f6d
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48489
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: edge.rknwatch.digital
-Port: 443
-Secret: ee7af7548a786b6603566172b91f413637656467652e726b6e77617463682e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48488
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 6775
-Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48487
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef334baa1cb1e7ca5cf1a48e461b5dbfa62726f777365722e79616e6465782e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48486
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
 @ProxyMTProto
 </div>
 

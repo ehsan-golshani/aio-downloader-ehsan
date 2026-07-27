@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/05 17:21
+📅 آخرین بروزرسانی: 1405/05/05 21:35
 
 ---
+
+## tasiyanc — post 8431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
+</div>
+
+## tasiyanc — post 8430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تموم شد بریم بازی کسشر رو ببینیم
+</div>
 
 ## tasiyanc — post 8429
 
@@ -145,24 +157,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [04]⚡@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 8405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.138:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%E2%9A%A1%F0%9F%87%A9%F0%9F%87%AA
-
-Ip 🇩🇪 🇩🇪
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂 دریافت رسانه 👉
 </div>
 
