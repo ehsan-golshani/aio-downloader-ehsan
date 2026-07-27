@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/05 03:23
+📅 آخرین بروزرسانی: 1405/05/05 07:28
 
 ---
+
+## tasiyanc — post 8695
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب هم خاورمیانه آرومه
+</div>
+
+## tasiyanc — post 8694
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۴ اسرائیل:
+
+ترامپ دستور داد که تمام حملات علیه مواضع جمهوری اسلامی بطور موقت لغو شود
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8693
 
@@ -197,23 +212,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 بهبهان صدای انفجاررررررر
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حمله پهپادی سپاه به مواضع کردها در اربیل
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8666
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸پرزیدنت دونالد جی ترامپ :
-
-ایرانیا ممکنه تسلیم بشن یا هم بخوان برن تو تاسیسات عمیق زیر زمینی پنهان بشن
-این ایرانیا غار های خیلی عمیقی دارن برای پنهان شدن.
-@TASIYANC ⭐️
 </div>
 

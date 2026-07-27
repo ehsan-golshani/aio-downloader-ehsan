@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/05 03:23
+📅 آخرین بروزرسانی: 1405/05/05 07:28
 
 ---
+
+## tasiyanc — post 8724
+
+<div align="center"><img src="files/post_8724_tasiyanc_8724.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹20 ابزار کاربردی عالی برای دانشجویان 😐
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8723
+
+<div align="center"><img src="files/post_8723_tasiyanc_8723.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قبل اینترنت آدما همدیگه رو اینجوری انفالو میکردن.. 😐
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8720
 
@@ -234,20 +254,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 @TasiyanInfo
 
 امیدوارم روز های خوبی همواره شاد و خوب در انتظار تمام هموطنان عزیزم باشد 💖 عاشقتونم 💋
-</div>
-
-## tasiyanc — post 8695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب هم خاورمیانه آرومه
-</div>
-
-## tasiyanc — post 8694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال ۱۴ اسرائیل:
-
-ترامپ دستور داد که تمام حملات علیه مواضع جمهوری اسلامی بطور موقت لغو شود
-@TASIYANC ⭐️
 </div>
 

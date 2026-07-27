@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/05 03:23
+📅 آخرین بروزرسانی: 1405/05/05 07:28
 
 ---
+
+## tasiyanc — post 7674
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+4 سرور سرعتی حجم و کاربر نامحدود ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال به اینجکتور ✨
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+
+🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
+
+@Tasiyanc | اتصال امن ✅
+</div>
+
+## tasiyanc — post 7673
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آخر اسم چنل کلمه VPN اضافه شد
+</div>
 
 ## tasiyanc — post 7666
 
@@ -159,18 +187,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 خلبانی که تو ایران افتاده بود گفته ایران به پیشرفته ترین تکنولوژی پهپادی در جهان رسیده که فقط آمریکا و چین و روسیه دارنش و با همین تکنولوژی باعث سقوطش شدن!!!
 
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7632
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهنمو ضرر ، رو برد کیپ ورد بستم
-</div>
-
-## tasiyanc — post 7630
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شرکت ها و سایتهای معتبر جهت اسپانسری (همکاری) و حمایت از چنل با آیدی پشتیبانی در ارتباط باشید
-@StarTasiyan
 </div>
 

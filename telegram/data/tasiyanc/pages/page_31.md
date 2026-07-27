@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/05 03:23
+📅 آخرین بروزرسانی: 1405/05/05 07:28
 
 ---
+
+## tasiyanc — post 7704
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رونالدو پر افتخارترین بازیکن جهان
+تا ابد در قلب ما خواهی بود
+</div>
+
+## tasiyanc — post 7702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانیا زد 💔
+</div>
 
 ## tasiyanc — post 7701
 
@@ -195,33 +208,5 @@ VIP 🎯 @Tasiyanc.nm
 7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️
 
 💘 دریافت کانفیگ👈 💘
-</div>
-
-## tasiyanc — post 7674
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-4 سرور سرعتی حجم و کاربر نامحدود ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال به اینجکتور ✨
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-
-@Tasiyanc | اتصال امن ✅
-</div>
-
-## tasiyanc — post 7673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آخر اسم چنل کلمه VPN اضافه شد
 </div>
 
