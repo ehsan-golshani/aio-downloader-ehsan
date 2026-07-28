@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/06 06:59
+📅 آخرین بروزرسانی: 1405/05/06 09:48
 
 ---
+
+## tasiyanc — post 7435
+
+<div align="center"><img src="files/post_7435_tasiyanc_7435.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برنامه بازی های امروز جام جهانی 🏆
+@Tasiyanc 💠
+</div>
 
 ## tasiyanc — post 7434
 
@@ -174,12 +183,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هوادارای حاضر در استادیوم با پرچم های رنگارنگ
 @Tasiyanc
-</div>
-
-## tasiyanc — post 7405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/TasiyanProxy/1840
-نتیجه بازی رو پیش بینی دقیق کنید کانفیگ بگیرید ، باید عضو چنل پروکسی باشید تا جایزه رو بگیرید
 </div>
 

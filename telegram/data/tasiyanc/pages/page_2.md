@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/06 06:59
+📅 آخرین بروزرسانی: 1405/05/06 09:48
 
 ---
+
+## tasiyanc — post 8719
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنظرم زیباترین هدیه 5/5/5 به من شمایید ک دارمتون 💘
+</div>
 
 ## tasiyanc — post 8718
 
@@ -244,18 +250,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 🔺ویدیویی دیده نشده از ورود محمدرضا شاه و ملکه فرح پهلوی به آمریکا و استقبال از او در زمان ریاست جمهوری جان اف کندی
 
 @TASIYANC 💠
-</div>
-
-## tasiyanc — post 8692
-
-<div align="center"><video src="files/post_8692_tasiyanc_8692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8692_tasiyanc_8692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺صحبت های شگفت‌انگیز پدر بمب اتم «رابرت اوپنهایمر» ...
-اکنون من خود مرگ شده ام .... نابودگر جهان!
-
-@TASIYANC ⭐️
 </div>
 

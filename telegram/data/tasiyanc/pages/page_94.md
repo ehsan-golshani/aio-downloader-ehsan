@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/05/06 06:59
+📅 آخرین بروزرسانی: 1405/05/06 09:48
 
 ---
+
+## tasiyanc — post 5765
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+PREMIUM 💥.npvt
+</div>
 
 ## tasiyanc — post 5764
 
@@ -227,11 +233,5 @@ V2Box 🌟 MCI - WiFi
 vless://0dc22208-cea4-4423-b3c3-a36957e23233@91.225.217.26:443?security=reality&encryption=none&pbk=Zd5BqaW-kyJqZANUH2cIARr466QZw09pNngYjsEK1w8&headerType=none&fp=chrome&type=tcp&sni=yahoo.com&sid=30fa#%40Tasiyanc%20%E2%80%A2%20MCI
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5742
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حجم پیام زیاده ، عشقید لذت ببرید ❤️
 </div>
 

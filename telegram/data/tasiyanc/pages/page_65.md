@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/05/06 06:59
+📅 آخرین بروزرسانی: 1405/05/06 09:48
 
 ---
+
+## tasiyanc — post 6530
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[23]⚡🇩🇪@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6529
 
@@ -207,28 +213,6 @@ https://t.me/+RTGtcYWb8HdkNjdk
 دانلود iOS 📱
 
 آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6500
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  
-😏
-
-4سرور   سرعتی پرمیوم متد جدید
-🚀
-
-نامحدود  - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
 
 ✔️ T.me/Tasiyanc 
 ✅

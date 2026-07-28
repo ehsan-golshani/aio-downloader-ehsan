@@ -1,8 +1,47 @@
 # آرشیو کانال ProxyMTProto - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/05/06 00:55
+📅 آخرین بروزرسانی: 1405/05/06 09:47
 
 ---
+
+## ProxyMTProto — post 48038
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 Телеграм тормозит?
+🚨 تلگرام کند شده؟
+
+⚡Бесплатный рабочий прокси
+⚡پروکسی رایگان و فعال
+
+👇Получить / دریافت پروکسی
+</div>
+
+## ProxyMTProto — post 48037
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: country.nolags.pw
+Port: 443
+Secret: ddc5a3afebedae870af378217569f6586c
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48036
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wb.proxyonline.online
+Port: 8443
+Secret: eee8f530985fe58c2518873a7899fd690b77622e70726f78796f6e6c696e652e6f6e6c696e65
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48034
 
@@ -145,42 +184,6 @@ Secret: dd96d0f04ace50bb54a492c1415bfff1e5
 Server: Unknown
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48018
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ya.proxyobhod.online
-Port: 8443
-Secret: ee2419e93e2af4bddd80bb8bc8936ea49879612e70726f78796f62686f642e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48017
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ%3D%3D
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48016
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: apex.proxyux.site
-Port: 443
-Secret: ee1e16392ec634c2ebce9387a9edcf24e3617065782e70726f787975782e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy8.arixo.shop
-Port: 443
-Secret: eeb244bd047b4e9e68340bf827ab7bd9b1617669746f2e7275
 @ProxyMTProto
 </div>
 

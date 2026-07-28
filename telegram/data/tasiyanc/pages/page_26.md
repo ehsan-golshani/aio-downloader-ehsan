@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/06 06:59
+📅 آخرین بروزرسانی: 1405/05/06 09:48
 
 ---
+
+## tasiyanc — post 7946
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ حمله سپاه به یک کشتی غول پیکر در تنگه ، در جواب به ترامپ ک‌گفته بود باید تا آخر امشب ایران تنگه رو باز کنه کامل
+</div>
 
 ## tasiyanc — post 7944
 
@@ -238,19 +244,5 @@ home.by.me
 لیستی از هوش مصنوعی‌های رایگان که اکثرا دوتای اول رو فقط میشناختید!
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7917
-
-<div align="center"><img src="files/post_7917_tasiyanc_7917.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت آوردم براتون که عکساتونو اینجوری خوشگل میکنه برای پست استوری ام خوبه
-
-
-Cinematic street photography, a person standing in a dense crowd of blurred pedestrians, looking up and to the side with a curious/wondering expression, shallow depth of field with crowd heavily out of focus (bokeh), moody overcast city atmosphere, muted cold color tones (blue-grey), soft diffused lighting, shot on 85mm lens, f
-
-
-@Tasiyanc ⭐️
 </div>
 

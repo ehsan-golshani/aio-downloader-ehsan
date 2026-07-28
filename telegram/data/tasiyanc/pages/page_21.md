@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/06 06:59
+📅 آخرین بروزرسانی: 1405/05/06 09:48
 
 ---
+
+## tasiyanc — post 8155
+
+<div align="center"><img src="files/post_8155_tasiyanc_8155.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیدی گاگا تو کنسرتش لخت پرید بقل طرفداراش 😐
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8154
 
@@ -223,13 +234,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 انگلیس زددددد
-</div>
-
-## tasiyanc — post 8120
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ حمله شدید آمریکا به کرمان
-
-@Tasiyanc ⭐️
 </div>
 

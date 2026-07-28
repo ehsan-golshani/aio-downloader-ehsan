@@ -1,8 +1,45 @@
 # آرشیو کانال VahidOOnLine - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/06 06:57
+📅 آخرین بروزرسانی: 1405/05/06 09:46
 
 ---
+
+## VahidOOnLine — post 251788
+
+<div align="center"><img src="files/post_251788_VahidOOnLine_251788.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در واکنش به اظهارات مارکو روبیو، وزیر خارجه آمریکا، که گفته بود سیاست رییس‌جمهوری آمریکا، «سر در برابر چشم» است، نوشت: «عناصر وابسته به اسرائیل در دولت آمریکا سر خود را در خاک دفن می‌کنند. آنها چشم بر واقعیت‌های میدانی بسته‌اند و گویا تنها دغدغه‌شان انتخابات ۲۰۲۸ است.»
+
+عراقچی گفت: «تجاوز بی‌خردانه‌ای که این افراد تبلیغ و تشویق می‌کنند، تنها یک نتیجه خواهد داشت؛ رییس‌جمهوری آمریکا اگر دنبال معامله است، باید بهای سنگین‌تری بپردازد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند ویدیویی به ایران اینترنشنال ارسال کرده که نشان می‌دهد مسئولان شهر بجنورد شعار مردم روی دیوار یک مدرسه را که «جاوید شاه» نوشته‌اند، را پوشانده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251786
+
+<div align="center"><video src="files/post_251786_VahidOOnLine_251786.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251786_VahidOOnLine_251786.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، پنجشنبه‌شب اول مردادماه در راس هیاتی دیپلماتیک برای شرکت در نشست وزیران امور خارجه کشورهای عضو سازمان همکاری شانگهای وارد شهر چولپون‌آتای قرقیزستان شد.
+
+خبرگزاری تسنیم گزارش داد نشست شورای وزیران امور خارجه سازمان همکاری شانگهای روز جمعه دوم مردادماه در چولپون‌آتا برگزار می‌شود و آخرین نشست سیاسی سطح عالی پیش از اجلاس سران این سازمان به شمار می‌رود. بر اساس این گزارش، عراقچی در این نشست ضمن ایراد سخنرانی و اعلام مواضع جمهوری اسلامی، با وزیران امور خارجه کشور میزبان، کشورهای عضو و دیگر مقام‌های شرکت‌کننده دیدارهای دوجانبه خواهد داشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251785
 
@@ -232,47 +269,6 @@
 ♦️محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، با انتشار پیامی در شبکه اجتماعی اکس نوشت که دونالد ترامپ، رئیس‌جمهوری آمریکا، با «اشتباهات مهلک» از «بازی مرد دیوانه» به «بازی مرد مستاصل» رسیده است.
 
 رضایی همچنین حمله به زائران در شلمچه و تهدید به حمله به زیرساخت‌ها را نشانه «استیصال و درماندگی» دانست و نوشت که در صورت حملات زیرساختی، پاسخ جمهوری اسلامی «تصاعدی و شدید» خواهد بود.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251763
-
-<div align="center"><video src="files/post_251763_VahidOOnLine_251763.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251763_VahidOOnLine_251763.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«قیمت این دستمال از همه این اسکناس‌ها بیشتره»
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251762
-
-<div align="center"><video src="files/post_251762_VahidOOnLine_251762.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251762_VahidOOnLine_251762.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علیرضا شفیعی‌خواه، زندانی سابق سیاسی، در ویدیویی با اشاره به گذشت شش ماه از دیماه خونین گفت «امید همچنان زنده است و یاد جاویدنامان را زنده نگه می‌داریم.»
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251761
-
-<div align="center"><img src="files/post_251761_VahidOOnLine_251761.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آنتونیو گوترش، دبیرکل سازمان ملل متحد، روز پنجشنبه اول مرداد با هشدار نسبت به اینکه وضعیت در خاورمیانه «در حال خارج شدن از کنترل است»، افزود: «وقت آن رسیده که [از این بحران] یک گام به عقب برداشته شود.»
-
-گوترش در پیامی خطاب به رهبران جهان در شبکه اجتماعی ایکس نوشت: «درگیری‌ها باید در همه‌جا متوقف شوند.»
-
-او همچنین تاکید کرد: «آزادی کشتیرانی باید بازگردانده شود. دیپلماسی تنها راه پیش‌روست.»
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
