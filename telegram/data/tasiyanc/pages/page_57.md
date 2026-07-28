@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/05/07 01:21
+📅 آخرین بروزرسانی: 1405/05/07 02:22
 
 ---
+
+## tasiyanc — post 6832
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ مخصوص روبیکا
+گیگی ۵۰۰ بدون قطعی🤣🤣🤣
+</div>
+
+## tasiyanc — post 6826
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون بازی شروع شد
+Qatar 🇶🇦 & Switzerland🇨🇭
+</div>
+
+## tasiyanc — post 6824
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به خاطر چس تومن پول میان نمیگن بعضی از چنلا ، راضی ام تا ۱۰۰ سال سیا اینا تبلیغ نزارن رو چنلم
+</div>
 
 ## tasiyanc — post 6823
 
@@ -208,29 +228,5 @@ Vahid online
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴🆕 حملات سایبری به زیرساخت های تمام بانکای کشور کارت و خدمات اغلب بانک ها از دسترس خارج شده است
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6799
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز فروش به احتمال زیاد باز شه ، آیپی ثابتن سرورا 🦦
-</div>
-
-## tasiyanc — post 6798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بخاطر نمک ریختنتون امروز کلا npv نمیزارم 😍
-فقط در صورتی میزارم ک ریکشن قلب بالای ۲۰۰ تا باشه رو پست
-</div>
-
-## tasiyanc — post 6793
-
-<div align="center"><video src="files/post_6793_tasiyanc_6793.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6793_tasiyanc_6793.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واقعاً تأسف می‌خورم به‌حال کسانی که هنوز با تاسیان آشنا نشدند! 😌
-#تست_سرعت
 </div>
 

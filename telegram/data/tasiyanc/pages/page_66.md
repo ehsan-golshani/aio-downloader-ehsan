@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/07 01:21
+📅 آخرین بروزرسانی: 1405/05/07 02:22
 
 ---
+
+## tasiyanc — post 6533
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[24]🚀♂️@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6532
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡موشک - GN 🌙.npvt
+</div>
+
+## tasiyanc — post 6531
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6530
 
@@ -174,47 +200,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 از عصر دارم بمب براتون آماده میکنم عشق کنین الان آماده شده
-</div>
-
-## tasiyanc — post 6503
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار رو از اینجا دنبال کنین + پروکسی
-@Tasiyanproxy 
-✅
-@Tasiyanproxy 
-✅
-@Tasiyanproxy 
-✅
-</div>
-
-## tasiyanc — post 6502
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه های عبری:
-نتانیاهو بی صبرانه منتظر دستور حمله گسترده به ایران از سوی ترامپ است
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6501
-
-<div align="center"><video src="files/post_6501_tasiyanc_6501.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6501_tasiyanc_6501.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 
-🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/07 01:21
+📅 آخرین بروزرسانی: 1405/05/07 02:22
 
 ---
+
+## tasiyanc — post 8358
+
+<div align="center"><img src="files/post_8358_tasiyanc_8358.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😐 ترامپ کلی هزینه کرد که پل تو جنوب رو بزنه، اما بخاطر اینکه رودخونه‌ی کنار پل خشک شده بود، مردم یه جاده خاکی از همونجا درست کردن و تردد میکنن 😂
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت دریافت وایرگارد مخصوص گیم و وبگردی وارد ربات تاسیان شوید بگیرید ظرفیت پر شه لینک پاک میکنم
+
+دریافت کانفیگ 🤜
+</div>
+
+## tasiyanc — post 8349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Multi Location ⚡ Fast.npvt
+</div>
 
 ## tasiyanc — post 8348
 
@@ -212,23 +236,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 از قدیم گفتن مراقب تله مرغابی های زندگیت باش
-</div>
-
-## tasiyanc — post 8315
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این ربات بصورت ناشناس ساخته بودم مجبور کردن اطلاع رسانی کنیم پست ها پاک میشه خواستم بگم جریانو فقط ❤️
-</div>
-
-## tasiyanc — post 8314
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرچ نامحدود ۲۰۰ استارز میکنم از پسفردا چون اینا می‌خوان اطلاعات بزارن ❤️
-</div>
-
-## tasiyanc — post 8313
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
 </div>
 

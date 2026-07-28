@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/07 01:21
+📅 آخرین بروزرسانی: 1405/05/07 02:22
 
 ---
+
+## tasiyanc — post 7742
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چند تا کانفیگ نت مود & وایرگارد مخصوص گیم & اینجکتور داخل ربات گذاشتم بردارید ❤️
+
+👈دریافت کانفیگ ها 💘
+
+دوستانی ک از گروه بن شدن با پشتیبانی در ارتباط باشن
+@StarTasiyan
+</div>
+
+## tasiyanc — post 7733
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حرومزاده ها
+</div>
+
+## tasiyanc — post 7732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه پاس به رونالدو ندادید دیشب
+</div>
 
 ## tasiyanc — post 7731
 
@@ -147,24 +170,5 @@ CR7 GOAT Forever 🇵🇹❤️‍🔥
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پایان یک اسطوره CR7 💔🤔
 @Tasiyanc
-</div>
-
-## tasiyanc — post 7704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رونالدو پر افتخارترین بازیکن جهان
-تا ابد در قلب ما خواهی بود
-</div>
-
-## tasiyanc — post 7702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسپانیا زد 💔
-</div>
-
-## tasiyanc — post 7701
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسطوره بچگی هامون امشب بازی حساسی داره و این آخرین جام جهانی Goat هست
 </div>
 

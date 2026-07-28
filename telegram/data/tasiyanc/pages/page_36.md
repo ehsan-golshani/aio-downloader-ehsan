@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/07 01:21
+📅 آخرین بروزرسانی: 1405/05/07 02:22
 
 ---
+
+## tasiyanc — post 7601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Saiedmusics
+برم رو مادرش یا نه؟ آیدیشو گذاشتم یه اکیپ دارم دارن کل پیامای تلگرامشو درمیارن به کل چنل ناموسی داده ببینم چیکار میکنین
+</div>
+
+## tasiyanc — post 7600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی لف بده😂
+</div>
+
+## tasiyanc — post 7590
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مادران داغ دیده ی دی ماه شما یه فرزند از دست دادید ولی میلیون ها فرزند بدست آوردید ، هرچی از غم و داغ دل شما بگیم کم گفتیم ...
+تا ابد اسم فرزندان شما هك خواهد ماند روی قلب تک تک ایرانیان وطن پرست
+</div>
 
 ## tasiyanc — post 7589
 
@@ -179,33 +199,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fast ⚡️🚀 Premium.npvt
-</div>
-
-## tasiyanc — post 7560
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️⁰⁷@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 7553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-6سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
-
-
- ✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 
