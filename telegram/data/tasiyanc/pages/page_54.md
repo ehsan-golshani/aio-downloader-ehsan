@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/05/06 15:07
+📅 آخرین بروزرسانی: 1405/05/06 16:53
 
 ---
+
+## tasiyanc — post 6910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این endpoit هارو جایگزین قبلی کنین (وایرگارد)
+8.6.112.235:1070
+8.6.112.228:1843
+8.6.112.19:908
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6908
 
@@ -189,11 +199,5 @@ T.me/Tasiyanc ✅
 کانال ۱۲ اسرائیل ⭕️⭕️ ❌
 نعیم قاسم فرمانده حزب الله ترور شد
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[46] 🪐@Tasiyanc.conf
 </div>
 
