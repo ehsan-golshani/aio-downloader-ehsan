@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/05/06 16:53
+📅 آخرین بروزرسانی: 1405/05/06 19:17
 
 ---
+
+## tasiyanc — post 7138
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️ تحریم‌های نفتی ایران لغو شد ( طی توافق نامه)
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️ اسماعیل بقایی سخنگوی وزارت خارجه : همین الان ریاست جمهوری ایران و آمریکا توافق نامه را بصورت آنلاین امضاء کردند
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇹🇷⛓️⚡️VIP -IST.npvt
+</div>
+
+## tasiyanc — post 7134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود لوکیشن🇹🇷
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟🌟
+ss://YWVzLTI1Ni1nY206RmpHM0lQYm55KzBaWVU0L3AxdlVMUDg0R2NLcEdvWnBXS0FheTE2VmhJdz0%3D@51.254.128.106:2083#%F0%9F%87%AB%F0%9F%87%B7FR%E2%9A%A1%20%40Tasiyanc
+Location 🇫🇷 حجم نامحدود
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7131
 
@@ -166,65 +215,5 @@ T.me/Tasiyanc ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ادامه برنامه تیم ملی در جام جهانی 2026
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7103
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقام رونالدو تو ترکیبه 🥹❤️
-</div>
-
-## tasiyanc — post 7102
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-2سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ➡️
-
-مناسب دانلود🎥 وب‌گردی🔍 جمینای 🤖 🚀
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-5 کانفیگ حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-🛡Password Zip: @Tasiyanc
-
-T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7099
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبید رو به راهید؟
-</div>
-
-## tasiyanc — post 7096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟3 کانفیگ اختصاصی دارک تانل 🌟
-
-حجم نامحدود - سرعتی 🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel  🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/05/06 16:53
+📅 آخرین بروزرسانی: 1405/05/06 19:17
 
 ---
+
+## tasiyanc — post 5689
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass @Tasiyanc
+
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip تست شده همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5688
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅V2rayNG 3 vip server 🔐 vless://bafacd98-136a-4530-838d-4e5c51838dac@188.226.180.209:443?path=%2Fshows%2Fregister%2Fjuzibaipiao&security=tls&encryption=none&insecure=0&host=juzi8186.qea.ccwu.cc&type=ws&allowInsecure=0&sni=juzi8186.qea.ccwu.cc#%40Tasiyanc…
+</div>
+
+## tasiyanc — post 5687
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅V2rayNG 3 vip server 🔐
+vless://bafacd98-136a-4530-838d-4e5c51838dac@188.226.180.209:443?path=%2Fshows%2Fregister%2Fjuzibaipiao&security=tls&encryption=none&insecure=0&host=juzi8186.qea.ccwu.cc&type=ws&allowInsecure=0&sni=juzi8186.qea.ccwu.cc#%40Tasiyanc%20%F0%9F%87%B3%F0%9F%87%B1
+vmess://eyJhZGQiOiIxNzIuMjMzLjE3Ljc2IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiIiLCJpZCI6IjA0NjIxYmFlLWFiMzYtMTFlYy1iOTA5LTAyNDJhYzEyMDAwMiIsImluc2VjdXJlIjoiMCIsIm5ldCI6InRjcCIsInBhdGgiOiIvIiwicG9ydCI6IjIyMzI0IiwicHMiOiJAVGFzaXlhbmMgQnJhemlsIHZpcCIsInNjeSI6ImF1dG8iLCJzbmkiOiIiLCJ0bHMiOiIiLCJ0eXBlIjoibm9uZSIsInYiOiIyIn0
+vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=tls&encryption=none&insecure=0&host=uin-ape.pages.dev&type=ws&allowInsecure=0&sni=uin-ape.pages.dev#%40Tasiyanc%20%E2%9A%A1
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ ویتوری یکی دوتا بزارم بعدش بریم سمت نپستر
+</div>
+
+## tasiyanc — post 5685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+27 k 🥹🫂
+ممنون که با تاسیان همراهید
+</div>
 
 ## tasiyanc — post 5684
 
@@ -139,51 +181,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Mci [22].npvt
-</div>
-
-## tasiyanc — post 5667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان 📱
-
-⛈سرور سرور تست شده همراه بقیه اپراتورا تست کنن⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5666
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 🇸🇦
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈3 سرور وی ای پی تست شده وای‌فای ⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 V2RayNG wifi
-
-vless://d37a75db-76b6-4db8-b213-0d5b044d138d@172.64.152.100:443?path=%2F&security=tls&encryption=none&insecure=0&host=hio-awx.pages.dev&type=ws&allowInsecure=0&sni=hio-awx.pages.dev#%40Tasiyanc%20%F0%9F%87%BA%F0%9F%87%B8
-
-﻿@Tasiyanc ☑
-</div>
-
-## tasiyanc — post 5664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-WİFİ موشک.npvt
-</div>
-
-## tasiyanc — post 5663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گوشه ای از محبت مردم عزیز وطنم ❤️ همه رو نمیشه بزارم ، سپاس از همتون
 </div>
 

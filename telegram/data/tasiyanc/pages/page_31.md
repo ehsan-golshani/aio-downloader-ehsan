@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/06 16:53
+📅 آخرین بروزرسانی: 1405/05/06 19:17
 
 ---
+
+## tasiyanc — post 7755
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری حملات آمریکا به اسکله حقانی در سیریك
+</div>
+
+## tasiyanc — post 7754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واکنش اسرائیل به جنگ فعلی : خوابیما قطعش کنین
+</div>
+
+## tasiyanc — post 7753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنگه هرمز بسته شد💪
+</div>
+
+## tasiyanc — post 7752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری فرودگاه بندرعباس زدن
+</div>
+
+## tasiyanc — post 7751
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنظرتون جنگ تمام عیار میشه اسراییل ورود می‌کنه؟ یا آتش بس میشه تا صبح
+</div>
 
 ## tasiyanc — post 7750
 
@@ -126,43 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دروازه بان مصرو 😐😂
-</div>
-
-## tasiyanc — post 7719
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مصر یک صفر جلوئه
-</div>
-
-## tasiyanc — post 7718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقایقی بعد آغاز بازی , چند چند میشه؟
-
-Egypt 🇪🇬 🇦🇷 Argentina
-</div>
-
-## tasiyanc — post 7717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP 🎯 @Tasiyanc.nm
-</div>
-
-## tasiyanc — post 7716
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه وضع ریکشن زدنه
-</div>
-
-## tasiyanc — post 7713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال  ⛓
 </div>
 
