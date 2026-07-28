@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/06 12:45
+📅 آخرین بروزرسانی: 1405/05/06 15:07
 
 ---
+
+## tasiyanc — post 8106
+
+<div align="center"><img src="files/post_8106_tasiyanc_8106.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه مربی پرواز وسط آموزش به شاگرد 22 ساله‌اش گفته “ ازینجا به بعد خودت میدونی چیکار کنی” بعد در هواپیمارو باز کرده و پریده و خودکشی کرده،شاگرد هم در نهایت موفق شده هواپیمارو تنهایی و سالم فرود بیاره.
+
+@Tasiyanc ⭐️| مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8103
+
+<div align="center"><img src="files/post_8103_tasiyanc_8103.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ابوالفضل ملایی، سربازی که فقط یک روز از خدمتش مونده بود و مادرش منتظر بود برگرده خونه، اما جنازه‌شو برای مادرش آوردن💔
+
+@Tasiyanc ⭐️| مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8102
 
@@ -218,24 +238,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 شدت انفجارها به حدی بوده که 10 نفر درجا کشته و بیشتر از 15 نفر زخمی شدن که حال دو نفرشون وخیمه.
 طبق گفته حال وش، آمریکا امشب به آسایشگاه سربازها هم حمله کرده که تعدادی از سربازها موقع استراحت، کشته و زخمی شدن.. 🖤
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8073
-
-<div align="center"><img src="files/post_8073_tasiyanc_8073.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 طبق مطالعات، دخترا عاشق اینن، اون لحظه‌ای که ازشون خوشت اومدو براشون تعریف کنی.
-
-مثلا دو تایی خوابیدین رو بالشت، یهویی میگه چیشد از من خوشت اومد؟
-این لحظه باید وقت بذاری و با ذوق و شوق براشون تعریف کنی که چیشد ازشون خوشت اومد.
-صد بارم تعریف کنی بازم خوششون میاد، قشنگ جزئیات ظاهری و رفتاری رو کامل بگو که از چه چیزی‌شون خوشت اومد.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8072
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گزارش‌های اولیه حاکی از آن است که نیروگاه «کیش» در استان هرمزگان ایران توسط یک موشک هدف قرار گرفت و تجهیزات آن آسیب دید. قطعی برق پیش‌بینی می‌شود. @TasiyanProxy✅
 </div>
 

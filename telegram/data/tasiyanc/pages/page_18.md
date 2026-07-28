@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/06 12:45
+📅 آخرین بروزرسانی: 1405/05/06 15:07
 
 ---
+
+## tasiyanc — post 8245
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلاااااااااار 195 😐
+</div>
+
+## tasiyanc — post 8244
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلاااااااااار 195 😐
+</div>
 
 ## tasiyanc — post 8243
 
@@ -170,23 +182,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨جمهوری اسلامی یکی از رادار های آمریکا در کویت را مورد هدف قرار داد
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8223
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وطن عشق من🇮🇷
-هموطن جان من💔
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8222
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⁉️پل ارتباطی جم سیراف رو هم زدن
 
 @Tasiyanc✅
 </div>
