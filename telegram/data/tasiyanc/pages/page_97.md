@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 97
 
-📅 آخرین بروزرسانی: 1405/05/06 22:27
+📅 آخرین بروزرسانی: 1405/05/07 00:00
 
 ---
+
+## tasiyanc — post 5718
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده با همراه اول , بقیه تست کنن⛈ 
+
+رمز : ″ @Tasiyanc ″
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه جور نتارو باز کردن دوباره مردم میرن کانفیگ میخرن ، تف به شرفتون
+</div>
 
 ## tasiyanc — post 5715
 
@@ -174,25 +193,5 @@ vless://6202b230-417c-4d8e-b624-0f71afa9c75d@77.75.199.43:443?security=tls&encry
 V2RayNg 🇬🇧🚀
 vless://6202b230-417c-4d8e-b624-0f71afa9c75d@91.193.58.140:443?path=%2F%3Fhttps%253A%252F%252Ft.me%252FWangCai2%25F0%259F%2587%25A8%25F0%259F%2587%25B3%3D&security=tls&encryption=none&insecure=0&host=sni.111000.v6.rocks&fp=chrome&type=ws&allowInsecure=0&sni=sni.111000.v6.rocks#%40Tasiyanc%20%F0%9F%87%AC%F0%9F%87%A7%F0%9F%94%A5
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈سرور vip تست شده همراه اول⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5693
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با بازگشت اینترنت بین المللی، جهت اتصالِ راحت‌ شما براتون یک فایل نپسترنت با ۶ تا کانفیگ آماده کردیم ❤️
-
-دریافت کانفیگ نپسترنت ( کاملا رایگان )
 </div>
 

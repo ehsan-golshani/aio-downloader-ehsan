@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/06 22:27
+📅 آخرین بروزرسانی: 1405/05/07 00:00
 
 ---
+
+## tasiyanc — post 8691
+
+<div align="center"><img src="files/post_8691_tasiyanc_8691.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه عکسیه که چند روزه از اعتراضات دی ماه وایرال شده، پیکر بی جان یه پسر جوون افتاده وسط خیابون و خون ازش سرازیر شده.
+
+این عکس مربوط به جاویدنام علی احمدیه که فقط ۱۴ سال سن داشت و خرج خواهر معلولش رو میداد.
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8690
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چخبرا ، امتحانات چطور دادید؟
+</div>
 
 ## tasiyanc — post 8689
 
@@ -194,29 +212,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 مقر حوثی ها در جزیره کمران توسط عربستان بمباران شد
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8662
-
-<div align="center"><img src="files/post_8662_tasiyanc_8662.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تکمیلی
-نیروی هوایی عربستان بندر الحدید مواضع حوثی هارو بمبارون کرد
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8661
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت دونالد ترامپ :
-
-ایران، باورنکردنیه، شروع کرد به شلیک کردن به همه‌جای خاورمیانه.
-اگه سلاح هسته‌ای داشت، حتما ازش استفاده میکرد.
-
-
-@Tasiyanc ☑️
 </div>
 

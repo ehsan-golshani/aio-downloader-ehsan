@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/06 22:27
+📅 آخرین بروزرسانی: 1405/05/07 00:00
 
 ---
+
+## tasiyanc — post 8092
+
+<div align="center"><img src="files/post_8092_tasiyanc_8092.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیس و دیس بک😂
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری بر اساس تصمیم ستاد عالی آزمون های وزارت آموزش و پرورش و با توجه به شرایط خاص کشور در استان های هرمزگان، بوشهر، خوزستان و سیستان_و_بلوچستان امتحانات نهایی تمامی رشته های تحصیلی پایه دوازدهم در روز پنجشنبه؛ مورخ 1405/04/25 و پایه یازدهم در روز شنبه، 1405/04/27 لغو و به زمان دیگری که متعاقباً اعلام خواهد شد، موکول می شود.
+
+@Tasiyanc ⭐️ | بانك کانفیگ
+</div>
 
 ## tasiyanc — post 8090
 
@@ -186,30 +205,6 @@
 سری جدید پول سلامتی نمیاره😐
 
 بانو شکیرا خواننده محبوب با ۵۰ سال سن :
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8058
-
-<div align="center"><video src="files/post_8058_tasiyanc_8058.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8058_tasiyanc_8058.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚫️مادر عمو پورنگ ( داریوش فرضیایی) فوت کرد
-ویدیو نشون میده از امروز شاهد پیر شدن عمو پورنگ خواهیم بود 🥹
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8055
-
-<div align="center"><img src="files/post_8055_tasiyanc_8055.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پول خوشبختی نمیاره :
-
-بانو برونا روتا هستن دوس دختر (اکس) رودریگو بازیکن کصمشنگ رئال مادرید 😐
 
 @Tasiyanc ⭐️
 </div>

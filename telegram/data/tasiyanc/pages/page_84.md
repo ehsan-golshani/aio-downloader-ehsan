@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/05/06 22:27
+📅 آخرین بروزرسانی: 1405/05/07 00:00
 
 ---
+
+## tasiyanc — post 6052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عکس و ..؟
+</div>
+
+## tasiyanc — post 6051
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب بریم به آدرس و شماره تلفن یا چیزای دیگه بدم؟
+</div>
 
 ## tasiyanc — post 6050
 
@@ -120,17 +132,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اره برامنم امروز پرید
-</div>
-
-## tasiyanc — post 6028
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم لیمیت خوردم
-</div>
-
-## tasiyanc — post 6027
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم اکانتم پرید
 </div>
 

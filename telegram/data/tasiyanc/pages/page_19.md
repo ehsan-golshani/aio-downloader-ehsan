@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/06 22:27
+📅 آخرین بروزرسانی: 1405/05/07 00:00
 
 ---
+
+## tasiyanc — post 8234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ تست شده 🔸
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون 📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 💠
+</div>
+
+## tasiyanc — post 8233
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ❤️
+</div>
 
 ## tasiyanc — post 8232
 
@@ -152,21 +178,5 @@
 🚨🚨دو انفجار سنگین در قشم
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برق ایرانشهر انگار کاملا رفته
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢 حمله آمریکا به شهر ویسیان لرستان
-
-@Tasiyanc✅
 </div>
 

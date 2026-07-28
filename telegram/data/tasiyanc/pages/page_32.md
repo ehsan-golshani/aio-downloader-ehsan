@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/06 22:27
+📅 آخرین بروزرسانی: 1405/05/07 00:00
 
 ---
+
+## tasiyanc — post 7730
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سوپرررررر گللللللل زد
+</div>
+
+## tasiyanc — post 7729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسییییییییی
+</div>
 
 ## tasiyanc — post 7722
 
@@ -154,19 +166,5 @@ CR7 GOAT Forever 🇵🇹❤️‍🔥
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 لبیك یا رونالدو ، امیدوارم امشب خوشحال باشی ❤️ 7
-</div>
-
-## tasiyanc — post 7699
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب بازی حساس ساعت 22:30 🏆
-
-🔵 Spain 🇪🇸 Portugal 🇵🇹 🐯
-</div>
-
-## tasiyanc — post 7698
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه خبرا خوبید؟
 </div>
 

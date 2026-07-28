@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/06 22:27
+📅 آخرین بروزرسانی: 1405/05/07 00:00
 
 ---
+
+## tasiyanc — post 7916
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عکس مربوط به انفجار دزفول فیکه.
+</div>
+
+## tasiyanc — post 7915
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦅⚡️ WAR.npvt
+</div>
 
 ## tasiyanc — post 7914
 
@@ -215,23 +227,5 @@
 
 @Tasiyanc✅
 #Mobina
-</div>
-
-## tasiyanc — post 7877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاش دانشمندان می‌توانستند دستگاهی اختراع کنند که خاطرات را مثل عطر توی یک بطری حفظ کنند. آن‌وقت می‌شد هر زمان که آرزو کردیم بطری را برداریم و آن لحظه را دوباره زندگی کنیم.
-- ربکا | دافنه دوموریه
-✔️ @Tasiyanc 🔋
-#Petros
-</div>
-
-## tasiyanc — post 7876
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حس میکنم نه دیگه ما می‌دونیم چی میشه، نه جمهوری اسلامی نه ترامپ. سرنوشت‌مون رو دادن دست کارگردان سریال فرام.
-@Tasiyanc 
-⭐️
-#Navid
 </div>
 

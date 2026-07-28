@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/06 22:27
+📅 آخرین بروزرسانی: 1405/05/07 00:00
 
 ---
+
+## tasiyanc — post 8288
+
+<div align="center"><img src="files/post_8288_tasiyanc_8288.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+09197478492
+
+ثمینه جعفری ، مادر جنده اعظم
+</div>
+
+## tasiyanc — post 8287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی با عرزشی بحث میکنم احساس میکنم نجس میشم و مثل این میمونه ۱ ماه تو تابستون نری حموم
+</div>
 
 ## tasiyanc — post 8286
 
@@ -150,21 +166,5 @@ JAVID SHAH 👑
 
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8266
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ⭕️ سنتکام: امروز ( به وقت آمریکا ) سنگین‌ترین حمله از ابتدای جنگ به جمهوری اسلامی وارد خواهد شد
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار از چنل اصلی پوشش بدیم ؟ همه بگن
-
-بله 👍 نه 👎
 </div>
 

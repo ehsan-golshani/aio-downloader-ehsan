@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/06 22:27
+📅 آخرین بروزرسانی: 1405/05/07 00:00
 
 ---
+
+## tasiyanc — post 8771
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
+</div>
+
+## tasiyanc — post 8770
+
+<div align="center"><a href="files/post_8770_𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی مولتی لوکیشن⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8769
 
@@ -233,18 +265,5 @@ Vip for TS ⚡🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Multi Loc ⚡ @Tasiyanc.npvt
-</div>
-
-## tasiyanc — post 8747
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به وقت اذان صبح 💔
-</div>
-
-## tasiyanc — post 8745
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر هارو دنبال کنید از اینجا
-@TasiyanProxy
 </div>
 
