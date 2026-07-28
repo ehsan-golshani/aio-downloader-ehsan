@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/06 19:17
+📅 آخرین بروزرسانی: 1405/05/06 22:27
 
 ---
+
+## tasiyanc — post 6632
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Homayoun Shajarian & Sohrab Pournazeri – Irane Man
+</div>
+
+## tasiyanc — post 6630
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Homayoun Shajarian & Sohrab Pournazeri – Irane Man
+</div>
+
+## tasiyanc — post 6629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به یاد فرزندان ایران 🖤 ۱۸ & ۱۹
+</div>
 
 ## tasiyanc — post 6622
 
@@ -152,43 +170,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پخت پز ب عشق خودتون ، قطعی باشه نباشه پیش همیم🩷🤝
-</div>
-
-## tasiyanc — post 6575
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6574
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آمریکا میخواد بزنه تقصیر منه ریکشن نمیزنین؟
-</div>
-
-## tasiyanc — post 6573
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی متد جدید همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-PASSWORD 🔑 : @Tasiyanc
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
