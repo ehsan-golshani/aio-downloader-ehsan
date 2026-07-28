@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/06 03:25
+📅 آخرین بروزرسانی: 1405/05/06 06:59
 
 ---
+
+## tasiyanc — post 6260
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP OCTOPUS SV⚡🐙.npvt
+</div>
 
 ## tasiyanc — post 6259
 
@@ -191,11 +197,5 @@ HOT 🌶️.npvt
 اتصال به سرورها ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6236
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنام کو😐😐😐😐😐😐😐😐😐😐
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/06 03:25
+📅 آخرین بروزرسانی: 1405/05/06 06:59
 
 ---
+
+## tasiyanc — post 7185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡⚡🇩🇪.npvt
+</div>
 
 ## tasiyanc — post 7184
 
@@ -244,11 +250,5 @@ Game DNS
 
 @Tasiyanc 
 ✅ | تاسیان
-</div>
-
-## tasiyanc — post 7145
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز June 18، روز جهانی چشم خوشگلاست. @Tasiyanc ✅ | تاسیان
 </div>
 

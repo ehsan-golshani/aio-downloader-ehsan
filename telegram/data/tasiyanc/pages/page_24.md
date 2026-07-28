@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/06 03:25
+📅 آخرین بروزرسانی: 1405/05/06 06:59
 
 ---
+
+## tasiyanc — post 8058
+
+<div align="center"><video src="files/post_8058_tasiyanc_8058.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8058_tasiyanc_8058.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚫️مادر عمو پورنگ ( داریوش فرضیایی) فوت کرد
+ویدیو نشون میده از امروز شاهد پیر شدن عمو پورنگ خواهیم بود 🥹
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8055
 
@@ -260,19 +272,5 @@
 ‏نسل جدید چه میدونه "بقیه پول" چیه
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7996
-
-<div align="center"><video src="files/post_7996_tasiyanc_7996.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7996_tasiyanc_7996.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادیتی از محمدرضا شاه فقید که تو چند ساعت، میلیونی بازدید خورده
-🇮🇷
-
-@Tasiyanc 
-⭐️
 </div>
 
