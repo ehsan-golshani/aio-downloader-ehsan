@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/07 02:22
+📅 آخرین بروزرسانی: 1405/05/07 03:23
 
 ---
+
+## tasiyanc — post 8462
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویس علی دایی در مورد باخت آرژانتین 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8461
 
@@ -140,11 +148,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وقت اول اضافه تموم شد ، میریم پنالتیا؟
-</div>
-
-## tasiyanc — post 8440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل شد برا اسپانیا ولی داور خطا گرف
 </div>
 

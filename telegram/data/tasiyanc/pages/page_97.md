@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 97
 
-📅 آخرین بروزرسانی: 1405/05/07 02:22
+📅 آخرین بروزرسانی: 1405/05/07 03:23
 
 ---
+
+## tasiyanc — post 5724
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گپ تاسیان - خودمم هستم بیاید
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 5723
 
@@ -175,18 +182,6 @@ sv Country 🇬🇧
 📱
 
 ⛈ تمام اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5701
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈ سرور 🇫🇮 vip تست شده روی همراه بقیه اپراتورا تست کنن⛈ 
 
 
 🚀 @Tasiyanc ✅

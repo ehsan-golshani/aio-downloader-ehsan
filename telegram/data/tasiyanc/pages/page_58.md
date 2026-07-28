@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/05/07 02:22
+📅 آخرین بروزرسانی: 1405/05/07 03:23
 
 ---
+
+## tasiyanc — post 6801
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴🆕 حملات سایبری به زیرساخت های تمام بانکای کشور کارت و خدمات اغلب بانک ها از دسترس خارج شده است
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6799
 
@@ -182,21 +189,5 @@ VIP⚡ APEX ⛓️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡ NEXUS 🪐.npvt
-</div>
-
-## tasiyanc — post 6774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

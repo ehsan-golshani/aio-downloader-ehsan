@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/07 02:22
+📅 آخرین بروزرسانی: 1405/05/07 03:23
 
 ---
+
+## tasiyanc — post 8440
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گل شد برا اسپانیا ولی داور خطا گرف
+</div>
 
 ## tasiyanc — post 8439
 
@@ -141,11 +147,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 همه چی به کنار خوب این عربارو گاییدن🤣
 بی خایه های کودن
-</div>
-
-## tasiyanc — post 8418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شبکه 13 اسرائیل: ترامپ پیامی به کشورهای خلیج ارسال کرد: «اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.» @TASIYANC ✅
 </div>
 

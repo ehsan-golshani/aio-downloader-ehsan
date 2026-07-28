@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/07 02:22
+📅 آخرین بروزرسانی: 1405/05/07 03:23
 
 ---
+
+## tasiyanc — post 6166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید 📱
+
+4سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها 
+⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6165
 
@@ -191,11 +208,5 @@ Premium 💙BLUE.npvt
 آموزش ویدیویی ⏩
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Jzzb 🔥Vip.npvt
 </div>
 

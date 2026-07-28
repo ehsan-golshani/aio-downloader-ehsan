@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/07 02:22
+📅 آخرین بروزرسانی: 1405/05/07 03:23
 
 ---
+
+## tasiyanc — post 7883
+
+<div align="center"><img src="files/post_7883_tasiyanc_7883.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc✅
+#Mobina
+</div>
 
 ## tasiyanc — post 7882
 
@@ -303,11 +312,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اخبار جدید درباره تعویق امتحانات 👉
 🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
-</div>
-
-## tasiyanc — post 7834
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ رسما و شرعا آغاز شد
 </div>
 

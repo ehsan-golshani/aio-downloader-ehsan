@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/05/07 02:22
+📅 آخرین بروزرسانی: 1405/05/07 03:23
 
 ---
+
+## tasiyanc — post 5954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانسل قوی وصله
+</div>
 
 ## tasiyanc — post 5953
 
@@ -168,12 +174,5 @@ Proxy 0
 Proxy 1
 Proxy 2
 Proxy 3
-</div>
-
-## tasiyanc — post 5930
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زاپاس تاسیان ✅ حتما جوین شوید
-https://t.me/TasiyanOwner
 </div>
 

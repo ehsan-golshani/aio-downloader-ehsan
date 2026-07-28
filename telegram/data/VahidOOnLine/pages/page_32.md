@@ -1,8 +1,50 @@
 # آرشیو کانال VahidOOnLine - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/07 02:20
+📅 آخرین بروزرسانی: 1405/05/07 03:21
 
 ---
+
+## VahidOOnLine — post 251855
+
+<div align="center"><img src="files/post_251855_VahidOOnLine_251855.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک‌پست -به نقل از یک منبع آگاه- گزارش داد، یک حمله دیگر جمهوری اسلامی، پایگاه هوایی آمریکا در اردن را هدف قرار داده است.
+
+به گفته همین منبع، این حمله توانست با عبور از از سامانه‌های دفاعی آمریکا به یک انبار تسلیحاتی در نزدیکی همان پایگاه هوایی اصابت کند؛ این انبار تسلیحاتی همان موضعی بود که چند روز پیشتر نیز سه نظامی آمریکایی براثر حمله جمهوری اسلامی، در آن کشته شده بودند.
+
+نیویورک‌پست در ادامه این گزارش نوشت، با آنکه دستگاه‌های اطلاعاتی خارجی پیش‌تر درباره احتمال وقوع چنین حمله‌ای هشدار داده بودند، اما سامانه‌های دفاعی آمریکا قادر به دفع آن نشدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251854
+
+<div align="center"><video src="files/post_251854_VahidOOnLine_251854.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251854_VahidOOnLine_251854.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️رسانه‌های ایران با انتشار تصاویری از مشاهده یک شیء پرنده در حال سقوط در آسمان قشم خبر دادند.
+بر اساس این تصاویر، این شیء در حال از دست دادن ارتفاع بوده و به سمت زمین سقوط می‌کند، اما هنوز جزئیات دقیقی درباره ماهیت آن منتشر نشده است.پ
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251845
+
+<div align="center"><img src="files/post_251845_VahidOOnLine_251845.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آسه‌آن در بیانیه پایانی نشست وزیران خارجه خود، با ابراز نگرانی از تشدید درگیری‌ها پس از حملات اسرائیل و آمریکا به جمهوری اسلامی و حملات تلافی‌جویانه حکومت ایران، خواستار خویشتنداری، حل اختلاف‌ها از راه دیپلماسی و حفظ امنیت و آزادی کشتیرانی در تنگه هرمز شد.
+
+این اتحادیه همچنین از ادامه تلاش‌های دیپلماتیک و میانجی‌گری برای کاهش تنش حمایت کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251844
 
@@ -219,47 +261,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سفارت چین در اسرائیل در پیامی به شهروندان چینی مقیم این کشور، خواسته است که در روزهای آینده از خروج‌های غیرضروری خودداری کنند، پناهگاه‌ها و مسیرهای تخلیه را شناسایی کنند و به محض دریافت هشدار تلفن همراه یا شنیدن آژیر حمله هوایی، فورا به پناهگاه بروند و تدابیر ایمنی را رعایت کنند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251826
-
-<div align="center"><video src="files/post_251826_VahidOOnLine_251826.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251826_VahidOOnLine_251826.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️صداوسیما از شنیده شدن صدای انفجار در غرب بندرعباس و حوالی امیدیه خبر داد.
-همزمان، کانال تلگرامی «وحید آنلاین» با نتشار ویدیویی به نقل از گزارش‌های مردمی از وقوع چندین انفجار در این مناطق خبر داده است.
-این گزارش‌ها در حالی منتشر می‌شود که پیش‌تر فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرده بود نیروهای آمریکایی سیزدهمین شب متوالی حملات خود علیه اهداف نظامی در ایران را آغاز کرده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251825
-
-<div align="center"><img src="files/post_251825_VahidOOnLine_251825.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رییس روابط عمومی وزارت بهداشت جمهوری اسلامی اعلام کرد که از ۶ تیر تا ساعت ۹ صبح اول مرداد،در حملات آمریکا ۵۵ تن کشته و ۶۲۹ نفر مصدوم شده‌اند.
-
-او گفت در میان مصدومان، ۴۶ زن و ۲۴ فرد زیر ۱۸ سال و در میان کشته‌شدگان، ۶ زن و ۳ شخص زیر ۱۸ سال هستند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251821
-
-<div align="center"><img src="files/post_251821_VahidOOnLine_251821.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صدا و سیمای جمهوری اسلامی گزارش داد منابع خبری از شنیده شدن صدای انفجار در ساحل جنوبی جزیره قشم خبر داده‌اند.
-
-بر اساس این گزارش، هنوز محل دقیق و منشا این انفجارها مشخص نیست.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

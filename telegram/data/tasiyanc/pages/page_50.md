@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/05/07 02:22
+📅 آخرین بروزرسانی: 1405/05/07 03:23
 
 ---
+
+## tasiyanc — post 7083
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦦 تمام متد هامون با سرعت وصلن پستهای بالا وصل شید 
+👍
+</div>
 
 ## tasiyanc — post 7082
 
@@ -234,11 +241,5 @@ T.me/Tasiyanc
 hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@185.228.139.247:4433?security=tls&insecure=1&sni=de2.xiaoliyu.cyou#%F0%9F%87%A9%F0%9F%87%AA%F0%9F%AA%90%40Tasiyanc%F0%9F%AA%90
 Location 🇩🇪
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇳🇱⚡⚡GGG.npvt
 </div>
 

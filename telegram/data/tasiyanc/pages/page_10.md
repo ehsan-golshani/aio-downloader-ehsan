@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/07 02:22
+📅 آخرین بروزرسانی: 1405/05/07 03:23
 
 ---
+
+## tasiyanc — post 8486
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 20 July روز جهانی ماهه
+
+به تمام دختر پسرای چنلمون تبریك میگیم این روز رو 🌚
+</div>
 
 ## tasiyanc — post 8484
 
@@ -184,14 +192,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خوبه به ترامپ میکروفن ندادن وگرنه میخواست بگه ایران نباید سلاح هسته ای داشته باشه وسط زمین
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویس علی دایی در مورد باخت آرژانتین 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
 
 @TASIYANC ✅
 </div>
