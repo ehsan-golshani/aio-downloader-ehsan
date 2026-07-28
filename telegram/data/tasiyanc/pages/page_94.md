@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/05/07 00:00
+📅 آخرین بروزرسانی: 1405/05/07 01:21
 
 ---
+
+## tasiyanc — post 5792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♨️ فعال شدن پدافند در بندرعباس
+</div>
 
 ## tasiyanc — post 5791
 
@@ -170,11 +176,5 @@ vless://4dc0eec9-f0e1-4755-be7e-7ba628522d1b@91.99.145.207:443?path=%2F&security
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ریکشن 😐😐?
-</div>
-
-## tasiyanc — post 5765
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-PREMIUM 💥.npvt
 </div>
 

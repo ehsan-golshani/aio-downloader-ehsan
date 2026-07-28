@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/07 00:00
+📅 آخرین بروزرسانی: 1405/05/07 01:21
 
 ---
+
+## tasiyanc — post 8772
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴علیرضا سپاهی، یک تن از زندانیان سیاسی که قرار بود سحرگاه دیروز همزمان با برادر خود، ابوالفضل سپاهی و همچنین امیرحسین صفری در میدان علیخانی اعدام شود، اکنون در بیمارستان الزهرا اصفهان تحت تدابیر امنیتی بستری است.
+
+او در جریان فرایند انتقال به محل اعدام دچار سکته قلبی شده بود.
+
+@TasiyanProxy ⭐️| رسانه مردمی
+</div>
 
 ## tasiyanc — post 8771
 
@@ -11,8 +21,6 @@
 </div>
 
 ## tasiyanc — post 8770
-
-<div align="center"><a href="files/post_8770_𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت🔐
@@ -259,11 +267,5 @@ Vip for TS ⚡🔥.npvt
 🌐 betinja.bet
 کانال بونوس های رایگان r6
 @betinjabet
-</div>
-
-## tasiyanc — post 8750
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Multi Loc ⚡ @Tasiyanc.npvt
 </div>
 

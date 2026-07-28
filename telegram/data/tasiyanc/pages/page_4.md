@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/07 00:00
+📅 آخرین بروزرسانی: 1405/05/07 01:21
 
 ---
+
+## tasiyanc — post 8692
+
+<div align="center"><video src="files/post_8692_tasiyanc_8692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8692_tasiyanc_8692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺صحبت های شگفت‌انگیز پدر بمب اتم «رابرت اوپنهایمر» ...
+اکنون من خود مرگ شده ام .... نابودگر جهان!
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8691
 
@@ -205,12 +218,5 @@
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 مقر حوثی ها در جزیره کمران توسط عربستان بمباران شد
-@Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,55 @@
 # آرشیو کانال VahidOOnLine - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/06 23:57
+📅 آخرین بروزرسانی: 1405/05/07 01:18
 
 ---
+
+## VahidOOnLine — post 251516
+
+<div align="center"><video src="files/post_251516_VahidOOnLine_251516.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251516_VahidOOnLine_251516.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کمیسیون دفاع پارلمان بلغارستان با پیشنهاد دولت برای استقرار موقت هواپیماهای سوخت‌رسان و نیروهای نظامی آمریکا در این کشور موافقت کرد؛ طرحی که برای اجرا به تصویب نهایی پارلمان نیاز دارد.
+
+بر اساس این طرح، حداکثر هشت هواپیمای سوخت‌رسان و ۲۵۰ نیروی نظامی آمریکا می‌توانند به طور موقت در بلغارستان مستقر شوند.
+
+گفت‌وگو با لیلی نیک‌فر، خبرنگار ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251515
+
+<div align="center"><video src="files/post_251515_VahidOOnLine_251515.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251515_VahidOOnLine_251515.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنی گانتس، رهبر حزب وحدت ملی و وزیر دفاع پیشین اسرائیل، نسبت به توافق ۳۰ ساله هسته‌ای آمریکا و عربستان سعودی هشدار داد و گفت برنامه هسته‌ای غیرنظامی عربستان، بدون ائتلاف منطقه‌ای، امنیت اسرائیل را تهدید می‌کند.
+
+گفت‌وگو با مهدی بیگی، خبرنگار ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251514
+
+<div align="center"><img src="files/post_251514_VahidOOnLine_251514.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری فارس عصر چهارشنبه ۳۱ تیرماه از شنیده شدن صدای سه انفجار در بندر سیریک استان هرمزگان خبر داد.
+
+به گفته مقام‌های محلی هنوز منشاء این انفجارها مشخص نیست. با این حال برخی منابع می‌گویند یک دکل مخابراتی در این منطقه مورد حمله قرار گرفته است.
+
+سنتکام هنوز واکنشی به این خبر نشان نداده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251513
 
@@ -239,49 +286,6 @@ iranintl
 
 یک کاربر اسرائیلی ساکن بندر ایلات هم ویدیویی را منتشر کرده که دود ناشی از انفجار را در این منطقه نشان می‌دهد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251487
-
-<div align="center"><video src="files/post_251487_VahidOOnLine_251487.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251487_VahidOOnLine_251487.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ویدیوهای منتشرشده از شیراز، شامگاه سه‌شنبه ۳۰ تیرماه، آتش‌سوزی گسترده در ارتفاعات کوه دراک را نشان می‌دهد؛ آتشی که بخش‌هایی از مراتع این منطقه را دربر گرفته است.
-
-بر اساس گزارش‌ها، آتش‌نشانان و نیروهای امدادی در محل حادثه حضور دارند و عملیات مهار آتش همچنان ادامه دارد. علت آغاز این آتش‌سوزی هنوز مشخص نیست و گفته شده موضوع در دست بررسی است.
-
-مقام‌ها و رسانه‌های جمهوری اسلامی هنوز گزارشی درباره رابطه احتمالی این آتش‌سوزی‌ها با حملات آمریکا منتشر نکرده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251486
-
-<div align="center"><video src="files/post_251486_VahidOOnLine_251486.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251486_VahidOOnLine_251486.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوی رسیده به ایران اینترنشنال از جنوب استان آذربایجان غربی، بامداد چهارشنبه صدای پدافند در آسمان مهاباد شنیده شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251485
-
-<div align="center"><video src="files/post_251485_VahidOOnLine_251485.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251485_VahidOOnLine_251485.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گزارش و ویدیوهای رسیده به ایران اینترنشنال، تیپ سپاه امام حسن مجتبی در بهبهان استان خوزستان، بامداد چهارشنبه هدف حمله موشکی قرار گرفت و دچار آتش‌سوزی شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/07 00:00
+📅 آخرین بروزرسانی: 1405/05/07 01:21
 
 ---
+
+## tasiyanc — post 7824
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دریافت کانفیگ نت ملی در صورت قطعی 👉 ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
+</div>
 
 ## tasiyanc — post 7823
 
@@ -183,12 +189,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پروفایل چنل با اجازتون عوض شد ❤️
-</div>
-
-## tasiyanc — post 7785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجب پخت پزی شد 💥 اندپوینتای جدید سرعتی
-دوستانی ک آیفون دارن تو ویندسکرایب بزنید
 </div>
 
