@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/06 09:48
+📅 آخرین بروزرسانی: 1405/05/06 12:45
 
 ---
+
+## tasiyanc — post 7293
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 New Protocol⚡️سرعتی
+
+hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls&insecure=0&sni=de1.xiaoliyu.cyou#T.me%2FTasiyanc%20%F0%9F%87%A9%F0%9F%87%AA%E2%9A%A1%E2%81%B0%C2%B9
+hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls&insecure=0&sni=de1.xiaoliyu.cyou#T.me%2FTasiyanc%20%F0%9F%87%A9%F0%9F%87%AA%E2%9A%A1%E2%81%B0%C2%B2
+
+📍🇩🇪
+
+✅ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7291
+
+<div align="center"><img src="files/post_7291_tasiyanc_7291.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪🚀 Full Fast⚡.npvt
+</div>
+
+## tasiyanc — post 7290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV لوکیشن Nuremberg🇩🇪
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7289
+
+## tasiyanc — post 7288
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امیدوارم مافیای بورنو هرناندز و برناردو سیلوای احمق فقط یه ذره از بازیکنای آرژانتین یاد بگیرن و به کاپیتانشون (Cr7) اندازه بازیکنای آرژانتین اهمیت بدن
+</div>
+
+## tasiyanc — post 7287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیونل مسی 🐐 نابغه تمام عیار فوتبال جهان امشب هم دبل کرد ، بازی قبلی هم هتریک کرده بود
+</div>
 
 ## tasiyanc — post 7285
 
@@ -155,43 +207,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بازی هجومی تیم ملی با مساوی به پایان رسید
-</div>
-
-## tasiyanc — post 7259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخرااااااااج بازیکن بلژیک 🔹
-</div>
-
-## tasiyanc — post 7257
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشمای بلژیک ریخته ۱۱ نفری دفاع میکنن
-</div>
-
-## tasiyanc — post 7256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه بجای طارمی سهراب سپهری بود با اختلاف گل میشد 😂
-</div>
-
-## tasiyanc — post 7255
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینجاست ک میگن بلژیک از کون ( طارمی) اورد 🤣
-</div>
-
-## tasiyanc — post 7254
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طارمی اگه کون نداشت الان یک صفر بود بازی😒
-</div>
-
-## tasiyanc — post 7253
-
-<div align="center"><img src="files/post_7253_tasiyanc_7253.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل ایران رف وار آفساید شد
 </div>
 

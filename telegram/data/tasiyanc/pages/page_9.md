@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/06 09:48
+📅 آخرین بروزرسانی: 1405/05/06 12:45
 
 ---
+
+## tasiyanc — post 8489
+
+<div align="center"><img src="files/post_8489_tasiyanc_8489.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸🔴 دونالد ترامپ، از طریق شبکه Truth Social:
+
+بنجامین نتانیاهو به هیچ وجه، تحت هیچ شرایطی، در ایالات متحده آمریکا دستگیر نخواهد شد.
+او در حال مبارزه با جمهوری اسلامی ایران است، کشوری که اخیراً ۵۲۰۰۰ معترض بی‌گناه را به قتل رساند و در طول ۴۷ سال گذشته، سربازان آمریکایی و دیگران را به قتل رسانده است.
+تنها کسانی که باید دستگیر شوند، افرادی هستند که ایران را به این وضعیت بی‌سابقه از مرگ و ویرانی سوق دادند، وضعیتی که باید سال‌ها پیش، توسط روسای جمهور پیشین، مورد رسیدگی قرار می‌گرفت.
+
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8488
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 🔐
+vless://e7961655-9674-4cbd-a36f-ec0d5d7d660c@45.130.125.200:2053?path=%2F&security=tls&encryption=none&insecure=0&fp=chrome&type=ws&allowInsecure=0&sni=po.fastbrokencompony.com#%40Tasiyanc%20Nuremberg%20%F0%9F%87%A9%F0%9F%87%AA
+vless://e7961655-9674-4cbd-a36f-ec0d5d7d660c@45.130.125.138:2053?path=%2F&security=tls&encryption=none&insecure=0&fp=chrome&type=ws&allowInsecure=0&sni=po.fastbrokencompony.com#%40Tasiyanc%20Nuremberg%20%F0%9F%87%A9%F0%9F%87%AA2
+
+Loc 🇩🇪 🇩🇪
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8486
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 20 July روز جهانی ماهه
+
+به تمام دختر پسرای چنلمون تبریك میگیم این روز رو 🌚
+</div>
+
+## tasiyanc — post 8484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt
+</div>
+
+## tasiyanc — post 8483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+10سرور سرعتی پرمیوم سرور ترکیه⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8482
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ممنون بابت حمایت‌هاتون @i_am_souji_2 ❤️ شب بالای ۵۰ استارز زده زیر پست کانفیگا
+</div>
 
 ## tasiyanc — post 8481
 
@@ -136,56 +207,5 @@
 تایید یا تکذیب نمیشه
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8464
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 بازی ایران آمریکا آغاز شد
-</div>
-
-## tasiyanc — post 8463
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبه به ترامپ میکروفن ندادن وگرنه میخواست بگه ایران نباید سلاح هسته ای داشته باشه وسط زمین
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویس علی دایی در مورد باخت آرژانتین 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8461
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ میخواست با بازیکنا اسپانیا قهرمانیو جشن بگیره که رئیس فیفا اومد بهش گفت مشتی بیا اینور 😂😂😂😂😂
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8460
-
-<div align="center"><img src="files/post_8460_tasiyanc_8460.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فووووری ، حمله سپاه پاسداران به ورزشگاهی که ترامپ در اون حضور داشت !
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8459
-
-<div align="center"><img src="files/post_8459_tasiyanc_8459.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فقط دو سرمربی تو این دوره از جام جهانی باخت نداشتن:
-
-
-@TASIYANC ✅
 </div>
 

@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/06 09:48
+📅 آخرین بروزرسانی: 1405/05/06 12:45
 
 ---
+
+## tasiyanc — post 8199
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پرواز جنگنده های اسرائیلی به مقصد نامعلوم
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8197
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روبیکا لینک سیو کنین در صورت قطعی عضو شید فعلا فعالیت نداریم
+https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
+</div>
+
+## tasiyanc — post 8196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨
+🚨۷ انفجار مهیب در بوشهر
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
+</div>
+
+## tasiyanc — post 8194
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه
+
+دریافت کانفیگ 👉
+</div>
+
+## tasiyanc — post 8192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+🚨 یک مقام آمریکایی به ان‌بی‌سی:
+
+همانطور که رئیس جمهور گفته بود این هفته حمله به زیرساخت‌ها، پل‌ها و نیروگاه‌ها انجام میشود.
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8191
 
@@ -115,54 +168,6 @@
 💢طبق گزارش‌ها، اینترنت تو بعضی از نقاط کشور به شدت ضعیف شده
 
 وضعیت نت شما چطوره؟
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8169
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📰تسنیم:
-
-🇺🇸💢آمریکا شروع به زدن زیرساخت ها و پل ها کرده
-اونا به شهرستان بندرخمیر و بخش کهورستان حمله کردن و پل ارتباطی بندرعباس به شیراز که معروف به پل بندرعباس - کهورستان - لار هست رو هدف قرار دادن.
-برق مناطقی از کهورستان هم قطع شده
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجیب اما واقعی جنوب ایران زیر بمباران هست صدا سیما از جنوب لبنان میگه
-</div>
-
-## tasiyanc — post 8167
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هدف قرار گرفتن پل کهورستان بندرعباس و قطع ارتباط شهرهای جنوب با همدیگه
-نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8165
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️حمله به فرودگاه ایرانشهر در سیستان و بلوچستان @TasiyanProxy
-</div>
-
-## tasiyanc — post 8163
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بندرعباس عزیز زیر حملات شدید آمریکا 💔
-</div>
-
-## tasiyanc — post 8161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاید باورتون نشه ولی تو این سه تا عکس هیچ اثری از فتوشاپ نیست🐰؛
-ابرهای نادر استراتوسفر قطبی - ایسلند🇮🇸
 
 @Tasiyanc✅
 </div>

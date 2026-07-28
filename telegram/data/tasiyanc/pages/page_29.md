@@ -1,8 +1,80 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/06 09:48
+📅 آخرین بروزرسانی: 1405/05/06 12:45
 
 ---
+
+## tasiyanc — post 7839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار جدید درباره تعویق امتحانات 👉 🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
+</div>
+
+## tasiyanc — post 7838
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار جدید درباره تعویق امتحانات 👉
+🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
+</div>
+
+## tasiyanc — post 7834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگ رسما و شرعا آغاز شد
+</div>
+
+## tasiyanc — post 7832
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 4 تا کانفیگ پرسرعت OpenVpn 
+📶 گذاشتم تو ربات خودمون برید بردارید چون ظرفیت محدوده چنل نمیزارم
+
+
+👈 دریافت کانفیگ ها 
+👆
+</div>
+
+## tasiyanc — post 7829
+
+<div align="center"><video src="files/post_7829_tasiyanc_7829.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7829_tasiyanc_7829.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  
+📶
+
+سه سرور سرعتی‌ تست شده
+💥
+
+دانلود برنامه اندروید 
+🕹
+
+دانلود برنامه آیفون 
+📱
+
+آموزش اتصال به اینجکتور ✨
+
+
+مناسب دانلود 
+⬇️ وب‌گردی 
+🔍 اینستاگرام 
+📸 جمینای 
+🤖 گیم 
+🎮
+
+
+اتصال امن برای همه 
+🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7828
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سپاه پاسداران : تنگه هرمز اکنون به طور دائم بسته شده است و ایالات متحده و متحدان آن دیگر هرگز از خلیج فارس نفت دریافت نخواهند کرد @Tasiyanproxy
+</div>
 
 ## tasiyanc — post 7824
 
@@ -150,44 +222,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ ترامپ : دستور لغو توافق و مذاکرات را صادر کردم
-</div>
-
-## tasiyanc — post 7793
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ ترامپ : آتش بس ایران به پایان رسید
-</div>
-
-## tasiyanc — post 7792
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه
-</div>
-
-## tasiyanc — post 7791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️رسما توافق با آمریکا سرش گرد شد
-</div>
-
-## tasiyanc — post 7790
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ترامپ : سران ایران یه مشت آدم کثیفن. اصلاً ازشون خوشم نمیاد. کلی وقتمون رو باهاشون هدر دادیم. بی‌عرضه و ناتوانن. بهتره فقط کار خودمون رو انجام بدیم.
-اونا می‌خوان رهبر آمریکا، یعنی من رو ترور کنن. سال‌هاست که من نفر اول لیستشونم.
-باید سرطان رو از همون اول ریشه‌کن کرد. من این‌طوری به قضیه نگاه می‌کنم.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7789
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه اوه ترامپ عصبانی شد
-</div>
-
-## tasiyanc — post 7788
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروفایل چنل با اجازتون عوض شد ❤️
 </div>
 
