@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/07 16:11
+📅 آخرین بروزرسانی: 1405/05/07 20:18
 
 ---
+
+## tasiyanc — post 6929
+
+<div align="center"><img src="files/post_6929_tasiyanc_6929.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زیرنویس شبکه خبر :
+توافق با امریکا را انجام شد
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6927
 
@@ -213,19 +224,5 @@ https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [51] @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6898
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
 </div>
 

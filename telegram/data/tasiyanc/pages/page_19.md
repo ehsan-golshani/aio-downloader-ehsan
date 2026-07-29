@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/07 16:11
+📅 آخرین بروزرسانی: 1405/05/07 20:18
 
 ---
+
+## tasiyanc — post 8268
+
+<div align="center"><img src="files/post_8268_tasiyanc_8268.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 وضعیت راه آهن بندرعباس پس از حمله ارتش آمریکا
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8267
 
@@ -191,20 +202,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیویی که از یکی از سرباز های تیپ 388 بمپور ایرانشهر به شدت وایرال شده که داره آهنگ میخونه 💔
-
-@Tasiyanc ✅| بانك کانفیگ رایگان
-</div>
-
-## tasiyanc — post 8236
-
-<div align="center"><video src="files/post_8236_tasiyanc_8236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8236_tasiyanc_8236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 در حملات صبح امروز آمریکا به چابهار، برج ۸۰ متری کنترل دریایی این شهر بطور کامل فرو ریخت
-
-
 
 @Tasiyanc ✅| بانك کانفیگ رایگان
 </div>

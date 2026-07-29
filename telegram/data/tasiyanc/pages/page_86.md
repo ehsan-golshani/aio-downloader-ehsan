@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/05/07 16:11
+📅 آخرین بروزرسانی: 1405/05/07 20:18
 
 ---
+
+## tasiyanc — post 6030
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مال منم حالا چیکاکنم برکرده
+</div>
 
 ## tasiyanc — post 6029
 
@@ -140,11 +146,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 VİP 🔥.npvt
-</div>
-
-## tasiyanc — post 6005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🇫🇷.npvt
 </div>
 

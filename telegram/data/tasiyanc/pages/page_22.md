@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/07 16:11
+📅 آخرین بروزرسانی: 1405/05/07 20:18
 
 ---
+
+## tasiyanc — post 8192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+🚨 یک مقام آمریکایی به ان‌بی‌سی:
+
+همانطور که رئیس جمهور گفته بود این هفته حمله به زیرساخت‌ها، پل‌ها و نیروگاه‌ها انجام میشود.
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8191
 
@@ -156,14 +168,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بندرعباس عزیز زیر حملات شدید آمریکا 💔
-</div>
-
-## tasiyanc — post 8161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاید باورتون نشه ولی تو این سه تا عکس هیچ اثری از فتوشاپ نیست🐰؛
-ابرهای نادر استراتوسفر قطبی - ایسلند🇮🇸
-
-@Tasiyanc✅
 </div>
 

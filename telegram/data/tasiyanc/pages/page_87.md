@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/07 16:11
+📅 آخرین بروزرسانی: 1405/05/07 20:18
 
 ---
+
+## tasiyanc — post 6005
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🇫🇷.npvt
+</div>
 
 ## tasiyanc — post 6004
 
@@ -166,13 +172,5 @@
 20 GB 580
 30 GB 900
 @StarTasiyan ثبت سفارش
-</div>
-
-## tasiyanc — post 5975
-
-<div align="center"><img src="files/post_5975_tasiyanc_5975.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متد جدید 🔥.npvt
 </div>
 
