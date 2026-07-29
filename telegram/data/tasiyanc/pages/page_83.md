@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/05/07 23:40
+📅 آخرین بروزرسانی: 1405/05/08 01:20
 
 ---
+
+## tasiyanc — post 6117
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نپستر عضو جداناپذیر تاسیانه دوستان نگران نباشید میزاریم ، راه های دیگه رو هم فقط تست میکنیم ❤️
+</div>
 
 ## tasiyanc — post 6115
 
@@ -180,11 +186,5 @@ Vip SamanTel ⚡.npvt
 V2Ray سامانتل
 vless://1b9e301d-cecd-4eb1-8b36-eef811c2696d@de1.vitok.cc:443?security=reality&encryption=none&pbk=zxzgWvYs4pMN3fEduth1soI1yMZDkynb1bBM4tj85EE&headerType=none&type=tcp&sni=max.ru&sid=5e841fab#%F0%9F%87%A9%F0%9F%87%AA%F0%9F%9A%80%20%40Tasiyanc%20%D8%B3%D8%A7%D9%85%D8%A7%D9%86%D8%AA%D9%84
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6092
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان کانفیگ اوپن ورداشتم یه تغییراتی میدم بعدش میفرستم ❤️
 </div>
 

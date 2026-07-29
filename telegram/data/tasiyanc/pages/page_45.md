@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/07 23:40
+📅 آخرین بروزرسانی: 1405/05/08 01:20
 
 ---
+
+## tasiyanc — post 7290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV لوکیشن Nuremberg🇩🇪
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7289
 
@@ -181,11 +198,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پشمای بلژیک ریخته ۱۱ نفری دفاع میکنن
-</div>
-
-## tasiyanc — post 7256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه بجای طارمی سهراب سپهری بود با اختلاف گل میشد 😂
 </div>
 

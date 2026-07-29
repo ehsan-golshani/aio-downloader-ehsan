@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/07 23:40
+📅 آخرین بروزرسانی: 1405/05/08 01:20
 
 ---
+
+## tasiyanc — post 7678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️
+
+💘 دریافت کانفیگ👈 💘
+</div>
 
 ## tasiyanc — post 7674
 
@@ -173,19 +181,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 
 🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-</div>
-
-## tasiyanc — post 7633
-
-<div align="center"><video src="files/post_7633_tasiyanc_7633.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7633_tasiyanc_7633.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ فووری - خبرنگار کاخ سفید مرضیه حسینی
-
-خلبانی که تو ایران افتاده بود گفته ایران به پیشرفته ترین تکنولوژی پهپادی در جهان رسیده که فقط آمریکا و چین و روسیه دارنش و با همین تکنولوژی باعث سقوطش شدن!!!
-
-@Tasiyanc 💠
 </div>
 
