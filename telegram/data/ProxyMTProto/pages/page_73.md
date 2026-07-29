@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/05/07 01:19
+📅 آخرین بروزرسانی: 1405/05/07 08:12
 
 ---
+
+## ProxyMTProto — post 48129
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.nilmart.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48128
 
@@ -172,15 +181,6 @@ Secret: ee7d75b7a3d02eefad99691681a534c1fe646174612e70726f787976706e2e73697465
 Server: mx.proxyz.site
 Port: 443
 Secret: ee76166fbf55209edbcfbe009bcc16f4646d782e70726f78797a2e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
