@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/07 20:18
+📅 آخرین بروزرسانی: 1405/05/07 23:40
 
 ---
+
+## tasiyanc — post 7355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆پخش زنده مسابقات جام جهانی 2026
+
+https://roxiestreams.su/soccer
+
+https://streamcorner.fyi/fifa-world-cup
+
+https://totalsportek.tips/football
+
+https://www.bintv.net
+
+https://soccerstreams.sbs
+
+https://strumyk.net
+سایت هایی که باز نمیشه رو باید با وی پی ان باز کنید
+💘@Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 7352
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Melody 🚀.npvt
+</div>
 
 ## tasiyanc — post 7351
 
@@ -235,28 +261,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 
 
  ✅@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7322
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن 🇩🇪
-
-3سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- ✅@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7321
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دبل کرد حضرت عشق
 </div>
 

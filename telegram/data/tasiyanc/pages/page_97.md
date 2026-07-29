@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 97
 
-📅 آخرین بروزرسانی: 1405/05/07 20:18
+📅 آخرین بروزرسانی: 1405/05/07 23:40
 
 ---
+
+## tasiyanc — post 5745
+
+<div align="center"><img src="files/post_5745_tasiyanc_5745.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Crocodile 🐊 VIP.npvt
+</div>
+
+## tasiyanc — post 5744
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده روی همراه اول - رایتل ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5743
 
@@ -155,23 +179,5 @@ trojan://2238e2f3-1a01-485e-8c22-24b65764c68b@172.64.152.23:443?path=%2F51.91.25
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گپ تاسیان - خودمم هستم بیاید
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 5723
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡Test سرعتی⚡.npvt
-</div>
-
-## tasiyanc — post 5722
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده ⛈ 
-
-
-
-🚀 @Tasiyanc ✅
 </div>
 
