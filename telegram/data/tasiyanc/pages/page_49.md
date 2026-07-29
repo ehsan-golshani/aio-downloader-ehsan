@@ -1,8 +1,113 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/05/07 03:23
+📅 آخرین بروزرسانی: 1405/05/07 11:12
 
 ---
+
+## tasiyanc — post 7138
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️ تحریم‌های نفتی ایران لغو شد ( طی توافق نامه)
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️ اسماعیل بقایی سخنگوی وزارت خارجه : همین الان ریاست جمهوری ایران و آمریکا توافق نامه را بصورت آنلاین امضاء کردند
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇹🇷⛓️⚡️VIP -IST.npvt
+</div>
+
+## tasiyanc — post 7134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود لوکیشن🇹🇷
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟🌟
+ss://YWVzLTI1Ni1nY206RmpHM0lQYm55KzBaWVU0L3AxdlVMUDg0R2NLcEdvWnBXS0FheTE2VmhJdz0%3D@51.254.128.106:2083#%F0%9F%87%AB%F0%9F%87%B7FR%E2%9A%A1%20%40Tasiyanc
+Location 🇫🇷 حجم نامحدود
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات تاسیان؟
+</div>
+
+## tasiyanc — post 7130
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات تاسیان؟
+</div>
+
+## tasiyanc — post 7128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم-وب‌گردی-اینستاگرام 
+👑
+
+2 کانفیگ حجم و کاربر نامحدود 
+🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال 
+⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7127
+
+<div align="center"><video src="files/post_7127_tasiyanc_7127.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7127_tasiyanc_7127.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 
+😎
+
+3سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ناموصاااا پختو پز کردیممم‌این حق ری اکشنمونننن برید اینستاااا عشق کنیددددد
+</div>
 
 ## tasiyanc — post 7118
 
@@ -110,141 +215,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ادامه برنامه تیم ملی در جام جهانی 2026
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7103
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقام رونالدو تو ترکیبه 🥹❤️
-</div>
-
-## tasiyanc — post 7102
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-2سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ➡️
-
-مناسب دانلود🎥 وب‌گردی🔍 جمینای 🤖 🚀
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-5 کانفیگ حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-🛡Password Zip: @Tasiyanc
-
-T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7099
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبید رو به راهید؟
-</div>
-
-## tasiyanc — post 7096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟3 کانفیگ اختصاصی دارک تانل 🌟
-
-حجم نامحدود - سرعتی 🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel  🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ: یادداشت با ایران نهایی نیست. اگر از توافق خوشمان نیاید، دوباره به بمباران بازمی‌گردیم
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7093
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📥Game public DNS | All games
-195.46.39.39
-195.46.39.40
-
-🔑 DNS CHANGER
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7089
-
-<div align="center"><video src="files/post_7089_tasiyanc_7089.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7089_tasiyanc_7089.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 
-🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-تک سرور سرعتی 🇳🇱⚡️
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7086
-
-<div align="center"><video src="files/post_7086_tasiyanc_7086.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7086_tasiyanc_7086.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-3سرور سرعتی مناسب تمام نت‌ها
-⚡️
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 
-🕹 IOS 📱 Android 
-
-آموزش اتصال ➡️
-
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

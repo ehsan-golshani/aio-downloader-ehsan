@@ -1,8 +1,156 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/07 03:23
+📅 آخرین بروزرسانی: 1405/05/07 11:12
 
 ---
+
+## tasiyanc — post 8712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@TASIYANC 💥 سرعتی.npvt
+</div>
+
+## tasiyanc — post 8708
+
+<div align="center"><img src="files/post_8708_tasiyanc_8708.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جدیدا یه چالشی راه افتاده که پسرا با دوس دخترشون که دور کمرشون اندازه یه کف دسته عکس میگیرن و به اشتراک میذارن.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی اهدایی ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8705
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ تست شده 🔸
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 💠
+</div>
+
+## tasiyanc — post 8704
+
+<div align="center"><img src="files/post_8704_tasiyanc_8704.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خار شباهتو ...
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8703
+
+<div align="center"><video src="files/post_8703_tasiyanc_8703.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8703_tasiyanc_8703.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وطن‌پرستی؛ شفا نمی‌دهد ، شرافت میدهد 🏠
+
+📍آرامگاه کوروش بزرگ 💪
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8702
+
+<div align="center"><video src="files/post_8702_tasiyanc_8702.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8702_tasiyanc_8702.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تلاش های بی بی نتانیاهو برای جلوگیری از توافق 😂 :
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8701
+
+<div align="center"><video src="files/post_8701_tasiyanc_8701.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8701_tasiyanc_8701.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاربردی
+
+خودروی رویایی‌ات رو از صفر تا صد خودت بساز! 😊
+
+​اگر به ماشین و تیونینگ علاقه داری، سری به این سایت بزن 
+  https://www.modsnation.com 👈
+
+ویژگی‌های سایت:
+​دسترسی به لیست جذابی از انواع خودروهای مدرن و کلاسیک مختلف.
+​نمایش مدل‌های سه‌بعدی بسیار باکیفیت و جذاب از ماشین‌ها.
+​امکان کاستومایز و شخصی‌سازی صفر تا صد ماشین (از سپر و گلگیر گرفته تا رینگ و جزئیات بدنه) برای ساخت ماشین رویایی خودت
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8699
+
+<div align="center"><img src="files/post_8699_tasiyanc_8699.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با این سایت به کل دنیا گوش بده 🎼
+
+https://radio.garden/visit/reykjavik/82Q3wG81
+
+🌐 تا حالا شده کنجکاو شی مردم یه شهر اونور دنیا دارن چی گوش میدن؟
+
+با Radio Garden میتونی فقط با چرخوندن کره زمین، رادیوی زنده چندین هزار شهر از سراسر دنیا رو گوش بدی. از موسیقی و اخبار گرفته تا برنامه‌های محلی و حتی تبلیغات همون کشور!
+
+🔎 اگه دنبال یه شهر خاص باشی، فقط کافیه اسمش رو سرچ کنی…
+﻿
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8698
+
+<div align="center"><video src="files/post_8698_tasiyanc_8698.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8698_tasiyanc_8698.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺پروفسور نادر انقطاع فیزیک‌دان و دانشمند نخبه ایرانی متولد سال 1334 تهران , دارنده نشان بنجامین فرانکلین( مدالی که انیشتین و تسلا هم گرفته بود)
+کسی که تحول عظیمی در رادار گریزی جنگنده های نسل جدید آمریکا مثل F22 Raptor و F35 و B-52 ایجاد کرد !
+
+@TASIYANC 💠
+</div>
 
 ## tasiyanc — post 8696
 
@@ -130,97 +278,5 @@
 
 «دراگون لیدی» کابوس آسمونه؛ اسم مستعار Lockheed U-2 که بالای ۲۰ کیلومتر پرواز میکنه و با دوربین‌های فوق دقیق هر تحرکی رو ثبت میکنه. کنارش معمولاً Boeing RC-135 Rivet Joint میاد؛ یکی تصویر میگیره، یکی شنود میکنه. خلبانش لباس شبیه فضانوردها میپوشه و هر وقت این دوتا کنار هم دیده میشن یعنی مأموریت اطلاعاتی جدیه.
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8682
-
-<div align="center"><img src="files/post_8682_tasiyanc_8682.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•پرامپت اختصاصی تاسیان 👑
-
-•عکساتو زیباتر کن 💖
-•آموزش استفاده 🤖🤖
-
-
-🔺دریافت پرامپت 👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8681
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خیلیییییی گرمهههههه
-</div>
-
-## tasiyanc — post 8679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرنگار کاخ سفید به نقل از سنتکام:
-
-بعضی اوقات ما به ایران حمله نمی‌کردیم ولی میدیدیم که کلی موشک در آسمان به طرف ایران میره، بعد می‌فهمیدیم که کویت و بحرین و عربستان و … در حال حمله به ایران بودند ولی به طور رسمی اعلام نمی‌کردند
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8677
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سی‌ان‌ان:
-
-سنتکام پس از ۱۳ شب حمله علیه ایران، جمعه بیانیه‌ای منتشر نکرد
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8676
-
-<div align="center"><video src="files/post_8676_tasiyanc_8676.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8676_tasiyanc_8676.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🦅 جنگنده ای که از شاهین بحری تقلید میکند !
-
-اف-۱۴ تامکت و شاهین بحری در ظاهر یکی یک جنگنده ی پیچیده و دیگری یک شکارچی طبیعی هستند، اما وقتی به شیوه‌ی پروازشان نگاه کنیم، شباهت‌های شگفت‌انگیزی دیده میشود.
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8675
-
-<div align="center"><video src="files/post_8675_tasiyanc_8675.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8675_tasiyanc_8675.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴صلاح یکتا ؛ چهره مشهور «شکستن قلنج» به دستور بازپرس ویژه پزشکی بازداشت شد
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8674
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حمله آمریکا به سیریک
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هم اکنون حمله سپاه به بحرین
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8672
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب چقد آرومه 🦦
-</div>
-
-## tasiyanc — post 8671
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 انفجار در امیدیه - تایید میشه\نمیشه
-@Tasiyanc
 </div>
 
