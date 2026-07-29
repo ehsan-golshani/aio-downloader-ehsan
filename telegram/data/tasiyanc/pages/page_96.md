@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/07 13:58
+📅 آخرین بروزرسانی: 1405/05/07 16:11
 
 ---
+
+## tasiyanc — post 5765
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+PREMIUM 💥.npvt
+</div>
+
+## tasiyanc — post 5764
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈4 سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید 
+✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5763
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Box 🔐 RighTel
+
+vless://da2ab05b-6b96-4d0c-96eb-7b320b343fc0@zdas.zeabur.app:443?path=%2Fsecurity%3Dtls&security=tls&encryption=none&insecure=0&host=zdas.zeabur.app&type=ws&allowInsecure=0#%40Tasiyanc%20RighTel%20%E2%9B%93%EF%B8%8F
+
+@Tasiyanc ✔️
+</div>
 
 ## tasiyanc — post 5762
 
@@ -202,21 +233,5 @@ V2Box 🌟 MCI - WiFi
 vless://0dc22208-cea4-4423-b3c3-a36957e23233@91.225.217.26:443?security=reality&encryption=none&pbk=Zd5BqaW-kyJqZANUH2cIARr466QZw09pNngYjsEK1w8&headerType=none&fp=chrome&type=tcp&sni=yahoo.com&sid=30fa#%40Tasiyanc%20%E2%80%A2%20MCI
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5742
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حجم پیام زیاده ، عشقید لذت ببرید ❤️
-</div>
-
-## tasiyanc — post 5741
-
-<div align="center"><img src="files/post_5741_tasiyanc_5741.jpg" alt="Photo"></div>
-
-## tasiyanc — post 5740
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/Tasiyanc/5733
 </div>
 

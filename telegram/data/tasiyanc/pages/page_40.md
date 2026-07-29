@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/07 13:58
+📅 آخرین بروزرسانی: 1405/05/07 16:11
 
 ---
+
+## tasiyanc — post 7473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپستر
+
+4 سرور سرعتی ⚡️
+
+آموزش اتصال ⛓
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 28 June، روزِ  LGBTQ یا همون همجنسگراست
+بفرست واسه رفیق گِیت🤣
+</div>
+
+## tasiyanc — post 7460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال 
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7459
 
@@ -142,26 +180,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 برای خرید بازی GTA VI در‌ هر کشور چند روز باید کار کنی ؟
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7435
-
-<div align="center"><img src="files/post_7435_tasiyanc_7435.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برنامه بازی های امروز جام جهانی 🏆
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاهم هم رو هواس الان ، امشب احتمال داره شاهد تحرکات جدید از هر دو طرف باشیم
-</div>
-
-## tasiyanc — post 7433
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطوریددد؟
 </div>
 

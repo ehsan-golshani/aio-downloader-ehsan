@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/05/07 13:58
+📅 آخرین بروزرسانی: 1405/05/07 16:11
 
 ---
+
+## tasiyanc — post 7700
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لبیك یا رونالدو ، امیدوارم امشب خوشحال باشی ❤️ 7
+</div>
+
+## tasiyanc — post 7699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب بازی حساس ساعت 22:30 🏆
+
+🔵 Spain 🇪🇸 Portugal 🇵🇹 🐯
+</div>
+
+## tasiyanc — post 7698
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه خبرا خوبید؟
+</div>
 
 ## tasiyanc — post 7697
 
@@ -205,35 +225,5 @@ VIP 🎯 @Tasiyanc.nm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fast ⚡ Unlimited.npvt
-</div>
-
-## tasiyanc — post 7665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا 😍
-</div>
-
-## tasiyanc — post 7664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-4سرور سرعتی پرمیوم متد جدید 
-⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
- 
-✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7660
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از چنلای مردمی حمایت کنید ، بناموسم بخاطر خودم نمیگم ، ما مثل اینا جیره خور نبودیم همه چیو از جیب خودمون خرج کردیم نه کانفیگ گیگی یه میلیون فروختیم ، نه سکوت کردیم مثلاً امروز گروه تعطیل کنیم یا موقع قطعی فعالیت نکرده باشیم
 </div>
 

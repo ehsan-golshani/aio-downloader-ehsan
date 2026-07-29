@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/07 13:58
+📅 آخرین بروزرسانی: 1405/05/07 16:11
 
 ---
+
+## tasiyanc — post 6237
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+5 سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6236
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنام کو😐😐😐😐😐😐😐😐😐😐
+</div>
+
+## tasiyanc — post 6234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۳ کانفیگ وایر فول وصل 
+✅
+</div>
 
 ## tasiyanc — post 6233
 
@@ -164,31 +193,5 @@ https://t.me/TasiyanProxy
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وایر های قبلی ک‌گذااشتم مثل موشك وصلن نیازی به جدید نی فعلا
-</div>
-
-## tasiyanc — post 6212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-
-3سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6209
-
-## tasiyanc — post 6208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04] @Tasiyanc ⚡🚀.conf
 </div>
 

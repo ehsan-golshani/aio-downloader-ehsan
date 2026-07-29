@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/07 13:58
+📅 آخرین بروزرسانی: 1405/05/07 16:11
 
 ---
+
+## tasiyanc — post 8214
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨دو انفجار سنگین در قشم
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8213
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برق ایرانشهر انگار کاملا رفته
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢 حمله آمریکا به شهر ویسیان لرستان
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8210
 
@@ -149,30 +173,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⁉️پدافند تهران فعال شده؟
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺گزارش شده که انگار پل فلزی بندر عباس هم زدن.
-
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 8189
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 تمامی پل‌هایی که بندر خمیر را به بندرعباس متصل می کرد توسط آمریکا مورد حمله قرار گرفت.
-
-@Tasiyanc✅
 </div>
 
