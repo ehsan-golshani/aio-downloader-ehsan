@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/07 23:38
+📅 آخرین بروزرسانی: 1405/05/08 00:14
 
 ---
+
+## VahidOOnLine — post 251835
+
+<div align="center"><img src="files/post_251835_VahidOOnLine_251835.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش فارس، معاون سیاسی، امنیتی و اجتماعی استاندار مرکزی اعلام کرد یک نقطه خارج از شهر خنداب هدف حمله موشکی قرار گرفته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251833
+
+<div align="center"><img src="files/post_251833_VahidOOnLine_251833.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری فارس گزارش داد دقایقی پیش صدای چند انفجار در شهرستان جاسک در شرق استان هرمزگان شنیده شده است.
+
+فارس جزییات بیشتری درباره محل دقیق انفجارها و تلفات احتمالی منتشر نکرده است. هنوز مقام‌های رسمی نیز درباره این گزارش اظهارنظری نکرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251832
 
@@ -234,31 +258,6 @@
 
 جزییات بیشتری درباره علت یا محل دقیق این انفجار منتشر نشده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251811
-
-<div align="center"><img src="files/post_251811_VahidOOnLine_251811.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️صداوسیما بامداد جمعه اول مردادماه از شنیده شدن صدای چند انفجار در اهواز خبر داد.
-همچنین کانال تلگرامی وحید آنلاین براساس گزارش های مردمی ازشنیده شدن صدای چندین انفجار دراین شهر خبر داد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251810
-
-<div align="center"><img src="files/post_251810_VahidOOnLine_251810.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️دونالد ترامپ در گفتگوی تلفنی با اکسیوس درباره احتمال پیوستن اسرائیل به عملیات نظامی در ایران گفت، «اگر از اسرائیل بخواهم، این کشور در عرض دو دقیقه به عملیات خواهد پیوست»،اما افزود: «برای آغاز یک عملیات جدید در ایران به هیچ‌کس نیاز نداریم.»
-او در عین حال گفت پیوستن اسرائیل به حملات در ایران «پیامدهایی» خواهد داشت؛ که به نوشته اکسیوس اشاره‌ای ضمنی به احتمال واکنش ایران علیه اسرائیل است.ترامپ گفت بنیامین نتانیاهو، نخست‌وزیر اسرائیل، قصد دارد هفته آینده برای شرکت در مراسم خاکسپاری سناتور لیندزی گراهام در واشینگتن حضور یابد.
-ترامپ افزود: «روابط من با بی بی (نتانیاهو) بسیار خوب است. اگر او در شهر باشد، با او دیدار خواهم کرد.»
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

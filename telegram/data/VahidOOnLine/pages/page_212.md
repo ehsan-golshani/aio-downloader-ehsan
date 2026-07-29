@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 212
 
-📅 آخرین بروزرسانی: 1405/05/07 23:38
+📅 آخرین بروزرسانی: 1405/05/08 00:14
 
 ---
+
+## VahidOOnLine — post 247881
+
+<div align="center"><video src="files/post_247881_VahidOOnLine_247881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247881_VahidOOnLine_247881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ویدیوهای منتشرشده در شبکه‌های اجتماعی نشان می‌دهد کشاورزان گرمسار روز دوشنبه هشتم تیرماه در اعتراض به بحران کم‌آبی و نرسیدن حق‌آبه رودخانه حبله‌رود تجمع کردند. معترضان خواستار تامین آب آشامیدنی و اختصاص حق‌آبه کشاورزی شدند و تاکید کردند آب حبله‌رود «حق قانونی» گرمسار و آرادان است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247880
+
+<div align="center"><img src="files/post_247880_VahidOOnLine_247880.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت خارجه عمان اعلام کرد نخستین نشست کمیته مشترک عمان و جمهوری اسلامی درباره تنگه هرمز در مسقط برگزار شد. دو طرف درباره مدیریت آینده تنگه، تقویت هماهنگی، همکاری در زمینه ناوبری و خدمات دریایی و پایبندی به حقوق بین‌الملل گفت‌وگو کردند.
+بدر البوسعیدی، وزیر خارجه عمان، گفت مسقط از وضع عوارض برای عبور از تنگه هرمز حمایت نمی‌کند.
+او افزود درباره خدمات دریایی و زیست‌محیطی این آبراه با کشورهای بهره‌بردار گفت‌وگو خواهد شد و هرگونه تفاهم آینده با جمهوری اسلامی درباره هرمز در چارچوب حقوق بین‌الملل خواهد بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247879
 
@@ -275,33 +301,6 @@
 
 به گزارش خبرگزاری صداوسیما ستادهای مدیریت بحران شهرستان‌های سیستان وبلوچستان تصمصم گرفتند به دلیل تشدید طوفان، کاهش دید افقی و افزایش غلظت ریزگردها، ساعت کاری ادارات و بانک‌ها در پنج شهرستان زابل، هامون، زهک، هیرمند و نیمروز برای روز دوشنبه ۲ ساعت کاهش دهند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247845
-
-<div align="center"><img src="files/post_247845_VahidOOnLine_247845.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به گزارش رویترز، تیم‌های فنی مذاکره‌کننده جمهوری اسلامی و آمریکا قرار است در روزهای آینده در دوحه دیدار کنند.
-
-بر اساس گزارش منتشرشده، میانجی‌ها کانال‌های ارتباطی مختلفی برای کاهش تنش در صورت بروز هرگونه حادثه ایجاد کرده‌اند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247844
-
-<div align="center"><video src="files/post_247844_VahidOOnLine_247844.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247844_VahidOOnLine_247844.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد خواهر جاویدنام عرفان کیانی، معترض اعدام‌شده، یکشنبه هفتم تیر و در روز تولد برادر جان‌باخته‌اش، بر سر مزار او می‌گوید: «تو رفتی اما رفتنت ماندگارتر از ماندن بسیاری است.»
-عرفان کیانی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ در اصفهان بود که ۲۵ فروردین ۱۴۰۵ اعدام شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
