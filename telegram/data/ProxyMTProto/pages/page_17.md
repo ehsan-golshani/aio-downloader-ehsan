@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/08 16:27
+📅 آخرین بروزرسانی: 1405/05/08 18:58
 
 ---
+
+## ProxyMTProto — post 49313
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad3.arixo.shop
+Port: 443
+Secret: ee722fba8d97b9027b5fc4deb041b290cb6164332e617269786f2e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49312
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49311
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp1.hlebushek.com
+Port: 443
+Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49310
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: stars.tg-proxy.fun
+Port: 6443
+Secret: a545c35eb2bdfa1a93df5ebe69957120
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49308
 
@@ -136,51 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: best-proxy.ink
 Port: 443
 Secret: ee3646eba8c65e0e1d4804a7f9caa6531d626573742d70726f78792e696e6b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49293
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vizhe-download.co.uk.
-Port: 8443
-Secret: Vizhe_danlod_namahdod
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49292
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49291
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Oh.Oh.AjaB_Sorati_Dare
-Port: 443
-Secret: BeZaN_RoooSh_Connect
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49290
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: petrichor.slarkfat.icu
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49289
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

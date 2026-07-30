@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/08 16:29
+📅 آخرین بروزرسانی: 1405/05/08 19:00
 
 ---
+
+## tasiyanc — post 8380
+
+<div align="center"><video src="files/post_8380_tasiyanc_8380.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8380_tasiyanc_8380.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨لحظه کشته شدن سربازان امریکایی در اردن و انفجار های بسیار مهیب بر اثر حمله موشکی
+
+حداقل ۳ نظامی امریکایی کشته و ناپدید شدند!
+
+🖌 #CC
+
+@Tasiyanc ✅ | بانك کانفیگ
+</div>
+
+## tasiyanc — post 8379
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماممم انگلیس ۶ ، ۴ فرانسه رو کرد
+</div>
+
+## tasiyanc — post 8375
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی انگلیس فرانسه شده پور*هاب ۴ تا انگلیس زده
+</div>
+
+## tasiyanc — post 8374
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب زیادی ساکته اوضاع و این موضوع بیشتر ترسناک و دلهره آوره
+</div>
 
 ## tasiyanc — post 8373
 
@@ -177,58 +211,5 @@ Multi Location ⚡ Fast.npvt
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8346
-
-<div align="center"><img src="files/post_8346_tasiyanc_8346.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کوله‌ی دخترش رو انداخته بود،
-براش آواز هم می‌خوند تا خستگی مهد از تنش در بره...🫠💘
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8345
-
-<div align="center"><img src="files/post_8345_tasiyanc_8345.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 18 July؛ روز ملی خوشگلا | Attractive Day هست🥹.
-
-+این پست رو به خوشگل ترین فرد تو زندگیت بفرست و روزشو تبریک بگو.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8344
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴رسمی : امتحانات نهایی لغو شد ولی باز هم فقط واسه 4 استان!
-
-■ هرمزگان
-■ بوشهر
-■ خوزستان
-■ سیستان و بلوچستان
-
-- پایه یازدهم و دوازدهم
-- روزهای یکشنبه و دوشنبه، 28 و 29 تیر
-
-پروکسی |  پروکسی | پروکسی
-پروکسی |  پروکسی | پروکسی
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8343
-
-<div align="center"><img src="files/post_8343_tasiyanc_8343.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه خانواده بندرعباسی بچه‌شونو داخل یه تیکه کائوچو میذارن که کنار دریا بازی کنه
-حواس خانواده پرت میشه آب بچه رو میبره و نیروی دریایی ارتش این بچه رو لب مرز دریایی امارات پیدا میکنن و برمیگردونن🤣🤣
-
-@Tasiyanc✅
 </div>
 

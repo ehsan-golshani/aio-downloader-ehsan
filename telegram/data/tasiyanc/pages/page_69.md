@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/05/08 16:29
+📅 آخرین بروزرسانی: 1405/05/08 19:00
 
 ---
+
+## tasiyanc — post 6487
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست جدید ترامپ: به من همین الان توسط ارتش بزرگ‌مون اطلاع داده شده که دیشب ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما رو هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردن. دو خلبان در این حادثه حضور داشتن و هر دو سالم و بدون جراحت هستن. با این حال، آمریکا…
+</div>
+
+## tasiyanc — post 6486
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست جدید ترامپ:
+به من همین الان توسط ارتش بزرگ‌مون اطلاع داده شده که دیشب ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما رو هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردن. دو خلبان در این حادثه حضور داشتن و هر دو سالم و بدون جراحت هستن. با این حال، آمریکا ناگزیر است به این حمله پاسخ بده.
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6485
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️
+</div>
+
+## tasiyanc — post 6484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حواسم نبود ، ریکشن چرا نزدید؟ 😐
+</div>
 
 ## tasiyanc — post 6483
 
@@ -192,37 +220,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وقت الکی نزارید قربونتون برم من
-</div>
-
-## tasiyanc — post 6464
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رباتی ک تون الکی میده اسکمه پرداختی نداره
-</div>
-
-## tasiyanc — post 6460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این ربات تون میده و برداشت شده ازش تایید شده ، میتونید با چند ثانیه وقت گذاشتن به درآمد برسید , برداشت بزنم می‌زارم شاتو خودمم
-https://t.me/gramevents_bot
-
-ارزششو داره برید تست کنین
-
-ادد لیست جهت جوین تو چنلا
-https://t.me/addlist/IiFVViQyys81OWM0
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کمی صحبت؟ ( گپمون)
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارووووووووو
 </div>
 

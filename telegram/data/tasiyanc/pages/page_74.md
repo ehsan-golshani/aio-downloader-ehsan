@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/05/08 16:29
+📅 آخرین بروزرسانی: 1405/05/08 19:00
 
 ---
+
+## tasiyanc — post 6357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۳سرور   سرعتی تست شده با همراه 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
+
+دانلود  NPV tunnel  🌐
+
+😬Password :″ @Tasiyanc  ″
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6356
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+گپمون هنو ۴ کا نشده 🗽😐 جوین شید عشقا
+</div>
+
+## tasiyanc — post 6355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سری چنلهای عزیز هم ک باهاشون رفیقم فور میکنن بدون اینکه دیکد کنن ، جا داره ازشون تشکر کنم ❤️‍🔥
+</div>
+
+## tasiyanc — post 6354
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشتی لاقل اجازه بده ممبرای خودم وصل شن بعد
+</div>
 
 ## tasiyanc — post 6353
 
@@ -181,35 +216,5 @@ Join As @Tasiyanc ✅
 Password : @Tasiyanc  ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دولت شیرکاکائوئیا (پاکستانی ها) اینترنت بین الملل رو بخاطر فراخوان اعتراضی بستند
-</div>
-
-## tasiyanc — post 6332
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حال ندارید ریکشن بزنید بریم بخوابیم
-</div>
-
-## tasiyanc — post 6331
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید گپمون - تبادل کانفیگ & ...
-https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 

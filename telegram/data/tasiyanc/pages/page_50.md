@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/05/08 16:29
+📅 آخرین بروزرسانی: 1405/05/08 19:00
 
 ---
+
+## tasiyanc — post 7144
+
+<div align="center"><img src="files/post_7144_tasiyanc_7144.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز June 18، روز جهانی چشم خوشگلاست.
+
+@Tasiyanc ✅ | تاسیان
+</div>
+
+## tasiyanc — post 7143
+
+<div align="center"><video src="files/post_7143_tasiyanc_7143.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7143_tasiyanc_7143.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود لوکیشن
+🇳🇱
+
+2سرور سرعتی مناسب همه نت‌ها
+⚡️
+
+دانلود برنامه IOS 
+🕹 Android 
+📱
+
+
+🔸 آموزش اتصال
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7141
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میدونی چیه ؟ لطف بیش از حد انجام بدی میشه وظیفه
+و همه بعد یه مدت میگن طرف کسخله ولت میکنن بدون اینکه به یاد بیارن چیکارا کردی
+با پوست استخون دارم تجربه میکنم همین الان ، فقط میشه تاسف خورد
+</div>
+
+## tasiyanc — post 7140
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مال ما شد وظیفه مال بعضیا شده لطف
+</div>
 
 ## tasiyanc — post 7138
 
@@ -188,32 +237,5 @@ T.me/Tasiyanc ✅
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازیکنای احمق پرتغال پاس نمیدن به رونالدو
-</div>
-
-## tasiyanc — post 7106
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید قهرمانی آقام رونالدوووووووووووو
-</div>
-
-## tasiyanc — post 7105
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی پرتغاااااال شروع شد
-</div>
-
-## tasiyanc — post 7104
-
-<div align="center"><img src="files/post_7104_tasiyanc_7104.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه برنامه تیم ملی در جام جهانی 2026
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/08 16:29
+📅 آخرین بروزرسانی: 1405/05/08 19:00
 
 ---
+
+## tasiyanc — post 6234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۳ کانفیگ وایر فول وصل 
+✅
+</div>
+
+## tasiyanc — post 6233
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+HOT 🔥@TASIYANC.conf
+</div>
+
+## tasiyanc — post 6231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد CM  👑
+
+دانلود  Wg tunnel 🕹
+
+آموزش
+⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6230
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🌤️Vip.conf
+</div>
 
 ## tasiyanc — post 6229
 
@@ -160,31 +192,4 @@ https://t.me/TasiyanProxy
 </div>
 
 ## tasiyanc — post 6209
-
-## tasiyanc — post 6208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04] @Tasiyanc ⚡🚀.conf
-</div>
-
-## tasiyanc — post 6207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد CM  👑
-دانلود  Wg tunnel 🕹
-آموزش⏩
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یعنی هر بار باید بگم ؟؟؟؟؟؟؟؟؟
-</div>
-
-## tasiyanc — post 6205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP 🚀@Tasiyanc GhdMethod .conf
-</div>
 
