@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/05/08 09:29
+📅 آخرین بروزرسانی: 1405/05/08 14:33
 
 ---
+
+## tasiyanc — post 6912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📊 حجم : نامحدود  |  ⏳انقضا : 30Day
+📶 وضعیت اتصال : فعال ✅
+⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید
+
+دریافت کانفیگ نامحدود رایگان
+
+🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
+</div>
+
+## tasiyanc — post 6911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بخاطر شرایط احتمالا جنگی‌امشب یه چنتا سرور اختصاصی بریم؟
+</div>
+
+## tasiyanc — post 6910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این endpoit هارو جایگزین قبلی کنین (وایرگارد)
+8.6.112.235:1070
+8.6.112.228:1843
+8.6.112.19:908
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢 ساب لینک اختصاصی تاسیان 🔹پر سرعت و نامحدود 🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt 🔐 🔐 ✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6905
 
@@ -169,31 +203,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpvWklvQTY5UTh5aGNRVjhrYTNQYTNB@82.38.31.11:80
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6873
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال شدید رو خطوط همراه داریم دلیلش نمیدونم
-</div>
-
-## tasiyanc — post 6872
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال ۱۲ اسرائیل ⭕️⭕️ ❌
-نعیم قاسم فرمانده حزب الله ترور شد
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[46] 🪐@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6870
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.0.1:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%40Tasiyanc%20DE%20%E2%9A%A1%F0%9F%9A%80 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path…
 </div>
 

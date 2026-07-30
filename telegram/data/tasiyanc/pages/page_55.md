@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/08 09:29
+📅 آخرین بروزرسانی: 1405/05/08 14:33
 
 ---
+
+## tasiyanc — post 6939
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی تست شده  🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6938
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑ساب لینک اختصاصی تاسیان👑 https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt اینو بزنید 🔐🔐 هر ۴ ساعت کانفیگا آپدیت میشن بعد از ۴ ساعت update subscription بزنید تا آپدیت شن @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6937
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آخرش یکی به این ترامپ کسخل نگفت قبل اینکه حمله کنی تنگه باز بود عوارضم نداشت ، الان باز شدن تنگه رو دست آورد بزرگ می‌دونه برا خودش کسخل کله زرد املاکی
+</div>
+
+## tasiyanc — post 6936
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6935
 
@@ -187,39 +229,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📊 حجم : نامحدود  |  ⏳انقضا : 30Day 📶 وضعیت اتصال : فعال ✅ ⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید دریافت کانفیگ نامحدود رایگان 🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
-</div>
-
-## tasiyanc — post 6912
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📊 حجم : نامحدود  |  ⏳انقضا : 30Day
-📶 وضعیت اتصال : فعال ✅
-⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید
-
-دریافت کانفیگ نامحدود رایگان
-
-🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
-</div>
-
-## tasiyanc — post 6911
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بخاطر شرایط احتمالا جنگی‌امشب یه چنتا سرور اختصاصی بریم؟
-</div>
-
-## tasiyanc — post 6910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این endpoit هارو جایگزین قبلی کنین (وایرگارد)
-8.6.112.235:1070
-8.6.112.228:1843
-8.6.112.19:908
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6908
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟢 ساب لینک اختصاصی تاسیان 🔹پر سرعت و نامحدود 🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt 🔐 🔐 ✔️ T.me/Tasiyanc ✅
 </div>
 

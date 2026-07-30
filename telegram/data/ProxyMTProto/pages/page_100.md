@@ -1,8 +1,56 @@
 # آرشیو کانال ProxyMTProto - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/08 12:19
+📅 آخرین بروزرسانی: 1405/05/08 14:31
 
 ---
+
+## ProxyMTProto — post 47637
+
+<div align="center"><img src="files/post_47637_ProxyMTProto_47637.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🫶 Welcome back #Iran! Metrics show a further rise in connectivity as mobile networks and other segments are reconnected to the global internet:
+
+• Filternet remains in place but can be worked around
+• WhatsApp now restricted, requiring circumvention
+• Some users still offline
+</div>
+
+## ProxyMTProto — post 47636
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowaboost.com
+Port: 443
+Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47635
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: For Iran
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47634
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dns.vdl.lat
+Port: 853
+Secret: ee534adcf23a16f425cbae129c4cb574cb6164732e78352e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47633
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r11.proxytg.space
+Port: 8443
+Secret: ee4e28f14af6d0e7d9dc65eecb94066c717231312e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47632
 
@@ -139,51 +187,6 @@ Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
 Server: mt.nowaboost.com
 Port: 443
 Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47617
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47616
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 146.103.96.129
-Port: 443
-Secret: ee627bdd42b085906e41105ddd7dab8cca706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dr1.dedus.pro
-Port: 443
-Secret: eeaf504aa56469ec880c9cb00515fc8a2d79616e6465782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47614
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dns.vdl.lat
-Port: 853
-Secret: ee534adcf23a16f425cbae129c4cb574cb6164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47613
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r1.proxytg.space
-Port: 8443
-Secret: eecd671d2032569f6cea0fb4c61c32756972312e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 

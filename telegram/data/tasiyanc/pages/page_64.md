@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/05/08 09:29
+📅 آخرین بروزرسانی: 1405/05/08 14:33
 
 ---
+
+## tasiyanc — post 6654
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆افتتاحیه جام‌جهانی امشب ساعت 22.30
+
+جدال مکزیک و آفریقا
+</div>
+
+## tasiyanc — post 6651
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔩 🔴ترامپ : نمی‌خواهم کاری کنم که مردم ایران تشنگی بکشند و آبی برای خوردن نداشته باشند، پس توافق کنید!
+@Tasiyanc
+✅
+</div>
+
+## tasiyanc — post 6650
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔩🔴ترامپ: ایران بزودی به پایان می‌رسد، امشب هم بشدت بمباران خواهند شد!
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6649
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ رویترز :
+لشکر 82 هوابرد آمریکا ملقب به لشکر شیطان به زودی جزایر نفتی ایران را تصرف خواهند کرد
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6648
 
@@ -153,43 +185,5 @@ Homayoun Shajarian & Sohrab Pournazeri – Irane Man
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk
-</div>
-
-## tasiyanc — post 6618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم
-https://t.me/+v0wRP5SGNrg5MThk
-</div>
-
-## tasiyanc — post 6617
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-
-vless://d39664df-5bc0-4f49-9894-8f03b4150082@germany-vip.soft26.ir:8443?mode=auto&path=%2F&security=reality&encryption=none&pbk=QLamtir13xwzyWVlPRN3C7lw_fhSBU7X4H3A8zAl5Fg&fp=chrome&type=xhttp&sni=www.yahoo.com&sid=6f3192#T.me%2FTasiYanc%20%E2%9A%A1%F0%9F%9A%80
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6616
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡🇩🇪 Fast - DE (1).npvt
-</div>
-
-## tasiyanc — post 6615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-2سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
