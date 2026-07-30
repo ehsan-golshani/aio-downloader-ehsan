@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/08 21:05
+📅 آخرین بروزرسانی: 1405/05/08 22:31
 
 ---
+
+## tasiyanc — post 8587
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 حمله به عربستان هم اکنوننننننن
+</div>
+
+## tasiyanc — post 8580
+
+<div align="center"><img src="files/post_8580_tasiyanc_8580.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه خانوم از اروپا بلند شده بره افغانستان و مثلا نشون بده که اره افغانیا خوبن و رفتارشون عالیه روز آخر توسط یه نفر مورد تجاوز قرار میگیره
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8579
+
+<div align="center"><img src="files/post_8579_tasiyanc_8579.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•پرامپت اختصاصی جدید مرد - زن 🤖🤖
+
+•عکساتو زیباتر کن 💖
+
+•آموزش استفاده 👉
+
+
+🔺دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر وقت ایرانیا فهمیدن عادل فرقی با میساقی نداره بازیو بردن
+</div>
 
 ## tasiyanc — post 8574
 
@@ -215,89 +254,5 @@ Location 🤯 🇫🇷
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇹🇷🍃 HotFast.npvt
-</div>
-
-## tasiyanc — post 8540
-
-<div align="center"><video src="files/post_8540_tasiyanc_8540.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8540_tasiyanc_8540.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم  ترکیه - استانبول
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود 
-⬇️ ترید 
-🤑
-اینستاگرام 
-📸 جمینای 
-🤖
-
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ فاکس نیوز رسانه نزدیک به ترامپ:
-اسرائیل به جنگ‌ خواهد پیوست.
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8524
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-سرور  سرعتی پرمیوم 
-⚡️
-
-تست شده روی همه نت ها 
-🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید ⛓
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر 💘
 </div>
 

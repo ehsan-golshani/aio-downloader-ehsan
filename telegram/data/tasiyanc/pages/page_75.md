@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/08 21:05
+📅 آخرین بروزرسانی: 1405/05/08 22:31
 
 ---
+
+## tasiyanc — post 6344
+
+<div align="center"><img src="files/post_6344_tasiyanc_6344.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST @Tasiyanc servers.txt
+</div>
+
+## tasiyanc — post 6343
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪼 اختصاصی تاسیان 👑
+
+85 کانفیگ Fast پروتکل Trojan ⚡
+
+بریزید ویتوباکس یا ویتوری پینگ بگیرید وصل شید 💚
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6342
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب تو راهه
+</div>
+
+## tasiyanc — post 6341
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معرفی کلاینت جدید VPN ساعت 18 🐾
+</div>
 
 ## tasiyanc — post 6339
 
@@ -181,51 +213,6 @@ Password : @Tasiyanc 
 
 آموزش اتصال 🎚
 
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشناروووووووو
-</div>
-
-## tasiyanc — post 6317
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6314
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش⏩
 
 @Tasiyanc ✅
 </div>

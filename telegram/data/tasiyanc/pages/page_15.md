@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/08 21:05
+📅 آخرین بروزرسانی: 1405/05/08 22:31
 
 ---
+
+## tasiyanc — post 8420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆پخش زنده مسابقات جام جهانی 2026 https://roxiestreams.su/soccer https://streamcorner.fyi/fifa-world-cup https://totalsportek.tips/football https://www.bintv.net https://soccerstreams.sbs https://strumyk.net سایت هایی که باز نمیشه رو باید با وی پی ان…
+</div>
+
+## tasiyanc — post 8419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همه چی به کنار خوب این عربارو گاییدن🤣
+بی خایه های کودن
+</div>
+
+## tasiyanc — post 8418
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شبکه 13 اسرائیل: ترامپ پیامی به کشورهای خلیج ارسال کرد: «اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.» @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شبکه 13 اسرائیل: ترامپ پیامی به کشورهای خلیج ارسال کرد:
+
+«اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.»
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8415
 
@@ -180,35 +209,5 @@ IP
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 8388
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 گزارش انفجار شدید در بوشهر
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8387
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 6 انفجار شدید در قشم @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8386
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 انفجار در سیریک
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8385
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 4 انفجار شدید در بندرعباس گزارش میشه
-
-@Tasiyanc ✅
 </div>
 
