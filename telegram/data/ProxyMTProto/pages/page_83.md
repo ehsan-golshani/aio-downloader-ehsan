@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/05/08 14:31
+📅 آخرین بروزرسانی: 1405/05/08 16:27
 
 ---
+
+## ProxyMTProto — post 47980
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: desk.proxytg.live
+Port: 443
+Secret: ee7930091e4348bb260a09c61562aa661a6465736b2e70726f787974672e6c697665
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47979
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: panel.proxytg.live
+Port: 443
+Secret: ee3963b99449e42aab75500a3caee059b870616e656c2e70726f787974672e6c697665
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47978
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47977
 
@@ -154,33 +181,6 @@ Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
 Server: track.proxytg.live
 Port: 443
 Secret: ee8e4bd7b2a034418fd924aeed3c97cd7b747261636b2e70726f787974672e6c697665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47960
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy2.arixo.shop
-Port: 443
-Secret: ee2d3817c6b2bf469fb5064e6cb4b19790617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47959
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: goal.chunkycorp.shop
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47958
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: eng.nolags.pw
-Port: 443
-Secret: dd390d29157d7c81eb7ce6ac2b50d2d39b
 @ProxyMTProto
 </div>
 

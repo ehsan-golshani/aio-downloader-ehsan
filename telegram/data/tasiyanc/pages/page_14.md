@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/08 14:33
+📅 آخرین بروزرسانی: 1405/05/08 16:29
 
 ---
+
+## tasiyanc — post 8430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تموم شد بریم بازی کسشر رو ببینیم
+</div>
+
+## tasiyanc — post 8429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانوووووو شکیرا اومد
+</div>
+
+## tasiyanc — post 8428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این بیژن مرتضوی ما چی شد
+</div>
 
 ## tasiyanc — post 8427
 
@@ -146,38 +164,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 Ip 🇩🇪 🇩🇪
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂 دریافت رسانه 👉
-</div>
-
-## tasiyanc — post 8400
-
-<div align="center"><img src="files/post_8400_tasiyanc_8400.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂
-
-دریافت رسانه 👉
-</div>
-
-## tasiyanc — post 8398
-
-<div align="center"><video src="files/post_8398_tasiyanc_8398.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8398_tasiyanc_8398.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔸توصیف عشق در یک جمله ...
-بفرست براش:)
-
-پروکسی | پروکسی
-
-
-@TASIYANC ✅
-#Nvd
 </div>
 
