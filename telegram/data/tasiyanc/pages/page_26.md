@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/08 19:00
+📅 آخرین بروزرسانی: 1405/05/08 21:05
 
 ---
+
+## tasiyanc — post 8095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ &  گیم 🎮 & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe ⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8094
+
+<div align="center"><img src="files/post_8094_tasiyanc_8094.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺دیوار نگاره جدید دوستان عرزشی در میدان انقلاب:  ترامپ را می کـــشیم
+
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 8093
+
+<div align="center"><video src="files/post_8093_tasiyanc_8093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8093_tasiyanc_8093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوس پسرم جوابمو نمی‌ده حتما داره بهم خیانت می‌کنه ، دوس پسرش :
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8092
+
+<div align="center"><img src="files/post_8092_tasiyanc_8092.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیس و دیس بک😂
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8091
 
@@ -168,45 +223,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ قبل قطعی نخررررررررید به اسم کانفیگ ملی یا هر کسشر دیگه
-
-گول این کانفیگ فروش‌های احمق و بی سواد نخورید وقتی اینترنت ملی بشه ، آیپی های کلودفلیرر از کار میوفتن کانفیگی ک خریدی کار نمیده
-
-وقتی اینترنت قط شه ۹۰٪ این چنلا میرن رد کارشون یا میان کانفیگ مارو دیکد می‌کنن یا یکی دو تا از رفیقامو ، به هرحال گفتم دوباره این مطلبو بگم .
-</div>
-
-## tasiyanc — post 8063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨 حمله آمریکا هم اکنون به بوشهر ۴ انفجار شدید @TasiyanProxy ☑️
-</div>
-
-## tasiyanc — post 8059
-
-<div align="center"><img src="files/post_8059_tasiyanc_8059.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سری جدید پول سلامتی نمیاره😐
-
-بانو شکیرا خواننده محبوب با ۵۰ سال سن :
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8058
-
-<div align="center"><video src="files/post_8058_tasiyanc_8058.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8058_tasiyanc_8058.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚫️مادر عمو پورنگ ( داریوش فرضیایی) فوت کرد
-ویدیو نشون میده از امروز شاهد پیر شدن عمو پورنگ خواهیم بود 🥹
-@Tasiyanc ⭐️
 </div>
 

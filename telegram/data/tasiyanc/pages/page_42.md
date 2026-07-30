@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/08 19:00
+📅 آخرین بروزرسانی: 1405/05/08 21:05
 
 ---
+
+## tasiyanc — post 7440
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل عوض شد --- ❤️
+</div>
+
+## tasiyanc — post 7438
+
+<div align="center"><img src="files/post_7438_tasiyanc_7438.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای خرید بازی GTA VI در‌ هر کشور چند روز باید کار کنی ؟
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7435
+
+<div align="center"><img src="files/post_7435_tasiyanc_7435.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برنامه بازی های امروز جام جهانی 🏆
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تفاهم هم رو هواس الان ، امشب احتمال داره شاهد تحرکات جدید از هر دو طرف باشیم
+</div>
 
 ## tasiyanc — post 7433
 
@@ -153,33 +183,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گلللللللللللللللللللل مصرررررر 🇪🇬
-</div>
-
-## tasiyanc — post 7411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیدارید؟
-</div>
-
-## tasiyanc — post 7409
-
-<div align="center"><img src="files/post_7409_tasiyanc_7409.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هوادارای حاضر در استادیوم با پرچم های رنگارنگ
-@Tasiyanc
-</div>
-
-## tasiyanc — post 7405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/TasiyanProxy/1840
-نتیجه بازی رو پیش بینی دقیق کنید کانفیگ بگیرید ، باید عضو چنل پروکسی باشید تا جایزه رو بگیرید
-</div>
-
-## tasiyanc — post 7403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه وضع ریکشن به این پخت پز😐😐😐
 </div>
 

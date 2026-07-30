@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 103
 
-📅 آخرین بروزرسانی: 1405/05/08 19:00
+📅 آخرین بروزرسانی: 1405/05/08 21:05
 
 ---
+
+## tasiyanc — post 5607
+
+<div align="center"><img src="files/post_5607_tasiyanc_5607.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc [02] WiFi ⚡ (1).npvt
+</div>
+
+## tasiyanc — post 5606
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان 📱
+
+⛈سرور تست شده wifi⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5605
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حجم پیام زیاده
+
+قربون همتون عشقید ❤️‍🔥💋
+</div>
+
+## tasiyanc — post 5604
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حرف نداری پسر/دختر🫶😂
+</div>
 
 ## tasiyanc — post 5603
 
@@ -129,46 +165,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc _ وای‌فای.npvt
-</div>
-
-## tasiyanc — post 5577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password @Tasiyanc
-
-🌐 اختصاصی تاسیان 2 سرور تست شده  وای‌فای   🌐
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5576
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password @Tasiyanc
-
-🌐 اختصاصی تاسیان 2 سرور تست شده  تمام اپراتورها  🌐
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5575
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قلق گرفتن دان لینک از کانفیگای تاسیان
-دکمه کانکت زدی بیا تلگرام یا اینستا صبر کن دان لینک داخل برنامه NPV نگیر
-دو سه دقیقه صبر الزامیه چون سرور نامحدود و پابلیکه طول می‌کشه بیاد بالا
-بعضی از کانفیگا احیانا بعد صبرتون پینگ نداد حالت پرواز بزنید دوباره تست کنین چون همشون از طرف ما تست شده هستن
-</div>
-
-## tasiyanc — post 5574
-
-<div align="center"><img src="files/post_5574_tasiyanc_5574.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-25 K 🍃.npvt
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/08 19:00
+📅 آخرین بروزرسانی: 1405/05/08 21:05
 
 ---
+
+## tasiyanc — post 7039
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیوزلند انقد کیری باز می‌کنه تیم شموشک بود دو تا گل میزد
+</div>
+
+## tasiyanc — post 7035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گلللللللل نیوزلند
+</div>
+
+## tasiyanc — post 7025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک از ماهواره نتونستن بگیرن میتونن از این سایت بدون نیاز به VPN از این شبکه ببینن
+TRT 1
+https://ritsatv.ru/mobile-version/movie-id901190-trt1
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بخاطر اون ۶۴۰۰۰ نفر بیدارم بازیو ببینیم
+</div>
 
 ## tasiyanc — post 7022
 
@@ -188,80 +215,5 @@ matador ⚡ Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥⚡Tasiyanc.dark
-</div>
-
-## tasiyanc — post 6989
-
-<div align="center"><video src="files/post_6989_tasiyanc_6989.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6989_tasiyanc_6989.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 
-🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها 
-✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک 
-⏩
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6986
-
-<div align="center"><video src="files/post_6986_tasiyanc_6986.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6986_tasiyanc_6986.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟
-🌟اختصاصی تاسیان 
-🌟
-🌟
-
-سه کانفیگ نپسترنت و یک کانفیگ Http 🚀
-
-تست شده - حجم نامحدود 
-🤩
-
-HttpCustum 
-📱 android 
-🕹 iOS
-
-NPV Tunnel 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال با HttpCustum 
-🔻
-
-آموزش اتصال با NPV TUNNEL 
-🔻
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از این به بعد ۲ فایل یه جا میزاریم
-یکی NPV TUNNEL یکی HTTPCUSTUM
-هر کی هر کدوم دوست داره وصل شه
-</div>
-
-## tasiyanc — post 6984
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡⚡@Taisyanc.hc
 </div>
 

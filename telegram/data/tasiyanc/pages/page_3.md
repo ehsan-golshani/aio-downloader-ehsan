@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/08 19:00
+📅 آخرین بروزرسانی: 1405/05/08 21:05
 
 ---
+
+## tasiyanc — post 8774
+
+<div align="center"><img src="files/post_8774_tasiyanc_8774.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرندی از افراد تیم مذاکره کننده :
+سپاه برای جنگ تمام عیار کامل آمادستِ
+</div>
+
+## tasiyanc — post 8773
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هم اکنون حملات سپاه به پایگاه آمریکا در اردن که گویا برخورد هم داشته
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8772
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴علیرضا سپاهی، یک تن از زندانیان سیاسی که قرار بود سحرگاه دیروز همزمان با برادر خود، ابوالفضل سپاهی و همچنین امیرحسین صفری در میدان علیخانی اعدام شود، اکنون در بیمارستان الزهرا اصفهان تحت تدابیر امنیتی بستری است.
+
+او در جریان فرایند انتقال به محل اعدام دچار سکته قلبی شده بود.
+
+@TasiyanProxy ⭐️| رسانه مردمی
+</div>
+
+## tasiyanc — post 8771
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
+</div>
 
 ## tasiyanc — post 8770
 
@@ -220,48 +253,5 @@ Vip for TS ⚡🔥.npvt
 
 ✔️ @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙄 همه بت باز های حرفه ای دنبال 🔞 شکار این بونوس ها هستن
-✅لیگ‌جهانی والیبال رو میتونید از اینجا پیشبینی کنید
-👇کافیه یه سر بزنی اینجا خودت میفهمی چه خبره 💯
-</div>
-
-## tasiyanc — post 8751
-
-<div align="center"><img src="files/post_8751_tasiyanc_8751.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیش بینی اختصاصی لیگ جهانی #والیبال رو از دست ندید.
-
-اسلوونی Vs ترکیه
-ژاپن Vs چین
-
-🤔 یک سایت کامل برا حرفه ای ها
-
-⚠️هر افزایش شارژ مساوی 2️⃣1️⃣🔣 شارژ بیشتر بدون محدودیت☄️
-
-به همراه 🤩 🤩🔤 کش بک باخت همه روزه
-
-🆕 هر رشته ورزشی که بخوای اینجا هست:
-🌐 betinja.bet
-🌐 betinja.bet
-کانال بونوس های رایگان r6
-@betinjabet
-</div>
-
-## tasiyanc — post 8750
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Multi Loc ⚡ @Tasiyanc.npvt
-</div>
-
-## tasiyanc — post 8747
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به وقت اذان صبح 💔
 </div>
 
