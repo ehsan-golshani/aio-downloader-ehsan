@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/05/08 22:31
+📅 آخرین بروزرسانی: 1405/05/09 00:00
 
 ---
+
+## tasiyanc — post 7193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم-وب‌گردی-اینستاگرام 👑
+
+کانفیگ حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7192
 
@@ -225,21 +239,5 @@ GN⚡⚡🇩🇪FST🇮🇹.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گفت نمیدانم چگونه اما تو تغییر کرده ای ، انگار غمی تجربه کرده ای که تو را بزرگ کرده !
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود مولتی لوکیشن
-
-3سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ➡️
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

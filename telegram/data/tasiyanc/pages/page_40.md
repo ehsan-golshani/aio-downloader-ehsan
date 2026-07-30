@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/08 22:31
+📅 آخرین بروزرسانی: 1405/05/09 00:00
 
 ---
+
+## tasiyanc — post 7527
+
+<div align="center"><video src="files/post_7527_tasiyanc_7527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7527_tasiyanc_7527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+۳ سرور  سرعتی پرمیوم 
+⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 
+🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7526
 
@@ -212,14 +235,5 @@ T.me/Tasiyanc ✅
 💘 دانلود دوبله فیلم بدون سانسور 💘
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 7481
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگر خاک ایران برفتد ز دست
-هنوز آخرین پر سیمرغ هست
-بگیرید ، بگیرید تیر و کمان را به دست
-جهنم بسازید بر هرچه پست .
 </div>
 

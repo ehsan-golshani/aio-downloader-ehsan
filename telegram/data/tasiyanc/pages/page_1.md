@@ -1,12 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/08 22:31
+📅 آخرین بروزرسانی: 1405/05/09 00:00
 
 ---
 
-## tasiyanc — post 8842
+## tasiyanc — post 8844
 
-<div align="center"><a href="files/post_8842_𝐅𝐀𝐒𝐓 ⚡ 𝐍𝐄𝐓𝐌𝐎𝐃 🇹🇼.nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 𝐅𝐀𝐒𝐓 ⚡ 𝐍𝐄𝐓𝐌𝐎𝐃 🇹🇼.nm</a></div>
+<div align="center"><video src="files/post_8844_tasiyanc_8844.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8844_tasiyanc_8844.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موقعیت؛ ترامپ وقتی به کشتی‌ها حمله می‌شه تو هرمز :
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8842
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
@@ -266,19 +276,5 @@ vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?secu
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هر وقت ایرانیا فهمیدن عادل فرقی با میساکی نداره بازیو بردن
-</div>
-
-## tasiyanc — post 8807
-
-<div align="center"><img src="files/post_8807_tasiyanc_8807.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبر خوب ، نوید زیادخان قره‌داغی مادرج*ده که دخترارو تو لایو اینستاگرام کتک می‌زد دستگیر شد
-
-« مشاهده ویدیو »
-
-
-⭐ @TASIYANC 
-⭐️
 </div>
 

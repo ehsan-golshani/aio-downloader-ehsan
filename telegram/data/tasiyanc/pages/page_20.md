@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/08 22:31
+📅 آخرین بروزرسانی: 1405/05/09 00:00
 
 ---
+
+## tasiyanc — post 8275
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ انفجار در یگان امداد سنندج ، تایید / تکذیب نمیشه
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8274
 
@@ -187,12 +195,6 @@
 </div>
 
 ## tasiyanc — post 8245
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلاااااااااار 195 😐
-</div>
-
-## tasiyanc — post 8244
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دلاااااااااار 195 😐
