@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/05/08 01:20
+📅 آخرین بروزرسانی: 1405/05/08 06:37
 
 ---
+
+## tasiyanc — post 6034
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درسته اکانت خانومم امروز از دسترس خارج شد ازهمین استفاده میکرد
+</div>
 
 ## tasiyanc — post 6033
 
@@ -141,11 +147,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 🦁  @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک فیلتر شکن استفاده میکنن امروز شنیدم هرکی با jumpjump وصل شده رفته اینستا ، اکانتش از دسترس خارج شده و نیاز به احراز هویت ( فیلم) داره تا اکانتش برگرده ، مراقب باشید با هر فیلترشکنی وصل نشید پ ن : نمی‌دونم درسته یا نه ولی دو سه نفر بهم گفتن @Tasiyanc…
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/08 01:20
+📅 آخرین بروزرسانی: 1405/05/08 06:37
 
 ---
+
+## tasiyanc — post 7525
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همه دوستانی که اندروید دارن نت مود دانلود کنن بیشتر میزارم از امروز همراه نپستر
+</div>
 
 ## tasiyanc — post 7524
 
@@ -214,12 +220,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ESPRESSO 🔥☕.npvt
-</div>
-
-## tasiyanc — post 7478
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توهین مجدد میثاقی به مردم ایران:
-کسایی که برای خوشحالی گل شجاع کلیپ می‌سازن همون جای خالی ان!
 </div>
 

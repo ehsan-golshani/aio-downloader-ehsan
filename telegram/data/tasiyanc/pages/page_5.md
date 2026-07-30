@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/08 01:20
+📅 آخرین بروزرسانی: 1405/05/08 06:37
 
 ---
+
+## tasiyanc — post 8698
+
+<div align="center"><video src="files/post_8698_tasiyanc_8698.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8698_tasiyanc_8698.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺پروفسور نادر انقطاع فیزیک‌دان و دانشمند نخبه ایرانی متولد سال 1334 تهران , دارنده نشان بنجامین فرانکلین( مدالی که انیشتین و تسلا هم گرفته بود)
+کسی که تحول عظیمی در رادار گریزی جنگنده های نسل جدید آمریکا مثل F22 Raptor و F35 و B-52 ایجاد کرد !
+
+@TASIYANC 💠
+</div>
 
 ## tasiyanc — post 8696
 
@@ -215,12 +228,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امشب چقد آرومه 🦦
-</div>
-
-## tasiyanc — post 8671
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 انفجار در امیدیه - تایید میشه\نمیشه
-@Tasiyanc
 </div>
 

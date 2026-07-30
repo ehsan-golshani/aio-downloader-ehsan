@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/08 01:20
+📅 آخرین بروزرسانی: 1405/05/08 06:37
 
 ---
+
+## tasiyanc — post 8488
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 🔐
+vless://e7961655-9674-4cbd-a36f-ec0d5d7d660c@45.130.125.200:2053?path=%2F&security=tls&encryption=none&insecure=0&fp=chrome&type=ws&allowInsecure=0&sni=po.fastbrokencompony.com#%40Tasiyanc%20Nuremberg%20%F0%9F%87%A9%F0%9F%87%AA
+vless://e7961655-9674-4cbd-a36f-ec0d5d7d660c@45.130.125.138:2053?path=%2F&security=tls&encryption=none&insecure=0&fp=chrome&type=ws&allowInsecure=0&sni=po.fastbrokencompony.com#%40Tasiyanc%20Nuremberg%20%F0%9F%87%A9%F0%9F%87%AA2
+
+Loc 🇩🇪 🇩🇪
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8486
 
@@ -186,13 +198,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨💪 بازی ایران آمریکا آغاز شد
-</div>
-
-## tasiyanc — post 8463
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبه به ترامپ میکروفن ندادن وگرنه میخواست بگه ایران نباید سلاح هسته ای داشته باشه وسط زمین
-
-@TASIYANC ✅
 </div>
 

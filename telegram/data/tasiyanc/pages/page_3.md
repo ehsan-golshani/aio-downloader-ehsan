@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/08 01:20
+📅 آخرین بروزرسانی: 1405/05/08 06:37
 
 ---
+
+## tasiyanc — post 8755
+
+<div align="center"><img src="files/post_8755_tasiyanc_8755.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسلیت.
+</div>
 
 ## tasiyanc — post 8754
 
@@ -217,11 +225,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔺کاهش 8% درصدی قیمت نفت به ۹۱ دلار بدلیل توقف حملات جمهوری اسلامی و آمریکا
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8726
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ⚡🇹🇷.nm
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/08 01:20
+📅 آخرین بروزرسانی: 1405/05/08 06:37
 
 ---
+
+## tasiyanc — post 7257
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشمای بلژیک ریخته ۱۱ نفری دفاع میکنن
+</div>
 
 ## tasiyanc — post 7256
 
@@ -244,14 +250,5 @@ Wnd🍓 @Tasiyanc.conf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ Windscribe 
 🔐 می‌خوام بزارم ، همونطوری ک میدونید بهترین کلاینت VPN حال حاضره از هر لحاظ ، دانلودش داشته باشید بریم تو کارش ، این کانفیگ ها مناسب گیم و وبگردی هستن
-</div>
-
-## tasiyanc — post 7221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جرمی دوکو ستاره بلژیک در آستانه بازی با ایران بخاطر زایمان همسرش از اردوی بلژیک جدا شد
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

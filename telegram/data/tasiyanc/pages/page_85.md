@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/08 01:20
+📅 آخرین بروزرسانی: 1405/05/08 06:37
 
 ---
+
+## tasiyanc — post 6062
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+4سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6061
 
@@ -139,11 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 باز الان یکی میاد چرت چند میگه نه اینجور نیست خب پاره شدیم تحقیق کردیم جامپ مخربه و ربطی به آیپی نداره بری فعال یا غیر فعال کنی ، بقیه فیلترشکنا چنین چیزی گزارش نشده
-</div>
-
-## tasiyanc — post 6034
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درسته اکانت خانومم امروز از دسترس خارج شد ازهمین استفاده میکرد
 </div>
 
