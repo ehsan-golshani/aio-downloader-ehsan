@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 103
 
-📅 آخرین بروزرسانی: 1405/05/08 06:37
+📅 آخرین بروزرسانی: 1405/05/08 09:29
 
 ---
+
+## tasiyanc — post 5584
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان 📱
+
+⛈دو سرور تست شده همه اپراتورها⛈
+
+برای اتصال پایدار صبور باشید
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5583
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ اموزش ویدیویی ترکیبی سایفون با کلاینت MahsaNg 1 - وارد بخش get EMS  config شوید گزینه Mahsa repo رو بزنید بعد روی get emergency config بزنید تا کانفیگ ها اضافه بشن 2 - وارد تنظیمات سایفون شوید protocol روی Auto قرار بدید و aggressive هم ON باشه 3 -…
+</div>
 
 ## tasiyanc — post 5580
 
@@ -163,21 +183,5 @@ WAR 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بمب بعدی در راه
-</div>
-
-## tasiyanc — post 5562
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان  تمام اپراتورها  📶
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5561
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برخی مناطق گزارش میدن آنتن همراه اول قطع شده
 </div>
 

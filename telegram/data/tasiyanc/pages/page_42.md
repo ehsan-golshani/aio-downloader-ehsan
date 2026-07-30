@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/08 06:37
+📅 آخرین بروزرسانی: 1405/05/08 09:29
 
 ---
+
+## tasiyanc — post 7416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدایی گل خوبی زد رامین
+</div>
+
+## tasiyanc — post 7415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گلللللللللللللللل رامین
+</div>
 
 ## tasiyanc — post 7414
 
@@ -193,29 +205,5 @@ FAST ⚡⚡🔥.npvt
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7377
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود سرور 🇩🇪
-
-4سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc | تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروفایل چنل عوض شد
-مرسی از آرمان موسس بانک خاورمیانه
 </div>
 

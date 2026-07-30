@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/05/08 06:37
+📅 آخرین بروزرسانی: 1405/05/08 09:29
 
 ---
+
+## tasiyanc — post 7332
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چند فکت تاریخی :
+
+💘.سال 1352 ایران بعنوان ازادترین کشورجهان انتخاب شد
+
+💘.سال 1356 ایران قوی ترین نیروی هوایی آسیا و سوم دنیا بود
+
+💘.سال 1355 تهران سومین پایتخت پاکیزه جهان شد
+
+💘.سالی که ورزشگاه آزادی ساخته شد تو کشورهای عربی حتی توپ فوتبال هم نبود
+
+💘.ایران در سال 1352 تنها کشور اسیا بود که در تمام دنیا پاسپورتش نیاز به ویزا نداشت
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7330
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دو تا کانفیگ نپستر بالا وصلن بدون اینکه پینگ بگیرید وصل شید
+</div>
 
 ## tasiyanc — post 7325
 
@@ -201,20 +225,5 @@ WG🍓@Tasiyanc.conf
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7296
-
-## tasiyanc — post 7293
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 New Protocol⚡️سرعتی
-
-hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls&insecure=0&sni=de1.xiaoliyu.cyou#T.me%2FTasiyanc%20%F0%9F%87%A9%F0%9F%87%AA%E2%9A%A1%E2%81%B0%C2%B9
-hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls&insecure=0&sni=de1.xiaoliyu.cyou#T.me%2FTasiyanc%20%F0%9F%87%A9%F0%9F%87%AA%E2%9A%A1%E2%81%B0%C2%B2
-
-📍🇩🇪
-
-✅ T.me/Tasiyanc
 </div>
 
