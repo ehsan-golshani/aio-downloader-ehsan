@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/09 00:00
+📅 آخرین بروزرسانی: 1405/05/09 01:25
 
 ---
+
+## tasiyanc — post 7892
+
+<div align="center"><video src="files/post_7892_tasiyanc_7892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7892_tasiyanc_7892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعتان چووونه رفته نوکِ چرخ و فلک داره تبلیغ بالشت و پتو میکنه😐
+
+بالشتش هم اون وسط پرت شد پایین، میگه عیبی نداره یکم ترسو بود...
+
+@Tasiyanc ⭐️
+#Navid
+</div>
 
 ## tasiyanc — post 7891
 
@@ -277,11 +292,5 @@
 
 👈 دریافت کانفیگ ها 
 👉
-</div>
-
-## tasiyanc — post 7842
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انفجار در چابهار 😐
 </div>
 

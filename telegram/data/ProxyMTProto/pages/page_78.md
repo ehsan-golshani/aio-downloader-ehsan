@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/08 23:58
+📅 آخرین بروزرسانی: 1405/05/09 01:23
 
 ---
+
+## ProxyMTProto — post 48097
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Together-for-iran.jetish.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48096
 
@@ -172,15 +181,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: vegas.nolags.pw
 Port: 443
 Secret: dd0c7f9a8781cf31a8aaae72e341834449
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48077
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: flux.proxytop.space
-Port: 443
-Secret: ee939c94e58cb9ac7dec74ae86d8461089666c75782e70726f7879746f702e7370616365
 @ProxyMTProto
 </div>
 

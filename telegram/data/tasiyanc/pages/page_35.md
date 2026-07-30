@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/09 00:00
+📅 آخرین بروزرسانی: 1405/05/09 01:25
 
 ---
+
+## tasiyanc — post 7709
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ظهرتون بخیر 🦦
+</div>
 
 ## tasiyanc — post 7708
 
@@ -192,27 +198,5 @@ Password @Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 VIP 🎯 @Tasiyanc.nm
-</div>
-
-## tasiyanc — post 7682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-3سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید ⛓
-آموزش اتصال روی ویندوز ⛓
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
 </div>
 

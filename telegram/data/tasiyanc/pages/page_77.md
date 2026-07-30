@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/09 00:00
+📅 آخرین بروزرسانی: 1405/05/09 01:25
 
 ---
+
+## tasiyanc — post 6294
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گیمرایی ک مشکلات ورود به بازی های آنلاین دارن بالا باشید 💋
+</div>
 
 ## tasiyanc — post 6293
 
@@ -190,23 +196,5 @@ ON TARGET ⚡✅.npvt
 چنل پروکسی هنوز جوین نشدین؟
 
 https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6269
-
-<div align="center"><video src="files/post_6269_tasiyanc_6269.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6269_tasiyanc_6269.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB سرور IT  
-👑
-دانلود  Wg tunnel 
-🕹
-دانلود iOS 🍏
-آموزش
-⏩
-
-@Tasiyanc ✅
 </div>
 

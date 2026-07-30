@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/05/09 00:00
+📅 آخرین بروزرسانی: 1405/05/09 01:25
 
 ---
+
+## tasiyanc — post 5729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده ⛈ 
+
+رمز : ″ @Tasiyanc ″
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5728
 
@@ -183,17 +196,5 @@ sv Country 🇬🇧
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc - FULL VASL 🍃.npvt
-</div>
-
-## tasiyanc — post 5706
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈4 سرور تمام اپراتورا متصل سرعت نور ⛈ 
-
-
-🚀 @Tasiyanc ✅
 </div>
 
