@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/09 13:29
+📅 آخرین بروزرسانی: 1405/05/09 15:45
 
 ---
+
+## MehdiBudam — post 8113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor5
+
+
+slipnet-enc://AaW+Odfg4Gyd5ZuA3mkJ+m2B0qi39CUp1C+IofeIRqyMKMulzkCKXQaF06clWzkTr/DgGA3dK0yepIIh9DoL649W9jGmcxylsV7oMNhKPVZo3ihNqjagF1OeZAyN2/6Kvvn2/ONCNHWQQE3pkpE/+XC8UVBCBZD5DgG56Om1DAFtT0jS3XybGUwPbNJtcy3DVA2Hkd5fsiGrEKXjA4dh91GUpv1zq4/vr/hknWRxykIKYAJkQvL2FcukZdjn7klIS4Gntm54t/mOQfzXlKIQL7fOsqcdJ3pKJsTZgzW9Ocmwq3jmEwS3r8+X1FS3XzkgeMWO6zjKjeQ1HiA4WoiBAzlp+kbIKUnrftr2dDkVJvcYPgUuSbwTKKKlltBRdV7OWILJajQa4RBycEBvVLBvGJk+sMP6GUZKO2d2ewbSU40MBEkns/arpk2X2lgbS0FYXBNnsYkxU6Xq3Vmi1/xhnlJorYe2dgL3FwB3bIn7X7RR1ORx+L21Q72mQqPeqnLE0K1Obn5jvw5QO/A18/kmfethWRt0LWzQMJzBwIqNvketYucpIkHVX4OxITi1FaHtePcukUVkecHz6sGK+ipkHycz0oFUYfyc3UUi0w49DXWDYj0HL8H7jSux8b4TZvgG+qxwe8A1k4Tl+BRXozpBkwUzRqNLL2OzvZpm6oFlUCru8FtVu1KAbUnKzM3/KV+K7hge3Da2xYqiThtY30ZfQF/0a//ge0h+8Ua1cVg=
+
+
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8112
 
@@ -146,11 +158,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
-</div>
-
-## MehdiBudam — post 8091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در مورد متد Tor بعضیا که میگید وصل نمیشه یا تا ۱۴ درصد میره وقتی از رباتش میخواید Bridge بگیرید هم Web Tunnel بگیرید و هم obfs4 و وقتی از تنظیمات بصورت دستی وارد میکنید با یه فاصله بینشون هر دو رو وارد کنید در این حالت هرکدوم کار کنه وصل میشه.
 </div>
 
