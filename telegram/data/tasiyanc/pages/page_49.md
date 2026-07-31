@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/05/09 21:46
+📅 آخرین بروزرسانی: 1405/05/09 23:35
 
 ---
+
+## tasiyanc — post 7222
+
+<div align="center"><img src="files/post_7222_tasiyanc_7222.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ Windscribe 
+🔐 می‌خوام بزارم ، همونطوری ک میدونید بهترین کلاینت VPN حال حاضره از هر لحاظ ، دانلودش داشته باشید بریم تو کارش ، این کانفیگ ها مناسب گیم و وبگردی هستن
+</div>
+
+## tasiyanc — post 7221
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جرمی دوکو ستاره بلژیک در آستانه بازی با ایران بخاطر زایمان همسرش از اردوی بلژیک جدا شد
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7220
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+DhVkjFb6qhZmYTFk کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
+</div>
+
+## tasiyanc — post 7219
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+DhVkjFb6qhZmYTFk
+کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
+</div>
 
 ## tasiyanc — post 7217
 
@@ -298,46 +329,5 @@ BERLIN 🇩🇪⚡️GN.npvt
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن مولتی
-
-3سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SIUUUUUUUUUUUUUUUUUU! 🐐🌟
-</div>
-
-## tasiyanc — post 7190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-(با تمام احترامی که به مسی و هوادارانش قائلم)ترجیح میدم طرفدار آقای گل جهان باشم کسی ک به هر تیمی رف مثل ستاره درخشید و همیشه نامبر وان شد و هست ، رونالدو اگه مثل پسر فیفا ۲۰ سال تو رئال میموند مسی گرد پاشم نمیشد
-
-لبیک یا رونالدو
-</div>
-
-## tasiyanc — post 7189
-
-<div align="center"><img src="files/post_7189_tasiyanc_7189.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تیم ملی فوتبال الجزایر از داور بخاطر این خطای پسرشون (لیونل مسی) و حتی نگرفتن اخطار شکایت کرد.
-پی‌نوشت : فک کنم الجزایر رو محروم کنن بخاطر اینکه پسر فیفا رو شکایت کردن 😐
-
-@Tasiyanc ✅
 </div>
 

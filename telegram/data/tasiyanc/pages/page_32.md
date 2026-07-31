@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/09 21:46
+📅 آخرین بروزرسانی: 1405/05/09 23:35
 
 ---
+
+## tasiyanc — post 7890
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای فرزندانی که سهمشان از وطن یک گلوله بود 🖤
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 7884
+
+<div align="center"><img src="files/post_7884_tasiyanc_7884.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 جدیدا دخترای ایرانی توی توییتر، با انتشار این تصاویر دارن پسرا رو به کتابخوانی دعوت میکنن😂
+
+@Tasiyanc ⭐️
+#Navid
+</div>
+
+## tasiyanc — post 7883
+
+<div align="center"><img src="files/post_7883_tasiyanc_7883.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc✅
+#Mobina
+</div>
+
+## tasiyanc — post 7882
+
+<div align="center"><img src="files/post_7882_tasiyanc_7882.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀‼️اینستاگرام در اقدامی جنجالی، قابلیتی اضافه کرده که بقیه می‌تونن باهاش از عکس‌های شما برای ساخت تصاویر هوش مصنوعی استفاده کنن.
+
+اگه اکانتتون پابلیکه، این قابلیت به‌صورت پیش‌فرض روشنه؛ اینطوری خاموشش کنید.
+
+@Tasiyanc✅
+#Mobina
+</div>
 
 ## tasiyanc — post 7881
 
@@ -277,35 +318,5 @@
 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جدید درباره تعویق امتحانات 👉 🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
-</div>
-
-## tasiyanc — post 7838
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جدید درباره تعویق امتحانات 👉
-🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
-</div>
-
-## tasiyanc — post 7834
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ رسما و شرعا آغاز شد
-</div>
-
-## tasiyanc — post 7832
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 4 تا کانفیگ پرسرعت OpenVpn 
-📶 گذاشتم تو ربات خودمون برید بردارید چون ظرفیت محدوده چنل نمیزارم
-
-
-👈 دریافت کانفیگ ها 
-👆
 </div>
 

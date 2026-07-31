@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/09 21:46
+📅 آخرین بروزرسانی: 1405/05/09 23:35
 
 ---
+
+## tasiyanc — post 8842
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+
+سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید⛓
+
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8840
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#کاربردی
+
+با این دو سایت میتونید آهنگهای SoundCloud & Spotify رو دانلود کنید
+کافیه لینک آهنگ رو بدید تا براتون دانلود کنه با کیفیت دلخواه ، من شخصا با ساندکلاد زیاد حال میکنم
+
+🎵 https://www.dltracks.com/en
+
+🎵https://spotmate.online/en1
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ برا ویندوز بزارم ؟
+</div>
+
+## tasiyanc — post 8838
+
+<div align="center"><video src="files/post_8838_tasiyanc_8838.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8838_tasiyanc_8838.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سنای آمریکا با ۵۰ رأی مخالف در برابر ۴۹ رأی موافق
+طرح محدود کردن اختیارات ترامپ برای اقدام نظامی علیه ایران رو رد کرد
+
+✈️@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8837
 
@@ -220,61 +278,5 @@ vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?secu
 
 ⭐ @TASIYANC 
 ⭐️
-</div>
-
-## tasiyanc — post 8806
-
-<div align="center"><video src="files/post_8806_tasiyanc_8806.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8806_tasiyanc_8806.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویدیو های منتشر شده از زار و شیون اعضای حشدالشبی بر سر اجساد بستگانشان
-
-
-⭐ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8805
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 معاون استاندار خوزستان:
-مناطقی در نزدیکی شهر شادگان در جنوب غربی ایران هدف حملات هوایی آمریکا قرار گرفته
-
-@TasiyanProxy
-</div>
-
-## tasiyanc — post 8803
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور 📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ لوکیشن آلمان و اسپانیا 💥
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC 💠
-</div>
-
-## tasiyanc — post 8802
-
-<div align="center"><video src="files/post_8802_tasiyanc_8802.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8802_tasiyanc_8802.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢ترامپ: آمریکا به‌زودی «ضربه بسیار سختی» به ایران خواهد زد.
-ایران شب گذشته پنج موشک شلیک کرده که همگی رهگیری شدن، حالا نوبت ماست.
-باید دید در نهایت توافقی حاصل میشه یا نه.
-
-⭐ @TASIYANC ⭐️ | پروکسی متصل
 </div>
 
