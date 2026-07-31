@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/09 10:30
+📅 آخرین بروزرسانی: 1405/05/09 13:31
 
 ---
+
+## tasiyanc — post 8342
+
+<div align="center"><img src="files/post_8342_tasiyanc_8342.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معلم جلوی پروژکتور معلم کنار پروژکتور
+
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8341
+
+<div align="center"><img src="files/post_8341_tasiyanc_8341.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴10 فیلم معروفی که پایان‌بندی‌شون غافلگیرتون می‌کنه و پشماتون از دیدنشون میریزه:
+
+▪️The Sixth Sense 1999
+▫️Se7en 1995
+▪️Fight Club 1999
+▫️The Prestige 2006
+▪️Shutter Island 2010
+▫️The Usual Suspects 1995
+▪️ Oldboy 2003
+▫️Primal Fear 1996
+▪️The Mist 2007
+▫️Incendies 2010
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8339
 
@@ -151,22 +183,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خاورمیانه آرومه امشب انگار؟
-</div>
-
-## tasiyanc — post 8306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ شنیده شدن صدای انفجار در اهواز
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاهش پهنای باند داره گزارش میشه
-کانفیگ مخصوص نت ملی رو بگیرید
-
-دریافت کانفیگ 👉
 </div>
 

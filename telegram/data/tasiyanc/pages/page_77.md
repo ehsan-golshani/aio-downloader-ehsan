@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/09 10:30
+📅 آخرین بروزرسانی: 1405/05/09 13:31
 
 ---
+
+## tasiyanc — post 6302
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به هرحال فشار میاد و تردید میکنم برای ادامه فعالیت
+</div>
+
+## tasiyanc — post 6301
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما ک از اولش گفتم Ovpn تو حیطه من نی و نمیزارم ،چیزای ام ک میزاریم از Ovpn بیشتر از vpnbook یا vpnjantit که اشتراکشو دارم
+</div>
 
 ## tasiyanc — post 6300
 
@@ -196,26 +208,5 @@ MCI - SamanTel - wifi تست شده
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6277
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده با سامانتل و ایرانسل🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6276
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم ⏩ @TasiyanProxy ⏩ @TasiyanProxy
 </div>
 

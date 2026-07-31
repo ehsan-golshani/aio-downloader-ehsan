@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/09 10:30
+📅 آخرین بروزرسانی: 1405/05/09 13:31
 
 ---
+
+## tasiyanc — post 7719
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مصر یک صفر جلوئه
+</div>
+
+## tasiyanc — post 7718
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقایقی بعد آغاز بازی , چند چند میشه؟
+
+Egypt 🇪🇬 🇦🇷 Argentina
+</div>
 
 ## tasiyanc — post 7717
 
@@ -187,17 +201,5 @@ Password @Tasiyanc
 آموزش اتصال به اینجکتور ✨
 
 مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
-</div>
-
-## tasiyanc — post 7692
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ های وایرگارد آپدیت شد ، با سرعت مناسب گیم و اینستاگرام 🔥🚀 فول سرعتی مناسب تمام اپراتورها 👇 دریافت کانفیگ های وایرگارد 🔥
-</div>
-
-## tasiyanc — post 7691
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کارلو آنجلوتی رید برزیل و حذف کرد
 </div>
 

@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/09 10:30
+📅 آخرین بروزرسانی: 1405/05/09 13:31
 
 ---
+
+## tasiyanc — post 7103
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقام رونالدو تو ترکیبه 🥹❤️
+</div>
+
+## tasiyanc — post 7102
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+2سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود🎥 وب‌گردی🔍 جمینای 🤖 🚀
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7101
 
@@ -253,20 +275,5 @@ Password ': @Tasiyanc
 ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@series-a2.samanehha.co:443#%F0%9F%87%AC%F0%9F%87%A7%40Tasiyanc%20%F0%9F%8C%99
 Loc 🇬🇧
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7060
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 16 June روز برآورده شدن آرزوهاتونه😄
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7058
-
-<div align="center"><img src="files/post_7058_tasiyanc_7058.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمامی نپسترایی ک از دیروز صبح زدیم وصلن با سرعت فضایی وصل شید عشق کنید ⚡️
 </div>
 

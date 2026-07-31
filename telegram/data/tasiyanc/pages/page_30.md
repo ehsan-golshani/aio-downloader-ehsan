@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/09 10:30
+📅 آخرین بروزرسانی: 1405/05/09 13:31
 
 ---
+
+## tasiyanc — post 7938
+
+<div align="center"><img src="files/post_7938_tasiyanc_7938.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با این پرامپت بچگیتو در آغوش بگیر 👼
+از اون پرامپت‌های وایرال شده و به شدت جذابه ..
+
+Take a photo taken with a Polaroid camera. The photo should look like an ordinary photograph, without an explicit subject or property. The photo should have a slight blur and consistent light source, like a flash from a dark room, scattered throughout the photo.Don't change the face.
+Change the background behind those two people with white curtains. With hugging me.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7937
+
+<div align="center"><img src="files/post_7937_tasiyanc_7937.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏جوری که این مدت گذشت:
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7936
 
@@ -217,20 +240,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 🔻صدای انفجارهایی که چندی پیش در شرق استان تهران شنیده شد، نتیجه یک عملیات کنترل شده برای خنثی سازی مواد منفجره بود.
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 7902
-
-<div align="center"><img src="files/post_7902_tasiyanc_7902.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پاکدشت - پارچین
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7897
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🦅 FALCON VIP ⚡.npvt
 </div>
 
