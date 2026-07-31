@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/09 20:06
+📅 آخرین بروزرسانی: 1405/05/09 21:46
 
 ---
+
+## tasiyanc — post 8123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آرژانتین زددد
+</div>
+
+## tasiyanc — post 8122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انگلیس زددددد
+</div>
+
+## tasiyanc — post 8120
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ حمله شدید آمریکا به کرمان
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8119
 
@@ -181,50 +201,6 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💢 فوری، رمضان رحیمی عضو کمیسیون آموزش: اگر شرایط جنگ و بحرانی ادامه پیدا کنه، کنکور به تعویق خواهد خورد.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد
-
-مناسب دانلود⬇️ &  گیم 🎮 & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe ⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8094
-
-<div align="center"><img src="files/post_8094_tasiyanc_8094.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺دیوار نگاره جدید دوستان عرزشی در میدان انقلاب:  ترامپ را می کـــشیم
-
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8093
-
-<div align="center"><video src="files/post_8093_tasiyanc_8093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8093_tasiyanc_8093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوس پسرم جوابمو نمی‌ده حتما داره بهم خیانت می‌کنه ، دوس پسرش :
-
 @Tasiyanc ⭐️
 </div>
 

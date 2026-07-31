@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 105
 
-📅 آخرین بروزرسانی: 1405/05/09 20:06
+📅 آخرین بروزرسانی: 1405/05/09 21:46
 
 ---
+
+## tasiyanc — post 5577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Password @Tasiyanc
+
+🌐 اختصاصی تاسیان 2 سرور تست شده  وای‌فای   🌐
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5576
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Password @Tasiyanc
+
+🌐 اختصاصی تاسیان 2 سرور تست شده  تمام اپراتورها  🌐
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5575
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قلق گرفتن دان لینک از کانفیگای تاسیان
+دکمه کانکت زدی بیا تلگرام یا اینستا صبر کن دان لینک داخل برنامه NPV نگیر
+دو سه دقیقه صبر الزامیه چون سرور نامحدود و پابلیکه طول می‌کشه بیاد بالا
+بعضی از کانفیگا احیانا بعد صبرتون پینگ نداد حالت پرواز بزنید دوباره تست کنین چون همشون از طرف ما تست شده هستن
+</div>
 
 ## tasiyanc — post 5574
 
@@ -134,27 +167,6 @@ WAR 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨هم اکنون پرواز هواپیمای سوخت رسان ایالت متحده KC46 Pegasus بر فراز خلیج عمان
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5554
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨به گزارش استانداری بندرعباس منشأ صدا های انفجار در دست بررسی است
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هم اکنون فعالیت پدافند بندرعباس (احتمالا تست هست)
-</div>
-
-## tasiyanc — post 5552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فارس :
-صداهای مشابهی در جزایر سیریک و جاسک شنیده شده
 @Tasiyanc ✅
 </div>
 
