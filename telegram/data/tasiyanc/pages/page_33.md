@@ -1,8 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/09 23:35
+📅 آخرین بروزرسانی: 1405/05/10 02:06
 
 ---
+
+## tasiyanc — post 7843
+
+<div align="center"><video src="files/post_7843_tasiyanc_7843.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7843_tasiyanc_7843.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دریافت کانفیگ نت مود مخصوص شرایط اضطراری پر سرعت ( برای گیم و دانلود و اینستاگرام)
+
+
+👈 دریافت کانفیگ ها 
+👉
+</div>
+
+## tasiyanc — post 7842
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انفجار در چابهار 😐
+</div>
+
+## tasiyanc — post 7840
+
+<div align="center"><video src="files/post_7840_tasiyanc_7840.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7840_tasiyanc_7840.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 
+🔐
+
+سرور سرعتی پرمیوم متد جدید سرور 
+⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 اینستاگرام 
+📸 جمینای 
+🤖
+
+
+
+اتصال امن برای همه 
+🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7839
 
@@ -186,41 +248,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 آموزش اتصال
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7795
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری
-پیت هگست وزیر جنگ آمریکا بخاطر جنگ با ایران سفرش به اسرائیل را لغو کرد
-</div>
-
-## tasiyanc — post 7794
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ ترامپ : دستور لغو توافق و مذاکرات را صادر کردم
 </div>
 

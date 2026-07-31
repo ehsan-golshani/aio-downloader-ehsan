@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/09 23:35
+📅 آخرین بروزرسانی: 1405/05/10 02:06
 
 ---
+
+## tasiyanc — post 5625
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان 📱
+
+⛈1 سرور تست شده wifi⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5613
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان 📱
+
+⛈سرور تست شده wifi⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5612
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گوگل پلی برا بعضیا باز شده و اکثرا باز نشده ( طبق گزارش ممبرهای عزیزمون)
+</div>
 
 ## tasiyanc — post 5611
 
@@ -122,37 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانالت عالیه من همیشه با تو وصلم
-</div>
-
-## tasiyanc — post 5594
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ممنون از همه زحماتتون تیم تاسیان مرسی من با npv تونستم وصل شم
-</div>
-
-## tasiyanc — post 5585
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان 📱
-
-⛈ سرور تست شده همه اپراتورها⛈
-
-برای اتصال پایدار صبور باشید
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈دو سرور تست شده همه اپراتورها⛈
-
-برای اتصال پایدار صبور باشید
-
-🚀 @Tasiyanc ✅
 </div>
 

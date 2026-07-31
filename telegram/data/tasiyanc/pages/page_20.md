@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/09 23:35
+📅 آخرین بروزرسانی: 1405/05/10 02:06
 
 ---
+
+## tasiyanc — post 8300
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺ صداوسیما : ۳ انفجار در سیریک شنیده شد.
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8299
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دولت عراق مجوز فعالیت استارلینک تو این کشور رو رسما امضا کرد
+.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8297
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سپاه خورموج و اهواز مورد هدف موشکی.
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8296
 
@@ -133,32 +159,6 @@ JAVID SHAH 👑
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 از کتاب تاریخ نسل ما خونهای بسیاری میچکه....😞💔
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8277
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺فاکس نیوز: یک گزارش محرمانه که برای ریاست‌ جمهوری اسلامی تهیه شده، نشان می‌دهد تنها ۹ درصد ایرانیان از حفظ وضع موجود حمایت می‌کنند.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8276
-
-<div align="center"><img src="files/post_8276_tasiyanc_8276.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بریم به کی بگیم این ایرانِ ۵۰ سال پیش ما بود !
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8275
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ انفجار در یگان امداد سنندج ، تایید / تکذیب نمیشه
 
 @Tasiyanc ⭐️
 </div>

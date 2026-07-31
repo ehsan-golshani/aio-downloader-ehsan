@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/09 23:35
+📅 آخرین بروزرسانی: 1405/05/10 02:06
 
 ---
+
+## tasiyanc — post 8224
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨جمهوری اسلامی یکی از رادار های آمریکا در کویت را مورد هدف قرار داد
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8223
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وطن عشق من🇮🇷
+هموطن جان من💔
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8222
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⁉️پل ارتباطی جم سیراف رو هم زدن
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8221
 
@@ -146,31 +171,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨
 🚨وضعیت آسمان ایران هم اکنون
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ارتش آمریکا یک عملیات هلی‌بورنی را بر روی یک نفتکش ایرانی انجام داد هم اکنون
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ohhh
-</div>
-
-## tasiyanc — post 8200
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨
-🚨 تمامی پرواز های ایران هم اکنون کنسل شد
 
 @Tasiyanc 
 ⭐️

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/09 23:35
+📅 آخرین بروزرسانی: 1405/05/10 02:06
 
 ---
+
+## tasiyanc — post 8277
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺فاکس نیوز: یک گزارش محرمانه که برای ریاست‌ جمهوری اسلامی تهیه شده، نشان می‌دهد تنها ۹ درصد ایرانیان از حفظ وضع موجود حمایت می‌کنند.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8276
+
+<div align="center"><img src="files/post_8276_tasiyanc_8276.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بریم به کی بگیم این ایرانِ ۵۰ سال پیش ما بود !
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8275
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ انفجار در یگان امداد سنندج ، تایید / تکذیب نمیشه
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8274
 
@@ -161,40 +187,5 @@
 کامنت آزاد ☺️
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8246
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-3سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید ⛓
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8245
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلاااااااااار 195 😐
-</div>
-
-## tasiyanc — post 8244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلاااااااااار 195 😐
 </div>
 
