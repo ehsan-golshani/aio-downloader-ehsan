@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/09 18:18
+📅 آخرین بروزرسانی: 1405/05/09 20:06
 
 ---
+
+## tasiyanc — post 8457
+
+<div align="center"><img src="files/post_8457_tasiyanc_8457.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+​«رونالدو و مسی ؛ دو جادوگری که به رویای بچگی‌های ما رنگ واقعیت زدند. آخرین رقص آن‌ها در جام جهانی، پایان یک عصر طلایی بود؛ عصری که دیگر تکرار نخواهد شد.»
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8456
 
@@ -145,11 +155,5 @@
 🚨گزارش انفجار از اصفهان ، قم ، اراک
 
 تایید یا تکذیب نمیشه
-</div>
-
-## tasiyanc — post 8435
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مقابل خدمات رایگانی ک میدم انتظار حمایت دارم ، چون منم می‌تونستم مثل خیلیا فروش بزارم
 </div>
 

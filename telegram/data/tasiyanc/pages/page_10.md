@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/09 18:18
+📅 آخرین بروزرسانی: 1405/05/09 20:06
 
 ---
+
+## tasiyanc — post 8606
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چخبر امتحانتونو چطور دادید؟
+</div>
 
 ## tasiyanc — post 8605
 
@@ -244,13 +250,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8571
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ وارد سیکت*یر ( ۳۱ تیر شدیم)
-
-@Tasiyanc ⭐️
 </div>
 

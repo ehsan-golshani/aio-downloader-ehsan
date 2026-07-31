@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/09 18:18
+📅 آخرین بروزرسانی: 1405/05/09 20:06
 
 ---
+
+## tasiyanc — post 7317
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡@Tasiyanc⚡️.ovpn
+</div>
 
 ## tasiyanc — post 7316
 
@@ -194,6 +200,4 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 
 ✔️ T.me/Tasiyanc ✅
 </div>
-
-## tasiyanc — post 7284
 

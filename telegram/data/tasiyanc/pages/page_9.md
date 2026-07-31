@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/09 18:18
+📅 آخرین بروزرسانی: 1405/05/09 20:06
 
 ---
+
+## tasiyanc — post 8628
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پلیس فتای استان خراسان رضوی، از دستگیری زوجی که فیلم جنسی ارباب و برده ضبط می‌کردند و سپس آنها را در تلگرام با قیمت های نجومی می‌فروختند، خبر داد
+@Tasiyanc 😐
+</div>
 
 ## tasiyanc — post 8627
 
@@ -228,11 +235,5 @@ Fact @TASIYANC ✅
 عالیه به هر کدوم فک کنی اونو می‌شنوی 😂😂😂
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چخبر امتحانتونو چطور دادید؟
 </div>
 

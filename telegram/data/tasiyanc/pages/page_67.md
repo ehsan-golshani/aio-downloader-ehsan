@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/05/09 18:18
+📅 آخرین بروزرسانی: 1405/05/09 20:06
 
 ---
+
+## tasiyanc — post 6577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ سیریک و قشم مورد حمله قرار گرفت
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6576
 
@@ -212,11 +219,5 @@ https://t.me/TasiyanProxy
 🔴ترامپ : تا اینجا هم بخاطر پاکستان فرصت داده بودم ، امروز بشدت به ایران ضربه خواهیم زد
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6550
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خلاصه برنامه زیاده ، البته امیدوارم قطعی پیش نیاد
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/09 15:45
+📅 آخرین بروزرسانی: 1405/05/09 20:05
 
 ---
+
+## MehdiBudam — post 8114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor6
+
+
+slipnet-enc://AReiNmdXjlPQsrmSvGSTTqjrj+qe46Zb6ZN01gW/tnRjwmBn6zCph50JgvRwT33TqzKfJ5A9jPfFxSCQbFXvOx3AntFPpWjYNStgc3w2kdNGPeU/1gmFf2hKj8+j+Y5BcdaftoT+RjCvaLt/SRqA6bvXpiPPlfRDgSneGTUkeu3+pZ5vGDhZTZWyC2Yih0XG9okCuAXJNOkXV647UOOokjJFXH5IYffsObuNxFUNpVfimHtJJSbeHq32VByj/UyuCtml/S4FGC64zERp4RNmHhBqIUTJ9FUMsfSl+tFFRdOATsQilGdLH/1TN7UwC4YOF27sqOzp9kvOEOpT8MKt/VXKH6X6+2VpwPZ6XJh1UVtNRCBNekGGNeXwBJMfGeZ9kzV1kC2cwyHfvdd+jcuvAm5mkmpfO9faOaeJu3K050Sp+1g1YzvBqVyzvIntfown9ETZZnukRWGyo/NR+ofji1dPt5reAtXb3K0Ng1pNLegvuYP7tL8VDdhMiFGcvx5OJJfsxE6ozGCaoqmidHJo2lvFxM7RKJy8aMeHtt+wwqLvIZL/2P0unCI36BUHE9bJe7SRUtifaCgRNK+9X3fjveIRirGCLRQQC7oY652pRxKGcVNuN+gbJUvACoa0iZJ4e5eV9Oow43MokRBuo/kZwODzOgUHvCLFP3Y664jmriVyW0gAif3ETxqQWpzlVFr5uMadi8g5br7TFnxCqoLqF/CCcq9nuOTMUQ==
+
+﻿
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8113
 
@@ -152,11 +164,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه مورد دیگه ای هم که هست بعضیا میگن فقط با پروکسی مد روشن وصل میشه و بدون اون وصل نمیشه.
-</div>
-
-## MehdiBudam — post 8092
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
 </div>
 

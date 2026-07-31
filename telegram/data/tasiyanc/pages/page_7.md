@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/09 18:18
+📅 آخرین بروزرسانی: 1405/05/09 20:06
 
 ---
+
+## tasiyanc — post 8691
+
+<div align="center"><img src="files/post_8691_tasiyanc_8691.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه عکسیه که چند روزه از اعتراضات دی ماه وایرال شده، پیکر بی جان یه پسر جوون افتاده وسط خیابون و خون ازش سرازیر شده.
+
+این عکس مربوط به جاویدنام علی احمدیه که فقط ۱۴ سال سن داشت و خرج خواهر معلولش رو میداد.
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8690
 
@@ -199,18 +211,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 مقر حوثی ها در جزیره کمران توسط عربستان بمباران شد
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8662
-
-<div align="center"><img src="files/post_8662_tasiyanc_8662.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تکمیلی
-نیروی هوایی عربستان بندر الحدید مواضع حوثی هارو بمبارون کرد
-
-
 @Tasiyanc ⭐️
 </div>
 

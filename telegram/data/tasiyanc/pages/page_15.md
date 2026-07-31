@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/09 18:18
+📅 آخرین بروزرسانی: 1405/05/09 20:06
 
 ---
+
+## tasiyanc — post 8435
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مقابل خدمات رایگانی ک میدم انتظار حمایت دارم ، چون منم می‌تونستم مثل خیلیا فروش بزارم
+</div>
 
 ## tasiyanc — post 8434
 
@@ -131,18 +137,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فینال جام‌جهانی 2026 🌍 اسپانیا 🇪🇸  آرژانتین 🇦🇷 ⏰‌ ساعت 22.30 @TasiyanC ✅
-</div>
-
-## tasiyanc — post 8411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال جام‌جهانی 2026 🌍
-
-اسپانیا 🇪🇸  آرژانتین 🇦🇷
-
-⏰‌ ساعت 22.30
-
-
-@TasiyanC ✅
 </div>
 
