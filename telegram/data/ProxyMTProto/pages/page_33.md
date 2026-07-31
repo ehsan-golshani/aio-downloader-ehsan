@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/09 23:33
+📅 آخرین بروزرسانی: 1405/05/10 00:54
 
 ---
+
+## ProxyMTProto — post 49033
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 35.204.159.194
+Port: 443
+Secret: dd9cea7850eb43fd1838c435737914ec29
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49032
 
@@ -172,15 +181,6 @@ Secret: eec54c7a89cf194572ed8d7c8ba8867dc770616964312e617269786f2e73686f70
 Server: should.be.wake.up.ir.yfdhjderkig.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49013
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 130.193.39.208
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 
