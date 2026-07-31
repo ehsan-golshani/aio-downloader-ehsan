@@ -1,8 +1,26 @@
 # آرشیو کانال MehdiBudam - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/04/31 21:21
+📅 آخرین بروزرسانی: 1405/05/09 07:31
 
 ---
+
+## MehdiBudam — post 8110
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor2
+
+
+slipnet-enc://Ae2EEQLf+LxSQ2MlvnWNA82xsmSEx4iPv+oSxDkNzqegYMSMpojO4WzTpcHOYO0k5X5jqUoDzwzUgHe7/k6lUDPFB2oWgw2P75hMiHwzs+jvA8SCcdtynmzXTNC42cAc7ADeSW8RiTm/W9GFN7anpOLb+OQ8CNq7usgF/x+ZjVceWGuMVObY81VnSqQuydigaFHSsV4s7SR8HY4aHXxAO/xH+AZPxeEnDyFmaX72jCDo4Y8sGOP1yu86DY/nt9E0cLdEiDxUwXCmNKEy5X9E31+rVLFu5f9LapUNjYRFp4XPGvMguC0Z09N9dfVpe2FNdF3g2i1DHvO6M9RPxS/iOZLyt3aLhc+mkBotDQ2EzxlH7HtuWf6rBp4HDJV7vqM/W0vFzqPnGNtkQEuIJv8CHiF6CLHrkyM3ZXKmI3oXFFq/LaPzrmw391PzY3bHolyQfgtytwv0SkgEbTUTd5Blrmuq0edXy7vFDORZ33bNUZojD0UMmR7ARU4LZzV+faebbxGebPXJG95EiPT4c1EaB1Tv9WQunu2hY6YpXtLJXSN1l1K9+rwlZTqdLy7QhKB86cnPCh5EOudNbUjEt6Cp/qivOg67auVat4UGuFYL/tu31AvLUSSTk6BEY86veZJ0od/m3NTGfurHCBShFEMX+kTGpG5p6Q8Zpb4qYETavQ/6xYIsoJxrf+QcIafk60J6BoePNwcAZ16alJyViKC8Fg0lqXwdr3TEcgluRtc=
+
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8109
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای تور همین تنظیمات پیشنهاد میشه فقط بدون پروکسی مود با اسپلیت تونلینگ درست.
+</div>
 
 ## MehdiBudam — post 8108
 
@@ -122,27 +140,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اکثر سرورا وصلن اگه لازم داشتید.
-</div>
-
-## MehdiBudam — post 8088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود و تشکر از همراهان همیشگی SlipNet که در دوره قطع و اختلال اینترنت همراهی کردند با توجه به وضعیت فعلی شبکه، می‌تونید از روش‌های زیر برای برقراری اتصال پایدار استفاده کنید: 🟢 ۱. اتصال از طریق Tor (نسخه Full - رایگان) (ویژه کاربران دارای دسترسی به اینترنت)…
-</div>
-
-## MehdiBudam — post 8087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بالاخره بعد از حدود ۳ ماه، اینترنت تقریباً به حالت قبل برگشت؛ هرچند فیلترینگ و محدودیت‌ها هنوز هم مثل قبل سر جاشونن و عملاً چیزی تغییر نکرده.
-
-تو این مدت خیلیا تلاش کردن که راه ارتباط مردم کامل قطع نشه و هرکسی با هر امکانی که داشت سعی کرد کمکی بکنه. بین همه‌ی اینا، SlipNet واقعاً یکی از پروژه‌هایی بود که خیلی به چشم اومد؛ پروژه‌ای که با وجود این‌همه کاربر و شرایطی که خیلیا ازش برای درآمد استفاده کردن، همچنان رایگان موند و بدون سروصدا به کارش ادامه داد.
-
-واقعاً لازمه از تیم اسلیپ‌نت، مخصوصاً دولوپر خستگی‌ناپذیرش و ایمان عزیز، بابت تمام زحمتی که این مدت کشیدن تشکر بشه. اگر تلاش و وقتی که گذاشتن نبود، کمک کردن به این تعداد آدم اصلاً ساده نبود.
-
-ممنون از همه‌ی کسایی هم که تو این مدت، با حمایت، دونیت، انرژی مثبت یا حتی معرفی پروژه به بقیه باعث شدن این مسیر ادامه پیدا کنه. همین همراهی‌ها باعث شد وسط اون همه فشار، آدم حداقل حس نکنه تنهاست.
-
-امیدوارم یه روز اینترنت آزاد و بدون محدودیت، چیز عجیبی نباشه و همه بدون دردسر بهش دسترسی داشته باشن.
-
-با آرزوی بهترین ها.
 </div>
 
