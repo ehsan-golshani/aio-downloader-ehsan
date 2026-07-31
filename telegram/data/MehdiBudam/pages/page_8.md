@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/09 07:31
+📅 آخرین بروزرسانی: 1405/05/09 10:29
 
 ---
+
+## MehdiBudam — post 8111
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor3
+
+
+slipnet-enc://AZCV5Hkcq+Jm48xNzu4mAD0er0Ic56DV6pRNLFuSoNZ8We+HMKiPRZq74s3N7ai0EDGrWZTklNfHagxXfgK87Ab/PCtf3R7UCEqviAzUlgEcCSOjhQM51YhlnBZ1Lp5iXetB9SJ8Eyt31RIiFkBdknwhkX+8xgVNM4a2E/VuVqO5PdbUSfY8wHLxfQlV5GWAQBlRQ2EPLthf1Y2ioyJS4lFmWY3mzx7qv+sOK4w3JOQcSIVGjTwUtE4Ks2zg3wGL8FNnaSwbydZ4tpLGElHCTEQIqDCP9P5j/j32uV3J0qQL71sOtGj3EBj54AtZjvGo07aZT1kfQkXn7ihxHtWqAvhVLnOzPuimqkrBJ3NSMNnXgn96AToN3jUx2HXzQMI0jnsSz8HO9tjUTIpqs7fYCGBH5Xq7gw7f9iXon/cb8w9VwvzdlRYukXkr5MjfmHOKX8zLCZZakLo6X5cakWIHt064pbTp/sjj7RNaWm2Wc6Hq1sQbSiGbAcDl5m+aV+VxaVZmDJWiltsjWmqCiI7+0C7b53HgxZF9JfBs5OrBdB/XNrizCKPa58Agf7I2rrpIK+q4MHZdFn7mhjilYmHGaeiZe28+ee9CH6O+rdxk3oFeq81A2KPQMopv2q2OMra01kFE9jpH9G39tU5VQXPOfPrk63c/C4HIr2mdf1l02jrTG4fJNSoN+a4cOrJYuol5fX3yyR0uo2X+zglegamTPiIiMcd2PbAGkQ==
+
+﻿
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8110
 
@@ -134,11 +146,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 درود و تشکر از همراهان همیشگی SlipNet که در دوره قطع و اختلال اینترنت همراهی کردند با توجه به وضعیت فعلی شبکه، می‌تونید از روش‌های زیر برای برقراری اتصال پایدار استفاده کنید: 🟢 ۱. اتصال از طریق Tor (نسخه Full - رایگان) (ویژه کاربران دارای دسترسی به اینترنت)…
-</div>
-
-## MehdiBudam — post 8089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکثر سرورا وصلن اگه لازم داشتید.
 </div>
 

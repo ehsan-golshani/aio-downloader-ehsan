@@ -1,8 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/09 01:25
+📅 آخرین بروزرسانی: 1405/05/09 10:30
 
 ---
+
+## tasiyanc — post 8255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+6سرور سرعتی پرمیوم متد جدید ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8252
+
+<div align="center"><img src="files/post_8252_tasiyanc_8252.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل
+فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️
+
+مدیریت مجموعه تاسیان
+</div>
+
+## tasiyanc — post 8249
+
+<div align="center"><img src="files/post_8249_tasiyanc_8249.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چی میشه گفت واقن به اینا :)
+
+کامنت آزاد ☺️
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8246
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+3سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8245
 
@@ -147,41 +217,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨لحظاتی پیش حمله به پایگاه هوایی و دریایی بوشهر
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8227
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم‌اکنون➖جنوب ایران➖هنگامه بمباران بی‌وقفه
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8226
-
-<div align="center"><img src="files/post_8226_tasiyanc_8226.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ضربه سختی در راه است
-خواهیم دید چه میشود🤣
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 پیت هگست: کنترل تنگه هرمز دست ایران نیست
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8224
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨جمهوری اسلامی یکی از رادار های آمریکا در کویت را مورد هدف قرار داد
 
 @Tasiyanc✅
 </div>

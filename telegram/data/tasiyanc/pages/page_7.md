@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/09 01:25
+📅 آخرین بروزرسانی: 1405/05/09 10:30
 
 ---
+
+## tasiyanc — post 8679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرنگار کاخ سفید به نقل از سنتکام:
+
+بعضی اوقات ما به ایران حمله نمی‌کردیم ولی میدیدیم که کلی موشک در آسمان به طرف ایران میره، بعد می‌فهمیدیم که کویت و بحرین و عربستان و … در حال حمله به ایران بودند ولی به طور رسمی اعلام نمی‌کردند
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سی‌ان‌ان:
+
+سنتکام پس از ۱۳ شب حمله علیه ایران، جمعه بیانیه‌ای منتشر نکرد
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8676
+
+<div align="center"><video src="files/post_8676_tasiyanc_8676.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8676_tasiyanc_8676.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦅 جنگنده ای که از شاهین بحری تقلید میکند !
+
+اف-۱۴ تامکت و شاهین بحری در ظاهر یکی یک جنگنده ی پیچیده و دیگری یک شکارچی طبیعی هستند، اما وقتی به شیوه‌ی پروازشان نگاه کنیم، شباهت‌های شگفت‌انگیزی دیده میشود.
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8675
+
+<div align="center"><video src="files/post_8675_tasiyanc_8675.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8675_tasiyanc_8675.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴صلاح یکتا ؛ چهره مشهور «شکستن قلنج» به دستور بازپرس ویژه پزشکی بازداشت شد
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8674
 
@@ -140,54 +183,5 @@
 یاد کنیم از رقص F35 ارتش اسرائیل در آسمان کرج مربوط به جنگ ۳۹ روزه
 
 @TASIYANC 💠
-</div>
-
-## tasiyanc — post 8655
-
-<div align="center"><video src="files/post_8655_tasiyanc_8655.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8655_tasiyanc_8655.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قابل توجه ؛ ناوگان هفتم دریایی نیروهای ایالات متحده آمریکا به تنها ارتش چین را می‌بلعد ! ناوگان هفتم نیروی دریایی آمریکا بزرگترین ناوگان نظامی تهاجمی جهان است که
-بخونید 👇
-
-از حداقل ۷۰ کشتی و زیردریایی، ۱۵۰ هواپیما و ۲۰ هزار نیرو برای حضور و واکنش سریع مقابل چین در شرق آسیا مستقر شده است. منطقه عملیاتی آن یعنی آسیا و اقیانوسیه، ۱۲۴ میلیون کیلومتر مربع، ۳۶ کشور و نیمی از جمعیت جهان را پوشش میدهد. رهبری این واحد دریایی را ناو هواپیمابر رونالد ریگان برعهده دارد. مقر این ناوگان یوکوسوکای ژاپن است. ناوگان هفتم آمریکا یک نیروی پیشرو است که از نظر تجربه رزمی، مهارت خدمه، و ادغام فناوریهای پیشرفته در کشتیها و زیردریاییهایش، برتری کیفیتی قابل توجهی دارد که میتواند خسارات سهمگینی به نیروی دریایی چین وارد کند ایران جای خود داره 🤣
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8654
-
-<div align="center"><img src="files/post_8654_tasiyanc_8654.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکبر عبدی بازیگر سینما درگذشت 🖤
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8653
-
-<div align="center"><video src="files/post_8653_tasiyanc_8653.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8653_tasiyanc_8653.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«چشم‌های تمساح ؛ یکی از پیشرفته ترین چشم‌ها در قلمرو جانوران ک طی بیش از ۲۰۰ میلیون سال تکامل یافته اند » 🐊👁
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8652
-
-<div align="center"><video src="files/post_8652_tasiyanc_8652.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8652_tasiyanc_8652.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹تنها جنگنده ای که آمریکا به متحدانش نمیفرشه 🗽
-
-جنگنده ی F22Raptor مرموزترین ، پیشرفته ترین ، گرانترین جنگنده آمریکا که فقط 187 فروند ازش هست و همشون در اختیار ارتش آمریکاست
-@TASIYANC ✅
 </div>
 

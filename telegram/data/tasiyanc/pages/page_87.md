@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/09 01:25
+📅 آخرین بروزرسانی: 1405/05/09 10:30
 
 ---
+
+## tasiyanc — post 6044
+
+<div align="center"><img src="files/post_6044_tasiyanc_6044.jpg" alt="Photo"></div>
+
+## tasiyanc — post 6043
+
+<div align="center"><img src="files/post_6043_tasiyanc_6043.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
+</div>
+
+## tasiyanc — post 6042
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@ineedknife
+آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
+</div>
+
+## tasiyanc — post 6041
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادبش کردید ؟
+@ineedknife
+اگه ادبش کردید یه ری اکشن بزنید بره همون جایی ک میدونین 😂
+</div>
 
 ## tasiyanc — post 6040
 
@@ -104,30 +131,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اپل آیدی لاک میشه
-</div>
-
-## tasiyanc — post 6021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من سه تا اپل ایدی سرش بگا دادم
-</div>
-
-## tasiyanc — post 6020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این فیلتر شکن مخربو سریع حذف کنین بخدا من فشاری شدم دیگه ،
-</div>
-
-## tasiyanc — post 6019
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-راجب jumjump اینو بگم کی کلی از دوستان میگن حسابشون از دسترس خارج شده ، ربطی به آیپی نداره، من هرروز با ۱۰ تا آیپی میرم اینستا و بقیه ، چرا فقط هرکی این vpn استفاده کرده زده اکانتشو بگا داده؟ بقیه VPN ها چنین چیزی نشده گزارشی نیست بهرحال به حرف هرچنلی گوش…
-</div>
-
-## tasiyanc — post 6018
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-راجب jumjump اینو بگم کی کلی از دوستان میگن حسابشون از دسترس خارج شده ، ربطی به آیپی نداره، من هرروز با ۱۰ تا آیپی میرم اینستا و بقیه ، چرا فقط هرکی این vpn استفاده کرده زده اکانتشو بگا داده؟ بقیه VPN ها چنین چیزی نشده گزارشی نیست
-بهرحال به حرف هرچنلی گوش میدید بدید ولی مراقب باشید دیگه این vpn کاملا مخربه ، هرکس قبول نداره بیاد گپ تاسیان ببینه چقد آدم حسابش بگا رفته
 </div>
 
