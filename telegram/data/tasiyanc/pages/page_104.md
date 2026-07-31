@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/09 15:46
+📅 آخرین بروزرسانی: 1405/05/09 18:18
 
 ---
+
+## tasiyanc — post 5603
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یدونه هستش درست ۲ هفته وصلم 😂😂
+</div>
 
 ## tasiyanc — post 5602
 
@@ -164,17 +170,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 25 K 🍃.npvt
-</div>
-
-## tasiyanc — post 5573
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password @Tasiyanc
-
-🌐 اختصاصی تاسیان 2 سرور تست شده  تمام اپراتورها  🌐
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

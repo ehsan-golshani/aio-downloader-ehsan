@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/05/09 15:46
+📅 آخرین بروزرسانی: 1405/05/09 18:18
 
 ---
+
+## tasiyanc — post 7212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگای دارک امیدوارم فراگیر شه و همه برنامشو بزنن کانفیگاش استفاده کنن واقعا یه لول از بقیه متد ها سر تره ،
+کوچکترین باگ نمیشه پیدا کرد توش با سرعت اتصال پایدار میده و هر ثانیه اتصال شمارو چک می‌کنه پینگ میده
+این کانفیگ ها در صورت قطعی قطعا باهاش خیلی کار خواهیم کرد
+</div>
 
 ## tasiyanc — post 7210
 
@@ -318,14 +326,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 </div>
 
 ## tasiyanc — post 7185
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡⚡🇩🇪.npvt
-</div>
-
-## tasiyanc — post 7184
-
-<div align="center"><img src="files/post_7184_tasiyanc_7184.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡⚡🇩🇪.npvt

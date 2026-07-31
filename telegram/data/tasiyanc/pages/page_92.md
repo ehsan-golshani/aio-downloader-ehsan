@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/05/09 15:46
+📅 آخرین بروزرسانی: 1405/05/09 18:18
 
 ---
+
+## tasiyanc — post 5924
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+باید بگیییییم؟😭
+</div>
 
 ## tasiyanc — post 5923
 
@@ -191,11 +197,5 @@ vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.101:2096?mode=gun&securi
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 channel@TASIYANC.ovpn
-</div>
-
-## tasiyanc — post 5901
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New⚡Fast.npvt
 </div>
 

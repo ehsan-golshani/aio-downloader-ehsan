@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/09 15:46
+📅 آخرین بروزرسانی: 1405/05/09 18:18
 
 ---
+
+## tasiyanc — post 7316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی پرتغال شروع شروع شد
+به امید گلزنی و درخشش ستاره بی بدیل جهان حضرت رونالدو کبیر🤩❤️‍🔥
+</div>
 
 ## tasiyanc — post 7309
 
@@ -189,10 +196,4 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 </div>
 
 ## tasiyanc — post 7284
-
-## tasiyanc — post 7283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪⚡ Fast 🚀.npvt
-</div>
 

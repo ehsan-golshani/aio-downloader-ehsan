@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/09 15:46
+📅 آخرین بروزرسانی: 1405/05/09 18:18
 
 ---
+
+## tasiyanc — post 6108
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ وایرگارد میزارم تست کنین
+
+برنامشو دان کنین
+
+دانلود Wg tunnel
+https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunnel
+</div>
 
 ## tasiyanc — post 6107
 
@@ -173,11 +184,5 @@ Channel@Tasiyanc.ovpn
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6082
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀🇮🇹🇳🇱 سرعتی - VIP.npvt
 </div>
 

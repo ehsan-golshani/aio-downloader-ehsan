@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/09 15:46
+📅 آخرین بروزرسانی: 1405/05/09 18:18
 
 ---
+
+## tasiyanc — post 8717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ آخرین نسخه ی V2rayNG اندروید
+
+نسخه 2.2.6
+
+● تغییرات مهم:
+• جایگزینی allowInsecure منسوخ با PinnedPeerCertSha256
+• حذف Tcping ping و بهبود تست پینگ
+• آپدیت هسته ایکس ری
+• رفع برخی باگ ها
+
+🔗 لینک دانلود از گیتهاب
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8716
 
@@ -245,11 +263,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 این عکس مربوط به جاویدنام علی احمدیه که فقط ۱۴ سال سن داشت و خرج خواهر معلولش رو میداد.
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8690
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چخبرا ، امتحانات چطور دادید؟
 </div>
 

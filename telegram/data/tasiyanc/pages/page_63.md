@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/09 15:46
+📅 آخرین بروزرسانی: 1405/05/09 18:18
 
 ---
+
+## tasiyanc — post 6712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 12 June ، روز جهانی تشکر از آدمیه که زندگی رو برات قشنگتر کرده.
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6711
 
@@ -173,15 +180,6 @@ Rend ⚡ (1).npvt
 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%E2%9A%A1%40Tasiyanc%F0%9F%94%B7
 🌐🇩🇪
 
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نورالدین الدغیر خبرنگار الجزیره در تهران:
-دیگر همه چیز قطعی و تمام شده
 @Tasiyanc 
 ✅
 </div>

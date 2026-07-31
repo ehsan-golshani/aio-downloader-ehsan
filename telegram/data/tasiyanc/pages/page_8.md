@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/09 15:46
+📅 آخرین بروزرسانی: 1405/05/09 18:18
 
 ---
+
+## tasiyanc — post 8661
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرزیدنت دونالد ترامپ :
+
+ایران، باورنکردنیه، شروع کرد به شلیک کردن به همه‌جای خاورمیانه.
+اگه سلاح هسته‌ای داشت، حتما ازش استفاده میکرد.
+
+
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 8660
 
@@ -212,11 +224,5 @@ Fact @TASIYANC ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 پلیس فتای استان خراسان رضوی، از دستگیری زوجی که فیلم جنسی ارباب و برده ضبط می‌کردند و سپس آنها را در تلگرام با قیمت های نجومی می‌فروختند، خبر داد
 @Tasiyanc 😐
-</div>
-
-## tasiyanc — post 8627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شب جمعه به این آرومی؟ مشکوکه
 </div>
 
