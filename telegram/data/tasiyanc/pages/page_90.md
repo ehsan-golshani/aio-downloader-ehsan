@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/05/10 23:42
+📅 آخرین بروزرسانی: 1405/05/11 01:50
 
 ---
+
+## tasiyanc — post 6019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+راجب jumjump اینو بگم کی کلی از دوستان میگن حسابشون از دسترس خارج شده ، ربطی به آیپی نداره، من هرروز با ۱۰ تا آیپی میرم اینستا و بقیه ، چرا فقط هرکی این vpn استفاده کرده زده اکانتشو بگا داده؟ بقیه VPN ها چنین چیزی نشده گزارشی نیست بهرحال به حرف هرچنلی گوش…
+</div>
+
+## tasiyanc — post 6018
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+راجب jumjump اینو بگم کی کلی از دوستان میگن حسابشون از دسترس خارج شده ، ربطی به آیپی نداره، من هرروز با ۱۰ تا آیپی میرم اینستا و بقیه ، چرا فقط هرکی این vpn استفاده کرده زده اکانتشو بگا داده؟ بقیه VPN ها چنین چیزی نشده گزارشی نیست
+بهرحال به حرف هرچنلی گوش میدید بدید ولی مراقب باشید دیگه این vpn کاملا مخربه ، هرکس قبول نداره بیاد گپ تاسیان ببینه چقد آدم حسابش بگا رفته
+</div>
 
 ## tasiyanc — post 6017
 
@@ -169,22 +182,5 @@ VİP 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرور جدید با متد جدید ساعت ۸
-</div>
-
-## tasiyanc — post 5988
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حتی ماه هم داخل خرداد مودی شده 😂
-خودمم خردادی ام ❤️❤️
-</div>
-
-## tasiyanc — post 5987
-
-<div align="center"><img src="files/post_5987_tasiyanc_5987.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐ قراره تو تاریخ 31 و 30 May (10و 9 خرداد 1405) ماه به مرحله کامل (بدر) برسه و پدیده ماه آبی به وجود میاد
-
-از برکات تولد مالک تاسیان😂❤️
 </div>
 

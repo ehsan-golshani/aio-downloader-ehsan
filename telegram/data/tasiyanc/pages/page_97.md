@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 97
 
-📅 آخرین بروزرسانی: 1405/05/10 23:42
+📅 آخرین بروزرسانی: 1405/05/11 01:50
 
 ---
+
+## tasiyanc — post 5845
+
+<div align="center"><img src="files/post_5845_tasiyanc_5845.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ناموسا وحشی طور وصله تازه هم استارت زدم
+</div>
+
+## tasiyanc — post 5844
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هرچی فرستادی وصلع
+</div>
 
 ## tasiyanc — post 5822
 
@@ -208,28 +222,5 @@ GM TASIYAN 💝
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چن تا سرور بمب آماده کردم یکیشون تا ۵ مین دیگه میفرستم
-</div>
-
-## tasiyanc — post 5803
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  ۲ سرور vip سرعتی  اختصاصی تاسیان  📱
-
-✅ تست شده روی همه اپراتورا ✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود اپلیکیشن NPV tunnel  ⏩
-
-نحوه اتصال به سرورهای تاسیان ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5801
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن چقد زیاده 😐
 </div>
 

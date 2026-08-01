@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/10 23:42
+📅 آخرین بروزرسانی: 1405/05/11 01:50
 
 ---
+
+## tasiyanc — post 7419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گگگگگگگگگگگگگللللللللل ایران
+</div>
+
+## tasiyanc — post 7418
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صلاح تعویض شد 😐
+</div>
 
 ## tasiyanc — post 7417
 
@@ -191,13 +203,5 @@ FAST ⚡⚡🔥.npvt
 ⛓
 @Tasiyanc 
 💠
-</div>
-
-## tasiyanc — post 7381
-
-## tasiyanc — post 7379
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀🍓@tasiyanc.conf
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/10 23:42
+📅 آخرین بروزرسانی: 1405/05/11 01:50
 
 ---
+
+## tasiyanc — post 8551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨تخریب ایستگاه‌های برق و تاسیسات جدید تصفیه آب در کویت
+
+@TASIYANC 
+⭐️
+</div>
+
+## tasiyanc — post 8549
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨کشتی های امریکایی در سواحل قطر مورد هدف قرار گرفتن
+
+@TASIYANC 
+⭐️
+</div>
 
 ## tasiyanc — post 8542
 
@@ -191,25 +209,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانال تاسیان متعلق به تمام کسانی هست که وطن پرستن نه حکومت پرست ❤️
-</div>
-
-## tasiyanc — post 8507
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استوری دنیا جهانبخت از حضور در مراسم عزاداری. وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8504
-
-<div align="center"><img src="files/post_8504_tasiyanc_8504.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استوری دنیا جهانبخت از حضور در مراسم عزاداری.
-
-وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان.
-
-مشاهده فیلم 👉
-
-@Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/10 23:42
+📅 آخرین بروزرسانی: 1405/05/11 01:50
 
 ---
+
+## tasiyanc — post 8879
+
+<div align="center"><video src="files/post_8879_tasiyanc_8879.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8879_tasiyanc_8879.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥بمب 100% آماده شد
+🔥
+
+💵دریافتی از منبع خارجی Wiliam Hills 
+
+
+⬅️رایگان در کانال قرار گرفت
+
+⬅️فقط جوین شید و تمام
+
+➡️ https://t.me/+Aq2Af6VNNE44M2Rk
+➡️ https://t.me/+Aq2Af6VNNE44M2Rk
+a9
+
+⚠️عضویت رایگان به مدت و تعداد محدود زودتر جوین بده
+⚠️
+</div>
+
+## tasiyanc — post 8878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 به تمام دیتاسنترها آماده باش داده شده تا در صورت وقوع جنگ٫ اینترنت سراسری قطع شود ( تایید / رد نمیشود)
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8877
 
@@ -258,42 +290,5 @@ Restore this old photograph with maximum realism. Remove scratches, dust, stains
 پاول دوروف مالک تلگرام میگه هیچ خانه، زمین، ملک، جت شخصی یا قایق تفریحی ندارد!!
 
 ✈️@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8848
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-R8
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 8847
-
-<div align="center"><img src="files/post_8847_tasiyanc_8847.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-✔ https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

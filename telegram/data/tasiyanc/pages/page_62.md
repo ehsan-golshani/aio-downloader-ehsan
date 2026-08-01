@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/10 23:42
+📅 آخرین بروزرسانی: 1405/05/11 01:50
 
 ---
+
+## tasiyanc — post 6810
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به درخواست همراه اولیا گذاشتم ، شیرخورشید
+88.221.169.217
+88.221.169.207
+88.221.169.38
+88.221.169.11
+88.221.169.18
+88.221.169.28
+88.221.169.132
+88.221.169.127
+88.221.169.107
+88.221.169.121
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6809
+
+<div align="center"><video src="files/post_6809_tasiyanc_6809.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6809_tasiyanc_6809.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+😎
+
+۳سرور سرعتی همه نت ها 
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+🔹
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6808
 
@@ -195,21 +241,5 @@ VIP⚡ APEX ⛓️.npvt
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6781
-
-<div align="center"><img src="files/post_6781_tasiyanc_6781.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یادآوری : شات معنادار 😂 اگه گفتید کیه؟
-</div>
-
-## tasiyanc — post 6779
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨صدای توافق در سیریک🤣
-
-@TasiyanProxy
 </div>
 
