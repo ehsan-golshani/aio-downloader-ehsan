@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/05/10 17:41
+📅 آخرین بروزرسانی: 1405/05/10 19:08
 
 ---
+
+## ProxyMTProto — post 47874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47873
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.proxytelega.store
+Port: 8443
+Secret: ee3d75d4605342be40f01e37f606946e81666173742e70726f787974656c6567612e73746f7265
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47872
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47871
 
@@ -154,33 +181,6 @@ Secret: eec11798ab008831b474066c9e1ebf5c59617669746f2e7275
 Server: Unknown
 Port: 25565
 Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47854
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: russia.proxyprosto.sbs
-Port: 443
-Secret: eea4615b0d71ccc0fc0aa3573cdd068fde77622e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47853
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47852
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: whiltelist-prx1.getvelora.space
-Port: 443
-Secret: ee6f8c5619eef69de325d0c3ff8a9b7a336d61782e7275
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/10 17:43
+📅 آخرین بروزرسانی: 1405/05/10 19:10
 
 ---
+
+## tasiyanc — post 8436
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش انفجار از اصفهان ، قم ، اراک
+
+تایید یا تکذیب نمیشه
+</div>
+
+## tasiyanc — post 8435
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مقابل خدمات رایگانی ک میدم انتظار حمایت دارم ، چون منم می‌تونستم مثل خیلیا فروش بزارم
+</div>
 
 ## tasiyanc — post 8434
 
@@ -125,24 +139,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مشاهده نود آنتونلا زن مسی ✨
-</div>
-
-## tasiyanc — post 8412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال جام‌جهانی 2026 🌍 اسپانیا 🇪🇸  آرژانتین 🇦🇷 ⏰‌ ساعت 22.30 @TasiyanC ✅
-</div>
-
-## tasiyanc — post 8411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال جام‌جهانی 2026 🌍
-
-اسپانیا 🇪🇸  آرژانتین 🇦🇷
-
-⏰‌ ساعت 22.30
-
-
-@TasiyanC ✅
 </div>
 

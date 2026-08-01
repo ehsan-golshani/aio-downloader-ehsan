@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/10 17:43
+📅 آخرین بروزرسانی: 1405/05/10 19:10
 
 ---
+
+## tasiyanc — post 8832
+
+<div align="center"><img src="files/post_8832_tasiyanc_8832.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید مالک تلگرام پاول دروف توی چنل تلگرامش:
+
+عکس خودشو گذاشته نوشته به من میگن تروریست.
+بعد به طالبان میگن شرکای تجاری😂
+⭐ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8826
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ لوکیشن ترکیه و ایتالیا 💥
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC 💠
+</div>
 
 ## tasiyanc — post 8823
 
@@ -251,19 +283,5 @@ Multi Location ⚡
 اتصال امن برای همه 🇮🇷
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹الجزیره: تعداد کشته و مجروح های حشدالشعبی تو حملات دیشب آمریکا و عربستان به 50نفر رسید 🚶‍♂
-</div>
-
-## tasiyanc — post 8796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تکمیلی 
-🔴12 تن از اعضای حشدالشعبی شب گذشته در جریان حمله‌ای مشترک آمریکا و عربستان سعودی در عراق کشته شدن 
-⭐ @Tasiyanc ⭐️
 </div>
 
