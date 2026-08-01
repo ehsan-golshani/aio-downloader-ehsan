@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/10 20:13
+📅 آخرین بروزرسانی: 1405/05/10 21:23
 
 ---
+
+## tasiyanc — post 8900
+
+<div align="center"><a href="files/post_8900_🇮🇹 Summer 🏝️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇮🇹 Summer 🏝️.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود نپسترنت
+
+سرور سرعتی تست شده لوکییشن ایتالیا 🇮🇹
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه
+
+✔️ @TASIYANC
+</div>
 
 ## tasiyanc — post 8899
 
@@ -300,11 +316,5 @@ a9
 کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8869
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@TASIYANC ⚡ 04.ovpn
 </div>
 

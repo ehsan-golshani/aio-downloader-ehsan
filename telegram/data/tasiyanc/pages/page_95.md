@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/05/10 20:13
+📅 آخرین بروزرسانی: 1405/05/10 21:23
 
 ---
+
+## tasiyanc — post 5887
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا جای ک یادمه زمان قطعی همتون openvpn پاک کرده بودید الان شده بهتر از نپستر ، تازه این همه کانفیگ npv میزنیم بخدا ع پولی بیشتر سرعتش
+</div>
 
 ## tasiyanc — post 5886
 
@@ -179,24 +185,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 💫 4Server vip.npvt
-</div>
-
-## tasiyanc — post 5861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑 رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- 4 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 

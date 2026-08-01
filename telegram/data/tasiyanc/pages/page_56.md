@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/05/10 20:13
+📅 آخرین بروزرسانی: 1405/05/10 21:23
 
 ---
+
+## tasiyanc — post 6995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی های بعدی 22.30
+بلژیک - مصر
+
+بامداد 4.30
+نیوزلند - تیم ملی
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6992
 
@@ -297,19 +308,5 @@ T.me/Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چطوره؟
-</div>
-
-## tasiyanc — post 6956
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ دارک تونل 🌟
-
-حجم نامحدود - سرعتی 🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel  🕹
-
-T.me/Tasiyanc ✅
 </div>
 

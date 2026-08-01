@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/10 20:13
+📅 آخرین بروزرسانی: 1405/05/10 21:23
 
 ---
+
+## tasiyanc — post 7746
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک نفتکش متعلق به امارات هم اکنون مورد اثابت قرار گرفت
+</div>
 
 ## tasiyanc — post 7745
 
@@ -155,11 +161,5 @@ VIP 🎯 @Tasiyanc.nm
 
 👈 دریافت کانفیگ ها 
 👉
-</div>
-
-## tasiyanc — post 7707
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فارغ از هر بحثی دوس داشتیم فینال دو اسطوره رو ببینیم ک نشد
 </div>
 

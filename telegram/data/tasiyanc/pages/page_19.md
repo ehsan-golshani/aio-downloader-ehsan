@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/10 20:13
+📅 آخرین بروزرسانی: 1405/05/10 21:23
 
 ---
+
+## tasiyanc — post 8363
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8362
 
@@ -229,11 +237,5 @@ Multi Location ⚡ Fast.npvt
 
 @TasiyanProxy
 @TasiyanProxy
-</div>
-
-## tasiyanc — post 8321
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طرف کلا نمیدونه دیتاسنتر چیه هی تو چنلش میزنه در حال قطع شدن
 </div>
 

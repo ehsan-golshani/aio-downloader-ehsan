@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/05/10 20:13
+📅 آخرین بروزرسانی: 1405/05/10 21:23
 
 ---
+
+## tasiyanc — post 7222
+
+<div align="center"><img src="files/post_7222_tasiyanc_7222.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ Windscribe 
+🔐 می‌خوام بزارم ، همونطوری ک میدونید بهترین کلاینت VPN حال حاضره از هر لحاظ ، دانلودش داشته باشید بریم تو کارش ، این کانفیگ ها مناسب گیم و وبگردی هستن
+</div>
 
 ## tasiyanc — post 7221
 
@@ -320,21 +329,5 @@ BERLIN 🇩🇪⚡️GN.npvt
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن مولتی
-
-3سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

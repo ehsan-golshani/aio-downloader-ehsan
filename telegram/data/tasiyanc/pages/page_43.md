@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/10 20:13
+📅 آخرین بروزرسانی: 1405/05/10 21:23
 
 ---
+
+## tasiyanc — post 7480
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ESPRESSO 🔥☕.npvt
+</div>
 
 ## tasiyanc — post 7478
 
@@ -158,11 +164,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ ۴ انفجار شدید در سیریك
-</div>
-
-## tasiyanc — post 7444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ آغاز حملات ایالات متحده به ایران
 </div>
 

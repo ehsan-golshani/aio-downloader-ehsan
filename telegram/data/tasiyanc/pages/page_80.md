@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/10 20:13
+📅 آخرین بروزرسانی: 1405/05/10 21:23
 
 ---
+
+## tasiyanc — post 6267
+
+<div align="center"><img src="files/post_6267_tasiyanc_6267.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+BadBoys 🚀 موشک.npvt
+</div>
 
 ## tasiyanc — post 6266
 
@@ -205,11 +213,5 @@ BabyGirl 🪐.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 HOT 🌶️.npvt
-</div>
-
-## tasiyanc — post 6243
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطورید چخبرااااا؟
 </div>
 
