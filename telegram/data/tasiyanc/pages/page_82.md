@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/05/10 14:48
+📅 آخرین بروزرسانی: 1405/05/10 17:43
 
 ---
+
+## tasiyanc — post 6208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[04] @Tasiyanc ⚡🚀.conf
+</div>
 
 ## tasiyanc — post 6207
 
@@ -177,12 +183,5 @@ Proxy 3 ✅ proxy 3
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 GANG 🇳🇱🇬🇧🚀 (1).npvt
-</div>
-
-## tasiyanc — post 6183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال رو خطوط همراه ادامه داره
-ولی سرورهای ما وصله 💋
 </div>
 

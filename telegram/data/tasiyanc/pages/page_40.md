@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/10 14:48
+📅 آخرین بروزرسانی: 1405/05/10 17:43
 
 ---
+
+## tasiyanc — post 7586
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🍊⚡ Fast Orange.npvt
+</div>
 
 ## tasiyanc — post 7585
 
@@ -201,11 +207,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
-</div>
-
-## tasiyanc — post 7546
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☕Türk Kahvesi⚡️.npvt
 </div>
 

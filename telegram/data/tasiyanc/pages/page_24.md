@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/10 14:48
+📅 آخرین بروزرسانی: 1405/05/10 17:43
 
 ---
+
+## tasiyanc — post 8212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢 حمله آمریکا به شهر ویسیان لرستان
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8210
 
@@ -166,13 +174,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 @Tasiyanc
 ✅
-</div>
-
-## tasiyanc — post 8189
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 تمامی پل‌هایی که بندر خمیر را به بندرعباس متصل می کرد توسط آمریکا مورد حمله قرار گرفت.
-
-@Tasiyanc✅
 </div>
 
