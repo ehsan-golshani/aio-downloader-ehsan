@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/05/10 14:46
+📅 آخرین بروزرسانی: 1405/05/10 15:55
 
 ---
+
+## ProxyMTProto — post 48247
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Together-for-iran.jetish.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48246
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee6538b62fe47dff3c068ed861df1f0465676174652e736f6c7571656e742e70726f
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48245
 
@@ -158,24 +176,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 </div>
 
 ## ProxyMTProto — post 48228
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: feed.proxyvpn.ink
-Port: 443
-Secret: ddf9cbb3978cf95814666a7760fec37f90
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48227
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48226
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: feed.proxyvpn.ink
