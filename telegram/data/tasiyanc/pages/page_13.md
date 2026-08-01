@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/10 21:23
+📅 آخرین بروزرسانی: 1405/05/10 23:42
 
 ---
+
+## tasiyanc — post 8542
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+⭕️ انفجار در قطرررررررر
+</div>
+
+## tasiyanc — post 8541
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇹🇷🍃 HotFast.npvt
+</div>
 
 ## tasiyanc — post 8540
 
@@ -198,67 +211,5 @@
 مشاهده فیلم 👉
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8499
-
-<div align="center"><video src="files/post_8499_tasiyanc_8499.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8499_tasiyanc_8499.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور 📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ تست شده 🔸
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال 
-⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc 💠
-</div>
-
-## tasiyanc — post 8491
-
-<div align="center"><video src="files/post_8491_tasiyanc_8491.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8491_tasiyanc_8491.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم فرانسه
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

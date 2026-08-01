@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/05/10 21:23
+📅 آخرین بروزرسانی: 1405/05/10 23:42
 
 ---
+
+## tasiyanc — post 8130
+
+<div align="center"><video src="files/post_8130_tasiyanc_8130.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8130_tasiyanc_8130.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساحل فیتوپلانکتون ، چابهار زیبا 🌴🌊
+
+@Tasiyanc 
+⭐️| مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠فوری علیرضا فغانی داور فینال جام‌جهانی بین اسپانیا و آرژانتین شد.
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8127
 
@@ -165,25 +187,5 @@
 
 
 @Tasiyanc ⭐️ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8106
-
-<div align="center"><img src="files/post_8106_tasiyanc_8106.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه مربی پرواز وسط آموزش به شاگرد 22 ساله‌اش گفته “ ازینجا به بعد خودت میدونی چیکار کنی” بعد در هواپیمارو باز کرده و پریده و خودکشی کرده،شاگرد هم در نهایت موفق شده هواپیمارو تنهایی و سالم فرود بیاره.
-
-@Tasiyanc ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8103
-
-<div align="center"><img src="files/post_8103_tasiyanc_8103.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ابوالفضل ملایی، سربازی که فقط یک روز از خدمتش مونده بود و مادرش منتظر بود برگرده خونه، اما جنازه‌شو برای مادرش آوردن💔
-
-@Tasiyanc ⭐️| مرجع کانفیگ
 </div>
 

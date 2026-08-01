@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/10 21:23
+📅 آخرین بروزرسانی: 1405/05/10 23:42
 
 ---
+
+## tasiyanc — post 7976
+
+<div align="center"><img src="files/post_7976_tasiyanc_7976.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺فروش ویژه پکیج نامحدود ، بدون محدودیت کاربر ، جهت ثبت سفارش پیام بدید
+
+
+👉@StarTasiyan 
+⭐️
+</div>
+
+## tasiyanc — post 7968
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+سه سرور سرعتی‌ تست شده💥
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال ⛓
+
+مناسب دانلود ⬇️ وب‌گردی 🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7967
 
@@ -186,35 +219,6 @@ Change the background behind those two people with white curtains. With hugging 
 8. www.e-estekhdam.com
 9. www.infojob.ir
 10. www.iranestekhdam.ir
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7931
-
-<div align="center"><img src="files/post_7931_tasiyanc_7931.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو کدومی؟خودم 15
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7930
-
-<div align="center"><img src="files/post_7930_tasiyanc_7930.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سایت کاربردی بهتون معرفی کنم:
-
-اگر یه خونه خالی یا حتی یه اتاق خالی دارید
-و نمیدونی چجوری دیزاینش کنید
-وارد این وبسایت خارجی بشید:
-home.by.me
-یه فضایی در اختیارتون میذاره که تصور می‌کنید
-الان وارد نرم‌افزارهای تخصصی دیزاین شدید.
-
-اول از همه ابعاد اتاق، دیوارهاش و به‌صورت کلی متراژ رو مشخص کنید، بعدش شروع کن به دیزاینش با محصولاتی که سایت در اختیارت می‌ذاره؛ مثل مبلمان، میز و
 
 @Tasiyanc✅
 </div>

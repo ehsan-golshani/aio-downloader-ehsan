@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/10 21:23
+📅 آخرین بروزرسانی: 1405/05/10 23:42
 
 ---
+
+## tasiyanc — post 8808
+
+<div align="center"><video src="files/post_8808_tasiyanc_8808.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8808_tasiyanc_8808.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر وقت ایرانیا فهمیدن عادل فرقی با میساکی نداره بازیو بردن
+</div>
+
+## tasiyanc — post 8807
+
+<div align="center"><img src="files/post_8807_tasiyanc_8807.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبر خوب ، نوید زیادخان قره‌داغی مادرج*ده که دخترارو تو لایو اینستاگرام کتک می‌زد دستگیر شد
+
+« مشاهده ویدیو »
+
+
+⭐ @TASIYANC 
+⭐️
+</div>
 
 ## tasiyanc — post 8806
 
@@ -230,20 +254,6 @@ Multi Location ⚡
 🔴انتقال اجساد حشدالشعبی
 
 
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر گلای توی خونه
-</div>
-
-## tasiyanc — post 8784
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ سپاه : ساعاتی پیش سه نفتکش متخلف که بی‌توجه به اخطارهای ما، به حرکت در مسیر ناامن و غیرقانونی ادامه می‌دادند مورد اصابت قرار گرفته و متوقف شدند.
 @Tasiyanc 
 ⭐️
 </div>
