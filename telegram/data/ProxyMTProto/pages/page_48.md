@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/05/10 00:54
+📅 آخرین بروزرسانی: 1405/05/10 08:36
 
 ---
+
+## ProxyMTProto — post 48735
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 2.pro.lunoconnect.com
+Port: 443
+Secret: ee9e61388de8911b3d39196f12bb31011d322e70726f2e6c756e6f636f6e6e6563742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48734
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.acientirani-uor4.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48733
 
@@ -163,24 +181,6 @@ Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
 Server: cdn.kvakzon.top
 Port: 443
 Secret: eec085c2738cef200b39ee8f29d23095f063646e2e6b76616b7a6f6e2e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48714
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gate.soluqent.pro
-Port: 443
-Secret: ee204d0b60a6b41370c66a64551f06b233676174652e736f6c7571656e742e70726f
 @ProxyMTProto
 </div>
 
