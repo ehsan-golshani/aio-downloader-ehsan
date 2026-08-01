@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/10 11:15
+📅 آخرین بروزرسانی: 1405/05/10 14:48
 
 ---
+
+## tasiyanc — post 7993
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ تست شده 🔸
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7991
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
+
+
+برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
+
+
+دانلود Dark Tunnel  🕹
+
+
+آموزش اتصال به سرور دارک ⏩
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7990
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 13 July، روزِ جهانی دخترای قد کوتاهه 👼
+@TasiyanC 
+⭐️
+</div>
 
 ## tasiyanc — post 7988
 
@@ -210,37 +257,5 @@ Speed Fast ⚡ 🇩🇪.npvt
 آخرین باری که دانش اموزا همه باهم دینی میخوندن یه نفر رو خرس خورد😹😹😹
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7942
-
-<div align="center"><img src="files/post_7942_tasiyanc_7942.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیازمندی ها:🥺
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7941
-
-<div align="center"><img src="files/post_7941_tasiyanc_7941.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺یه زمانی توماج صالحی نیش پشه‌ها رو به عنوان ساچمه میکرد تو چشم مردم.
-
-
-
-@Tasiyanc ⭐️ | مرجع کانفیگ وصل
-</div>
-
-## tasiyanc — post 7939
-
-<div align="center"><img src="files/post_7939_tasiyanc_7939.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اصفهان:
-
-@Tasiyanc⭐️
 </div>
 

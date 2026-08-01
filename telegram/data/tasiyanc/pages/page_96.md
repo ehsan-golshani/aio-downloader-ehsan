@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/10 11:15
+📅 آخرین بروزرسانی: 1405/05/10 14:48
 
 ---
+
+## tasiyanc — post 5852
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیام‌ها تمومی نداره ، همچنان ما قطعیم😁❤️
+</div>
+
+## tasiyanc — post 5851
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دمت گرم داش
+</div>
+
+## tasiyanc — post 5850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایول کارت حرف نداره تاسیان عشقی
+</div>
 
 ## tasiyanc — post 5849
 
@@ -166,36 +184,5 @@ Premium Fast servers 🔥🌱.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آیا حق این سرور ۱۶ ریکشن است؟؟
-</div>
-
-## tasiyanc — post 5811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-″رمز @Tasiyanc ″
-
-📱 ۵ سرور  سرعتی  اختصاصی تاسیان  📱
-
-✅ تست شده روی همه اپراتورا ✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5810
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موشك داره میاد
-</div>
-
-## tasiyanc — post 5809
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-GM TASIYAN 💝
 </div>
 

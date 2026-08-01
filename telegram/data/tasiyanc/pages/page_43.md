@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/10 11:15
+📅 آخرین بروزرسانی: 1405/05/10 14:48
 
 ---
+
+## tasiyanc — post 7459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمد حسین میساکی بدون اینکه خندش بگیره خیلی جدی : تیمهای الجزایر و اتریش تبانی کردن 🤣🤣🤣
+</div>
+
+## tasiyanc — post 7458
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیگه از بدشانسی زر نزن آقای رامین رضائیان
+</div>
+
+## tasiyanc — post 7457
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+3 تا احتمال بزرگ داشته باشی تا صعود کنی ولی نتونی ، تو بازی ۳ تا تیرک بزنی ، گل آفساید بزنی ، پنالتی نتونی بزنی
+
+آقای رضائیان حالا ببین چی میگم وقتی میگفتی دلیل این همه بد شانسی نمیدونی چیه
+آه مادرانی ک سر مزار بچشون میرقصیدن همینه
+</div>
 
 ## tasiyanc — post 7456
 
@@ -142,70 +163,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چطوریددد؟
-</div>
-
-## tasiyanc — post 7432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password :  @Tasiyanc
-
-🔐 کانفیگ حجم نامحدود
-
-۳ سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7431
-
-<div align="center"><video src="files/post_7431_tasiyanc_7431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7431_tasiyanc_7431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password : @Tasiyanc
-
-
-🔐 کانفیگ حجم نامحدود
-
-۳ سرور سرعتی 
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
- 
-💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆صعود چگونه محقق خواهد شد؟
-
-به یکی از اتفاقات زیر نیاز دارد تا به عنوان یکی از تیم های سوم صعود کند
-
-1.شکست کرواسی برابر غنا
-2.شکست نخوردن ازبکستان برابر کنگو
-3.عدم تساوی در دیدار اتریش و الجزایر
-
-@Tasiyanc 💠
 </div>
 
