@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/10 19:10
+📅 آخرین بروزرسانی: 1405/05/10 20:13
 
 ---
+
+## tasiyanc — post 7745
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری تحریم های فروش نفت ایران دوباره برگشت
+</div>
+
+## tasiyanc — post 7744
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوریییییی آکسیوس
+آمریکا امشب حملات گسترده ای به ایران خواهد داشت در جواب حملات به کشتی های تجاری در تنگه هرمز
+</div>
+
+## tasiyanc — post 7742
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چند تا کانفیگ نت مود & وایرگارد مخصوص گیم & اینجکتور داخل ربات گذاشتم بردارید ❤️
+
+👈دریافت کانفیگ ها 💘
+
+دوستانی ک از گروه بن شدن با پشتیبانی در ارتباط باشن
+@StarTasiyan
+</div>
+
+## tasiyanc — post 7733
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حرومزاده ها
+</div>
+
+## tasiyanc — post 7732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه پاس به رونالدو ندادید دیشب
+</div>
 
 ## tasiyanc — post 7731
 
@@ -125,46 +161,5 @@ VIP 🎯 @Tasiyanc.nm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فارغ از هر بحثی دوس داشتیم فینال دو اسطوره رو ببینیم ک نشد
-</div>
-
-## tasiyanc — post 7706
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🐐 بعضی‌ها جام می‌برند، بعضی‌ها رکورد می‌شکنند؛
-اما فقط یک نفر معنای «GOAT» را تغییر داد...
-کریستیانو رونالدو؛
-نامی که از تاریخ فوتبال پاک نخواهد شد.
-پایان یک جام جهانی، اما نه پایان یک افسانه.
-CR7 GOAT Forever 🇵🇹❤️‍🔥
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7705
-
-<div align="center"><img src="files/post_7705_tasiyanc_7705.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پایان یک اسطوره CR7 💔🤔
-@Tasiyanc
-</div>
-
-## tasiyanc — post 7704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رونالدو پر افتخارترین بازیکن جهان
-تا ابد در قلب ما خواهی بود
-</div>
-
-## tasiyanc — post 7702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسپانیا زد 💔
-</div>
-
-## tasiyanc — post 7701
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسطوره بچگی هامون امشب بازی حساسی داره و این آخرین جام جهانی Goat هست
 </div>
 

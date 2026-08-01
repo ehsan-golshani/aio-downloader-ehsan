@@ -1,8 +1,89 @@
 # آرشیو کانال VahidOOnLine - صفحه 302
 
-📅 آخرین بروزرسانی: 1405/05/10 19:07
+📅 آخرین بروزرسانی: 1405/05/10 20:10
 
 ---
+
+## VahidOOnLine — post 246172
+
+<div align="center"><video src="files/post_246172_VahidOOnLine_246172.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246172_VahidOOnLine_246172.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس اطلاعات و ویدیوی رسیده به ایران اینترشنال، چهارشنبه ۲۷ خرداد در پی برخورد خشونت‌آمیز نیروهای نظامی با معترضان معدن کرومیت پشموکی در شهرستان فاریاب استان کرمان، دست‌کم هفت زن بلوچ مجروح و شش شهروند، از جمله سه زن، بازداشت و به مکان نامعلومی منتقل شدند.
+
+به گزارش حال‌وش، نیروها با باتوم، مشت و لگد به معترضان حمله کردند؛ شهروندانی که برای دومین روز متوالی به نحوه واگذاری معدن و محروم ماندن مردم بومی از منافع آن اعتراض داشتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246171
+
+<div align="center"><video src="files/post_246171_VahidOOnLine_246171.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246171_VahidOOnLine_246171.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در ویدیویی که به ایران اینترنشنال فرستاد، با اشاره به تداوم افزایش قیمت کالاها گفت که گرانی حتی شامل اجناس تخفیف‌دار نیز می‌شود. او افزود که با وجود خرید صرفه‌جویانه و انتخاب کالاهای دارای تخفیف، همچنان باید برای تهیه چند قلم جنس مبلغ قابل توجهی پرداخت کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246141
+
+<div align="center"><img src="files/post_246141_VahidOOnLine_246141.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدصالح جوکار، رییس کمیسیون امور داخلی کشور و شوراهای مجلس، گفت تمام تلاش نظام بر این است که به وضعیت ناپایدار «نه جنگ، نه صلح» پایان داده شود و امضای تفاهم‌نامه با آمریکا نیز در همین چارچوب انجام شده است.
+
+او تاکید کرد امضای تفاهم با آمریکا به معنای پایان خصومت‌های این کشور با جمهوری اسلامی نیست.
+
+جوکار افزود آمریکا حتی در شرایطی که درگیری نظامی مستقیمی با ایران ندارد، از ابزارهای مختلف برای محدودسازی و جلوگیری از پیشرفت جمهوری اسلامی استفاده می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246140
+
+<div align="center"><video src="files/post_246140_VahidOOnLine_246140.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246140_VahidOOnLine_246140.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️وزارت دفاع روسیه: ۵۵۵ پهپاد اوکراینی را در آسمان مسکو رهگیری کردیم
+
+♦️وزارت دفاع روسیه صبح پنجشنبه ۲۸ خرداد اعلام کرد ۵۵۵ پهپاد ارتش اوکراین را در آسمان مسکو رهگیری کرده است.
+
+این خبر در حالی اعلام می‌شود که یکی از پالایشگاه‌های نفت پایتخت روسیه در پی اصابت پهپادهای اوکراینی دچار حریق شد و عبورو و مرور خودروها در بخشی از مسکو مختل شده است.
+
+اوکراین در روزهای گذشته حملات به زیرساخت‌های انرژی روسیه را به‌شدت افزایش داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246139
+
+<div align="center"><video src="files/post_246139_VahidOOnLine_246139.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246139_VahidOOnLine_246139.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️مهدی طارمی پیراهن خود را به هواداران ایرانی در ورزشگاه لس‌آنجلس تقدیم کرد
+
+♦️مهدی طارمی، مهاجم تیم ملی فوتبال ایران پس از بازی با نیوزیلند در ورزشگاه سوفای لس‌آنجلس، به سوی تماشاگران رفت و پیراهنش را به یکی از هواداران هدیه داد.
+
+در ویدیویی که از این حرکت در شبکه‌های اجتماعی منتشر شده، پرچم ملی شیروخورشیدنشان ایران در کنار این هوادار دیده می‌شود.
+
+بسیاری از هواداران تیم ملی در بازی با نیوزیلند با وجود ممنوعیت‌ اعلام شده از سوی فیفا، پرچم شیروخورشیدنشان را در ورزشگاه سوفا به اهتزاز درآوردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246138
 
@@ -192,64 +273,6 @@
 ♦️شهباز شریف، نخست‌وزیر پاکستان، در شبکه اکس نوشته بود که پس از آنکه دو طرف پیش‌تر یادداشت توافق را امضا کرده‌اند، همچنان قرار است روز جمعه یک مراسم رسمی امضا برگزار شود.
 اما شریف مدت کوتاهی بعد آن پیام را حذف کرد. سپس همان متن را با تغییراتی دوباره منتشر کرد، اما اشاره به مراسم روز جمعه را از آن حذف کرد.
 پیش‌تر گفته شده بود که قرار است دو طرف مراسم رسمی امضا توافق را روز جمعه در سوئیس برگزار کنند و دونالد ترامپ نیز به احتمال حضور در این مراسم اشاره کرده بود.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246123
-
-<div align="center"><img src="files/post_246123_VahidOOnLine_246123.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مکرون با انتشار ویدیویی از لحظه امضای یادداشت تهران و واشینگتن از سوی ترامپ نوشت: «این توافق راه را برای صلحی پایدار هموار می‌کند و امکان بازگشایی تنگه هرمز را فراهم می‌سازد. این گامی مهم در مسیر درست برای هم‌وطنان ماست که به‌زودی کاهش قیمت انرژی را امکان‌پذیر خواهد کرد.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد پنج‌شنبه ۲۸ خرداد پس از شرکت در نشست سران گروه هفت (G7) در فرانسه و حضور در ضیافت شام با امانوئل مکرون، رئیس‌جمهوری فرانسه، در کاخ ورسای، این کشور را به مقصد آمریکا ترک کرد.
-به گزارش رویترز، سفر ترامپ در حالی پایان یافت که هم‌زمان تفاهم‌نامه میان آمریکا و ایران برای پایان جنگ به امضای طرفین رسید. ترامپ هنگام ترک ورسای در پاسخ به پرسش خبرنگاران گفت: «امضا شده است؛ ما آن را در ورسای امضا کردیم.»
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246121
-
-<div align="center"><img src="files/post_246121_VahidOOnLine_246121.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های جمهوری اسلامی تصویر پزشکیان را هنگام امضای یادداشت تفاهم با آمریکا منتشر کردند. از سوی دیگر، ترامپ نیز در کاخ ورسای فرانسه این یادداشت تفاهم را امضا کرد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246120
-
-<div align="center"><video src="files/post_246120_VahidOOnLine_246120.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246120_VahidOOnLine_246120.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد پنجشنبه ۲۸ خردادماه پس از ضیافت شام در کاخ ورسای، همراه با امانوئل مکرون، رئیس‌جمهوری فرانسه، این کاخ را ترک کرد.
-
-ترامپ هنگام خروج از کاخ ورسای در پاسخ به پرسش خبرنگاران، امضای توافق تهران و واشنگتن را تایید کرد و گفت: «امضا شده است.»
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246119
-
-<div align="center"><img src="files/post_246119_VahidOOnLine_246119.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ بامداد پنجشنبه، مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران یادداشت تفاهم با آمریکا را امضا کرد. همزمان دونالد ترامپ، رئیس‌جمهوری آمریکا که در کاخ ورسای حضور داشت نیز این یادداشت تفاهم را امضا کرد. ایرنا نوشت:پزشکیان و ترامپ در فاصله زمانی کوتاهی متن یادداشت تفاهم اسلام‌آباد را به‌صورت دیجیتال و غیرحضوری امضا کردند.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

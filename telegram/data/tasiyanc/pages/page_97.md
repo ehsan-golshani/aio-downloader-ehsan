@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 97
 
-📅 آخرین بروزرسانی: 1405/05/10 19:10
+📅 آخرین بروزرسانی: 1405/05/10 20:13
 
 ---
+
+## tasiyanc — post 5819
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑 رمز @Tasiyanc ″
+
+📶  اختصاصی تاسیان  📶
+
+ سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5818
+
+<div align="center"><img src="files/post_5818_tasiyanc_5818.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀 VIP SPEEEEEEEED.npvt
+</div>
+
+## tasiyanc — post 5817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوباره بگم؟
+</div>
+
+## tasiyanc — post 5816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+″رمز @Tasiyanc ″
+
+📶  اختصاصی تاسیان  📶
+
+ 3 سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5815
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+″رمز @Tasiyanc ″
+
+📱 4 سرور  سرعتی  اختصاصی تاسیان  📱
+
+✅ تست شده روی همه اپراتورا ✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5814
 
@@ -161,44 +232,5 @@ GM TASIYAN 💝
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5797
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡.npvt
-</div>
-
-## tasiyanc — post 5796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡.npvt
-</div>
-
-## tasiyanc — post 5795
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈2سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5794
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️خبرگذاری فارس سه انفجار مهیب در بندرعباس را تایید کرد
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5793
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♨️ | آواکس‌های E-3G نیروی هوایی ایالات متحده از عربستان سعودی، P-8A Poseidon از اردن، تانکرهای سوخت از اسرائیل و جت‌های جنگنده بر فراز خلیج فارس فعال هستند
-@Tasiyanc ✅
 </div>
 

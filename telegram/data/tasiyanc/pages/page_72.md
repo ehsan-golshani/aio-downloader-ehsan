@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/10 19:10
+📅 آخرین بروزرسانی: 1405/05/10 20:13
 
 ---
+
+## tasiyanc — post 6471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت ارتباط با ادمین ها و تبادلات گپمون : https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا یکم اوضاع اوکی میشه مارو فراموش میکنین؟ 🤣
+</div>
+
+## tasiyanc — post 6469
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت ارتباط با ادمین ها و تبادلات گپمون :
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6468
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۲سرور   سرعتی پرمیوم متد جدید🚀
+
+300 گیگ - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6467
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 📱
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6466
 
@@ -164,60 +219,5 @@ new@Tasiyanc.ovpn
 
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6447
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ Fast 🚀 💥.npvt
-</div>
-
-## tasiyanc — post 6446
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۴سرور   سرعتی پرمیوم متد جدید🚀
-
-حجم نامحدود - تمام اپراتور ها 
-⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داش این‌کانفنیگی که گذاشتی بات موشکه؟؟؟؟😐😂پشمماامممممم سرعتتوووووو
-</div>
-
-## tasiyanc — post 6442
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با توجه به احتمال اختلال و قطع شدن اینترنت به دلیل شرایط جنگی، برای اینکه ارتباطتون قطع نشه دو تا ساب‌لینک اختصاصی ۸۰۰ گیگابایتی به عنوان هدیه براتون آماده کردیم. ​همین الان تا اینترنت وصله وارد ربات زیر بشید و لینک‌هاتون رو تحویل بگیرید: دریافت کانفینگ…
 </div>
 

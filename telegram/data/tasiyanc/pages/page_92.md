@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/05/10 19:10
+📅 آخرین بروزرسانی: 1405/05/10 20:13
 
 ---
+
+## tasiyanc — post 5955
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی تست
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانسل قوی وصله
+</div>
+
+## tasiyanc — post 5953
+
+<div align="center"><img src="files/post_5953_tasiyanc_5953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد ۷ ثانیه 😮‍💨
+</div>
+
+## tasiyanc — post 5952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانسلم میگن وصله
+اره ❤️
+نه 💋
+</div>
+
+## tasiyanc — post 5950
+
+<div align="center"><img src="files/post_5950_tasiyanc_5950.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+TS premium Servers 🌲⚡.npvt
+</div>
 
 ## tasiyanc — post 5949
 
@@ -134,44 +171,5 @@
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑
-Proxy 0
-Proxy 1
-Proxy 2
-Proxy 3
-</div>
-
-## tasiyanc — post 5930
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زاپاس تاسیان ✅ حتما جوین شوید
-https://t.me/TasiyanOwner
-</div>
-
-## tasiyanc — post 5929
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Wifi نت خانگی⚡.npvt
-</div>
-
-## tasiyanc — post 5928
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+RTGtcYWb8HdkNjdk
-
-بیاید گپمون دور هم باشیم
-</div>
-
-## tasiyanc — post 5927
-
-<div align="center"><img src="files/post_5927_tasiyanc_5927.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Wifi نت خانگی⚡.npvt
 </div>
 
