@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/11 01:50
+📅 آخرین بروزرسانی: 1405/05/11 02:51
 
 ---
+
+## tasiyanc — post 8429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانوووووو شکیرا اومد
+</div>
+
+## tasiyanc — post 8428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این بیژن مرتضوی ما چی شد
+</div>
+
+## tasiyanc — post 8427
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه بازی کسشریه
+</div>
 
 ## tasiyanc — post 8425
 
@@ -146,44 +164,5 @@ Ip 🇩🇪 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂 دریافت رسانه 👉
-</div>
-
-## tasiyanc — post 8400
-
-<div align="center"><img src="files/post_8400_tasiyanc_8400.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂
-
-دریافت رسانه 👉
-</div>
-
-## tasiyanc — post 8398
-
-<div align="center"><video src="files/post_8398_tasiyanc_8398.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8398_tasiyanc_8398.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔸توصیف عشق در یک جمله ...
-بفرست براش:)
-
-پروکسی | پروکسی
-
-
-@TASIYANC ✅
-#Nvd
-</div>
-
-## tasiyanc — post 8397
-
-<div align="center"><video src="files/post_8397_tasiyanc_8397.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8397_tasiyanc_8397.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو عشق ابدی ورژن اسپانیایی، یه پسره معتقد بود بالاخره عشق واقعیش رو پیدا کرده و عاشق هم دیگه ان که همون موقع سک* دختر رو با یه پسر دیگه پخش کردن .
-
-@Tasiyanc ✅
 </div>
 

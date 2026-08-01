@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/11 01:50
+📅 آخرین بروزرسانی: 1405/05/11 02:51
 
 ---
+
+## tasiyanc — post 8341
+
+<div align="center"><img src="files/post_8341_tasiyanc_8341.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴10 فیلم معروفی که پایان‌بندی‌شون غافلگیرتون می‌کنه و پشماتون از دیدنشون میریزه:
+
+▪️The Sixth Sense 1999
+▫️Se7en 1995
+▪️Fight Club 1999
+▫️The Prestige 2006
+▪️Shutter Island 2010
+▫️The Usual Suspects 1995
+▪️ Oldboy 2003
+▫️Primal Fear 1996
+▪️The Mist 2007
+▫️Incendies 2010
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8339
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 18 July، روز جهانی گوش دادن
+گوش دادن به آهنگ و چیزای دیگه مثل کسشرای رفیقته
+
+@Tasiyanc ✅| مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8335
+
+<div align="center"><img src="files/post_8335_tasiyanc_8335.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زیبایي کوههای مریخيِ چابهارِ زیبا
+
+پروکسی | پروکسی | پروکسی | پروکسی
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8333
 
@@ -136,48 +178,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨⭕️ شنیده شدن صدای انفجار در اهواز
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاهش پهنای باند داره گزارش میشه
-کانفیگ مخصوص نت ملی رو بگیرید
-
-دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8303
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-3سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید ⛓
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8302
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاطمه مهاجرانی، سخنگوی دولت:
-
-دولت پزشکیان تا پای جان کنار مردم خونگرم جنوبه و از صبر و ایستادگیشون تو دوران متشنج جنگی تشکر میکنه
 
 @Tasiyanc ⭐️
 </div>

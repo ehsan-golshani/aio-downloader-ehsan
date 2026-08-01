@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/11 01:50
+📅 آخرین بروزرسانی: 1405/05/11 02:51
 
 ---
+
+## tasiyanc — post 8512
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان.
+
+مشاهده فیلم 👉
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+💪 انفجار در شیراز
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8508
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال تاسیان متعلق به تمام کسانی هست که وطن پرستن نه حکومت پرست ❤️
+</div>
 
 ## tasiyanc — post 8507
 
@@ -231,31 +257,5 @@ Loc 🇩🇪 🇩🇪
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8471
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️صدای انفجار مهیب در کنارك
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ اورمیه و چابهار صدای انفجارررر
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8469
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ سنتکام : حملات ما به ایران آغاز شد
-
-@TASIYANC ⭐️
 </div>
 

@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/11 01:50
+📅 آخرین بروزرسانی: 1405/05/11 02:51
 
 ---
+
+## tasiyanc — post 6785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP⚡ APEX ⛓️.npvt
+</div>
+
+## tasiyanc — post 6784
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6783
+
+<div align="center"><img src="files/post_6783_tasiyanc_6783.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معرفی فیلم 🎬
+▪️ فیلم : Michael (2026)
+🩷​IMDb 7.7
+فیلم بیوگرافی و پرسروصدای مایکل جکسون سرانجام اکران شد. این اثر ۴ دهه زندگی، نبوغ هنری، پشت‌صحنه موزیک‌ویدیوهای شاهکار و چالش‌های شخصی مایکل رو به تصویر کشیده.
+با هنرنمایی Jaafar Jackson (برادرزاده واقعی مایکل جکسون)
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6781
 
@@ -153,29 +191,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ايران از زمان قاجار تا قبل پزشكيان ۵ تا جنگ داشته از پزشكيان به بعد شده يه روز در ميون
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6728
-
-<div align="center"><img src="files/post_6728_tasiyanc_6728.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیچی سلامتی هنوز آتش بسه
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6727
-
-<div align="center"><img src="files/post_6727_tasiyanc_6727.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتی یه شیر تو ایران به دنیا میاد 😈
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6726
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این واقعی ترین کلیپ از جنگه، اگه میخواین بدونین نزدیک‌تون یا جایی که هستین موشک بخوره چه اتفاقی میوفته حتما این کلیپ رو ببینین. @Tasiyanc ✅
 </div>
 

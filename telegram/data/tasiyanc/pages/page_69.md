@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/05/11 01:50
+📅 آخرین بروزرسانی: 1405/05/11 02:51
 
 ---
+
+## tasiyanc — post 6569
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تکمیلی
+
+🇺🇸⭕️ هگست:
+ایران فرصتی برای انجام یک معامله عالی دارد. آنها تمایلی به انجام آن نداشته‌اند. بمب‌ها به صورت ضربه‌ضربه بر روی تأسیسات کلیدی در ایران از سوی آمریکا فرود خواهند آمد؛ این کار برای شروع مجدد جنگ نیست بلکه برای تعیین شرایط یک معامله است.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6568
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️
+وزیر جنگ آمریکا پیت هگست : امشب تاسیسات ایران را بمباران خواهیم کرد
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+DhVkjFb6qhZmYTFk
+گپ تاسیان - تحلیلگران جنگ بیان
+</div>
 
 ## tasiyanc — post 6566
 
@@ -187,56 +212,6 @@ https://t.me/TasiyanProxy
 
 ما بمباران را از سر می‌گیریم. ما حق انجام این کار را داریم. آن‌ها هلیکوپتر ما را سرنگون کردند.
 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6544
-
-<div align="center"><video src="files/post_6544_tasiyanc_6544.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6544_tasiyanc_6544.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-👍 ترامپ: امروز بار دیگر حمله سنگینی به ایران خواهیم کرد .
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 6543
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️
-⭕️
-⭕️
-</div>
-
-## tasiyanc — post 6542
-
-<div align="center"><video src="files/post_6542_tasiyanc_6542.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6542_tasiyanc_6542.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-4سرور سرعتی مناسب همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
 ✅
 </div>
 

@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/11 01:50
+📅 آخرین بروزرسانی: 1405/05/11 02:51
 
 ---
+
+## tasiyanc — post 7691
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارلو آنجلوتی رید برزیل و حذف کرد
+</div>
+
+## tasiyanc — post 7689
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گللللللللللل برا نروژ 🔥 هالللللند
+</div>
+
+## tasiyanc — post 7688
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ های وایرگارد آپدیت شد ، با سرعت مناسب گیم و اینستاگرام 🔥🚀
+
+فول سرعتی مناسب تمام اپراتورها
+
+
+👇 دریافت کانفیگ های وایرگارد 🔥
+</div>
 
 ## tasiyanc — post 7686
 
@@ -162,25 +185,5 @@ Fast ⚡ Unlimited.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 زجه بزن عرزشی ، زجه زدنای شما منو ارضا میکنه
-</div>
-
-## tasiyanc — post 7653
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فستیوال این مادرقهبه ها تموم نشد؟
-</div>
-
-## tasiyanc — post 7652
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☕⚡Mocha Fast.npvt
-</div>
-
-## tasiyanc — post 7651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Canada 🇨🇦 & Morocco 🇲🇦 🏆
-
-کی میبره
 </div>
 

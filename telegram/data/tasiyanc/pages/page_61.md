@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/05/11 01:50
+📅 آخرین بروزرسانی: 1405/05/11 02:51
 
 ---
+
+## tasiyanc — post 6846
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسلیت به بت زنای محترم
+</div>
+
+## tasiyanc — post 6845
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قطر یکی زد به کمک های اولیه
+</div>
+
+## tasiyanc — post 6844
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✊امروز تولد مودی ترین خردادیه
+دونالد ترامپ متولد ۱۴ ژوئن ۱۹۴۶ است و امروز (یکشنبه ۱۴ ژوئن ۲۰۲۶) وارد ۸۰ سالگی می‌شود.
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6843
 
@@ -152,42 +173,5 @@ Qatar 🇶🇦 & Switzerland🇨🇭
 Vahid online
 
 @Tasiyanc ✅ | تاسیـان
-</div>
-
-## tasiyanc — post 6815
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  Ovpn 📶
-
-تست شده تمام نتها 🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6813
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به درخواست همراه اولیا گذاشتم ، شیرخورشید 88.221.169.217 88.221.169.207 88.221.169.38 88.221.169.11 88.221.169.18 88.221.169.28 88.221.169.132 88.221.169.127 88.221.169.107 88.221.169.121 @Tasiyanc 
-✅
 </div>
 
