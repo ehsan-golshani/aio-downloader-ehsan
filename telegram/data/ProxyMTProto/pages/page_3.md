@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/11 19:52
+📅 آخرین بروزرسانی: 1405/05/11 21:10
 
 ---
+
+## ProxyMTProto — post 49700
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: OH.OH.Speed-proxy.com
+Port: 443
+Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: lazeyka-3.getvelora.space
+Port: 443
+Secret: ee1dd78b7b5132effe70cb01bef69a351a6f7a6f6e2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49698
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ops2ops.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49697
 
@@ -154,33 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: gate.soluqent.pro
 Port: 443
 Secret: eebdbd1f66a7c00e7bf92c6436d457861d676174652e736f6c7571656e742e70726f
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49680
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: portal.malevich7.top
-Port: 443
-Secret: ee581fe7a67822287a191d54675fa00956706f7274616c2e6d616c6576696368372e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49678
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mirror.malevich7.top
-Port: 443
-Secret: ee8a3854e4a2195faa6e10297354425e3e6d6972726f722e6d616c6576696368372e746f70
 @ProxyMTProto
 </div>
 

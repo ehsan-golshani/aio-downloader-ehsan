@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/05/11 19:54
+📅 آخرین بروزرسانی: 1405/05/11 21:12
 
 ---
+
+## tasiyanc — post 5503
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+gül bana dünyalar benim olsun
+</div>
 
 ## tasiyanc — post 5502
 

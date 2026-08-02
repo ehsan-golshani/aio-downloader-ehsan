@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/05/11 19:54
+📅 آخرین بروزرسانی: 1405/05/11 21:12
 
 ---
+
+## tasiyanc — post 5995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروکسی ۱
+پروکسی ۲
+پروکسی ۳
+پروکسی ۴
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5994
 
@@ -158,12 +168,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Gold🥇Vip servers.npvt
-</div>
-
-## tasiyanc — post 5965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی - 🇫🇷
-@Tasiyanc ✅
 </div>
 

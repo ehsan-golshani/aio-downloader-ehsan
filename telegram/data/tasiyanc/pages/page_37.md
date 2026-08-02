@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/11 19:54
+📅 آخرین بروزرسانی: 1405/05/11 21:12
 
 ---
+
+## tasiyanc — post 7753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنگه هرمز بسته شد💪
+</div>
 
 ## tasiyanc — post 7752
 
@@ -152,11 +158,5 @@
 دقایقی بعد آغاز بازی , چند چند میشه؟
 
 Egypt 🇪🇬 🇦🇷 Argentina
-</div>
-
-## tasiyanc — post 7717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP 🎯 @Tasiyanc.nm
 </div>
 

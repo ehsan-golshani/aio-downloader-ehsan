@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/11 19:54
+📅 آخرین بروزرسانی: 1405/05/11 21:12
 
 ---
+
+## tasiyanc — post 7576
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر گلای تو خونه
+</div>
 
 ## tasiyanc — post 7574
 
@@ -252,11 +258,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ولی پسرامون ( دخترامونم ) ثابت کردن چقد باغیرتن
-</div>
-
-## tasiyanc — post 7536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
 </div>
 

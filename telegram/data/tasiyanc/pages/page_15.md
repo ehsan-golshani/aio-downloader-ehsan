@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/11 19:54
+📅 آخرین بروزرسانی: 1405/05/11 21:12
 
 ---
+
+## tasiyanc — post 8511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+💪 انفجار در شیراز
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8508
 
@@ -243,15 +252,6 @@ Loc 🇩🇪 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨⭕️صدای انفجار مهیب در کنارك
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ اورمیه و چابهار صدای انفجارررر
 
 @TASIYANC 
 ✅

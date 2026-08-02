@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/11 19:54
+📅 آخرین بروزرسانی: 1405/05/11 21:12
 
 ---
+
+## tasiyanc — post 8762
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️اکثر سایت‌ها یا آپشن‌هایی مثل «آفساید» و «مالکیت» رو ندارن، یا وقتی مبلغ سنگین میشه، موقع برداشت هزارتا بهونه میارن. ​ما بالاخره دو مقصد رو پیدا کردیم که «امنیت» و «تنوع» رو همزمان دارن
+
+🔘 @WePariFarsi
+
+🔘 @DerbyBetOfficial
+</div>
 
 ## tasiyanc — post 8761
 
@@ -234,6 +244,4 @@ Multi Loc ⚡ @Tasiyanc.npvt
 ✔️ @TASIYANC 
 ✅
 </div>
-
-## tasiyanc — post 8734
 

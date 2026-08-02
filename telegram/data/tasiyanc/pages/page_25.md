@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/11 19:54
+📅 آخرین بروزرسانی: 1405/05/11 21:12
 
 ---
+
+## tasiyanc — post 8227
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم‌اکنون➖جنوب ایران➖هنگامه بمباران بی‌وقفه
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8226
 
@@ -167,13 +175,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 حملات موشکی سپاه آغاز شد
-
-@Tasiyanc ⭐️
 </div>
 
