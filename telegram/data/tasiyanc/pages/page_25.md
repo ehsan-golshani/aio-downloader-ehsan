@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/11 10:24
+📅 آخرین بروزرسانی: 1405/05/11 14:31
 
 ---
+
+## tasiyanc — post 8219
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرتاب موشک از کرمانشاه
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8217
+
+<div align="center"><video src="files/post_8217_tasiyanc_8217.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8217_tasiyanc_8217.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺ از سنتکام : فیلم توقیف نفتکش ایرانی توسط ارتش نیروی دریایی آمریکا
+
+
+@Tasiyanc ⭐️| مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8216
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺حمله آمریکا به بندرلنگه
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8215
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برق ایرانشهر انگار کاملا رفته @Tasiyanc✅
+</div>
+
+## tasiyanc — post 8214
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨دو انفجار سنگین در قشم
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8213
 
@@ -128,50 +171,5 @@ Ohhh
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 روبیکا لینک سیو کنین در صورت قطعی عضو شید فعلا فعالیت نداریم
 https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
-</div>
-
-## tasiyanc — post 8196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨
-🚨۷ انفجار مهیب در بوشهر
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8195
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8194
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه
-
-دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-🚨 یک مقام آمریکایی به ان‌بی‌سی:
-
-همانطور که رئیس جمهور گفته بود این هفته حمله به زیرساخت‌ها، پل‌ها و نیروگاه‌ها انجام میشود.
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⁉️پدافند تهران فعال شده؟
-
-@Tasiyanc
 </div>
 

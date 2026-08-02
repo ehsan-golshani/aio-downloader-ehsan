@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/11 10:24
+📅 آخرین بروزرسانی: 1405/05/11 14:31
 
 ---
+
+## tasiyanc — post 6833
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6832
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ مخصوص روبیکا
+گیگی ۵۰۰ بدون قطعی🤣🤣🤣
+</div>
+
+## tasiyanc — post 6826
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون بازی شروع شد
+Qatar 🇶🇦 & Switzerland🇨🇭
+</div>
+
+## tasiyanc — post 6824
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به خاطر چس تومن پول میان نمیگن بعضی از چنلا ، راضی ام تا ۱۰۰ سال سیا اینا تبلیغ نزارن رو چنلم
+</div>
+
+## tasiyanc — post 6823
+
+<div align="center"><img src="files/post_6823_tasiyanc_6823.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این تبلیغات برای تلگرامه و ربطی به چنل من نداره ، و این فرد کلاهبرداری داره می‌کنه مراقب باشید ، بخاطر ۳ گرون پول امیدوارم بقیه چنلای ک این حرومی داره تبلیغ می‌زاره اعلام کنند تا از ممبراشون کلاهبرداری نشه
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6822
 
@@ -192,50 +235,5 @@ Vahid online
 پنجشنبه 18 تیر (24 محرم، شب شهادت امام سجاد ): تشییع در مشهد مقدس و سپس خاکسپاری در حرم امام رضا
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6801
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴🆕 حملات سایبری به زیرساخت های تمام بانکای کشور کارت و خدمات اغلب بانک ها از دسترس خارج شده است
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6799
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز فروش به احتمال زیاد باز شه ، آیپی ثابتن سرورا 🦦
-</div>
-
-## tasiyanc — post 6798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بخاطر نمک ریختنتون امروز کلا npv نمیزارم 😍
-فقط در صورتی میزارم ک ریکشن قلب بالای ۲۰۰ تا باشه رو پست
-</div>
-
-## tasiyanc — post 6793
-
-<div align="center"><video src="files/post_6793_tasiyanc_6793.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6793_tasiyanc_6793.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واقعاً تأسف می‌خورم به‌حال کسانی که هنوز با تاسیان آشنا نشدند! 😌
-#تست_سرعت
-</div>
-
-## tasiyanc — post 6792
-
-<div align="center"><video src="files/post_6792_tasiyanc_6792.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6792_tasiyanc_6792.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩ایلان ماسک اولین تریلیونر جهان شد!
-
-سهام SPCX قراره با قیمت 135 دلار معامله بشه و ارزش اسپیس‌ ایکس رو به حدود 1.8 تریلیون دلار برسونه!
-
-@Tasiyanc ✅ | تاسیان
 </div>
 

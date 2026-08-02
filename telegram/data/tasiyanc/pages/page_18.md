@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/11 10:24
+📅 آخرین بروزرسانی: 1405/05/11 14:31
 
 ---
+
+## tasiyanc — post 8418
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شبکه 13 اسرائیل: ترامپ پیامی به کشورهای خلیج ارسال کرد: «اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.» @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شبکه 13 اسرائیل: ترامپ پیامی به کشورهای خلیج ارسال کرد:
+
+«اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.»
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8415
+
+<div align="center"><video src="files/post_8415_tasiyanc_8415.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8415_tasiyanc_8415.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴🚨هدف قرار گرفتن مستقیم یک نیروگاه برق در کویت
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشاهده نود آنتونلا زن مسی ✨
+</div>
+
+## tasiyanc — post 8412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فینال جام‌جهانی 2026 🌍 اسپانیا 🇪🇸  آرژانتین 🇦🇷 ⏰‌ ساعت 22.30 @TasiyanC ✅
+</div>
 
 ## tasiyanc — post 8411
 
@@ -170,45 +210,5 @@ IP
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨💪 6 انفجار شدید در قشم @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8386
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 انفجار در سیریک
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8385
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 4 انفجار شدید در بندرعباس گزارش میشه
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8384
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 6 انفجار شدید در قشم
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8383
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۹٪ اخبار امشب فیکن و پوشش ندادیم
-</div>
-
-## tasiyanc — post 8382
-
-<div align="center"><img src="files/post_8382_tasiyanc_8382.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با دو تا نود چنل vip نیلی افشار برید بخوابید که الان داره بابت هرکدوم ۷ میلیون پول میگیره :))) 🚫
-
-📥 مشاهده 👉
 </div>
 
