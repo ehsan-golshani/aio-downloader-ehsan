@@ -1,8 +1,54 @@
 # آرشیو کانال ProxyMTProto - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/11 00:46
+📅 آخرین بروزرسانی: 1405/05/11 10:22
 
 ---
+
+## ProxyMTProto — post 47609
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s15.proxyru.top
+Port: 993
+Secret: eefe281d2bfa13f991ed6be43138e5e14c7777772e636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: offni-vpn.nolags.pw
+Port: 443
+Secret: dda69632d86d88061ea6e94523027b0470
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47607
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s.proxytg.space
+Port: 8443
+Secret: eefefc4f17248e59437bb451447a9170b2732e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47606
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rus1.mtproxygram.pro
+Port: 443
+Secret: eefbee6e61d427a84d26b97590a8f63bab62726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47605
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Учитывая многочисленные запросы наших дорогих пользователей на покупку персональных и выделенных прокси, мы запустили специального бота для обработки ваших заказов. Те, кто желает совершить покупку, могут легко сделать это, нажав на кнопку или ссылку ниже‼️
+
+Частные прокси без рекламы
+
+https://t.me/proxycenter_rubot?start
+</div>
 
 ## ProxyMTProto — post 47604
 
@@ -141,15 +187,6 @@ Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
 Server: 31.207.5.58
 Port: 443
 Secret: ee997f8741c0919f7b1e8a2c47d9bc1b106d61782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47589
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dreams.nolags.pw
-Port: 443
-Secret: dd2d558135931b5e0c5da5e7501724b32c
 @ProxyMTProto
 </div>
 

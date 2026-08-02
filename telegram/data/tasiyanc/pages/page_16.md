@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/11 02:51
+📅 آخرین بروزرسانی: 1405/05/11 10:24
 
 ---
+
+## tasiyanc — post 8457
+
+<div align="center"><img src="files/post_8457_tasiyanc_8457.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+​«رونالدو و مسی ؛ دو جادوگری که به رویای بچگی‌های ما رنگ واقعیت زدند. آخرین رقص آن‌ها در جام جهانی، پایان یک عصر طلایی بود؛ عصری که دیگر تکرار نخواهد شد.»
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8456
+
+<div align="center"><img src="files/post_8456_tasiyanc_8456.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حضور پرزیدنت ترامپ با اینفانتینو برای اهدای جام
+
+@TASIYANC⭐️
+</div>
+
+## tasiyanc — post 8455
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الان ک ترامپ ممنوع تصویره نمی‌خواین تقدیم جام رو نشون بدید کسخلا؟
+</div>
+
+## tasiyanc — post 8454
+
+<div align="center"><img src="files/post_8454_tasiyanc_8454.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقا دیگه خیلی خیلی تنگ تر بشینید که مسی هم اومد 😐
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانییییییییییییا قهرمان جام جهانی شد
+</div>
+
+## tasiyanc — post 8452
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماااااامممممممم
+</div>
 
 ## tasiyanc — post 8451
 
@@ -106,43 +155,5 @@
 🚨گزارش انفجار از اصفهان ، قم ، اراک
 
 تایید یا تکذیب نمیشه
-</div>
-
-## tasiyanc — post 8435
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مقابل خدمات رایگانی ک میدم انتظار حمایت دارم ، چون منم می‌تونستم مثل خیلیا فروش بزارم
-</div>
-
-## tasiyanc — post 8434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبح یه اوپن VPN زدم هنوزم کار می‌کنه 😂 کاش همه چنلا مثل ما بودن به ناموسم قسم جوین میزدم براش
-</div>
-
-## tasiyanc — post 8433
-
-<div align="center"><img src="files/post_8433_tasiyanc_8433.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
-</div>
-
-## tasiyanc — post 8432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موقع قطعی خودتو بکشی ام رات نمیدم
-</div>
-
-## tasiyanc — post 8431
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
-</div>
-
-## tasiyanc — post 8430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تموم شد بریم بازی کسشر رو ببینیم
 </div>
 

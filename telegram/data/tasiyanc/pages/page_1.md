@@ -1,8 +1,93 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/11 02:51
+📅 آخرین بروزرسانی: 1405/05/11 10:24
 
 ---
+
+## tasiyanc — post 8916
+
+<div align="center"><img src="files/post_8916_tasiyanc_8916.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 مرندی عضو تیم مذاکره : همه میدونن این یه خبر فیکه
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8915
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 تنها دلیل حمله نکردن ترامپ لو رفتن نقشه و طرح حمله از طرف رسانه ها بود
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8914
+
+<div align="center"><a href="files/post_8914_app (7).apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app (7).apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥با این سایت به راحتی میتونی کل ضرر های جام جهانی رو جبران کنی
+بونوس هاش واقعا عالیه👌🏼
+❌با هر 1 میلیون شارژ ، 🤩🤩🤩 هزارتومان شارژ اضافی بگیر🅰️
+
+✅ اپ اختصاصی با دسترسی راحت
+</div>
+
+## tasiyanc — post 8913
+
+<div align="center"><img src="files/post_8913_tasiyanc_8913.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛍 #لیورپول Vs #لیدز💰
+
+🏳آپشن های متفاوت و بونوس های بدون قیدو شرط
+
+🚨 تجربه پیشبینی مطمئن با
+🤩 🤩 🅰️ شارژ اضافی و ریسک خیلی پایین در #بت_اینجا رو از دست نده❌
+
+🤩 🤩 درصد برگشت وجه در صورت باخت
+⌛ همه بونوس ها بی قیدوشرطن:
+🌐 betinja.bet
+🌐 betinja.bet
+کانال بونوس های رایگان r11
+@betinjabet
+</div>
+
+## tasiyanc — post 8912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 آکسیوس:
+
+در پی تماسهای وزرای امور خارجه ترکیه قطر و پاکستان در مورد آمادگی ایران برای برگزاری نشستی در ژنو سوئیس برای ادامه مذاکرات فرماندهی مرکزی ایالات متحده (CENTCOM) عملیات امشب را به طور موقت به مدت ۴۸ ساعت متوقف کرد.
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 ترامپ:
+
+من به خاطر آینده جهان و بقای ج ا ایران موافقت کردم که در ازای احتمال دستیابی سریع به توافق، حمله را لغو کنم.
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8910
 
@@ -25,8 +110,6 @@
 </div>
 
 ## tasiyanc — post 8905
-
-<div align="center"><a href="files/post_8905_Earth @Tasiyanc.jpg" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Earth @Tasiyanc.jpg</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 New Wallpapers ✨ HD
@@ -174,133 +257,5 @@ g10
 بینگ،بینگ،بینگ بینگ ،بینگ 😂
 
 🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8891
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ لوکیشن ترکیه و اسپانیا 💥
-
-دانلود برای اندروید
-
-دانلود برای آیفون 
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه
-
- @TASIYANC ✨
-</div>
-
-## tasiyanc — post 8890
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ایالات متحده آمریکا از تمامی شهروندانش خواسته هرچه سریع بدون وقفه خاورمیانه رو ترک کنن
-
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8888
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ سایت‌های کاربردی در زمان قطعی اینترنت
-
-🔝 آپلود (انتقال متن، کانفیگ، فایل و برنامه)
-pastehub.ir
-m.ulni.ir
-uploadkon.ir
-picofile.com
-uupload.ir
-linklick.ir
-nixfile.com
-⬇️ دانلود فیلم و سریال (بدون سانسور)
-myf2m.info
-serialblog.blog.ir
-filmaz.ir
-movie-chi.ir (اشتراکی)
-filmjoo.xyz
-filmkio.run (اشتراکی)
-dls2.iran-gamecenter-host.com/DonyayeSerial
-simbaapp.ir (نیمه‌اشتراکی)
-movielix.ir (اشتراکی)
-kiamovie.ir (نیمه‌اشتراکی)
-📃 دانلود زیرنویس
-subkade.ir
-subzone.ir
-3fa.ir
-🎵 دانلود موسیقی
-radio.9craft.ir
-melovaz.ir
-behmelody.in
-📚 کتاب
-fidibo.com
-taaghche.com
-navaar.ir
-libra-books.com
-ebooksworld.ir
-🎮نرم‌افزار و بازی
-bazion.ir
-soft98.ir
-yasdl.com
-farsroid.com
-par30games.net
-gameq.ir
-cafebazaar.ir
-downloadha.com
-gold-team.org
-sarzamindownload.com
-dlfox.com
-🔎 جستجوگرهای داخلی
-zarebin.ir
-gerdoo.me
-shaadbin.ir
-2059.ir
-🤷‍♂️ هوش مصنوعی و Ai
-chat.boofai.com
-hooshang.ai
-chat.smartbytes.ir
-🌀مسیریابی
-neshan.org
-balad.ir
-🌐ترجمه و دیکشنری
-abadis.ir
-fastdic.com
-dic.b-amooz.com
-﻿
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8886
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻پادگان چهارم شکاری دزفول تمامی سرباز هارو فرستادن مرخصی و به خانواده‌های نظامیا داخل پادگانم گفتن تخلیه کنید تا عصر.
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8885
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 امریکا به شهروندانش در اردن و اسراییل هشدار تخلیه فوری ارسال کرده
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8883
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز August 1، روز دوست دختره 
-😞
-
-پروکسی متصل | پروکسی متصل
-
-
-
-✈️@TASIYANC 
-✅
 </div>
 
