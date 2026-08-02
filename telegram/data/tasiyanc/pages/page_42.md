@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/12 01:50
+📅 آخرین بروزرسانی: 1405/05/12 02:53
 
 ---
+
+## tasiyanc — post 7590
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مادران داغ دیده ی دی ماه شما یه فرزند از دست دادید ولی میلیون ها فرزند بدست آوردید ، هرچی از غم و داغ دل شما بگیم کم گفتیم ...
+تا ابد اسم فرزندان شما هك خواهد ماند روی قلب تک تک ایرانیان وطن پرست
+</div>
 
 ## tasiyanc — post 7589
 
@@ -191,21 +198,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-6سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
-
-
- ✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 

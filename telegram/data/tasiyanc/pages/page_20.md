@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/12 01:50
+📅 آخرین بروزرسانی: 1405/05/12 02:53
 
 ---
+
+## tasiyanc — post 8383
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۹٪ اخبار امشب فیکن و پوشش ندادیم
+</div>
 
 ## tasiyanc — post 8382
 
@@ -187,11 +193,5 @@
 جهت دریافت وایرگارد مخصوص گیم و وبگردی وارد ربات تاسیان شوید بگیرید ظرفیت پر شه لینک پاک میکنم
 
 دریافت کانفیگ 🤜
-</div>
-
-## tasiyanc — post 8349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Multi Location ⚡ Fast.npvt
 </div>
 

@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/12 01:50
+📅 آخرین بروزرسانی: 1405/05/12 02:53
 
 ---
+
+## tasiyanc — post 8918
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🔐 V2RAY CONFIG🔐 ━━━╮
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@ronaldo14.fordnsdirect.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%F0%9F%87%AE%F0%9F%87%B9%E2%9A%A1%20%40Tasiyanc%20%D8%B3%D8%B1%D8%B9%D8%AA%DB%8C
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@151.115.165.172:8880?mode=gun&security=none&encryption=none&type=grpc#%F0%9F%87%AE%F0%9F%87%B9%20%40Tasiyanc%2004
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca8.directdnsai.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40Tasiyanc%20%F0%9F%87%AE%F0%9F%87%B9%F0%9F%94%B1%F0%9F%8F%9D%EF%B8%8F
+﻿
+⚡️ Unlimated Italy• By 💙 @TASIYANC ✅
+╰━━━━━━━━━━━━━━━━━━╯
+</div>
 
 ## tasiyanc — post 8917
 
@@ -272,24 +287,5 @@ vmess://eyJhZGQiOiI1LjE4OC4xOTAuMjUyIiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 👇بدو جوین شو فرم بعدی بگیر👇
 🆔 https://t.me/+umLw_34TXrEzYTQ0
 🆔 https://t.me/+umLw_34TXrEzYTQ0
-</div>
-
-## tasiyanc — post 8894
-
-<div align="center"><img src="files/post_8894_tasiyanc_8894.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥بمب 100% آماده شد
-🔥
-
-💵دریافتی از منبع خارجی Wiliam Hills 
-
-⬅️رایگان در کانال قرار گرفت
-⬅️فقط جوین شید و تمام
-
-➡️ https://t.me/+umLw_34TXrEzYTQ0
-➡️ https://t.me/+umLw_34TXrEzYTQ0
-g10
-⚠️عضویت رایگان به مدت و تعداد محدود زودتر جوین بده⚠️
 </div>
 

@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/05/12 01:50
+📅 آخرین بروزرسانی: 1405/05/12 02:53
 
 ---
+
+## tasiyanc — post 6793
+
+<div align="center"><video src="files/post_6793_tasiyanc_6793.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6793_tasiyanc_6793.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واقعاً تأسف می‌خورم به‌حال کسانی که هنوز با تاسیان آشنا نشدند! 😌
+#تست_سرعت
+</div>
 
 ## tasiyanc — post 6792
 
@@ -186,16 +197,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 داداش بقران بهترین‌چنلی هستی دمت‌‌گرم که بفکری سرعتتتش‌موشکهه🥲😭😭😭
-</div>
-
-## tasiyanc — post 6769
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با این شرایطی که هرشب داریم صدای بلند توافق رو میشنویم احتمال قطعی نت بشدت زیاده
-برای‌همین براتون کانفینگ‌اختصاصی شارژ کردیم داخل بات  که هر فرد  کانفینگ‌ خودشک اختصاصی بگیره❤️
-
-دیگه پیشگیری بهتر از درمانه بوس
-
-دریافت کانفنینگ‌اختصاصی〽️
 </div>
 
