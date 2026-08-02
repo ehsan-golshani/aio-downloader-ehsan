@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/11 17:34
+📅 آخرین بروزرسانی: 1405/05/11 18:48
 
 ---
+
+## ProxyMTProto — post 49234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 103.161.35.23
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49233
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 34.163.233.50
+Port: 443
+Secret: dd3df684c8e73e0a0a9c658aabeb89f250
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49232
 
@@ -163,24 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: skein.chunkycorp.shop
 Port: 443
 Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: super.sub-ploter.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 0a9b43ea17eff45e518fa360979998e7
 @ProxyMTProto
 </div>
 

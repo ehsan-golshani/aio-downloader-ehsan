@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/05/11 14:31
+📅 آخرین بروزرسانی: 1405/05/11 18:50
 
 ---
+
+## tasiyanc — post 5728
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Box 🏳 vip
+
+trojan://2238e2f3-1a01-485e-8c22-24b65764c68b@172.64.152.23:443?path=%2F51.91.253.83&security=tls&insecure=0&host=gzjx.dpdns.org&type=ws&allowInsecure=0&sni=gzjx.dpdns.org#%40Tasiyanc%20USS%E2%9A%A1
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5727
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده همه اپراتور ها ⛈ 
+
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5726
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده همه اپراتور ها ⛈ 
+
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5724
 
@@ -158,30 +192,6 @@ sv Country 🇬🇧
 📱
 
 ⛈4 سرور تمام اپراتورا متصل سرعت نور ⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5705
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارو 😐
-</div>
-
-## tasiyanc — post 5704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 [40 ].npvt
-</div>
-
-## tasiyanc — post 5703
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈ تمام اپراتورا⛈ 
 
 
 🚀 @Tasiyanc ✅

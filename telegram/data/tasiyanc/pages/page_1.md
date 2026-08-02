@@ -1,12 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/11 14:31
+📅 آخرین بروزرسانی: 1405/05/11 18:50
 
 ---
 
-## tasiyanc — post 8923
+## tasiyanc — post 8927
 
-<div align="center"><a href="files/post_8923_@TASIYANC 🔥🚀.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @TASIYANC 🔥🚀.ovpn</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴احمدرضا رادان، فرمانده کل نیروی انتظامی:
+
+من یه مشکلی برام پیش اومد که گفتم نمیتونم در جلسه شورای دفاع در نهم اسفندماه شرکت کنم و غلامرضا رضاییان، رییس سازمان اطلاعات فراجا به جای من در جلسه شرکت کرد و کشته شد.
+
+💙@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8926
+
+<div align="center"><a href="files/post_8926_app (7).apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app (7).apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پیشنهاد_ویژه ⚠️
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
+دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
+</div>
+
+## tasiyanc — post 8925
+
+<div align="center"><video src="files/post_8925_tasiyanc_8925.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8925_tasiyanc_8925.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🖱به راحتی کسب درامد کن 💵💰
+
+🟢 ویدیو #آموزش بازی chicky choice رو براتون گذاشتم خیلی راحت و بدون ریسک و میتونی بازی کنی و کلی پول دربیاری🔥
+
+💖 حتما ویدیو رو تا انتها ببینید
+💻لینک سایت بازی:
+💻 betinja.bet
+💻 betinja.bet
+🌐 کانال بونوس های رایگان g11
+@betinjabet
+</div>
+
+## tasiyanc — post 8923
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ╭━━━ 📶 Open Vpn Config ✅ ━━━╮
@@ -248,44 +285,5 @@ New Wallpapers ✨ HD
 🔺قیمت دلار  ۱۹۶ هزار تومان  شد
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8901
-
-<div align="center"><img src="files/post_8901_tasiyanc_8901.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ:
-
-در حال نابودی کامل ارزش پول ایران هستم. در شروع دوران ریاست جمهوری من دلار ۹۰ هزار تومن بوده و الان شده ۱۹۶ هزار تومن.
-
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8900
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود نپسترنت
-
-سرور سرعتی تست شده لوکییشن ایتالیا 🇮🇹
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه
-
-✔️ @TASIYANC
-</div>
-
-## tasiyanc — post 8899
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ کانفیگ ویتوری لوکیشن 🇹🇷
-
-
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.46:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#Hi%20%C4%B0stanbul%20%F0%9F%87%B9%F0%9F%87%B7%20%40Tasiyanc
-vmess://eyJhZGQiOiI1LjE4OC4xOTAuMjUyIiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiIiLCJpZCI6IjA0NjIxYmFlLWFiMzYtMTFlYy1iOTA5LTAyNDJhYzEyMDAwMiIsImluc2VjdXJlIjoiMCIsIm5ldCI6InRjcCIsInBhdGgiOiIiLCJwY3MiOiIiLCJwb3J0IjoiMjIzMjQiLCJwcyI6IkBUYXNpeWFuYyDwn4e58J+HtyIsInNjeSI6ImF1dG8iLCJzbmkiOiIiLCJ0bHMiOiIiLCJ0eXBlIjoibm9uZSIsInYiOiIyIiwidmNuIjoiIn0=
-
-
-🔱 @TASIYANC
 </div>
 
