@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/11 21:12
+📅 آخرین بروزرسانی: 1405/05/11 22:22
 
 ---
+
+## tasiyanc — post 8471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️صدای انفجار مهیب در کنارك
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8470
 
@@ -157,11 +166,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تماااااامممممممم
-</div>
-
-## tasiyanc — post 8451
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه اوه اسپانیا از کون اورد
 </div>
 

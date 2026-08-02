@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/11 21:12
+📅 آخرین بروزرسانی: 1405/05/11 22:22
 
 ---
+
+## tasiyanc — post 8708
+
+<div align="center"><img src="files/post_8708_tasiyanc_8708.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جدیدا یه چالشی راه افتاده که پسرا با دوس دخترشون که دور کمرشون اندازه یه کف دسته عکس میگیرن و به اشتراک میذارن.
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8707
 
@@ -278,11 +288,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 🔺دریافت پرامپت 👉
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8681
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خیلیییییی گرمهههههه
 </div>
 

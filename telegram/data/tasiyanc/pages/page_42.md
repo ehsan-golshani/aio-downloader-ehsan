@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/11 21:12
+📅 آخرین بروزرسانی: 1405/05/11 22:22
 
 ---
+
+## tasiyanc — post 7577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال رو همه اپراتورا هم اکنون ( وصل اما قط وصل)
+</div>
 
 ## tasiyanc — post 7576
 
@@ -252,11 +258,5 @@ Fast ⚡️🚀 Premium.npvt
 اطلاع رسانی بشه
 
 @Tasiyanc 💠 | اتصال امن با مجموعه تاسیان
-</div>
-
-## tasiyanc — post 7537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ولی پسرامون ( دخترامونم ) ثابت کردن چقد باغیرتن
 </div>
 

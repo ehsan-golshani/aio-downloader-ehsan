@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/11 21:12
+📅 آخرین بروزرسانی: 1405/05/11 22:22
 
 ---
+
+## tasiyanc — post 8933
+
+<div align="center"><a href="files/post_8933_𝐌𝐞𝐥𝐥𝐢_𝐬𝐡𝐞𝐤𝐚𝐧_⚡_𝐅𝐚𝐬𝐭.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 𝐌𝐞𝐥𝐥𝐢_𝐬𝐡𝐞𝐤𝐚𝐧_⚡_𝐅𝐚𝐬𝐭.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود نپسترنت 📱
+
+سرور سرعتی تست شده مولتی لوکیشن 📍
+
+آموزش اتصال ⚡️
+
+اتصال امن برای همه
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 8932
 
@@ -275,14 +291,6 @@ IPv6
 پروکسی | پروکسی | پروکسی
 پروکسی | پروکسی | پروکسی
 پروکسی | پروکسی | پروکسی
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ: رهبران قطر، عربستان سعودی و امارات متحده عربی درخواست کردند که حمله به ایران دو یا سه روز به تعویق بیفتد
 
 🔱 @Tasiyanc
 </div>

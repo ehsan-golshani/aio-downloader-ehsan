@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/11 21:12
+📅 آخرین بروزرسانی: 1405/05/11 22:22
 
 ---
+
+## tasiyanc — post 8790
+
+<div align="center"><img src="files/post_8790_tasiyanc_8790.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک نوکیا مدل 3310 پس از 22 سال پیدا شد
+هنوز 70% شارژ باتری داشت ! 🗿
+
+گزارش شده که یک گوشی Nokia 3310 که در شهر Ellesmere Port پیدا شده، پس از حدود ۲۲ سال همچنان روشن شده و نزدیک به ۷۰ درصد شارژ باتری داشته است.
+⭐ @Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8789
 
@@ -210,17 +223,6 @@
 🚨 طبق اعلام بانک مرکزی؛
 تورم نقطه به نقطه تیرماه ۸۳.۹ درصد اعلام شد.
 یعنی کالاها نسبت به تیرماه سال قبل؛ ۸۳.۹ درصد گرون تر شدن ک فک کنم زیاد بوده باشه
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8763
-
-<div align="center"><img src="files/post_8763_tasiyanc_8763.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتانیاهو و تیمش در حال آماده شدن برای دیدار با پرزیدنت ترامپ در کاخ سفید.
-
-
 @Tasiyanc ⭐️
 </div>
 

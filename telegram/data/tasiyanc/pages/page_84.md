@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/05/11 21:12
+📅 آخرین بروزرسانی: 1405/05/11 22:22
 
 ---
+
+## tasiyanc — post 6203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+NEW FAST ⚡ 🚀.npvt
+</div>
 
 ## tasiyanc — post 6202
 
@@ -187,11 +193,5 @@ GANG 🇳🇱🇬🇧🚀 (1).npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تست شده با ایرانسل & سامانتل   ♻️
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6175
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-NewMethod🌶️@Tasiyanc.conf
 </div>
 

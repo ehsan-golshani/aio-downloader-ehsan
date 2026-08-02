@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/11 21:10
+📅 آخرین بروزرسانی: 1405/05/11 22:20
 
 ---
+
+## ProxyMTProto — post 48213
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: login.veltura.digital
+Port: 443
+Secret: ee4f5545c56e0ee3271606a2985459773e6c6f67696e2e76656c747572612e6469676974616c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48211
 
@@ -163,24 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: cdn.toconvel.digital
 Port: 443
 Secret: eeddeeeeb0dda28d2a517ff1c71036f2c663646e2e746f636f6e76656c2e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: www2.nilmart.ir
-Port: 443
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: edge.rknwatch.digital
-Port: 443
-Secret: eed0f9c2e89d0ec7e0c52dadb85149c3a7656467652e726b6e77617463682e6469676974616c
 @ProxyMTProto
 </div>
 

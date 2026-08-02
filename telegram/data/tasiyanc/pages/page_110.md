@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/05/11 21:12
+📅 آخرین بروزرسانی: 1405/05/11 22:22
 
 ---
+
+## tasiyanc — post 5506
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش نداریم فعلا پول نزنید باز شه اطلاع میدم
+</div>
 
 ## tasiyanc — post 5503
 

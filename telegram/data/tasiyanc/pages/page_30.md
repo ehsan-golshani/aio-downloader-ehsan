@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/11 21:12
+📅 آخرین بروزرسانی: 1405/05/11 22:22
 
 ---
+
+## tasiyanc — post 8086
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گرمهههههههههههههههههه
+</div>
 
 ## tasiyanc — post 8085
 
@@ -269,11 +275,5 @@
 
 
 @Tasiyanc ⭐️ | بانک کانفیگ
-</div>
-
-## tasiyanc — post 8017
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺نیروی دریایی آمریکا اعلام کرد از فردا ساعت ٨ شب به وقت گرینویچ (٢٣:٣٠ به وقت ایران) محاصره دریایی دوباره آغاز میشه. @TasiyanProxy✅
 </div>
 
