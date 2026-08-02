@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/11 18:50
+📅 آخرین بروزرسانی: 1405/05/11 19:54
 
 ---
+
+## tasiyanc — post 8788
+
+<div align="center"><img src="files/post_8788_tasiyanc_8788.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیشب یه پراید هاچبک تو تهران بخاطر اینکه سیستم صوتیش رو اصولی نصب نکرده بود، به محض اینکه رانندش ولوم آهنگ رو تا آخر بالا برد منفجر شد :
+
+⭐ @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان امنیت روسیه: پاول دوروف، بنیانگذار تلگرام، در فهرست افراد تحت تعقیب بین‌المللی قرار گرفت!!
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8786
+
+<div align="center"><video src="files/post_8786_tasiyanc_8786.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8786_tasiyanc_8786.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴انتقال اجساد حشدالشعبی
+
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر گلای توی خونه
+</div>
 
 ## tasiyanc — post 8784
 
@@ -185,59 +225,5 @@
 🔘 @WePariFarsi
 
 🔘 @DerbyBetOfficial
-</div>
-
-## tasiyanc — post 8761
-
-<div align="center"><img src="files/post_8761_tasiyanc_8761.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️هنوز داری روی برنده-بازنده شرط می‌بندی؟
-
-📌​اگه حرفه‌ای هستی، میدونی که سود اصلی تو «گزینه‌های خاص» خوابیده؛ نه نتیجه بازی!
-
-
-​✔️ برای دوستانی که با کریپتو شارژ میکنند (وی‌پاری):
-بدون محدودیت سقف برداشت، با ضریب‌های واقعی و آپشن‌های ریزِ بازی و شرطبندی های میلیاردی.
-🔘 [Wepari.com]
-
-
-​✔️ برای طرفداران کارت‌به‌کارت و واریز ریالی
-🔘 (DERBYBET.Com):
-سریع‌ترین واریز ریالی با محیط کاربری امن برای شرط‌های سنگین و آپشن های فراوان.g6
-</div>
-
-## tasiyanc — post 8760
-
-<div align="center"><img src="files/post_8760_tasiyanc_8760.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پژمان بهروزی، شرکت کننده برنامه ایدز ابدی، اومده تو برنامه خط قرمز صداوسیما برا ایرانیا از وطن پرستی بگه
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8759
-
-<div align="center"><img src="files/post_8759_tasiyanc_8759.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانی بودنم سخته ، اداره برق نه تنها برقو قطع می‌کنه ، بعدش میاد یه اپ معرفی می‌کنه پول میگیره میگه کی برقتون قطع میشه
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8758
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود لوک ترکیه📱
-
-تست شده روی همه نت ها
-
-آموزش اتصال روی اندروید⛓
-آموزش اتصال روی ویندوز  ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ⭐️
 </div>
 

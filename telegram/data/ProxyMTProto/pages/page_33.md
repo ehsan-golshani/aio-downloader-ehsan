@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/11 18:48
+📅 آخرین بروزرسانی: 1405/05/11 19:52
 
 ---
+
+## ProxyMTProto — post 49095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s5.postpulse.space
+Port: 443
+Secret: ee846d23933361faa6211c7ac6765023be6164322e617269786f2e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49094
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Strait-of-Hormuz.ir.jursdheks.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49093
 
@@ -163,24 +181,6 @@ Secret: eed09b88cbbd4e744865b890e5a0bd26876164322e617269786f2e73686f70
 Server: relaywise.co.uk.
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49075
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49069
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
