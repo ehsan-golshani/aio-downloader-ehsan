@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/12 00:45
+📅 آخرین بروزرسانی: 1405/05/12 01:50
 
 ---
+
+## tasiyanc — post 8940
+
+<div align="center"><video src="files/post_8940_tasiyanc_8940.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8940_tasiyanc_8940.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👨‍💼ترامپ درباره ایران:
+
+ما حمله‌ای را آماده کرده بودیم که بزرگترین حمله از زمان جنگ جهانی دوم می‌بود.
+این برای آن‌ها فاجعه‌بار می‌بود و آن‌ها نمی‌خواستند که ما این کار را انجام دهیم.
+راستش عربستان سعودی هم نمی‌خواست این اتفاق بیفتد. آن‌ها فکر می‌کردند که یک توافق در شرف وقوع است.
+👹 @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8939
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 3 August, روز جهانیِ عشق اوله 
+😞
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 8938
 
@@ -208,68 +234,5 @@ vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca8.directdnsai.shop:8880?mode=gun
 ﻿
 ⚡️ Unlimated Italy• By 💙 @TASIYANC ✅
 ╰━━━━━━━━━━━━━━━━━━╯
-</div>
-
-## tasiyanc — post 8917
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 👾 GAME DNS ارسالی اعضاء━━━╮
-
-⚡️ DNS #1
-IPv4
-78.157.42.100
-5.160.243.237
-IPv6
-2a00:94c1:abcd::78a5:ea7b:c
-2a00:94c1:abcd::78a5:4d6c:b
-
-➖➖➖➖➖➖➖
-
-⚡️ DNS #2
-IPv4
-78.157.42.101
-24.48.134.102
-IPv6
-2607:f8b1:99aa::d101:c11e:c
-2607:f8b1:99aa::d101:66c4:b
-
-➖➖➖➖➖➖➖
-
-⚡️DNS #3
-IPv4
-78.157.42.101
-37.112.14.40
-IPv6
-2a02:2f0::1fce:b7a5:c
-2a02:2f0::1fce:fa57:b
-
-➖➖➖➖➖➖➖
-
-⚡️ DNS #4
-IPv4
-78.157.42.101
-5.48.156.49
-IPv6
-2a01:e0a::cdf3:15d9:c
-2a01:e0a::cdf3:ea6a:b
-
-⚡️ Low Ping • Stable Connection
-╰━━━━━━━━━━━━━━━━━━╯
-
-💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8916
-
-<div align="center"><img src="files/post_8916_tasiyanc_8916.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 مرندی عضو تیم مذاکره : همه میدونن این یه خبر فیکه
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-🔱 @Tasiyanc
 </div>
 

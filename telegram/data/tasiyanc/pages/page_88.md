@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/05/12 00:45
+📅 آخرین بروزرسانی: 1405/05/12 01:50
 
 ---
+
+## tasiyanc — post 6111
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانفیگا برای تست هست اگر اوکی باشه روش کار میکنیم
+</div>
+
+## tasiyanc — post 6109
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی کانفیگ وایرگارد ✅
+
+تست شده 🎚
+
+دانلود برنامه Wg tunnel 🕹
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6108
 
@@ -162,27 +179,5 @@ Channel@Tasiyanc.ovpn
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشنا بالا باشه❤️
-</div>
-
-## tasiyanc — post 6085
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی برای وای‌فای تا دقایقی دیگه میزارم به درخواست اعضای تاسیان
-</div>
-
-## tasiyanc — post 6084
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-۴سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
 </div>
 

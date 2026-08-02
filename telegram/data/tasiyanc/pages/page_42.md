@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/12 00:45
+📅 آخرین بروزرسانی: 1405/05/12 01:50
 
 ---
+
+## tasiyanc — post 7589
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجکتور خیلی پایداریش عجیبه کانفیگای دیروز هم وصله با سرعت
+</div>
+
+## tasiyanc — post 7588
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حالتون چطوره؟
+</div>
 
 ## tasiyanc — post 7586
 
@@ -195,17 +207,5 @@ Fast ⚡️🚀 Premium.npvt
 
 
  ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کادو منو نمیدید روز پسره؟
-</div>
-
-## tasiyanc — post 7550
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
 </div>
 
