@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/11 22:20
+📅 آخرین بروزرسانی: 1405/05/11 23:36
 
 ---
+
+## ProxyMTProto — post 48056
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: kilo.proxyux.site
+Port: 443
+Secret: ee62d16bd3fa5f892202a2af3062a7321d6b696c6f2e70726f787975782e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy14.arixo.shop
+Port: 443
+Secret: ee3e14c7409631b938a4ad5f0dcee01bc8617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48053
 
@@ -157,33 +184,6 @@ Secret: ee3d75d4605342be40f01e37f606946e81666173742e70726f787974656c6567612e7374
 Server: country.nolags.pw
 Port: 443
 Secret: ddc5a3afebedae870af378217569f6586c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48036
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: wb.proxyonline.online
-Port: 8443
-Secret: eee8f530985fe58c2518873a7899fd690b77622e70726f78796f6e6c696e652e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48034
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowabst.net
-Port: 853
-Secret: ee12893ffd2044cecd31104edc02a7e5586164732e78352e7275
 @ProxyMTProto
 </div>
 
