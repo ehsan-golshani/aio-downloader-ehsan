@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 105
 
-📅 آخرین بروزرسانی: 1405/05/11 14:29
+📅 آخرین بروزرسانی: 1405/05/11 15:45
 
 ---
+
+## ProxyMTProto — post 47640
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: otklyuchi-vpn.nolags.pw
+Port: 443
+Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47639
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: For Iran
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.154.25.238
+Port: 443
+Secret: 886ace76f7a9a1e3219537fe5dfd04d5
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47637
 
@@ -161,32 +188,5 @@ Secret: eec11798ab008831b474066c9e1ebf5c74617669746f2e7275
 Мы постоянно добавляем новые прокси и пока раздаём их бесплатно 🔥
 
 ⬇️ Запусти бота и получи рабочий прокси прямо сейчас
-</div>
-
-## ProxyMTProto — post 47620
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r6.proxytg.space
-Port: 8443
-Secret: eea66a6c939a8f1a0596bd06f17dae253772362e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47619
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tproxy.ink
-Port: 443
-Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowaboost.com
-Port: 443
-Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
-@ProxyMTProto
 </div>
 
