@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/05/12 12:40
+📅 آخرین بروزرسانی: 1405/05/12 15:40
 
 ---
+
+## tasiyanc — post 5820
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۳۴ هزار شیم سورپرایز دارم
+</div>
 
 ## tasiyanc — post 5819
 
@@ -221,16 +227,5 @@ GM TASIYAN 💝
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 💝.npvt
-</div>
-
-## tasiyanc — post 5798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور سرعتی اختصاصی تاسیان  📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-🚀 @Tasiyanc ✅
 </div>
 

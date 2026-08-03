@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/05/12 12:40
+📅 آخرین بروزرسانی: 1405/05/12 15:40
 
 ---
+
+## tasiyanc — post 5530
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان سرور تست شده وای‌فای 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5527
 
@@ -176,15 +186,5 @@ trojan://humanity@2.144.4.208:40443?security=tls&type=ws&host=www.creationlong.o
 NPV ❤️
 
 Psiphon v2Ray 🔥
-</div>
-
-## tasiyanc — post 5497
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

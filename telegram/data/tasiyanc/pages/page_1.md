@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/12 12:40
+📅 آخرین بروزرسانی: 1405/05/12 15:40
 
 ---
+
+## tasiyanc — post 8947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دزدی از جیب مردم تا کی ؟
+
+
+🔴جدیدا اینترنت مردم به طرز وحشتناکی خیلی زود و عجیب تموم میشه!
+برای استفاده از اینترنت بین الملل دارن ضریب ۲.۷ حساب میکنن واقعا خنده داره ، نمی‌دونم چی بگم واقن
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8946
 
@@ -24,8 +37,6 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 
 ## tasiyanc — post 8944
 
-<div align="center"><a href="files/post_8944_🔱 𝙿𝚛𝚎𝚖𝚒𝚞𝚖 TR.ehi.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🔱 𝙿𝚛𝚎𝚖𝚒𝚞𝚖 TR.ehi</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😎 کانفیگ اختصاصی نامحدود اینجکتور📶
 
@@ -45,8 +56,6 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 </div>
 
 ## tasiyanc — post 8943
-
-<div align="center"><a href="files/post_8943_app (7).apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app (7).apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚠️ #پیشنهاد_ویژه ⚠️
@@ -240,13 +249,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 من یه مشکلی برام پیش اومد که گفتم نمیتونم در جلسه شورای دفاع در نهم اسفندماه شرکت کنم و غلامرضا رضاییان، رییس سازمان اطلاعات فراجا به جای من در جلسه شرکت کرد و کشته شد.
 
 💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پیشنهاد_ویژه ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
-دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
 </div>
 

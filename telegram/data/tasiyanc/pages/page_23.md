@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/12 12:40
+📅 آخرین بروزرسانی: 1405/05/12 15:40
 
 ---
+
+## tasiyanc — post 8296
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 انفجار در اهواز
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8295
 
@@ -153,13 +161,5 @@ JAVID SHAH 👑
 🚨⭕️ انفجار در یگان امداد سنندج ، تایید / تکذیب نمیشه
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8274
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ انفجار شدید در بوشهر
-
-@Tasiyanc ✅
 </div>
 

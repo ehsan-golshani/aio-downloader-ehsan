@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/12 12:40
+📅 آخرین بروزرسانی: 1405/05/12 15:40
 
 ---
+
+## tasiyanc — post 8274
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ انفجار شدید در بوشهر
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8273
 
@@ -188,13 +196,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دلاااااااااار 195 😐
-</div>
-
-## tasiyanc — post 8243
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش اعضا : اصفهان و استان های جنوبی اینترنت بشدت ضعیفه ،
-
-کامنت بزارید وضعیت نتتون چطوره
 </div>
 
