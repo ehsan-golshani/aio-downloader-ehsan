@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/12 21:03
+📅 آخرین بروزرسانی: 1405/05/12 22:45
 
 ---
+
+## ProxyMTProto — post 49493
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49492
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49491
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: lazeyka-2-5.getvelora.space
+Port: 443
+Secret: ee32ee4962951c5b2bb70bc767751761a36f7a6f6e2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49490
 
@@ -147,33 +174,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: mirror.balalaika.click
 Port: 443
 Secret: eee4b4eaf07c9633ab6f87dfc5b48151cf6d6972726f722e62616c616c61696b612e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Best.Ping.ir.hdhdhfdrde.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49472
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tgb92cf27d.koshkaproxy.shop
-Port: 443
-Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49471
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mirror.balalaika.click
-Port: 443
-Secret: ee82514fa3e992fa79f3fd3bff4db750116d6972726f722e62616c616c61696b612e636c69636b
 @ProxyMTProto
 </div>
 
