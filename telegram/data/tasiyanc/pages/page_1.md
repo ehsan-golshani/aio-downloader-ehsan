@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/12 18:57
+📅 آخرین بروزرسانی: 1405/05/12 21:05
 
 ---
+
+## tasiyanc — post 8958
+
+<div align="center"><a href="files/post_8958_𝙁𝘼𝙎𝙏 ⚡ 𝟓𝙎.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 𝙁𝘼𝙎𝙏 ⚡ 𝟓𝙎.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم 
+🖤
+🇮🇷
+
+کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+۵ سرور سرعتی تست شده  لوکیشن ایتالیا 
+📍
+
+آموزش اتصال 
+⚡️
+
+اتصال امن برای همه
+
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 8957
+
+<div align="center"><img src="files/post_8957_tasiyanc_8957.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طومار جدید ترامپ:
+ـ‌ رهبران ایران واقعاً دورو و غیرقابل‌باورن! خودشون درخواست مذاکره دادن، اونا حتی التماس کردن.
+مذاکرات شروع شده و قرار هم هست به‌زودی ادامه پیدا کنه، ولی بعدش میان جلوی دوربین می‌گن اصلاً مذاکره‌ای در کار نیست و فقط با عمان در ارتباطن.
+بعد هم طبق معمول شروع می‌کنن به حرف زدن و میگن تنگه هرمز با قدرت دست خودشونه؛ در حالی که الان عملاً نیروی دریایی آمریکا کنترل کاملش رو در اختیار داره و چیزی که بعضیا اسمش رو گذاشتن “دیوار فولادی آمریکا” اونجاست. هیچ چیزی بدون اجازه ما به ایران نمی‌رسه و تا وقتی توافقی انجام نشه یا ایران کاملاً تسلیم نشه، هم چیزی وارد ایران نمی‌شه. چه ایران قبول بکنه چه نکنه، ما در حال مذاکره برای حل مشکلی هستیم که خودش دهه‌ها ایجادش کرده. موضوع خیلی ساده است؛ ایران هیچ‌وقت به سلاح هسته‌ای دست پیدا نخواهد کرد.
+
+👹@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8956
 
@@ -44,7 +82,7 @@ Add subtle sparkle/glitter overlay, warm soft lighting, high-resolution, ultra-r
 ## tasiyanc — post 8954
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-  ‼️8 شب وین دادیم امشبم وینه✔️✔️
+‼️8 شب وین دادیم امشبم وینه✔️✔️
 
 ✅تنها کانالی که از شرطبندی پول در میاره✅
 
@@ -106,8 +144,6 @@ Location ⚡️🇮🇹
 </div>
 
 ## tasiyanc — post 8948
-
-<div align="center"><a href="files/post_8948_🖤 Javid Naman İran 🖤.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🖤 Javid Naman İran 🖤.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی نامحدود نپسترنت📱
@@ -255,24 +291,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 📍Location 🇹🇷 🇬🇧 🇩🇪
 
 ⚡️ By  @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8936
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گزارش درگیری در تنگه هرمز - تایید یا رد نمیشه
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-
-👹@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8935
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیچ اختلالی در اینترنت نیست کانفیگای کانال با سرعت وصله
 </div>
 

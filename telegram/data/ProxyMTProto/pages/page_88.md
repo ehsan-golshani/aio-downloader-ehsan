@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/05/12 18:55
+📅 آخرین بروزرسانی: 1405/05/12 21:03
 
 ---
+
+## ProxyMTProto — post 48022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: jet.proxyux.site
+Port: 443
+Secret: eed2024b83c7a14889f7d69bd82ca087c16a65742e70726f787975782e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48021
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48020
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: double.nolags.pw
+Port: 443
+Secret: dd96d0f04ace50bb54a492c1415bfff1e5
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48018
 
@@ -145,42 +181,6 @@ Secret: ddaed3f129a293bdfc23d67204b50bbf87
 Server: ge.nowabst.net
 Port: 853
 Secret: eefdf6175e50069c01bd22d786534aa2b26164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 15
-Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48001
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 51.250.69.99
-Port: 443
-Secret: eea20cccd3366ea459a8057d24b1202153617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48000
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47999
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy6.arixo.shop
-Port: 443
-Secret: ee2d3817c6b2bf469fb5064e6cb4b19790617669746f2e7275
 @ProxyMTProto
 </div>
 

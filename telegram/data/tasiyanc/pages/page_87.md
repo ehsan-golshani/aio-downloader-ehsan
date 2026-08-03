@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/12 18:57
+📅 آخرین بروزرسانی: 1405/05/12 21:05
 
 ---
+
+## tasiyanc — post 6156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید 📱
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6155
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Premium 💙BLUE.npvt
+</div>
 
 ## tasiyanc — post 6152
 
@@ -176,23 +191,5 @@ vip 🚀🔥 @Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fast2⚡@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6130
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر 💋
-</div>
-
-## tasiyanc — post 6129
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی کانفیگ وایرگارد متد جدید 👑
-
-تست شده 🎚
-دانلود برنامه Wg tunnel 🕹
-آموزش ویدیویی ⏩
-
-@Tasiyanc ✅
 </div>
 

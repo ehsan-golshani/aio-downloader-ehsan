@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/12 18:57
+📅 آخرین بروزرسانی: 1405/05/12 21:05
 
 ---
+
+## tasiyanc — post 8886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻پادگان چهارم شکاری دزفول تمامی سرباز هارو فرستادن مرخصی و به خانواده‌های نظامیا داخل پادگانم گفتن تخلیه کنید تا عصر.
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8885
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 امریکا به شهروندانش در اردن و اسراییل هشدار تخلیه فوری ارسال کرده
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8883
 
@@ -287,13 +303,4 @@ Restore this old photograph with maximum realism. Remove scratches, dust, stains
 
 ✔️ @TASIYANC ✅
 </div>
-
-## tasiyanc — post 8855
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نت بلاکس : دولت ترکیه بصورت ناگهانی اینترنت کل مردم ترکیه رو قطع کرد.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8853
 

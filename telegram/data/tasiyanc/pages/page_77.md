@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/12 18:57
+📅 آخرین بروزرسانی: 1405/05/12 21:05
 
 ---
+
+## tasiyanc — post 6408
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبلیغاتی ک میاد از طرف تلگرامه و قابل تایید ما نیست مراقب باشید تو این شرایط جیبتون نزنن❤️
+</div>
+
+## tasiyanc — post 6407
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شخص خودم فعالیتی تو روبیکا نخواهم داشت با توجه به اینکه ۳ تا اکانتم مسدوده ولی ادمینای تلگرام تو چنل و گروه روبیکا میگم کانفیگارو بفرستن در صورت قطعی
+https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
+</div>
 
 ## tasiyanc — post 6406
 
@@ -184,31 +197,5 @@
 
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6384
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-7سرور   سرعتی پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6383
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[Fast] ⚡ @Tasiyanc.npvt
 </div>
 

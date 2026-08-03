@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/12 18:57
+📅 آخرین بروزرسانی: 1405/05/12 21:05
 
 ---
+
+## tasiyanc — post 8454
+
+<div align="center"><img src="files/post_8454_tasiyanc_8454.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقا دیگه خیلی خیلی تنگ تر بشینید که مسی هم اومد 😐
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانییییییییییییا قهرمان جام جهانی شد
+</div>
 
 ## tasiyanc — post 8452
 
@@ -129,18 +146,6 @@
 ## tasiyanc — post 8433
 
 <div align="center"><img src="files/post_8433_tasiyanc_8433.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
-</div>
-
-## tasiyanc — post 8432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موقع قطعی خودتو بکشی ام رات نمیدم
-</div>
-
-## tasiyanc — post 8431
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
