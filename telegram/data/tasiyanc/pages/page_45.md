@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/12 21:05
+📅 آخرین بروزرسانی: 1405/05/13 00:18
 
 ---
+
+## tasiyanc — post 7515
+
+<div align="center"><img src="files/post_7515_tasiyanc_7515.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▪️احضار: آخرین مراسم 2025 [the Conjuring]
+
+🎭 ژانر: ترسناک & ماورایی & هیجان_انگیز
+⭐️ امتیاز: 6.5 از 10
+🌐 محصول کشور: 🇺🇸
+
+📜خلاصه داستان:  اد و لورن وارن، متخصص حل پرونده‌های فراطبیعی، خطرناک‌ترین پرونده زندگی خود را بررسی می‌کنند. جک و جنت اسمرل به همراه فرزندان خود به خانه‌ای جدید نقل‌مکان می‌کنند که همیشه آرزویش را داشتند، اما به‌ زودی این خانه به کابوسی وحشتناک تبدیل می‌شود، وقتی نشانه‌های تسخیر ارواح شیطانی در آن پدیدار می‌گردد و ...
+
+✍️نسخه زیرنویس فارسی بدون سانسور
+📧 [ برای دانلود فیلم کلیک کنید ]
+
+🔉نسخه دوبله فارسی بدون سانسور
+📧 [ برای دانلود فیلم کلیک کنید ]
+
+@Tasiyanc 💠 | اتصال امن
+</div>
+
+## tasiyanc — post 7514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ARABICA ☕⚡️HoT.npvt
+</div>
+
+## tasiyanc — post 7499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپستر 🔥
+
+7 سرور سرعتی ویژه ⚡️
+
+آموزش اتصال ⛓
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7498
 
@@ -166,33 +210,5 @@ ESPRESSO 🔥☕.npvt
 
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7463
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 28 June، روزِ  LGBTQ یا همون همجنسگراست
-بفرست واسه رفیق گِیت🤣
-</div>
-
-## tasiyanc — post 7460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال 
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد حسین میساکی بدون اینکه خندش بگیره خیلی جدی : تیمهای الجزایر و اتریش تبانی کردن 🤣🤣🤣
 </div>
 

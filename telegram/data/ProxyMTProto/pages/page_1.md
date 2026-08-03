@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/12 22:45
+📅 آخرین بروزرسانی: 1405/05/13 00:16
 
 ---
+
+## ProxyMTProto — post 49777
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: panel.neo-vpn.ink
+Port: 443
+Secret: eeb4ea209a41744fcfe544c552c134b0a670616e656c2e6e656f2d76706e2e696e6b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49776
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49775
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: api.nowabst.net
+Port: 853
+Secret: ee4b0955a40972e28dc3e76df92e9a3f1e766b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49774
 
@@ -154,33 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: flux.balalaika.click
 Port: 443
 Secret: ee6a7f849183817e1361401fb9de32bd35666c75782e62616c616c61696b612e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49757
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Empire-persia.iran.hey-gardash.info.
-Port: 1080
-Secret: 79e344818749bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: petrichor.slarkfat.icu
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49755
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 
