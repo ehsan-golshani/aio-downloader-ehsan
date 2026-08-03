@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/12 02:53
+📅 آخرین بروزرسانی: 1405/05/12 12:40
 
 ---
+
+## tasiyanc — post 6143
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+
+تست شده 🎚
+
+دانلود برنامه Wg tunnel 🕹
+
+آموزش ویدیویی ⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Jzzb 🔥Vip.npvt
+</div>
+
+## tasiyanc — post 6141
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+
+تست شده 🎚
+
+دانلود برنامه Wg tunnel 🕹
+
+آموزش ویدیویی ⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6140
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+vip 🚀🔥 @Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6139
 
@@ -168,36 +208,5 @@ Fast2⚡@Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc چنل تاسیان.conf
-</div>
-
-## tasiyanc — post 6118
-
-<div align="center"><img src="files/post_6118_tasiyanc_6118.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc چنل تاسیان.conf
-</div>
-
-## tasiyanc — post 6117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نپستر عضو جداناپذیر تاسیانه دوستان نگران نباشید میزاریم ، راه های دیگه رو هم فقط تست میکنیم ❤️
-</div>
-
-## tasiyanc — post 6115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی کانفیگ وایرگارد ✅
-
-تست شده 🎚
-
-دانلود برنامه Wg tunnel 🕹
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظرتون رو داخل کامنت بگید
 </div>
 

@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/12 02:53
+📅 آخرین بروزرسانی: 1405/05/12 12:40
 
 ---
+
+## tasiyanc — post 8463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبه به ترامپ میکروفن ندادن وگرنه میخواست بگه ایران نباید سلاح هسته ای داشته باشه وسط زمین
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8462
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویس علی دایی در مورد باخت آرژانتین 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8461
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ میخواست با بازیکنا اسپانیا قهرمانیو جشن بگیره که رئیس فیفا اومد بهش گفت مشتی بیا اینور 😂😂😂😂😂
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8460
+
+<div align="center"><img src="files/post_8460_tasiyanc_8460.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فووووری ، حمله سپاه پاسداران به ورزشگاهی که ترامپ در اون حضور داشت !
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8459
 
@@ -116,29 +150,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گگگگگگگگگگگگگگگگگگگگل
-</div>
-
-## tasiyanc — post 8443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقت اول اضافه تموم شد ، میریم پنالتیا؟
-</div>
-
-## tasiyanc — post 8440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل شد برا اسپانیا ولی داور خطا گرف
-</div>
-
-## tasiyanc — post 8439
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نود زن مسی 😂
-</div>
-
-## tasiyanc — post 8438
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قرممممممز آرژانتین ۱۰ نفره شد
 </div>
 
