@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/05/12 15:40
+📅 آخرین بروزرسانی: 1405/05/12 18:57
 
 ---
+
+## tasiyanc — post 8207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ آمریکا رفته سراغ پل های ارتباطی بوشهر - تایید نشده
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
+</div>
+
+## tasiyanc — post 8205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 حملات موشکی سپاه آغاز شد
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 سازمان ملل دیگه خیلییییییی نگران شدیم
+</div>
+
+## tasiyanc — post 8203
+
+<div align="center"><img src="files/post_8203_tasiyanc_8203.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨وضعیت آسمان ایران هم اکنون
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8202
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ارتش آمریکا یک عملیات هلی‌بورنی را بر روی یک نفتکش ایرانی انجام داد هم اکنون
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8201
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ohhh
+</div>
+
+## tasiyanc — post 8200
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨
+🚨 تمامی پرواز های ایران هم اکنون کنسل شد
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8199
 
@@ -100,75 +165,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حملات امشب بی سابقه اس
-</div>
-
-## tasiyanc — post 8185
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
-</div>
-
-## tasiyanc — post 8184
-
-<div align="center"><img src="files/post_8184_tasiyanc_8184.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨تصویر تخریب پل کهورستان در بندر خمیر
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8183
-
-<div align="center"><video src="files/post_8183_tasiyanc_8183.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8183_tasiyanc_8183.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو نفر از کارکنان ایستگاه راه آهن کشته شدن 
-💔
-
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 8174
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
-</div>
-
-## tasiyanc — post 8173
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هدف قرار گرفتن پل کهورستان بندرعباس و قطع ارتباط شهرهای جنوب با همدیگه نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده @Tasiyanc
-</div>
-
-## tasiyanc — post 8172
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
-</div>
-
-## tasiyanc — post 8171
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند پل دیگه رو داره میزنه که به بندرعباس راه دارن
-وقتی این پل ها زده بشه هیچ چیزی نمیتونه بره بندرعباس
-طبق چیزایی که داره اتفاق میوفته احتمالاً آمریکا می‌خواد نیرو زمینی پیاده کنه!
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8170
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢طبق گزارش‌ها، اینترنت تو بعضی از نقاط کشور به شدت ضعیف شده
-
-وضعیت نت شما چطوره؟
-
-@Tasiyanc✅
 </div>
 
