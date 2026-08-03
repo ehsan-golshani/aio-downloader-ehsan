@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/05/12 00:43
+📅 آخرین بروزرسانی: 1405/05/12 08:25
 
 ---
+
+## ProxyMTProto — post 48138
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Iran.mother.ir.jetish.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48137
 
@@ -172,15 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: hub.proxyvpn.site
 Port: 443
 Secret: ee7f6d6d39e09f3578784d72946dae50cc6875622e70726f787976706e2e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48118
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: For.dear-iranian-people.com.heazshddd.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 
