@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/13 00:18
+📅 آخرین بروزرسانی: 1405/05/13 01:28
 
 ---
+
+## tasiyanc — post 7917
+
+<div align="center"><img src="files/post_7917_tasiyanc_7917.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت آوردم براتون که عکساتونو اینجوری خوشگل میکنه برای پست استوری ام خوبه
+
+
+Cinematic street photography, a person standing in a dense crowd of blurred pedestrians, looking up and to the side with a curious/wondering expression, shallow depth of field with crowd heavily out of focus (bokeh), moody overcast city atmosphere, muted cold color tones (blue-grey), soft diffused lighting, shot on 85mm lens, f
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7916
 
@@ -213,17 +227,6 @@
 3- سایت : Lingua.com
 4- سایت : Grammerly.com
 5- سایت : Oysterenglish.com
-
-@Tasiyanc✅
-#Mobina
-</div>
-
-## tasiyanc — post 7878
-
-<div align="center"><img src="files/post_7878_tasiyanc_7878.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هالند اینجوری میوفته دنبال بازیکنا تصویر بالا انگار دنبال مرغ افتاده😹
 
 @Tasiyanc✅
 #Mobina

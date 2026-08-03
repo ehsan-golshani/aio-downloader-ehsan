@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/13 00:18
+📅 آخرین بروزرسانی: 1405/05/13 01:28
 
 ---
+
+## tasiyanc — post 8382
+
+<div align="center"><img src="files/post_8382_tasiyanc_8382.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با دو تا نود چنل vip نیلی افشار برید بخوابید که الان داره بابت هرکدوم ۷ میلیون پول میگیره :))) 🚫
+
+📥 مشاهده 👉
+</div>
 
 ## tasiyanc — post 8381
 
@@ -183,29 +193,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Multi Location ⚡ Fast.npvt
-</div>
-
-## tasiyanc — post 8348
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-6سرور سرعتی پرمیوم متد جدید ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

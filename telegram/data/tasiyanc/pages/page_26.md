@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/13 00:18
+📅 آخرین بروزرسانی: 1405/05/13 01:28
 
 ---
+
+## tasiyanc — post 8235
+
+<div align="center"><img src="files/post_8235_tasiyanc_8235.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توی ۲۴ ساعت اخیر، سرچِ لغو عضویت جانفدا افزایش چند هزار درصدی داشته و به سرچ اول و ترند گوگل تبدیل شده!
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8234
 
@@ -170,13 +180,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴برق ایرانشهر انگار کاملا رفته @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨دو انفجار سنگین در قشم
-
-@Tasiyanc ⭐️
 </div>
 

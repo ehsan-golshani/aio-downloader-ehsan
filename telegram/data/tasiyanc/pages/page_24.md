@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/13 00:18
+📅 آخرین بروزرسانی: 1405/05/13 01:28
 
 ---
+
+## tasiyanc — post 8289
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعدیا بیان پیوی
+</div>
 
 ## tasiyanc — post 8288
 
@@ -157,14 +163,5 @@ JAVID SHAH 👑
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8267
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرگزاری تسنیم: هم اکنون حمله موشکی سپاه به یک کشتی تجاری در تنگه هرمز
-
-
-@Tasiyanc✅
 </div>
 
