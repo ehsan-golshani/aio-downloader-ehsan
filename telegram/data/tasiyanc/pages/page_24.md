@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/13 01:28
+📅 آخرین بروزرسانی: 1405/05/13 10:14
 
 ---
+
+## tasiyanc — post 8294
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیما واسه حسن نصرالله و اسماعیل هنیه واسه هرکدوم پنج روز روبان مشکی گذاشت و عزا عمومی اعلام کرد ولی واسه سربازهای کشور خودمون حتی یک روز عزا عمومی و یک پرچم مشکی نزد!!
+حالا فهمیدید وطن فروش های واقعی کیان؟
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8293
+
+<div align="center"><img src="files/post_8293_tasiyanc_8293.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری
+
+سنتکام از آغاز موج جدید حملات به ایران برای هفتمین شب متوالی خبر داد
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آدرس ، کد ملی با ادرس
+</div>
+
+## tasiyanc — post 8290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشخصات کامل بزاریم؟
+</div>
 
 ## tasiyanc — post 8289
 
@@ -125,42 +159,6 @@ JAVID SHAH 👑
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨💪 حملات بی سابقه سپاه به مواضع کرد ها در سلیمانیه ، دلیلش چی می‌تونه باشه 🤔
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8272
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش از چهار انفجار وحشتناک در بندرعباس
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8271
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 حملات سپاه به اقلیم کردستان عراق
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8270
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 انفجار مهیب در قشم
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8268
-
-<div align="center"><img src="files/post_8268_tasiyanc_8268.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 وضعیت راه آهن بندرعباس پس از حمله ارتش آمریکا
-
 
 @Tasiyanc ✅
 </div>

@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/13 01:28
+📅 آخرین بروزرسانی: 1405/05/13 10:14
 
 ---
+
+## tasiyanc — post 8167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هدف قرار گرفتن پل کهورستان بندرعباس و قطع ارتباط شهرهای جنوب با همدیگه
+نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️حمله به فرودگاه ایرانشهر در سیستان و بلوچستان @TasiyanProxy
+</div>
+
+## tasiyanc — post 8163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بندرعباس عزیز زیر حملات شدید آمریکا 💔
+</div>
+
+## tasiyanc — post 8161
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاید باورتون نشه ولی تو این سه تا عکس هیچ اثری از فتوشاپ نیست🐰؛
+ابرهای نادر استراتوسفر قطبی - ایسلند🇮🇸
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8155
 
@@ -192,47 +222,5 @@
 🏟 استادیوم (MetLife Stadium )نیویورک نیوجرسی
 
 @Tasiyanc ⭐️ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8125
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کامبککککک میزنه آرژانتین
-</div>
-
-## tasiyanc — post 8123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آرژانتین زددد
-</div>
-
-## tasiyanc — post 8122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انگلیس زددددد
 </div>
 

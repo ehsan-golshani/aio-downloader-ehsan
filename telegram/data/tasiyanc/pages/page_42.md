@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/13 01:28
+📅 آخرین بروزرسانی: 1405/05/13 10:14
 
 ---
+
+## tasiyanc — post 7633
+
+<div align="center"><video src="files/post_7633_tasiyanc_7633.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7633_tasiyanc_7633.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ فووری - خبرنگار کاخ سفید مرضیه حسینی
+
+خلبانی که تو ایران افتاده بود گفته ایران به پیشرفته ترین تکنولوژی پهپادی در جهان رسیده که فقط آمریکا و چین و روسیه دارنش و با همین تکنولوژی باعث سقوطش شدن!!!
+
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7632
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهنمو ضرر ، رو برد کیپ ورد بستم
+</div>
+
+## tasiyanc — post 7630
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرکت ها و سایتهای معتبر جهت اسپانسری (همکاری) و حمایت از چنل با آیدی پشتیبانی در ارتباط باشید
+@StarTasiyan
+</div>
+
+## tasiyanc — post 7629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همتون اینجکتور & نت مود دانلود کردید بزارم کانفیگاشو دوباره؟
+</div>
 
 ## tasiyanc — post 7627
 
@@ -131,31 +164,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
  
 ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7602
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عرزشی لف بده تو چنل تاسیان نباشید
-</div>
-
-## tasiyanc — post 7601
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Saiedmusics
-برم رو مادرش یا نه؟ آیدیشو گذاشتم یه اکیپ دارم دارن کل پیامای تلگرامشو درمیارن به کل چنل ناموسی داده ببینم چیکار میکنین
-</div>
-
-## tasiyanc — post 7600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عرزشی لف بده😂
-</div>
-
-## tasiyanc — post 7590
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مادران داغ دیده ی دی ماه شما یه فرزند از دست دادید ولی میلیون ها فرزند بدست آوردید ، هرچی از غم و داغ دل شما بگیم کم گفتیم ...
-تا ابد اسم فرزندان شما هك خواهد ماند روی قلب تک تک ایرانیان وطن پرست
 </div>
 

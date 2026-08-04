@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/13 01:28
+📅 آخرین بروزرسانی: 1405/05/13 10:14
 
 ---
+
+## tasiyanc — post 7791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️رسما توافق با آمریکا سرش گرد شد
+</div>
+
+## tasiyanc — post 7790
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ترامپ : سران ایران یه مشت آدم کثیفن. اصلاً ازشون خوشم نمیاد. کلی وقتمون رو باهاشون هدر دادیم. بی‌عرضه و ناتوانن. بهتره فقط کار خودمون رو انجام بدیم.
+اونا می‌خوان رهبر آمریکا، یعنی من رو ترور کنن. سال‌هاست که من نفر اول لیستشونم.
+باید سرطان رو از همون اول ریشه‌کن کرد. من این‌طوری به قضیه نگاه می‌کنم.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه اوه ترامپ عصبانی شد
+</div>
+
+## tasiyanc — post 7788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل با اجازتون عوض شد ❤️
+</div>
 
 ## tasiyanc — post 7785
 
@@ -146,35 +173,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فووووووری تحریم های فروش نفت ایران دوباره برگشت
-</div>
-
-## tasiyanc — post 7744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوریییییی آکسیوس
-آمریکا امشب حملات گسترده ای به ایران خواهد داشت در جواب حملات به کشتی های تجاری در تنگه هرمز
-</div>
-
-## tasiyanc — post 7742
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند تا کانفیگ نت مود & وایرگارد مخصوص گیم & اینجکتور داخل ربات گذاشتم بردارید ❤️
-
-👈دریافت کانفیگ ها 💘
-
-دوستانی ک از گروه بن شدن با پشتیبانی در ارتباط باشن
-@StarTasiyan
-</div>
-
-## tasiyanc — post 7733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حرومزاده ها
-</div>
-
-## tasiyanc — post 7732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه پاس به رونالدو ندادید دیشب
 </div>
 
