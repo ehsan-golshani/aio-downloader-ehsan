@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/13 22:31
+📅 آخرین بروزرسانی: 1405/05/13 23:53
 
 ---
+
+## tasiyanc — post 8916
+
+<div align="center"><img src="files/post_8916_tasiyanc_8916.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 مرندی عضو تیم مذاکره : همه میدونن این یه خبر فیکه
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8915
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 تنها دلیل حمله نکردن ترامپ لو رفتن نقشه و طرح حمله از طرف رسانه ها بود
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8914
 
@@ -228,34 +253,6 @@ g10
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترامپ : میدونید موشک‌های ج‌ا رو چطوری رهگیری میکنیم ؟
 بینگ،بینگ،بینگ بینگ ،بینگ 😂
-
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8891
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ لوکیشن ترکیه و اسپانیا 💥
-
-دانلود برای اندروید
-
-دانلود برای آیفون 
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه
-
- @TASIYANC ✨
-</div>
-
-## tasiyanc — post 8890
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ایالات متحده آمریکا از تمامی شهروندانش خواسته هرچه سریع بدون وقفه خاورمیانه رو ترک کنن
 
 🔱 @TASIYANC
 </div>

@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/13 22:31
+📅 آخرین بروزرسانی: 1405/05/13 23:53
 
 ---
+
+## tasiyanc — post 8796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تکمیلی 
+🔴12 تن از اعضای حشدالشعبی شب گذشته در جریان حمله‌ای مشترک آمریکا و عربستان سعودی در عراق کشته شدن 
+⭐ @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8795
+
+<div align="center"><video src="files/post_8795_tasiyanc_8795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8795_tasiyanc_8795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارهای غیرممکنی که بروسلی تو عالم واقعیت انجام میداد 
+😞
+
+
+⭐ @Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 8794
 
@@ -190,35 +213,5 @@
 او در جریان فرایند انتقال به محل اعدام دچار سکته قلبی شده بود.
 
 @TasiyanProxy ⭐️| رسانه مردمی
-</div>
-
-## tasiyanc — post 8771
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
-</div>
-
-## tasiyanc — post 8770
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
 </div>
 

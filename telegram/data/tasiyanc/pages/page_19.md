@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/13 22:31
+📅 آخرین بروزرسانی: 1405/05/13 23:53
 
 ---
+
+## tasiyanc — post 8457
+
+<div align="center"><img src="files/post_8457_tasiyanc_8457.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+​«رونالدو و مسی ؛ دو جادوگری که به رویای بچگی‌های ما رنگ واقعیت زدند. آخرین رقص آن‌ها در جام جهانی، پایان یک عصر طلایی بود؛ عصری که دیگر تکرار نخواهد شد.»
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8456
+
+<div align="center"><img src="files/post_8456_tasiyanc_8456.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حضور پرزیدنت ترامپ با اینفانتینو برای اهدای جام
+
+@TASIYANC⭐️
+</div>
 
 ## tasiyanc — post 8455
 
@@ -135,17 +155,5 @@
 🚨گزارش انفجار از اصفهان ، قم ، اراک
 
 تایید یا تکذیب نمیشه
-</div>
-
-## tasiyanc — post 8435
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مقابل خدمات رایگانی ک میدم انتظار حمایت دارم ، چون منم می‌تونستم مثل خیلیا فروش بزارم
-</div>
-
-## tasiyanc — post 8434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبح یه اوپن VPN زدم هنوزم کار می‌کنه 😂 کاش همه چنلا مثل ما بودن به ناموسم قسم جوین میزدم براش
 </div>
 

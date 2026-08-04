@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/13 22:31
+📅 آخرین بروزرسانی: 1405/05/13 23:53
 
 ---
+
+## tasiyanc — post 8747
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به وقت اذان صبح 💔
+</div>
+
+## tasiyanc — post 8745
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر هارو دنبال کنید از اینجا
+@TasiyanProxy
+</div>
 
 ## tasiyanc — post 8744
 
@@ -195,29 +208,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بنظرم زیباترین هدیه 5/5/5 به من شمایید ک دارمتون 💘
-</div>
-
-## tasiyanc — post 8718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وارد 5/5/5 شدیم ، برنامتون چیه؟
-</div>
-
-## tasiyanc — post 8717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ آخرین نسخه ی V2rayNG اندروید
-
-نسخه 2.2.6
-
-● تغییرات مهم:
-• جایگزینی allowInsecure منسوخ با PinnedPeerCertSha256
-• حذف Tcping ping و بهبود تست پینگ
-• آپدیت هسته ایکس ری
-• رفع برخی باگ ها
-
-🔗 لینک دانلود از گیتهاب
-
-@TASIYANC ⭐️
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/05/13 22:31
+📅 آخرین بروزرسانی: 1405/05/13 23:53
 
 ---
+
+## tasiyanc — post 6028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم لیمیت خوردم
+</div>
+
+## tasiyanc — post 6027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم اکانتم پرید
+</div>
 
 ## tasiyanc — post 6026
 
@@ -137,22 +149,5 @@ VİP 🔥.npvt
 
 🔴 آرسنال ❤️
 🇫🇷 پاریس 🔥
-</div>
-
-## tasiyanc — post 6003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هردو کانفیگ اوپن وصله برید حالشو ببرید
-</div>
-
-## tasiyanc — post 6002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده 🚀
-
-
-@Tasiyanc ✅
 </div>
 

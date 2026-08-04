@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/13 22:31
+📅 آخرین بروزرسانی: 1405/05/13 23:53
 
 ---
+
+## tasiyanc — post 8962
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴مرندی از تیم مذاکره کننده:ایران هیچ قصدی برای مذاکره با رژیم ترامپ ندارد. هرگونه اقدام تجاوزکارانه با پاسخ کوبنده و قاطع جمهوری اسلامی مواجه خواهد شد
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8961
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دردناک است ، زندگی در مملکتی که مردمش ؛ تاوان نفهمیِ عده ای را میدهند که حاضر نیستند حقیقت را ببینند
+
+پروکسی | پروکسی | پروکسی
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 8960
 
@@ -268,21 +288,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 راستش عربستان سعودی هم نمی‌خواست این اتفاق بیفتد. آن‌ها فکر می‌کردند که یک توافق در شرف وقوع است.
 👹 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8939
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 3 August, روز جهانیِ عشق اوله 
-😞
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8938
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت نتتون بگید؟
 </div>
 

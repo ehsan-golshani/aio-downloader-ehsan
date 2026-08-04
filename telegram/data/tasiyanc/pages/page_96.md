@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/13 22:31
+📅 آخرین بروزرسانی: 1405/05/13 23:53
 
 ---
+
+## tasiyanc — post 5948
+
+<div align="center"><img src="files/post_5948_tasiyanc_5948.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب بعدی تو راهه
+</div>
+
+## tasiyanc — post 5947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب بعدی تو راهه
+</div>
 
 ## tasiyanc — post 5946
 
@@ -159,17 +173,5 @@ Wifi نت خانگی⚡.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برم ۲۰۰ تا ری اکشن شد بیام
-</div>
-
-## tasiyanc — post 5924
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باید بگیییییم؟😭
 </div>
 
