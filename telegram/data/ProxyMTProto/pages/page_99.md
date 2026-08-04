@@ -1,8 +1,98 @@
 # آرشیو کانال ProxyMTProto - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/05/13 13:07
+📅 آخرین بروزرسانی: 1405/05/13 18:11
 
 ---
+
+## ProxyMTProto — post 47829
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: surf.flowaccess.site
+Port: 8443
+Secret: eeea26c2508652bcbd35ac3116045eb939737572662e666c6f776163636573732e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47828
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.19.134
+Port: 443
+Secret: ee17867c11b83c2c36a3de356743602b2c617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47827
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47826
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: durov.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47825
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wave.flowaccess.site
+Port: 8443
+Secret: eeea2f80ea6628006a3db2a8678d65bd07776176652e666c6f776163636573732e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47824
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: starsvpn.obhod.fun
+Port: 6443
+Secret: 76706e76706e76706e76706e76706e76
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47823
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: spain.nolags.pw
+Port: 443
+Secret: ddda11050e6e98fb151d0094b549b0344a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47822
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: jet.quickrouteapp.xyz
+Port: 8443
+Secret: eeedca657d767c71c26de484e74182c3076a65742e717569636b726f7574656170702e78797a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47821
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47820
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 89.125.49.250
+Port: 443
+Secret: eeb40eda3c7b6561f0ef22eb54b49eacf477622e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47819
 
@@ -91,96 +181,6 @@ Secret: dd8ee55939bfea58827fd6f140bca62a63
 Server: dash.flowstreamhub.site
 Port: 8443
 Secret: eeef254d73d0f3c934acf304ca0e6b9cc2646173682e666c6f7773747265616d6875622e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47809
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ytrw134-4.mtproxygram.lol
-Port: 853
-Secret: ee3b5bcab52337c98260146659a677d48862726f777365722e79616e6465782e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47808
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: zoom.flowaccess.site
-Port: 8443
-Secret: ee47a48cbe73dd91aa66fb6f8961c5e25a7a6f6f6d2e666c6f776163636573732e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47807
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: prime.nolags.pw
-Port: 443
-Secret: ddb01da288baa59189c1db3c7bb1490895
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47806
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47805
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: swift.quickrouteapp.xyz
-Port: 8443
-Secret: ee68a56bf93ff9c02daa862d3830de722773776966742e717569636b726f7574656170702e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 89.169.173.127
-Port: 443
-Secret: ee0f8e5e42ea0dd0f9639d851090e69760617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47803
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47802
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 89.169.173.127
-Port: 443
-Secret: ee0f8e5e42ea0dd0f9639d851090e69760617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47801
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: euufo1o5.helper.website
-Port: 443
-Secret: eebb62e9f3ae0f40aa25a70c150f6d68d3636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47800
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rapid.flowstreamhub.site
-Port: 8443
-Secret: ee10a576008fd642b6e0427f9b2b22447f72617069642e666c6f7773747265616d6875622e73697465
 @ProxyMTProto
 </div>
 
