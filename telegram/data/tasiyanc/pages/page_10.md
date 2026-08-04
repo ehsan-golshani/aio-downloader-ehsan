@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/13 13:09
+📅 آخرین بروزرسانی: 1405/05/13 15:27
 
 ---
+
+## tasiyanc — post 8730
+
+<div align="center"><video src="files/post_8730_tasiyanc_8730.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8730_tasiyanc_8730.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معمر قذافی با این سخنرانی فرمان حذف خود را امضاء کرد !
+
+پی‌نوشت : کافیه به خدماتی ک برای لیبی انجام داده بود نگاه کنید
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8729
+
+<div align="center"><img src="files/post_8729_tasiyanc_8729.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 کشورایی که سالانه بیشترین میانگین توریست رو دارن
+
+@TASIYANC 💠
+</div>
 
 ## tasiyanc — post 8728
 
@@ -202,32 +225,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خار شباهتو ...
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8703
-
-<div align="center"><video src="files/post_8703_tasiyanc_8703.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8703_tasiyanc_8703.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وطن‌پرستی؛ شفا نمی‌دهد ، شرافت میدهد 🏠
-
-📍آرامگاه کوروش بزرگ 💪
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8702
-
-<div align="center"><video src="files/post_8702_tasiyanc_8702.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8702_tasiyanc_8702.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تلاش های بی بی نتانیاهو برای جلوگیری از توافق 😂 :
 
 @TASIYANC ✅
 </div>

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/13 13:09
+📅 آخرین بروزرسانی: 1405/05/13 15:27
 
 ---
+
+## tasiyanc — post 7712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز July 7، روز جهانی شکلاته 🍫 🍫
+</div>
+
+## tasiyanc — post 7709
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ظهرتون بخیر 🦦
+</div>
 
 ## tasiyanc — post 7708
 
@@ -186,33 +198,5 @@ Password @Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سن دریافت گواهینامه رانندگی از ۱۸ سال به ۱۶ سال کاهش پیدا کرد.
-</div>
-
-## tasiyanc — post 7685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP 🎯 @Tasiyanc.nm
-</div>
-
-## tasiyanc — post 7682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-3سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید ⛓
-آموزش اتصال روی ویندوز ⛓
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/13 13:09
+📅 آخرین بروزرسانی: 1405/05/13 15:27
 
 ---
+
+## tasiyanc — post 8467
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش انفجار در تبریز تایید یا تکذیب نمیشه @TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8466
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 گزارش اعضا : انفجار در گردنه ی بانه
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8465
 
@@ -142,17 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گل شد ولی افساید
-</div>
-
-## tasiyanc — post 8447
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آرژانتین کامبک میزنه یا ن؟
-</div>
-
-## tasiyanc — post 8446
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسپانیااااااااااا میزنه
 </div>
 
