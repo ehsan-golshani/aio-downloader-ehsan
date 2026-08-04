@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 101
 
-📅 آخرین بروزرسانی: 1405/05/13 20:25
+📅 آخرین بروزرسانی: 1405/05/13 22:29
 
 ---
+
+## ProxyMTProto — post 47797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: comet.quickrouteapp.xyz
+Port: 8443
+Secret: ee6af7e9e830f53cc4f18a0b2cff3475a6636f6d65742e717569636b726f7574656170702e78797a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 161.97.167.251
+Port: 443
+Secret: eec14b841016ce9b05f48e9ed7f2d9de9e676f6f676c65617069732e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tele.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47794
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 84.252.139.115
+Port: 443
+Secret: eefea62269225a14fac3c9e8c7ba6205fe617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47793
 
@@ -145,42 +181,6 @@ Secret: dd723f44bd19ff50a431878c6b2d0b46a0
 Server: eboybey.flowaccess.site
 Port: 8443
 Secret: ee1a3341522f265448a11cbb608f42166f65626f796265792e666c6f776163636573732e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47776
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp8.sosproxy.space
-Port: 443
-Secret: eee9dab8aa5e5ede020088b669a17b907864726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47775
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dot.vdl.lat
-Port: 853
-Secret: ee9963ec50cf89d852bb1e084a44b196e4646f742e76646c2e6c6174
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 93.185.167.212
-Port: 443
-Secret: ee1c88677acf461e09e68f4ff0cef5724a617669746f2e7275
 @ProxyMTProto
 </div>
 

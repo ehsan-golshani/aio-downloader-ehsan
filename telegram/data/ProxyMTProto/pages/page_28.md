@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/13 20:25
+📅 آخرین بروزرسانی: 1405/05/13 22:29
 
 ---
+
+## ProxyMTProto — post 49265
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cloud.neoqua.pro
+Port: 443
+Secret: ee17a8c39b61cada586d48df4c790bc178636c6f75642e6e656f7175612e70726f
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Oh.Oh.AjaB_Sorati_Dare
+Port: 443
+Secret: BeZaN_RoooSh_Connect
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49263
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: best-proxy.ink
+Port: 443
+Secret: ee3646eba8c65e0e1d4804a7f9caa6531d626573742d70726f78792e696e6b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49262
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: super.sub-ploter.co.uk
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49261
 
@@ -145,42 +181,6 @@ Secret: ee5ab264a139bb00bd82c48212db75f9b33263613136342e7a69706c696e652e6363
 Server: 103.161.35.23
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49245
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49243
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: medblock.fit
-Port: 443
-Secret: ee42c68d1f568a3ce918f926dd7d1283c66d6564626c6f636b2e666974
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49242
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 6775
-Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

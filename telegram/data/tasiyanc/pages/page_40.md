@@ -1,8 +1,81 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/13 15:27
+📅 آخرین بروزرسانی: 1405/05/13 22:31
 
 ---
+
+## tasiyanc — post 7722
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مصر گل دوم رو زد
+</div>
+
+## tasiyanc — post 7721
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+7 سرور سرعتی پرمیوم متد جدید سرور ایتالیا ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7720
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دروازه بان مصرو 😐😂
+</div>
+
+## tasiyanc — post 7719
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مصر یک صفر جلوئه
+</div>
+
+## tasiyanc — post 7718
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقایقی بعد آغاز بازی , چند چند میشه؟
+
+Egypt 🇪🇬 🇦🇷 Argentina
+</div>
+
+## tasiyanc — post 7717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP 🎯 @Tasiyanc.nm
+</div>
+
+## tasiyanc — post 7716
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه وضع ریکشن زدنه
+</div>
+
+## tasiyanc — post 7713
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال  ⛓
+</div>
 
 ## tasiyanc — post 7712
 
@@ -95,108 +168,5 @@ CR7 GOAT Forever 🇵🇹❤️‍🔥
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چه خبرا خوبید؟
-</div>
-
-## tasiyanc — post 7697
-
-<div align="center"><video src="files/post_7697_tasiyanc_7697.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7697_tasiyanc_7697.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-11 سرور سرعتی پرمیوم متد جدید ⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 اینستاگرام 
-📸 جمینای 
-🤖
-
- 
-Password @Tasiyanc 
-💘
-
-
-اتصال امن برای همه 
-🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7696
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc _ SuperFast⚡.npvt
-</div>
-
-## tasiyanc — post 7693
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-4 سرور سرعتی حجم و کاربر نامحدود ⚡️
-
-تست شده روی همه نت ها
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال به اینجکتور ✨
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
-</div>
-
-## tasiyanc — post 7692
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ های وایرگارد آپدیت شد ، با سرعت مناسب گیم و اینستاگرام 🔥🚀 فول سرعتی مناسب تمام اپراتورها 👇 دریافت کانفیگ های وایرگارد 🔥
-</div>
-
-## tasiyanc — post 7691
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کارلو آنجلوتی رید برزیل و حذف کرد
-</div>
-
-## tasiyanc — post 7689
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گللللللللللل برا نروژ 🔥 هالللللند
-</div>
-
-## tasiyanc — post 7688
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ های وایرگارد آپدیت شد ، با سرعت مناسب گیم و اینستاگرام 🔥🚀
-
-فول سرعتی مناسب تمام اپراتورها
-
-
-👇 دریافت کانفیگ های وایرگارد 🔥
-</div>
-
-## tasiyanc — post 7686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سن دریافت گواهینامه رانندگی از ۱۸ سال به ۱۶ سال کاهش پیدا کرد.
 </div>
 
