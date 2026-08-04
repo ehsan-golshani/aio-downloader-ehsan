@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/13 10:14
+📅 آخرین بروزرسانی: 1405/05/13 13:09
 
 ---
+
+## tasiyanc — post 6560
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وزیر دفاع اسراییل کاتز:ارتش اسرائیل آماده حمله‌ای بسیار قوی به ایران است
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6559
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 فوووری بعد اعلام رسمی ترامپ که‌گفت امشب جنگ‌رو شروع میکنیم و به ایران حمله میکنیم  احتمال قطع شدن نت بشدددتتت بالاست تصمیم‌گرفتیم براتون کانفینگ اختصاصی بزاریم داخل بات‌مخصوص نت ملی که یوقت  قطع نشید 
+🚀 تست‌شده مخصوص نت‌ملیهههه نیاز داشتید برید برداریدد…
+</div>
+
+## tasiyanc — post 6556
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 فوووری بعد اعلام رسمی ترامپ که‌گفت امشب جنگ‌رو شروع میکنیم و به ایران حمله میکنیم  احتمال قطع شدن نت بشدددتتت بالاست
+
+تصمیم‌گرفتیم براتون کانفینگ اختصاصی بزاریم داخل بات‌مخصوص نت ملی که یوقت  قطع نشید 
+🚀
+
+تست‌شده مخصوص نت‌ملیهههه نیاز داشتید برید برداریدد حتما
+❤
+
+دریافت کانفینگ اختصاصی
+دریافت کانفینگ اختصاصی
+</div>
 
 ## tasiyanc — post 6555
 
@@ -191,33 +220,5 @@ https://t.me/TasiyanProxy
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴پرزیدنت ترامپ: من نزدیک به دستور دادن حملات جدید به نیروگاه‌ها و پل‌های ایرانی هستم
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-3سرور سرعتی مناسب همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۸۰۰ گیگ ساب گذاشته ادمینا ، پین شد گپ
-</div>
-
-## tasiyanc — post 6535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لینک گپ تاسیان ❤️‍🔥 https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 
