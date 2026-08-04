@@ -1,8 +1,72 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/13 23:53
+📅 آخرین بروزرسانی: 1405/05/14 01:18
 
 ---
+
+## tasiyanc — post 8297
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سپاه خورموج و اهواز مورد هدف موشکی.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8296
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 انفجار در اهواز
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8295
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 هم اکنون آمریکا به بندرعباس،قشم،بوشهر و سیریک حمله کرد و صدای چندین انفجار تو این مناطق شنیده شد.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8294
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیما واسه حسن نصرالله و اسماعیل هنیه واسه هرکدوم پنج روز روبان مشکی گذاشت و عزا عمومی اعلام کرد ولی واسه سربازهای کشور خودمون حتی یک روز عزا عمومی و یک پرچم مشکی نزد!!
+حالا فهمیدید وطن فروش های واقعی کیان؟
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8293
+
+<div align="center"><img src="files/post_8293_tasiyanc_8293.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری
+
+سنتکام از آغاز موج جدید حملات به ایران برای هفتمین شب متوالی خبر داد
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آدرس ، کد ملی با ادرس
+</div>
+
+## tasiyanc — post 8290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشخصات کامل بزاریم؟
+</div>
+
+## tasiyanc — post 8289
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعدیا بیان پیوی
+</div>
 
 ## tasiyanc — post 8288
 
@@ -95,75 +159,6 @@ JAVID SHAH 👑
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بریم به کی بگیم این ایرانِ ۵۰ سال پیش ما بود !
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8275
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ انفجار در یگان امداد سنندج ، تایید / تکذیب نمیشه
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8274
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ انفجار شدید در بوشهر
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8273
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 حملات بی سابقه سپاه به مواضع کرد ها در سلیمانیه ، دلیلش چی می‌تونه باشه 🤔
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8272
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش از چهار انفجار وحشتناک در بندرعباس
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8271
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 حملات سپاه به اقلیم کردستان عراق
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8270
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 انفجار مهیب در قشم
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8268
-
-<div align="center"><img src="files/post_8268_tasiyanc_8268.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 وضعیت راه آهن بندرعباس پس از حمله ارتش آمریکا
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8267
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرگزاری تسنیم: هم اکنون حمله موشکی سپاه به یک کشتی تجاری در تنگه هرمز
-
 
 @Tasiyanc✅
 </div>

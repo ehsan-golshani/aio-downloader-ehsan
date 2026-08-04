@@ -1,8 +1,99 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/13 23:53
+📅 آخرین بروزرسانی: 1405/05/14 01:18
 
 ---
+
+## tasiyanc — post 5750
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
+
+
+
+🚀 @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 5748
+
+<div align="center"><img src="files/post_5748_tasiyanc_5748.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+براتون یه فایل نپسترنت با ۶ تا کانفیگ درست کردیم ( عکس تستو ببینید برگاتون بریزه ) ❤️‍🔥
+
+دریافت کانفیگ نپسترنت ( رایگان )
+</div>
+
+## tasiyanc — post 5747
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5746
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام این شات مال منه، من با همراه وصلم، منم مث شماها نتم قط و وصل میشه ، ولی خب دس نمیزنم تا پر شه، چن بار هواپیما بزنید باز کنید ، تاسیان چندین کانفیگ از هر نامی میزاره، مثلا اینکه نوشته تاسیان پرو چار تا میزاره، یکیشو فقد امتحان نکنید ، یکی یکی بزارید ولی هر بار که انتخاب کردید یه بار هواپیما بزنید بعد منتظر باشید ببینید وصل میشه یا نه، اینم بگم اکثرن همراه اولیا فعال شدن، ولی غمتون نباشه، مال همه وصل میشه ایشالا ، من خودم از اینکه نت پرو نخریدم و با اینا وصل شدم حالم خوبه،درسته که زیاد قط میشه اما بازم برکت بیفته توش و هممون از این حق لذت ببریم انشالا☺️🤲
+</div>
+
+## tasiyanc — post 5745
+
+<div align="center"><img src="files/post_5745_tasiyanc_5745.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Crocodile 🐊 VIP.npvt
+</div>
+
+## tasiyanc — post 5744
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده روی همراه اول - رایتل ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5743
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Box 🌟 MCI - WiFi
+
+vless://0dc22208-cea4-4423-b3c3-a36957e23233@91.225.217.26:443?security=reality&encryption=none&pbk=Zd5BqaW-kyJqZANUH2cIARr466QZw09pNngYjsEK1w8&headerType=none&fp=chrome&type=tcp&sni=yahoo.com&sid=30fa#%40Tasiyanc%20%E2%80%A2%20MCI
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5742
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حجم پیام زیاده ، عشقید لذت ببرید ❤️
+</div>
 
 ## tasiyanc — post 5741
 
@@ -98,83 +189,5 @@ trojan://7aXwJPnpAJ@yespaintstudio.rav-kraski.ru:50824?security=tls&insecure=0&h
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5728
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🏳 vip
-
-trojan://2238e2f3-1a01-485e-8c22-24b65764c68b@172.64.152.23:443?path=%2F51.91.253.83&security=tls&insecure=0&host=gzjx.dpdns.org&type=ws&allowInsecure=0&sni=gzjx.dpdns.org#%40Tasiyanc%20USS%E2%9A%A1
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5727
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده همه اپراتور ها ⛈ 
-
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5726
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده همه اپراتور ها ⛈ 
-
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5724
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گپ تاسیان - خودمم هستم بیاید
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 5723
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡Test سرعتی⚡.npvt
-</div>
-
-## tasiyanc — post 5722
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده ⛈ 
-
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5721
-
-<div align="center"><img src="files/post_5721_tasiyanc_5721.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box & V2Ray 📶 vless://40bf709c-4353-4552-ba26-406d2bf7821d@fr.gryaz-vpn.com:20567?security=reality&encryption=none&pbk=1WOtQYIQ-3sJtbrhSA1LW6gAnO-wG0Z5aCnlL_zoiXQ&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=cloudflare.com&sid=b82d7208fe…
-</div>
-
-## tasiyanc — post 5720
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box & V2Ray 📶
-vless://40bf709c-4353-4552-ba26-406d2bf7821d@fr.gryaz-vpn.com:20567?security=reality&encryption=none&pbk=1WOtQYIQ-3sJtbrhSA1LW6gAnO-wG0Z5aCnlL_zoiXQ&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=cloudflare.com&sid=b82d7208fe23#paris%20%40Tasiyanc
-
-vless://20ecee51-1044-4be3-89a9-f3c700425ead@45.67.230.230:443?security=reality&encryption=none&pbk=qYg2nPdLpBYWM7-9leTq43SoqAc5nT90gFH-AHAMShY&headerType=none&fp=chrome&type=tcp&sni=yahoo.com&sid=abb1#Russia%20%40Tasiyanc
-
-@Tasiyanc ✅
 </div>
 
