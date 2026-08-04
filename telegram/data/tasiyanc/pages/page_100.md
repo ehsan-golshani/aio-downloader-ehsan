@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/14 01:18
+📅 آخرین بروزرسانی: 1405/05/14 02:25
 
 ---
+
+## tasiyanc — post 5863
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+
+گروه تاسیان
+</div>
 
 ## tasiyanc — post 5862
 
@@ -135,13 +143,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هرچی فرستادی وصلع
-</div>
-
-## tasiyanc — post 5822
-
-<div align="center"><img src="files/post_5822_tasiyanc_5822.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-34k ⚡ Fast 🔥.npvt
 </div>
 

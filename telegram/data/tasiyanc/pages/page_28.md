@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/14 01:18
+📅 آخرین بروزرسانی: 1405/05/14 02:25
 
 ---
+
+## tasiyanc — post 8223
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وطن عشق من🇮🇷
+هموطن جان من💔
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8222
 
@@ -165,11 +174,5 @@
 🚨 ارتش آمریکا یک عملیات هلی‌بورنی را بر روی یک نفتکش ایرانی انجام داد هم اکنون
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ohhh
 </div>
 

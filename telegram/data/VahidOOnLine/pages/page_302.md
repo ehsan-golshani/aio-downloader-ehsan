@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 302
 
-📅 آخرین بروزرسانی: 1405/05/14 01:15
+📅 آخرین بروزرسانی: 1405/05/14 02:23
 
 ---
+
+## VahidOOnLine — post 246665
+
+<div align="center"><video src="files/post_246665_VahidOOnLine_246665.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246665_VahidOOnLine_246665.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیلی مهدوی، مادر سیاوش محمودی، معترض کشته‌شده در خیزش زن، زندگی، آزادی، با انتشار ویدیویی نشان می‌دهد که در کنار مزار جاویدنام محمدمهدی سیف‌الله‌پور همراه با پدر و مادر او و پدر جاویدنام سپهر شکری، اعلام می‌‌کنند در کنار هم دادخواه فرزندانشان خواهند بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246664
 
@@ -314,22 +327,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران‌اینترنشنال، خیابان‌های کثیف و پر از زباله را در یکی از شهرهای ایران پس از برگزاری تجمع شبانه حکومتی نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246631
-
-<div align="center"><img src="files/post_246631_VahidOOnLine_246631.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از منابع نظامی نوشت که تنگه هرمز همچنان بسته است و نیروی دریایی سپاه نیز تا اطلاع ثانوی هیچ‌گونه مجوزی برای عبور شناورها صادر نمی‌کند.
-
-نیروی دریایی سپاه پاسداران، شنبه، به‌دلیل آنچه «حملات اسرائیل به جنوب لبنان و نقض تفاهم‌نامه میان جمهوری اسلامی و آمریکا» خواند، تنگه هرمز را بسته است.
-
-این در حالی است که سنتکام، فرماندهی مرکزی ایالات متحده اعلام کرده بود حکومت ایران کنترل تنگه هرمز را در اختیار ندارد.
-iranintl
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

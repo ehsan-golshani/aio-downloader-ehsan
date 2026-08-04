@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/14 01:18
+📅 آخرین بروزرسانی: 1405/05/14 02:25
 
 ---
+
+## tasiyanc — post 8996
+
+<div align="center"><video src="files/post_8996_tasiyanc_8996.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8996_tasiyanc_8996.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 یک سایت اما دسترسی به ده‌ها هوش مصنوعی!
+
+
+🟠اگر نمی‌خواهی برای هر مدل هوش مصنوعی یک سایت جدا باز کنی، Poe.com دقیقاً همان چیزی است که دنبالش هستی.
+
+در Poe می‌توانی با مدل‌هایی مثل ChatGPT، Claude، Gemini، DeepSeek، Grok، Llama و ده‌ها مدل دیگر، همه در یک پلتفرم، گفتگو کنی و بهترین پاسخ را بگیری.
+
+🪩 https://Poe.com
+
+
+
+⚡️@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8995
 
@@ -46,8 +68,6 @@
 
 ## tasiyanc — post 8993
 
-<div align="center"><a href="files/post_8993_𝗡𝗲𝘄_𝗙𝗮𝘀𝘁_𝗠𝘂𝗹𝘁𝗶_𝗹𝗼𝗰𝗮𝘁𝗶𝗼𝗻_⚡️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 𝗡𝗲𝘄_𝗙𝗮𝘀𝘁_𝗠𝘂𝗹𝘁𝗶_𝗹𝗼𝗰𝗮𝘁𝗶𝗼𝗻_⚡️.npvt</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تقدیم به مردم سرزمینم 
 🖤
@@ -75,8 +95,6 @@
 <div align="center"><video src="files/post_8992_tasiyanc_8992.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_8992_tasiyanc_8992.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_8992_app (7).apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app (7).apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚠️ #بازی_پولساز 
@@ -305,15 +323,5 @@ vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم…
-</div>
-
-## tasiyanc — post 8973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد
-
-زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم 😂
-
-@Tasiyanc ⭐️
 </div>
 

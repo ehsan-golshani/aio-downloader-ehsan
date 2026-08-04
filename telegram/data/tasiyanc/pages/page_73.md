@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/05/14 01:18
+📅 آخرین بروزرسانی: 1405/05/14 02:25
 
 ---
+
+## tasiyanc — post 6561
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✊🔴ترامپ : ما واقعاً به توافق نزدیک بودیم - اما آنها همچنان ما را به بازی می‌گیرند.
+آنها مدام ما را احمق جلوه می‌دهند، چون می‌دانید چیست؟ آنها با چند رئیس جمهور بسیار احمق معامله کردن
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6560
 
@@ -213,12 +221,5 @@ https://t.me/TasiyanProxy
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو
 پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
-</div>
-
-## tasiyanc — post 6539
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرزیدنت ترامپ: من نزدیک به دستور دادن حملات جدید به نیروگاه‌ها و پل‌های ایرانی هستم
-@Tasiyanc ✅
 </div>
 

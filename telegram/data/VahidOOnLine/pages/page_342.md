@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 342
 
-📅 آخرین بروزرسانی: 1405/05/14 01:15
+📅 آخرین بروزرسانی: 1405/05/14 02:23
 
 ---
+
+## VahidOOnLine — post 245473
+
+<div align="center"><video src="files/post_245473_VahidOOnLine_245473.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_245473_VahidOOnLine_245473.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم آلمان شنبه ۲۳ خرداد به یاد مجیدرضا رهنورد، معترض اعدام‌شده، در شهر نورنبرگ پرفورمنس اجرا کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245472
 
@@ -286,21 +299,6 @@ iranintl
 پیش‌تر مقام‌های جمهوری اسلامی اعلام کرده بودند در صورت حمله اسرائیل به جنوب لبنان و به طور خاص، بیروت، حملات تلافی‌جویانه علیه اسرائیل انجام خواهند داد.
 iranintl
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245453
-
-<div align="center"><img src="files/post_245453_VahidOOnLine_245453.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ارتش اسرائیل روز یکشنبه ۲۴ خرداد بار دیگر منطقه شیعه‌نشین ضاحیه در حومه بیروت را بمباران کرد.
-
-این بمباران همزمان با تشدید تلاش‌های دیپلماتیک برای پایان دادن به جنگ و در روزی انجام شد که دونالد ترامپ اعلام کرده بوبود قرار است توافق پایان جنگ میان ایران و آمریکا امضاء شود.
-
-جمهوری اسلامی ایران هفته پیش و پس از بمباران این منطقه چند موشک به سوی اسرائیل شلیک کرد و اسرائیل هم در پاسخ، مناطقی در غرب، مرکز و همچنین پایتخت ایران را بمباران کرد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

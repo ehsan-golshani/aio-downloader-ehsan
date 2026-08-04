@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/14 01:15
+📅 آخرین بروزرسانی: 1405/05/14 02:23
 
 ---
+
+## VahidOOnLine — post 251323
+
+<div align="center"><img src="files/post_251323_VahidOOnLine_251323.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ ارتش اردن صبح سه‌شنبه ۳۰ تیرماه اعلام کرد ۵ پهپاد شلیک شده از ایران را در آسمان این کشور رهگیری و منهدم کرده است.
+
+این خبر در حالی منتشر می‌شود که سپاه پاسداران ساعاتی پیش با انتشار بیانیه‌ای از حمله موشکی به اقامتگاه نظامیان آمریکایی در منطقه الرکبان اردن خبر داده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251322
 
@@ -281,20 +294,6 @@ iranintl
 
 ائتلاف نظامی تحت رهبری عربستان سعودی اعلام کرده است که به تهدیدهای حوثی‌ها در تنگه باب‌المندب قاطعانه و با قدرت پاسخ خواهد داد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251299
-
-<div align="center"><img src="files/post_251299_VahidOOnLine_251299.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از یک منبع نظامی جمهوری اسلامی نوشت تنگه هرمز همچنان مسدود است.
-
-این منبع نظامی به فارس گفت: «تا زمانی که اقدامات نظامی آمریکا ادامه داشته باشد، مجوزی برای عبور شناورها صادر نخواهد شد.»
-iranintl
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

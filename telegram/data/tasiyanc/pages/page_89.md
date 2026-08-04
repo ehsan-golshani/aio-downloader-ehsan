@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/05/14 01:18
+📅 آخرین بروزرسانی: 1405/05/14 02:25
 
 ---
+
+## tasiyanc — post 6146
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید 📱
+
+3سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6145
 
@@ -204,11 +220,5 @@ Fast2⚡@Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چند سرورNPV میزارم بعدش وایر
-</div>
-
-## tasiyanc — post 6121
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از وایرگارد راضی بودید ریکشن بزنید کانفیگ بعدیشو تا دقایقی دیگه آماده کنم بفرستم
 </div>
 

@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 119
 
-📅 آخرین بروزرسانی: 1405/05/14 01:15
+📅 آخرین بروزرسانی: 1405/05/14 02:23
 
 ---
+
+## VahidOOnLine — post 250901
+
+<div align="center"><img src="files/post_250901_VahidOOnLine_250901.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش خبرگزاری مهر، بامداد یکشنبه، ۲۸ تیرماه، زمین‌لرزه‌ای به بزرگی ۳.۷ حوالی سرگز در هرمزگان را لرزاند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250900
 
@@ -278,25 +289,6 @@
 
 شرکت‌کنندگان با در دست داشتن پرچم‌های شیروخورشید، شعار «پاینده ایران» سر دادند و یاد جاویدنامان انقلاب دی‌ماه را گرامی داشتند
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250881
-
-<div align="center"><video src="files/post_250881_VahidOOnLine_250881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250881_VahidOOnLine_250881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چشم‌انداز با مهدی مهدوی‌آزاد
-
-آیا آمریکا دنبال حمله زمینی به ایران و تصرف بندرعباس است؟
-
-نسخه کامل این برنامه در یوتیوب:
-
-youtu.be
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

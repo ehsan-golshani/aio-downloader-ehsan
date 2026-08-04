@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/05/14 01:18
+📅 آخرین بروزرسانی: 1405/05/14 02:25
 
 ---
+
+## tasiyanc — post 5499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5498
 

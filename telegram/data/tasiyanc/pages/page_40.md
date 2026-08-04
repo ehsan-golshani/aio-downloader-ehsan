@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/14 01:18
+📅 آخرین بروزرسانی: 1405/05/14 02:25
 
 ---
+
+## tasiyanc — post 7749
+
+<div align="center"><img src="files/post_7749_tasiyanc_7749.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارسالی از ممبرا
+
+بندر عباس هم اکنون
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 7748
 
@@ -151,11 +162,5 @@ VIP 🎯 @Tasiyanc.nm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز July 7، روز جهانی شکلاته 🍫 🍫
-</div>
-
-## tasiyanc — post 7709
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ظهرتون بخیر 🦦
 </div>
 
