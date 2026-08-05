@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/14 12:51
+📅 آخرین بروزرسانی: 1405/05/14 15:12
 
 ---
+
+## tasiyanc — post 8476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 دو انفجار در بندر امام
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
+</div>
 
 ## tasiyanc — post 8474
 
@@ -157,21 +172,5 @@
 ​«رونالدو و مسی ؛ دو جادوگری که به رویای بچگی‌های ما رنگ واقعیت زدند. آخرین رقص آن‌ها در جام جهانی، پایان یک عصر طلایی بود؛ عصری که دیگر تکرار نخواهد شد.»
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8456
-
-<div align="center"><img src="files/post_8456_tasiyanc_8456.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حضور پرزیدنت ترامپ با اینفانتینو برای اهدای جام
-
-@TASIYANC⭐️
-</div>
-
-## tasiyanc — post 8455
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-الان ک ترامپ ممنوع تصویره نمی‌خواین تقدیم جام رو نشون بدید کسخلا؟
 </div>
 
