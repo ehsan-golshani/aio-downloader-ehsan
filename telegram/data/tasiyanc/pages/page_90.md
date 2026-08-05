@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/05/14 02:25
+📅 آخرین بروزرسانی: 1405/05/14 03:50
 
 ---
+
+## tasiyanc — post 6122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چند سرورNPV میزارم بعدش وایر
+</div>
 
 ## tasiyanc — post 6121
 
@@ -163,21 +169,5 @@ https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunne
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بازم باید بگیم ؟
-</div>
-
-## tasiyanc — post 6098
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-سرور  سرعتی تست شده رایتل🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
 </div>
 

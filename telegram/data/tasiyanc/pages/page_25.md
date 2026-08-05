@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/14 02:25
+📅 آخرین بروزرسانی: 1405/05/14 03:50
 
 ---
+
+## tasiyanc — post 8300
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺ صداوسیما : ۳ انفجار در سیریک شنیده شد.
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8299
 
@@ -152,13 +161,5 @@ JAVID SHAH 👑
 از کتاب تاریخ نسل ما خونهای بسیاری میچکه....😞💔
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8277
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺فاکس نیوز: یک گزارش محرمانه که برای ریاست‌ جمهوری اسلامی تهیه شده، نشان می‌دهد تنها ۹ درصد ایرانیان از حفظ وضع موجود حمایت می‌کنند.
-
-@Tasiyanc✅
 </div>
 

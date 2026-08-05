@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/14 02:25
+📅 آخرین بروزرسانی: 1405/05/14 03:50
 
 ---
+
+## tasiyanc — post 7198
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV لوکیشن DE
+
+2سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7196
 
@@ -232,11 +248,5 @@ GN⚡⚡🇩🇪FST🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اسراییل میخواد کرم بریزه درست بعد توافق حمله کرد به نبطیه😐
-</div>
-
-## tasiyanc — post 7171
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ حمله شدید اسرائیل به لبنان 😐
 </div>
 

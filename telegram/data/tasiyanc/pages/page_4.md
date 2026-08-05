@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/14 02:25
+📅 آخرین بروزرسانی: 1405/05/14 03:50
 
 ---
+
+## tasiyanc — post 8929
+
+<div align="center"><img src="files/post_8929_tasiyanc_8929.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#کاربردی 🆕
+
+🔎 اگه همیشه استرس اینو داشتید که یه سایت کلاهبرداریه یا نه، این ابزار آنلاین کمکتون می‌کنه هر سایتی رو زیر و رو کنید، درصد احتمال کلاهبردار بودنشو ببینید و دلیلشم بفهمید.
+
+
+• سایت‌ها رو کامل بررسی می‌کنه و نمره اعتماد میده
+• درصد احتمال اسکم بودن رو نشون میده
+• دلیل این تحلیل‌ها رو واضح و راحت توضیح میده
+👉 https://scamminder.com/
+
+👹 @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8928
 
@@ -277,17 +295,5 @@ New Wallpapers ✨ HD
 بعد از باز کردن سایت ، رو هر کدوم از سیاره ها ، شهاب سنگ و ... بزنید با جزییات براتون میاره
 
 🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8903
-
-<div align="center"><img src="files/post_8903_tasiyanc_8903.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری: پست جدید اتاق جنگ اسرائیل
-
-تیک تاک⌛ دقیقا قبل از جنگ ۴۰ روزه، همچین توییتی زده بود.
-
-🔱 @TASIYANc
 </div>
 
