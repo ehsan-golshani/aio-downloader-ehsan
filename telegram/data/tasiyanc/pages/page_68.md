@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/14 15:12
+📅 آخرین بروزرسانی: 1405/05/14 22:45
 
 ---
+
+## tasiyanc — post 6773
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VİP - ⛓️OMEGA ⚡.npvt
+</div>
+
+## tasiyanc — post 6770
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داداش بقران بهترین‌چنلی هستی دمت‌‌گرم که بفکری سرعتتتش‌موشکهه🥲😭😭😭
+</div>
+
+## tasiyanc — post 6769
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با این شرایطی که هرشب داریم صدای بلند توافق رو میشنویم احتمال قطعی نت بشدت زیاده
+برای‌همین براتون کانفینگ‌اختصاصی شارژ کردیم داخل بات  که هر فرد  کانفینگ‌ خودشک اختصاصی بگیره❤️
+
+دیگه پیشگیری بهتر از درمانه بوس
+
+دریافت کانفنینگ‌اختصاصی〽️
+</div>
+
+## tasiyanc — post 6768
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6767
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرمنده ادمین تبادل پستهارو اشتباهی زده ❤️
+</div>
 
 ## tasiyanc — post 6762
 
@@ -142,58 +185,6 @@ INFERNO ⚡ vip.npvt
 
 ⬇️ دانلود یا تماشای بدون سانسور
 
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-INFERNO ⚡ vip.npvt
-</div>
-
-## tasiyanc — post 6717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6716
-
-<div align="center"><img src="files/post_6716_tasiyanc_6716.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴شکیرا در جام جهانی 2006 & 2010 & 2014 & 2026
-
-‏شکیرا حتی از پیکه هم تو فوتبال موفق تره 🤣
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6715
-
-<div align="center"><img src="files/post_6715_tasiyanc_6715.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز جهانی دوس داشتنو بهتون تبریک میگیم
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6714
-
-<div align="center"><img src="files/post_6714_tasiyanc_6714.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسی و رونالدو اگه ایران بدنیا میومدن :
 @Tasiyanc ✅
 </div>
 

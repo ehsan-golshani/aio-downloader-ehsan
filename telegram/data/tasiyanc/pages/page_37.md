@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/14 15:12
+📅 آخرین بروزرسانی: 1405/05/14 22:45
 
 ---
+
+## tasiyanc — post 7922
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐 مشاهده فیلم 👉
+</div>
+
+## tasiyanc — post 7920
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐
+
+مشاهده فیلم 👉
+</div>
+
+## tasiyanc — post 7919
+
+<div align="center"><img src="files/post_7919_tasiyanc_7919.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیستی از هوش مصنوعی‌های رایگان که اکثرا دوتای اول رو فقط میشناختید!
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7917
+
+<div align="center"><img src="files/post_7917_tasiyanc_7917.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت آوردم براتون که عکساتونو اینجوری خوشگل میکنه برای پست استوری ام خوبه
+
+
+Cinematic street photography, a person standing in a dense crowd of blurred pedestrians, looking up and to the side with a curious/wondering expression, shallow depth of field with crowd heavily out of focus (bokeh), moody overcast city atmosphere, muted cold color tones (blue-grey), soft diffused lighting, shot on 85mm lens, f
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7916
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عکس مربوط به انفجار دزفول فیکه.
+</div>
 
 ## tasiyanc — post 7915
 
@@ -172,63 +216,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc✅
 #Mobina
-</div>
-
-## tasiyanc — post 7882
-
-<div align="center"><img src="files/post_7882_tasiyanc_7882.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀‼️اینستاگرام در اقدامی جنجالی، قابلیتی اضافه کرده که بقیه می‌تونن باهاش از عکس‌های شما برای ساخت تصاویر هوش مصنوعی استفاده کنن.
-
-اگه اکانتتون پابلیکه، این قابلیت به‌صورت پیش‌فرض روشنه؛ اینطوری خاموشش کنید.
-
-@Tasiyanc✅
-#Mobina
-</div>
-
-## tasiyanc — post 7881
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاهم ایران و امریکا مثل مهریه‌ست
-کی داده کی گرفته🤣
-
-@Tasiyanc✅
-#Mobina
-</div>
-
-## tasiyanc — post 7879
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💀با این سایت های ارزشمند تنبلی رو بزار کنار و خودخوانی زبان رو شروع کن : #معرفی_سایت
-
-1- سایت : TalkEnglish.com
-2- سایت : Storynory.com
-3- سایت : Lingua.com
-4- سایت : Grammerly.com
-5- سایت : Oysterenglish.com
-
-@Tasiyanc✅
-#Mobina
-</div>
-
-## tasiyanc — post 7878
-
-<div align="center"><img src="files/post_7878_tasiyanc_7878.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هالند اینجوری میوفته دنبال بازیکنا تصویر بالا انگار دنبال مرغ افتاده😹
-
-@Tasiyanc✅
-#Mobina
-</div>
-
-## tasiyanc — post 7877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاش دانشمندان می‌توانستند دستگاهی اختراع کنند که خاطرات را مثل عطر توی یک بطری حفظ کنند. آن‌وقت می‌شد هر زمان که آرزو کردیم بطری را برداریم و آن لحظه را دوباره زندگی کنیم.
-- ربکا | دافنه دوموریه
-✔️ @Tasiyanc 🔋
-#Petros
 </div>
 
