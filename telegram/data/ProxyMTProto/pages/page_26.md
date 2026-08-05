@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/14 15:10
+📅 آخرین بروزرسانی: 1405/05/14 19:19
 
 ---
+
+## ProxyMTProto — post 49327
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 95.85.237.7
+Port: 14305
+Secret: dd36d988a8d13716c2c3aa9e90b7a8b18a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49326
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49325
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: go.pelmeshka.top
+Port: 443
+Secret: eed62d0ddaa394f160c6110be34e8e7fee676f2e70656c6d6573686b612e746f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49324
 
@@ -154,33 +181,6 @@ Secret: a545c35eb2bdfa1a93df5ebe69957120
 Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.savelyev.click
-Port: 443
-Secret: ee289573f97532f1d66fe239efbf0585ad63646e2e736176656c7965762e636c69636b
 @ProxyMTProto
 </div>
 
