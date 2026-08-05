@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/14 09:53
+📅 آخرین بروزرسانی: 1405/05/14 12:51
 
 ---
+
+## tasiyanc — post 7757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ انفجار مهیب و آتش سوزی بسیار بزرگ در اسکله مرکزی بندرعباس
+</div>
+
+## tasiyanc — post 7756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ آکسیوس : حملات آمریکا ممکنه چند ساعت یا چند روز ادامه پیدا کنه
+</div>
+
+## tasiyanc — post 7755
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری حملات آمریکا به اسکله حقانی در سیریك
+</div>
+
+## tasiyanc — post 7754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واکنش اسرائیل به جنگ فعلی : خوابیما قطعش کنین
+</div>
+
+## tasiyanc — post 7753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تنگه هرمز بسته شد💪
+</div>
+
+## tasiyanc — post 7752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری فرودگاه بندرعباس زدن
+</div>
 
 ## tasiyanc — post 7751
 
@@ -103,60 +139,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مصر گل دوم رو زد
-</div>
-
-## tasiyanc — post 7721
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-7 سرور سرعتی پرمیوم متد جدید سرور ایتالیا ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7720
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دروازه بان مصرو 😐😂
-</div>
-
-## tasiyanc — post 7719
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مصر یک صفر جلوئه
-</div>
-
-## tasiyanc — post 7718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقایقی بعد آغاز بازی , چند چند میشه؟
-
-Egypt 🇪🇬 🇦🇷 Argentina
-</div>
-
-## tasiyanc — post 7717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP 🎯 @Tasiyanc.nm
-</div>
-
-## tasiyanc — post 7716
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه وضع ریکشن زدنه
 </div>
 

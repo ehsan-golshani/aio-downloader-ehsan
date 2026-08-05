@@ -1,8 +1,62 @@
 # آرشیو کانال ProxyMTProto - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/14 09:51
+📅 آخرین بروزرسانی: 1405/05/14 12:49
 
 ---
+
+## ProxyMTProto — post 48131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 51.250.75.249
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48130
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowabst.net
+Port: 853
+Secret: ee12893ffd2044cecd31104edc02a7e5586164732e78352e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48129
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.nilmart.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wgwg.etherealvpn.uk
+Port: 443
+Secret: ee3b7ca716f61b904f00c0f93d9419de06617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Ehsgh.kon.khoshgele.ir.biobarmesh.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48126
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 93.77.178.229
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48125
 
@@ -127,60 +181,6 @@ Secret: ee3740849efd941157c45810d974fd66097374617469632e707278746f6461792e73746f
 Server: form.quickdl.info
 Port: 22
 Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48111
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: data.proxyvpn.site
-Port: 443
-Secret: ee7d75b7a3d02eefad99691681a534c1fe646174612e70726f787976706e2e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48110
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mx.proxyz.site
-Port: 443
-Secret: ee76166fbf55209edbcfbe009bcc16f4646d782e70726f78797a2e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48108
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cloud.prx.today
-Port: 443
-Secret: eeda2d39fb15ca8ddb6582b915b149465c636c6f75642e7072782e746f646179
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: go.vingardium.co.uk.
-Port: 8443
-Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48106
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: api.prxtoday.store
-Port: 443
-Secret: ee1fed31d4c3ce8255aedc8c4c14a36f536170692e707278746f6461792e73746f7265
 @ProxyMTProto
 </div>
 

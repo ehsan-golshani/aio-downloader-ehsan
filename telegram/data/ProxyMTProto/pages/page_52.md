@@ -1,8 +1,62 @@
 # آرشیو کانال ProxyMTProto - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/14 09:51
+📅 آخرین بروزرسانی: 1405/05/14 12:49
 
 ---
+
+## ProxyMTProto — post 48793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.acientirani-uor4.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: aerie.sosun4ik.top
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 92.246.87.243
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48790
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s01.neo-trading.org
+Port: 443
+Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48787
 
@@ -127,60 +181,6 @@ Secret: ee5098400982be6b8f6bf938e483f64dd463646e2e736176656c7965762e636c69636b
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48773
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: path.nolags.pw
-Port: 443
-Secret: dd7f1ae1d85e061ebd20bd97a022322053
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48772
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48771
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48770
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: openhostings.co.uk.
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48769
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 8985d91b.etherealvpn.uk
-Port: 443
-Secret: eee2c4f26e0246dea5eb84f95c325ea46062343233353730312e657468657265616c76706e2e756b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: brivora.co.uk.
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 

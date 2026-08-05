@@ -1,8 +1,87 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/14 09:53
+📅 آخرین بروزرسانی: 1405/05/14 12:51
 
 ---
+
+## tasiyanc — post 8625
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیك موشك به کویت
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8624
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ : در این دو جنگ ۱۸ سرباز از دست دادیم
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8623
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ترامپ:
+ما روابط بسیار خوبی با ایران داریم. آنها به دنبال یک توافق هستند، اما من می‌گویم که آنها هنوز آماده نیستند. آنها باید بیشتر مجازات شوند. آنها هنوز هم اهداف شومی در مورد برنامه هسته‌ای خود دارند، و آنها هرگز نباید به سلاح هسته‌ای دست یابند.
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 8622
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ درباره جنگ ایران:
+
+ما می‌خواهیم به این جنگ پایان دهیم، اما می‌خواهیم به شیوه درست آن را تمام کنیم
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8621
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت
+🔐
+
+سرور سرعتی 
+⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8620
+
+<div align="center"><video src="files/post_8620_tasiyanc_8620.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8620_tasiyanc_8620.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹ویدیو دیده نشده
+شاید نمیدونستید در سال 1943 ، بیش از 120 هزار لهستانی پس از سالها تبعید و رنج در اردوگاه های شوروی به ایران آمدند
+
+در سالهای ۱۹۴۲ تا ۱۹۴۳، همزمان با جنگ جهانی دوم، بیش از ۱۲۰ هزار لهستانی—شامل زنان، کودکان، سربازان و غیرنظامیان—پس از سالها تبعید و رنج در اردوگاههای کار اجباری شوروی، از مسیر آسیای میانه به ایران منتقل شدند.
+ایران که خود در اشغال متفقین و دچار کمبود شدید غذا و امکانات بود، به یکی از امنترین پناهگاههای این آوارگان تبدیل شد؛ بندر انزلی، تهران، اصفهان و اهواز از مهمترین مراکز اسکان آنها بودند.
+بسیاری از این لهستانیها در وضعیت جسمی بسیار وخیم، دچار سوءتغذیه، بیماری و فرسودگی شدید وارد ایران شدند؛ با این حال، مردم ایران—با وجود شرایط سخت جنگ—تا حد توان به آنها کمک کردند.
+اصفهان بهدلیل تعداد بالای کودکان لهستانی، بعدها لقب «شهر کودکان لهستانی» را گرفت.
+این مهاجرت، یکی از کمتر گفتهشدهترین فصلهای انسانی جنگ جهانی دوم است؛ جایی که ایران، نه در مقام قدرت نظامی، بلکه بهعنوان پناهگاه انسانها در تاریخ ثبت شد
+
+Fact @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8619
 
@@ -164,69 +243,5 @@ Fact @TASIYANC ✅
 مارکو روبیو:
 "هدف ما این است که به کشوری به نام کوبا برسیم که مردم آن بتوانند از رفاه، امنیت، و یک زندگی بهتر در آینده بهره‌مند شوند."
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8603
-
-<div align="center"><video src="files/post_8603_tasiyanc_8603.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8603_tasiyanc_8603.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت گذرگاه مرزی شلمچه بین ایران و عراق، بعد از حملات ارتش آمریکا : تعداد کشته‌ها به 3 نفر رسید. @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8602
-
-<div align="center"><video src="files/post_8602_tasiyanc_8602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8602_tasiyanc_8602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت گذرگاه مرزی شلمچه بین ایران و عراق، بعد از حملات ارتش آمریکا :
-
-تعداد کشته‌ها به 3 نفر رسید.
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8601
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبلیغات و همکاری با مجموعه ما
-👉 Admin @TsSub
-</div>
-
-## tasiyanc — post 8600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 ترامپ :
-
-بیش از 52 هزار معترض در ایران در دو ماه گذشته توسط جمهوری اسلامی کشته شدند؛
-
-اما نمیدونم چرا هیچکس راجب این موضوع صحبت نمی‌کنه، هیچ رسانه ای ازش نمیگه!
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8599
-
-<div align="center"><video src="files/post_8599_tasiyanc_8599.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8599_tasiyanc_8599.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ امشب فاز نصیحت برداشته:
-
-یه پلیس بهم گفت از وقتی زنم فهمیده هوش مالی بالایی دارم و خوب پول در میارم، بیشتر دوسم داره.
-شما نباید کسیو بخاطر پول دوس داشته باشین.
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8592
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امیر دوست پسر قبلی نیکا فلاحی وقتی فهمید نیکا با مرسلی رفته تو رابطه از لجش اومده عکسای نود بدون سانسورشو پخش کرده ولی خودمونیم چیز خوبیه 📥 مشاهده ویدیو
 </div>
 

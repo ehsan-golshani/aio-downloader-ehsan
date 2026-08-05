@@ -1,8 +1,65 @@
 # آرشیو کانال ProxyMTProto - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/14 09:51
+📅 آخرین بروزرسانی: 1405/05/14 12:49
 
 ---
+
+## ProxyMTProto — post 47751
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: yandex.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47750
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ Working proxies are getting blocked quickly due to new restrictions.
+
+If Telegram starts loading slowly again, it's better to get connected in advance 👀
+
+We're constantly adding new proxies and currently providing them for free 🔥
+
+👉 Start the bot and join our channel to get a working proxy right now.
+</div>
+
+## ProxyMTProto — post 47749
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: alpinavpn.hatecens.cc
+Port: 7443
+Secret: ee27a9fe4d55c1a9dabfcb2b872b00b6e6616c70696e6176706e2e6861746563656e732e6363
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47748
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: dd79e7010200010007f0030386e24c3add
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47747
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r35.proxytg.space
+Port: 8443
+Secret: ee11c7cb7399e1f38aaec2f5152c4f051c7233352e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47746
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: heart.nolags.pw
+Port: 443
+Secret: dd1d8f1aa6cb8726a39f24cc3943099e33
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47745
 
@@ -127,60 +184,6 @@ Secret: ee4ce23663740cbaf7be12448a22abd6fe617669746f2e7275
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: topproxy.fml-subs.ru
-Port: 443
-Secret: dde71c854efc71f477856bd59728888359
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47730
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 15
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 79.137.196.223
-Port: 7443
-Secret: eeeeb30662ee79541fb143515ad872d2e9dd7777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47728
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 72.56.87.28
-Port: 443
-Secret: 7sEXmKsAiDG0dAZsnh6_XHZhdml0by5ydQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47727
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vktop.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47726
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r29.proxytg.space
-Port: 8443
-Secret: ee5b741234768d8dda7d1c17e7e7cff98a7232392e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 

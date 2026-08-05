@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/14 09:53
+📅 آخرین بروزرسانی: 1405/05/14 12:51
 
 ---
+
+## tasiyanc — post 7658
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مدیتیشن تموم شد 😂
+</div>
+
+## tasiyanc — post 7655
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی 🍑 🤬🍆
+</div>
+
+## tasiyanc — post 7654
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زجه بزن عرزشی ، زجه زدنای شما منو ارضا میکنه
+</div>
+
+## tasiyanc — post 7653
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فستیوال این مادرقهبه ها تموم نشد؟
+</div>
+
+## tasiyanc — post 7652
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☕⚡Mocha Fast.npvt
+</div>
+
+## tasiyanc — post 7651
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Canada 🇨🇦 & Morocco 🇲🇦 🏆
+
+کی میبره
+</div>
 
 ## tasiyanc — post 7645
 
@@ -120,43 +158,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 محمد صلاح پشت توپ
-</div>
-
-## tasiyanc — post 7623
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تیم انور سادات فقید 2 , استرالیا 1
-</div>
-
-## tasiyanc — post 7622
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید برد تیم بزرگ مصر میراث انور سادات فقید رفیق واقعی ایرانیان
-</div>
-
-## tasiyanc — post 7621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تیم انور سادات بزرگ شاهنشاه فقید مصر و استرالیا رفت پنالتی
-</div>
-
-## tasiyanc — post 7620
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ربات دانلودر اختصاصی تاسیان آپدیت شد ، پست ها و ریلز های اینستاگرام و بقیه شبکه های اجتماعی بفرستید مشخصات فیلم یا سریال و ... هم براتون نشون داده خواهد شد @TasiyanAploadBot
-</div>
-
-## tasiyanc — post 7619
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ربات دانلودر اختصاصی تاسیان آپدیت شد ، پست ها و ریلز های اینستاگرام و بقیه شبکه های اجتماعی بفرستید مشخصات فیلم یا سریال و ... هم براتون نشون داده خواهد شد
-@TasiyanAploadBot
-</div>
-
-## tasiyanc — post 7618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید گپ کارتون دارم
-https://t.me/+DhVkjFb6qhZmYTFk
 </div>
 
