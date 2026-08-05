@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/14 19:19
+📅 آخرین بروزرسانی: 1405/05/14 20:50
 
 ---
+
+## ProxyMTProto — post 47842
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd79e7010200010007f0030386e24c3add
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47841
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: connect.arixo.shop
+Port: 443
+Secret: eeed5518514cf40187d905c5b7c9e4d595617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47840
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: connect.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47839
 
@@ -156,33 +183,6 @@ Secret: 76706e76706e76706e76706e76706e76
 Server: spain.nolags.pw
 Port: 443
 Secret: ddda11050e6e98fb151d0094b549b0344a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47822
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: jet.quickrouteapp.xyz
-Port: 8443
-Secret: eeedca657d767c71c26de484e74182c3076a65742e717569636b726f7574656170702e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47821
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47820
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 89.125.49.250
-Port: 443
-Secret: eeb40eda3c7b6561f0ef22eb54b49eacf477622e7275
 @ProxyMTProto
 </div>
 
