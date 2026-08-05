@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/14 01:16
+📅 آخرین بروزرسانی: 1405/05/14 09:51
 
 ---
+
+## ProxyMTProto — post 48967
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48966
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gate.klyuch1k.org
+Port: 443
+Secret: eeae941a76ec4acf04faabaf8a24571080676174652e6b6c79756368316b2e6f7267
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48964
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 4ad666e5.koshkaproxy.shop
+Port: 443
+Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48963
 
@@ -143,42 +179,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: skein.chunkycorp.shop
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48947
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48946
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s1.24starsmarket.ru
-Port: 443
-Secret: ee84e22723bf0f87e3838be933e7b91bd973312e323473746172736d61726b65742e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48945
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 93.77.167.20
 Port: 443
 Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/14 03:50
+📅 آخرین بروزرسانی: 1405/05/14 09:53
 
 ---
+
+## tasiyanc — post 7713
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال  ⛓
+</div>
 
 ## tasiyanc — post 7712
 
@@ -192,11 +204,5 @@ Password @Tasiyanc
 
 
 👇 دریافت کانفیگ های وایرگارد 🔥
-</div>
-
-## tasiyanc — post 7686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سن دریافت گواهینامه رانندگی از ۱۸ سال به ۱۶ سال کاهش پیدا کرد.
 </div>
 

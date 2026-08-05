@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/05/14 03:50
+📅 آخرین بروزرسانی: 1405/05/14 09:53
 
 ---
+
+## tasiyanc — post 6961
+
+<div align="center"><video src="files/post_6961_tasiyanc_6961.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6961_tasiyanc_6961.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ دارک تانل 
+🌟
+
+حجم نامحدود - سرعتی 
+🚀
+
+تست شده رو تمام نت ها 
+✅
+
+دانلود Dark Tunnel  
+🕹
+
+آموزش اتصال به سرور دارک 
+⏩
+
+T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6960
 
@@ -221,11 +247,5 @@ Vip SPEED ⚡⚡.npvt
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6938
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑ساب لینک اختصاصی تاسیان👑 https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt اینو بزنید 🔐🔐 هر ۴ ساعت کانفیگا آپدیت میشن بعد از ۴ ساعت update subscription بزنید تا آپدیت شن @Tasiyanc ✅
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/14 03:50
+📅 آخرین بروزرسانی: 1405/05/14 09:53
 
 ---
+
+## tasiyanc — post 6651
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔩 🔴ترامپ : نمی‌خواهم کاری کنم که مردم ایران تشنگی بکشند و آبی برای خوردن نداشته باشند، پس توافق کنید!
+@Tasiyanc
+✅
+</div>
 
 ## tasiyanc — post 6650
 
@@ -176,14 +184,5 @@ Homayoun Shajarian & Sohrab Pournazeri – Irane Man
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم
 https://t.me/+v0wRP5SGNrg5MThk
-</div>
-
-## tasiyanc — post 6617
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-
-vless://d39664df-5bc0-4f49-9894-8f03b4150082@germany-vip.soft26.ir:8443?mode=auto&path=%2F&security=reality&encryption=none&pbk=QLamtir13xwzyWVlPRN3C7lw_fhSBU7X4H3A8zAl5Fg&fp=chrome&type=xhttp&sni=www.yahoo.com&sid=6f3192#T.me%2FTasiYanc%20%E2%9A%A1%F0%9F%9A%80
-@Tasiyanc ✅
 </div>
 

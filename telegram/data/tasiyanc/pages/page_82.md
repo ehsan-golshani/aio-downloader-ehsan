@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/05/14 03:50
+📅 آخرین بروزرسانی: 1405/05/14 09:53
 
 ---
+
+## tasiyanc — post 6324
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز در راه است
+</div>
 
 ## tasiyanc — post 6323
 
@@ -193,11 +199,5 @@ Password : @Tasiyanc  ⏩
 ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6297
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•𝐅_𝟐𝟐_⚡💣_ᴾʳᵉᵐᶤᵘᵐ_ᶳᵉʳᵛᵉʳᶳ.npvt
 </div>
 

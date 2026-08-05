@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/14 03:50
+📅 آخرین بروزرسانی: 1405/05/14 09:53
 
 ---
+
+## tasiyanc — post 8787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان امنیت روسیه: پاول دوروف، بنیانگذار تلگرام، در فهرست افراد تحت تعقیب بین‌المللی قرار گرفت!!
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8786
 
@@ -225,15 +234,5 @@
 ​✔️ برای طرفداران کارت‌به‌کارت و واریز ریالی
 🔘 (DERBYBET.Com):
 سریع‌ترین واریز ریالی با محیط کاربری امن برای شرط‌های سنگین و آپشن های فراوان.g6
-</div>
-
-## tasiyanc — post 8760
-
-<div align="center"><img src="files/post_8760_tasiyanc_8760.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پژمان بهروزی، شرکت کننده برنامه ایدز ابدی، اومده تو برنامه خط قرمز صداوسیما برا ایرانیا از وطن پرستی بگه
-
-@TASIYANC ⭐️
 </div>
 

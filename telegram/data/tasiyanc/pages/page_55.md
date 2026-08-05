@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/14 03:50
+📅 آخرین بروزرسانی: 1405/05/14 09:53
 
 ---
+
+## tasiyanc — post 7199
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+BERLIN 🇩🇪⚡️GN.npvt
+</div>
 
 ## tasiyanc — post 7198
 
@@ -242,11 +248,5 @@ GN⚡⚡🇩🇪FST🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حملات شدید توپخانه ای هم اکنون به نبطیه و تلاش اسرائیل برای تصرف تپه علی طاهر ، و مقاومت حزب الله
-</div>
-
-## tasiyanc — post 7173
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسراییل میخواد کرم بریزه درست بعد توافق حمله کرد به نبطیه😐
 </div>
 
