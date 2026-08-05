@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/14 22:45
+📅 آخرین بروزرسانی: 1405/05/15 00:18
 
 ---
+
+## tasiyanc — post 8760
+
+<div align="center"><img src="files/post_8760_tasiyanc_8760.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پژمان بهروزی، شرکت کننده برنامه ایدز ابدی، اومده تو برنامه خط قرمز صداوسیما برا ایرانیا از وطن پرستی بگه
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8759
+
+<div align="center"><img src="files/post_8759_tasiyanc_8759.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانی بودنم سخته ، اداره برق نه تنها برقو قطع می‌کنه ، بعدش میاد یه اپ معرفی می‌کنه پول میگیره میگه کی برقتون قطع میشه
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود لوک ترکیه📱
+
+تست شده روی همه نت ها
+
+آموزش اتصال روی اندروید⛓
+آموزش اتصال روی ویندوز  ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8757
+
+<div align="center"><video src="files/post_8757_tasiyanc_8757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8757_tasiyanc_8757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صنعت پهبادی اوکراین تو یه لول دیگه اس !
+🇷🇺🇺🇦 یک تانک روسی T-80BVM با ارزش تقریبی ۴ میلیون دلار، توسط یک پهپاد ۵۰۰ دلاری اوکراینی منهدم شد.
+﻿
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران جای عجیبیه جای لف دادن از چنل سام صابری حرومزاده ممبراش بالا اومده
+</div>
+
+## tasiyanc — post 8755
+
+<div align="center"><img src="files/post_8755_tasiyanc_8755.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسلیت.
+</div>
+
+## tasiyanc — post 8754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Vip for TS ⚡🔥.npvt
+</div>
 
 ## tasiyanc — post 8753
 
@@ -160,81 +227,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 +مشاهده ویدیوها بدون سانسور
 ‌
 ‌
-</div>
-
-## tasiyanc — post 8731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قلعه الموت قزوین ثبت جهانی شد؛ قزوینیا راحت میتونن خارجیا رو هم انگشت کنن
-
-@TASIYANC 🕒
-</div>
-
-## tasiyanc — post 8730
-
-<div align="center"><video src="files/post_8730_tasiyanc_8730.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8730_tasiyanc_8730.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معمر قذافی با این سخنرانی فرمان حذف خود را امضاء کرد !
-
-پی‌نوشت : کافیه به خدماتی ک برای لیبی انجام داده بود نگاه کنید
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8729
-
-<div align="center"><img src="files/post_8729_tasiyanc_8729.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 کشورایی که سالانه بیشترین میانگین توریست رو دارن
-
-@TASIYANC 💠
-</div>
-
-## tasiyanc — post 8728
-
-<div align="center"><video src="files/post_8728_tasiyanc_8728.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8728_tasiyanc_8728.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عکس و فیلمبرداری توسط توریست‌ها تو کره شمالی ممنوعه، ولی یه توریست روسی یواشکی این ویدیو رو گرفته و بعد از خروجش از خاک کره شمالی منتشرش کرده.
-
-دوتا پنکه گذاشتن جلو عکس کیم جونگ اون و خانواده که گرمشون نشه. 😂😂😂
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8727
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺کاهش 8% درصدی قیمت نفت به ۹۱ دلار بدلیل توقف حملات جمهوری اسلامی و آمریکا
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8726
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ⚡🇹🇷.nm
-</div>
-
-## tasiyanc — post 8725
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-تست شده روی همه نت ها
-
-آموزش اتصال روی اندروید
-⛓
-آموزش اتصال روی ویندوز  
-⛓
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ @TASIYANC ⭐️
 </div>
 

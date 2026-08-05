@@ -1,8 +1,74 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/14 22:45
+📅 آخرین بروزرسانی: 1405/05/15 00:18
 
 ---
+
+## tasiyanc — post 7713
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال  ⛓
+</div>
+
+## tasiyanc — post 7712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز July 7، روز جهانی شکلاته 🍫 🍫
+</div>
+
+## tasiyanc — post 7709
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ظهرتون بخیر 🦦
+</div>
+
+## tasiyanc — post 7708
+
+<div align="center"><video src="files/post_7708_tasiyanc_7708.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7708_tasiyanc_7708.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+5 کانفیگ وایرگارد مخصوص گیم و وبگردی در ربات آپلود شد سریع بردارید ظرفیت محدوده - تبلیغ نیست ربات اختصاصی تاسیان هست
+
+
+👈 دریافت کانفیگ ها 
+👉
+</div>
+
+## tasiyanc — post 7707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فارغ از هر بحثی دوس داشتیم فینال دو اسطوره رو ببینیم ک نشد
+</div>
+
+## tasiyanc — post 7706
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🐐 بعضی‌ها جام می‌برند، بعضی‌ها رکورد می‌شکنند؛
+اما فقط یک نفر معنای «GOAT» را تغییر داد...
+کریستیانو رونالدو؛
+نامی که از تاریخ فوتبال پاک نخواهد شد.
+پایان یک جام جهانی، اما نه پایان یک افسانه.
+CR7 GOAT Forever 🇵🇹❤️‍🔥
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7705
+
+<div align="center"><img src="files/post_7705_tasiyanc_7705.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پایان یک اسطوره CR7 💔🤔
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 7704
 
@@ -138,75 +204,5 @@ Password @Tasiyanc
 
 
 👇 دریافت کانفیگ های وایرگارد 🔥
-</div>
-
-## tasiyanc — post 7686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سن دریافت گواهینامه رانندگی از ۱۸ سال به ۱۶ سال کاهش پیدا کرد.
-</div>
-
-## tasiyanc — post 7685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP 🎯 @Tasiyanc.nm
-</div>
-
-## tasiyanc — post 7682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-3سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید ⛓
-آموزش اتصال روی ویندوز ⛓
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-</div>
-
-## tasiyanc — post 7681
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗘𝗰𝗵𝗼 𝗩𝗶𝗽 🔥⁰⁴.ehi
-</div>
-
-## tasiyanc — post 7680
-
-<div align="center"><img src="files/post_7680_tasiyanc_7680.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎥انیمیشن داستان اسباب بازی ها (Toy Story 5) 2026
-ژانر : انیمیشن ، خانوادگی ، کمدی
-مدت زمان 🕰: 102 دقیقه 
-کشور: 🇺🇸
-وودی، باز، جسی و دیگر اعضای گروه با چالشی تازه روبه‌رو می‌شوند؛ زمانی که با وسایل الکترونیکی آشنا می‌شوند، فناوری‌های جدیدی که به تهدیدی برای بازی و سرگرمی کودکان تبدیل شده‌اند و جایگاه آن‌ها را به خطر می‌اندازند.
-💘 برای دانلود دوبله فارسی کلیک کنید 💘
-💘 دانلود زبان اصلی 💘
-با ۴ کیفیت متفاوت😍
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️ 💘 دریافت کانفیگ👈 💘
-</div>
-
-## tasiyanc — post 7678
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️
-
-💘 دریافت کانفیگ👈 💘
 </div>
 

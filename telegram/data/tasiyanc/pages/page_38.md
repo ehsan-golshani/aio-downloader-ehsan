@@ -1,8 +1,82 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/14 22:45
+📅 آخرین بروزرسانی: 1405/05/15 00:18
 
 ---
+
+## tasiyanc — post 7894
+
+<div align="center"><img src="files/post_7894_tasiyanc_7894.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺امروز 11 July، روز شاد کردن آدم‌های تنهاست.
+
+
+@Tasiyanc ⭐️
+#Navid
+</div>
+
+## tasiyanc — post 7893
+
+<div align="center"><img src="files/post_7893_tasiyanc_7893.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نقش پدر در زندگی:
+
+روح تمام پدر های آسمانی شاد🖤
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7892
+
+<div align="center"><video src="files/post_7892_tasiyanc_7892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7892_tasiyanc_7892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعتان چووونه رفته نوکِ چرخ و فلک داره تبلیغ بالشت و پتو میکنه😐
+
+بالشتش هم اون وسط پرت شد پایین، میگه عیبی نداره یکم ترسو بود...
+
+@Tasiyanc ⭐️
+#Navid
+</div>
+
+## tasiyanc — post 7891
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جای خالیشان قدر یک وطن درد میکند ؛ نه فقط در خانه هایشان که در دل تمام ایران
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7890
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای فرزندانی که سهمشان از وطن یک گلوله بود 🖤
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 7884
+
+<div align="center"><img src="files/post_7884_tasiyanc_7884.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 جدیدا دخترای ایرانی توی توییتر، با انتشار این تصاویر دارن پسرا رو به کتابخوانی دعوت میکنن😂
+
+@Tasiyanc ⭐️
+#Navid
+</div>
+
+## tasiyanc — post 7883
+
+<div align="center"><img src="files/post_7883_tasiyanc_7883.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc✅
+#Mobina
+</div>
 
 ## tasiyanc — post 7882
 
@@ -215,99 +289,5 @@
 
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7854
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ختم کلام
-
-از اونجایی ک رسالت ما وصل کردن مردم بود تو قطعیا و تو دوران وصل شدن اینترنت شاهد افت چنل و جذب نبودم خیلی چیزا ثابت شد برام ، پس لف و جذب مهم نیست برامون تو قطعی اینترنت، ما چنلو پرایوت خواهیم کرد عضو جدید نخواهیم پذیرفت و اونایی که الان کنارم هستن باید وصل باشن ❤️
-
-مجموعه تاسیان ❤️‍🔥
-
-آدرس پابلیک
-@Tasiyanc
-</div>
-
-## tasiyanc — post 7843
-
-<div align="center"><video src="files/post_7843_tasiyanc_7843.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7843_tasiyanc_7843.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریافت کانفیگ نت مود مخصوص شرایط اضطراری پر سرعت ( برای گیم و دانلود و اینستاگرام)
-
-
-👈 دریافت کانفیگ ها 
-👉
-</div>
-
-## tasiyanc — post 7842
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انفجار در چابهار 😐
-</div>
-
-## tasiyanc — post 7840
-
-<div align="center"><video src="files/post_7840_tasiyanc_7840.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7840_tasiyanc_7840.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم متد جدید سرور 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 اینستاگرام 
-📸 جمینای 
-🤖
-
-
-
-اتصال امن برای همه 
-🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جدید درباره تعویق امتحانات 👉 🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
-</div>
-
-## tasiyanc — post 7838
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جدید درباره تعویق امتحانات 👉
-🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
-</div>
-
-## tasiyanc — post 7834
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ رسما و شرعا آغاز شد
 </div>
 

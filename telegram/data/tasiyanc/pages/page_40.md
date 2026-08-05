@@ -1,8 +1,71 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/14 22:45
+📅 آخرین بروزرسانی: 1405/05/15 00:18
 
 ---
+
+## tasiyanc — post 7797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نسخه شیر و خورشید قدیمی 👑
+آموزش اتصال
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری
+پیت هگست وزیر جنگ آمریکا بخاطر جنگ با ایران سفرش به اسرائیل را لغو کرد
+</div>
+
+## tasiyanc — post 7794
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ : دستور لغو توافق و مذاکرات را صادر کردم
+</div>
+
+## tasiyanc — post 7793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ : آتش بس ایران به پایان رسید
+</div>
+
+## tasiyanc — post 7792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه
+</div>
+
+## tasiyanc — post 7791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️رسما توافق با آمریکا سرش گرد شد
+</div>
 
 ## tasiyanc — post 7790
 
@@ -120,59 +183,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فووووووری فرودگاه بندرعباس زدن
-</div>
-
-## tasiyanc — post 7751
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنظرتون جنگ تمام عیار میشه اسراییل ورود می‌کنه؟ یا آتش بس میشه تا صبح
-</div>
-
-## tasiyanc — post 7750
-
-<div align="center"><img src="files/post_7750_tasiyanc_7750.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت کارمندای نت‌بلاکس الان:
-</div>
-
-## tasiyanc — post 7749
-
-<div align="center"><img src="files/post_7749_tasiyanc_7749.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی از ممبرا
-
-بندر عباس هم اکنون
-@Tasiyanc
-</div>
-
-## tasiyanc — post 7748
-
-<div align="center"><video src="files/post_7748_tasiyanc_7748.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7748_tasiyanc_7748.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همین الان ، حمله وحشتناک آمریکا به بندرعباس
-</div>
-
-## tasiyanc — post 7746
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک نفتکش متعلق به امارات هم اکنون مورد اثابت قرار گرفت
-</div>
-
-## tasiyanc — post 7745
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری تحریم های فروش نفت ایران دوباره برگشت
-</div>
-
-## tasiyanc — post 7744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوریییییی آکسیوس
-آمریکا امشب حملات گسترده ای به ایران خواهد داشت در جواب حملات به کشتی های تجاری در تنگه هرمز
 </div>
 

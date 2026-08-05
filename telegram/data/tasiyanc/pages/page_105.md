@@ -1,8 +1,90 @@
 # آرشیو کانال tasiyanc - صفحه 105
 
-📅 آخرین بروزرسانی: 1405/05/14 22:45
+📅 آخرین بروزرسانی: 1405/05/15 00:18
 
 ---
+
+## tasiyanc — post 5754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب بعدی تو راهه
+</div>
+
+## tasiyanc — post 5753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینستا بهتر از تلگرام بالا میاد ، کانکت شدید برید اینستا ببینین سرعتو
+</div>
+
+## tasiyanc — post 5752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
+
+
+
+🚀 @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 5750
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
+
+
+
+🚀 @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 5748
+
+<div align="center"><img src="files/post_5748_tasiyanc_5748.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+براتون یه فایل نپسترنت با ۶ تا کانفیگ درست کردیم ( عکس تستو ببینید برگاتون بریزه ) ❤️‍🔥
+
+دریافت کانفیگ نپسترنت ( رایگان )
+</div>
+
+## tasiyanc — post 5747
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5746
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام این شات مال منه، من با همراه وصلم، منم مث شماها نتم قط و وصل میشه ، ولی خب دس نمیزنم تا پر شه، چن بار هواپیما بزنید باز کنید ، تاسیان چندین کانفیگ از هر نامی میزاره، مثلا اینکه نوشته تاسیان پرو چار تا میزاره، یکیشو فقد امتحان نکنید ، یکی یکی بزارید ولی هر بار که انتخاب کردید یه بار هواپیما بزنید بعد منتظر باشید ببینید وصل میشه یا نه، اینم بگم اکثرن همراه اولیا فعال شدن، ولی غمتون نباشه، مال همه وصل میشه ایشالا ، من خودم از اینکه نت پرو نخریدم و با اینا وصل شدم حالم خوبه،درسته که زیاد قط میشه اما بازم برکت بیفته توش و هممون از این حق لذت ببریم انشالا☺️🤲
+</div>
 
 ## tasiyanc — post 5745
 
@@ -109,75 +191,5 @@ vless://079c1b04-7ef9-4c49-8a7a-849a18ba7b9b@83.222.20.64:17910?security=reality
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💘💘💘
-</div>
-
-## tasiyanc — post 5731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 SamanTel
-trojan://7aXwJPnpAJ@yespaintstudio.rav-kraski.ru:50824?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%F0%9F%8C%A4%EF%B8%8F
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5730
-
-<div align="center"><img src="files/post_5730_tasiyanc_5730.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🌱2 server.npvt
-</div>
-
-## tasiyanc — post 5729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده ⛈ 
-
-رمز : ″ @Tasiyanc ″
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5728
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🏳 vip
-
-trojan://2238e2f3-1a01-485e-8c22-24b65764c68b@172.64.152.23:443?path=%2F51.91.253.83&security=tls&insecure=0&host=gzjx.dpdns.org&type=ws&allowInsecure=0&sni=gzjx.dpdns.org#%40Tasiyanc%20USS%E2%9A%A1
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5727
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده همه اپراتور ها ⛈ 
-
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5726
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده همه اپراتور ها ⛈ 
-
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5724
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گپ تاسیان - خودمم هستم بیاید
-https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 
