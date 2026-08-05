@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 201
 
-📅 آخرین بروزرسانی: 1405/05/15 00:16
+📅 آخرین بروزرسانی: 1405/05/15 01:37
 
 ---
+
+## VahidOOnLine — post 249111
+
+<div align="center"><img src="files/post_249111_VahidOOnLine_249111.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وال‌استریت ژورنال به نقل از مقام‌های آمریکایی و عراقی گزارش داد بغداد در ازای ازسرگیری انتقال اسکناس دلار از آمریکا، پذیرفته است تدابیر جدیدی برای جلوگیری از رسیدن دلار به جمهوری اسلامی و گروه‌های شبه‌نظامی همسو با تهران اجرا کند.
+
+بر اساس این گزارش، عراق متعهد شده دسترسی جمهوری اسلامی و متحدانش به دلار از طریق صرافی‌ها و پرداخت حقوق اعضای گروه‌های مسلح همسو با تهران را محدود کند. دولت دونالد ترامپ نیز پس از این تعهد، ارسال محموله‌های اسکناس دلار به بغداد را که از آغاز جنگ متوقف شده بود، از سر گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249110
+
+<div align="center"><img src="files/post_249110_VahidOOnLine_249110.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری مهر گزارش داد در حمله‌های آمریکا به بخش‌هایی از استان بوشهر، هیچ آسیبی به نیروگاه اتمی بوشهر وارد نشده است.
+
+این خبرگزاری به نقل از منابع خود افزود جای هیچ‌گونه نگرانی در این زمینه وجود ندارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249109
+
+<div align="center"><video src="files/post_249109_VahidOOnLine_249109.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249109_VahidOOnLine_249109.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای ارسال‌شده به ایران‌اینترنشنال، وقوع انفجارهای مهیب را در بندرعباس در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249108
 
@@ -245,45 +284,6 @@
 
 پیش‌تر دونالد ترامپ در حاشیه نشست ناتو گفته بود ارتش آمریکا احتمالا امشب دور تازه‌ای از حملات علیه اهدافی در ایران انجام خواهد داد.
 
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249091
-
-<div align="center"><video src="files/post_249091_VahidOOnLine_249091.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249091_VahidOOnLine_249091.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد یک شهروند در چالدران در مخالفت با جمهوری اسلامی و سیاست‌های آن روی دیوار نوشته است: «موشک‌های شما سر سره مردم فرود می‌آیند.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249090
-
-<div align="center"><img src="files/post_249090_VahidOOnLine_249090.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وال‌استریت ژورنال به نقل از مقام‌های آمریکایی و عراقی گزارش داد عراق برای ازسرگیری ارسال اسکناس دلار از آمریکا، با اعمال محدودیت‌های جدید برای جلوگیری از دسترسی جمهوری اسلامی و گروه‌های نیابتی آن به دلار موافقت کرده است.
-به گزارش وال‌استریت ژورنال، بغداد متعهد شده است دسترسی نیابتی‌های جمهوری اسلامی به دلار از طریق صرافی‌ها و پرداخت حقوق به اعضای این گروه‌ها را محدود کند. این اقدام در ازای لغو تعلیق چهارماهه ارسال اسکناس دلار از آمریکا انجام شده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249089
-
-<div align="center"><img src="files/post_249089_VahidOOnLine_249089.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جی‌دی ونس، معاون رییس‌جمهوری آمریکا، گفت ایالات متحده با جمهوری اسلامی به توافق رسیده بود، اما تهران بار دیگر شلیک به کشتی‌ها را از سر گرفته است.
-ونس گفت: «برنامه هسته‌ای ایران نابود شد، توان نظامی متعارف آن نیز از بین رفت، و حالا برخی افراد در داخل حاکمیت ایران می‌گویند که می‌خواهند رابطه‌شان را با ایالات متحده تغییر دهند و فصل تازه‌ای را آغاز کنند.»
-او افزود دونالد ترامپ، رییس‌جمهوری آمریکا، پذیرفت پای میز مذاکره بنشیند تا مشخص شود «آیا افراد عاقل در آن نظام می‌توانند جای افراد دیوانه را بگیرند یا نه».
-ونس درباره محتوای توافق گفت: «اگر شما شلیک به کشتی‌ها را متوقف کنید، ما هم محاصره‌مان را برمی‌داریم. اما اگر به کشتی‌ها شلیک کنید، پاسخ سختی خواهید گرفت.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

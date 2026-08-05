@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/15 00:18
+📅 آخرین بروزرسانی: 1405/05/15 01:39
 
 ---
+
+## tasiyanc — post 8303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+3سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8302
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فاطمه مهاجرانی، سخنگوی دولت:
+
+دولت پزشکیان تا پای جان کنار مردم خونگرم جنوبه و از صبر و ایستادگیشون تو دوران متشنج جنگی تشکر میکنه
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8301
 
@@ -140,22 +173,5 @@ JAVID SHAH 👑
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 JAVID SHAH 👑
-</div>
-
-## tasiyanc — post 8280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگل داشت نابود میشد ، ولی درختان هنوز به تبر رای میدادن چون اون قانعشون کرده بود دستش چوبیه پس از خودشونه :) @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8279
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگل داشت نابود میشد ،
-ولی درختان هنوز به تبر رای میدادن
-چون اون قانعشون کرده بود
-دستش چوبیه پس از خودشونه :)
-
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,51 @@
 # آرشیو کانال VahidOOnLine - صفحه 333
 
-📅 آخرین بروزرسانی: 1405/05/15 00:16
+📅 آخرین بروزرسانی: 1405/05/15 01:37
 
 ---
+
+## VahidOOnLine — post 245979
+
+<div align="center"><img src="files/post_245979_VahidOOnLine_245979.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مایک هاکبی، سفیر آمریکا در اسرائیل، در پیامی در شبکه اجتماعی ایکس با اشاره به یادداشت تفاهم ایالات متحده و جمهوری اسلامی نوشت که حکومت ایران خواستار آن است که اسرائیل دفاع از مرزهای خود در برابر حزب‌الله را متوقف کند، در حالی که اجرای طرح صلح در غزه به خلع سلاح حماس وابسته است.
+
+هاکبی افزود: «همه اعضای حزب‌الله و حماس به "کشور مادر" خود، یعنی ایران، منتقل شوند.»
+
+او نوشت در صورت تحقق چنین اقدامی، لبنان و اسرائیل از «نیروهای نیابتی مورد حمایت ایران» رها خواهند شد.
+
+هاکبی در پایان پیام خود نوشت: «به صلح فرصت بدهید.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245978
+
+<div align="center"><img src="files/post_245978_VahidOOnLine_245978.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کامران غضنفری، عضو کمیسیون امور داخلی مجلس، با انتقاد از تفاهم‌ میان جمهوری اسلامی و آمریکا گفت اگر این تفاهم‌نامه جمعه امضا شود، اسرائیل ظرف چند روز آن را نقض خواهد کرد و دوباره به جمهوری اسلامی حمله می‌کند.
+
+این نماینده مجلس همچنین گفت در این توافق به ممنوعیت ورود ناوهای نظامی خارجی به خلیج فارس و محدودیت تردد کشتی‌های اسرائیلی اشاره نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245966
+
+<div align="center"><video src="files/post_245966_VahidOOnLine_245966.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_245966_VahidOOnLine_245966.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرخط خبرهای چهارشنبه ۲۷ خرداد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245965
 
@@ -216,43 +259,6 @@
 نتانیاهو گفت: «او نباید این موضوع را می‌نوشت. این یک اشتباه ملی است و به وحدت ما آسیب می‌زند. همچنین باعث شرمندگی در برابر ترامپ می‌شود.»
 طبق گزارش وای‌نت، فرمانده نیروی هوایی اسرائیل در نامه‌ای از یک موج حملات بزرگ علیه جمهوری اسلامی خبر داده بود که حدود یک ساعت پیش از برخاستن جنگنده‌ها متوقف شد.
 
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245948
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در پاسخ به فراخوان شاهزاده رضا پهلوی، ایرانیان نیوکاسل روز ۲۶ خرداد پرچم شیر و خورشید ایران را در تجمعی برافراشتند و نقاشی چهره مجیدرضا رهنورد را در زادروزش به نمایش گذاشتند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245947
-
-<div align="center"><video src="files/post_245947_VahidOOnLine_245947.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_245947_VahidOOnLine_245947.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سعید آجرلو، عضو تیم رسانه‌ای مذاکره‌کننده جمهوری اسلامی، با اشاره به اینکه بعد از جمعه می‌توان راحت‌تر درباره متن یادداشت تفاهم با آمریکا صحبت کرد، گفت آمریکا مراد و قصد مذاکره‌کنندگان را از آوردن «فلان کلمه» در متن نمی‌داند.
-به گفته او، اگر مردم متن نهایی درباره تنگه هرمز را با متن اولیه‌ای که از سوی آمریکا یا جمهوری اسلامی ارائه شده بود مقایسه کنند، تایید خواهند کرد که متن کنونی بهتر است.
-دونالد ترامپ، رییس‌جمهوری آمریکا، پیش‌تر رهبران جدید ایران را «بسیار باهوش» توصیف کرده بود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245946
-
-<div align="center"><video src="files/post_245946_VahidOOnLine_245946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_245946_VahidOOnLine_245946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانیان ساکن هانوفر سه‌شنبه ۲۶ خرداد در گردهمایی‌ای به مناسبت زادروز جاویدنام مجیدرضا رهنورد، به اعدام‌ها در ایران اعتراض کرده و از شاهزاده رضا پهلوی حمایت کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
