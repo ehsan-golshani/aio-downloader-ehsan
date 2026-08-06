@@ -1,8 +1,188 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/15 01:39
+📅 آخرین بروزرسانی: 1405/05/15 13:04
 
 ---
+
+## tasiyanc — post 8968
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر 🖤
+</div>
+
+## tasiyanc — post 8966
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+سرور  سرعتی پرمیوم ⚡️
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید⛓
+
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پنالتی راحترین بازی پولساز ⚠️
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید راحتو سریع برنده شو👌🏼
+💖 مرجع بازی های روز دنیا در ‌پلتفرم جهانی بت اینجا ⭐
+</div>
+
+## tasiyanc — post 8964
+
+<div align="center"><video src="files/post_8964_tasiyanc_8964.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8964_tasiyanc_8964.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ آقاآآ این بازی #پنالتی چقدر خفنه⚽
+
+🟢 بازی خیلی حرفه ای و‌ #پولساز پنالتی فقط‌ پلتفرم جهانی و معتبر #بت_اینجا
+
+✊همین الان ویدیو #آموزش پنالتی زدن ‌رو ببین و با شارژ اضافی 🤩🤩 درصدی که سایت بهت میده.
+
+💖 حتما ویدیو #آموزش رو ببینید
+💻لینک سایت بازی:
+💻 betinja.bet
+💻 betinja.bet
+🌐 کانال بونوس های رایگان r13
+@betinjabet
+</div>
+
+## tasiyanc — post 8963
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated Vip 👑 ━━━╮
+
+vless://a34b5e88-cf0d-4c01-8199-2d1002d3c787@95.85.229.112:443?security=reality&encryption=none&pbk=HKpd1sbrhBds8SJSL0d22MAq_QyTR6EP6y5b5DYol3U&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=www.wikihow.com#%F0%9F%87%B8%F0%9F%87%AA%40TASIYANC%F0%9F%94%A5
+
+ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@141.98.101.178:443#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%94%A5
+
+vless://52b71b75-4b77-4cec-990b-046ec1938e1f@67.159.56.57:443?security=reality&encryption=none&pbk=j5qmR8E9er-0n5zZbK6s_SdvYm-tYlraXVYm49ArWS8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=uk.bvps.cloud&sid=60debb3ab744d8ce#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%92%A5
+
+vless://29ca503d-e6b8-4509-b666-48133f450857@one-for-all.levikogjgfdd.ir:443?path=%2Ffdip&security=tls&encryption=none&insecure=0&host=learn00.evany.de5.net&type=ws&allowInsecure=0&sni=learn00.evany.de5.net#%F0%9F%87%AF%F0%9F%87%B5%40TASIYANC%F0%9F%94%A5
+
+⚡️Location 🇬🇧 🇸🇪 🇯🇵
+
+📱@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8962
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴مرندی از تیم مذاکره کننده:ایران هیچ قصدی برای مذاکره با رژیم ترامپ ندارد. هرگونه اقدام تجاوزکارانه با پاسخ کوبنده و قاطع جمهوری اسلامی مواجه خواهد شد
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8961
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دردناک است ، زندگی در مملکتی که مردمش ؛ تاوان نفهمیِ عده ای را میدهند که حاضر نیستند حقیقت را ببینند
+
+پروکسی | پروکسی | پروکسی
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8960
+
+<div align="center"><img src="files/post_8960_tasiyanc_8960.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو ۹۰٪ عکسهاش دستهاشو قایم کرده تا معلولیتش مشخص نباشه
+جاوید نام امیرحسین صفری که چند روز پیش اعدام شد
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8958
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم 
+🖤
+🇮🇷
+
+کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+۵ سرور سرعتی تست شده  لوکیشن ایتالیا 
+📍
+
+آموزش اتصال 
+⚡️
+
+اتصال امن برای همه
+
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 8957
+
+<div align="center"><img src="files/post_8957_tasiyanc_8957.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طومار جدید ترامپ:
+ـ‌ رهبران ایران واقعاً دورو و غیرقابل‌باورن! خودشون درخواست مذاکره دادن، اونا حتی التماس کردن.
+مذاکرات شروع شده و قرار هم هست به‌زودی ادامه پیدا کنه، ولی بعدش میان جلوی دوربین می‌گن اصلاً مذاکره‌ای در کار نیست و فقط با عمان در ارتباطن.
+بعد هم طبق معمول شروع می‌کنن به حرف زدن و میگن تنگه هرمز با قدرت دست خودشونه؛ در حالی که الان عملاً نیروی دریایی آمریکا کنترل کاملش رو در اختیار داره و چیزی که بعضیا اسمش رو گذاشتن “دیوار فولادی آمریکا” اونجاست. هیچ چیزی بدون اجازه ما به ایران نمی‌رسه و تا وقتی توافقی انجام نشه یا ایران کاملاً تسلیم نشه، هم چیزی وارد ایران نمی‌شه. چه ایران قبول بکنه چه نکنه، ما در حال مذاکره برای حل مشکلی هستیم که خودش دهه‌ها ایجادش کرده. موضوع خیلی ساده است؛ ایران هیچ‌وقت به سلاح هسته‌ای دست پیدا نخواهد کرد.
+
+👹@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بی بی نتانیاهو:
+
+اکثریت قاطع ایرانیان اسرائیل را تحسین می‌کنند.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8955
+
+<div align="center"><img src="files/post_8955_tasiyanc_8955.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اینفوگرافیک ( وایب) اسم 🆕
+قسمت NAME اسم خودتون رو بزنید!
+
+Prompt For only ChatGpt 🤖
+
+Create a trendy Pinterest-style aesthetic collage graphic, vertical format 9:16, dreamy and elegant design with soft pastel gradient background (blush pink, cream, and gold tones), decorative botanical elements (dried flowers, gold leaf accents), minimalist elegant Persian calligraphy-inspired typography.
+
+At the top, display the name “[NAME]” in large, elegant Persian script as the main title.
+
+Below it, arrange the content in a clean magazine-style layout divided into 4 soft-edged sections/cards, each with a small icon (a feather, a flame, a compass, a tree-root symbol), and Persian text (nice readable font, right-to-left) describing:
+
+1. وایب اسم (شخصیت و حس اسم)
+2. انرژی اسم
+3. ریشه و معنی اسم
+4. اصالت و خاستگاه اسم
+
+Add subtle sparkle/glitter overlay, warm soft lighting, high-resolution, ultra-realistic aesthetic photography style mixed with elegant flat-lay design elements, Instagram-worthy composition, no visible text errors, clean and balanced spacing.
+
+
+👹@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8954
 
@@ -111,151 +291,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 اتصال امن برای همه 🇮🇷
 
 👹 Join As @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 کانفیگ اختصاصی نامحدود اینجکتور📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
-
-سرور سرعتی‌ لوکیشن آلمان و ترکیه 📍
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال 🔸
-
-اتصال امن برای همه 🇮🇷
-
-📱 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پیشنهاد_ویژه ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
-دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
-</div>
-
-## tasiyanc — post 8942
-
-<div align="center"><video src="files/post_8942_tasiyanc_8942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8942_tasiyanc_8942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖱اگر #تندو تیز هستی اینو ببین 💵💰
-
-✊این بازی فقط سرعت عمل بالا میخواد😍
-
-🟢 ویدیو #آموزش بازی AVI رو براتون گذاشتم خیلی راحت با سرعت عمل بالا بدون ریسک کلی پول دراورد به همراه 🤩🤩% شارژ اضافی🔥
-
-💖 حتما ویدیو رو تا انتها ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان r12
-@betinjabet
-</div>
-
-## tasiyanc — post 8941
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مذاکرات بعد از ظهر دوشنبه به وقت واشنگتن، با توجه به اختلاف هفت و نیم ساعت، مبنا اگر ۲ بعد از ظهر باشد، ۹:۳۰ شب تهران، تا ۴ بعد از ظهر، ۱۱:۳۰ شب تهران خواهد بود.
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8940
-
-<div align="center"><video src="files/post_8940_tasiyanc_8940.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8940_tasiyanc_8940.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👨‍💼ترامپ درباره ایران:
-
-ما حمله‌ای را آماده کرده بودیم که بزرگترین حمله از زمان جنگ جهانی دوم می‌بود.
-این برای آن‌ها فاجعه‌بار می‌بود و آن‌ها نمی‌خواستند که ما این کار را انجام دهیم.
-راستش عربستان سعودی هم نمی‌خواست این اتفاق بیفتد. آن‌ها فکر می‌کردند که یک توافق در شرف وقوع است.
-👹 @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8939
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 3 August, روز جهانیِ عشق اوله 
-😞
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8938
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت نتتون بگید؟
-</div>
-
-## tasiyanc — post 8937
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated ⚡️ ━━━╮
-
-vless://70df38ff-5a22-4ffc-a3f9-1725515e0ea5@205.237.109.211:448?security=reality&encryption=none&pbk=IuB1jsALd-wN_8jRTGxVLBbVG5eSxNbOXjvFyZlm3UU&headerType=none&fp=chrome&type=tcp&sni=www.samsung.com&sid=113241ad01e99a2d#GB%20%20%F0%9F%87%AC%F0%9F%87%A7%20%40Tasiyanc
-
-vless://7216b4e8-e935-4d68-b959-73d145accdee@154.222.9.240:443?security=reality&encryption=none&pbk=ISa-DZOI4LRRb9DHMFYm5oFqBXDjYzz0hVWUfWvzLmo&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=8d3293f0066e129a#DE%20%40Tasiyanc%20%E2%9A%A1
-
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%F0%9F%87%B9%F0%9F%87%B7%20%40Tasiyanc%20%E2%9A%A1
-
-📍Location 🇹🇷 🇬🇧 🇩🇪
-
-⚡️ By  @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8936
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گزارش درگیری در تنگه هرمز - تایید یا رد نمیشه
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-
-👹@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8935
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیچ اختلالی در اینترنت نیست کانفیگای کانال با سرعت وصله
-</div>
-
-## tasiyanc — post 8934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 گزارش انفجار از سیریك
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود نپسترنت 📱
-
-سرور سرعتی تست شده مولتی لوکیشن 📍
-
-آموزش اتصال ⚡️
-
-اتصال امن برای همه
-
-✅ @TASIYANC
 </div>
 

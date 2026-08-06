@@ -1,8 +1,158 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/15 01:39
+📅 آخرین بروزرسانی: 1405/05/15 13:04
 
 ---
+
+## tasiyanc — post 8696
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام بر تمام عزیزان دلم
+
+کانال تاسیان همواره خدمتگزار شما عزیزان بوده و در تمامی لحظات، در کنار شما و همراهتان بوده است؛ درست مثل روزهای سخت قطعی اینترنت که با هم پشت سر گذاشتیم.
+​می‌خواستیم از این فرصت استفاده کنیم و از حمایت بی‌دریغ تک‌تک شما ممبرهای عزیز، چه در دوران قطعی و چه در شرایط فعلی، صمیمانه تشکر کنیم. حضور گرم و همراهی‌تان بزرگ‌ترین دلگرمی ماست.
+
+​همچنین به اطلاعتان می‌رسانیم مجموعه تاسیان مثل قبل با قدرت به فعالیت ادامه خواهد داد و علاوه بر کانفیگ‌های رایگان، از این به بعد مطالب و محتواهای کاربردی، آموزشی، هوش مصنوعی، اخبار و موارد جذاب دیگر را هم در کانال قرار خواهیم داد؛ امیدواریم با حمایت‌های همیشگی‌تان ما را همراهی کنید.
+
+​برای دسترسی به سایر بخش‌ها و حمایت بیشتر از مجموعه، حتماً به زیرمجموعه‌های ما هم سر بزنید:
+@TasiyanProxy
+@TasiyanInfo
+
+امیدوارم روز های خوبی همواره شاد و خوب در انتظار تمام هموطنان عزیزم باشد 💖 عاشقتونم 💋
+</div>
+
+## tasiyanc — post 8695
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب هم خاورمیانه آرومه
+</div>
+
+## tasiyanc — post 8694
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال ۱۴ اسرائیل:
+
+ترامپ دستور داد که تمام حملات علیه مواضع جمهوری اسلامی بطور موقت لغو شود
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8693
+
+<div align="center"><video src="files/post_8693_tasiyanc_8693.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8693_tasiyanc_8693.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺ویدیویی دیده نشده از ورود محمدرضا شاه و ملکه فرح پهلوی به آمریکا و استقبال از او در زمان ریاست جمهوری جان اف کندی
+
+@TASIYANC 💠
+</div>
+
+## tasiyanc — post 8692
+
+<div align="center"><video src="files/post_8692_tasiyanc_8692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8692_tasiyanc_8692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺صحبت های شگفت‌انگیز پدر بمب اتم «رابرت اوپنهایمر» ...
+اکنون من خود مرگ شده ام .... نابودگر جهان!
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8691
+
+<div align="center"><img src="files/post_8691_tasiyanc_8691.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه عکسیه که چند روزه از اعتراضات دی ماه وایرال شده، پیکر بی جان یه پسر جوون افتاده وسط خیابون و خون ازش سرازیر شده.
+
+این عکس مربوط به جاویدنام علی احمدیه که فقط ۱۴ سال سن داشت و خرج خواهر معلولش رو میداد.
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8690
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چخبرا ، امتحانات چطور دادید؟
+</div>
+
+## tasiyanc — post 8689
+
+<div align="center"><img src="files/post_8689_tasiyanc_8689.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢 فعالسازی VOLTE با کاربرد های عالی
+📰همونطور که میدونید زمانی که گوشیتون زنگ میخوره اتصال اینترنتتون به کلی قطع میشه و اگه درحال استفاده از اپلیکیشنی باشید که نیاز به اینترنت داشته باشه کارتون مختل میشه.
+
+📰با فعال کردن VoLTE تماس‌هاتون بر بستر LTE فراهم میشه که نه‌ تنها باعث سوییچ شبکه و قطع اتصال اینترنت نخواهد شد بلکه مزایای فراوانی از جمله داشتن صدای شفاف و HD هم به ارمغان میاره!
+
+🛜 نحوه فعالسازی در اپراتور همراه اول :
+
+• اول از همه لازمه کد دستوری #71*10* رو شماره گیری و بعد داخل تنظیمات گوشیتون کلمه VOLTE رو سرچ کنید ؛ یه سری اطلاعات باید وارد بشه که توی هر برند موبایلی با برند دیگه متفاوته ؛ پس بزن روی ″این لینک″ و بر اساس مارک تلفن همراهت تنظیمات رو اعمال کن.
+‌
+🛜 نحوه فعالسازی در اپراتور ایرانسل :
+
+• تو اپراتور ایرنسل نیازی نیست کار خاصی انجام بدید ؛ فقط باید دقت داشته باشید که آخرین سیستم عامل اندروید روی گوشیتون نصب باشه و گوشیتون هم از VOLTE پشتیبانی کنه ؛ که اگه وارد ″این لینک″ بشید هم میتونید گوشی های واجد شرایط رو ببینید هم نحوه فعالسازیش ؛
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱WG tunnel🕹 iOS WG
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8684
+
+<div align="center"><img src="files/post_8684_tasiyanc_8684.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رد پای هواپیمای Dragon Lady در آسمان ایران ⚠️
+
+«دراگون لیدی» کابوس آسمونه؛ اسم مستعار Lockheed U-2 که بالای ۲۰ کیلومتر پرواز میکنه و با دوربین‌های فوق دقیق هر تحرکی رو ثبت میکنه. کنارش معمولاً Boeing RC-135 Rivet Joint میاد؛ یکی تصویر میگیره، یکی شنود میکنه. خلبانش لباس شبیه فضانوردها میپوشه و هر وقت این دوتا کنار هم دیده میشن یعنی مأموریت اطلاعاتی جدیه.
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8682
+
+<div align="center"><img src="files/post_8682_tasiyanc_8682.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•پرامپت اختصاصی تاسیان 👑
+
+•عکساتو زیباتر کن 💖
+•آموزش استفاده 🤖🤖
+
+
+🔺دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خیلیییییی گرمهههههه
+</div>
 
 ## tasiyanc — post 8679
 
@@ -72,116 +222,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 انفجار در امیدیه - تایید میشه\نمیشه
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8670
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 بهبهان صدای انفجاررررررر
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حمله پهپادی سپاه به مواضع کردها در اربیل
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8666
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸پرزیدنت دونالد جی ترامپ :
-
-ایرانیا ممکنه تسلیم بشن یا هم بخوان برن تو تاسیسات عمیق زیر زمینی پنهان بشن
-این ایرانیا غار های خیلی عمیقی دارن برای پنهان شدن.
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بی بی :
-
-چند هفته پیش، یکی از همکاران ما با یک متخصص روسی ملاقات کرد. آیا می‌دانید او ما را چگونه توصیف کرد؟ او گفت: «اسرائیل یک قدرت جهانی کوچک است.» این درست است.
-
-ما به اندازه چین نیستیم. ما به اندازه ایالات متحده نیستیم. ما به اندازه روسیه نیستیم.
-
-اما او ما را یک قدرت منطقه‌ای نخواند، بلکه ما را یک قدرت جهانی نامید. در برخی از زمینه‌ها، این درست است.
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 مقر حوثی ها در جزیره کمران توسط عربستان بمباران شد
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8662
-
-<div align="center"><img src="files/post_8662_tasiyanc_8662.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تکمیلی
-نیروی هوایی عربستان بندر الحدید مواضع حوثی هارو بمبارون کرد
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8661
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت دونالد ترامپ :
-
-ایران، باورنکردنیه، شروع کرد به شلیک کردن به همه‌جای خاورمیانه.
-اگه سلاح هسته‌ای داشت، حتما ازش استفاده میکرد.
-
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8660
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این وسط ارتش عربستان سعودی داره تقه میزنه به یمن 😂
-</div>
-
-## tasiyanc — post 8659
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹ویدیو دیده نشده از شخم زدن بغداد توسط عباس دوران خلبان ایرانی وقتی صدام اعلام کرد که هر کلاغ ایرانی بتونه به بغداد حمله کنه بودجه یک سال نیروی هوایی را پاداش می دهم... ساعتی از این خبر نگذشته بود که دلیر مردان ایران اهداف مهمی را در عمق خاک عراق مورد هدف…
-</div>
-
-## tasiyanc — post 8658
-
-<div align="center"><video src="files/post_8658_tasiyanc_8658.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8658_tasiyanc_8658.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹ویدیو دیده نشده از شخم زدن بغداد توسط عباس دوران خلبان ایرانی
-وقتی صدام اعلام کرد که هر کلاغ ایرانی بتونه به بغداد حمله کنه بودجه یک سال
-نیروی هوایی را پاداش می دهم... ساعتی از این خبر نگذشته بود که دلیر مردان ایران اهداف مهمی را در عمق خاک عراق مورد هدف قرار دادند در این عملیات خلبانان ایرانی موفق شدند پالایشگاه الدوره را با بمب 82
-بمباران کنند
-@TASIYANC 💠
-</div>
-
-## tasiyanc — post 8657
-
-## tasiyanc — post 8656
-
-<div align="center"><video src="files/post_8656_tasiyanc_8656.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8656_tasiyanc_8656.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یاد کنیم از رقص F35 ارتش اسرائیل در آسمان کرج مربوط به جنگ ۳۹ روزه
-
-@TASIYANC 💠
 </div>
 

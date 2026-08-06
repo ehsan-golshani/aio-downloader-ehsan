@@ -1,8 +1,115 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/15 01:39
+📅 آخرین بروزرسانی: 1405/05/15 13:04
 
 ---
+
+## tasiyanc — post 6801
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴🆕 حملات سایبری به زیرساخت های تمام بانکای کشور کارت و خدمات اغلب بانک ها از دسترس خارج شده است
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز فروش به احتمال زیاد باز شه ، آیپی ثابتن سرورا 🦦
+</div>
+
+## tasiyanc — post 6798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بخاطر نمک ریختنتون امروز کلا npv نمیزارم 😍
+فقط در صورتی میزارم ک ریکشن قلب بالای ۲۰۰ تا باشه رو پست
+</div>
+
+## tasiyanc — post 6793
+
+<div align="center"><video src="files/post_6793_tasiyanc_6793.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6793_tasiyanc_6793.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واقعاً تأسف می‌خورم به‌حال کسانی که هنوز با تاسیان آشنا نشدند! 😌
+#تست_سرعت
+</div>
+
+## tasiyanc — post 6792
+
+<div align="center"><video src="files/post_6792_tasiyanc_6792.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6792_tasiyanc_6792.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩ایلان ماسک اولین تریلیونر جهان شد!
+
+سهام SPCX قراره با قیمت 135 دلار معامله بشه و ارزش اسپیس‌ ایکس رو به حدود 1.8 تریلیون دلار برسونه!
+
+@Tasiyanc ✅ | تاسیان
+</div>
+
+## tasiyanc — post 6791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩 @Tasiyanc ✅ | تاسیان
+</div>
+
+## tasiyanc — post 6790
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩
+
+@Tasiyanc ✅ | تاسیان
+</div>
+
+## tasiyanc — post 6789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریکشن نزنید یه موقع زشته
+</div>
+
+## tasiyanc — post 6788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6786
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه وایر میزارم بخوابم
+</div>
+
+## tasiyanc — post 6785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP⚡ APEX ⛓️.npvt
+</div>
 
 ## tasiyanc — post 6784
 
@@ -82,117 +189,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡ NEXUS 🪐.npvt
-</div>
-
-## tasiyanc — post 6774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6773
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VİP - ⛓️OMEGA ⚡.npvt
-</div>
-
-## tasiyanc — post 6770
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داداش بقران بهترین‌چنلی هستی دمت‌‌گرم که بفکری سرعتتتش‌موشکهه🥲😭😭😭
-</div>
-
-## tasiyanc — post 6769
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با این شرایطی که هرشب داریم صدای بلند توافق رو میشنویم احتمال قطعی نت بشدت زیاده
-برای‌همین براتون کانفینگ‌اختصاصی شارژ کردیم داخل بات  که هر فرد  کانفینگ‌ خودشک اختصاصی بگیره❤️
-
-دیگه پیشگیری بهتر از درمانه بوس
-
-دریافت کانفنینگ‌اختصاصی〽️
-</div>
-
-## tasiyanc — post 6768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شرمنده ادمین تبادل پستهارو اشتباهی زده ❤️
-</div>
-
-## tasiyanc — post 6762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاسیان ( خانواده بزرگ من) ❤️
-</div>
-
-## tasiyanc — post 6732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VİP - ⛓️OMEGA ⚡.npvt
-</div>
-
-## tasiyanc — post 6731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6730
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️وزیر انرژی آمریکا:
-
-🔻  ممکن است به عنوان بخشی از امتیازاتی که ما ارائه می‌دهیم، بخشی از تحریم‌های ایران لغو شود
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ايران از زمان قاجار تا قبل پزشكيان ۵ تا جنگ داشته از پزشكيان به بعد شده يه روز در ميون
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6728
-
-<div align="center"><img src="files/post_6728_tasiyanc_6728.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیچی سلامتی هنوز آتش بسه
-@Tasiyanc ✅
 </div>
 
