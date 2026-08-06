@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/15 13:04
+📅 آخرین بروزرسانی: 1405/05/15 15:25
 
 ---
+
+## tasiyanc — post 8011
+
+<div align="center"><img src="files/post_8011_tasiyanc_8011.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ارتش اسراییل تقه محکمی به کفر تبنیت جنوب لبنان زد
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8010
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قضیه داره پیچیده میشه
+🚨حمله موشکی حوثی ها به فرودگاه بین‌المللی «ابها» در جنوب عربستان
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8007
+
+<div align="center"><video src="files/post_8007_tasiyanc_8007.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8007_tasiyanc_8007.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشماتون بریزه ، آمریکا دیشب اینجوری با قایق انتحاری عملیات انجام داده :
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8005
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+🔻امشب ما مهمانی بسیار ویژه خواهیم داشت که در حملات ما به ایران شرکت خواهد داشت.
+فیکه خبر
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8004
 
@@ -223,52 +262,5 @@ A true friend of the Iranian people, may your soul rest in peace. You will alway
 
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7976
-
-<div align="center"><img src="files/post_7976_tasiyanc_7976.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺فروش ویژه پکیج نامحدود ، بدون محدودیت کاربر ، جهت ثبت سفارش پیام بدید
-
-
-👉@StarTasiyan 
-⭐️
-</div>
-
-## tasiyanc — post 7968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-سه سرور سرعتی‌ تست شده💥
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال ⛓
-
-مناسب دانلود ⬇️ وب‌گردی 🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7967
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 بیانیه صفحه رسمی لیندسی گراهام: او بر اثر یه بیماری ناگهانی و کوتاه مدت درگذشت! تسلیت میگیم به خونوادش. @Tasiyanproxy ✅
-</div>
-
-## tasiyanc — post 7966
-
-<div align="center"><img src="files/post_7966_tasiyanc_7966.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤 در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره…
 </div>
 
