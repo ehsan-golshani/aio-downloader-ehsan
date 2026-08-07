@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/17 02:29
+📅 آخرین بروزرسانی: 1405/05/17 03:22
 
 ---
+
+## tasiyanc — post 5856
+
+<div align="center"><img src="files/post_5856_tasiyanc_5856.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشتی همین الان وصل کردم ببین سرعت دانلود
+</div>
 
 ## tasiyanc — post 5855
 
@@ -154,25 +162,6 @@
  3 سرور  سرعتی🚀
 
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5815
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-″رمز @Tasiyanc ″
-
-📱 4 سرور  سرعتی  اختصاصی تاسیان  📱
-
-✅ تست شده روی همه اپراتورا ✅ 
-
-🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
 
 دانلود  NPV tunnel  🌐
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/17 02:29
+📅 آخرین بروزرسانی: 1405/05/17 03:22
 
 ---
+
+## tasiyanc — post 8941
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 مذاکرات بعد از ظهر دوشنبه به وقت واشنگتن، با توجه به اختلاف هفت و نیم ساعت، مبنا اگر ۲ بعد از ظهر باشد، ۹:۳۰ شب تهران، تا ۴ بعد از ظهر، ۱۱:۳۰ شب تهران خواهد بود.
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8940
 
@@ -219,20 +227,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 پروکسی | پروکسی | پروکسی
 پروکسی | پروکسی | پروکسی
 پروکسی | پروکسی | پروکسی
-</div>
-
-## tasiyanc — post 8918
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🔐 V2RAY CONFIG🔐 ━━━╮
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@ronaldo14.fordnsdirect.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%F0%9F%87%AE%F0%9F%87%B9%E2%9A%A1%20%40Tasiyanc%20%D8%B3%D8%B1%D8%B9%D8%AA%DB%8C
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@151.115.165.172:8880?mode=gun&security=none&encryption=none&type=grpc#%F0%9F%87%AE%F0%9F%87%B9%20%40Tasiyanc%2004
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca8.directdnsai.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40Tasiyanc%20%F0%9F%87%AE%F0%9F%87%B9%F0%9F%94%B1%F0%9F%8F%9D%EF%B8%8F
-﻿
-⚡️ Unlimated Italy• By 💙 @TASIYANC ✅
-╰━━━━━━━━━━━━━━━━━━╯
 </div>
 
