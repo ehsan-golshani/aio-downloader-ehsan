@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/16 23:01
+📅 آخرین بروزرسانی: 1405/05/16 23:50
 
 ---
+
+## tasiyanc — post 6487
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست جدید ترامپ: به من همین الان توسط ارتش بزرگ‌مون اطلاع داده شده که دیشب ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما رو هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردن. دو خلبان در این حادثه حضور داشتن و هر دو سالم و بدون جراحت هستن. با این حال، آمریکا…
+</div>
 
 ## tasiyanc — post 6486
 
@@ -214,11 +220,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وقت الکی نزارید قربونتون برم من
-</div>
-
-## tasiyanc — post 6464
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رباتی ک تون الکی میده اسکمه پرداختی نداره
 </div>
 

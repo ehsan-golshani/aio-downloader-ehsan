@@ -1,8 +1,98 @@
 # آرشیو کانال VahidOOnLine - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/05/16 22:59
+📅 آخرین بروزرسانی: 1405/05/16 23:47
 
 ---
+
+## VahidOOnLine — post 251698
+
+<div align="center"><video src="files/post_251698_VahidOOnLine_251698.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251698_VahidOOnLine_251698.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود فرهیخته، معلم زندانی و فعال صنفی، برای هفتمین بار از زندان مرکزی کرج به مکانی نامعلوم منتقل شده است. شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران گزارش داد این انتقال در حالی انجام شده که او سه روز پیش، پس از ۲۰ روز حبس در سلول انفرادی، به بند عمومی بازگشته بود.
+
+گفت‌‌وگو با اسماعیل عبدی، فعال صنفی معلمان
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251697
+
+<div align="center"><video src="files/post_251697_VahidOOnLine_251697.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251697_VahidOOnLine_251697.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️مسعود پزشکیان، روز پنجشنبه اول مهر ماه، در مراسمی رسمی در تهران، از علی فالح الزیدی، نخست وزیر عراق استقبال کرد.
+سخنگوی دولت عراق، پیشتر اعلام کرده بود که الزایدی به دعوت پزشکیان و برای گفتگو درباره «همکاری‌های گازی و بررسی تحولات منطقه‌ای در راستای منافع ملی عراق» به تهران سفر می‌کند.
+
+فالح الزیدی، روز ۲۳ تیرماه نیز در سفری رسمی به واشنگتن با دونالد ترامپ، رئیس جمهوری آمریکا دیدار کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251696
+
+<div align="center"><img src="files/post_251696_VahidOOnLine_251696.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ابوالفضل ابوترابی، نماینده مجلس، گفت دولت مسعود پزشکیان با ارسال ۲۸ نامه به مجتبی خامنه‌ای، رهبر جمهوری اسلامی، برای مذاکره اصرار کرده و او را «تهدید» کرده است.
+ابوترابی گفت قالیباف و پزشکیان در «تله مذاکره» افتادند و افزود: «باید به عقل هر کسی که الان حرف از مذاکره می‌زند، شک کرد.»
+او همچنین گفت اگر جمهوری اسلامی «دو هفته دیگر جنگ را تحمل می‌کرد»، آمریکا و دونالد ترامپ، رییس‌جمهوری آمریکا، پیش از آغاز مذاکرات «همه خواسته‌های» جمهوری اسلامی را می‌پذیرفتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251695
+
+<div align="center"><img src="files/post_251695_VahidOOnLine_251695.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️سخنگوی ارتش: از فرصت آتش‌بس برای ارتقای توان نظامی استفاده کردیم
+
+♦️محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی، روز پنجشنبه اول مرداد ماه اعلام کرد حملات تلافی‌جویانه نیروهای مسلح جمهوری اسلامی به کشورهای منطقه و شناورهای حاضر در خلیج فاس تا زمانی که حملات آمریکا علیه زیرساخت‌ها و مناطق ساحلی ایران ادامه داشته باشد، ادامه خواهد یافت.
+
+او با  بیان آنکه ارتش «از فرصت آتش‌بس برای ارتقای توان رزم نهایت استفاده را برد» اعلام کرد، برای «هر سناریویی» آمادگی‌های لازم ایجاد شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251694
+
+<div align="center"><img src="files/post_251694_VahidOOnLine_251694.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شهردار رامات گان در حومه تل‌آویو، اعلام کرد این شهر به دلیل افزایش نگرانی‌ها از احتمال ازسرگیری حملات موشکی جمهوری اسلامی به اسرائیل، پناهگاه‌های عمومی را بازگشایی می‌کند.
+او در پیامی در فیس‌بوک نوشت ارزیابی‌ها نشان می‌دهد احتمال حملات موشکی جمهوری اسلامی در پایان هفته افزایش یافته است.
+شهردار رامات گان تاکید کرد این تصمیم «از روی احتیاط» گرفته شده و بر اساس هشدار ارتش اسرائیل نیست.
+رامات گان از شهرهایی است که در دورهای پیشین درگیری، بیشترین آسیب را از حملات موشکی جمهوری اسلامی دیده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251693
+
+<div align="center"><img src="files/post_251693_VahidOOnLine_251693.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️مارکو روبیو، وزیر خارجه آمریکا، روز پنج‌شنبه اول مهر ماه گفت تهران خواهان مذاکره با واشنگتن است.
+
+روبیو در جمع خبرنگاران در حاشیه نشست آسه‌آن در فلیپین گفت: «ایران مستقیم و غیرمستقیم به ما التماس می‌کند: بیایید توافق کنیم، بیایید صحبت کنیم.»
+
+روبیو ادامه داد: «ظاهرا آنها هنوز به خود نیامده‌اند و رئیس‌جمهوری در حال حاضر فایده زیادی در پاسخ به درخواست‌های آنها نمی‌بیند، زیرا صادقانه بگویم، ایران به‌وضوح آماده توافق نیست، دست‌کم توافقی که حاضر باشد به آن پایبند بماند.»
+
+روبیو همچنین در واکنش به پیام عراقچی در شبکه اکس مبنی بر آنکه منطق دفاعی جمهوری اسلامی «چشم در برابر چشم» است، اضافه کرد: «سیاست رئیس‌جمهوری آمریکا «سر در برابر چشم» است؛ یعنی صادقانه بگویم، قرار است چنین باشد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251692
 
@@ -199,92 +289,6 @@
 
 گزارش علیرضا محبی، خبرنگار ایران‌اینترنشنال
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251678
-
-<div align="center"><video src="files/post_251678_VahidOOnLine_251678.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251678_VahidOOnLine_251678.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی فالح الزیدی، نخست‌وزیر عراق، روز پنجشنبه راهی تهران می‌شود و این در حالی است که به گفته منابع آگاه، بغداد تلاش دارد با بهره‌گیری از روابط متوازن خود با تهران و واشینگتن، نقش میانجی را ایفا کند.
-
-تروسکه صادقی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251677
-
-<div align="center"><video src="files/post_251677_VahidOOnLine_251677.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251677_VahidOOnLine_251677.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-الی کوهن، وزیر انرژی و زیرساخت‌های اسرائیل در گفت‌وگو با رادیو ۱۰۳ اف‌ام گفت اسرائیل برای هر سناریوی احتمالی آماده است و هشدار داد در صورت حمله جمهوری اسلامی به اسرائیل، با پاسخی قاطع و قدرتمند روبه‌رو خواهد شد.
-
-گفت‌وگو با بابک اسحاقی، خبرنگار ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251676
-
-<div align="center"><video src="files/post_251676_VahidOOnLine_251676.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251676_VahidOOnLine_251676.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شبکه العربیه گزارش داد پاکستان به حوثی‌های یمن هشدار داده که هرگونه حمله به کشتی‌های پاکستانی در تنگه باب‌المندب با پاسخ نظامی ارتش این کشور روبه‌رو خواهد شد.
-
-جواد همدانی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251675
-
-<div align="center"><video src="files/post_251675_VahidOOnLine_251675.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251675_VahidOOnLine_251675.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روح‌الله رحیم‌پور، تحلیلگر سیاسی، به ایران‌اینترنشنال گفت استفاده آمریکا از بمب‌افکن دوربرد بی-۱ در حمله به مواضع سپاه پاسداران، هشداری به جمهوری اسلامی است که در صورت تداوم تنش، حملات آمریکا می‌تواند شدیدتر و با خسارت‌های بیشتری همراه باشد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251674
-
-<div align="center"><img src="files/post_251674_VahidOOnLine_251674.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری تسنیم، وابسته به سپاه پاسداران، صبح پنج‌شنبه اول مرداد گزارش داد صدای چند انفجار در محدوده شهرستان کنارک در استان سیستان و بلوچستان شنیده شده است.
-
-بر اساس این گزارش، تاکنون جزئیات رسمی درباره منشا این انفجارها یا میزان خسارات احتمالی منتشر نشده و بررسی‌های میدانی و کارشناسی در این زمینه ادامه دارد.
-
-تسنیم افزود در حال پیگیری اطلاعات از مراجع ذی‌ربط است و اخبار تکمیلی پس از اعلام جزئیات رسمی منتشر خواهد شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️مشاجره لفظی نمایندگان مجلس شواری اسلامی در برنامه زنده: «تنگه هرمز ارث باباته؟»
-
-♦️ویدیویی از درگیری شدید لفظی میان امیرحسین ثابتی و محمدمهدی شهریاری، دو عضو مجلس شورای اسلامی، در میان کاربران شبکه‌های اجتماعی با بازخورد گسترده‌ای روبه‌رو شده است.
-
-در این مناظره تلویزیونی که از آنتن زنده «همشری» پخش شده است، جدال دو طرف درباره مدیریت جمهوری اسلامی در تنگه هرمز به مشاجره لفظی شدید و استفاده از الفاظ عامیانه منجر شد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

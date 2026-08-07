@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/05/16 23:00
+📅 آخرین بروزرسانی: 1405/05/16 23:48
 
 ---
+
+## ProxyMTProto — post 47655
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47654
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.21.188
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c70617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47653
 
@@ -166,24 +184,6 @@ Secret: 886ace76f7a9a1e3219537fe5dfd04d5
 Server: mt.nowaboost.com
 Port: 443
 Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47635
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: For Iran
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47634
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dns.vdl.lat
-Port: 853
-Secret: ee534adcf23a16f425cbae129c4cb574cb6164732e78352e7275
 @ProxyMTProto
 </div>
 

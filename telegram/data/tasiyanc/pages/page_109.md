@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/05/16 23:01
+📅 آخرین بروزرسانی: 1405/05/16 23:50
 
 ---
+
+## tasiyanc — post 5717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه جور نتارو باز کردن دوباره مردم میرن کانفیگ میخرن ، تف به شرفتون
+</div>
 
 ## tasiyanc — post 5715
 
@@ -186,13 +192,5 @@ vless://6202b230-417c-4d8e-b624-0f71afa9c75d@91.193.58.140:443?path=%2F%3Fhttps%
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5693
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با بازگشت اینترنت بین المللی، جهت اتصالِ راحت‌ شما براتون یک فایل نپسترنت با ۶ تا کانفیگ آماده کردیم ❤️
-
-دریافت کانفیگ نپسترنت ( کاملا رایگان )
 </div>
 

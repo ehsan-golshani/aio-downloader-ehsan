@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/16 23:01
+📅 آخرین بروزرسانی: 1405/05/16 23:50
 
 ---
+
+## tasiyanc — post 7822
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار و پروکسی های پرسرعتمون 👇
+https://t.me/+v0wRP5SGNrg5MThk
+
+دریافت کانفیگ مخصوص اینترنت ملی 👆
+</div>
 
 ## tasiyanc — post 7821
 
@@ -179,12 +188,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 اتصال امن برای همه 🇮🇷
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر هارو تو چنل پروکسی دنبال کنین
-@TasiyanProxy
 </div>
 
