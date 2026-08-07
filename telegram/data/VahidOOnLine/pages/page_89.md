@@ -1,8 +1,59 @@
 # آرشیو کانال VahidOOnLine - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/05/16 08:56
+📅 آخرین بروزرسانی: 1405/05/16 10:28
 
 ---
+
+## VahidOOnLine — post 251819
+
+<div align="center"><img src="files/post_251819_VahidOOnLine_251819.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری فارس گزارش داد که دقایقی پیش صدای چند انفجار در حوالی امیدیه در خوزستان شنیده شده است.
+
+جزییات بیشتری درباره علت یا محل دقیق این انفجارها منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251818
+
+<div align="center"><img src="files/post_251818_VahidOOnLine_251818.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صدا و سیمای جمهوری اسلامی گزارش داد که صدای انفجار در غرب بندرعباس شنیده شده است.
+
+جزییات بیشتری درباره علت یا محل دقیق این انفجار منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251817
+
+<div align="center"><img src="files/post_251817_VahidOOnLine_251817.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️صداوسیما از شنیده شدن صدای انفجار در غرب بندرعباس و حوالی امیدیه خبر داد.
+پیش از این، فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرد نیروهای آمریکایی سیزدهمین شب متوالی حملات خود علیه اهداف نظامی در ایران را آغاز کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251816
+
+<div align="center"><img src="files/post_251816_VahidOOnLine_251816.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارتش آمریکا اعلام کرد نیروهای این کشور ساعت ۲:۱۵ بامداد به وقت ایران (۱۸:۴۵ به وقت شرق آمریکا)، دور تازه‌ای از حملات به اهداف نظامی جمهوری اسلامی را آغاز کردند.
+
+در این بیانیه آمده است که این حملات سیزدهمین شب متوالی عملیات علیه اهداف جمهوری اسلامی است و با هدف پاسخگو کردن جمهوری اسلامی و کاهش تهدیدهای سپاه پاسداران علیه کشتیرانی تجاری انجام می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251815
 
@@ -208,54 +259,6 @@
 
 به نوشته این روزنامه، سرعت بازسازی این تاسیسات نگرانی‌هایی را درباره میزان اثربخشی کارزار هوایی آمریکا و اسرائیل علیه جمهوری اسلامی ایجاد کرده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251799
-
-<div align="center"><img src="files/post_251799_VahidOOnLine_251799.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری تسنیم، وابسته به سپاه پاسداران، گزارش داد ارتش آمریکا ساعت ۲۳:۵۰ شامگاه پنج‌شنبه با شلیک دو موشک محدوده روستای مُسن در جزیره قشم را هدف قرار داد.
-
-این خبرگزاری تاکنون جزئیاتی درباره میزان خسارات یا تلفات احتمالی این حمله منتشر نکرده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ستاد کل ارتش کویت اعلام کرد سامانه‌های پدافند هوایی این کشور در حال رهگیری موشک‌ها و پهپادهای «متخاصم» هستند که به گفته این نهاد، در پی «تجاوز ایران» به سمت کویت شلیک شده‌اند.
-بر اساس ویدیویی که خبرگزاری فرانسه منتشر کرد، همزمان با فعال شدن سامانه‌های دفاعی، نور انفجارها در آسمان شهر کویت دیده شده و صدای آژیر خطر نیز به صدا درآمده است.
-ارتش کویت تاکید کرده صداهای انفجار شنیده‌شده در سطح شهر، ناشی از عملکرد سامانه‌های پدافندی در مقابله با این حملات است.
-تا زمان انتشار این خبر، اطلاعاتی درباره میزان خسارات یا تلفات احتمالی منتشر نشده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251797
-
-<div align="center"><img src="files/post_251797_VahidOOnLine_251797.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️به گزارش خبرگزاری تسنیم، ساعت ۲۳:۵۰ دو فروند موشک در جریان حمله آمریکا به محدوده روستای مسن در جزیره قشم اصابت کرده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251796
-
-<div align="center"><img src="files/post_251796_VahidOOnLine_251796.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ابراهیم عزیزی، رئیس کمیسیون امنیت ملی مجلس شورای اسلامی، روز پنجشنبه دوم مردادماه در پیامی در شبکه اجتماعی اکس، در واکنش به موافقت بریتانیا با استفاده آمریکا از پایگاه‌هایش نوشت: «روزی که دیه‌گو گارسیا را مانند دیگر مستعمرات خود از دست بدهید، دور نیست.»
-عزیزی همچنین خطاب به بریتانیا نوشت: «بهتر است درباره شکنندگی مرزهای خود تامل کنید و به این واقعیت توجه داشته باشید که توانایی‌های ایران بسیار فراتر از گزینه‌های نظامی است.»
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

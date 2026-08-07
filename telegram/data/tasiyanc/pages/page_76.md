@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/05/16 03:50
+📅 آخرین بروزرسانی: 1405/05/16 10:30
 
 ---
+
+## tasiyanc — post 6554
+
+<div align="center"><img src="files/post_6554_tasiyanc_6554.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون ورود B-52 به خاور میانه
+@Tasiyanproxy 
+✅
+</div>
+
+## tasiyanc — post 6553
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادامه اخبار در چنل پروکسی
+
+https://t.me/TasiyanProxy
+</div>
+
+## tasiyanc — post 6552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸
+🔴ترامپ:
+با بمب افکن های B_2 آنها را بسیار سخت هدف قرار خواهیم داد.
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6551
 
@@ -170,31 +198,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 لینک گپ تاسیان ❤️‍🔥
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6533
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[24]🚀♂️@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6532
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡موشک - GN 🌙.npvt
-</div>
-
-## tasiyanc — post 6531
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/16 03:50
+📅 آخرین بروزرسانی: 1405/05/16 10:30
 
 ---
+
+## tasiyanc — post 8753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی  ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙄 همه بت باز های حرفه ای دنبال 🔞 شکار این بونوس ها هستن
+✅لیگ‌جهانی والیبال رو میتونید از اینجا پیشبینی کنید
+👇کافیه یه سر بزنی اینجا خودت میفهمی چه خبره 💯
+</div>
+
+## tasiyanc — post 8751
+
+<div align="center"><img src="files/post_8751_tasiyanc_8751.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیش بینی اختصاصی لیگ جهانی #والیبال رو از دست ندید.
+
+اسلوونی Vs ترکیه
+ژاپن Vs چین
+
+🤔 یک سایت کامل برا حرفه ای ها
+
+⚠️هر افزایش شارژ مساوی 2️⃣1️⃣🔣 شارژ بیشتر بدون محدودیت☄️
+
+به همراه 🤩 🤩🔤 کش بک باخت همه روزه
+
+🆕 هر رشته ورزشی که بخوای اینجا هست:
+🌐 betinja.bet
+🌐 betinja.bet
+کانال بونوس های رایگان r6
+@betinjabet
+</div>
 
 ## tasiyanc — post 8750
 
@@ -177,36 +236,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 
 ✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8724
-
-<div align="center"><img src="files/post_8724_tasiyanc_8724.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹20 ابزار کاربردی عالی برای دانشجویان 😐
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8723
-
-<div align="center"><img src="files/post_8723_tasiyanc_8723.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قبل اینترنت آدما همدیگه رو اینجوری انفالو میکردن.. 😐
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8720
-
-<div align="center"><img src="files/post_8720_tasiyanc_8720.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹می‌دونستین همه دندونای دلفینایی که در مکان‌هایی به اسم "پارک دلفینها" برای سرگرمی مردم زندونی میشن، یکی‌یکی کشیده میشه و بعدش توی پارکا به مردم نمایش داده میشن.
-
-به این پارک ها نرید و تو آزار و شکنجشون شریک نشین!!!
-@TASIYANC ⭐️
 </div>
 

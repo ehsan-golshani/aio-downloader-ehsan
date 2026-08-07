@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/05/16 03:50
+📅 آخرین بروزرسانی: 1405/05/16 10:30
 
 ---
+
+## tasiyanc — post 7560
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️⁰⁷@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 7553
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+6سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال 
+⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
+
+
+ ✅@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7551
 
@@ -218,44 +246,5 @@ Password :  @Tasiyanc ❤️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇦🇪@Tasiyanc ⚡️.nm
-</div>
-
-## tasiyanc — post 7520
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 کانفیگ اختصاصی نت مود 🚀
-
-4 سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-دانلود برنامه 🕹
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7519
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-6سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-Password :  @Tasiyanc ❤️
-
- ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7518
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐😐😐😐 آلمان حذف شد
 </div>
 
