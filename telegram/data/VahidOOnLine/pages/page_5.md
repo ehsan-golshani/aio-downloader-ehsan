@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/17 00:39
+📅 آخرین بروزرسانی: 1405/05/17 01:36
 
 ---
+
+## VahidOOnLine — post 254087
+
+<div align="center"><video src="files/post_254087_VahidOOnLine_254087.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254087_VahidOOnLine_254087.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در ویدیویی که به ایران اینترنشنال فرستاد، گفت برای خرید روغن، ماست و کره مورد نیاز خود بیش از دو میلیون تومان پرداخت کرده است و کنایه زد: «خدا بده برکت»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254086
 
@@ -306,21 +319,6 @@ https://iranintl.
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مهم‌ترین خبرهای مرتبط با ایران در رسانه‌های جهان در ۲۴ ساعت گذشته، پنجشنبه ۱۵ مرداد ۱۴۰۵
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254039
-
-<div align="center"><img src="files/post_254039_VahidOOnLine_254039.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شبکه الحره به نقل از یک مقام آمریکایی گزارش داد واشینگتن هیچ توافقی درباره تنگه هرمز را که مستلزم دریافت مجوز، اخذ عوارض یا واگذاری کنترل تردد کشتی‌های تجاری به جمهوری اسلامی باشد، نخواهد پذیرفت.
-
-این مقام گفت هر مسیر موقت کشتیرانی باید بدون مجوز، هزینه یا هرگونه مانع برای عبور کشتی‌ها باشد و تاکید کرد تنگه هرمز یک آبراه بین‌المللی است و هیچ طرفی بر مسیرهای عبور آن کنترل ندارد.
-
-این اظهارات در حالی مطرح می‌شود که جمهوری اسلامی اعلام کرده در حال نهایی کردن چارچوبی دوجانبه با عمان است که بر اساس آن، تهران بر ورود کشتی‌ها به خلیج فارس نظارت خواهد کرد. به نوشته الحره، اختلاف میان واشینگتن و تهران بر سر نحوه مدیریت تردد کشتی‌ها همچنان یکی از موانع اصلی دستیابی به توافق برای بازگشایی کامل تنگه هرمز به شمار می‌رود.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

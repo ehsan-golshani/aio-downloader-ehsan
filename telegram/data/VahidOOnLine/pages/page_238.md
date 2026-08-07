@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 238
 
-📅 آخرین بروزرسانی: 1405/05/17 00:39
+📅 آخرین بروزرسانی: 1405/05/17 01:36
 
 ---
+
+## VahidOOnLine — post 248502
+
+<div align="center"><video src="files/post_248502_VahidOOnLine_248502.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248502_VahidOOnLine_248502.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده از یک مخاطب نشان می‌دهد در چارچوب هزینه و تمهیدات حکومت برای تشییع بقایای خامنه‌ای، مسیر اتوبان بابایی تهران با بلوک‌های بتنی محدود شده است. شهروندان از اختلال در فعالیت و زندگی خود گلایه کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248501
 
@@ -285,19 +298,6 @@
 ترامپ در سخنرانی خود در کوه راشمور در داکوتای جنوبی گفت: «در حالی به این سالگرد باشکوه نزدیک می‌شویم که می‌بینیم هویت آمریکایی ما بار دیگر هدف حمله قرار گرفته است.»
 او همچنین گفت: «یک نسل پس از آنکه در جنگ سرد بر تهدید کمونیسم غلبه کردیم، اکنون شاهد بازگشت تهدید کمونیسم در کشورمان هستیم.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248472
-
-<div align="center"><img src="files/post_248472_VahidOOnLine_248472.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی، در ایکس نوشت: «تنگه هرمز میدان نمایش نظامی قدرت‌های فرامنطقه‌ای نیست.»
-
-او همچنین تهدید کرد هرگونه «ماجراجویی نظامی» در این آبراه، با واکنش جمهوری اسلامی روبه‌رو خواهد شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

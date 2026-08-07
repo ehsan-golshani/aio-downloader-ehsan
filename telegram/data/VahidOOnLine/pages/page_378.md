@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 378
 
-📅 آخرین بروزرسانی: 1405/05/17 00:39
+📅 آخرین بروزرسانی: 1405/05/17 01:36
 
 ---
+
+## VahidOOnLine — post 244944
+
+<div align="center"><img src="files/post_244944_VahidOOnLine_244944.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، در مصاحبه با فاکس‌نیوز گفت جنگ تنها با تسلیم جمهوری اسلامی متوقف خواهد شد و افزود آمریکا هنوز با تمام قدرت به ایران حمله نکرده است.
+او تاکید کرد با وجود ادامه گفت‌وگوها با تهران، ترجیح می‌دهد آمریکا جزیره خارک را تصرف کند.
+ترامپ پیش‌تر در تروت سوشال نوشت ایالات متحده «امشب ایران را بسیار شدید هدف قرار خواهد داد» و بار دیگر مدعی شد بخش عمده توان دفاعی و تهاجمی جمهوری اسلامی از بین رفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244943
 
@@ -274,19 +287,6 @@
 
 این واکنش پس از آن مطرح شد که آمریکا دور جدیدی از حملات نظامی علیه اهدافی در ایران را آغاز کرد؛ اقدامی که واشنگتن آن را پاسخی به سرنگونی هلی‌کوپتر نظامی‌اش در خلیج فارس توصیف کرده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244900
-
-<div align="center"><video src="files/post_244900_VahidOOnLine_244900.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244900_VahidOOnLine_244900.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان‌دهنده برخاستن دود ناشی از انفجار در حوالی دانشگاه آزاد پیشوا در شهرستان ورامین است.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

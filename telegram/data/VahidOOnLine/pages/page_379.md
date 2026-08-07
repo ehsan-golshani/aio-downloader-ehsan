@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 379
 
-📅 آخرین بروزرسانی: 1405/05/17 00:39
+📅 آخرین بروزرسانی: 1405/05/17 01:36
 
 ---
+
+## VahidOOnLine — post 244900
+
+<div align="center"><video src="files/post_244900_VahidOOnLine_244900.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244900_VahidOOnLine_244900.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان‌دهنده برخاستن دود ناشی از انفجار در حوالی دانشگاه آزاد پیشوا در شهرستان ورامین است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244899
 
@@ -264,17 +277,6 @@
 ♦️مشاور رسانه‌ای پادشاه بحرین در پیامی در شبکه اجتماعی ایکس اعلام کرد سامانه‌های پدافند هوایی بحرین حملات هوایی ایران را رهگیری و منهدم کرده‌اند.
 سپاه پاسداران صبح پنج‌شنبه اعلام کرد که در واکنش به آخرین حملات آمریکا، پایگاه‌هایی در کویت و بحرین را هدف قرار داده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244867
-
-<div align="center"><img src="files/post_244867_VahidOOnLine_244867.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشاور رسانه‌ای پادشاه بحرین اعلام کرد سامانه‌های پدافند هوایی این کشور پرتابه‌های شلیک‌شده از سوی جمهوری اسلامی را رهگیری و منهدم کرده‌اند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

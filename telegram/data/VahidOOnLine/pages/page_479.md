@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 479
 
-📅 آخرین بروزرسانی: 1405/05/17 00:39
+📅 آخرین بروزرسانی: 1405/05/17 01:36
 
 ---
+
+## VahidOOnLine — post 242093
+
+<div align="center"><img src="files/post_242093_VahidOOnLine_242093.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سخنگوی مجتمع گاز پارس جنوبی عسلویه اعلام کرد صبح دوشنبه هنگام آواربرداری از تاسیسات آسیب‌دیده جنگ در پالایشگاه ششم گاز عسلویه، انفجاری رخ داد که در پی آن سه نفر از کارکنان شرکت پیمانکاری بازسازی پالایشگاه مصدوم و به بیمارستان منتقل شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242092
 
