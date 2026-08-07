@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/16 11:59
+📅 آخرین بروزرسانی: 1405/05/16 13:23
 
 ---
+
+## tasiyanc — post 6536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰۰ گیگ ساب گذاشته ادمینا ، پین شد گپ
+</div>
 
 ## tasiyanc — post 6535
 
@@ -189,11 +195,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔱 @Tasiyanc 🔥.txt
-</div>
-
-## tasiyanc — post 6506
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال زیاد شده 😐
 </div>
 

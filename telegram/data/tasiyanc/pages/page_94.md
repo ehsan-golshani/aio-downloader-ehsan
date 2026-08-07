@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/05/16 11:59
+📅 آخرین بروزرسانی: 1405/05/16 13:23
 
 ---
+
+## tasiyanc — post 6095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#تب
+
+⚡️ همونجوری که میدونید کانفیگ فریا بسیار ضعیفن، من خودم جهت مصرف شخصی از اینجا کانفیگ تهیه میکنم با قیمت ارزون و کیفیت بالا گفتم برا شماهم بذارم نیازتون میشه
+
+چنلشون : @nacconfig ⭐️
+ایدی فروش:@nac_config ⭐️
+</div>
 
 ## tasiyanc — post 6093
 
@@ -184,11 +195,5 @@ FastVip⚡.npvt
 
 🦁  @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Hot Servers 🔥🌶️.npvt
 </div>
 

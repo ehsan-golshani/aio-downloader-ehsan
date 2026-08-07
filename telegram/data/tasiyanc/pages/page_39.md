@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/16 11:59
+📅 آخرین بروزرسانی: 1405/05/16 13:23
 
 ---
+
+## tasiyanc — post 7928
+
+<div align="center"><img src="files/post_7928_tasiyanc_7928.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام داداش به رفقا بگو استرس نکشن، دینی رو میشه تو یک ساعت
+جمع کرد😹
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7925
 
@@ -221,13 +232,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جای خالیشان قدر یک وطن درد میکند ؛ نه فقط در خانه هایشان که در دل تمام ایران
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7890
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای فرزندانی که سهمشان از وطن یک گلوله بود 🖤
-
-@Tasiyanc ☑️
 </div>
 

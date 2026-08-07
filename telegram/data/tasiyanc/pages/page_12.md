@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/16 11:59
+📅 آخرین بروزرسانی: 1405/05/16 13:23
 
 ---
+
+## tasiyanc — post 8783
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فاکس نیوز : برد موشک های جمهوری اسلامی به اروپا هم میرسند.
+
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8782
 
@@ -234,11 +244,5 @@
 🇷🇺🇺🇦 یک تانک روسی T-80BVM با ارزش تقریبی ۴ میلیون دلار، توسط یک پهپاد ۵۰۰ دلاری اوکراینی منهدم شد.
 ﻿
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران جای عجیبیه جای لف دادن از چنل سام صابری حرومزاده ممبراش بالا اومده
 </div>
 
