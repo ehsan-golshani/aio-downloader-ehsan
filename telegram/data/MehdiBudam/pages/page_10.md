@@ -1,8 +1,22 @@
 # آرشیو کانال MehdiBudam - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/09 21:45
+📅 آخرین بروزرسانی: 1405/05/16 11:58
 
 ---
+
+## MehdiBudam — post 8066
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانلود برنامه
+
+تفاوت نسخه های برنامه
+
+تنظیمات پیشنهادی و نکات بیشتر
+
+نحوه اسکن دی ان اس
+
+دایرکت چنل
+</div>
 
 ## MehdiBudam — post 8065
 
@@ -233,20 +247,6 @@ TCP
 TCP
 
 81.91.146.202:53,81.12.87.115:53,81.12.121.19:53,81.16.125.21:53,94.182.56.43:53,2.144.198.247:53,2.188.225.147:53,212.80.20.98:53
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8029
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-107
-
-
-slipnet-bundle-enc://AWY5lEZjUqWpV/pWyYWWVAqbWRB83PIZZR3ZZXjf15GGh4acnPVZAa/jo2qdQ/GmCLmwiOE9iSDwS/3kk4vOWClFrHqRDwhhh9TsdS5QdzLLHHhEpckAzjZ0VC3yh0VwcIlLiGwPR4cfrPcajJAXJxnSJ2qTAvnweIoBIZtk5yBhMe2gpFNeOjHTU8rVnRDaYk36kTsDmVvXzQ29/BRVwuJUcNCNmonwh4PZFziqAkeLzCpqu/FA9UY1HpVd4tAx2LbWlpTXitZ/C9UwUW5ZjCqvlnEJDeBxhiz9SE42iLeu6LEuBQoELyIYPMvgnxSpefYdLOoDEkLUmAnXGRnrYiA0Mf8pcxoAWF8725RbEAjvsc5lpJPouW4lbwbvZbur2WuOv/2vAwaYYqOHTo11Ytw0XiucQVQNrCb9vD/Y1jmrWlv9TQl8tjZFSqN63677Spjqh4eKFzXrDxH7MUqrtDUXcGhxM7QOE2mzXyxrVPPg2Qs9zlU/teOy4Dek5npWQH5Im9Mpg557pX4npF6xrWDvw80YLUYMqt5aL2S4oYqDK/KhKwZnaaO9YHelARa0ticN5e2+f25Vd1aaDGOhbbVeWPtK5WNN8+AJNdql5wORvuvtKyIoYz6voh9it2JtQjAWsuox4BMDk8gCJOsm6g/hFcklBhn9YJxhHGDQe8o8hDUfYh2YaW14NeSCzYKHmoLM8uih2l87t0/pBx6MtwbM/N3tJ6rF6zPOCTmw6ACCl4gzTuN0lhYl2WiTzbp193TBlsN2qBrtaXoIgPvA4RBFjTByIsZP7nraMO5RYS4Z29geWGntMZJqky6H9sOJifiSXPb8LTzXS32pWwo5m5KHRc++dCB3lj4WMx8XAHBxfhMyqsgTT2Yw1uqVdpOpFWIDUxsW2PKPFz8Uh+lbF4eJ8Ih/Q9rwABY8YzH7t7nHa/XQYnppc8DkhHao9KEyN96209BZBSOn+Z0qnX10brgM26gkmIzjndiIey/RqGRVWWpc0+PobnK8BrkGDj4G+MENVZYz4C2YD7FsfDf38tdo6cRNRG1RUgBp0cAA4pCfVoGXDCLSvNBw7zTqALEf1i3oB7mwvw==
-
-﻿
-Pass: @MehdiBudam
 
 @MehdiBudam
 </div>

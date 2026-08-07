@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/16 10:30
+📅 آخرین بروزرسانی: 1405/05/16 11:59
 
 ---
+
+## tasiyanc — post 9073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ در تروث سوشیال : "دونالد ترامپ در جنگ با ایران پیروز شد." @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9072
+
+<div align="center"><img src="files/post_9072_tasiyanc_9072.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ در تروث سوشیال :
+"دونالد ترامپ در جنگ با ایران پیروز شد."
+
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9071
 
@@ -50,8 +68,6 @@ Join As @TASIYANC
 <div align="center"><video src="files/post_9070_tasiyanc_9070.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_9070_tasiyanc_9070.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_9070_melbet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 melbet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇩🇪آپ اندروید سایت جهانی Melbet
@@ -339,22 +355,5 @@ Join @TASIYANC
 مجری: آخه شما میگی وقتی بچه بودم
 پزشکیان: من تو زابل خدمت میکردم و پنکه‌ام نداشتم، حالا چی میگی؟
 @Tasiyanc
-</div>
-
-## tasiyanc — post 9043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ایران عوارض ۷٪ را بر تمام کشتی‌های تجاری عبوری از تنگه هرمز اعلام کرده است , این امر برای ایران ۳۸۵ میلیون دلار خالص روزانه یا بیش از ۱۰۰ میلیارد دلار خالص سالانه با حجم ترافیک پیش از جنگ ایجاد می‌کند
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووری 🔴 در پی حمله موشکی حوثی های یمن
-
-تعدادی از نیروهای عربستان سعودی کشته و زخمی شدند، پس از آنکه یک موشک شلیک شده از یمن مستقیماً به پایگاه‌های نیروهای تیپ واکنش سریع اصابت کرد.
-@TASIYANC ✅
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/16 10:30
+📅 آخرین بروزرسانی: 1405/05/16 11:59
 
 ---
+
+## tasiyanc — post 8101
+
+<div align="center"><img src="files/post_8101_tasiyanc_8101.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 با این پرامپت میتونی یه عکس کاپلی خفن درست کنی!
+
+متن پرامپت:
+
+
+Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset; exactly two people only: one young adult female and one young adult male together in the same scene, no split screen, no collage, no two-panel layout. built 100% from the unaltered facial features of the reference image; preserve the original face 100% exactly, hair unchanged, no reshaping, beautification, smoothing, retouching, enhancement, or age/gender change. The young adult female stands in the foreground with eyes closed, face tilted slightly up and left, calm peaceful expression, reference-faithful hair unchanged and softly brushed back by light wind with a few loose strands, large round earrings, black long-sleeve top in thin soft fabric. The young adult male stands partly behind her with one powerful arm wrapped around her neck in a close protective pose, wearing a refined luxury metal watch. Blue sky fading into warm horizon tones, soft sunset glow, long shadows, intimate quiet harmony, high-end cinematic photography, professional depth of field, natural/cinematic color grading, realistic skin texture, natural facial shadows, realistic lens rendering, no plastic skin, no over-retouching. Gender expression must come only from outfit, styling, pose, and body presentation; do not alter facial identity or hair. STRICT MASCULINE LOCK: strictly masculine styling only, menswear tailoring; structured shoulders, straighter silhouette, boxier fit; men’s fit, masculine proportions, sharp lines; minimal masculine accessory: metal watch / signet ring / thick chain; grooming consistent with the reference image; keep facial hair if present; if not, clean-shaven. no feminine elements, no makeup, no lipstick, no eyeliner, no nail polish, no long manicured nails no dress, no skirt, no corset, no lace lingerie vibe, no delicate jewelry, no handbag/purse no feminine pose or feminine body language. Keep both subjects as young adults, not teenage, not older adults; natural anatomy, realistic hands, realistic eyes, no distorted face, no extra fingers, no warped body, no extra people, no duplicate face, no cloned body, no text, no logo, no watermark. completely clean and soft background, smooth uniform gradient, no noise, no grain, no film grain, no sensor noise, no compression artifacts, no banding, perfectly smooth color transitions, extremely high and sharp image quality, soft clean bokeh, no noisy texture in the background
+
+
+@Tasiyanc ⭐️| مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8100
+
+<div align="center"><img src="files/post_8100_tasiyanc_8100.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شخصیت‌های کارتونی که باهاشون خندیدیم پیر شدن....
+
+@Tasiyanc ⭐️ | بانك کانفیگ
+</div>
 
 ## tasiyanc — post 8099
 
@@ -189,22 +215,5 @@
 
 @Tasiyanc ⭐️
 #NiNi
-</div>
-
-## tasiyanc — post 8069
-
-<div align="center"><img src="files/post_8069_tasiyanc_8069.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرغی که مامانم گذاشته بود رو گاز و گفته بود حواست باشه نسوزه!
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8067
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار 185
 </div>
 

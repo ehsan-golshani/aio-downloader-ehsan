@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/05/16 10:30
+📅 آخرین بروزرسانی: 1405/05/16 11:59
 
 ---
+
+## tasiyanc — post 6242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+2سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6241
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به یاد آنان که جسارت بیشتری از ما داشتند. 🖤
+
+پروکسی
+پروکسی
+
+@Tasiyanproxy
+</div>
 
 ## tasiyanc — post 6240
 
@@ -182,17 +209,5 @@ FAST - MCI💥.npvt
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-nuclear bomb 💥.npvt
-</div>
-
-## tasiyanc — post 6219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-NEW FAST ⚡ 🚀.npvt
 </div>
 

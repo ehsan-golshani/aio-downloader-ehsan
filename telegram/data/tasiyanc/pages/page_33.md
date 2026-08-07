@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/16 10:30
+📅 آخرین بروزرسانی: 1405/05/16 11:59
 
 ---
+
+## tasiyanc — post 8168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عجیب اما واقعی جنوب ایران زیر بمباران هست صدا سیما از جنوب لبنان میگه
+</div>
+
+## tasiyanc — post 8167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هدف قرار گرفتن پل کهورستان بندرعباس و قطع ارتباط شهرهای جنوب با همدیگه
+نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8165
 
@@ -199,43 +214,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فینال تموم شه خواهیم دید چه خواهد شد
-</div>
-
-## tasiyanc — post 8126
-
-<div align="center"><img src="files/post_8126_tasiyanc_8126.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال جام جهانی 🌍
-اسپانیا 🇪🇸 و آرژانتین 🇦🇷
-
-🗓 28 تیر ساعت 22.30
-🏟 استادیوم (MetLife Stadium )نیویورک نیوجرسی
-
-@Tasiyanc ⭐️ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8125
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

@@ -1,8 +1,88 @@
 # آرشیو کانال VahidOOnLine - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/05/16 10:28
+📅 آخرین بروزرسانی: 1405/05/16 11:57
 
 ---
+
+## VahidOOnLine — post 251760
+
+<div align="center"><video src="files/post_251760_VahidOOnLine_251760.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251760_VahidOOnLine_251760.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️کارولین لویت، سخنگوی کاخ سفید، در نشست خبری روز پنج‌شنبه اول مرداد اعلام کرد که توافق انرژی و هسته‌ای میان ایالات متحده و عربستان سعودی به طور کامل مشروط به پیوستن ریاض به پیمان ابراهیم است.
+
+او افزود که این شرط، دیدگاه شخص رئیس‌جمهوری آمریکا برای دستیابی به منطقه‌ای صلح‌آمیز و باثبات در خاورمیانه است. لویت تاکید کرد که ایالات متحده به گفتگوهای خود با مقام‌های سعودی برای نهایی‌سازی این توافق ادامه می‌دهد تا به‌زودی شاهد پیوستن این کشور به پیمان ابراهیم باشد.
+
+این اظهارات در حالی مطرح می‌شود که دونالد ترامپ در اعلام اولیه خبر توافق، چیزی درباره شرط پیوستن به پیمان ابراهیم مطرح نکرده بود. عربستان سعودی، به‌رسمیت شناختن اسرائیل را مشروط به تشکیل کشور مستقل فلسطین می‌داند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251759
+
+<div align="center"><video src="files/post_251759_VahidOOnLine_251759.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251759_VahidOOnLine_251759.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشگرمنوتو: «اگر در جنگ پیروز شدید پس چرا آب و برق نداریم؟»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251758
+
+<div align="center"><video src="files/post_251758_VahidOOnLine_251758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251758_VahidOOnLine_251758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشگرمنوتو: «این وضع منه؛ اسنپ‌فود حقوقم رو نمی‌ده»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251750
+
+<div align="center"><video src="files/post_251750_VahidOOnLine_251750.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251750_VahidOOnLine_251750.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مروری بر مهم‌ترین خبرهای پنجشنبه ۱ مرداد ۱۴۰۵؛ بر اساس پوشش و گزارش رسانه‌های خبری بین‌المللی درباره ایران و منطقه.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251749
+
+<div align="center"><img src="files/post_251749_VahidOOnLine_251749.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکسیوس به نقل از دو منبع منطقه‌ای آگاه از تلاش‌های میانجی‌گری گزارش داد که رهبران حکومت ایران، آخرین پیشنهاد ارائه‌شده میانجی‌ها را نپذیرفت.
+
+یکی از آنها به اکسیوس گفت: «ما در حال تلاش هستیم، اما ایرانی‌ها همکاری نمی‌کنند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251748
+
+<div align="center"><img src="files/post_251748_VahidOOnLine_251748.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ خبرگزاری رکنا گزارش داد که ساعت ۱۸:۵۰ عصر پنجشنبه اول مرداد، یک موشک به نقطه‌ای در ساحل شهر سوزا، در جزیره قشم برخورد کرده است. هنوز گزارشی از تلفات یا خسارات احتمالی این حمله منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251747
 
@@ -216,78 +296,6 @@
 ♦️وزارت دفاع کویت اعلام کرد گذرگاه مرزی العبدلی ظهر روز پنجشنبه اول مردادماه هدف حمله پهپادهای دشمن قرار گرفت که در پی آن تنها خسارت مادی وارد شد و هیچ تلفات جانی گزارش نشده است.
 
 به گفته سخنگوی وزارت دفاع کویت، تیم‌های تخصصی بلافاصله پس از وقوع حادثه با هماهنگی نهادهای ذی‌ربط برای ایمن‌سازی محل وارد عمل شدند. همچنین تیم‌های بازرسی و خنثی‌سازی مواد منفجره نیروی زمینی عملیات پاکسازی، جمع‌آوری بقایای پهپادها و تامین امنیت محل را آغاز کردند. وزارت دفاع کویت تاکید کرد نیروهای مسلح این کشور با آمادگی کامل به حفاظت از مرزها و حفظ امنیت و ثبات کشور ادامه خواهند داد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251726
-
-<div align="center"><img src="files/post_251726_VahidOOnLine_251726.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️دونالد ترامپ روز پنجشنبه اول مرداد، در پیامی در شبکه اجتماعی تروث سوشال با یادآوری حملات نظامی ایالات متحده علیه حوثی‌ها که سال گذشته انجام شد، نوشت: «حوثی‌ها از آن زمان و در جریان درگیری با ایران، رفتار مسئولانه‌ای داشتند، اما متاسفانه با تیراندازی شب گذشته به دو کشتی عربستان سعودی، بار دیگر دست به حملات زده‌اند.»
-
-ترامپ هشدار داد که اگر این اقدامات تکرار شود، آمریکا جمهوری اسلامی ایران را به عنوان حامی حوثی‌ها مسئول خواهد دانست. او تاکید کرد که در این صورت، مجازات نظامی بزرگی بر ایران و همچنین خودِ حوثی‌ها تحمیل خواهد شد؛ گروهی که به گفته او، تا پیش از این حرفه‌ای و هوشمندانه عمل کرده بودند اما اقدام اخیرشان مایه «تاسف» است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251725
-
-<div align="center"><img src="files/post_251725_VahidOOnLine_251725.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، در تروت سوشال اعلام کرد اگر حوثی‌ها بار دیگر به کشتی‌ها حمله کنند، واشینگتن جمهوری اسلامی را مسئول خواهد دانست. او افزود حوثی‌ها نیروهای وابسته به جمهوری اسلامی هستند و در صورت تکرار این حملات، مجازات نظامی گسترده‌ای علیه جمهوری اسلامی و حوثی‌ها اعمال خواهد شد.
-ترامپ همچنین گفت حوثی‌ها پس از حملات قبلی آمریکا علیه آنها در جریان درگیری واشینگتن با تهران، مسئولانه رفتار کرده بودند، اما اکنون حمله به کشتی‌ها را از سر گرفتند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251724
-
-<div align="center"><img src="files/post_251724_VahidOOnLine_251724.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، در تروت سوشال اعلام کرد اگر حوثی‌ها بار دیگر به کشتی‌ها حمله کنند، واشینگتن جمهوری اسلامی را مسئول خواهد دانست. او افزود حوثی‌ها نیروهای وابسته به جمهوری اسلامی هستند و در صورت تکرار این حملات، مجازات نظامی گسترده‌ای علیه جمهوری اسلامی و حوثی‌ها اعمال خواهد شد.
-ترامپ همچنین گفت حوثی‌ها پس از حملات قبلی آمریکا علیه آنها در جریان درگیری واشینگتن با تهران، مسئولانه رفتار کرده بودند، اما اکنون حمله به کشتی‌ها را از سر گرفتند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251723
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی به ایران‌اینترنشنال رسیده است که در آن صاحب یک کارگاه ضمن انتقاد از نبود مداوم آ و برق و گاز، می‌گوید از پرداخت دستمزد کارگرانش ناتوان شده و با رفتن آنها کسب‌وکارش خوابیده است. او تاکید می‌کند که این کساد، فقط به حملات اخیر آمریکا مربوط نیست زیرا پارسال هم وضعیت بازار کمابیش چنین بود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251722
-
-<div align="center"><img src="files/post_251722_VahidOOnLine_251722.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️دونالد ترامپ روز پنجشنبه، اول مرداد در شبکه اجتماعی تروث‌سوشال اعلام کرد توافق هسته‌ای غیرنظامی میان وزارت انرژی ایالات متحده و عربستان سعودی به تایید خواهد رسید، اما این امر به طور کامل مشروط به پیوستن ریاض به توافق‌نامه ابراهیم است؛ توافقی که به‌معنی عادی‌سازی روابط با اسرائیل خواهد بود.
-
-ترامپ تاکید کرد این توافق صرفا به مصارف غیرنظامی مربوط می‌شود و هیچ‌گونه غنی‌سازی موادی در آن انجام نخواهد گرفت. او افزود ایالات متحده با تاسیسات هسته‌ای غیرنظامی (بدون غنی‌سازی) مخالفتی ندارد؛ مشابه برنامه‌هایی که کشورهایی نظیر ایران و امارات متحده عربی پیش‌تر از آن برخوردار بوده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251721
-
-<div align="center"><video src="files/post_251721_VahidOOnLine_251721.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251721_VahidOOnLine_251721.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تصاویر منتشرشده در شبکه‌های اجتماعی نشان می‌دهد رانندگان خودروهای سنگین، مینی‌بوس‌ها و اتوبوس‌ها روز پنجشنبه اول مردادماه در یکی از جایگاه‌های سوخت زاهدان برای دریافت گازوئیل در صف‌های کیلومتری منتظر مانده‌اند.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

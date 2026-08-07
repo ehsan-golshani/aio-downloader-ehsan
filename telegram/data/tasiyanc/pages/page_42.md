@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/16 10:30
+📅 آخرین بروزرسانی: 1405/05/16 11:59
 
 ---
+
+## tasiyanc — post 7792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه
+</div>
+
+## tasiyanc — post 7791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️رسما توافق با آمریکا سرش گرد شد
+</div>
 
 ## tasiyanc — post 7790
 
@@ -161,18 +173,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک نفتکش متعلق به امارات هم اکنون مورد اثابت قرار گرفت
-</div>
-
-## tasiyanc — post 7745
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری تحریم های فروش نفت ایران دوباره برگشت
-</div>
-
-## tasiyanc — post 7744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوریییییی آکسیوس
-آمریکا امشب حملات گسترده ای به ایران خواهد داشت در جواب حملات به کشتی های تجاری در تنگه هرمز
 </div>
 

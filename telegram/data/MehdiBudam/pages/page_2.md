@@ -1,8 +1,14 @@
 # آرشیو کانال MehdiBudam - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/09 21:45
+📅 آخرین بروزرسانی: 1405/05/16 11:58
 
 ---
+
+## MehdiBudam — post 8238
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از روش DNS Pool هم میتونید استفاده کنید.
+</div>
 
 ## MehdiBudam — post 8237
 
@@ -221,18 +227,6 @@ Tor97
 
 
 slipnet-enc://AcrxIV4Z5EhDDojqHhu+zTTjfEX5FXu6VYniGw1oiS65SQeMrZjmMyvPI7Lz1OxHPYWrc/q/4QMbrgZPh9MbpNmQ/1U/7bMKNoN8VmYOJKD/hrI2u9LMI0pIBS56jKDW2PSBpFqTMPrHqp/g9WIw+b6MKiTsxi2AjqaXqyGCT00Zx37BYgtYP9Hjxg/Rk9vAChwHj1WABmn2F021vgJLNZt33859OPxIWYcvRPzBlRWXj3vSGa9Sp/i+57qnw6aVUwC0wld7/qNnHPtNjX2Ud8QDV1QvBZ5LISAsHYwpPSlZWKV7o4S6Vjt1Gxx9eWHbGm99s+5DnsAKn6hRcpZ2ouzs1Wi3Jegt7l8KgZarN6XlfCG66Cxl3JQef+j10IACf7BWhZf6Bde/7y0sl/2TxLSPSmRh/y3HnCPuXvJRwx0G1Q1hHBPxTqUVgPrqEBrTdZeouoii/Oowa9DanP7cIYB1Hj5BZsC54M46/1f6Ry0DrKQ2FBuSXSPIAVaA15fX9nD0GZQv+to9OcNnSkXtugzYLDFV2gWuuKtKiPpxsSfcaBTlB6buCWvGirIMAhqtkVaOkkKQ6YFpww1GBY9TvrB1AtZE8WwChhri2UDCq+ybPFLcL3IDuhrzUGK3ZXKR3juyUa9QdpVKHvLL476PPT4yhxHRgkRUm0b5EaZuOdCRCOrYGu9QNJ5zJw3iJvMnCOV/orOcNVvBpqQXrBJmJsbsgKSwB3+d73HBE/9UI+cDYw==
-
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8217
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tor96
-
-
-slipnet-enc://AbPwOWtzB7R244PZYLEv5CQ3KeGKCjWlsg12a9Du6uIsWtJnZc8xvk1Ww4/Zi0sf2x3Df6HEOd4Z/gn2Iq+PlKbsUdtzgxqiaMo89XkLVdj+ysrOY/hCEguxCXOImh45IUnUO/qsshWRSgvb2+6e9pSrXwoNim8hOUB19D6cIpwMQ691vxulEvUEQPJsPqK6iB20D/yZ7mlag7HlfsuDi+cALWdBXWBnqAOPUqf3hLmexZCK8f4zOYG3sV/0pUw2q0PCbMI6keOFe+AeiaviDIUarMJXKkspG6NCpqfZiouEVd+GFjj2FCruGlyzbZjjrkSU1nFd1GJODqcsGqjYLlW7COEwWccQiRj8UJD+G2/OWS6XclsSb+gFyvThsxbh1EmvDMqCvRKfwP2HsoU734hQ9SsVmwRXpkuiSTwI1PM9FoG8ZydzdGqnWA8vqK+kb5yl3NrjZhU7mxncUAs3iBwK0gl07blAEw2RBnM8khfP16NGeDY0TIi6ZBsWgXt6ddfripgjJ49UYaMat9sFdkoJ+bB6AkDFg/rsmvFX9lE0WDAG+4B7FhYCbrTFlqq1gV55lrRTm+JxQuYZiL5wKXxF/9oMRwGxMl+csyB8FrenHsSwYLROJCkNoTBHHL+hxHyAnBrMmrhS7uLW/JUTvbHIAOFvtwSOl7A/GVLTYIe9HeZmzBJ4Uffz710OPr1x1s4tc2aH+dBWBaCFG/0YMAz9XsrmcY130EVPiriF
 
 
 @MehdiBudam
