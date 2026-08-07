@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/05/16 13:23
+📅 آخرین بروزرسانی: 1405/05/16 15:29
 
 ---
+
+## tasiyanc — post 7445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ۴ انفجار شدید در سیریك
+</div>
 
 ## tasiyanc — post 7444
 
@@ -191,11 +197,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned «ساب لینک اختصاصی نامحدود 🚀 🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt 130 کانفیگ پروتکل Trojan سرعتی ( هر دوازده ساعت آپدیت خواهد شد ) آموزش ویدیویی اضافه کردن ساب 💘 @Tasiyanc 💠 | اتصال امن»
-</div>
-
-## tasiyanc — post 7416
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدایی گل خوبی زد رامین
 </div>
 

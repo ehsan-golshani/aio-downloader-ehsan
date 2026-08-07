@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/05/16 13:23
+📅 آخرین بروزرسانی: 1405/05/16 15:29
 
 ---
+
+## tasiyanc — post 6957
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطوره؟
+</div>
 
 ## tasiyanc — post 6956
 
@@ -187,11 +193,5 @@ Vip SPEED ⚡⚡.npvt
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6935
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حالتون خوبه قربونتون برم من 🥹؟
 </div>
 

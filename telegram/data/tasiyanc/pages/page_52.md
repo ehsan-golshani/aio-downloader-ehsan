@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/16 13:23
+📅 آخرین بروزرسانی: 1405/05/16 15:29
 
 ---
+
+## tasiyanc — post 7416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدایی گل خوبی زد رامین
+</div>
 
 ## tasiyanc — post 7415
 
@@ -199,22 +205,5 @@ FAST ⚡⚡🔥.npvt
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7377
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود سرور 🇩🇪
-
-4سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc | تاسیان اتصال امن
 </div>
 

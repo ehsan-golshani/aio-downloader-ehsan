@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/16 13:23
+📅 آخرین بروزرسانی: 1405/05/16 15:29
 
 ---
+
+## tasiyanc — post 8465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش انفجار در تبریز
+
+تایید یا تکذیب نمیشه
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8464
 
@@ -144,11 +154,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اسپانیااااااااااا میزنه
-</div>
-
-## tasiyanc — post 8445
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرررررررررررررررران تووووووووووورس
 </div>
 

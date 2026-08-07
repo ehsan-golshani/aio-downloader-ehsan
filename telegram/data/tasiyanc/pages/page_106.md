@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/16 13:23
+📅 آخرین بروزرسانی: 1405/05/16 15:29
 
 ---
+
+## tasiyanc — post 5778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینترنت سرش یکم گرد شد
+</div>
 
 ## tasiyanc — post 5775
 
@@ -180,25 +186,6 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 </div>
 
 ## tasiyanc — post 5752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
-
-
-
-🚀 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 5750
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  

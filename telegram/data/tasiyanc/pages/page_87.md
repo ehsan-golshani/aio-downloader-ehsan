@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/16 13:23
+📅 آخرین بروزرسانی: 1405/05/16 15:29
 
 ---
+
+## tasiyanc — post 6268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+2سرور پرومیوم  سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها 
+⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6267
 
@@ -205,13 +222,5 @@ BabyGirl 🪐.npvt
 اتصال به سرورها ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6244
-
-<div align="center"><img src="files/post_6244_tasiyanc_6244.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-HOT 🌶️.npvt
 </div>
 

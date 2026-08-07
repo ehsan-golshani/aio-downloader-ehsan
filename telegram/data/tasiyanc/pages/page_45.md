@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/16 13:23
+📅 آخرین بروزرسانی: 1405/05/16 15:29
 
 ---
+
+## tasiyanc — post 7681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗘𝗰𝗵𝗼 𝗩𝗶𝗽 🔥⁰⁴.ehi
+</div>
 
 ## tasiyanc — post 7680
 
@@ -173,12 +179,5 @@ Canada 🇨🇦 & Morocco 🇲🇦 🏆
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید https://t.me/FreeConfigTsBot?start=facac4538f0c
-</div>
-
-## tasiyanc — post 7641
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید
-https://t.me/FreeConfigTsBot?start=facac4538f0c
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/16 13:23
+📅 آخرین بروزرسانی: 1405/05/16 15:29
 
 ---
+
+## tasiyanc — post 6996
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی های بعدی 22.30 بلژیک - مصر بامداد 4.30 نیوزلند - تیم ملی @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6995
 
@@ -302,11 +308,5 @@ T.me/Tasiyanc
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6957
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطوره؟
 </div>
 
