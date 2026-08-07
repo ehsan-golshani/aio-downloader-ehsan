@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/16 15:29
+📅 آخرین بروزرسانی: 1405/05/16 16:10
 
 ---
+
+## tasiyanc — post 9077
+
+<div align="center"><a href="files/post_9077_Hell 🔥 FAST ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Hell 🔥 FAST ⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+•10 سرور سرعتی تست شده تمام اپراتور ها 
+⚡️
+
+• لوکیشن 🇩🇪 - 🇦🇿 - 🇺🇸
+
+•آموزش اتصال 
+⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+•اتصال امن برای همه 
+🇮🇷
+
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر مهم 
+🔴 توافق مکه بین کشور های ترکیه ، پاکستان و عربستان امضاء شد
+
+بعد امضاء این توافق رجب طیب اردوغان «رییس جمهور ترکیه» گفت :
+«هرگونه حمله مسلحانه به هر یک از کشورها، از جمله ترکیه، عربستان سعودی و پاکستان، به عنوان یک حمله به همه آن‌ها تلقی می‌شود.»
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9075
 
@@ -312,45 +349,5 @@ Join @TASIYANC
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔱 @Tasiyanc - R²all.hc
-</div>
-
-## tasiyanc — post 9054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم🖤
-
-کانفیگ اختصاصی نامحدود HttpCustum 📱
-
-سرور سرعتی مناسب تمام نت‌ها ⚡️
-
-آموزش اتصال ✅
-
-دانلود  📱android🕹  iOS
-
-اتصال امن برای همه🏠
-
-💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9049
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
-سرور  سرعتی پرمیوم ⚡️
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید⛓
-
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-📱 @TASIYANC ✅
 </div>
 

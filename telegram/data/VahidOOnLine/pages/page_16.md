@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/16 15:27
+📅 آخرین بروزرسانی: 1405/05/16 16:08
 
 ---
+
+## VahidOOnLine — post 253675
+
+<div align="center"><video src="files/post_253675_VahidOOnLine_253675.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253675_VahidOOnLine_253675.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده، گلباران شدن مزار جاویدنام مسعود ذات‌پرور را در سه‌شنبه ۱۳ مرداد بر سر مزارش نشان می‌دهد.
+ذات‌پرور، ۳۹ ساله و قهرمان و مربی بدنسازی، ۱۸ دی ۱۴۰۴ با شلیک مستقیم نیروهای جمهوری اسلامی در رشت کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253674
 
@@ -287,19 +301,6 @@ iranintl
 محمد عظیم‌ملک، معاون توسعه مدیریت و منابع استاندار کردستان، گفت: «با توجه به افزایش دمای هوا و به‌منظور مدیریت ناترازی انرژی، تمامی ادارات، دستگاه‌های اجرایی و عمومی، بانک‌ها و بیمه‌های استان کردستان با موافقت استاندار تعطیل خواهند بود.»
 پیش از این، استان‌های بوشهر، هرمزگان، خوزستان، کرمانشاه، ایلام در جنوب و غرب ایران و استان قم در مرکز کشور، روز چهارشنبه به دلیل «گرمای هوا، مدیریت مصرف انرژی و بازگشت زائران اربعین» تعطیل شده بودند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253655
-
-<div align="center"><video src="files/post_253655_VahidOOnLine_253655.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253655_VahidOOnLine_253655.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند سه‌شنبه ۱۳ مرداد ستونی از دود در شهرک صنعتی شمس‌آباد تهران به هوا برخاسته است. شهروندان با ارسال پیام‌هایی از شنیده شدن صدای انفجار در این شهرک خبر داده‌اند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

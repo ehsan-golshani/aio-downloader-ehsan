@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/05/16 15:29
+📅 آخرین بروزرسانی: 1405/05/16 16:10
 
 ---
+
+## tasiyanc — post 5753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینستا بهتر از تلگرام بالا میاد ، کانکت شدید برید اینستا ببینین سرعتو
+</div>
+
+## tasiyanc — post 5752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
+
+
+
+🚀 @Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 5750
 
@@ -168,26 +193,5 @@ vless://079c1b04-7ef9-4c49-8a7a-849a18ba7b9b@83.222.20.64:17910?security=reality
 🔐 SamanTel
 trojan://7aXwJPnpAJ@yespaintstudio.rav-kraski.ru:50824?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%F0%9F%8C%A4%EF%B8%8F
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 5730
-
-<div align="center"><img src="files/post_5730_tasiyanc_5730.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🌱2 server.npvt
-</div>
-
-## tasiyanc — post 5729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده ⛈ 
-
-رمز : ″ @Tasiyanc ″
-
-
-🚀 @Tasiyanc ✅
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 105
 
-📅 آخرین بروزرسانی: 1405/05/16 15:27
+📅 آخرین بروزرسانی: 1405/05/16 16:08
 
 ---
+
+## ProxyMTProto — post 47800
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rapid.flowstreamhub.site
+Port: 8443
+Secret: ee10a576008fd642b6e0427f9b2b22447f72617069642e666c6f7773747265616d6875622e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: some.nolags.pw
+Port: 443
+Secret: ddc63eab2c309e7915a09622cedc7c9a7d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47798
 
@@ -163,24 +181,6 @@ Secret: eeae82b9fd491e0fde6eb677e47099729b726b6e2e717569636b726f7574656170702e78
 Server: kut12.mtproxygram.pro
 Port: 853
 Secret: eea3ca58d8b2b643f3ad10ebc94303ab8562726f777365722e79616e6465782e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47780
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tuesday.nolags.pw
-Port: 443
-Secret: dd3e7613f9676439cd5f056828ef716da6
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47779
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 50.114.102.134
-Port: 443
-Secret: dd723f44bd19ff50a431878c6b2d0b46a0
 @ProxyMTProto
 </div>
 

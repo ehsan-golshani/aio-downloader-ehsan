@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/16 15:29
+📅 آخرین بروزرسانی: 1405/05/16 16:10
 
 ---
+
+## tasiyanc — post 8703
+
+<div align="center"><video src="files/post_8703_tasiyanc_8703.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8703_tasiyanc_8703.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وطن‌پرستی؛ شفا نمی‌دهد ، شرافت میدهد 🏠
+
+📍آرامگاه کوروش بزرگ 💪
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8702
+
+<div align="center"><video src="files/post_8702_tasiyanc_8702.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8702_tasiyanc_8702.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تلاش های بی بی نتانیاهو برای جلوگیری از توافق 😂 :
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8701
 
@@ -235,24 +261,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 
 اف-۱۴ تامکت و شاهین بحری در ظاهر یکی یک جنگنده ی پیچیده و دیگری یک شکارچی طبیعی هستند، اما وقتی به شیوه‌ی پروازشان نگاه کنیم، شباهت‌های شگفت‌انگیزی دیده میشود.
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8675
-
-<div align="center"><video src="files/post_8675_tasiyanc_8675.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8675_tasiyanc_8675.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴صلاح یکتا ؛ چهره مشهور «شکستن قلنج» به دستور بازپرس ویژه پزشکی بازداشت شد
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8674
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حمله آمریکا به سیریک
-@Tasiyanc
 </div>
 
