@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/16 21:48
+📅 آخرین بروزرسانی: 1405/05/16 23:01
 
 ---
+
+## tasiyanc — post 5572
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هدیه 25 کا شدن ما تمومی ندارع بازم میزارم سرور
+</div>
+
+## tasiyanc — post 5571
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+باز ما پختو پز کردیمو ری اکشن ندیدیم 🥺
+</div>
 
 ## tasiyanc — post 5570
 
@@ -257,26 +269,6 @@ WAR 🔥.npvt
 "balancers": []
 }
 }
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5543
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان  تمام اپراتورها  📶
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان سرور تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
 
 @Tasiyanc ✅
 </div>

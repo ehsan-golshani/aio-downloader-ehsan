@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/16 21:48
+📅 آخرین بروزرسانی: 1405/05/16 23:01
 
 ---
+
+## tasiyanc — post 8090
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیروز که به یخچال نیاز داشتن، برق قطع نمیشد! به محض اینکه کارشون تموم شد، شروع کردن برقارو قطع کردن.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8089
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تتر 190 - ریدید تو زندگی ما
+</div>
 
 ## tasiyanc — post 8088
 
@@ -198,26 +212,5 @@
 بانو برونا روتا هستن دوس دختر (اکس) رودریگو بازیکن کصمشنگ رئال مادرید 😐
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8052
-
-<div align="center"><img src="files/post_8052_tasiyanc_8052.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 14 July، روز جهانی Nude یا همون لخت بودنه ❤️
-بفرست برا کسی که میخوای نود بگیری ازش 😂🦦
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8049
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیک نیوز چقد زیاد شده 😐
-خبر هارو از اینجا دنبال کنین ، تبلیغ نیست چنل خودمونه
-📶⭕️@TasiyanProxy
-⭕️📶@TasiyanProxy
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/16 21:48
+📅 آخرین بروزرسانی: 1405/05/16 23:01
 
 ---
+
+## tasiyanc — post 8286
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
+</div>
+
+## tasiyanc — post 8285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
+</div>
 
 ## tasiyanc — post 8284
 
@@ -154,20 +166,5 @@ JAVID SHAH 👑
 اخبار از چنل اصلی پوشش بدیم ؟ همه بگن
 
 بله 👍 نه 👎
-</div>
-
-## tasiyanc — post 8262
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💪🚨 ترامپ:
-توافق اینقدر خوب پیش رفته که به زودی هزاران شهروند آمریکایی مهاجرت میکنن به ایران، منتها لباس نظامی تنشونه.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن @Tasiyanc ⭐️
 </div>
 
