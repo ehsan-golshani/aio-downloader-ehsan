@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/16 16:10
+📅 آخرین بروزرسانی: 1405/05/16 19:51
 
 ---
+
+## tasiyanc — post 9058
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟اپلیکیشن‌های کاربردی برای ادیت :
+
+
+⚡️ Picsart
+• کلاژ، فیلترای خوب، همه کار
+⚡️ Ps Express
+•روتوش چهره
+⚡️ Snapedit
+•حذف سوژه‌ی اضافه
+⚡️ Lightroom
+•خدای رنگ و نور
+⚡️ VN
+•ادیت Cash ویدئو
+⚡️ Instories
+•ساخت استوری‌های متفاوت
+
+👹@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9057
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥با این سایت به راحتی میتونی کل ضرر های جام جهانی رو جبران کنی
+بونوس هاش واقعا عالیه👌🏼بدون قیدوشرط
+❌با هر 1 میلیون شارژ ، 🤩🤩🤩 هزارتومان شارژ اضافی بگیر🅰️
+
+❌❌طرح شارژ رایگان فقط تا پایان مرداد ماه
+</div>
+
+## tasiyanc — post 9056
+
+<div align="center"><img src="files/post_9056_tasiyanc_9056.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛍 #بایرن_مونیخ Vs #استون_ویلا
+
+زمان: جمعه ساعت 15
+
+🚨 تجربه پیشبینی مطمئن با
+🤩 🤩 🅰️ شارژ اضافی و ریسک خیلی پایین در #بت_اینجا رو از دست نده❌
+
+🤩 🤩 درصد برگشت وجه در صورت باخت:
+🌐 betinja.bet
+🌐 betinja.bet
+کانال بونوس های رایگان g15
+@betinjabet
+</div>
+
+## tasiyanc — post 9055
+
+<div align="center"><img src="files/post_9055_tasiyanc_9055.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔱 @Tasiyanc - R²all.hc
+</div>
 
 ## tasiyanc — post 9054
 
@@ -192,58 +251,5 @@
 ⚠️ #پنالتی راحترین بازی پولساز ⚠️
 🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید راحتو سریع برنده شو👌🏼
 💖 مرجع بازی های روز دنیا در ‌پلتفرم جهانی بت اینجا ⭐
-</div>
-
-## tasiyanc — post 9026
-
-<div align="center"><video src="files/post_9026_tasiyanc_9026.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9026_tasiyanc_9026.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ آقاآآ این بازی #پنالتی چقدر خفنه⚽
-
-🟢 بازی خیلی حرفه ای و‌ #پولساز پنالتی فقط‌ پلتفرم جهانی و معتبر #بت_اینجا
-
-✊همین الان ویدیو #آموزش پنالتی زدن ‌رو ببین و با شارژ اضافی 🤩🤩 درصدی که سایت بهت میده.
-
-💖 حتما ویدیو #آموزش رو ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان r15
-@betinjabet
-</div>
-
-## tasiyanc — post 9025
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ: ترجیح می‌دهم با ایران به توافق برسم تا بجنگم
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کاهش پهنای باند هم اکنون در سراسر کشور
-
-پی‌نوشت : اختلاله و درست میشه نرید پول بدید یه وقت
-</div>
-
-## tasiyanc — post 9022
-
-<div align="center"><img src="files/post_9022_tasiyanc_9022.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔠هشدار
-
-به همین راحتی از همین عکس‌هایی که می‌ذارید توی سوشال می‌تونن هویتتون رو جعل کنن.
-تازه ویدیو هم ازش می‌تونن بسازن که چالش سایت‌هایی که با ویدیو تایید هویت می‌کنن رو هم حل کنن!
-
-حالا هی سلفی بذارید، هی برید تو این اپ‌هایی که ترند می‌شن عکس آپلود کنید سرتون رو بذاره جای فلان بازیگر.
-
-
-⚡️ @TASIYANC ⭐️
 </div>
 

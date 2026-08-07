@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/16 18:43
+📅 آخرین بروزرسانی: 1405/05/16 19:49
 
 ---
+
+## ProxyMTProto — post 49656
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tge0a4dd98.koshkaproxy.shop
+Port: 443
+Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49655
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: server.nl-arvancloud.co.uk
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49654
 
@@ -155,24 +173,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: love.workingproxy.xyz
 Port: 443
 Secret: dd275f670cdf5716dcbcf9d920645a03eb
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49636
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 135.181.74.178
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49635
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hello.nolagsproxy.space
-Port: 443
-Secret: dd23c4f3442902ef41986fda3e819c1417
 @ProxyMTProto
 </div>
 
