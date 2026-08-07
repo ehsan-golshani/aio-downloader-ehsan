@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/16 23:50
+📅 آخرین بروزرسانی: 1405/05/17 02:29
 
 ---
+
+## tasiyanc — post 8481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+5سرور سرعتی پرمیوم دارای ۲لوکیشن  ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8479
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب بخوابید آروم شد
+</div>
 
 ## tasiyanc — post 8476
 
@@ -154,22 +185,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 فقط دو سرمربی تو این دوره از جام جهانی باخت نداشتن:
 
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقای ترامپ دنس معروفشم زد موقع اهدای کاپ به اسپانیا
-</div>
-
-## tasiyanc — post 8457
-
-<div align="center"><img src="files/post_8457_tasiyanc_8457.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-​«رونالدو و مسی ؛ دو جادوگری که به رویای بچگی‌های ما رنگ واقعیت زدند. آخرین رقص آن‌ها در جام جهانی، پایان یک عصر طلایی بود؛ عصری که دیگر تکرار نخواهد شد.»
 
 @TASIYANC ✅
 </div>

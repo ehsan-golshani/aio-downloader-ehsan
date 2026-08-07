@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 180
 
-📅 آخرین بروزرسانی: 1405/05/17 01:36
+📅 آخرین بروزرسانی: 1405/05/17 02:27
 
 ---
+
+## VahidOOnLine — post 249786
+
+<div align="center"><img src="files/post_249786_VahidOOnLine_249786.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال تلگرامی اسکان‌نیوز از گسترده شدن حملات آمریکا نسبت به حملات اخیر خبر داد.
+
+اسکان‌نیوز نوشت: «قشم، سیریک، بندرعباس، جاسک، بوشهر، خنداب، بندر ماهشهر، بهبهان، اندیمشک، دزفول، اهواز، آبادان و خرمشهر» هدف حمله آمریکا قرار گرفته‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249785
 
@@ -273,17 +286,6 @@
 
 متن کامل را اینجا بخوانید
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249766
-
-<div align="center"><img src="files/post_249766_VahidOOnLine_249766.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️همزمان با بیانیه فرماندهی مرکزی ایالات متحده (سنتکام)، مبنی بر آغاز دوره تازه‌ای از حملات علیه اهدافی در ایران، بامداد دوشنبه، فارس، خبرگزاری وابسته به سپاه از شنیده شدن صدای انفجار در جاسک و جنوب جزیره قشم خبر داد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

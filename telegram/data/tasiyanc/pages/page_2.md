@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/16 23:50
+📅 آخرین بروزرسانی: 1405/05/17 02:29
 
 ---
+
+## tasiyanc — post 9067
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
+
+سرور سرعتی‌ لوکیشن Germany 📍
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال 🔸
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9066
+
+<div align="center"><video src="files/post_9066_tasiyanc_9066.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9066_tasiyanc_9066.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیووایرال شده پیرمرد شعبده باز 😞، همرو انگشت به دهن کرده 😐
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9065
 
@@ -235,28 +268,5 @@ Join @TASIYANC
 پسر لاریجانی یه لحظه گوشیش رو روشن میکنه و یه تماسی با یه نفر میگیره که همون موقع جاشون لو میره و میزننشون.
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9036
-
-<div align="center"><video src="files/post_9036_tasiyanc_9036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9036_tasiyanc_9036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماتون بریزه جدیدا تو تهران مهدکودک زدن واسه افراد بالای ۳۰ سال 😂
-
-شما ممکنه وقتی صبح تو خیابون راه میری یه سری مرد سیبیلو و زن ببینید که با کیف باب اسفنجی و عروسکی دارن میرن مهد کودک
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 6 آگوست روز جهانی فوت فتیش هاست 🐸
-
-بفرست برا کسی که میخوای عکس پاشو برات بده 😂
-@Tasiyanc ⭐️
 </div>
 

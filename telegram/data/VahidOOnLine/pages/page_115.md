@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/05/17 01:36
+📅 آخرین بروزرسانی: 1405/05/17 02:27
 
 ---
+
+## VahidOOnLine — post 251334
+
+<div align="center"><video src="files/post_251334_VahidOOnLine_251334.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251334_VahidOOnLine_251334.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌های آلمان، اظهارات اخیر عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، را اعترافی کم‌سابقه درباره ضعف‌های امنیتی در ساختار تصمیم‌گیری حکومت توصیف کرده‌اند و نوشته‌اند او رخنه امنیتی را شامل تاثیرگذاری بر فرایند تصمیم‌گیری‌های داخلی نیز دانسته است.
+
+احمد صمدی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251333
 
@@ -294,19 +309,6 @@ iranintl
 بر اساس گزارش‌ها اسکندر مومنی، وزیر کشور جمهوری اسلامی، در سفر به پاکستان گفت‌وگو درباره تبادلات تجاری را در دستور کار دارد و گزارش‌ها حاکی است حامل پیام مسعود پزشکیان درباره مذاکرات با آمریکا و وضعیت تنگه هرمز است.
 
 جواد همدانی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251314
-
-<div align="center"><video src="files/post_251314_VahidOOnLine_251314.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251314_VahidOOnLine_251314.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منشه امیر، کارشناس امور خاورمیانه، به ایران‌اینترنشنال گفت در صورت ورود اسرائیل به جنگ، تلاش خواهد کرد مراکز فرماندهی نیروهای سرکوبگر را نابود کند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

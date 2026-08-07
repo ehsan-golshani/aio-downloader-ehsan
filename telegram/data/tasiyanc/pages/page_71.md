@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/16 23:50
+📅 آخرین بروزرسانی: 1405/05/17 02:29
 
 ---
+
+## tasiyanc — post 6768
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6767
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرمنده ادمین تبادل پستهارو اشتباهی زده ❤️
+</div>
 
 ## tasiyanc — post 6762
 
@@ -176,24 +196,6 @@ INFERNO ⚡ vip.npvt
 
 ‏شکیرا حتی از پیکه هم تو فوتبال موفق تره 🤣
 
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6715
-
-<div align="center"><img src="files/post_6715_tasiyanc_6715.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز جهانی دوس داشتنو بهتون تبریک میگیم
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6714
-
-<div align="center"><img src="files/post_6714_tasiyanc_6714.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسی و رونالدو اگه ایران بدنیا میومدن :
 @Tasiyanc ✅
 </div>
 

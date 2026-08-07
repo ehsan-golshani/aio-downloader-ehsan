@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/17 01:36
+📅 آخرین بروزرسانی: 1405/05/17 02:27
 
 ---
+
+## VahidOOnLine — post 252758
+
+<div align="center"><img src="files/post_252758_VahidOOnLine_252758.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش آکسیوس، بامداد پنجشنبه هشتم مرداد‌ماه، یک مقام ارشد آمریکایی به این رسانه گفت ارتش ایالات متحده در حال انجام حملات هوایی در ایران است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252757
 
@@ -273,19 +284,6 @@
 
 ازبکستان با ۱۱۵ امتیاز قهرمان این رقابت‌ها شد و قزاقستان با ۱۰۲ امتیاز در جایگاه دوم ایستاد. تیم ایران نیز با چهار مدال و ۹۶ امتیاز، سکوی سوم جهان را از آن خود کرد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252738
-
-<div align="center"><img src="files/post_252738_VahidOOnLine_252738.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسکات بسنت، وزیر خزانه‌داری آمریکا، در شبکه ایکس نوشت: «با توجه به مشکلات اقتصادی و تورم سه رقمی در ایران حکومت این کشور به دنبال تامین مالی است.»
-
-او گفت: «اجازه نخواهد داد جمهوری اسلامی تجارت جهانی با کشتیرانی بین‌المللی را برای تامین مالی فعالیت‌های سپاه پاسداران مختل کند.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/05/17 01:36
+📅 آخرین بروزرسانی: 1405/05/17 02:27
 
 ---
+
+## VahidOOnLine — post 252365
+
+<div align="center"><img src="files/post_252365_VahidOOnLine_252365.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صفحه رسمی وزارت دفاع عربستان سعودی در ایکس اعلام کرد پهپادهایی که از سوی گروه‌های مسلح مورد حمایت جمهوری اسلامی وارد حریم هوایی عراق شده بودند، رهگیری و منهدم شدند.
+
+در این بیانیه آمده است پهپادهای پرتاب‌شده از خاک عراق تلاش کردند تاسیسات نفتی در منطقه شرقی عربستان سعودی و شهر ریاض را هدف قرار دهند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252364
 
@@ -242,20 +255,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم استرالیا یکشنبه چهارم مرداد به مناسبت سالروز درگذشت رضاشاه و محمدرضا شاه در ۴ و ۵ مرداد، در شهر پرت تجمع کردند و یادشان را گرامی داشتند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252344
-
-<div align="center"><video src="files/post_252344_VahidOOnLine_252344.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252344_VahidOOnLine_252344.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی روز دوشنبه پنجم مرداد گفت وضعیت تنگه هرمز تغییری نکرده و همچنان بسته است.
-بقایی در جلسه نشست مطبوعاتی هفتگی به خبرنگاران گفت مذاکرات با عمان با هدف دستیابی به نظامی برای «اعمال حاکمیت» کشورهای ساحلی تنگه هرمز و تضمین امنیت دریانوردی، برگزار شده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
