@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/16 19:49
+📅 آخرین بروزرسانی: 1405/05/16 20:50
 
 ---
+
+## ProxyMTProto — post 49317
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy.lodkirmm.ru
+Port: 8443
+Secret: ee16309abd572d284b309ef26bd7a3f685d0b7d0ba70726f78792e6c6f646b69726d6d2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 95.217.193.214
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49315
 
@@ -163,24 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e
 Server: testt1.nolags.pw
 Port: 443
 Secret: ddc2d13ebbc4ab5596c87f99b0928aa150
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49297
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eeecd508d816f611bb329487809f8dac88706574726f766963682e7275
 @ProxyMTProto
 </div>
 
