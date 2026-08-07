@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/16 19:51
+📅 آخرین بروزرسانی: 1405/05/16 21:48
 
 ---
+
+## tasiyanc — post 6484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حواسم نبود ، ریکشن چرا نزدید؟ 😐
+</div>
+
+## tasiyanc — post 6483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلمشو میزارم داخل کامنتا برای مهندسان عالی رتبه chatgbt که توی گروه نظر میدادن
+</div>
 
 ## tasiyanc — post 6482
 
@@ -212,26 +224,5 @@ https://t.me/addlist/IiFVViQyys81OWM0
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کمی صحبت؟ ( گپمون)
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارووووووووو
-</div>
-
-## tasiyanc — post 6457
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  Ovpn 🇯🇵♻️
-
-تست شده سامانتل - رایتل - وایفای 
-🚀
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
 </div>
 

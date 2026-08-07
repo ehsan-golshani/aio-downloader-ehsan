@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/05/16 19:51
+📅 آخرین بروزرسانی: 1405/05/16 21:48
 
 ---
+
+## tasiyanc — post 5737
+
+<div align="center"><img src="files/post_5737_tasiyanc_5737.jpg" alt="Photo"></div>
+
+## tasiyanc — post 5736
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده روی تمام اپراتورها ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5734
 
@@ -173,23 +191,5 @@ vless://20ecee51-1044-4be3-89a9-f3c700425ead@45.67.230.230:443?security=reality&
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 🥝.npvt
-</div>
-
-## tasiyanc — post 5713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد اتصال در Npv tunnel
-وارد تلگرام یا .. شوید نیاز نی پینگ بگیرید ❤️‍🔥
-</div>
-
-## tasiyanc — post 5712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 دو سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده با همراه اول و وایفای بقیه هم تست کنن⛈ 
-
-
-🚀 @Tasiyanc ✅
 </div>
 

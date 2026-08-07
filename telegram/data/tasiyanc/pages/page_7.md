@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/16 19:51
+📅 آخرین بروزرسانی: 1405/05/16 21:48
 
 ---
+
+## tasiyanc — post 8935
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچ اختلالی در اینترنت نیست کانفیگای کانال با سرعت وصله
+</div>
+
+## tasiyanc — post 8934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 گزارش انفجار از سیریك
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8933
 
@@ -263,33 +277,5 @@ IPv6
 🌐 betinja.bet
 کانال بونوس های رایگان r11
 @betinjabet
-</div>
-
-## tasiyanc — post 8912
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 آکسیوس:
-
-در پی تماسهای وزرای امور خارجه ترکیه قطر و پاکستان در مورد آمادگی ایران برای برگزاری نشستی در ژنو سوئیس برای ادامه مذاکرات فرماندهی مرکزی ایالات متحده (CENTCOM) عملیات امشب را به طور موقت به مدت ۴۸ ساعت متوقف کرد.
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8911
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 ترامپ:
-
-من به خاطر آینده جهان و بقای ج ا ایران موافقت کردم که در ازای احتمال دستیابی سریع به توافق، حمله را لغو کنم.
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-🔱 @Tasiyanc
 </div>
 

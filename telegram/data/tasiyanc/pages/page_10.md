@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/16 19:51
+📅 آخرین بروزرسانی: 1405/05/16 21:48
 
 ---
+
+## tasiyanc — post 8853
+
+## tasiyanc — post 8852
+
+<div align="center"><img src="files/post_8852_tasiyanc_8852.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبر ترین دانشگاه ها در سال 2026 🌐
+
+پروکسی متصل | پروکسی متصل
+
+
+✈️@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8851
 
@@ -258,25 +273,5 @@ vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?secu
 3 Server - Fast ⚡
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8818
-
-<div align="center"><video src="files/post_8818_tasiyanc_8818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8818_tasiyanc_8818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺حکم اعدام بنیامین نقدی صادر شد.
-
-بنیامین از قهرمانان کیک بوکس بود و کلی مدال کشوری و جهانی داشت.
-
-⭐@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8816
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡𝙉𝙚𝙬 𝙎𝙥𝙚𝙚𝙙 ⚡.npvt
 </div>
 

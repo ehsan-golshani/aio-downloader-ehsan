@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/16 20:50
+📅 آخرین بروزرسانی: 1405/05/16 21:46
 
 ---
+
+## ProxyMTProto — post 48471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eed09b88cbbd4e744865b890e5a0bd26876164322e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48469
 
@@ -163,24 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e63
 Server: login.klyuch1k.org
 Port: 443
 Secret: eecabbd4d9fd4481bbb66bcaf9f424d7c56c6f67696e2e6b6c79756368316b2e6f7267
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48451
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: get.utkanos.life
-Port: 443
-Secret: ee50bc25d9708e2abc9d39ff7c654de9a26765742e75746b616e6f732e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48450
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: malmo.viking-vibe.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
