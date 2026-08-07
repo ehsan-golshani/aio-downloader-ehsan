@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/16 03:48
+📅 آخرین بروزرسانی: 1405/05/16 08:57
 
 ---
+
+## ProxyMTProto — post 47965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47964
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp10.sosproxy.space
+Port: 443
+Secret: ee3ab621bbb1dea6b3be09c8f3582c61a364726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47963
 
@@ -163,24 +181,6 @@ Secret: ee3ab621bbb1dea6b3be09c8f3582c61a364726976652e676f6f676c652e636f6d
 Server: Unknown
 Port: 443
 Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47945
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rus25.loveproxy.xyz
-Port: 443
-Secret: eebd0c4928b57a8e4704f95e1b956b9cb362726f777365722e79616e6465782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 9965
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

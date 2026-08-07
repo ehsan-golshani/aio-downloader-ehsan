@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 403
 
-📅 آخرین بروزرسانی: 1405/05/16 06:55
+📅 آخرین بروزرسانی: 1405/05/16 08:56
 
 ---
+
+## VahidOOnLine — post 244003
+
+<div align="center"><img src="files/post_244003_VahidOOnLine_244003.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسکان‌نیوز در گزارشی با عنوان «انفجار قیمت مواد غذایی در یک سال» نوشت: بررسی‌ها از بازه اردیبهشت ۱۴۰۴ تا اردیبهشت سال جاری نشان می‌دهد که برخی اقلام اساسی با «جهش قیمتی بی‌سابقه‌ای» مواجه شده‌اند.
+
+بر اساس این گزارش، قیمت شماری از اقلام اساسی بیش از ۳۰۰ درصد افزایش یافته است. برای مثال، قیمت روغن نباتی در این مدت ۴۳۱ درصد افزایش یافته و روغن مایع نیز رشد ۳۵۳ درصدی را ثبت کرده است.
+
+همچنین قیمت تخم‌مرغ به عنوان یکی از اصلی‌ترین منابع پروتئین خانوارهای کم‌درآمد، ۳۴۲ درصد افزایش داشته است.
+
+قیمت مرغ نیز در همین بازه زمانی رشدی ۳۴۲.۹ درصدی را تجربه کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244002
+
+<div align="center"><video src="files/post_244002_VahidOOnLine_244002.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244002_VahidOOnLine_244002.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی که به تازگی به ایران اینترنشنال رسیده بازماندن رد خون شهروندان مجروح و کشته‌شده رد جریان انقلاب ملی در سلسبیل تهران را نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244001
 
@@ -248,32 +278,6 @@
 یک مقام کاخ سفید به رویترز گفته است که ویزای بازیکنان ایران ۱۰ روز پیش از نخستین مسابقه صادر شده است. با این حال، گزارش‌ها حاکی از آن است که برای برخی اعضای کادر از جمله مدیر اجرایی و مدیر رسانه‌ای تیم هنوز ویزا صادر نشده‌ است.
 بر اساس این گزارش، این افراد همراه تیم به مکزیک سفر کرده‌اند و تلاش‌ها برای دریافت ویزای آن‌ها همچنان ادامه دارد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243983
-
-<div align="center"><video src="files/post_243983_VahidOOnLine_243983.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243983_VahidOOnLine_243983.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد در جریان تجمع اعتراضی دانش‌آموزان مقابل آموزش و پرورش ساوه، یک مقام محلی این شهر در پاسخ به اعتراض و فیلم گرفتن دانش‌آموزان می‌گوید این اقدام فایده‌ای ندارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243982
-
-<div align="center"><img src="files/post_243982_VahidOOnLine_243982.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری تسنیم، وابسته به سپاه، نوشت که محسن نقوی، وزیر کشور پاکستان، وارد تهران شد و قرار است با عباس عراقچی، وزیر خارجه جمهوری اسلامی دیدار کند.
-
-رسانه وابسته به سپاه نوشت که نقوی پیش از سفر به تهران با شهباز شریف، نخست وزیر پاکستان دیدار و درباره مذاکرات جمهوری اسلامی و آمریکا دستوراتی‌ به او ابلاغ شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/05/16 03:48
+📅 آخرین بروزرسانی: 1405/05/16 08:57
 
 ---
+
+## ProxyMTProto — post 48125
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: onyx.proxytg.live
+Port: 443
+Secret: ee8e4bd7b2a034418fd924aeed3c97cd7b6f6e79782e70726f787974672e6c697665
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48124
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 176.65.135.69
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48123
 
@@ -163,24 +181,6 @@ Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
 Server: api.prxtoday.store
 Port: 443
 Secret: ee1fed31d4c3ce8255aedc8c4c14a36f536170692e707278746f6461792e73746f7265
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48105
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48104
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: live.proxyvpn.site
-Port: 443
-Secret: eed2430edff0d3fc503099f982282bd0066c6976652e70726f787976706e2e73697465
 @ProxyMTProto
 </div>
 
