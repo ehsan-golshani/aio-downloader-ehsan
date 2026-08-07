@@ -1,8 +1,128 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/15 15:25
+📅 آخرین بروزرسانی: 1405/05/16 03:50
 
 ---
+
+## tasiyanc — post 8750
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Multi Loc ⚡ @Tasiyanc.npvt
+</div>
+
+## tasiyanc — post 8747
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به وقت اذان صبح 💔
+</div>
+
+## tasiyanc — post 8745
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر هارو دنبال کنید از اینجا
+@TasiyanProxy
+</div>
+
+## tasiyanc — post 8744
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 #امیرحسین_صفری #علیرضا_سپاهی #ابولفضل_سپاهی میخوان در ملا عام اعدامشون کنن💔 @TasiyanProxy
+</div>
+
+## tasiyanc — post 8742
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ تست شده 🔸
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 💠
+</div>
+
+## tasiyanc — post 8741
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینم چنل جدیدمون ک بیشتر فیلم و سریال خواهیم گذاشت دوس داشتید برای حمایت جوین بشید دوستون دارم 💖
+https://t.me/TsMoviee
+</div>
+
+## tasiyanc — post 8740
+
+<div align="center"><img src="files/post_8740_tasiyanc_8740.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Multi Loc ⚡ @Tasiyanc.npvt
+</div>
+
+## tasiyanc — post 8735
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8734
+
+## tasiyanc — post 8732
+
+<div align="center"><img src="files/post_8732_tasiyanc_8732.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووری 🔴 خانم‌ها تو فرانسه🇫🇷 کامل لخت شدن رفتن زیر برج ایفل که اینجوری از فلطسین حمایت کنن، ولی همه جمع شدن دورشون و به جای حمایت از فلسطین زل زدن به بدن لخت زن‌ها و این کلیپشون نزدیک 15 میلیون بار تو جهان شیر شده...
+
++مشاهده ویدیوها بدون سانسور
+‌
+‌
+</div>
+
+## tasiyanc — post 8731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قلعه الموت قزوین ثبت جهانی شد؛ قزوینیا راحت میتونن خارجیا رو هم انگشت کنن
+
+@TASIYANC 🕒
+</div>
+
+## tasiyanc — post 8730
+
+<div align="center"><video src="files/post_8730_tasiyanc_8730.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8730_tasiyanc_8730.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معمر قذافی با این سخنرانی فرمان حذف خود را امضاء کرد !
+
+پی‌نوشت : کافیه به خدماتی ک برای لیبی انجام داده بود نگاه کنید
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8729
 
@@ -88,145 +208,5 @@
 
 به این پارک ها نرید و تو آزار و شکنجشون شریک نشین!!!
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8719
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنظرم زیباترین هدیه 5/5/5 به من شمایید ک دارمتون 💘
-</div>
-
-## tasiyanc — post 8718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وارد 5/5/5 شدیم ، برنامتون چیه؟
-</div>
-
-## tasiyanc — post 8717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ آخرین نسخه ی V2rayNG اندروید
-
-نسخه 2.2.6
-
-● تغییرات مهم:
-• جایگزینی allowInsecure منسوخ با PinnedPeerCertSha256
-• حذف Tcping ping و بهبود تست پینگ
-• آپدیت هسته ایکس ری
-• رفع برخی باگ ها
-
-🔗 لینک دانلود از گیتهاب
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8716
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8714
-
-<div align="center"><video src="files/post_8714_tasiyanc_8714.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8714_tasiyanc_8714.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴ و ۵ مرداد سالگرد مرگ دو ابر مرد تاریخ رضاشاه کبیر و محمدرضا شاه فقید 🖤
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@TASIYANC 💥 سرعتی.npvt
-</div>
-
-## tasiyanc — post 8708
-
-<div align="center"><img src="files/post_8708_tasiyanc_8708.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جدیدا یه چالشی راه افتاده که پسرا با دوس دخترشون که دور کمرشون اندازه یه کف دسته عکس میگیرن و به اشتراک میذارن.
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8707
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی اهدایی ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8705
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور 📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ تست شده 🔸
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc 💠
-</div>
-
-## tasiyanc — post 8704
-
-<div align="center"><img src="files/post_8704_tasiyanc_8704.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خار شباهتو ...
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8703
-
-<div align="center"><video src="files/post_8703_tasiyanc_8703.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8703_tasiyanc_8703.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وطن‌پرستی؛ شفا نمی‌دهد ، شرافت میدهد 🏠
-
-📍آرامگاه کوروش بزرگ 💪
-
-@TASIYANC ✅
 </div>
 

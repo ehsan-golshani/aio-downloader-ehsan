@@ -1,8 +1,137 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/05/15 15:25
+📅 آخرین بروزرسانی: 1405/05/16 03:50
 
 ---
+
+## tasiyanc — post 7700
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لبیك یا رونالدو ، امیدوارم امشب خوشحال باشی ❤️ 7
+</div>
+
+## tasiyanc — post 7699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب بازی حساس ساعت 22:30 🏆
+
+🔵 Spain 🇪🇸 Portugal 🇵🇹 🐯
+</div>
+
+## tasiyanc — post 7698
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه خبرا خوبید؟
+</div>
+
+## tasiyanc — post 7697
+
+<div align="center"><video src="files/post_7697_tasiyanc_7697.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7697_tasiyanc_7697.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 
+🔐
+
+11 سرور سرعتی پرمیوم متد جدید ⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 اینستاگرام 
+📸 جمینای 
+🤖
+
+ 
+Password @Tasiyanc 
+💘
+
+
+اتصال امن برای همه 
+🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7696
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ SuperFast⚡.npvt
+</div>
+
+## tasiyanc — post 7693
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+4 سرور سرعتی حجم و کاربر نامحدود ⚡️
+
+تست شده روی همه نت ها
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال به اینجکتور ✨
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+</div>
+
+## tasiyanc — post 7692
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ های وایرگارد آپدیت شد ، با سرعت مناسب گیم و اینستاگرام 🔥🚀 فول سرعتی مناسب تمام اپراتورها 👇 دریافت کانفیگ های وایرگارد 🔥
+</div>
+
+## tasiyanc — post 7691
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارلو آنجلوتی رید برزیل و حذف کرد
+</div>
+
+## tasiyanc — post 7689
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گللللللللللل برا نروژ 🔥 هالللللند
+</div>
+
+## tasiyanc — post 7688
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ های وایرگارد آپدیت شد ، با سرعت مناسب گیم و اینستاگرام 🔥🚀
+
+فول سرعتی مناسب تمام اپراتورها
+
+
+👇 دریافت کانفیگ های وایرگارد 🔥
+</div>
+
+## tasiyanc — post 7686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سن دریافت گواهینامه رانندگی از ۱۸ سال به ۱۶ سال کاهش پیدا کرد.
+</div>
+
+## tasiyanc — post 7685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP 🎯 @Tasiyanc.nm
+</div>
 
 ## tasiyanc — post 7682
 
@@ -96,104 +225,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fast ⚡ Unlimited.npvt
-</div>
-
-## tasiyanc — post 7665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا 😍
-</div>
-
-## tasiyanc — post 7664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-4سرور سرعتی پرمیوم متد جدید 
-⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
- 
-✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7660
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از چنلای مردمی حمایت کنید ، بناموسم بخاطر خودم نمیگم ، ما مثل اینا جیره خور نبودیم همه چیو از جیب خودمون خرج کردیم نه کانفیگ گیگی یه میلیون فروختیم ، نه سکوت کردیم مثلاً امروز گروه تعطیل کنیم یا موقع قطعی فعالیت نکرده باشیم
-</div>
-
-## tasiyanc — post 7659
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودتون خوبین قربونتون برم؟
-</div>
-
-## tasiyanc — post 7658
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مدیتیشن تموم شد 😂
-</div>
-
-## tasiyanc — post 7655
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عرزشی 🍑 🤬🍆
-</div>
-
-## tasiyanc — post 7654
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زجه بزن عرزشی ، زجه زدنای شما منو ارضا میکنه
-</div>
-
-## tasiyanc — post 7653
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فستیوال این مادرقهبه ها تموم نشد؟
-</div>
-
-## tasiyanc — post 7652
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☕⚡Mocha Fast.npvt
-</div>
-
-## tasiyanc — post 7651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Canada 🇨🇦 & Morocco 🇲🇦 🏆
-
-کی میبره
-</div>
-
-## tasiyanc — post 7645
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-2 سرور حجم و کاربر نامحدود ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال به اینجکتور ✨
-
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-</div>
-
-## tasiyanc — post 7643
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید https://t.me/FreeConfigTsBot?start=facac4538f0c
 </div>
 
