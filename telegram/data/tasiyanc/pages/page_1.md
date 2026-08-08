@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/17 16:46
+📅 آخرین بروزرسانی: 1405/05/17 19:31
 
 ---
+
+## tasiyanc — post 9112
+
+<div align="center"><video src="files/post_9112_tasiyanc_9112.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9112_tasiyanc_9112.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید 
+🆕
+
+prompt Cinematic Winter Fashion Portrait 
+🤖
+🤖
+cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, street, symmetrical face, look at camera, detailed face, photo studio, awesome light, muted colors :: Fashion Photographer
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9111
 
@@ -11,8 +29,6 @@
 </div>
 
 ## tasiyanc — post 9110
-
-<div align="center"><a href="files/post_9110_⚡️ @Tasiyanc ⚡️ Pre.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡️ @Tasiyanc ⚡️ Pre.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 •کانفیگ اختصاصی پرسرعت نپسترنت📱
@@ -232,24 +248,5 @@ Prompt
 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن تا جان بده!
 
 @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 
-📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/17 18:52
+📅 آخرین بروزرسانی: 1405/05/17 19:29
 
 ---
+
+## ProxyMTProto — post 47859
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowaboost.com
+Port: 853
+Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47858
 
@@ -172,15 +181,6 @@ Secret: eeed5518514cf40187d905c5b7c9e4d595617669746f2e7275
 Server: connect.chunkycorp.shop
 Port: 443
 Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: boost.flowstreamhub.site
-Port: 8443
-Secret: ee7ee0a641b78ecc8d210e47981904a50a626f6f73742e666c6f7773747265616d6875622e73697465
 @ProxyMTProto
 </div>
 

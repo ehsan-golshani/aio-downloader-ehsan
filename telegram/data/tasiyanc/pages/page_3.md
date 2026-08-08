@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/17 16:46
+📅 آخرین بروزرسانی: 1405/05/17 19:31
 
 ---
+
+## tasiyanc — post 9065
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[SuperFast] @Tasiyanc 🔥.npvt
+</div>
 
 ## tasiyanc — post 9064
 
@@ -252,17 +258,5 @@ Join @TASIYANC
 
 بفرست برا کسی که میخوای عکس پاشو برات بده 😂
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9034
-
-<div align="center"><video src="files/post_9034_tasiyanc_9034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9034_tasiyanc_9034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این سکانس GOT برای دنیا معمولیه برای ما ایرانیا نه
-
-@TASIYANC ⭐️
 </div>
 

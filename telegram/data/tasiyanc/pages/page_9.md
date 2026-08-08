@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/17 16:46
+📅 آخرین بروزرسانی: 1405/05/17 19:31
 
 ---
+
+## tasiyanc — post 8915
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 تنها دلیل حمله نکردن ترامپ لو رفتن نقشه و طرح حمله از طرف رسانه ها بود
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8914
 
@@ -250,13 +261,5 @@ g10
 اتصال امن برای همه
 
  @TASIYANC ✨
-</div>
-
-## tasiyanc — post 8890
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ایالات متحده آمریکا از تمامی شهروندانش خواسته هرچه سریع بدون وقفه خاورمیانه رو ترک کنن
-
-🔱 @TASIYANC
 </div>
 

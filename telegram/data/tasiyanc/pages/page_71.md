@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/17 16:46
+📅 آخرین بروزرسانی: 1405/05/17 19:31
 
 ---
+
+## tasiyanc — post 6790
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩
+
+@Tasiyanc ✅ | تاسیان
+</div>
 
 ## tasiyanc — post 6789
 
@@ -189,11 +197,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شرمنده ادمین تبادل پستهارو اشتباهی زده ❤️
-</div>
-
-## tasiyanc — post 6762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاسیان ( خانواده بزرگ من) ❤️
 </div>
 
