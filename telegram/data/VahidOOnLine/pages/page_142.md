@@ -1,8 +1,63 @@
 # آرشیو کانال VahidOOnLine - صفحه 142
 
-📅 آخرین بروزرسانی: 1405/05/17 10:46
+📅 آخرین بروزرسانی: 1405/05/17 11:39
 
 ---
+
+## VahidOOnLine — post 250770
+
+<div align="center"><img src="files/post_250770_VahidOOnLine_250770.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حسین مظفر، عضو مجمع تشخیص مصلحت نظام گفت که ما به کشتی‌ها در بخش عمانی تنگه هرمز حمله می‌کنیم چون که دشمن از همان مسیر و با عبور از آب‌های عمان، تجهیزات نظامی خود را حمل می‌کند تا امنیت ملی ما را به مخاطره بیندازد.
+
+او ادامه داد: «ما با دشمنی مکار، حیله‌گر و فریبکار مواجهیم که زیر میز مذاکره می‌زند، اما نباید از آرمان‌های خود کوتاه بیاییم و باید دقیقا همان شروطی را که رهبری گفته، مد نظر داشته باشیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250769
+
+<div align="center"><video src="files/post_250769_VahidOOnLine_250769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250769_VahidOOnLine_250769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️استانداری هرمزگان اعلام کرد بامداد شنبه ۲۷ تیر، در ادامه حملات آمریکا، پل محور میناب به رودان پس از دوراهی سرزه، پل رودخانه شور در محور بندرعباس–سیرجان و همچنین تونل شهید میرزایی در مسیر رفت و برگشت هدف حمله قرار گرفته‌اند.
+در ویدیوهای منتشرشده در شبکه‌های اجتماعی از محل حادثه، دیده می‌شود دو خودرو بر اثر آسیب دیدن پل به پایین سقوط کرده‌اند. مقام‌های استانی اعلام کرده‌اند تلاش برای ایجاد مسیرهای جایگزین و راه‌های کنارگذر در حال انجام است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250768
+
+<div align="center"><video src="files/post_250768_VahidOOnLine_250768.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250768_VahidOOnLine_250768.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال وقوع انفجار بامداد شنبه در سایت موشکی لار در استان فارس را نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250767
+
+<div align="center"><img src="files/post_250767_VahidOOnLine_250767.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️وزارت برق، آب و انرژی‌های تجدیدپذیر کویت، روز شنبه ۲۷ تیرماه، اعلام کرد پس از حمله نیروهای مسلح جمهوری اسلامی به یک نیروگاه تولید برق و آب‌شیرین‌کن در این کشور، آتش‌سوزی در این تاسیسات رخ داده و چند واحد تولید برق در پی این حادثه از مدار خارج شده‌اند.
+
+وزارت برق کویت روز جمعه نیز از خسارت و از کارافتادن یکی دیگر از تاسیسات تولید برق و آب این کشور در اثر حملات جمهوری اسلامی خبر داده بود.
+
+روابط عمومی سپاه پاسداران انقلاب اسلامی، صبح شنبه اعلام کرده بود: «اسکله پشتیبانی سوخت ناوگان آمریکا در بندر الاحمدی کویت» را هدف حملات پهپادی و موشکی قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250766
 
@@ -245,59 +300,6 @@ iranintl
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️به گزارش رویترز، دود ناشی از آتش‌سوزی‌های گسترده در کانادا، بخش‌های وسیعی از شمال شرقی ایالات متحده از جمله واشنگتن را در بر گرفت و مقامات را در بیش از دوازده ایالت مجبور کرد تا روز جمعه هشدار کیفیت هوا صادر کنند. این توده غلیظ از دود و مه که آسمان کاخ سفید و ساختمان کنگره آمریکا را پوشانده، در امتداد سواحل شرقی تا ایالت‌های غربی‌تری مانند مینه‌سوتا امتداد یافته است. این در حالی است که بر اساس آمار رسمی، تا روز پنجشنبه حدود ۸۵۹ آتش‌سوزی فعال در کانادا در جریان بوده که ۱۱۳ مورد آن خارج از کنترل گزارش شده و تاکنون به تخلیه بیش از هزار و ۶۰۰ نفر از ساکنان بومی منطقه منجر شده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250750
-
-<div align="center"><img src="files/post_250750_VahidOOnLine_250750.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️به گزارش خبرگزاری فرانسه، ارتش اردن با انتشار بیانیه‌ای اعلام کرد که سامانه‌های پدافند هوایی این کشور موفق شده‌اند ۱۰ موشک شلیک‌شده از سوی ایران را که با ورود به حریم هوایی اردن، قلمرو این پادشاهی را هدف قرار داده بودند، رهگیری و سرنگون کنند. ارتش اردن در این بیانیه تاکید کرده است که این حملات موشکی هیچ‌گونه تلفات جانی یا خسارت مادی در پی نداشته است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250749
-
-<div align="center"><video src="files/post_250749_VahidOOnLine_250749.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250749_VahidOOnLine_250749.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تصاویر منتشرشده در رسانه‌های عراق، جمعه شب ۲۶ تیرماه، از وقوع انفجار و آتش‌سوزی گسترده در استان سلیمانیه پس از یک حمله پهپادی حکایت دارد.
-در این تصاویر، شعله‌های آتش بخش قابل توجهی از منطقه را دربر گرفته و دود غلیظی به آسمان بلند شده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250748
-
-<div align="center"><img src="files/post_250748_VahidOOnLine_250748.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیروهای مسلح اردن اعلام کردند سامانه‌های دفاعی این کشور ۱۰ موشک شلیک‌شده از ایران را رهگیری کرده‌اند.
-
-به گزارش خبرگزاری رسمی اردن، این رویداد تلفات جانی یا خسارت مالی بر جای نگذاشته است.
-
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250747
-
-<div align="center"><img src="files/post_250747_VahidOOnLine_250747.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت کشور بحرین اعلام کرد آژیرهای هشدار برای سومین بار در این کشور به صدا درآمده‌اند.
-
-تاکنون جزئیاتی درباره علت فعال شدن آژیرها یا تهدید احتمالی منتشر نشده است، اما پیش از این، نیروهای مسلح جمهوری اسلامی از حمله به کویت و بحرین خبر داده بودند.
-
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
