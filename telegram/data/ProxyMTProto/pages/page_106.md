@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/17 11:40
+📅 آخرین بروزرسانی: 1405/05/17 12:42
 
 ---
+
+## ProxyMTProto — post 47806
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47805
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: swift.quickrouteapp.xyz
+Port: 8443
+Secret: ee68a56bf93ff9c02daa862d3830de722773776966742e717569636b726f7574656170702e78797a
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47804
 
@@ -163,24 +181,6 @@ Secret: ee6220eec9be6b790ee969f86c6c7baaa46e6f6c6167732e717569636b726f7574656170
 Server: big3.mtproxygram.lol
 Port: 853
 Secret: ee9909e7aa6bc62461a0b60f33af14a68462726f777365722e79616e6465782e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dot.vdl.lat
-Port: 853
-Secret: ee9963ec50cf89d852bb1e084a44b196e4646f742e76646c2e6c6174
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7980
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 

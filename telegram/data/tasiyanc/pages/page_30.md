@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/17 11:42
+📅 آخرین بروزرسانی: 1405/05/17 12:44
 
 ---
+
+## tasiyanc — post 8276
+
+<div align="center"><img src="files/post_8276_tasiyanc_8276.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بریم به کی بگیم این ایرانِ ۵۰ سال پیش ما بود !
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8275
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ انفجار در یگان امداد سنندج ، تایید / تکذیب نمیشه
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8274
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ انفجار شدید در بوشهر
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8273
 
@@ -176,25 +202,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8245
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلاااااااااار 195 😐
-</div>
-
-## tasiyanc — post 8244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلاااااااااار 195 😐
-</div>
-
-## tasiyanc — post 8243
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش اعضا : اصفهان و استان های جنوبی اینترنت بشدت ضعیفه ،
-
-کامنت بزارید وضعیت نتتون چطوره
 </div>
 

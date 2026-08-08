@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/17 11:42
+📅 آخرین بروزرسانی: 1405/05/17 12:44
 
 ---
+
+## tasiyanc — post 9098
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از تیم اتکر تاسیان تشکر میکنم بخاطر کار خوبی ک چند روزه کردن ، خط قرمز کانال و اعضاء رد بشه تیم اتکر ورود میکنن
+</div>
+
+## tasiyanc — post 9096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت کاپلی VIP اختصاصی تاسیان 
+🆕 😎 عکس خودتون و پارتنرتون بدید به AI Prompt 🤖🤖 "Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim…
+</div>
+
+## tasiyanc — post 9095
+
+<div align="center"><img src="files/post_9095_tasiyanc_9095.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت کاپلی VIP اختصاصی تاسیان 
+🆕 😎
+
+عکس خودتون و پارتنرتون بدید به AI
+
+Prompt 🤖🤖
+"Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim shirt, driving with a lit cigar in his mouth, hand on the wheel. Woman with dark, shaggy hair and bangs, wearing gold-framed aviator sunglasses and a denim shirt, leaning her head on the man's shoulder. View is framed by the car's windshield and wipers. The red hood is prominent in the foreground. Gritty film grain, warm color correction, vintage photography. Shot with Kodak Portra film."
+آموزش استفاده 👉
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9094
 
@@ -38,8 +68,6 @@ Close-up portrait of a woman illuminated by soft, warm afternoon light streaming
 <div align="center"><video src="files/post_9092_tasiyanc_9092.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_9092_tasiyanc_9092.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_9092_app (7).apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app (7).apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚠️ #پیشنهاد_ویژه 
@@ -280,37 +308,5 @@ https://t.me/+5fvta-uF4QA3ZDY0
 
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر مهم 
-🔴 توافق مکه بین کشور های ترکیه ، پاکستان و عربستان امضاء شد
-
-بعد امضاء این توافق رجب طیب اردوغان «رییس جمهور ترکیه» گفت :
-«هرگونه حمله مسلحانه به هر یک از کشورها، از جمله ترکیه، عربستان سعودی و پاکستان، به عنوان یک حمله به همه آن‌ها تلقی می‌شود.»
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9075
-
-<div align="center"><img src="files/post_9075_tasiyanc_9075.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مردی در کشور ولز لباس عزرائیل میپوشید هر صبح می‌رفت روبروی بیمارستان به پنجره بیماران زل میزد ، توسط پلیس دستگیر شد 😞
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 7 آگوست روز جهانی ترویج شیردهی هست
-
-+بفرست برا کسی که میخوای بت شیر بده 😞
-
-@TASIYANC ✅
 </div>
 
