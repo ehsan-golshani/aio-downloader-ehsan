@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/17 14:22
+📅 آخرین بروزرسانی: 1405/05/17 14:53
 
 ---
+
+## tasiyanc — post 8145
+
+<div align="center"><img src="files/post_8145_tasiyanc_8145.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏔 روستای کندوان تبریز از معدود روستاهای صخره‌ای جهان است طبیعت زیبا، آب‌وهوای خنک و معماری منحصربه‌فرد، کندوان را به یکی از محبوب‌ترین جاذبه‌های گردشگری ایران تبدیل کرده است.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8142
 
@@ -187,13 +197,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کاش جنوب ایران هم اندازه جنوب لبنان براتون مهم بود
-</div>
-
-## tasiyanc — post 8114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴حملات شدید آمریکا به اهواز عزیز
-
-@Tasiyanc
 </div>
 

@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/17 14:22
+📅 آخرین بروزرسانی: 1405/05/17 14:53
 
 ---
+
+## tasiyanc — post 6520
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور متد جدید سرعتی🚀
+
+نامحدود  - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6516
 
@@ -202,11 +221,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حواسم نبود ، ریکشن چرا نزدید؟ 😐
-</div>
-
-## tasiyanc — post 6483
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلمشو میزارم داخل کامنتا برای مهندسان عالی رتبه chatgbt که توی گروه نظر میدادن
 </div>
 

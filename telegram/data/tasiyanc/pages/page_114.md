@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/17 14:22
+📅 آخرین بروزرسانی: 1405/05/17 14:53
 
 ---
+
+## tasiyanc — post 5599
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خیلی خوبن🥹
+</div>
 
 ## tasiyanc — post 5598
 
@@ -175,11 +181,5 @@
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو ده مین ۱۰۰ تا فور 😐
 </div>
 

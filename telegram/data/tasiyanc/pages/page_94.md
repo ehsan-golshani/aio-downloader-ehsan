@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/05/17 14:22
+📅 آخرین بروزرسانی: 1405/05/17 14:53
 
 ---
+
+## tasiyanc — post 6128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+4سرور  سرعتی تست شده 
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6127
 
@@ -174,13 +191,5 @@ https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunne
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6103
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨خبرگزاری تسنیم:
-استعفای پزشکیان کذب است
-@Tasiyanc ✅
 </div>
 

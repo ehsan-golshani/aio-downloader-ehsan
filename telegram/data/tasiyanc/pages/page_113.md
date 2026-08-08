@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/05/17 14:22
+📅 آخرین بروزرسانی: 1405/05/17 14:53
 
 ---
+
+## tasiyanc — post 5631
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمام سرورا با همراه اول & وای‌فای تست میشن
+</div>
 
 ## tasiyanc — post 5629
 
@@ -158,11 +164,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🥹💋 fadatooooooooooooonnn
-</div>
-
-## tasiyanc — post 5599
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خیلی خوبن🥹
 </div>
 

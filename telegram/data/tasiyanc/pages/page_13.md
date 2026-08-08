@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/17 14:22
+📅 آخرین بروزرسانی: 1405/05/17 14:53
 
 ---
+
+## tasiyanc — post 8791
+
+<div align="center"><video src="files/post_8791_tasiyanc_8791.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8791_tasiyanc_8791.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مجری بعد این برنامه کلا اخراج شد 😂
+ارزش دانلود ۱۰۰۰ از ۱۰
+
+داستان از این قراره کسایی ک مشکلات حنجره داشتن و معلول بودن دعوت بودن به برنامه
+
+⭐@TASIYANC 
+⭐️
+</div>
 
 ## tasiyanc — post 8790
 
@@ -215,14 +231,5 @@
 🔴 نخست‌وزیر نتانیاهو و رئیس‌جمهور ترامپ در کاخ سفید.
 
 @TASIYANc ⭐️
-</div>
-
-## tasiyanc — post 8764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق اعلام بانک مرکزی؛
-تورم نقطه به نقطه تیرماه ۸۳.۹ درصد اعلام شد.
-یعنی کالاها نسبت به تیرماه سال قبل؛ ۸۳.۹ درصد گرون تر شدن ک فک کنم زیاد بوده باشه
-@Tasiyanc ⭐️
 </div>
 

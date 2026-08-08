@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/05/17 14:20
+📅 آخرین بروزرسانی: 1405/05/17 14:51
 
 ---
+
+## ProxyMTProto — post 48030
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48029
 
@@ -172,15 +181,6 @@ Secret: ee2419e93e2af4bddd80bb8bc8936ea49879612e70726f78796f62686f642e6f6e6c696e
 Server: apex.proxytop.space
 Port: 443
 Secret: ee05d3d7463edfb7a674cc1d89ba24eeba617065782e70726f7879746f702e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48010
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: jet.quickrouteapp.xyz
-Port: 8443
-Secret: eeedca657d767c71c26de484e74182c3076a65742e717569636b726f7574656170702e78797a
 @ProxyMTProto
 </div>
 
