@@ -1,8 +1,51 @@
 # آرشیو کانال VahidOOnLine - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/17 06:23
+📅 آخرین بروزرسانی: 1405/05/17 07:37
 
 ---
+
+## VahidOOnLine — post 252849
+
+<div align="center"><video src="files/post_252849_VahidOOnLine_252849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252849_VahidOOnLine_252849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت خارجه نیوزیلند در پاسخ به ایران‌اینترنشنال بر مخالفت خود با اعدام و حمایت از حق اعتراض مسالمت‌آمیز در ایران تاکید کرد و استرالیا نیز با محکوم کردن اعدام مخالفان سیاسی از سوی جمهوری اسلامی، خواستار توقف فوری اعدام‌ها شد.
+
+گفت‌وگو با علیرضا محبی، خبرنگار ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252848
+
+<div align="center"><video src="files/post_252848_VahidOOnLine_252848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252848_VahidOOnLine_252848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کتی امیری‌یونسی، وکیل مدنی، درباره اعدام معترضان در ایران از سوی جمهوری اسلامی به ایران‌اینترنشنال گفت نهادهای بین‌المللی حقوق بشری در حال ثبت جنایت‌های جمهوری اسلامی هستند و عاملان این جنایت‌ها باید در آینده پاسخ‌گو شوند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252847
+
+<div align="center"><video src="files/post_252847_VahidOOnLine_252847.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252847_VahidOOnLine_252847.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم‌زمان با دور تازه اعدام معترضان در ایران، رهبر محافظه‌کاران مجلس سنای کانادا، به دولت و متحدان این کشور هشدار داد که از مدارا با جمهوری اسلامی دست بردارند. لئو هوساکوس، در پاسخ اختصاصی به ایران‌اینترنشنال درباره اعدام معترضان ایرانی گفت که این اعدام‌ها با هدف ارعاب مردمی طراحی شده که شجاعانه برای آزادی خود می‌جنگند.
+
+مهسا مرتضوی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252846
 
@@ -257,47 +300,6 @@
 همچنین معاون سیاسی امنیتی و اجتماعی استاندار بوشهر از حمله هوایی به اطراف شهرهای جم و خورموج از توابع بوشهر در بامداد پنجشنبه خبر داد.
 
 بر اساس گزارش مقام‌های محلی بوشهر، این حملات تلفات جانی در پی نداشته است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252807
-
-<div align="center"><img src="files/post_252807_VahidOOnLine_252807.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ دانشگاه علوم پزشکی هرمزگان، صبح پنجشنبه، هشتم مرداد ماه اعلام کرد، بر اثر حمله آمریکا به «یک منزل مسکونی» در محله چاهتنگو در قشم،‌ سه عضو یک خانواده کشته و دو نفر دیگر زخمی شدند.
-دانشگاه علوم پزشکی هرمزگان اعلام کرد در حمله آمریکا «به یک منزل مسکونی در محله چاه تنگو شهر قشم، پدر و مادر خانواده و یک کودک ۲ ساله به کشته شدند و ۲ فرزند ۷ و ۹ ساله بر اثر این حملات زخمی و به بیمارستان منتقل شدند.»
-به گفته مقام‌های استان هرمزگان، تلاش نیروهای امدادی برای یافتن کودک دیگر این خانواده، ادامه دارد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252806
-
-<div align="center"><video src="files/post_252806_VahidOOnLine_252806.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252806_VahidOOnLine_252806.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرخط خبرهای پنج‌شنبه ۸ مرداد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252805
-
-<div align="center"><video src="files/post_252805_VahidOOnLine_252805.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252805_VahidOOnLine_252805.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ارتش آمریکا صبح چهارشنبه هشتم مرداد اعلام کرد تازه‌ترین موج حملات خود به ایران را به پایان رسانده است؛ حملاتی که به گفته واشنگتن حدود دو ساعت به طول انجامید و ده‌ها هدف را در نقاط مختلف استان‌های جنوبی ایران هدف قرار داد. مقام‌های آمریکایی این حملات را «پاسخی قاطع» به شلیک موشک‌های نیروهای مسلح جمهوری اسلامی به سوی نیروهای آمریکا در خاورمیانه در روز پیش از آن توصیف کردند.
-ویدیوهای منتشرشده از جزیره قشم، ستون‌های دود را پس از حملات گزارش‌شده نشان می‌دهد. خبرگزاری رویترز اعلام کرد با بررسی تطبیقی چینش جاده‌ها، ساختمان‌ها و پوشش گیاهی در تصاویر آرشیوی و ماهواره‌ای، محل فیلم را در جزیره قشم تایید کرده است.
-خبرگزاری تسنیم بامداد پنج‌شنبه نهم مرداد گزارش داد صدای چند انفجار در جزیره قشم شنیده شده و یک منطقه مسکونی هدف اصابت موشک قرار گرفته است.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
