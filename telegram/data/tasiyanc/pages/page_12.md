@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/17 23:18
+📅 آخرین بروزرسانی: 1405/05/18 01:15
 
 ---
+
+## tasiyanc — post 8832
+
+<div align="center"><img src="files/post_8832_tasiyanc_8832.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید مالک تلگرام پاول دروف توی چنل تلگرامش:
+
+عکس خودشو گذاشته نوشته به من میگن تروریست.
+بعد به طالبان میگن شرکای تجاری😂
+⭐ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8826
 
@@ -271,11 +283,5 @@ Multi Location ⚡
 اتصال امن برای همه 🇮🇷
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹الجزیره: تعداد کشته و مجروح های حشدالشعبی تو حملات دیشب آمریکا و عربستان به 50نفر رسید 🚶‍♂
 </div>
 

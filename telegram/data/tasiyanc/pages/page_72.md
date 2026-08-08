@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/17 23:18
+📅 آخرین بروزرسانی: 1405/05/18 01:15
 
 ---
+
+## tasiyanc — post 6768
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6767
 
@@ -182,15 +196,6 @@ INFERNO ⚡ vip.npvt
 
 ‏شکیرا حتی از پیکه هم تو فوتبال موفق تره 🤣
 
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6715
-
-<div align="center"><img src="files/post_6715_tasiyanc_6715.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز جهانی دوس داشتنو بهتون تبریک میگیم
 @Tasiyanc ✅
 </div>
 

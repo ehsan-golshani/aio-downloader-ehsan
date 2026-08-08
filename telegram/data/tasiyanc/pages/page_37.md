@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/17 23:18
+📅 آخرین بروزرسانی: 1405/05/18 01:15
 
 ---
+
+## tasiyanc — post 8093
+
+<div align="center"><video src="files/post_8093_tasiyanc_8093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8093_tasiyanc_8093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوس پسرم جوابمو نمی‌ده حتما داره بهم خیانت می‌کنه ، دوس پسرش :
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8092
 
@@ -195,17 +207,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨🚨🚨🚨 حمله آمریکا هم اکنون به بوشهر ۴ انفجار شدید @TasiyanProxy ☑️
-</div>
-
-## tasiyanc — post 8059
-
-<div align="center"><img src="files/post_8059_tasiyanc_8059.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سری جدید پول سلامتی نمیاره😐
-
-بانو شکیرا خواننده محبوب با ۵۰ سال سن :
-
-@Tasiyanc ⭐️
 </div>
 

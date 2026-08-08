@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/17 23:18
+📅 آخرین بروزرسانی: 1405/05/18 01:15
 
 ---
+
+## tasiyanc — post 8059
+
+<div align="center"><img src="files/post_8059_tasiyanc_8059.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سری جدید پول سلامتی نمیاره😐
+
+بانو شکیرا خواننده محبوب با ۵۰ سال سن :
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8058
 
@@ -262,15 +274,5 @@
 هرکی گفت پول خوشبختی نمیاره اینو نشونش بده خفه شه؛ تعطیلات وینیسیوس با دوست دخترش:
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7997
-
-<div align="center"><img src="files/post_7997_tasiyanc_7997.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏نسل جدید چه میدونه "بقیه پول" چیه
-
-@Tasiyanc✅
 </div>
 
