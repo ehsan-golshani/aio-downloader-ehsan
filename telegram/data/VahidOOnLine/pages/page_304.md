@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 304
 
-📅 آخرین بروزرسانی: 1405/05/17 23:44
+📅 آخرین بروزرسانی: 1405/05/18 00:24
 
 ---
+
+## VahidOOnLine — post 247141
+
+<div align="center"><img src="files/post_247141_VahidOOnLine_247141.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ سفارت ایالات متحده آمریکا در کویت که در زمان جنگ در خاورمیانه، هدف قرار گرفته و تعطیل شده بود، فعالیت خود را از سر گرفته است. سخنگوی وزارت خارجه آمریکا، روز چهارشنبه سوم تیرماه، همزمان با سفر مارکو روبیو به این کشور، خبر بازگشایی سفارت را اعلام کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247140
 
@@ -290,19 +301,6 @@ iranintl
 
 او در ادامه خطاب به طرف آمریکایی نوشت: «نمی توانید با هیاهوی رسانه‌ای، سیاست راه بینداز و جا بینداز را پیش ببرید.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247105
-
-<div align="center"><video src="files/post_247105_VahidOOnLine_247105.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247105_VahidOOnLine_247105.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روایت راه‌آهن سراسری، از رویای تجددخواهان تا پروژه‌ای که با کوشش رضاشاه، ایران را به هم پیوند زد.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

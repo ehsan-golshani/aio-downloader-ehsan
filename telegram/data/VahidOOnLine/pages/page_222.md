@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 222
 
-📅 آخرین بروزرسانی: 1405/05/17 23:44
+📅 آخرین بروزرسانی: 1405/05/18 00:24
 
 ---
+
+## VahidOOnLine — post 248956
+
+<div align="center"><img src="files/post_248956_VahidOOnLine_248956.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️وزارت کشور بحرین در اکس اعلام کرد آژیرهای هشدار در این کشور به صدا درآمده و از شهروندان خواست «آرامش خود را حفظ کنند و به نزدیک‌ترین مکان امن بروند».
+این هشدار پس از آن صادر شد که سپاه پاسداران اعلام کرد در واکنش به حملات اخیر آمریکا، «پاسخی کوبنده» خواهد داد.
+بحرین محل استقرار مقر ناوگان پنجم نیروی دریایی آمریکا است؛ ناوگانی که وظیفه گشت‌زنی و تأمین امنیت در خلیج فارس، دریای سرخ و دریای عمان را بر عهده دارد.
+سپاه در طول جنگ، بارها پایگاه‌های نظامی آمریکا در منطقه، از جمله در بحرین، را هدف حمله قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248955
 
@@ -241,19 +255,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران‌اینترنشنال، دود و انفجار ناشی از حمله آمریکا به مواضع جمهوری اسلامی را در بندرعباس در بامداد چهارشنبه ۱۷ تیر نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248931
-
-<div align="center"><video src="files/post_248931_VahidOOnLine_248931.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248931_VahidOOnLine_248931.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی در شبکه‌های اجتماعی منتشر شده که نشان می‌دهد در پی حمله آمریکا به مواضع حکومت در بندرعباس در بامداد چهارشنبه ۱۷ تیر، یک شهروند می‌گوید بندرعباس را به‌شدت هدف قرار داده‌اند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/05/17 23:44
+📅 آخرین بروزرسانی: 1405/05/18 00:25
 
 ---
+
+## ProxyMTProto — post 48269
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 51.250.86.244
+Port: 443
+Secret: eeaa8f2cfd941607525db63d42dcc1971d617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48268
 
@@ -172,15 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e63
 Server: login.klyuch1k.org
 Port: 443
 Secret: ee7fe48cfdec0ea3ef252cabc2fadda0206c6f67696e2e6b6c79756368316b2e6f7267
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48249
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Iran.mother.ir.jetish.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 

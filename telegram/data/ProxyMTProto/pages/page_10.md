@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/17 23:44
+📅 آخرین بروزرسانی: 1405/05/18 00:25
 
 ---
+
+## ProxyMTProto — post 49758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: flux.balalaika.click
+Port: 443
+Secret: ee6a7f849183817e1361401fb9de32bd35666c75782e62616c616c61696b612e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49757
 
@@ -172,15 +181,6 @@ Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
 Server: bastani.mikham.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49738
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.kvakzon.top
-Port: 443
-Secret: ee8c9511c54296c007462dfa294a6130b363646e2e6b76616b7a6f6e2e746f70
 @ProxyMTProto
 </div>
 

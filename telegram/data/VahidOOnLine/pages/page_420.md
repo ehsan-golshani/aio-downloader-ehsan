@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 420
 
-📅 آخرین بروزرسانی: 1405/05/17 23:44
+📅 آخرین بروزرسانی: 1405/05/18 00:24
 
 ---
+
+## VahidOOnLine — post 243849
+
+<div align="center"><video src="files/post_243849_VahidOOnLine_243849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243849_VahidOOnLine_243849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️کلودیا شینبائوم، رئیس‌جمهور مکزیک، روز پنجشنبه ۱۴ خردادماه در پایان نشست خبری با اقدامی غیرمنتظره، یک توپ فوتبال را به سمت خبرنگاران پرتاب کرد.
+در این لحظه، دو خبرنگار برای گرفتن توپ تلاش کردند که یکی از آن‌ها روی زمین افتاد. شینبائوم بلافاصله به سمت او رفت، کمکش کرد از زمین بلند شود و توپ را به او داد.
+این لحظه صمیمی و طنزآمیز با خنده و واکنش مثبت حاضران همراه شد و فضای رسمی نشست را برای دقایقی تغییر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243848
 
@@ -266,19 +281,6 @@
 
 مشاور نظامی مجتبی خامنه‌ای تاکید کرد: «اگر ترامپ مذاکرات را جدی بگیرد، ۲۴ میلیارد دلار برای آمریکا مبلغ زیادی نیست. اگر او واقعا می‌خواهد با تهران به توافق برسد، این ۲۴ میلیارد دلار آزمونی برای سنجش میزان جدیت و حسن نیت اوست.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243822
-
-<div align="center"><video src="files/post_243822_VahidOOnLine_243822.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243822_VahidOOnLine_243822.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش‌ها از کاهش شدید صادرات نفت ایران حکایت دارند. تجربه تاریخی نشان می‌دهد وقتی درآمد نفتی سقوط می‌کند، پیامدهای آن معمولا در بخش انرژی متوقف نمی‌ماند. از ونزوئلا تا اتحاد جماهیر شوروی، از عراق تا لیبی، شوک‌های نفتی اغلب فقط یک بحران مالی نیستند، بلکه واقعیت‌های عمیق‌تر اقتصادی و سیاسی را آشکار می‌کنند.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

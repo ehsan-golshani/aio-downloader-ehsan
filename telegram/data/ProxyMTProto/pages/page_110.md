@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/05/17 23:44
+📅 آخرین بروزرسانی: 1405/05/18 00:25
 
 ---
+
+## ProxyMTProto — post 47749
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: alpinavpn.hatecens.cc
+Port: 7443
+Secret: ee27a9fe4d55c1a9dabfcb2b872b00b6e6616c70696e6176706e2e6861746563656e732e6363
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47748
 
@@ -172,15 +181,6 @@ Secret: dde71c854efc71f477856bd59728888359
 Server: Unknown
 Port: 15
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 79.137.196.223
-Port: 7443
-Secret: eeeeb30662ee79541fb143515ad872d2e9dd7777772e636c6f7564666c6172652e636f6d
 @ProxyMTProto
 </div>
 

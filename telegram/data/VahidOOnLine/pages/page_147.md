@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 147
 
-📅 آخرین بروزرسانی: 1405/05/17 23:44
+📅 آخرین بروزرسانی: 1405/05/18 00:24
 
 ---
+
+## VahidOOnLine — post 250748
+
+<div align="center"><img src="files/post_250748_VahidOOnLine_250748.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیروهای مسلح اردن اعلام کردند سامانه‌های دفاعی این کشور ۱۰ موشک شلیک‌شده از ایران را رهگیری کرده‌اند.
+
+به گزارش خبرگزاری رسمی اردن، این رویداد تلفات جانی یا خسارت مالی بر جای نگذاشته است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250747
 
@@ -266,17 +280,6 @@
 
 این مقام استانی افزود نیروهای راهداری در حال بازگشایی مسیرهای مسدودشده هستند. استانداری هرمزگان نیز با اشاره به احتمال حملات دوباره، از شهروندان خواست تا اطلاع بعدی از تردد غیرضروری در جاده‌ها و محورهای ارتباطی استان خودداری کنند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250727
-
-<div align="center"><img src="files/post_250727_VahidOOnLine_250727.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️بنابر اعلام معاونت سیاسی، امنیتی و اجتماعی استانداری هرمزگان، در پی حملات موشکی و هوایی به برخی مناطق این استان، تاکنون «سه نفر جان خود را از دست داده و هشت نفر دیگر مجروح شده‌اند».
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

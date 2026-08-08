@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 361
 
-📅 آخرین بروزرسانی: 1405/05/17 23:44
+📅 آخرین بروزرسانی: 1405/05/18 00:24
 
 ---
+
+## VahidOOnLine — post 245514
+
+<div align="center"><img src="files/post_245514_VahidOOnLine_245514.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یوری اوشاکوف، مشاور کرملین، گفت دونالد ترامپ در گفت‌وگوی تلفنی با ولادیمیر پوتین اعلام کرد توافق برای پایان دادن به درگیری با جمهوری اسلامی تقریبا نهایی شده است.
+به گفته اوشاکوف، رییس‌جمهوری روسیه از پایان یافتن درگیری‌ها ابراز خرسندی کرده است.
+مشاور کرملین همچنین گفت ترامپ در این گفت‌وگو بر ضرورت پایان جنگ اوکراین تاکید و آمادگی خود را برای کمک به این روند اعلام کرده است.
+اوشاکوف افزود پوتین نیز به‌صورت «غیررسمی» هشتادمین سالروز تولد ترامپ را به او تبریک گفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245513
 
@@ -278,19 +292,6 @@
 
 ترامپ در پایان نوشت: «این می‌تواند آغاز یک صلح طولانی و زیبا باشد؛ اجازه ندهید آن را از بین ببریم.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245494
-
-<div align="center"><video src="files/post_245494_VahidOOnLine_245494.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_245494_VahidOOnLine_245494.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم استرالیا یکشنبه ۲۴ خرداد با فراخوان شاهزاده رضا پهلوی و علیه جمهوری اسلامی در سیدنی تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

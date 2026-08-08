@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 148
 
-📅 آخرین بروزرسانی: 1405/05/17 23:44
+📅 آخرین بروزرسانی: 1405/05/18 00:24
 
 ---
+
+## VahidOOnLine — post 250727
+
+<div align="center"><img src="files/post_250727_VahidOOnLine_250727.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️بنابر اعلام معاونت سیاسی، امنیتی و اجتماعی استانداری هرمزگان، در پی حملات موشکی و هوایی به برخی مناطق این استان، تاکنون «سه نفر جان خود را از دست داده و هشت نفر دیگر مجروح شده‌اند».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250726
 
@@ -261,19 +272,6 @@ iranintl.co
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم اسپانیا جمعه ۲۶ تیر مراسم بزگداشت لیندزی گراهام، سناتور جمهوری‌خواه آمریکا و از منتقدان سرسخت جمهوری اسلامی را مقابل سفارت آمریکا در مادرید برگزار کردند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250707
-
-<div align="center"><video src="files/post_250707_VahidOOnLine_250707.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250707_VahidOOnLine_250707.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری مهر، بامداد شنبه گزارش داد:‌ «منابع محلی اعلام کردند که یک برخورد در حاشیه جنوبی لار شنیده شده است.» لار مرکز شهرستان لارستان است که در جنوب شرقی استان فارس قرار دارد. همزمان کانال تلگرامی «وحید آنلاین» تصاویری از «حمله به سایت موشکی در جاده گراش لار» را منتشر کرد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
