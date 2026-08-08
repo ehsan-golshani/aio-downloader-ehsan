@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/05/17 23:16
+📅 آخرین بروزرسانی: 1405/05/17 23:44
 
 ---
+
+## ProxyMTProto — post 47788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: nolags.quickrouteapp.xyz
+Port: 8443
+Secret: ee6220eec9be6b790ee969f86c6c7baaa46e6f6c6167732e717569636b726f7574656170702e78797a
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47787
 
@@ -173,19 +182,5 @@ Server: poll900.mtproxygram.pro
 Port: 853
 Secret: ee18ccad215fa76f14969bb6da115ed56b62726f777365722e79616e6465782e636f6d
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ Выделенный VPN или MTProxy?
-
-Заберите свой первый со скидкой 25% 🎁
-
-Промокод:
-PROXYMTPROTO
-
-💳 Кошелёк → 🎁 Применить промокод ⬇️
-@BlyatNetBot @BlyatNetBot
 </div>
 
