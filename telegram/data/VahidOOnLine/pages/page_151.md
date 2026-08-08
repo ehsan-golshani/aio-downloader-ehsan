@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 151
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 250558
+
+<div align="center"><video src="files/post_250558_VahidOOnLine_250558.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250558_VahidOOnLine_250558.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال نشان‌دهنده رد یک پرتابه در آسمان خمین استان مرکزی در صبح جمعه ۲۶ تیرماه است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250557
 
@@ -313,18 +326,6 @@
 
 متن کامل را اینجا بخوانید
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250534
-
-<div align="center"><img src="files/post_250534_VahidOOnLine_250534.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تصاویر منتشرشده روز جمعه ۲۶ تیر، لحظه فرو ریختن باقی‌مانده ساختمان برج مراقبت دریایی چابهار را نشان می‌دهد.
-این برج طی حملات چند روز گذشته آمریکا به چابهار هدف قرار گرفته بود و در حمله اخیر، باقی‌مانده ساختمان آن به‌طور کامل فرو ریخت.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

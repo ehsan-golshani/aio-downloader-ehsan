@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 344
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 245946
+
+<div align="center"><video src="files/post_245946_VahidOOnLine_245946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_245946_VahidOOnLine_245946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانیان ساکن هانوفر سه‌شنبه ۲۶ خرداد در گردهمایی‌ای به مناسبت زادروز جاویدنام مجیدرضا رهنورد، به اعدام‌ها در ایران اعتراض کرده و از شاهزاده رضا پهلوی حمایت کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245945
 
@@ -270,19 +283,6 @@
 
 تیم ملی فوتبال ایران پس از این نتیجه با سه پله سقوط در رده بیست‌وسوم رنکینگ فیفا قرار گرفت. در مقابل، نیوزیلند با کسب یک امتیاز از این مسابقه سه پله صعود کرد و به رتبه ۸۲ جهان رسید.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245924
-
-<div align="center"><img src="files/post_245924_VahidOOnLine_245924.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قرارگاه مرکزی خاتم‌الانبیا در اطلاعیه‌ای اعلام کرد که ارتش اسرائیل، طی دو روز گذشته پس از اعلام پایان جنگ از سوی ترامپ، «۸۴ بار آتش‌بس در جنوب لبنان را نقض کرده است.»
-
-قرارگاه خاتم‌الانبیا در ادامه این اطلاعیه هشدار داده چنانچه ارتش اسرائیل به حملات به جنوب لبنان پایان ندهد، باید «منتظر پاسخ سخت نیروهای مسلح جمهوری اسلامی» باشد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

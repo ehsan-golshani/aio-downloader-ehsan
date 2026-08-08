@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 380
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 244898
+
+<div align="center"><video src="files/post_244898_VahidOOnLine_244898.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244898_VahidOOnLine_244898.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوی رسیده به ایران اینترنشنال، حدود ساعت ۴ بامداد ۲۱ خردادماه محدوده پایگاه نظامی حصارک در کمالشهر کرج، پیاپی هدف گرفته شد. بنا بر گزارش‌ها این نقطه دست‌کم ۵ بار مورد اصابت قرار گرفت و در زمان وقوع حمله، نشانه‌ای از حضور جنگنده‌ها مشاهده نشد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244897
 
@@ -260,19 +273,6 @@
 
 این گزارش همزمان با آن منتشر شد که فرماندهی مرکزی ایالات متحده (سنتکام) که هدایت عملیات نظامی آمریکا در خاورمیانه را بر عهده دارد، اعلام کرد در تازه‌ترین دور حملات به ایران، سایت‌های راداری، ارتباطی و سامانه‌های پدافند هوایی را هدف قرار داده است. به گفته سنتکام، نیروی هوایی و دریایی آمریکا با استفاده از مهمات هدایت‌شونده دقیق در این عملیات مشارکت داشته‌اند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244865
-
-<div align="center"><video src="files/post_244865_VahidOOnLine_244865.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244865_VahidOOnLine_244865.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای منتشرشده در حساب کاربری «وحید آنلاین»، دود ناشی از انفجارها را در بامداد پنج‌شنبه ۲۱ خرداد، در پی حملات آمریکا به حوالی حصارک و کمال‌شهرِ استان البرز، نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

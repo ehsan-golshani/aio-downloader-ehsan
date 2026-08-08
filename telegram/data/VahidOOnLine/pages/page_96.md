@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 251783
+
+<div align="center"><img src="files/post_251783_VahidOOnLine_251783.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، درباره جنگ ایران گفت: «ما داریم به‌شدت خوب پیش می‌رویم. آن‌ها دوست دارند کاری انجام دهند، اما من می‌گویم هنوز آماده نیستند. آن‌ها نیت‌های شیطانی دارند. ما نمی‌توانیم اجازه دهیم آن‌ها به سلاح هسته‌ای دست پیدا کنند.»
+
+او افزود: «ما نمی‌توانیم اجازه دهیم آن‌ها حتی به داشتن یک سلاح هسته‌ای فکر کنند، و دقیقا همین چیزی است که در حال رخ دادن است. آن‌ها هرگز سلاح هسته‌ای نخواهند داشت.»
+
+رییس‌جمهوری آمریکا گفت: «ما می‌خواهیم این [جنگ] را تمام کنیم، و می‌خواهیم آن را به شکل درست انجام دهیم. اما باید کاری را که برای انجامش آمده‌ایم انجام دهیم، و آن این است که نمی‌توانیم اجازه دهیم این افراد بسیار خشونت‌طلب، چیزی را که می‌خواهند به دست بیاورند؛ یعنی سلاح هسته‌ای.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251782
 
@@ -260,19 +275,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گزارشگرمنوتو: «اگر در جنگ پیروز شدید پس چرا آب و برق نداریم؟»
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251758
-
-<div align="center"><video src="files/post_251758_VahidOOnLine_251758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251758_VahidOOnLine_251758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارشگرمنوتو: «این وضع منه؛ اسنپ‌فود حقوقم رو نمی‌ده»
 ‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 253185
+
+<div align="center"><img src="files/post_253185_VahidOOnLine_253185.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدباقر قالیباف، رییس مجلس گفت: «ما در جنگ پیروز شدیم، اما باید پیروزی را تثبیت و ثبت کنیم و حتما کشور هم باید امید به آینده داشته باشد و چشم‌انداز آینده آن روشن باشد.»
+
+او ادامه داد: «در گام دوم انقلاب باید متمرکز بر قوی شدن باشیم که یک شرط آن وحدت حول محور ولایت است.»
+
+قالیباف افزود: «ما مسئولان در درجه اول باید بسط ید برای ولایت فقیه ایجاد کنیم، اگر می‌خواهیم ایران قوی داشته باشیم باید از این نقطه شروع شود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253184
 
@@ -277,19 +292,6 @@ iranintl
 
 
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253165
-
-<div align="center"><video src="files/post_253165_VahidOOnLine_253165.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253165_VahidOOnLine_253165.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، روز جمعه با اشاره به اینکه «تنگه هرمز هیچ ارتباطی با دولت آمریکا ندارد» گفت: «تنگه هرمز با تمام تنگه‌های دنیا متفاوت است، چون ورودی یک خلیج است. آمریکا اصلا چه می‌خواهد؟ لذا ما از این به بعد به ورود آمریکایی‌ها به این تنگه مشکوکیم، چون در جنگ بودیم و الان هم هستیم.»
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

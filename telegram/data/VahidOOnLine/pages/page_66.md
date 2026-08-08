@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 252474
+
+<div align="center"><video src="files/post_252474_VahidOOnLine_252474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252474_VahidOOnLine_252474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌اینترنشنال در سه‌شنبه ششم مرداد، لحظه اعدام یکی از بازداشتی‌های دی‌ماه ۱۴۰۴ را در میدان علیخانی اصفهان همزمان با پخش اذان صبح نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252473
 
@@ -274,20 +287,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هم‌زمان با اعدام چند معترض بازداشت شده اعتراضات دی‌ماه در اصفهان در بامداد سه‌شنبه، ویدیوهای منتشر شده در فضای مجازی تجمعات اعتراضی و شعارهای ضدحکومتی شهروندان را در اطراف میدان علیخانی اصفهان نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252447
-
-<div align="center"><video src="files/post_252447_VahidOOnLine_252447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252447_VahidOOnLine_252447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️به گزارش رویترز، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، برای دیدار با دونالد ترامپ، رئیس‌جمهوری آمریکا، وارد این کشور شد. این نخستین دیدار حضوری دو رهبر از زمان آغاز حملات هوایی و موشکی مشترک به ایران به شمار می‌رود.
-این هشتمین دیدار نتانیاهو و ترامپ از زمان بازگشت ترامپ به کاخ سفید است. نتانیاهو همچنین قرار است روز سه‌شنبه در مراسم تشییع جنازه لیندزی گراهام، سناتور جمهوری‌خواه آمریکا شرکت کند
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

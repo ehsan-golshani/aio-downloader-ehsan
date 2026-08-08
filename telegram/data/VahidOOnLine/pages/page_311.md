@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 311
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 246873
+
+<div align="center"><img src="files/post_246873_VahidOOnLine_246873.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️محمدباقر قالیباف و عباس عراقچی، دوشنبه‌شب اول تیرماه برای دیدار با هیثم بن طارق، سلطان عمان، و رایزنی درباره روابط دوجانبه و مسائل منطقه‌ای راهی مسقط شدند.
+
+رسانه‌های جمهوری اسلامی گزارش دادند در این سفر، دو طرف درباره راه‌های گسترش همکاری‌های تهران و مسقط و همچنین موضوع «نحوه اداره» تنگه هرمز گفتگو خواهند کرد.
+
+این سفر در حالی انجام می‌شود که موضوع تنگه هرمز و ترتیبات امنیتی و دریایی آن، پس از تفاهم‌نامه اسلام‌آباد و مذاکرات اخیر ایران و آمریکا در سوئیس، به یکی از محورهای اصلی رایزنی‌های دیپلماتیک منطقه تبدیل شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246872
 
@@ -295,19 +310,6 @@ iranintl
 
 تیم ملی ایران ششم تیرماه و در آخرین بازی مرحله گروهی در سیاتل به مصاف مصر خواهد رفت.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246839
-
-<div align="center"><video src="files/post_246839_VahidOOnLine_246839.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246839_VahidOOnLine_246839.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از دانش‌آموزان در شیراز، دوشنبه یکم تیر برای موکول کردن امتحانات به بعد از اربعین تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

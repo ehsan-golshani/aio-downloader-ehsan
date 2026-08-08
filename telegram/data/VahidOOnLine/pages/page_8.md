@@ -1,8 +1,17 @@
 # آرشیو کانال VahidOOnLine - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 253971
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در اعتراض به قطع مکرر آب و برق و وضعیت معیشتی روی دیواری شعارنویسی کرده «آب، برق، زندگی» و می‌گوید این شعار روزمره زندگی مردم ایران است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253970
 
@@ -321,19 +330,6 @@
 
 این مقام نیروی هوایی ارتش در ادامه با اشاره به هدف قرار گرفتن جنگنده‌های اف ۱۵ آمریکا در پایگاه عریفجان کویت افزود، طرف مقابل در روزهای نخست جنگ، انتظار انجام چنین ماموریت‌هایی را نداشت.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253942
-
-<div align="center"><video src="files/post_253942_VahidOOnLine_253942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253942_VahidOOnLine_253942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در دومین قسمت از مجموعهٔ «زبان‌های در خطر ایران»، به بادرودی می‌پردازیم، یکی از زبان‌های ایرانی مرکزی که با گسسته‌شدن انتقال میان نسل‌ها در معرض خاموشی قرار گرفته است.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 222
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 248862
+
+<div align="center"><video src="files/post_248862_VahidOOnLine_248862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248862_VahidOOnLine_248862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ویدیوهای منتشرشده در شبکه‌های اجتماعی که بازخورد گسترده‌ای داشته است، نشان می‌دهد گروهی از حامیان حکومت در جریان مراسم تشییع علی خامنه‌ای، رهبر سابق جمهوری اسلامی، با ضربه زدن با دمپایی و پایمال کردن تصویری از دونالد ترامپ، رئیس‌جمهوری آمریکا، اعتراض خود را به او نشان دادند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248861
 
@@ -274,21 +287,6 @@
 
 اردوغان همچنین گفت در دیدار با دونالد ترامپ درباره جنگ روسیه و اوکراین و همچنین موتورهای جنگنده بومی «کان» گفت‌وگو خواهد کرد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248842
-
-<div align="center"><video src="files/post_248842_VahidOOnLine_248842.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248842_VahidOOnLine_248842.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ دونالد ترامپ، رئیس‌جمهوری ایالات متحده روز سه‌شنبه ۱۶ تیر، هنگام ورود به آنکارا برای شرکت در نشست سران ناتو، به سربازان ترکیه که برای استقبال در فرودگاه حضور داشتند به ترکی سلام کرد و گفت: «مرحبا عسگر» به معنی «سلام سرباز».
-
-نشست سران کشورهای عضو پیمان آتلانتیک شمالی، ناتو، از روز سه‌شنبه آغاز شده و قرار است دو روز طول بکشد. در این نشست، کشورهای از بستن قراردادهای نظامی به ارزش ده‌ها میلیارد دلار خبر دادند؛ اقدامی که در پی فشار ترامپ به اروپا برای افزایش بودجه دفاعی انجام شده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

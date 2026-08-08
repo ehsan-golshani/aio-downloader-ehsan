@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 97
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 251758
+
+<div align="center"><video src="files/post_251758_VahidOOnLine_251758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251758_VahidOOnLine_251758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشگرمنوتو: «این وضع منه؛ اسنپ‌فود حقوقم رو نمی‌ده»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251750
 
@@ -274,18 +287,6 @@
 ## VahidOOnLine — post 251725
 
 <div align="center"><img src="files/post_251725_VahidOOnLine_251725.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، در تروت سوشال اعلام کرد اگر حوثی‌ها بار دیگر به کشتی‌ها حمله کنند، واشینگتن جمهوری اسلامی را مسئول خواهد دانست. او افزود حوثی‌ها نیروهای وابسته به جمهوری اسلامی هستند و در صورت تکرار این حملات، مجازات نظامی گسترده‌ای علیه جمهوری اسلامی و حوثی‌ها اعمال خواهد شد.
-ترامپ همچنین گفت حوثی‌ها پس از حملات قبلی آمریکا علیه آنها در جریان درگیری واشینگتن با تهران، مسئولانه رفتار کرده بودند، اما اکنون حمله به کشتی‌ها را از سر گرفتند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251724
-
-<div align="center"><img src="files/post_251724_VahidOOnLine_251724.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دونالد ترامپ، رییس‌جمهوری آمریکا، در تروت سوشال اعلام کرد اگر حوثی‌ها بار دیگر به کشتی‌ها حمله کنند، واشینگتن جمهوری اسلامی را مسئول خواهد دانست. او افزود حوثی‌ها نیروهای وابسته به جمهوری اسلامی هستند و در صورت تکرار این حملات، مجازات نظامی گسترده‌ای علیه جمهوری اسلامی و حوثی‌ها اعمال خواهد شد.

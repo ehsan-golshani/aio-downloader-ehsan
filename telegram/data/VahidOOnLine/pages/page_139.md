@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 139
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 250819
+
+<div align="center"><img src="files/post_250819_VahidOOnLine_250819.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جاسم محمد البدیوی، دبیرکل شورای همکاری خلیج فارس، حملات جمهوری اسلامی به زیرساخت‌ها و تاسیسات غیرنظامی در بحرین، کویت و اردن را جنایت جنگی خواند.
+
+البدیوی خواستار آن شد که این حملات فورا در سطح بین‌المللی مورد پیگرد و عاملان آن پاسخگو شوند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250818
 
@@ -277,23 +290,6 @@ iranintl
 این شبکه همچنین به نقل از مقام‌های آمریکایی گزارش داد که چین و روسیه نتوانسته‌اند به جمهوری اسلامی کمک کنند و قادر نخواهند بود آن را به وضعیت پیشین بازگردانند.
 iranintl
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250799
-
-<div align="center"><video src="files/post_250799_VahidOOnLine_250799.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250799_VahidOOnLine_250799.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️جاده‌ای خاکی و ناهموار؛ رسانه‌ها از «بازگشایی مسیر جایگزین»‌ برای محور رودان-بندرعباس خبر دادند
-
-♦️در پی تخریب پل محور رودان در استان هرمزگان در حملات هوایی آمریکا، رسانه‌های داخلی ایران، روز شنبه ۲۷ تیرماه با انتشار ویدیویی از حرکت خودروها در مسیری خاکی و ناهموار،‌ از «بازگشایی مسیر جایگزین»‌ برای محور رودان-بندرعباس خبر دادند.
-
-استانداری هرمزگان بامداد شنبه اعلام کرده بود، مسیر رفت و برگشت پل رودان در حملات آمریکا تخریب شده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

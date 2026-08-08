@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 140
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 250799
+
+<div align="center"><video src="files/post_250799_VahidOOnLine_250799.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250799_VahidOOnLine_250799.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️جاده‌ای خاکی و ناهموار؛ رسانه‌ها از «بازگشایی مسیر جایگزین»‌ برای محور رودان-بندرعباس خبر دادند
+
+♦️در پی تخریب پل محور رودان در استان هرمزگان در حملات هوایی آمریکا، رسانه‌های داخلی ایران، روز شنبه ۲۷ تیرماه با انتشار ویدیویی از حرکت خودروها در مسیری خاکی و ناهموار،‌ از «بازگشایی مسیر جایگزین»‌ برای محور رودان-بندرعباس خبر دادند.
+
+استانداری هرمزگان بامداد شنبه اعلام کرده بود، مسیر رفت و برگشت پل رودان در حملات آمریکا تخریب شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250798
 
@@ -282,19 +299,6 @@ t.me
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیویی که ۲۷ تیر برای ایران اینترنشنال ارسال شده است، نشان می‌دهد که در محدوده جنوب غربی اصفهان دود ناشی از انفجار به آسمان برخاست.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250779
-
-<div align="center"><video src="files/post_250779_VahidOOnLine_250779.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250779_VahidOOnLine_250779.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان‌دهنده برخاستن دود سیاه از حوالی پایگاه هوایی کنارک در استان سیستان و بلوچستان در روز شنبه ۲۷ تیرماه است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

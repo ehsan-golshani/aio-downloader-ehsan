@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 251331
+
+<div align="center"><img src="files/post_251331_VahidOOnLine_251331.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صدا و سیمای جمهوری اسلامی، ظهر سه‌شنبه از حمله به نقطه‌ای در ارتفاعات خرم‌آباد خبر داد.
+
+تا لحظه تنظیم این خبر اطلاعات بیشتری در خصوص علت این انفجار منتشر نشده است.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251330
 
@@ -292,15 +306,6 @@ iranintl
 
 سپاه پاسداران بارها تهدید کرده بود که کشتی‌هایی که از مسیر جنوبی تنگه هرمز می‌گذرند را «تا اطلاع ثانوی» هدف قرار می‌دهد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251311
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از متقاضیان ویزای دانشجویی در تهران دوشنبه ۲۹ تیر مقابل سفارت اتریش تجمع کردند تا نسبت به بلاتکلیفی خود و نداشتن وقت برای سفارت اعتراض کنند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

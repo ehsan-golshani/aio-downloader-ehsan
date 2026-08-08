@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 426
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 243590
+
+<div align="center"><video src="files/post_243590_VahidOOnLine_243590.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243590_VahidOOnLine_243590.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، چهارشنبه ۱۳ خرداد، گفت ممکن است طی چند روز آینده در مذاکرات با ایران پیشرفت حاصل شود و در صورت دستیابی به توافق، آمریکا انتظار دارد ذخایر اورانیوم غنی‌شده جمهوری اسلامی را در اختیار بگیرد و نابود کند. او افزود این توافق شاید تا آخر هفته حاصل شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243589
 
@@ -263,18 +276,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد جوانی در استان مازندران شعار «جاوید شاه» را در یکی از شهرهای استان دیوارنویسی کرده و به آن احترام نظامی می‌گذارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243570
-
-<div align="center"><img src="files/post_243570_VahidOOnLine_243570.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد ادعای تهران مبنی بر هدف قرار دادن یک ناوشکن نیروی دریایی آمریکا در دریای عمان نادرست است.
-سنتکام همچنین تاکید کرد تمامی شناورها و تجهیزات نظامی آمریکا در دریا بدون هیچ‌گونه اختلالی به فعالیت خود ادامه می‌دهند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

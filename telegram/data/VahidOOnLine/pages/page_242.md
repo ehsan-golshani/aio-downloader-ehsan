@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 242
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 248430
+
+<div align="center"><video src="files/post_248430_VahidOOnLine_248430.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248430_VahidOOnLine_248430.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌‌اینترنشنال نشان می‌دهد یک دانش‌آموز عکس روح‌الله خمینی را از کتاب درسی خود کنده و آن را آتش می‌زند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248429
 
@@ -259,21 +272,6 @@
 این کتیبه به ابعاد ۲ متر در ۱.۵۵ متر، مزین به نقوش برجسته و خطوط میخی است. در نمای جلویی، تصویر آشوربانی‌پال و در پشت آن، تصاویری از دو پادشاه آشوری دیگر به همراه متنی ثبت شده که به نظر می‌رسد اسناد پروژه‌های عمرانی و ساخت‌وسازهای گسترده این پادشاه در نینوا و سراسر امپراتوری آشور باشد.
 
 روید موفق، از باستان‌شناسان این پروژه، این یافته را دستاوردی مهم برای درک عظمت تمدن آشور و توسعه شهری آن زمان توصیف کرد. نینوا به عنوان پایتخت امپراتوری نوآشوری، مرکزی برای قدرت نظامی و دانش بود و آشوربانی‌پال به دلیل تاسیس یکی از قدیمی‌ترین کتابخانه‌های جهان با بیش از ۲۰ هزار لوح گلی، شهرت جهانی دارد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248396
-
-<div align="center"><video src="files/post_248396_VahidOOnLine_248396.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248396_VahidOOnLine_248396.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️در پی دیدار دو تیم پرتغال و کرواسی در مرحله حذفی ذکر بسم الله کریستیانو رونالدو قبل از زدن ضربه پنالتی  مورد توجه کاربران در شبکه اجتماعی قرار گرفت
-
-دیدار این دو تیم با حواشی بسیار در نهایت با نتیجه ۲ بر ۱ به نفع پرتغال به پایان رسید و پرتغال به مرحله یک شانزدهم جام جهانی صعود کرد.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

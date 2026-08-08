@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 274
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 247712
+
+<div align="center"><img src="files/post_247712_VahidOOnLine_247712.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گیدئون سعار، وزیر خارجه اسرائیل، اعلام کرد دولت این کشور با پیشنهاد او برای به رسمیت شناختن نسل‌کشی ارامنه به اتفاق آرا موافقت کرده است.
+
+وزیر خارجه اسرائیل در شبکه ایکس نوشت اسرائیل با این اقدام به ۳۲ کشوری پیوسته است که نسل‌کشی ارامنه را به رسمیت شناخته‌اند.
+
+کشتار گسترده ارامنه در مناطق تحت حاکمیت امپراتوری عثمانی، در فاصله بین سال‌های ۱۹۱۵ تا ۱۹۱۸ رخ داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247711
 
@@ -275,19 +290,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم اسپانیا، یکشنبه هفتم تیرماه در شهر بارسلون مراسم یادبودی برای جاویدنامان انقلاب ملی برگزار کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247692
-
-<div align="center"><video src="files/post_247692_VahidOOnLine_247692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247692_VahidOOnLine_247692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم دانمارک شنبه ششم تیرماه در کپنهاگ تجمع کردند و علیه جمهوری اسلامی شعار دادند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

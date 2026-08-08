@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 369
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 245233
+
+<div align="center"><img src="files/post_245233_VahidOOnLine_245233.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، گفت دونالد ترامپ، رییس‌جمهوری آمریکا، آزادسازی ۲۴ میلیارد دلار از دارایی‌های مسدود شده ایران را پذیرفته است، اما با صراحت این موضوع را اعلام نمی‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245232
 
@@ -247,17 +258,6 @@
 مهر افزود: تاکنون هیچ مقام رسمی ماهیت این صداها را تأیید یا تکذیب نکرده است.
 
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245209
-
-<div align="center"><img src="files/post_245209_VahidOOnLine_245209.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری مهر، بامداد شنبه، ۲۳ خردادماه، از شنیده شدن صدای انفجار در بخش‌هایی از جزیره قشم و برخی نقاط ساحلی سیریک خبر داد. مهر نوشت:‌ «احتمالا صدای شنیده شده تلاشی برای کنترل تنگه هرمز و از سوی دریا بوده است».
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

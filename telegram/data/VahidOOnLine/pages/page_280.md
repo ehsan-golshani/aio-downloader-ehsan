@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 280
 
-📅 آخرین بروزرسانی: 1405/05/17 07:37
+📅 آخرین بروزرسانی: 1405/05/17 08:46
 
 ---
+
+## VahidOOnLine — post 247577
+
+<div align="center"><img src="files/post_247577_VahidOOnLine_247577.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محسن رضایی، مشاور نظامی رهبر جمهوری اسلامی، در پیامی در شبکه اجتماعی ایکس نوشت آمریکا با حمایت از آنچه «اقدامات نیروی نیابتی خود در منطقه» خواند و همچنین ادامه تنش‌آفرینی در تنگه هرمز، بندهای اول و پنجم تفاهم‌نامه را نقض کرده است.
+
+رضایی نوشت که «پاسخ نقض هر بند از تفاهم‌نامه، سریع و کوبنده خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247576
 
@@ -289,19 +302,6 @@ ht
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد در مراسم چهلم عباس اکبری فیض‌آبادی، معترض در انقلاب ملی که پس از بازداشت به دست جمهوری اسلامی اعدام شد، فریاد زدند: «جاویدنام روحت شاد.» اکبری فیض‌آبادی در اعتراضات دی‌ماه بازداشت و در خردادماه اعدام شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247557
-
-<div align="center"><video src="files/post_247557_VahidOOnLine_247557.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247557_VahidOOnLine_247557.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد رانندگان استیجاری فعال در خدمات حمل و نقل در مقابل نهاد ریاست‌جمهوری تجمع اعتراضی برگزار کردند. آن‌ها خواستار رسیدگی به مطالبات خود در زمینه پرداخت و حقوق شدند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
