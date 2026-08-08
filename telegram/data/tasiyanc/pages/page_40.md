@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/18 01:15
+📅 آخرین بروزرسانی: 1405/05/18 01:41
 
 ---
+
+## tasiyanc — post 7959
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Speed Fast ⚡ 🇩🇪.npvt
+</div>
+
+## tasiyanc — post 7958
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزیر جنگ اسرائیل 🇮🇱: 🔻من و نتانیاهو دستور آماده شدن ارتش برای حملات مستقل به ایران را صادر کردیم @TasiyanProxy ⭐️
+</div>
 
 ## tasiyanc — post 7946
 
@@ -226,23 +238,5 @@ home.by.me
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐 مشاهده فیلم 👉
-</div>
-
-## tasiyanc — post 7920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐
-
-مشاهده فیلم 👉
-</div>
-
-## tasiyanc — post 7919
-
-<div align="center"><img src="files/post_7919_tasiyanc_7919.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیستی از هوش مصنوعی‌های رایگان که اکثرا دوتای اول رو فقط میشناختید!
-
-@Tasiyanc✅
 </div>
 

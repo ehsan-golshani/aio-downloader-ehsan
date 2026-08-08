@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/05/18 01:15
+📅 آخرین بروزرسانی: 1405/05/18 01:41
 
 ---
+
+## tasiyanc — post 7789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه اوه ترامپ عصبانی شد
+</div>
+
+## tasiyanc — post 7788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل با اجازتون عوض شد ❤️
+</div>
 
 ## tasiyanc — post 7785
 
@@ -164,17 +176,5 @@
 
 دوستانی ک از گروه بن شدن با پشتیبانی در ارتباط باشن
 @StarTasiyan
-</div>
-
-## tasiyanc — post 7733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حرومزاده ها
-</div>
-
-## tasiyanc — post 7732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه پاس به رونالدو ندادید دیشب
 </div>
 

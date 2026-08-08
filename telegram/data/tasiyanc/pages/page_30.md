@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/18 01:15
+📅 آخرین بروزرسانی: 1405/05/18 01:41
 
 ---
+
+## tasiyanc — post 8291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آدرس ، کد ملی با ادرس
+</div>
+
+## tasiyanc — post 8290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشخصات کامل بزاریم؟
+</div>
 
 ## tasiyanc — post 8289
 
@@ -141,26 +153,6 @@ JAVID SHAH 👑
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨💪 حملات سپاه به اقلیم کردستان عراق
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8270
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 انفجار مهیب در قشم
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8268
-
-<div align="center"><img src="files/post_8268_tasiyanc_8268.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 وضعیت راه آهن بندرعباس پس از حمله ارتش آمریکا
-
 
 @Tasiyanc ✅
 </div>

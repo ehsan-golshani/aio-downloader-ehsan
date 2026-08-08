@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/18 01:15
+📅 آخرین بروزرسانی: 1405/05/18 01:41
 
 ---
+
+## tasiyanc — post 7475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️مذاکرات تهران و واشینگتن ک قرار بود این هفته برگزار بشه لغو شد
+</div>
+
+## tasiyanc — post 7474
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار هم اکنون 174000 😐
+</div>
 
 ## tasiyanc — post 7473
 
@@ -165,20 +177,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 🔑Password :  @Tasiyanc
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروفایل چنل عوض شد --- ❤️
-</div>
-
-## tasiyanc — post 7438
-
-<div align="center"><img src="files/post_7438_tasiyanc_7438.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای خرید بازی GTA VI در‌ هر کشور چند روز باید کار کنی ؟
-@Tasiyanc 💠
 </div>
 

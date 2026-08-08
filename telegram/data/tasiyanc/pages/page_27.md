@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/05/18 01:15
+📅 آخرین بروزرسانی: 1405/05/18 01:41
 
 ---
+
+## tasiyanc — post 8384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 6 انفجار شدید در قشم
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8383
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۹٪ اخبار امشب فیکن و پوشش ندادیم
+</div>
 
 ## tasiyanc — post 8382
 
@@ -179,19 +193,5 @@
 😐 ترامپ کلی هزینه کرد که پل تو جنوب رو بزنه، اما بخاطر اینکه رودخونه‌ی کنار پل خشک شده بود، مردم یه جاده خاکی از همونجا درست کردن و تردد میکنن 😂
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8350
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت دریافت وایرگارد مخصوص گیم و وبگردی وارد ربات تاسیان شوید بگیرید ظرفیت پر شه لینک پاک میکنم
-
-دریافت کانفیگ 🤜
-</div>
-
-## tasiyanc — post 8349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Multi Location ⚡ Fast.npvt
 </div>
 

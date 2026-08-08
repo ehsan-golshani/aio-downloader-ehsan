@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/18 01:15
+📅 آخرین بروزرسانی: 1405/05/18 01:41
 
 ---
+
+## tasiyanc — post 6580
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال رو همراه 😐
+</div>
+
+## tasiyanc — post 6579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی متد جدید همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6578
 
@@ -197,24 +219,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هم اکنون ورود B-52 به خاور میانه
 @Tasiyanproxy 
-✅
-</div>
-
-## tasiyanc — post 6553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه اخبار در چنل پروکسی
-
-https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸
-🔴ترامپ:
-با بمب افکن های B_2 آنها را بسیار سخت هدف قرار خواهیم داد.
-@Tasiyanc 
 ✅
 </div>
 

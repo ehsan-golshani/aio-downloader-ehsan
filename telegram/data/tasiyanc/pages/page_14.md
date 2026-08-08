@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/18 01:15
+📅 آخرین بروزرسانی: 1405/05/18 01:41
 
 ---
+
+## tasiyanc — post 8774
+
+<div align="center"><img src="files/post_8774_tasiyanc_8774.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرندی از افراد تیم مذاکره کننده :
+سپاه برای جنگ تمام عیار کامل آمادستِ
+</div>
+
+## tasiyanc — post 8773
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هم اکنون حملات سپاه به پایگاه آمریکا در اردن که گویا برخورد هم داشته
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8772
 
@@ -236,36 +253,5 @@ Vip for TS ⚡🔥.npvt
 
 ✔️ @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙄 همه بت باز های حرفه ای دنبال 🔞 شکار این بونوس ها هستن
-✅لیگ‌جهانی والیبال رو میتونید از اینجا پیشبینی کنید
-👇کافیه یه سر بزنی اینجا خودت میفهمی چه خبره 💯
-</div>
-
-## tasiyanc — post 8751
-
-<div align="center"><img src="files/post_8751_tasiyanc_8751.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیش بینی اختصاصی لیگ جهانی #والیبال رو از دست ندید.
-
-اسلوونی Vs ترکیه
-ژاپن Vs چین
-
-🤔 یک سایت کامل برا حرفه ای ها
-
-⚠️هر افزایش شارژ مساوی 2️⃣1️⃣🔣 شارژ بیشتر بدون محدودیت☄️
-
-به همراه 🤩 🤩🔤 کش بک باخت همه روزه
-
-🆕 هر رشته ورزشی که بخوای اینجا هست:
-🌐 betinja.bet
-🌐 betinja.bet
-کانال بونوس های رایگان r6
-@betinjabet
 </div>
 

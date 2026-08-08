@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/18 01:15
+📅 آخرین بروزرسانی: 1405/05/18 01:41
 
 ---
+
+## tasiyanc — post 8163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بندرعباس عزیز زیر حملات شدید آمریکا 💔
+</div>
+
+## tasiyanc — post 8161
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاید باورتون نشه ولی تو این سه تا عکس هیچ اثری از فتوشاپ نیست🐰؛
+ابرهای نادر استراتوسفر قطبی - ایسلند🇮🇸
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8155
 
@@ -222,17 +237,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کامبککککک میزنه آرژانتین
-</div>
-
-## tasiyanc — post 8123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آرژانتین زددد
-</div>
-
-## tasiyanc — post 8122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انگلیس زددددد
 </div>
 

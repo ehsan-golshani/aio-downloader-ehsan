@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/18 01:15
+📅 آخرین بروزرسانی: 1405/05/18 01:41
 
 ---
+
+## tasiyanc — post 9039
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سازمان وظیفه عمومی فراجا شایعه معافیت سربازان فراری را تکذیب کرد
+
+اطلاعیه سازمان وظیفه عمومی:
+▫️آن دسته از کارکنان وظیفه که به هر دلیل خدمت سربازی خود را به اتمام نرسانده‌اند، می‌بایست وضعیت سربازی خود را از طریق یگان خدمتی تعیین تکلیف کنند و هیچ نوع معافیت جدیدی برای آنان در نظر گرفته نشده است.
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9038
+
+<div align="center"><img src="files/post_9038_tasiyanc_9038.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کوثری ؛ از فرماندهان سپاه:
+پسر لاریجانی یه لحظه گوشیش رو روشن میکنه و یه تماسی با یه نفر میگیره که همون موقع جاشون لو میره و میزننشون.
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9036
 
@@ -236,50 +258,5 @@ Join As @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ HttpCustum بزاریم ؟
-</div>
-
-## tasiyanc — post 9012
-
-<div align="center"><video src="files/post_9012_tasiyanc_9012.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9012_tasiyanc_9012.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎کانفیگ اختصاصی نامحدود اینجکتور
-📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی 
-⚡️
-
-سرور سرعتی‌ لوکیشن USA 
-📍
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون  
-📱
-
-آموزش اتصال 
-🔸
-
-اتصال امن برای همه 🇮🇷
-
-
-📱 @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9011
-
-<div align="center"><img src="files/post_9011_tasiyanc_9011.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺ موبایل سامسونگ A26؛ پنجشنبه 52 میلیون بود و امروز شده 87 میلیون!فقط در عرض 2 روز، 35 میلیون گرون شده!
-
-
-
-@TASIYANC 
-✅
 </div>
 
