@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 414
 
-📅 آخرین بروزرسانی: 1405/05/17 20:53
+📅 آخرین بروزرسانی: 1405/05/17 21:30
 
 ---
+
+## VahidOOnLine — post 243970
+
+<div align="center"><video src="files/post_243970_VahidOOnLine_243970.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243970_VahidOOnLine_243970.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز شنبه در جریان اعتراض دانش‌آموزان یزد در مقابل اداره‌کل آموزش و پرورش این استان تنش صورت گرفت و برخی دانش‌آموزان زخمی شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243969
 
@@ -288,19 +301,6 @@
 در این تصویر، ارلینگ هالند و ۲۵ بازیکن دیگر تیم، با پوشش کامل وایکینگی و در فضایی حماسی دیده می‌شوند؛ نمادی از قدرت و هویت تاریخی این کشور.
 نروژ پس از ۲۸ سال بار دیگر به جام جهانی ۲۰۲۶ بازمی‌گردد و با نسلی طلایی، امیدوار است حضوری قدرتمند در این رقابت‌ها داشته باشد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243950
-
-<div align="center"><video src="files/post_243950_VahidOOnLine_243950.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243950_VahidOOnLine_243950.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که به تازگی به ایران اینترنشنال رسیده نشان می‌دهد مردم در شهر خشکبیجار گیلان در روز ۱۹ دی با فراخوان شاهزاده رضا پهلوی به خیابان رفته بوده و شعار «جاوید شاه»‌ داده بودند. جمعیت این شهر گیلان کمتر از ۱۰ هزار نفر است.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

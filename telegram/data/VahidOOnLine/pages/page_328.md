@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 328
 
-📅 آخرین بروزرسانی: 1405/05/17 20:53
+📅 آخرین بروزرسانی: 1405/05/17 21:30
 
 ---
+
+## VahidOOnLine — post 246533
+
+<div align="center"><img src="files/post_246533_VahidOOnLine_246533.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روابط عمومی نیروی دریایی سپاه پاسداران اعلام کرد تنگه هرمز در واکنش به «نقض تعهدات آمریکا در اجرای آتش‌بس» و «حملات اسرائیل در لبنان»، به روی همه شناورها بسته شده است.
+
+نیروی دریایی سپاه همچنین از شناورها خواست به تنگه هرمز نزدیک نشوند و هشدار داد در غیر این صورت امنیت آن‌ها به خطر خواهد افتاد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246532
 
@@ -293,19 +306,6 @@
 
 در حدود پنج سال گذشته، نیروهای طالبان اقدام به بازرسی خانه‌ها، تفتیش بدنی و بررسی گوشی‌های تلفن همراه کرده‌اند که به گفته منتقدان، بدون حکم دادگاه و خودسرانه انجام شده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246491
-
-<div align="center"><video src="files/post_246491_VahidOOnLine_246491.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246491_VahidOOnLine_246491.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد یک شهروند مخالف جمهوری اسلامی که با ویلچر تردد می‌کند شعار «جاوید شاه» را دیوارنویسی می‌کند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

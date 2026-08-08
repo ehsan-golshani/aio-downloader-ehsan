@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/17 20:54
+📅 آخرین بروزرسانی: 1405/05/17 21:31
 
 ---
+
+## ProxyMTProto — post 47824
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: starsvpn.obhod.fun
+Port: 6443
+Secret: 76706e76706e76706e76706e76706e76
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47823
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: spain.nolags.pw
+Port: 443
+Secret: ddda11050e6e98fb151d0094b549b0344a
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47822
 
@@ -163,24 +181,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: swift.quickrouteapp.xyz
 Port: 8443
 Secret: ee68a56bf93ff9c02daa862d3830de722773776966742e717569636b726f7574656170702e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 89.169.173.127
-Port: 443
-Secret: ee0f8e5e42ea0dd0f9639d851090e69760617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47803
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

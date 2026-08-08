@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 143
 
-📅 آخرین بروزرسانی: 1405/05/17 20:53
+📅 آخرین بروزرسانی: 1405/05/17 21:30
 
 ---
+
+## VahidOOnLine — post 250818
+
+<div align="center"><img src="files/post_250818_VahidOOnLine_250818.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مستندات و اطلاعات خود درباره زندانیان انقلاب ملی ایرانیان در استان‌ها و شهرهای مختلف را برای انتشار به ایران اینترنشنال ارسال کنید. در صورتی که هر کدام از شهروندان در ارتباط با اعتراضات دی‌ماه ۱۴۰۴ با تشکیل پرونده، محکومیت یا زندان مواجه شده‌اند، جزییات آن را به مدیابات ایران اینترنشنال با لینک زیر ارسال کنید. t.me
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250817
 
@@ -283,19 +294,6 @@ iranintl
 
 استانداری هرمزگان بامداد شنبه اعلام کرده بود، مسیر رفت و برگشت پل رودان در حملات آمریکا تخریب شده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250798
-
-<div align="center"><video src="files/post_250798_VahidOOnLine_250798.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250798_VahidOOnLine_250798.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که در رسانه‌های اجتماعی منتشر شده، ترافیک سنگین و اختلال در تردد مردم در یک مسیر خاکی از بندرپل به بندرعباس را نشان می‌دهد. این مسیر از غرب وارد بندرعباس می‌شود و از محدوده اسکله رجایی و بندر باهنر عبور می‌کند. این وضعیت همزمان با حملات اخیر به جنوب ایران و محدودیت‌های ترددی اعمال‌شده از سوی مقام‌های حکومت گزارش شده است.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

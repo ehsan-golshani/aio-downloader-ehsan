@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 237
 
-📅 آخرین بروزرسانی: 1405/05/17 20:53
+📅 آخرین بروزرسانی: 1405/05/17 21:30
 
 ---
+
+## VahidOOnLine — post 248631
+
+<div align="center"><img src="files/post_248631_VahidOOnLine_248631.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امیر حاتمی، فرمانده کل ارتش جمهوری اسلامی، در گفت‌وگو با صداوسیمای جمهوری اسلامی گفت ارتش پس از علی خامنه‌ای «پشت سر مجتبی خامنه‌ای بدون سر سوزنی تردید» حرکت خواهد کرد.
+
+حاتمی همچنین گفت به مجتبی خامنه‌ای قول داده است «یقه کسانی که علی خامنه‌ای را کشتند» رها نخواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248630
 
@@ -305,19 +318,6 @@
 او افزود ده‌ها موشک جمهوری که به سوی این کشور حاشیه خلیج فارس شلیک شده بودند، توسط این سیستم رهگیری شدند.
 
 اورشلیم‌پست نوشت چندین مقام اسرائیلی اظهار داشتند که تصمیم برای ارسال آتش‌بار گنبد آهنین و موشک‌های رهگیر، پس از تماس تلفنی بنیامین نتانیاهو، نخست‌وزیر اسرائیل، با محمد بن زاید، رییس امارات متحده عربی، گرفته شده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248602
-
-<div align="center"><video src="files/post_248602_VahidOOnLine_248602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248602_VahidOOnLine_248602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که به ایران‌اینترنشنال ارسال شده نشان می‌دهد گروهی از حامیان حکومت در حال پخش نوحه با بلندگو در خیابان‌های تهران و ایجاد مزاحمت شبانه برای مردم هستند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

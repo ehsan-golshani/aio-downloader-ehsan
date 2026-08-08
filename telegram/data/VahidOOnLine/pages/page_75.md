@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/17 20:53
+📅 آخرین بروزرسانی: 1405/05/17 21:30
 
 ---
+
+## VahidOOnLine — post 252360
+
+<div align="center"><video src="files/post_252360_VahidOOnLine_252360.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252360_VahidOOnLine_252360.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال، صف طولانی خودروهای سنگین را در پمپ‌بنزین داورزن در جاده «امام‌رضا» نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252359
 
@@ -247,21 +260,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده نشان می‌دهد گروهی از ایرانیان مقیم بریتانیا، یکشنبه چهارم مرداد مراسم گرامیداشت برای سالروز درگذشت رضاشاه و محمدرضاشاه پهلوی را در لندن برگزار کردند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252340
-
-<div align="center"><video src="files/post_252340_VahidOOnLine_252340.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252340_VahidOOnLine_252340.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی روز دوشنبه پنجم مرداد گفت که آمریکا می‌خواست ایران را در سه روز تسلیم کند اما هم‌اکنون در باتلاق «خودساخته» گیر کرده است.
-
-سخنگوی وزارت امور خارجه جمهوری اسلامی ایران در پاسخ به پرسش  خبرنگاران گفت: آمریکا جنگ را مدیریت نمی‌کند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

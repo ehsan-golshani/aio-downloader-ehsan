@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 214
 
-📅 آخرین بروزرسانی: 1405/05/17 20:53
+📅 آخرین بروزرسانی: 1405/05/17 21:30
 
 ---
+
+## VahidOOnLine — post 249128
+
+<div align="center"><img src="files/post_249128_VahidOOnLine_249128.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری فارس در نخستین ساعات بامداد پنجشنبه ۱۹ تیرماه و همزمان با ادامه حملات گسترده آمریکا به مواضع نظامی در نوار جنوبی ایران، از وقوع انفجار و بلند شدن ستون‌های دود در فرودگاه ایرانشهر استان سیستان و بلوچستان خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249127
 
@@ -254,20 +265,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای ارسال‌شده به ایران‌اینترنشنال، وقوع انفجارهای مهیب را در بندرعباس در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249108
-
-<div align="center"><video src="files/post_249108_VahidOOnLine_249108.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249108_VahidOOnLine_249108.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️بامداد پنجشنبه ۱۸ تیرماه، حساب کاربری وحیدآنلاین تصاویری را در شبکه اجتماعی اکس منتشر کرد که انفجارهای شدید در پی حمله آمریکا به اهداف نظامی جمهوری اسلامی در بوشهر را نشان می‌دهد.
-پیش‌تر، سنتکام از آغاز حملات بیشتر آمریکا خبر داده و اکسیوس نیز گزارش داده بود اهداف نظامی جمهوری اسلامی در تنگه هرمز هدف حملات آمریکا قرار گرفته‌اند. همزمان، رسانه‌های داخلی از انفجار در بندرعباس، سیریک، چابهار، کنارک و جزیره ابوموسی خبر داده بودند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

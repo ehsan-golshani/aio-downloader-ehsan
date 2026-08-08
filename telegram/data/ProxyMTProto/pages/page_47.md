@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/05/17 20:54
+📅 آخرین بروزرسانی: 1405/05/17 21:31
 
 ---
+
+## ProxyMTProto — post 49006
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.120.230.120
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49005
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s6.postpulse.space
+Port: 443
+Secret: ee179deb3806ddd388988092081a52ad766164332e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49004
 
@@ -163,24 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: ad6.arixo.shop
 Port: 443
 Secret: ee0655739ff0a111810d8529120d2071a66164332e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48986
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: beer.crona-extra.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: petrichor.slarkfat.icu
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 

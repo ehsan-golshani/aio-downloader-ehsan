@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 181
 
-📅 آخرین بروزرسانی: 1405/05/17 20:53
+📅 آخرین بروزرسانی: 1405/05/17 21:30
 
 ---
+
+## VahidOOnLine — post 249884
+
+<div align="center"><img src="files/post_249884_VahidOOnLine_249884.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمد مخبر، مشاور و دستیار رهبر جمهوری اسلامی، در ایکس نوشت: «تنگه هرمز با عبرت‌های تاریخی، تنگه احد امروز ما است و ارزش راهبردی، منافع امنیتی و اقتصادی آن برای ملت مبعوث ایران، جایگزینی ندارد.»
+
+مشاور و دستیار رهبر جمهوری اسلامی افزود ما از تنگه هرمز دفاع می‌کنیم تا برای عبور کشتی‌هایمان در آینده مجبور به باج دادن به دشمن نباشیم.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249883
 
@@ -286,19 +299,6 @@ iranintl
 
 بقایی در ادامه گفت: «تهران و مسقط درباره سازوکارهای مناسب برای تضمین عبور ایمن کشتی‌ها در تنگه هرمز گفت‌وگو کرده‌اند، اما فشارهای واشنگتن بر دولت عمان اجازه نداد این روند به نتیجه برسد.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249851
-
-<div align="center"><video src="files/post_249851_VahidOOnLine_249851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249851_VahidOOnLine_249851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از بازنشستگان مخابرات در کرمانشاه دوشنبه ۲۲ تیر برای احقاق حق خود مقابل ساختمان این شرکت تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

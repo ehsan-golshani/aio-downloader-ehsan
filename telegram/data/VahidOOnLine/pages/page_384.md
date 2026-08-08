@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 384
 
-📅 آخرین بروزرسانی: 1405/05/17 20:53
+📅 آخرین بروزرسانی: 1405/05/17 21:30
 
 ---
+
+## VahidOOnLine — post 244897
+
+<div align="center"><img src="files/post_244897_VahidOOnLine_244897.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری ایرنا، صبح پنجشنبه ۲۱ خرداد به نقل از رئیس اورژانس تهران گزارش کرد که در پی حملات بامداد پنجشنبه آمریکا، سه نفر در استان تهران مصدوم و به بیمارستان منتقل شدند.
+
+ایالات متحده بامداد پنجشنبه و برای نخستین بار پس از آتش‌بس ۱۹ فروردین، علاوه بر جنوب ایران، مناطقی در مرکز و استان تهران را هم بمباران کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244896
 
@@ -259,20 +272,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای منتشرشده در حساب کاربری «وحید آنلاین»، دود ناشی از انفجارها را در بامداد پنج‌شنبه ۲۱ خرداد، در پی حملات آمریکا به حوالی حصارک و کمال‌شهرِ استان البرز، نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244864
-
-<div align="center"><video src="files/post_244864_VahidOOnLine_244864.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244864_VahidOOnLine_244864.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در شبکه‌های اجتماعی، عبور یک موشک را در میان رد موشک‌های شلیک‌شده پیشین، در بامداد پنج‌شنبه ۲۱ خرداد در آسمان تبریز نشان می‌دهد.
-رسانه‌های جمهوری اسلامی نیز در پی حمله آمریکا، از حمله موشکی به پایگاه موفق‌السلطی در اردن خبر دادند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
