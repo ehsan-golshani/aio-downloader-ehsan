@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/17 16:44
+📅 آخرین بروزرسانی: 1405/05/17 17:38
 
 ---
+
+## ProxyMTProto — post 48436
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48435
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tg.nowabst.net
+Port: 853
+Secret: eebfbfb8093b088269716ea5262d483e1d6164732e78352e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48434
 
@@ -163,24 +181,6 @@ Secret: eeefd9942127c0d394cb6c83aa9aea57b863646e2e746f636f6e76656c2e646967697461
 Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48416
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: login.veltura.digital
-Port: 443
-Secret: ee42fc3bfc9aecc508eeba2ca3f5d43ab76c6f67696e2e76656c747572612e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: malmo.viking-vibe.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
