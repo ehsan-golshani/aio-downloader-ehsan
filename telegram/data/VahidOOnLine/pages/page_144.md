@@ -1,8 +1,48 @@
 # آرشیو کانال VahidOOnLine - صفحه 144
 
-📅 آخرین بروزرسانی: 1405/05/18 02:23
+📅 آخرین بروزرسانی: 1405/05/18 03:10
 
 ---
+
+## VahidOOnLine — post 250817
+
+<div align="center"><img src="files/post_250817_VahidOOnLine_250817.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت خارجه کویت اعلام کرد حمله جمهوری اسلامی به یک نیروگاه تولید برق، تاسیسات آب‌شیرین‌کن، تاسیسات بخش نفت و شماری از زیرساخت‌های حیاتی، باعث آتش‌سوزی و خسارت‌های گسترده به زیرساخت‌ها، تاسیسات غیرنظامی و ساختمان‌های مسکونی شده است.
+وزارت خارجه کویت این حملات را محکوم کرد و در بیانیه‌ای تاکید کرد که هدف قرار دادن مکرر زیرساخت‌های حیاتی، نقض آشکار حقوق بین‌الملل و قطعنامه ۲۸۱۷ شورای امنیت سازمان ملل است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250816
+
+<div align="center"><video src="files/post_250816_VahidOOnLine_250816.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250816_VahidOOnLine_250816.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند ویدیویی برای ایران اینترنشنال فرستاد که در آن دمای ظهر اهواز را به حرارت سونا تشبیه کرد و گفت گرمای حدود ۵۰ درجه سانتیگراد گرمازدگی به دنبال دارد و حکومت هم در تامین برق این شهر ناتوان است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250815
+
+<div align="center"><img src="files/post_250815_VahidOOnLine_250815.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، شماری از زندانیان زندان دستگرد اصفهان در اعتراض به انتقال متهمان پرونده «میدان علیخانی» به سلول انفرادی و نگرانی از اجرای احکام اعدام، دست به اعتصاب غذا زده‌اند.
+
+بنا بر این گزارش، ۱۴ زندانی روز شنبه ۲۷ تیرماه از بند عمومی زندان دستگرد اصفهان به سلول انفرادی منتقل شده‌اند. ۱۲ نفر از این افراد از محکومان پرونده «میدان علیخانی» هستند و دو زندانی دیگر نیز همراه آنان به انفرادی منتقل شده‌اند.
+
+این انتقال، نگرانی‌ها درباره اجرای قریب‌الوقوع احکام اعدام این زندانیان را افزایش داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250814
 
@@ -255,47 +295,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیویی که در رسانه‌های اجتماعی منتشر شده، ترافیک سنگین و اختلال در تردد مردم در یک مسیر خاکی از بندرپل به بندرعباس را نشان می‌دهد. این مسیر از غرب وارد بندرعباس می‌شود و از محدوده اسکله رجایی و بندر باهنر عبور می‌کند. این وضعیت همزمان با حملات اخیر به جنوب ایران و محدودیت‌های ترددی اعمال‌شده از سوی مقام‌های حکومت گزارش شده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250797
-
-<div align="center"><img src="files/post_250797_VahidOOnLine_250797.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت خارجه کویت ضمن محکوم کردن حملات جمهوری اسلامی به این کشور، اعلام کرد هدف قرار دادن مکرر تاسیسات حیاتی، رویکرد تهاجمی سیستماتیکی را آشکار می‌کند که سازه‌های غیرنظامی و زیرساخت‌های اساسی را هدف قرار می‌دهد و جان و امنیت غیرنظامیان را به خطر می‌اندازد.
-
-وزارت خارجه کویت همچنین اعلام کرد این کشور حق کامل خود را برای اتخاذ تمام اقدامات لازم برای حفظ امنیت و دفاع از خاک و تاسیسات حیاتی خود، محفوظ می‌دارد.
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250796
-
-<div align="center"><img src="files/post_250796_VahidOOnLine_250796.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وای‌نت گزارش داد ارتش اسرائیل تایید کرده که آمریکا برای تقویت حضور نظامی خود در اسرائیل، هواپیماهای سوخت‌رسان بیشتری را در پایگاه‌های نیروی هوایی این کشور مستقر می‌کند و این هواپیماها در فرودگاه بن‌گوریون مستقر نخواهند شد.
-
-بنا بر این گزارش، ۱۰ هواپیمای سوخت‌رسان دیگر آمریکا تا ۲۴ ساعت آینده وارد اسرائیل می‌شوند.
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250795
-
-<div align="center"><video src="files/post_250795_VahidOOnLine_250795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250795_VahidOOnLine_250795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در رسانه‌های اجتماعی وضعیت تونل «شهید میرزایی»‌ بندرعباس پس از حملات تازه آمریکا را نشان می‌دهد. این تونل در استان هرمزگان و در محور مواصلاتی بندرعباس به حاجی‌آباد (در امتداد جاده استراتژیک بندرعباس - سیرجان) قرار دارد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
