@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/17 09:43
+📅 آخرین بروزرسانی: 1405/05/17 10:46
 
 ---
+
+## ProxyMTProto — post 49270
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49269
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: testt1.nolags.pw
+Port: 443
+Secret: ddc2d13ebbc4ab5596c87f99b0928aa150
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49268
 
@@ -163,24 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: medblock.fit
 Port: 443
 Secret: ee42c68d1f568a3ce918f926dd7d1283c66d6564626c6f636b2e666974
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49250
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: logs.jinxandjack.co.uk.
-Port: 443
-Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49249
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lazeyka-1.getvelora.space
-Port: 443
-Secret: ee3f558f47bfd43aafffc4c8bb4ffc0130706574726f766963682e7275
 @ProxyMTProto
 </div>
 
