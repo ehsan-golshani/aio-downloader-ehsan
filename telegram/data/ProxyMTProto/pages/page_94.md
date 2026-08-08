@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/05/17 18:21
+📅 آخرین بروزرسانی: 1405/05/17 18:52
 
 ---
+
+## ProxyMTProto — post 48058
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cab.proxytg.live
+Port: 443
+Secret: ee172f5214b57f137805957e350d01e0946361622e70726f787974672e6c697665
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48057
 
@@ -173,17 +182,5 @@ Server: fast.proxytelega.store
 Port: 8443
 Secret: ee3d75d4605342be40f01e37f606946e81666173742e70726f787974656c6567612e73746f7265
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48038
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 Телеграм тормозит?
-🚨 تلگرام کند شده؟
-
-⚡Бесплатный рабочий прокси
-⚡پروکسی رایگان و فعال
-
-👇Получить / دریافت پروکسی
 </div>
 
