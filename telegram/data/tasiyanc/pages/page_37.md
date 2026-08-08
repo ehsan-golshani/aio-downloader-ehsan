@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/17 19:31
+📅 آخرین بروزرسانی: 1405/05/17 23:18
 
 ---
+
+## tasiyanc — post 8092
+
+<div align="center"><img src="files/post_8092_tasiyanc_8092.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیس و دیس بک😂
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8091
 
@@ -195,18 +206,6 @@
 
 بانو شکیرا خواننده محبوب با ۵۰ سال سن :
 
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8058
-
-<div align="center"><video src="files/post_8058_tasiyanc_8058.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8058_tasiyanc_8058.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚫️مادر عمو پورنگ ( داریوش فرضیایی) فوت کرد
-ویدیو نشون میده از امروز شاهد پیر شدن عمو پورنگ خواهیم بود 🥹
 @Tasiyanc ⭐️
 </div>
 

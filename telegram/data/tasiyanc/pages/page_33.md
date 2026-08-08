@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/17 19:31
+📅 آخرین بروزرسانی: 1405/05/17 23:18
 
 ---
+
+## tasiyanc — post 8213
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برق ایرانشهر انگار کاملا رفته
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8212
 
@@ -165,14 +173,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 ⁉️پدافند تهران فعال شده؟
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺گزارش شده که انگار پل فلزی بندر عباس هم زدن.
-
-@Tasiyanc
-✅
 </div>
 

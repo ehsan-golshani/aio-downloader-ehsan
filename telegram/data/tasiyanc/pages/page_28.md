@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/17 19:31
+📅 آخرین بروزرسانی: 1405/05/17 23:18
 
 ---
+
+## tasiyanc — post 8347
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8346
 
@@ -204,11 +214,5 @@
 🚨⭕️ ۴ انفجار در یزد شنیده شد
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8311
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
 </div>
 

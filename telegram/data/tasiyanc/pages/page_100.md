@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/17 19:31
+📅 آخرین بروزرسانی: 1405/05/17 23:18
 
 ---
+
+## tasiyanc — post 5972
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک سرور شخصی openvpn می‌خوان برن سایت
+vpnbook.com
+Create openvpn
+پورت روی 443 یا 80 بزارید
+کشورهای اروپایی بهتر جواب میدن .
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 5971
 
@@ -168,13 +179,5 @@ TS premium Servers 🌲⚡.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5948
-
-<div align="center"><img src="files/post_5948_tasiyanc_5948.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی تو راهه
 </div>
 

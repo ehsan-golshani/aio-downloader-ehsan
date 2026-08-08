@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/05/17 19:31
+📅 آخرین بروزرسانی: 1405/05/17 23:18
 
 ---
+
+## tasiyanc — post 7778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ & گیم 🎮
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe ⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7777
 
@@ -154,11 +175,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بورنو فرناندز ، ویتینیا ناموستون گاییدم
-</div>
-
-## tasiyanc — post 7730
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سوپرررررر گللللللل زد
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/05/17 19:31
+📅 آخرین بروزرسانی: 1405/05/17 23:18
 
 ---
+
+## tasiyanc — post 5574
+
+<div align="center"><img src="files/post_5574_tasiyanc_5574.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+25 K 🍃.npvt
+</div>
 
 ## tasiyanc — post 5573
 
@@ -147,14 +155,6 @@ WAR 🔥.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 فارس :
 صداهای مشابهی در جزایر سیریک و جاسک شنیده شده
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش‌های تایید نشده حاکی از درگیری بین نیروی دریایی سپاه و نیروی دریایی آمریکا در خلیج عمان و تنگه هرمز است.
-
 @Tasiyanc ✅
 </div>
 

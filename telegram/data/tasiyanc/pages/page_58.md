@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/05/17 19:31
+📅 آخرین بروزرسانی: 1405/05/17 23:18
 
 ---
+
+## tasiyanc — post 7251
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاهد حضور جوان و پدیده نو ظهور فوتبال احسان حاج صفی در ترکیب هستیم
+</div>
 
 ## tasiyanc — post 7250
 
@@ -300,13 +306,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎉ایلان ماسک: هیچ دختری شکم شش تکه را
-به ۶ تا ماشین ترجیح نمیدهد
-✔️ T.me/Tasiyanc ✅
 </div>
 

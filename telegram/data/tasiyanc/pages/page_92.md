@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/05/17 19:31
+📅 آخرین بروزرسانی: 1405/05/17 23:18
 
 ---
+
+## tasiyanc — post 6184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GANG 🇳🇱🇬🇧🚀 (1).npvt
+</div>
 
 ## tasiyanc — post 6183
 
@@ -198,11 +204,5 @@ Premium GOD SV 🚀🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشنا اگه زیاد باشه یه وایرم میزارم
-</div>
-
-## tasiyanc — post 6159
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP تاسیان 🪙 GOLD.npvt
 </div>
 

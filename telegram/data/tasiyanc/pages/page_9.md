@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/17 19:31
+📅 آخرین بروزرسانی: 1405/05/17 23:18
 
 ---
+
+## tasiyanc — post 8916
+
+<div align="center"><img src="files/post_8916_tasiyanc_8916.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 مرندی عضو تیم مذاکره : همه میدونن این یه خبر فیکه
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8915
 
@@ -241,25 +255,5 @@ g10
 بینگ،بینگ،بینگ بینگ ،بینگ 😂
 
 🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8891
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ لوکیشن ترکیه و اسپانیا 💥
-
-دانلود برای اندروید
-
-دانلود برای آیفون 
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه
-
- @TASIYANC ✨
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/05/17 19:31
+📅 آخرین بروزرسانی: 1405/05/17 23:18
 
 ---
+
+## tasiyanc — post 6003
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هردو کانفیگ اوپن وصله برید حالشو ببرید
+</div>
 
 ## tasiyanc — post 6002
 
@@ -176,16 +182,5 @@
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5972
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک سرور شخصی openvpn می‌خوان برن سایت
-vpnbook.com
-Create openvpn
-پورت روی 443 یا 80 بزارید
-کشورهای اروپایی بهتر جواب میدن .
-@Tasiyanc
 </div>
 
