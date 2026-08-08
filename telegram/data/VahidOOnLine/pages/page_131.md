@@ -1,8 +1,35 @@
 # آرشیو کانال VahidOOnLine - صفحه 131
 
-📅 آخرین بروزرسانی: 1405/05/17 08:46
+📅 آخرین بروزرسانی: 1405/05/17 09:42
 
 ---
+
+## VahidOOnLine — post 251000
+
+<div align="center"><img src="files/post_251000_VahidOOnLine_251000.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، در در تروث‌سوشال نوشت: «جمهوری‌خواهان باید جمهوری اسلامی را نیز به لایحه تحریم‌های روسیه اضافه کنند.»
+
+او در ادامه افزود این همان کاری بود که لیندزی گراهام می‌خواست انجام شود و قرار بود این اتفاق رخ دهد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250999
+
+<div align="center"><video src="files/post_250999_VahidOOnLine_250999.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250999_VahidOOnLine_250999.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهند که یکشنبه ۲۸ تیر، گروهی از بازنشستگان تامین اجتماعی شوش در شهر اهواز تجمع کرده و در اعتراض به مشکلات معیشتی و حقوق کم، شعار دادند: «زیر بار ستم نمی‌کنیم زندگی، جان فدا می‌کنیم در ره آزادگی»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250998
 
@@ -294,39 +321,6 @@ iranintl
 
 🔹از اهواز: الان ساعت ۱:۳۰ است، هوا ۵۶ درجه شده. برق ۳ مرتبه از ساعت ۹ صبح قطع شده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250980
-
-<div align="center"><img src="files/post_250980_VahidOOnLine_250980.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس گودرزی، سخنگوی هیات رییسه مجلس گفت که جلسه هیات رییسه مجلس، یکشنبه، ۲۸ تیرماه با حضور رییس و اعضای هیات رییسه برگزار و مقرر شد که جلسه صحن علنی مجلس، سه‌شنبه در بستر فضای مجازی برگزار شود.
-
-او افزود: «پیش‌بینی‌هایی برای برگزاری جلسات دیگر صحن شده که اطلاع‌رسانی خواهد شد.»
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250979
-
-<div align="center"><video src="files/post_250979_VahidOOnLine_250979.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250979_VahidOOnLine_250979.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری‌ تسنیم، وابسته به سپاه پاسداران، روز یکشنبه ۲۸ تیرماه با انتشار تصاویری ادعا کرد، یک پهپاد ام‌کیو-۹ (MQ-9)  در آسمان عسلویه منهدم شده است.
-
-پیش از این رسانه‌های دولتی جمهوری اسلامی،‌ در خبری مشابه، از انهدام پهپاد ام‌کیو-۹ ارتش آمریکا در اهواز خبر داده بودند.
-
-بر اساس گزارش رسانه‌های دولتی، این پهپاد «با آتش سامانه نوین پدافند پیشرفته نیروی هوافضای سپاه و تحت کنترل شبکه یکپارچه پدافند هوایی کشور» در آسمان اهواز هدف قرار گرفته است.
-
-پهپاد MQ-9 نوعی پهپاد شناسایی و تهاجمی ساخت آمریکا است که قابلیت انجام ماموریت‌های اطلاعاتی، شناسایی و حمله را دارد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

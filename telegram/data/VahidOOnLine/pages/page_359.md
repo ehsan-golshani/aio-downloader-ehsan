@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 359
 
-📅 آخرین بروزرسانی: 1405/05/17 08:46
+📅 آخرین بروزرسانی: 1405/05/17 09:42
 
 ---
+
+## VahidOOnLine — post 245463
+
+<div align="center"><img src="files/post_245463_VahidOOnLine_245463.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدجعفر اسدی، معاون بازرسی قرارگاه مرکزی خاتم‌الانبیا، در واکنش به حمله اسرائیل به ضاحیه بیروت گفت: «بدون شک این جنایات بی‌پاسخ نخواهد ماند.»
+
+او در گفت‌وگو با دفاع‌پرس، حمله ارتش اسرائیل به منطقه ضاحیه را محکوم کرد و نسبت به پیامدهای آن هشدار داد.
+
+ارتش اسرائیل در بیانیه‌ای یکشنبه ۲۴ خرداد اعلام کرد در واکنش به شلیک پرتابه از سوی حزب‌الله به شمال اسرائیل، اهدافی از این گروه را در ضاحیه بیروت هدف قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245462
+
+<div align="center"><video src="files/post_245462_VahidOOnLine_245462.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_245462_VahidOOnLine_245462.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم آمریکا پس از بازی قطر و سوئیس در جام جهانی فوتبال، مقابل ورزشگاه لیوایز (منطقه خلیج سان‌فرانسیسکو) در سانتاکلارای کالیفرنیا، علیه جمهوری اسلامی تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245461
 
@@ -285,38 +313,6 @@ iranintl
 
 معاون سیاسی نیروی دریایی سپاه پاسداران گفت هرگونه اقدام دیپلماتیک باید در چارچوب «عزت، حکمت و مصلحت» انجام شود و جمهوری اسلامی از مواضع خود عقب‌نشینی نخواهد کرد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245443
-
-<div align="center"><video src="files/post_245443_VahidOOnLine_245443.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_245443_VahidOOnLine_245443.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم بریتانیا شنبه ۲۳ خرداد با فراخوان شاهزاده رضا پهلوی و علیه جمهوری اسلامی در لندن تجمع کرده و نام جاویدنامان انقلاب ملی را فریاد زدند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245442
-
-<div align="center"><video src="files/post_245442_VahidOOnLine_245442.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_245442_VahidOOnLine_245442.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ در پی حملات پهپادی حزب‌الله، ارتش اسرائیل برای ده‌ها منطقه در جنوب لبنان هشدار تخلیه صادر کرد
-
-♦️ارتش اسرائیل پیش از ظهر یکشنبه ۲۴ خرداد و پس از برخورد سه پهپاد حزب‌الله به مناطقی در شمال اسرائیل، برای ساکنان ۲۹ شهر و روستا در جنوب لبنان هشدار تخلیه صادر کرد.
-
-نبردها میان اسرائیل و حزب‌الله لبنان در یکشنبه‌ای که دونالد ترامپ به‌عنوان «روز امضای توافق پایان جنگ» اعلام کرده، شدت گرفته است.
-
-برخی گزارش‌های تایید نشده  رسانه‌های اسرائیلی حاکی از آن است که قرار است پس از امضای تواتفق احتمالی، نیروی زمینی ارتش اسرائیل پیشروی در خاک لبنان را متوقف کند اما از این کشور عقب‌نشینی نمی‌کند و حملات هوایی به جنوب لبنان را ادامه خواهد داد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
