@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/17 13:37
+📅 آخرین بروزرسانی: 1405/05/17 14:22
 
 ---
+
+## tasiyanc — post 8656
+
+<div align="center"><video src="files/post_8656_tasiyanc_8656.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8656_tasiyanc_8656.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یاد کنیم از رقص F35 ارتش اسرائیل در آسمان کرج مربوط به جنگ ۳۹ روزه
+
+@TASIYANC 💠
+</div>
+
+## tasiyanc — post 8655
+
+<div align="center"><video src="files/post_8655_tasiyanc_8655.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8655_tasiyanc_8655.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قابل توجه ؛ ناوگان هفتم دریایی نیروهای ایالات متحده آمریکا به تنها ارتش چین را می‌بلعد ! ناوگان هفتم نیروی دریایی آمریکا بزرگترین ناوگان نظامی تهاجمی جهان است که
+بخونید 👇
+
+از حداقل ۷۰ کشتی و زیردریایی، ۱۵۰ هواپیما و ۲۰ هزار نیرو برای حضور و واکنش سریع مقابل چین در شرق آسیا مستقر شده است. منطقه عملیاتی آن یعنی آسیا و اقیانوسیه، ۱۲۴ میلیون کیلومتر مربع، ۳۶ کشور و نیمی از جمعیت جهان را پوشش میدهد. رهبری این واحد دریایی را ناو هواپیمابر رونالد ریگان برعهده دارد. مقر این ناوگان یوکوسوکای ژاپن است. ناوگان هفتم آمریکا یک نیروی پیشرو است که از نظر تجربه رزمی، مهارت خدمه، و ادغام فناوریهای پیشرفته در کشتیها و زیردریاییهایش، برتری کیفیتی قابل توجهی دارد که میتواند خسارات سهمگینی به نیروی دریایی چین وارد کند ایران جای خود داره 🤣
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8654
+
+<div align="center"><img src="files/post_8654_tasiyanc_8654.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکبر عبدی بازیگر سینما درگذشت 🖤
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8653
+
+<div align="center"><video src="files/post_8653_tasiyanc_8653.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8653_tasiyanc_8653.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«چشم‌های تمساح ؛ یکی از پیشرفته ترین چشم‌ها در قلمرو جانوران ک طی بیش از ۲۰۰ میلیون سال تکامل یافته اند » 🐊👁
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8652
 
@@ -171,68 +219,5 @@ Fact @TASIYANC ✅
 🚨ترامپ:
 ما روابط بسیار خوبی با ایران داریم. آنها به دنبال یک توافق هستند، اما من می‌گویم که آنها هنوز آماده نیستند. آنها باید بیشتر مجازات شوند. آنها هنوز هم اهداف شومی در مورد برنامه هسته‌ای خود دارند، و آنها هرگز نباید به سلاح هسته‌ای دست یابند.
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8622
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ درباره جنگ ایران:
-
-ما می‌خواهیم به این جنگ پایان دهیم، اما می‌خواهیم به شیوه درست آن را تمام کنیم
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت
-🔐
-
-سرور سرعتی 
-⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8620
-
-<div align="center"><video src="files/post_8620_tasiyanc_8620.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8620_tasiyanc_8620.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹ویدیو دیده نشده
-شاید نمیدونستید در سال 1943 ، بیش از 120 هزار لهستانی پس از سالها تبعید و رنج در اردوگاه های شوروی به ایران آمدند
-
-در سالهای ۱۹۴۲ تا ۱۹۴۳، همزمان با جنگ جهانی دوم، بیش از ۱۲۰ هزار لهستانی—شامل زنان، کودکان، سربازان و غیرنظامیان—پس از سالها تبعید و رنج در اردوگاههای کار اجباری شوروی، از مسیر آسیای میانه به ایران منتقل شدند.
-ایران که خود در اشغال متفقین و دچار کمبود شدید غذا و امکانات بود، به یکی از امنترین پناهگاههای این آوارگان تبدیل شد؛ بندر انزلی، تهران، اصفهان و اهواز از مهمترین مراکز اسکان آنها بودند.
-بسیاری از این لهستانیها در وضعیت جسمی بسیار وخیم، دچار سوءتغذیه، بیماری و فرسودگی شدید وارد ایران شدند؛ با این حال، مردم ایران—با وجود شرایط سخت جنگ—تا حد توان به آنها کمک کردند.
-اصفهان بهدلیل تعداد بالای کودکان لهستانی، بعدها لقب «شهر کودکان لهستانی» را گرفت.
-این مهاجرت، یکی از کمتر گفتهشدهترین فصلهای انسانی جنگ جهانی دوم است؛ جایی که ایران، نه در مقام قدرت نظامی، بلکه بهعنوان پناهگاه انسانها در تاریخ ثبت شد
-
-Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8619
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نفت شد ۱۰۰ دلار ،،،
-ترامپ یه ساعت بعد : داریم مذاکره می‌کنیم توافق نزدیکه
 </div>
 

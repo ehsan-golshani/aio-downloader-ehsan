@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/05/17 13:35
+📅 آخرین بروزرسانی: 1405/05/17 14:20
 
 ---
+
+## ProxyMTProto — post 47949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: spark.proxyonline.online
+Port: 443
+Secret: eed53c649a00ade7bf1f7071d019a426a7737061726b2e70726f78796f6e6c696e652e6f6e6c696e65
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47948
 
@@ -172,15 +181,6 @@ Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
 Server: vibe.proxyonline.online
 Port: 443
 Secret: ee658ee8ba38b14db544ee2954023446d0766962652e70726f78796f6e6c696e652e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47929
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: name.nolags.pw
-Port: 443
-Secret: dd287755b048284177f71c965b016b38cc
 @ProxyMTProto
 </div>
 

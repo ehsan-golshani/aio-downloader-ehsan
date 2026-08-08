@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/17 13:37
+📅 آخرین بروزرسانی: 1405/05/17 14:22
 
 ---
+
+## tasiyanc — post 7897
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦅 FALCON VIP ⚡.npvt
+</div>
+
+## tasiyanc — post 7896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7895
+
+<div align="center"><img src="files/post_7895_tasiyanc_7895.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺مارک لوین از ارتش امریکا خواسته این ساختمان تخریب شود.
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7894
+
+<div align="center"><img src="files/post_7894_tasiyanc_7894.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺امروز 11 July، روز شاد کردن آدم‌های تنهاست.
+
+
+@Tasiyanc ⭐️
+#Navid
+</div>
 
 ## tasiyanc — post 7893
 
@@ -235,60 +288,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⏺آمریکا اعلام کرد همچنان به تفاهم‌نامه با ایران متعهد است و به دنبال مسیر دیپلماتیک است
-</div>
-
-## tasiyanc — post 7863
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺آمریکا اعلام کرد همچنان به تفاهم‌نامه با ایران متعهد است و به دنبال مسیر دیپلماتیک است
-</div>
-
-## tasiyanc — post 7861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریافت کانفیگ پر سرعت نت مود 
-👉
-</div>
-
-## tasiyanc — post 7859
-
-<div align="center"><video src="files/post_7859_tasiyanc_7859.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7859_tasiyanc_7859.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   
-📶
-
-تست شده تمام نتها 
-🛜
-🛜
-🛜
-
-دانلود 
-📱 Android  
-🕹  iOS
-
-آموزش اتصال 
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7854
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ختم کلام
-
-از اونجایی ک رسالت ما وصل کردن مردم بود تو قطعیا و تو دوران وصل شدن اینترنت شاهد افت چنل و جذب نبودم خیلی چیزا ثابت شد برام ، پس لف و جذب مهم نیست برامون تو قطعی اینترنت، ما چنلو پرایوت خواهیم کرد عضو جدید نخواهیم پذیرفت و اونایی که الان کنارم هستن باید وصل باشن ❤️
-
-مجموعه تاسیان ❤️‍🔥
-
-آدرس پابلیک
-@Tasiyanc
 </div>
 

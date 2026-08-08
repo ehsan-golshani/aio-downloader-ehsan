@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/05/17 13:35
+📅 آخرین بروزرسانی: 1405/05/17 14:20
 
 ---
+
+## ProxyMTProto — post 48629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: net.freetg.pw
+Port: 443
+Secret: eebd79a03bd57944c4830f41e0f2fb94626e65742e6672656574672e7077
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48628
 
@@ -172,15 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: secure.gorbushkin.click
 Port: 443
 Secret: eee90419f865de23f95a859171396bc3d47365637572652e676f72627573686b696e2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48609
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
 @ProxyMTProto
 </div>
 
