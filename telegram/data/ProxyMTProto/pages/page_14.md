@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/17 14:51
+📅 آخرین بروزرسانی: 1405/05/17 15:26
 
 ---
+
+## ProxyMTProto — post 49660
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ardesvpn1.ru
+Port: 8443
+Secret: ee05cf8e164f926f4a664b2404d276a1d6617264657376706e312e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49659
 
@@ -164,15 +173,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: secure.medhata.org
 Port: 443
 Secret: eedf3956f76ab923f6f432a06cd6f9ab537365637572652e6d6564686174612e6f7267
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49640
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Strait-of-Hormuz.ir.jursdheks.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
