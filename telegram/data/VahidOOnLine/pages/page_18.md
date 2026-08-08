@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/18 01:12
+📅 آخرین بروزرسانی: 1405/05/18 02:23
 
 ---
+
+## VahidOOnLine — post 253835
+
+<div align="center"><video src="files/post_253835_VahidOOnLine_253835.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253835_VahidOOnLine_253835.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال دیوارنویسی اعتراضی شهروندان علیه جنگ‌طلبی مجتبی خامنه‌ای و احمد وحیدی را در پیرانشهر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253834
+
+<div align="center"><img src="files/post_253834_VahidOOnLine_253834.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پلیس لندن اعلام کرد چهار مرد روز چهارشنبه در منطقه کاونت گاردن در مرکز لندن با ضربات چاقو زخمی شدند و یک زن ۴۷ ساله را بازداشت کرده است.
+
+به گزارش اسکای‌نیوز، این زن به ظن حمل سلاح سرد و ارتکاب حمله بازداشت شده است.
+
+سخنگوی سازمان آمبولانس لندن گفت چهار مصدوم در محل درمان اولیه شدند و سپس به یک مرکز تخصصی تروما منتقل شدند.
+
+پلیس اعلام کرد نیروهای امدادی حدود ساعت ۱۲:۳۰ به وقت محلی در پی گزارش وقوع چاقوکشی در خیابان اندل به محل اعزام شدند. مجروحان ۳۴، ۳۹، ۴۲ و ۵۲ ساله هستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253833
 
@@ -299,34 +329,6 @@ iranintl
 این رزمایش با واکنش تند کیم یو جونگ، خواهر رهبر کره شمالی، همراه شد. او ژاپن را «کشوری جنایتکار در جنگ» خواند و گفت دستیابی توکیو به توان حمله پیش‌دستانه، تهدیدی جدی برای صلح و ثبات بین‌المللی است.
 او همچنین تاکید کرد پیونگ‌یانگ هرگز روند تقویت توان نظامی ژاپن را که می‌تواند امنیت کره شمالی را تهدید کند، نادیده نخواهد گرفت و در برابر آن از گزینه‌های نظامی خود استفاده خواهد کرد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253815
-
-<div align="center"><video src="files/post_253815_VahidOOnLine_253815.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253815_VahidOOnLine_253815.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدجواد اکبرین، عضو تحریریه ایران‌اینترنشنال، با اشاره به تضعیف نیروهای نیابتی جمهوری اسلامی، گفت حکومت ایران تلاش می‌کند اندک نیروهای باقی‌مانده خود را در یک نقطه متمرکز کند تا از آخرین توانایی‌های آن‌ها علیه منطقه و جهان استفاده کند
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253814
-
-<div align="center"><video src="files/post_253814_VahidOOnLine_253814.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253814_VahidOOnLine_253814.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد اتابک، وزیر صنعت، معدن و تجارت جمهوری اسلامی، در سفر به پاکستان از مقام‌های این کشور خواست مشکلات کانتینرهای ایرانی دپو‌شده در بندر کراچی را پیگیری کنند.
-
-مهتاب قلی‌زاده، روزنامه‌نگاراقتصادی، گفت با بسته‌شدن مسیرهای دریایی، بار ایران به مسیرهای زمینی منتقل شده، اما ازدحام و معطلی در مرزها نشان می‌دهد این راه هم پرهزینه و پرمشکل است.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
