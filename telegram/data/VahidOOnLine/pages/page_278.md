@@ -1,8 +1,37 @@
 # آرشیو کانال VahidOOnLine - صفحه 278
 
-📅 آخرین بروزرسانی: 1405/05/17 21:30
+📅 آخرین بروزرسانی: 1405/05/17 22:29
 
 ---
+
+## VahidOOnLine — post 247714
+
+<div align="center"><img src="files/post_247714_VahidOOnLine_247714.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میکی زوهار، وزیر فرهنگ اسرائیل، درباره مذاکرات آمریکا و جمهوری اسلامی گفت اگر تهران اورانیوم غنی‌شده خود را تحویل ندهد، این مواد «با زور و از طریق جنگ» از این کشور خارج خواهد شد.
+
+پیش‌تر، نتانیاهو بارها بر لزوم خروج ذخایر اورانیوم و برچیدن تاسیسات هسته‌ای ایران تاکید کرده بود.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247712
+
+<div align="center"><img src="files/post_247712_VahidOOnLine_247712.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گیدئون سعار، وزیر خارجه اسرائیل، اعلام کرد دولت این کشور با پیشنهاد او برای به رسمیت شناختن نسل‌کشی ارامنه به اتفاق آرا موافقت کرده است.
+
+وزیر خارجه اسرائیل در شبکه ایکس نوشت اسرائیل با این اقدام به ۳۲ کشوری پیوسته است که نسل‌کشی ارامنه را به رسمیت شناخته‌اند.
+
+کشتار گسترده ارامنه در مناطق تحت حاکمیت امپراتوری عثمانی، در فاصله بین سال‌های ۱۹۱۵ تا ۱۹۱۸ رخ داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247711
 
@@ -262,32 +291,6 @@
 بر اساس بیانیه ارتش اسرائیل، پلیس دریایی حماس زیرمجموعه شاخه نظامی این گروه است و در طراحی و هدایت حملات علیه نیروهای اسرائیلی و اسرائیل نقش دارد.
 
 ارتش اسرائیل افزود این سه نفر هنگام هدف قرار گرفتن خودروی حامل آن‌ها کشته شدند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247693
-
-<div align="center"><video src="files/post_247693_VahidOOnLine_247693.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247693_VahidOOnLine_247693.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم اسپانیا، یکشنبه هفتم تیرماه در شهر بارسلون مراسم یادبودی برای جاویدنامان انقلاب ملی برگزار کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247692
-
-<div align="center"><video src="files/post_247692_VahidOOnLine_247692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247692_VahidOOnLine_247692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم دانمارک شنبه ششم تیرماه در کپنهاگ تجمع کردند و علیه جمهوری اسلامی شعار دادند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

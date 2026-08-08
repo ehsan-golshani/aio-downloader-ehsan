@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 170
 
-📅 آخرین بروزرسانی: 1405/05/17 21:30
+📅 آخرین بروزرسانی: 1405/05/17 22:29
 
 ---
+
+## VahidOOnLine — post 250246
+
+<div align="center"><img src="files/post_250246_VahidOOnLine_250246.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدحسین صفار هرندی، عضو مجمع تشخیص مصلحت نظام گفت: «مطالبه اجرای پیام مجتبی خامنه‌ای باید با پرهیز از اهانت به مسئولان همراه باشد و حمله یا نسبت دادن وابستگی به آنان درست نیست.»
+
+صفار هرندی گفت: «قصاص بخشی از خونخواهی است، اما انتقام به آن محدود نمی‌شود و آزادی قدس نیز بخشی از آن است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250245
+
+<div align="center"><img src="files/post_250245_VahidOOnLine_250245.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احمد علم‌الهدی، امام جمعه مشهد، گفت: «موضوع خونخواهی و انتقام علی خامنه‌ای تنها یک موضوع حکومتی نیست و ریشه در دین، قرآن و اسلام دارد و باید بر اساس مبانی دینی روشن شود.»
+
+او تاکید کرد: «اگر رهبر کشته شود، امت اسلام ولی‌دم او هستند و باید خونخواهی کنند. این موضوع باید به‌عنوان یک تکلیف دینی و شرعی برای مردم روشن شود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250244
 
@@ -264,33 +290,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 علی حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال در واکنش به اظهارات ترامپ درباره حمله زمینی و هدف قرار دادن زیرساخت‌های ایران گفت اگر هدف، خلع سلاح گسترده جمهوری اسلامی باشد، عملیات نظامی باید هفته‌ها ادامه یابد؛ در غیر این صورت، این تهدیدها با هدف وادار کردن تهران به مذاکره است
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250225
-
-<div align="center"><img src="files/post_250225_VahidOOnLine_250225.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خانواده کریگ و لیندزی فورمن، زوج بریتانیایی زندانی در ایران اعلام کردند که دادگاه حکم زندان کریگ فورمن را به دلیل گفت‌وگو با رسانه‌ها دو سال افزایش داده است.
-
-پیش‌تر خانواده این زوج بریتانیایی اعلام کرده بودند این دو نفر به اتهام جاسوسی، به ۱۰ سال زندان محکوم شده‌اند.
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250224
-
-<div align="center"><video src="files/post_250224_VahidOOnLine_250224.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250224_VahidOOnLine_250224.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش‌های دریافتی از ممسنی از وقوع آتش‌سوزی گسترده در مناطق پادراز و مورکی و پیشروی شعله‌ها به سمت کوه دکل، اشکان و روستاهای اطراف حکایت دارد. بر اساس این گزارش‌ها، مردم با درخواست کمک برای مهار آتش، نسبت به گسترش لحظه‌به‌لحظه آن ابراز نگرانی کرده‌اند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

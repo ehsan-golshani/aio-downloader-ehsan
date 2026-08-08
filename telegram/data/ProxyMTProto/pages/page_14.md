@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/17 21:31
+📅 آخرین بروزرسانی: 1405/05/17 22:29
 
 ---
+
+## ProxyMTProto — post 49674
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: yes.nolagsproxy.space
+Port: 443
+Secret: ddf171e4eef563774e776868281d3f51ef
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49673
 
@@ -173,13 +182,5 @@ Server: server.nl-arvancloud.co.uk
 Port: 443
 Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49654
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📨 For advertising inquiries, contact us or email us. @Ads_ProxyMTProto
-
-📨 По вопросам размещения рекламы свяжитесь с нами или напишите нам по электронной почте. @Ads_ProxyMTProto
 </div>
 

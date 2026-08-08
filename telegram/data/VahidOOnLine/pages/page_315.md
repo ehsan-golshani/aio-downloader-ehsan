@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 315
 
-📅 آخرین بروزرسانی: 1405/05/17 21:30
+📅 آخرین بروزرسانی: 1405/05/17 22:29
 
 ---
+
+## VahidOOnLine — post 246874
+
+<div align="center"><img src="files/post_246874_VahidOOnLine_246874.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از یک منبع آگاه نوشت اظهارات جی‌دی ونس، معاون رییس‌جمهوری آمریکا، درباره بازگشت بازرسان آژانس به ایران کذب است و در مذاکرات سوئیس هیچ صحبتی درباره حضور بازرسان در کشور نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246873
+
+<div align="center"><img src="files/post_246873_VahidOOnLine_246873.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️محمدباقر قالیباف و عباس عراقچی، دوشنبه‌شب اول تیرماه برای دیدار با هیثم بن طارق، سلطان عمان، و رایزنی درباره روابط دوجانبه و مسائل منطقه‌ای راهی مسقط شدند.
+
+رسانه‌های جمهوری اسلامی گزارش دادند در این سفر، دو طرف درباره راه‌های گسترش همکاری‌های تهران و مسقط و همچنین موضوع «نحوه اداره» تنگه هرمز گفتگو خواهند کرد.
+
+این سفر در حالی انجام می‌شود که موضوع تنگه هرمز و ترتیبات امنیتی و دریایی آن، پس از تفاهم‌نامه اسلام‌آباد و مذاکرات اخیر ایران و آمریکا در سوئیس، به یکی از محورهای اصلی رایزنی‌های دیپلماتیک منطقه تبدیل شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246872
 
@@ -277,36 +303,6 @@ iranintl
 
 ونس اضافه کرد: «وقتی تهدیدهایی مطرح می‌کنند که بر پایه واقعیت نیست، باید بپذیرند که رییس‌جمهوری آمریکا واقعیت را روشن خواهد کرد و روایت درست را بیان خواهد کرد.»
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246840
-
-<div align="center"><video src="files/post_246840_VahidOOnLine_246840.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246840_VahidOOnLine_246840.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️رامین رضاییان، هافبک راست تیم‌ ملی فوتبال ایران بعد از بازی با بلژیک گفت با وجود همه نگرانی‌ها، از «جو فوق‌العاده ورزشگاه بهت‌زده شدیم. همه ایرانیانی که آمده بودند، با هر دیدگاه سیاسی، با عشق و جان نام ایران را در ورزشگاه فریاد می‌زدند.»
-
-طرفداران تیم ملی در دو بازی گذشته و با وجود اختلاف دیدگاه‌های سیاسی، در دو بازی گذشته در لس‌آنجلس، با شعار «ایران ایران» از تیم محبوبشان حمایت کردند.
-
-تیم ملی ایران ششم تیرماه و در آخرین بازی مرحله گروهی در سیاتل به مصاف مصر خواهد رفت.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246839
-
-<div align="center"><video src="files/post_246839_VahidOOnLine_246839.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246839_VahidOOnLine_246839.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از دانش‌آموزان در شیراز، دوشنبه یکم تیر برای موکول کردن امتحانات به بعد از اربعین تجمع کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

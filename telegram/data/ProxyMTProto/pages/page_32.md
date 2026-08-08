@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/17 21:31
+📅 آخرین بروزرسانی: 1405/05/17 22:29
 
 ---
+
+## ProxyMTProto — post 49313
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad3.arixo.shop
+Port: 443
+Secret: ee722fba8d97b9027b5fc4deb041b290cb6164332e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49312
 
@@ -172,15 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: best-proxy.ink
 Port: 443
 Secret: ee3646eba8c65e0e1d4804a7f9caa6531d626573742d70726f78792e696e6b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49293
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vizhe-download.co.uk.
-Port: 8443
-Secret: Vizhe_danlod_namahdod
 @ProxyMTProto
 </div>
 

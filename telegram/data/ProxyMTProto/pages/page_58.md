@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/05/17 21:31
+📅 آخرین بروزرسانی: 1405/05/17 22:29
 
 ---
+
+## ProxyMTProto — post 48787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48786
 
@@ -172,15 +181,6 @@ Secret: eee2c4f26e0246dea5eb84f95c325ea46062343233353730312e657468657265616c7670
 Server: brivora.co.uk.
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad3.arixo.shop
-Port: 443
-Secret: ee722fba8d97b9027b5fc4deb041b290cb6164332e617269786f2e73686f70
 @ProxyMTProto
 </div>
 

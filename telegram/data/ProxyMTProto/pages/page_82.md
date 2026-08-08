@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/05/17 21:31
+📅 آخرین بروزرسانی: 1405/05/17 22:29
 
 ---
+
+## ProxyMTProto — post 48305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48304
 
@@ -172,15 +181,6 @@ Secret: ee7fe48cfdec0ea3ef252cabc2fadda0206c6f67696e2e6b6c79756368316b2e6f7267
 Server: 87.120.216.254
 Port: 443
 Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48285
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: login.veltura.digital
-Port: 443
-Secret: ee5958726ff7014366a3b70d38ff0c8e456c6f67696e2e76656c747572612e6469676974616c
 @ProxyMTProto
 </div>
 
