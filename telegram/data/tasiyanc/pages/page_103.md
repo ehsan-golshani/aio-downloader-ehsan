@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 103
 
-📅 آخرین بروزرسانی: 1405/05/17 12:44
+📅 آخرین بروزرسانی: 1405/05/17 13:37
 
 ---
+
+## tasiyanc — post 5890
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Melli shekan 🪐.npvt
+</div>
 
 ## tasiyanc — post 5889
 
@@ -190,22 +196,5 @@ GANG 🌙 10 SERVER FAST.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بعد اتصال ۲۰ تا ۳۰ ثانیه زمان بدید . و بیاید تلگرام یا برید اینستاگرام
-</div>
-
-## tasiyanc — post 5864
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
- 2 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 

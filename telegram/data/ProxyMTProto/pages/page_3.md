@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/17 12:42
+📅 آخرین بروزرسانی: 1405/05/17 13:35
 
 ---
+
+## ProxyMTProto — post 49878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 500245.hopwire.io
+Port: 443
+Secret: ee06342713da7e66863b8d0f70d93d145a3530303234352e686f70776972652e696f
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49877
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 6775
+Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49876
 
@@ -163,24 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: wisp.slarkfat.icu
 Port: 443
 Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49857
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Damege-in.Travel-esf.manege-desktop-for.co.im.
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49856
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad6.arixo.shop
-Port: 443
-Secret: ee0655739ff0a111810d8529120d2071a66164332e617269786f2e73686f70
 @ProxyMTProto
 </div>
 

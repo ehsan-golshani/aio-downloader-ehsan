@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/17 12:44
+📅 آخرین بروزرسانی: 1405/05/17 13:37
 
 ---
+
+## tasiyanc — post 8549
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨کشتی های امریکایی در سواحل قطر مورد هدف قرار گرفتن
+
+@TASIYANC 
+⭐️
+</div>
 
 ## tasiyanc — post 8542
 
@@ -197,19 +206,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 استوری دنیا جهانبخت از حضور در مراسم عزاداری. وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8504
-
-<div align="center"><img src="files/post_8504_tasiyanc_8504.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استوری دنیا جهانبخت از حضور در مراسم عزاداری.
-
-وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان.
-
-مشاهده فیلم 👉
-
-@Tasiyanc ⭐️
 </div>
 

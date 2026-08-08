@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/17 12:44
+📅 آخرین بروزرسانی: 1405/05/17 13:37
 
 ---
+
+## tasiyanc — post 7054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت دلار هم اکنون 155000
+</div>
 
 ## tasiyanc — post 7052
 
@@ -211,22 +217,5 @@ matador ⚡ Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وای ببینید چی پیدا کردمه😂
-</div>
-
-## tasiyanc — post 7002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-۲ سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

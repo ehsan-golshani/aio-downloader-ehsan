@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/05/17 12:44
+📅 آخرین بروزرسانی: 1405/05/17 13:37
 
 ---
+
+## tasiyanc — post 6809
+
+<div align="center"><video src="files/post_6809_tasiyanc_6809.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6809_tasiyanc_6809.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+😎
+
+۳سرور سرعتی همه نت ها 
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+🔹
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6808
 
@@ -203,13 +231,5 @@ VIP⚡ APEX ⛓️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یادآوری : شات معنادار 😂 اگه گفتید کیه؟
-</div>
-
-## tasiyanc — post 6779
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨صدای توافق در سیریک🤣
-
-@TasiyanProxy
 </div>
 

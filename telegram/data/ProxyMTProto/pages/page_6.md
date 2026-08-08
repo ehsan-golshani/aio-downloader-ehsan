@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/17 12:42
+📅 آخرین بروزرسانی: 1405/05/17 13:35
 
 ---
+
+## ProxyMTProto — post 49817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: ee16309abd572d284b309ef26bd7a3f685d0b7d0ba70726f78792e6c6f646b69726d6d2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Damege-in.Travel-esf.manege-desktop-for.co.im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49815
 
@@ -163,24 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: Unknown
 Port: 8443
 Secret: ee16309abd572d284b309ef26bd7a3f685d0b7d0ba70726f78792e6c6f646b69726d6d2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49797
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: milion.users.ir.bishdhaep.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lazeyka-6.getvelora.space
-Port: 443
-Secret: ee46da8bea792f6be81e42e3afff691a006f7a6f6e2e7275
 @ProxyMTProto
 </div>
 

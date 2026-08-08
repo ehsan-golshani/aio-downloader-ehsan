@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/05/17 12:42
+📅 آخرین بروزرسانی: 1405/05/17 13:35
 
 ---
+
+## ProxyMTProto — post 47668
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r19.proxytg.space
+Port: 8443
+Secret: eea5e937176fb9385a90ee837da1f589aa7231392e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47667
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: For Iran
+Port: 8443
+Secret: dd79e7010200010007f0030386e24c3add
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47666
 
@@ -164,24 +182,6 @@ Secret: ee65032756d1cfb78ebbd0ea8db83d43937231302e70726f787974672e7370616365
 Server: hotmtpro2.duckdns.org
 Port: 443
 Secret: 7kBjzU5SbZqTzIJZZEf4Tvp3d3cubWljcm9zb2Z0LmNvbQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47648
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: yard-yaystal-menyat.yard-tg-bot.ru
-Port: 443
-Secret: ee6a441d3845f1bfec1100662ce671d8ed76762e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47647
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 

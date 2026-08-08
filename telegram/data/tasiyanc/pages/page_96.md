@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/17 12:44
+📅 آخرین بروزرسانی: 1405/05/17 13:37
 
 ---
+
+## tasiyanc — post 6071
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی همه اپراتورا🚀
+
+دانلود OpenVpn 🎚
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6069
 
@@ -163,13 +176,5 @@ Hot Servers 🔥🌶️.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @ineedknife
 آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادبش کردید ؟
-@ineedknife
-اگه ادبش کردید یه ری اکشن بزنید بره همون جایی ک میدونین 😂
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/17 12:42
+📅 آخرین بروزرسانی: 1405/05/17 13:35
 
 ---
+
+## ProxyMTProto — post 49857
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Damege-in.Travel-esf.manege-desktop-for.co.im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49856
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad6.arixo.shop
+Port: 443
+Secret: ee0655739ff0a111810d8529120d2071a66164332e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49855
 
@@ -163,24 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: Unknown
 Port: 443
 Secret: ee48995b34487bfb1cb562552a585da0ea6d6564626c6f636b2e696e6b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49837
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49836
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
 @ProxyMTProto
 </div>
 
