@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/18 17:01
+📅 آخرین بروزرسانی: 1405/05/18 17:45
 
 ---
+
+## ProxyMTProto — post 48469
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fresh.t-proxy.info.
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48468
 
@@ -172,15 +181,6 @@ Secret: ee50bc25d9708e2abc9d39ff7c654de9a26765742e75746b616e6f732e6c696665
 Server: malmo.viking-vibe.co.uk
 Port: 25565
 Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 34.51.192.156
-Port: 443
-Secret: dd99c304c8857034be7df934a6e5a95032
 @ProxyMTProto
 </div>
 
