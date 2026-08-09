@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/05/18 23:27
+📅 آخرین بروزرسانی: 1405/05/19 00:19
 
 ---
+
+## ProxyMTProto — post 48642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48641
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn.toconvel.digital
+Port: 443
+Secret: ee7d964536432cb73c6328dcd7439131ff63646e2e746f636f6e76656c2e6469676974616c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48640
 
@@ -163,24 +181,6 @@ Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 Server: proxy21.chunkycorp.shop
 Port: 443
 Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48622
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: www2.acientirani-uor4.ir
-Port: 443
-Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: aca00eb3.etherealvpn.uk
-Port: 443
-Secret: ee4ebde057e85dd06ed515c11267d2cde234646338626537362e657468657265616c76706e2e756b
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,51 @@
 # آرشیو کانال VahidOOnLine - صفحه 457
 
-📅 آخرین بروزرسانی: 1405/05/18 23:27
+📅 آخرین بروزرسانی: 1405/05/19 00:18
 
 ---
+
+## VahidOOnLine — post 243029
+
+<div align="center"><video src="files/post_243029_VahidOOnLine_243029.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243029_VahidOOnLine_243029.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهایی که تازه به دست ایران‌اینترنشنال رسیده، برگزاری مراسم چهلم جاویدنام احمد طراقیان را بر سر مزارش نشان می‌دهد.
+طراقیان، ۳۲ ساله، شامگاه ۱۹ دی‌ ۱۴۰۴ در شهر کرج، با شلیک گلوله جنگی به ناحیه سر هدف قرار گرفت و جان باخت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243028
+
+<div align="center"><video src="files/post_243028_VahidOOnLine_243028.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243028_VahidOOnLine_243028.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال، برگزاری مراسم تولد جاویدنام مصطفی نوری شیرازی را بر سر مزارش نشان می‌دهد.
+مصطفی نوری، جوان ۲۳ ساله اهل شهر نور در استان مازندران، جمعه ۱۹ دی‌ماه ۱۴۰۴ با شلیک مستقیم نیروهای سرکوبگر جان باخت. او را به بیمارستان خمینی‌شهر نور بردند اما جان باخت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243027
+
+<div align="center"><img src="files/post_243027_VahidOOnLine_243027.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ارتش اسرائیل روز یکشنبه ۱۰ خرداد به غیرنظامیان لبنانی ساکن جنوب رودخانه زهرانی هشدار داد که منطقه را تخلیه کنند و اعلام کرد که عملیات علیه حزب‌الله را تشدید می‌کند.
+
+آویخای ادرعی، سخنگوی عرب زبان ارتش اسرائیل در شبکه‌های اجتماعی نوشت: «ساکنان جنوب لبنان، شما باید فوراً به شمال زهرانی نقل مکان کنید.»
+
+به گزارش خبرگزاری فرانسه، در حالی که تلاش‌ها برای برای دستیابی به آتش‌بس در لبنان ادامه دارد، اسرائیل روز جمعه حملات سنگین خود به جنوباین کشور را ادامه داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243026
 
@@ -271,47 +314,6 @@
 🔹همین الان در خونه‌مون رو یک پسر خیلی جوان زد و گفت اومدم خونه‌تون رو تمیز کنم. رندوم در خونه‌ها رو می‌زد. دلم سوخت، کی این‌قدر کمبود شغل و فقر زیاد شد.
 
 🔹این‌قدر اجناس گرون شده و حقوق‌ها کم هستن که من می‌ترسم یه کیک ساده بگیرم و از اون طرف یه جای دیگه کم بیارم. ما فقط یه زندگی عادی خواستیم.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243009
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️وزیر دفاع ژاپن انتقادهای چین را رد کرد؛ «ما تهدیدی برای جهان نیستیم»
-
-♦️شینجیرو کویزومی، وزیر دفاع ژاپن، در نشست امنیتی «شانگری‌لا» در سنگاپور، انتقادهای چین از سیاست‌های دفاعی توکیو را رد کرد و گفت توصیف ژاپن به‌عنوان نمونه‌ای از «نظامی‌گری جدید» با واقعیت همخوانی ندارد.
-
-زیر دفاع ژاپن بدون نام بردن از کشور چین افزود: «کشوری وجود دارد که زرادخانه عظیم هسته‌ای و بمب‌افکن‌های راهبردی در اختیار دارد، اما ژاپن هیچ‌کدام از این تسلیحات را ندارد. با این حال، ژاپن به نظامی‌گری جدید متهم می‌شود.»
-
-کویزومی همچنین از افزایش توان نظامی چین و نبود شفافیت کافی در برنامه‌های دفاعی پکن ابراز نگرانی کرد و تأکید کرد ژاپن به تقویت توانمندی‌های دفاعی خود در حوزه‌هایی مانند هوش مصنوعی، سامانه‌های بدون سرنشین، دفاع سایبری و فضایی ادامه خواهد داد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243008
-
-<div align="center"><video src="files/post_243008_VahidOOnLine_243008.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243008_VahidOOnLine_243008.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در پی راه‌اندازی کارزار مردمی رشت از سوی ایران‌اینترنشنال، ویدیوهایی از آتش‌سوزی بازار این شهر در ۱۸ دی ۱۴۰۴ به دست ما رسیده است. در این شب ماموران اجازه مهار آتش به آتش‌نشان‌ها ندادند، معترضان در میان شعله‌های آتش گرفتار شدند و کسانی که راه فرار پیدا می‌کردند با گلوله ماموران کشته می‌شدند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243007
-
-<div align="center"><video src="files/post_243007_VahidOOnLine_243007.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243007_VahidOOnLine_243007.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که به تازگی منتشرشده، لحظه حملات هوایی به بیت علی خامنه‌ای در محدود پاستور تهران را در نهم اسفند ۱۴۰۴ نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

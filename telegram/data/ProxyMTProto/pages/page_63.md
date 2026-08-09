@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/18 23:27
+📅 آخرین بروزرسانی: 1405/05/19 00:19
 
 ---
+
+## ProxyMTProto — post 48724
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: malmo.viking-vibe.co.uk
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48723
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eeae4238427921aba7b1fcb407e1f37ce1676f6f676c65617069732e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48722
 
@@ -163,24 +181,6 @@ Secret: ee367e9d49996c327ff6684577cf2427fa6c696e6b2e6672656574672e7077
 Server: Unknown
 Port: 25565
 Secret: FgMBAgABAAH8AxOG4kw63Q
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad3.arixo.shop
-Port: 443
-Secret: ee722fba8d97b9027b5fc4deb041b290cb6164332e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48703
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 

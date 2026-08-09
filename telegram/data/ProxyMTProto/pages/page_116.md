@@ -1,8 +1,27 @@
 # آرشیو کانال ProxyMTProto - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/05/18 23:27
+📅 آخرین بروزرسانی: 1405/05/19 00:19
 
 ---
+
+## ProxyMTProto — post 47662
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👨‍💻 Staying connected to Telegram is getting harder in many regions, our proxies are actively working in Russia, Iran, and Iraq ⚡
+
+-Получите бесплатный прокси в нашем боте
+-Get your free proxy from our bot
+-پروکسی رایگان از ربات دریافت کنید
+</div>
+
+## ProxyMTProto — post 47661
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: otklyuchi-vpn.nolags.pw
+Port: 443
+Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47660
 
@@ -164,23 +183,5 @@ Server: 186.246.21.87
 Port: 443
 Secret: eec11798ab008831b474066c9e1ebf5c71617669746f2e7275
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47642
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tproxy.monster
-Port: 2053
-Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47641
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌍 Staying connected to Telegram is getting harder in many regions, our proxies are actively working in Russia, Iran, and Iraq ⚡
-
-Подключайтесь и оставайтесь онлайн
-جوین شید و متصل بمونید 👇
 </div>
 
