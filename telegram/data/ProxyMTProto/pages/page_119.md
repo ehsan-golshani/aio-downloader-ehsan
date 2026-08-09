@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 119
 
-📅 آخرین بروزرسانی: 1405/05/18 20:35
+📅 آخرین بروزرسانی: 1405/05/18 21:18
 
 ---
+
+## ProxyMTProto — post 47596
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: server-1.shustrik.world
+Port: 443
+Secret: ee53fed7a45b8fcb2ef5a2e0223c76bb4e766b766964656f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47595
 
