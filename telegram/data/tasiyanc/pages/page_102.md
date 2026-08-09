@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/05/18 22:51
+📅 آخرین بروزرسانی: 1405/05/18 23:29
 
 ---
+
+## tasiyanc — post 5952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانسلم میگن وصله
+اره ❤️
+نه 💋
+</div>
 
 ## tasiyanc — post 5950
 
@@ -165,13 +173,5 @@ https://t.me/TasiyanOwner
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Wifi نت خانگی⚡.npvt
-</div>
-
-## tasiyanc — post 5928
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+RTGtcYWb8HdkNjdk
-
-بیاید گپمون دور هم باشیم
 </div>
 

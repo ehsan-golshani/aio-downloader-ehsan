@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/18 22:51
+📅 آخرین بروزرسانی: 1405/05/18 23:29
 
 ---
+
+## tasiyanc — post 7881
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تفاهم ایران و امریکا مثل مهریه‌ست
+کی داده کی گرفته🤣
+
+@Tasiyanc✅
+#Mobina
+</div>
 
 ## tasiyanc — post 7879
 
@@ -297,41 +307,5 @@
 
 👈 دریافت کانفیگ ها 
 👆
-</div>
-
-## tasiyanc — post 7829
-
-<div align="center"><video src="files/post_7829_tasiyanc_7829.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7829_tasiyanc_7829.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  
-📶
-
-سه سرور سرعتی‌ تست شده
-💥
-
-دانلود برنامه اندروید 
-🕹
-
-دانلود برنامه آیفون 
-📱
-
-آموزش اتصال به اینجکتور ✨
-
-
-مناسب دانلود 
-⬇️ وب‌گردی 
-🔍 اینستاگرام 
-📸 جمینای 
-🤖 گیم 
-🎮
-
-
-اتصال امن برای همه 
-🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

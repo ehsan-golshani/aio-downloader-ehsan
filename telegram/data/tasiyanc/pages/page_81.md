@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/05/18 22:51
+📅 آخرین بروزرسانی: 1405/05/18 23:29
 
 ---
+
+## tasiyanc — post 6502
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه های عبری:
+نتانیاهو بی صبرانه منتظر دستور حمله گسترده به ایران از سوی ترامپ است
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6501
 
@@ -218,25 +226,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جهت ارتباط با ادمین ها و تبادلات گپمون :
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6468
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۲سرور   سرعتی پرمیوم متد جدید🚀
-
-300 گیگ - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

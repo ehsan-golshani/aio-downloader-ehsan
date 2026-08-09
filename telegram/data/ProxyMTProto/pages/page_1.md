@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/18 22:49
+📅 آخرین بروزرسانی: 1405/05/18 23:27
 
 ---
+
+## ProxyMTProto — post 49972
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sync.fleethop.online
+Port: 443
+Secret: ee5d12530b3304850a75f79585e946b73073796e632e666c656574686f702e6f6e6c696e65
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49971
 
@@ -172,15 +181,6 @@ Secret: ee16309abd572d284b309ef26bd7a3f68570726f78792e6c6f646b69726d6d2e7275
 Server: fresh.t-proxy.info.
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49952
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad2.arixo.shop
-Port: 443
-Secret: eed09b88cbbd4e744865b890e5a0bd26876164322e617269786f2e73686f70
 @ProxyMTProto
 </div>
 

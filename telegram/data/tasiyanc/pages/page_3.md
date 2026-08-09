@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/18 22:51
+📅 آخرین بروزرسانی: 1405/05/18 23:29
 
 ---
+
+## tasiyanc — post 9091
+
+<div align="center"><video src="files/post_9091_tasiyanc_9091.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9091_tasiyanc_9091.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🖱اگر #تندو تیز هستی اینو ببین 
+💵
+💰
+
+
+✊این بازی فقط سرعت عمل بالا میخواد😍
+
+
+🟢 ویدیو #آموزش بازی AVI رو براتون گذاشتم خیلی راحت با سرعت عمل بالا بدون ریسک کلی پول دراورد به همراه 
+🤩
+🤩% شارژ اضافی🔥
+
+
+💖 حتما ویدیو رو تا انتها ببینید
+💻لینک سایت بازی:
+
+💻 betinja.bet
+
+💻 betinja.bet
+
+🌐 کانال بونوس های رایگان r17
+@betinjabet
+</div>
 
 ## tasiyanc — post 9090
 
@@ -294,32 +325,5 @@ V2BOX
 
 Join As @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9070
-
-<div align="center"><video src="files/post_9070_tasiyanc_9070.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9070_tasiyanc_9070.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet
-💥
-
-
-🎁بونوس ورزشی هر چهارشنبه
-🔥
-
-💸واریز و برداشت متنوع
-💵
-
-⭕️بدون نیاز به فیلتر شکن
-⭕️
-r16
-
-🎁کد هدیه ثبت نام Melbet90 
-✌️
-
-✔https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

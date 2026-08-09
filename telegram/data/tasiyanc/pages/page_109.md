@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/05/18 22:51
+📅 آخرین بروزرسانی: 1405/05/18 23:29
 
 ---
+
+## tasiyanc — post 5767
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈4 سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5766
 
@@ -213,21 +226,5 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Crocodile 🐊 VIP.npvt
-</div>
-
-## tasiyanc — post 5744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده روی همراه اول - رایتل ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
-
-
-🚀 @Tasiyanc ✅
 </div>
 
