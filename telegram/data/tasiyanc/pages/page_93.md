@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/05/18 11:13
+📅 آخرین بروزرسانی: 1405/05/18 12:02
 
 ---
+
+## tasiyanc — post 6171
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر❤️‍🔥
+</div>
 
 ## tasiyanc — post 6170
 
@@ -195,11 +201,5 @@ New🚀@Tasiyanc.conf
 پابجیم آپدیت شد
 ای فوتبال هم گذاشتم
 تشکر واقعا
-</div>
-
-## tasiyanc — post 6147
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium 💙BLUE.npvt
 </div>
 

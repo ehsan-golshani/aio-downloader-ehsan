@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 105
 
-📅 آخرین بروزرسانی: 1405/05/18 11:13
+📅 آخرین بروزرسانی: 1405/05/18 12:02
 
 ---
+
+## tasiyanc — post 5864
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+ 2 سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5863
 
@@ -137,11 +154,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ناموسا وحشی طور وصله تازه هم استارت زدم
-</div>
-
-## tasiyanc — post 5844
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هرچی فرستادی وصلع
 </div>
 
