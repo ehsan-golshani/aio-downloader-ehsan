@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/18 12:55
+📅 آخرین بروزرسانی: 1405/05/18 13:44
 
 ---
+
+## ProxyMTProto — post 49309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: stars.tg-proxy.fun
+Port: 6443
+Secret: a545c35eb2bdfa1a93df5ebe69957120
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49308
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49307
 
@@ -163,24 +181,6 @@ Secret: BeZaN_RoooSh_Connect
 Server: petrichor.slarkfat.icu
 Port: 443
 Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49289
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49288
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lazeyka-2.getvelora.space
-Port: 443
-Secret: ee8f80f0ff5e181820e55c503b6b1b7e046f7a6f6e2e7275
 @ProxyMTProto
 </div>
 
