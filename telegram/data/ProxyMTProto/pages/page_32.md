@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/18 21:18
+📅 آخرین بروزرسانی: 1405/05/18 21:52
 
 ---
+
+## ProxyMTProto — post 49345
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Wow.Oh.Oh.AjaB_Sorati_Dare
+Port: 443
+Secret: BeZaN_RoooSh_Connect
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49344
 
@@ -172,15 +181,6 @@ Secret: dd36d988a8d13716c2c3aa9e90b7a8b18a
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49325
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: go.pelmeshka.top
-Port: 443
-Secret: eed62d0ddaa394f160c6110be34e8e7fee676f2e70656c6d6573686b612e746f70
 @ProxyMTProto
 </div>
 
