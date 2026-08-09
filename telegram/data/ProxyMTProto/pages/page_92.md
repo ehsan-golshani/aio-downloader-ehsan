@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/05/18 14:29
+📅 آخرین بروزرسانی: 1405/05/18 15:12
 
 ---
+
+## ProxyMTProto — post 48124
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 176.65.135.69
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: my.proxyz.site
+Port: 443
+Secret: ee0a9ab2b66d72b6797fa11106f55707056d792e70726f78797a2e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48122
 
@@ -163,24 +181,6 @@ Secret: ee1fed31d4c3ce8255aedc8c4c14a36f536170692e707278746f6461792e73746f7265
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48104
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: live.proxyvpn.site
-Port: 443
-Secret: eed2430edff0d3fc503099f982282bd0066c6976652e70726f787976706e2e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48103
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowabst.net
-Port: 853
-Secret: 7hKJP_0gRM7NMRBO3AKn5VhhZHMueDUucnU
 @ProxyMTProto
 </div>
 
