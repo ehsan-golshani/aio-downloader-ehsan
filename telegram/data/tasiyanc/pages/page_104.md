@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/18 01:41
+📅 آخرین بروزرسانی: 1405/05/18 09:08
 
 ---
+
+## tasiyanc — post 5886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر کدوم بیشتر رای بیاره از اون بیشتر میزاریم
+</div>
+
+## tasiyanc — post 5885
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیشتر با ovpn تا حالا وصل شدید یا با npv ؟ زمان قطعی کدوم به دادتون رسیده یادتون رفت؟
+
+Npv ❤️
+
+Ovpn 🔥
+</div>
+
+## tasiyanc — post 5884
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید قبول کنیم نپستر سرعتش بیشتره از اوپنه ، زمان اتصالش سریعه و کلی موارد دیگه
+سرور ovpn شلوغ باشه ارور متعدد روبرو میشید و و و
+</div>
 
 ## tasiyanc — post 5883
 
@@ -175,23 +198,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجب سرعتی داره داداش کیرتو بخورم دمت گرم❤️
-</div>
-
-## tasiyanc — post 5859
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کالافو اپدیت کردم دمت گرم
-</div>
-
-## tasiyanc — post 5858
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیهههه خدا خیرتون بده
 </div>
 

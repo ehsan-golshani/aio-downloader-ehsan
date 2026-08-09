@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/18 01:41
+📅 آخرین بروزرسانی: 1405/05/18 09:08
 
 ---
+
+## tasiyanc — post 6365
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🔝
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 🍏
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6364
+
+<div align="center"><img src="files/post_6364_tasiyanc_6364.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡All Operators ⚡.npvt
+</div>
+
+## tasiyanc — post 6362
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡All Operators ⚡.npvt
+</div>
 
 ## tasiyanc — post 6361
 
@@ -170,29 +200,5 @@ FAST @Tasiyanc servers.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FAST @Tasiyanc servers.txt
-</div>
-
-## tasiyanc — post 6343
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪼 اختصاصی تاسیان 👑
-
-85 کانفیگ Fast پروتکل Trojan ⚡
-
-بریزید ویتوباکس یا ویتوری پینگ بگیرید وصل شید 💚
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب تو راهه
-</div>
-
-## tasiyanc — post 6341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی کلاینت جدید VPN ساعت 18 🐾
 </div>
 
