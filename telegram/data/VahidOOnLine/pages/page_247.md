@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 247
 
-📅 آخرین بروزرسانی: 1405/05/18 03:10
+📅 آخرین بروزرسانی: 1405/05/18 04:10
 
 ---
+
+## VahidOOnLine — post 248430
+
+<div align="center"><video src="files/post_248430_VahidOOnLine_248430.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248430_VahidOOnLine_248430.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌‌اینترنشنال نشان می‌دهد یک دانش‌آموز عکس روح‌الله خمینی را از کتاب درسی خود کنده و آن را آتش می‌زند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248429
+
+<div align="center"><img src="files/post_248429_VahidOOnLine_248429.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دفتر نخست‌وزیری اسرائیل اعلام کرد بنیامین نتانیاهو و دونالد ترامپ، رییس‌جمهوری آمریکا، جمعه ۱۲ تیر تلفنی گفت‌وگو کردند.
+
+به گزارش کانال ۱۲ اسرائیل، نتانیاهو در این تماس ۲۵۰ سالگی استقلال آمریکا را تبریک گفت و تاکید کرد که آمریکا ضامن آزادی در جهان است و اسرائیل برای روابط نزدیک میان دو کشور اهمیت زیادی قائل است.
+
+نتانیاهو و ترامپ توافق کردند به‌زودی در آمریکا با یکدیگر دیدار کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248428
 
@@ -245,33 +273,6 @@
 
 روید موفق، از باستان‌شناسان این پروژه، این یافته را دستاوردی مهم برای درک عظمت تمدن آشور و توسعه شهری آن زمان توصیف کرد. نینوا به عنوان پایتخت امپراتوری نوآشوری، مرکزی برای قدرت نظامی و دانش بود و آشوربانی‌پال به دلیل تاسیس یکی از قدیمی‌ترین کتابخانه‌های جهان با بیش از ۲۰ هزار لوح گلی، شهرت جهانی دارد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248396
-
-<div align="center"><video src="files/post_248396_VahidOOnLine_248396.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248396_VahidOOnLine_248396.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️در پی دیدار دو تیم پرتغال و کرواسی در مرحله حذفی ذکر بسم الله کریستیانو رونالدو قبل از زدن ضربه پنالتی  مورد توجه کاربران در شبکه اجتماعی قرار گرفت
-
-دیدار این دو تیم با حواشی بسیار در نهایت با نتیجه ۲ بر ۱ به نفع پرتغال به پایان رسید و پرتغال به مرحله یک شانزدهم جام جهانی صعود کرد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248395
-
-<div align="center"><img src="files/post_248395_VahidOOnLine_248395.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حوثی‌های تحت حمایت جمهوری اسلامی اعلام کردند در جریان تلاش برای جلوگیری از ممانعت از فرود یک هواپیمای غیرنظامی ایرانی در فرودگاه صنعا، با جنگنده‌های عربستان سعودی در حریم هوایی یمن درگیر شدند.
-این گروه همچنین هشدار داد هرگونه حمله بیشتر عربستان سعودی با حمله به فرودگاه‌ها و دیگر منافع حیاتی این کشور پاسخ داده خواهد شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
