@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/05/18 18:31
+📅 آخرین بروزرسانی: 1405/05/18 19:15
 
 ---
+
+## ProxyMTProto — post 47832
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: pulse.flowstreamhub.site
+Port: 8443
+Secret: ee993b027bf939e8b65e48c633930c8b6770756c73652e666c6f7773747265616d6875622e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47831
 
@@ -172,15 +181,6 @@ Secret: ee8168c0b7cfbbb15a4fe4691243e6dc94617669746f2e7275
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47812
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: durov.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
 @ProxyMTProto
 </div>
 

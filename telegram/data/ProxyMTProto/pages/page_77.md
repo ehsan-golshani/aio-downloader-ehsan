@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/18 18:31
+📅 آخرین بروزرسانی: 1405/05/18 19:15
 
 ---
+
+## ProxyMTProto — post 48432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gorbeye-7000-sale.asiaadomainsshatelhamrahaval.co.uk.
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48431
 
@@ -172,15 +181,6 @@ Secret: ee12893ffd2044cecd31104edc02a7e5586164732e78352e7275
 Server: Unknown
 Port: 443
 Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: portal.malevich7.top
-Port: 443
-Secret: eee9fd052aae932459f210dee7a26c10ea706f7274616c2e6d616c6576696368372e746f70
 @ProxyMTProto
 </div>
 

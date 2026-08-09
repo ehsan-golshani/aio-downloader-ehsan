@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/18 18:33
+📅 آخرین بروزرسانی: 1405/05/18 19:17
 
 ---
+
+## tasiyanc — post 8152
+
+<div align="center"><img src="files/post_8152_tasiyanc_8152.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سایت کاربردی معرفی کنم:
+
+اگر در پروسه یادگیری زبان هستید یا یه روز تصمیم گرفتید زبان شروع کنید،
+یکی از سایت‌هایی که می‌تونه کمک بزرگی در استفاده درست از دایره واژگان انگلیسی شما کنه، همین سایت YouGlish هست.
+
+تو این سایت هر کلمه‌ای که سرچ کنید، تمام لحظاتی که در ویدئوهای یوتیوب از این کلمه استفاده شده رو نشونتون میده تا با کاربرد صحیحش در مکالمات آشنا بشید.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زندگی در میان گروهی نادان دشوار است ، اما زندگی در جایی که قدرت در دست همان نادان ها باشد ، هولناك است
+آلبر کامو
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8148
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8145
+
+<div align="center"><img src="files/post_8145_tasiyanc_8145.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏔 روستای کندوان تبریز از معدود روستاهای صخره‌ای جهان است طبیعت زیبا، آب‌وهوای خنک و معماری منحصربه‌فرد، کندوان را به یکی از محبوب‌ترین جاذبه‌های گردشگری ایران تبدیل کرده است.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8142
 
@@ -169,31 +227,5 @@
 ـ دیگه وارد چنین بازی‌هایی نمی‌شیم؛ اون دوران گذشته.
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اهواز عزیز طاقت بیار ...
-</div>
-
-## tasiyanc — post 8116
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اهواز زیر دود بمباران 💔
-</div>
-
-## tasiyanc — post 8115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاش جنوب ایران هم اندازه جنوب لبنان براتون مهم بود
-</div>
-
-## tasiyanc — post 8114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴حملات شدید آمریکا به اهواز عزیز
-
-@Tasiyanc
 </div>
 

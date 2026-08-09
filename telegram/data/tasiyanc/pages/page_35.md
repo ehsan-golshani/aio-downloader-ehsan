@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/18 18:33
+📅 آخرین بروزرسانی: 1405/05/18 19:17
 
 ---
+
+## tasiyanc — post 8188
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظرتون چیه آخرش چی میشه؟؟؟
+</div>
+
+## tasiyanc — post 8187
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سخنرانی مهم پرزیدنت ترامپ ۳ ساعت دیگه در کاخ سفید شروع میشه
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8186
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حملات امشب بی سابقه اس
+</div>
+
+## tasiyanc — post 8185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
+</div>
 
 ## tasiyanc — post 8184
 
@@ -154,63 +180,5 @@
 
 محققای هاروارد بعد از سال‌ها تحقیق به این نتیجه رسیدن که دخترا با بوسیدن پسرای کچل عمرشون بیشتر میشه؛ تازه میگن میزان افزایش عمر هم با درجه کچلی نسبت مستقیم داره.
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8152
-
-<div align="center"><img src="files/post_8152_tasiyanc_8152.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سایت کاربردی معرفی کنم:
-
-اگر در پروسه یادگیری زبان هستید یا یه روز تصمیم گرفتید زبان شروع کنید،
-یکی از سایت‌هایی که می‌تونه کمک بزرگی در استفاده درست از دایره واژگان انگلیسی شما کنه، همین سایت YouGlish هست.
-
-تو این سایت هر کلمه‌ای که سرچ کنید، تمام لحظاتی که در ویدئوهای یوتیوب از این کلمه استفاده شده رو نشونتون میده تا با کاربرد صحیحش در مکالمات آشنا بشید.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8150
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زندگی در میان گروهی نادان دشوار است ، اما زندگی در جایی که قدرت در دست همان نادان ها باشد ، هولناك است
-آلبر کامو
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8148
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8145
-
-<div align="center"><img src="files/post_8145_tasiyanc_8145.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏔 روستای کندوان تبریز از معدود روستاهای صخره‌ای جهان است طبیعت زیبا، آب‌وهوای خنک و معماری منحصربه‌فرد، کندوان را به یکی از محبوب‌ترین جاذبه‌های گردشگری ایران تبدیل کرده است.
-
-@Tasiyanc ⭐️
 </div>
 

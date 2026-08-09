@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/18 18:33
+📅 آخرین بروزرسانی: 1405/05/18 19:17
 
 ---
+
+## tasiyanc — post 6385
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۶سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+7سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6383
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[Fast] ⚡ @Tasiyanc.npvt
+</div>
+
+## tasiyanc — post 6382
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در صورت قطعی ، چنل تاسیان پرایوت میشه ، و دوستانی که به ما وفادار بودن و پیشمون موندن قرارع نزارم یه دقیقه قطعی بکشن
+عشق منین شما ک همیشه حمایت کردید ازم ❤️
+قطعی ایشالا تو کار نباشه ولی اگر باشه قوی تر از قبل برنامه داریم
+</div>
 
 ## tasiyanc — post 6375
 
@@ -198,31 +251,5 @@ Speed ⚡ One.npvt
 😬Password :″ @Tasiyanc  ″
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6356
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+RTGtcYWb8HdkNjdk
-گپمون هنو ۴ کا نشده 🗽😐 جوین شید عشقا
-</div>
-
-## tasiyanc — post 6355
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سری چنلهای عزیز هم ک باهاشون رفیقم فور میکنن بدون اینکه دیکد کنن ، جا داره ازشون تشکر کنم ❤️‍🔥
-</div>
-
-## tasiyanc — post 6354
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی لاقل اجازه بده ممبرای خودم وصل شن بعد
-</div>
-
-## tasiyanc — post 6353
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ع سرورای تاسیان اسکی می‌ره پسوردم می‌زاره و میگه بیاید تشکر کنین ازم
-ساعت ۲۱.۱۸ سرور میزنم پنج دقیقه بعدش دیکد می‌کنه ، آدم میمونه چی بگه
 </div>
 
