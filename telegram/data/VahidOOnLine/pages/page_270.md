@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 270
 
-📅 آخرین بروزرسانی: 1405/05/18 15:11
+📅 آخرین بروزرسانی: 1405/05/18 15:51
 
 ---
+
+## VahidOOnLine — post 248003
+
+<div align="center"><video src="files/post_248003_VahidOOnLine_248003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248003_VahidOOnLine_248003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از خریدرارن خانه در شهرک صدرا در شیراز به دلیل تمام نشدن پروژه و تحویل ندادن خانه‌ها تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248002
+
+<div align="center"><img src="files/post_248002_VahidOOnLine_248002.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ ماجد الانصاری، سخنگوی وزارت امور خارجه قطر، روز سه‌شنبه نهم تیر تاکید کرد که تاکنون هیچ‌گونه انتقال وجهی به ایران صورت نگرفته است. او با بیان اینکه قطر مالک این وجوه نیست و تنها به عنوان یک میانجی مالی در چارچوب توافق میان طرفین عمل می‌کند، افزود که انتقال یا عدم انتقال این منابع، وابسته به توافق متقابل و پیشرفت مذاکرات است که هنوز محقق نشده است.
+
+این اظهارات در حالی مطرح می‌شود که روز دوشنبه رسانه‌های دولتی ایران به نقل از مسعود پزشکیان، گزارش دادند که این کشور قرار است ۶ میلیارد دلار از دارایی‌های مسدود شده خود را که در قطر نگهداری می‌شود، دریافت کند. آزادسازی این دارایی‌ها از مفاد یادداشت تفاهم ایران و آمریکا است. هفته گذشته، جی دی ونس، معاون رئیس‌جمهوری آمریکا، در این باره گفت که واشنگتن تضمین خواهد کرد هرگونه وجوه آزاد شده از مذاکرات جاری، صرف کمک به مردم ایران شده و برای تامین مالی تروریسم استفاده نشود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248001
 
@@ -258,32 +284,6 @@
 
 او همچنین از شرکت‌کنندگان در این مراسم حکومتی خواسته کلاه، آفتابگیر و بطری آب همراه داشته باشند.
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247983
-
-<div align="center"><video src="files/post_247983_VahidOOnLine_247983.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247983_VahidOOnLine_247983.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز سه‌شنبه نهم تیرماه دانشجویان دانشگاه آزاد مقاطع کارشناسی ارشد و دکتری، مقابل سازمان مرکزی دانشگاه آزاد در تهران تجمع کرده و نسبت به حضوری شدن امتحانات خود اعتراض کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247982
-
-<div align="center"><video src="files/post_247982_VahidOOnLine_247982.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247982_VahidOOnLine_247982.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد روی یکی از سطل‌های زباله در شهر سردشت استان آذربایجان‌غربی، پلاکاردهایی با مضامین شعارهایی علیه علی و مجتبی خامنه‌ای چسبانده‌اند. روی آنها نوشته‌: «یزید خامنه‌ای رفت که رفت» و «مجتبی جلاد هم پشتش می‌ره»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

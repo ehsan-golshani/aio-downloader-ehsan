@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 174
 
-📅 آخرین بروزرسانی: 1405/05/18 15:11
+📅 آخرین بروزرسانی: 1405/05/18 15:51
 
 ---
+
+## VahidOOnLine — post 250249
+
+<div align="center"><img src="files/post_250249_VahidOOnLine_250249.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی گفت جمهوری اسلامی تعهدات خود را تا زمانی اجرا می‌کند که طرف مقابل به آن‌ها پایبند باشد و در صورت نقض تعهدات، اقدامات متقابل انجام خواهد داد.
+
+بقائی گفت طرف مقابل از ابتدای تفاهم‌نامه بدعهدی و پیمان‌شکنی کرده است و جمهوری اسلامی هم در میدان و هم در اجرای تعهدات، متناسب با این اقدام پاسخ خواهد داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250248
+
+<div align="center"><img src="files/post_250248_VahidOOnLine_250248.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️فرماندهی مرکزی ایالات متحده (سنتکام) روز چهارشنبه ۲۴ تیر، اعلام کرد که از زمان آغاز مجدد محاصره دریایی ایران در روز سه‌شنبه، دو کشتی تجاری را «تغییر مسیر» داده است.
+
+طبق بیانیه سنتکام، نیروهای ایالات متحده در ۱۷ ساعت گذشته از آغاز محاصره دریایی بنادر ایران، دو کشتی تجاری را که قصد داشتند از این محاصره عبور کنند، وادار به تغییر مسیر کرده‌اند. ارتش آمریکا تاکید کرده است که همچنان هوشیار بوده و برای تضمین رعایت کامل این محاصره آمادگی کامل دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250247
 
@@ -267,33 +293,6 @@ iranintl
 
 سنتکام تأکید کرده است که این عملیات در ادامه تلاش‌های آمریکا برای مقابله با تهدیدهای جمهوری اسلامی علیه کشتیرانی تجاری و مسیرهای دریایی در منطقه انجام می‌شود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250228
-
-<div align="center"><img src="files/post_250228_VahidOOnLine_250228.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سنتکام اعلام کرد نیروهای فرماندهی مرکزی آمریکا، ظهر دوشنبه به وقت ایران، موجی از حملات را علیه جمهوری اسلامی آغاز کردند.
-
-به گفته سنتکام این حملات به منظور تضعیف بیشتر قابلیت‌های نظامی نیروهای ایرانی برای حمله به کشتی‌های تجاری در تنگه هرمز طراحی شده‌اند.
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250227
-
-<div align="center"><video src="files/post_250227_VahidOOnLine_250227.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250227_VahidOOnLine_250227.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدجواد اکبرین، عضو تحریریه ایران‌اینترنشنال، در واکنش به پیام‌های سپاه خطاب به مردم اردن و کویت، که از آن‌ها خواسته موسسات آمریکایی را در کشورشان تخریب کنند، گفت این اقدام را روح‌الله خمینی نیز انجام می‌داد و به گفته برخی، این رفتار در آغاز جنگ با عراق تاثیر داشت.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

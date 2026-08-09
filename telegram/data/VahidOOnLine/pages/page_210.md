@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 210
 
-📅 آخرین بروزرسانی: 1405/05/18 15:11
+📅 آخرین بروزرسانی: 1405/05/18 15:51
 
 ---
+
+## VahidOOnLine — post 249313
+
+<div align="center"><img src="files/post_249313_VahidOOnLine_249313.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ابوذر شیرودی، رییس سازمان هواپیمایی ایران، اعلام کرد عملیات پروازی در سراسر کشور با وجود آنچه «اقدامات خرابکارانه و تهدیدهای امنیتی» خواند، بدون وقفه ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249312
+
+<div align="center"><img src="files/post_249312_VahidOOnLine_249312.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکسیوس در گزارشی نوشت، توافق موقت میان تهران و واشینگتن پس از دو روز حملات آمریکا به اهدافی در سواحل جنوبی ایران و حملات ایران به کشتی‌های تجاری در نزدیکی تنگه هرمز، با جدی‌ترین آزمون خود تاکنون روبه‌رو شده است.
+
+این گزارش می افزاید، نگرانی‌ها درباره بازگشت به یک جنگ تمام‌عیار را افزایش داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249311
 
@@ -287,32 +311,6 @@
 
 این گزارش‌ها تاکنون به طور رسمی تایید نشده‌اند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249293
-
-<div align="center"><img src="files/post_249293_VahidOOnLine_249293.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️دفتر نخست وزیری اسرائیل در نخستین ساعات بامداد جمعه ۱۹ تیرماه (به وقت تهران) با انتشار بیانیه‌ای اعلام کرد بنیامین نتانیاهو و دونالد ترامپ در یک گفتگوی تلفنی، بر هماهنگی در جبهه‌های مختلف تاکید کردند.
-
-براساس این بیانیه، ترامپ نتانیاهو را درباره «آخرین حرکات» آمریکا در خلیج فارس و  ایران، در جریان قرار داد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249292
-
-<div align="center"><img src="files/post_249292_VahidOOnLine_249292.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️نیمه اول دیدار فرانسه و مراکش با نتیجه بدون گل پایان یافت.
-کلیان امباپه، ستاره آبی‌ها یک پنالتی را در دقیقه ۲۸ از دست داد.
-فرانسه، مدعی قهرمانی، در نیمه نخست میدان را در دست داشت اما نتوانست دروازه حریف قدرتمند را باز کند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

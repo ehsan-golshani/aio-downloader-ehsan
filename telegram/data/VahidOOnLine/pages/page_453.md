@@ -1,8 +1,37 @@
 # آرشیو کانال VahidOOnLine - صفحه 453
 
-📅 آخرین بروزرسانی: 1405/05/18 15:11
+📅 آخرین بروزرسانی: 1405/05/18 15:51
 
 ---
+
+## VahidOOnLine — post 243049
+
+<div align="center"><video src="files/post_243049_VahidOOnLine_243049.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243049_VahidOOnLine_243049.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در پی راه‌اندازی کارزار مردمی رشت از سوی ایران‌اینترنشنال، ویدیوهایی از مراسم چهلم جاویدنام امیرحسین (شایان) شکاری به دست ما رسیده است.
+شکاری، ۲۱ ساله، عضو پیشین تیم ملی تکواندو نوجوانان که سابقه نایب‌قهرمانی آسیا را در کارنامه دارد، ۱۸ دی ۱۴۰۴ با شلیک مستقیم گلوله به سر کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243048
+
+<div align="center"><img src="files/post_243048_VahidOOnLine_243048.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرزانه صادق، وزیر راه و شهرسازی، در نشست «مجازی» مجلس گفت: «شاهد جنگ کریدورها هستیم و بر همین اساس بنادر جنوبی کشور در خط مقدم جنگ قرار دارند.»
+
+او افزود: «برای تامین کالاهای اساسی و ضروری، برنامه‌ریزی شد تا روند واردات و صادرات متوقف نشود. همچنین رایزنی با کشورهای همسایه به منظور افزایش ناوگان حمل و نقل نیز انجام شده است.»
+
+وزیر راه و شهرسازی اضافه کرد: «در جنگ اخیر خسارات زیادی نیز در حوزه راه و شهرسازی رخ داد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243047
 
@@ -265,34 +294,6 @@ iranintl
 محمدعلی زلفی‌گل، وزیر علوم در دولت ابراهیم رئیسی گفت: «شما در مناظرات انتخاباتی دیدید که رئیسی هیچ‌گاه حاضر نبود دست به کاری بزند یا حرفی بزند که از منش انسانی، تقوا، ایمان و اخلاق به دور باشد؛ رئیسی شهادت‌گونه زندگی کرد و یک پهلوان سیاسی بود.»
 
 او ادامه داد: «من شهادت می‌دهم که رئیسی فقط کارها را برای خدا، مردم و نظام جمهوری اسلامی انجام می‌داد.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243029
-
-<div align="center"><video src="files/post_243029_VahidOOnLine_243029.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243029_VahidOOnLine_243029.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهایی که تازه به دست ایران‌اینترنشنال رسیده، برگزاری مراسم چهلم جاویدنام احمد طراقیان را بر سر مزارش نشان می‌دهد.
-طراقیان، ۳۲ ساله، شامگاه ۱۹ دی‌ ۱۴۰۴ در شهر کرج، با شلیک گلوله جنگی به ناحیه سر هدف قرار گرفت و جان باخت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243028
-
-<div align="center"><video src="files/post_243028_VahidOOnLine_243028.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243028_VahidOOnLine_243028.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال، برگزاری مراسم تولد جاویدنام مصطفی نوری شیرازی را بر سر مزارش نشان می‌دهد.
-مصطفی نوری، جوان ۲۳ ساله اهل شهر نور در استان مازندران، جمعه ۱۹ دی‌ماه ۱۴۰۴ با شلیک مستقیم نیروهای سرکوبگر جان باخت. او را به بیمارستان خمینی‌شهر نور بردند اما جان باخت.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
