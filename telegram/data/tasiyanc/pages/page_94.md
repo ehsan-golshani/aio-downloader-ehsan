@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/05/18 12:02
+📅 آخرین بروزرسانی: 1405/05/18 12:57
 
 ---
+
+## tasiyanc — post 6148
+
+<div align="center"><img src="files/post_6148_tasiyanc_6148.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پابجیم آپدیت شد
+ای فوتبال هم گذاشتم
+تشکر واقعا
+</div>
 
 ## tasiyanc — post 6147
 
@@ -201,24 +211,6 @@ Fast2⚡@Tasiyanc.conf
 آموزش ویدیویی ⏩
 
 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-5سرور  سرعتی تست شده 
-🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc 
 ✅
 </div>
 

@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/05/18 12:02
+📅 آخرین بروزرسانی: 1405/05/18 12:57
 
 ---
+
+## tasiyanc — post 6725
+
+<div align="center"><video src="files/post_6725_tasiyanc_6725.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6725_tasiyanc_6725.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این واقعی ترین کلیپ از جنگه، اگه میخواین بدونین نزدیک‌تون یا جایی که هستین موشک بخوره چه اتفاقی میوفته حتما این کلیپ رو ببینین.
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6724
 
@@ -183,11 +194,5 @@ INFERNO ⚡ vip.npvt
 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.194.219:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%40Tasiyanc%20%E2%9A%A1%F0%9F%94%B7
 ﻿
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6700
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موقع بحران خانواده‌ایم، موقع آرامش غریبه‌ایم 😂
 </div>
 

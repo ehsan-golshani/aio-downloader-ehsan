@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/05/18 12:00
+📅 آخرین بروزرسانی: 1405/05/18 12:55
 
 ---
+
+## ProxyMTProto — post 48159
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy56.arixo.shop
+Port: 443
+Secret: eef6b692733d4b37587e7ac89a20c98437617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48158
 
@@ -172,15 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: alexeylox.chunkycorp.shop
 Port: 443
 Secret: ee1afb6de782af4c1bf29d1e230a0e5a8d617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48139
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rudomain.info.
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

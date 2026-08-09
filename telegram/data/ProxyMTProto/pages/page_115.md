@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/05/18 12:00
+📅 آخرین بروزرسانی: 1405/05/18 12:55
 
 ---
+
+## ProxyMTProto — post 47659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp.webvirt.cloud
+Port: 443
+Secret: ee938dd87467bc49301de2e9765cf20f4374656c2e776562766972742e636c6f7564
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47658
 
@@ -172,15 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
 Server: otklyuchi-vpn.nolags.pw
 Port: 443
 Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47639
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: For Iran
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 

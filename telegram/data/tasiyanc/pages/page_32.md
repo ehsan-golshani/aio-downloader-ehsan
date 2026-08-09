@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/18 12:02
+📅 آخرین بروزرسانی: 1405/05/18 12:57
 
 ---
+
+## tasiyanc — post 8249
+
+<div align="center"><img src="files/post_8249_tasiyanc_8249.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چی میشه گفت واقن به اینا :)
+
+کامنت آزاد ☺️
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8246
 
@@ -189,14 +201,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ضربه سختی در راه است
 خواهیم دید چه میشود🤣
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 پیت هگست: کنترل تنگه هرمز دست ایران نیست
 
 @Tasiyanc✅
 </div>

@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/18 12:02
+📅 آخرین بروزرسانی: 1405/05/18 12:57
 
 ---
+
+## tasiyanc — post 8619
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نفت شد ۱۰۰ دلار ،،،
+ترامپ یه ساعت بعد : داریم مذاکره می‌کنیم توافق نزدیکه
+</div>
 
 ## tasiyanc — post 8618
 
@@ -221,17 +228,5 @@ Fact @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴امیر دوست پسر قبلی نیکا فلاحی وقتی فهمید نیکا با مرسلی رفته تو رابطه از لجش اومده عکسای نود بدون سانسورشو پخش کرده ولی خودمونیم چیز خوبیه 📥 مشاهده ویدیو
-</div>
-
-## tasiyanc — post 8591
-
-<div align="center"><video src="files/post_8591_tasiyanc_8591.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8591_tasiyanc_8591.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امیر دوست پسر قبلی نیکا فلاحی وقتی فهمید نیکا با مرسلی رفته تو رابطه از لجش اومده عکسای نود بدون سانسورشو پخش کرده ولی خودمونیم چیز خوبیه
-
-📥 مشاهده ویدیو
 </div>
 

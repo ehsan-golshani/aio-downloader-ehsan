@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/18 12:02
+📅 آخرین بروزرسانی: 1405/05/18 12:57
 
 ---
+
+## tasiyanc — post 8653
+
+<div align="center"><video src="files/post_8653_tasiyanc_8653.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8653_tasiyanc_8653.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«چشم‌های تمساح ؛ یکی از پیشرفته ترین چشم‌ها در قلمرو جانوران ک طی بیش از ۲۰۰ میلیون سال تکامل یافته اند » 🐊👁
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8652
 
@@ -227,12 +239,5 @@ Fact @TASIYANC ✅
 این مهاجرت، یکی از کمتر گفتهشدهترین فصلهای انسانی جنگ جهانی دوم است؛ جایی که ایران، نه در مقام قدرت نظامی، بلکه بهعنوان پناهگاه انسانها در تاریخ ثبت شد
 
 Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8619
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نفت شد ۱۰۰ دلار ،،،
-ترامپ یه ساعت بعد : داریم مذاکره می‌کنیم توافق نزدیکه
 </div>
 
