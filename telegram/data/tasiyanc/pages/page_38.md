@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/18 09:08
+📅 آخرین بروزرسانی: 1405/05/18 11:13
 
 ---
+
+## tasiyanc — post 8073
+
+<div align="center"><img src="files/post_8073_tasiyanc_8073.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 طبق مطالعات، دخترا عاشق اینن، اون لحظه‌ای که ازشون خوشت اومدو براشون تعریف کنی.
+
+مثلا دو تایی خوابیدین رو بالشت، یهویی میگه چیشد از من خوشت اومد؟
+این لحظه باید وقت بذاری و با ذوق و شوق براشون تعریف کنی که چیشد ازشون خوشت اومد.
+صد بارم تعریف کنی بازم خوششون میاد، قشنگ جزئیات ظاهری و رفتاری رو کامل بگو که از چه چیزی‌شون خوشت اومد.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴گزارش‌های اولیه حاکی از آن است که نیروگاه «کیش» در استان هرمزگان ایران توسط یک موشک هدف قرار گرفت و تجهیزات آن آسیب دید. قطعی برق پیش‌بینی می‌شود. @TasiyanProxy✅
+</div>
+
+## tasiyanc — post 8070
+
+<div align="center"><img src="files/post_8070_tasiyanc_8070.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه دوس دختر داشتم از اینا براش میخریدم:)
+
+
+@Tasiyanc ⭐️
+#NiNi
+</div>
 
 ## tasiyanc — post 8069
 
@@ -252,35 +283,5 @@
 ثانیه به ثانیه‌اش عالیه😂
 
 @Tasiyanc ⭐️ | بانك کانفیگ
-</div>
-
-## tasiyanc — post 8011
-
-<div align="center"><img src="files/post_8011_tasiyanc_8011.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ارتش اسراییل تقه محکمی به کفر تبنیت جنوب لبنان زد
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8010
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قضیه داره پیچیده میشه
-🚨حمله موشکی حوثی ها به فرودگاه بین‌المللی «ابها» در جنوب عربستان
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8007
-
-<div align="center"><video src="files/post_8007_tasiyanc_8007.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8007_tasiyanc_8007.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماتون بریزه ، آمریکا دیشب اینجوری با قایق انتحاری عملیات انجام داده :
-
-@Tasiyanc ⭐️
 </div>
 

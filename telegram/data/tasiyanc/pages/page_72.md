@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/18 09:08
+📅 آخرین بروزرسانی: 1405/05/18 11:13
 
 ---
+
+## tasiyanc — post 6778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6777
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کدوم کانال خارجی دارید می‌بینید مسابقات جام جهانی رو؟
+</div>
+
+## tasiyanc — post 6776
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ NEXUS 🪐.npvt
+</div>
 
 ## tasiyanc — post 6775
 
@@ -152,30 +178,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 INFERNO ⚡ vip.npvt
-</div>
-
-## tasiyanc — post 6723
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ تو تجمعات ببینم تعجب نمیکنم
-</div>
-
-## tasiyanc — post 6722
-
-<div align="center"><img src="files/post_6722_tasiyanc_6722.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐😐
-ترامپ پست عباس عراقچی رو گذاشته X
-توافق اسلام‌آباد تا حالا هیچ‌وقت این‌قدر به نهایی شدن نزدیک نشده بود!
-  
-فعلاً رسانه‌ها درباره جزئیاتش حدس و گمان نزنن، وقتی کار نهایی شد، همه جزئیات رو به‌صورت رسمی به مردم اعلام می‌کنیم.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6721
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[30] 🪐@Tasiyanc.conf
 </div>
 

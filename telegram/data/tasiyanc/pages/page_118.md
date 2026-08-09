@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/05/18 09:08
+📅 آخرین بروزرسانی: 1405/05/18 11:13
 
 ---
+
+## tasiyanc — post 5499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5498
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کدوم بزاریم ؟
+NPV ❤️
+
+Psiphon v2Ray 🔥
+</div>
+
+## tasiyanc — post 5497
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده وای‌فای 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5496
 

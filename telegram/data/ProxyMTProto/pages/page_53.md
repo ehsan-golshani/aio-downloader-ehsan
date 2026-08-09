@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/18 10:00
+📅 آخرین بروزرسانی: 1405/05/18 11:11
 
 ---
+
+## ProxyMTProto — post 48898
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48897
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 92.246.87.243
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48896
 
@@ -163,24 +181,6 @@ Secret: eefe12a66db0212791c3ba09df4f6123806e65742e70656c6d6573686b612e746f70
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48878
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gate.klyuch1k.org
-Port: 443
-Secret: eeae941a76ec4acf04faabaf8a24571080676174652e6b6c79756368316b2e6f7267
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dark.basicscotch.co.uk
-Port: 22
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 

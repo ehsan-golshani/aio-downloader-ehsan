@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/18 09:08
+📅 آخرین بروزرسانی: 1405/05/18 11:13
 
 ---
+
+## tasiyanc — post 8171
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چند پل دیگه رو داره میزنه که به بندرعباس راه دارن
+وقتی این پل ها زده بشه هیچ چیزی نمیتونه بره بندرعباس
+طبق چیزایی که داره اتفاق میوفته احتمالاً آمریکا می‌خواد نیرو زمینی پیاده کنه!
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8170
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢طبق گزارش‌ها، اینترنت تو بعضی از نقاط کشور به شدت ضعیف شده
+
+وضعیت نت شما چطوره؟
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📰تسنیم:
+
+🇺🇸💢آمریکا شروع به زدن زیرساخت ها و پل ها کرده
+اونا به شهرستان بندرخمیر و بخش کهورستان حمله کردن و پل ارتباطی بندرعباس به شیراز که معروف به پل بندرعباس - کهورستان - لار هست رو هدف قرار دادن.
+برق مناطقی از کهورستان هم قطع شده
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8168
 
@@ -186,33 +218,5 @@
 + این روزو به آدمای سمی زندگیت تبریک بگو
 
 @Tasiyanc ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8130
-
-<div align="center"><video src="files/post_8130_tasiyanc_8130.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8130_tasiyanc_8130.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساحل فیتوپلانکتون ، چابهار زیبا 🌴🌊
-
-@Tasiyanc 
-⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8128
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠فوری علیرضا فغانی داور فینال جام‌جهانی بین اسپانیا و آرژانتین شد.
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8127
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال تموم شه خواهیم دید چه خواهد شد
 </div>
 
