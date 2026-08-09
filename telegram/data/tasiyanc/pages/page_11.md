@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/18 19:17
+📅 آخرین بروزرسانی: 1405/05/18 19:51
 
 ---
+
+## tasiyanc — post 8890
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺ایالات متحده آمریکا از تمامی شهروندانش خواسته هرچه سریع بدون وقفه خاورمیانه رو ترک کنن
+
+🔱 @TASIYANC
+</div>
 
 ## tasiyanc — post 8888
 
@@ -339,22 +347,5 @@ Restore this vintage film frame by removing scratches, dust, flicker, fading and
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡𝐓𝐀𝐒𝐈𝐘𝐀𝐍_𝐕𝐈𝐏_𝐌𝐔𝐋𝐓𝐈⚡.npvt
-</div>
-
-## tasiyanc — post 8857
-
-<div align="center"><img src="files/post_8857_tasiyanc_8857.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 با این پرامپت هرچی عکس قدیمی و داغون دارید میتونید با کیفیت و زیبا کنید بدون تغییر چهره ها 🤖🤖
-
-Prompt
-
-Restore this old photograph with maximum realism. Remove scratches, dust, stains, tears, blur, and noise while preserving the person's exact facial features, identity, expression, hairstyle, clothing, and original composition. Increase sharpness and resolution, recover fine skin and fabric details, correct fading, and balance lighting naturally. If the image is black and white, colorize it with historically accurate, natural colors. Produce a clean, ultra-realistic, high-resolution 8K restoration that looks like a modern professional photograph while keeping the original memory and authenticity intact.
-
-
-آموزش استفاده از پرامپت 👉
-
-✈️ @TASIYANC
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/18 19:17
+📅 آخرین بروزرسانی: 1405/05/18 19:51
 
 ---
+
+## tasiyanc — post 7876
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حس میکنم نه دیگه ما می‌دونیم چی میشه، نه جمهوری اسلامی نه ترامپ. سرنوشت‌مون رو دادن دست کارگردان سریال فرام.
+@Tasiyanc 
+⭐️
+#Navid
+</div>
 
 ## tasiyanc — post 7874
 
@@ -324,14 +333,5 @@
 
 اتصال امن برای همه 🇮🇷
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7822
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار و پروکسی های پرسرعتمون 👇
-https://t.me/+v0wRP5SGNrg5MThk
-
-دریافت کانفیگ مخصوص اینترنت ملی 👆
 </div>
 

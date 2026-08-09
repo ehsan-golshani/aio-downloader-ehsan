@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 97
 
-📅 آخرین بروزرسانی: 1405/05/18 19:17
+📅 آخرین بروزرسانی: 1405/05/18 19:51
 
 ---
+
+## tasiyanc — post 6082
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀🇮🇹🇳🇱 سرعتی - VIP.npvt
+</div>
 
 ## tasiyanc — post 6081
 
@@ -199,11 +205,5 @@ Hot Servers 🔥🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عکس و ..؟
-</div>
-
-## tasiyanc — post 6051
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب بریم به آدرس و شماره تلفن یا چیزای دیگه بدم؟
 </div>
 

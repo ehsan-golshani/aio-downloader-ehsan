@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/05/18 19:15
+📅 آخرین بروزرسانی: 1405/05/18 19:49
 
 ---
+
+## ProxyMTProto — post 48755
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn.mowork.ru
+Port: 443
+Secret: eececef6563bce080cccda8dcc61cedbf6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48754
 
@@ -172,15 +181,6 @@ Secret: ee4e021ded813d6f66fdbd0964205ee8aa63313336663533382e657468657265616c7670
 Server: velvory.co.uk.
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48735
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 2.pro.lunoconnect.com
-Port: 443
-Secret: ee9e61388de8911b3d39196f12bb31011d322e70726f2e6c756e6f636f6e6e6563742e636f6d
 @ProxyMTProto
 </div>
 

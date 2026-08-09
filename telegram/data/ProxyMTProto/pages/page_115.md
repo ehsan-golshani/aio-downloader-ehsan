@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/05/18 19:15
+📅 آخرین بروزرسانی: 1405/05/18 19:49
 
 ---
+
+## ProxyMTProto — post 47673
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r20.proxytg.space
+Port: 8443
+Secret: ee882e7f1447939817016bb33afc4fe86c7232302e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47672
 
@@ -173,15 +182,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: 186.246.21.188
 Port: 443
 Secret: eec11798ab008831b474066c9e1ebf5c70617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47653
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s11.neo-trading.org
-Port: 993
-Secret: ee17b59d905a546c7bf7355cf95c4ecfed7777772e636c6f7564666c6172652e636f6d
 @ProxyMTProto
 </div>
 

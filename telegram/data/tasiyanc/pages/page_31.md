@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/18 19:17
+📅 آخرین بروزرسانی: 1405/05/18 19:51
 
 ---
+
+## tasiyanc — post 8287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی با عرزشی بحث میکنم احساس میکنم نجس میشم و مثل این میمونه ۱ ماه تو تابستون نری حموم
+</div>
 
 ## tasiyanc — post 8286
 
@@ -158,13 +164,5 @@ JAVID SHAH 👑
 🚨 ⭕️ سنتکام: امروز ( به وقت آمریکا ) سنگین‌ترین حمله از ابتدای جنگ به جمهوری اسلامی وارد خواهد شد
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار از چنل اصلی پوشش بدیم ؟ همه بگن
-
-بله 👍 نه 👎
 </div>
 
