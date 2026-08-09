@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/18 15:52
+📅 آخرین بروزرسانی: 1405/05/18 17:01
 
 ---
+
+## ProxyMTProto — post 48608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: edge.rknwatch.digital
+Port: 443
+Secret: ee1f46fcc7e9b3991677f71d2c1cb2ac92656467652e726b6e77617463682e6469676974616c
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48607
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.acientirani-uor4.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48606
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: portal.balalaika.click
+Port: 443
+Secret: ee6a119e12f7d82d45b226b5e48e85c3c5706f7274616c2e62616c616c61696b612e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48605
 
@@ -154,33 +181,6 @@ Secret: ee722fba8d97b9027b5fc4deb041b290cb6164332e617269786f2e73686f70
 Server: ftp.asiaadomainsshatelhamrahaval.co.uk.
 Port: 443
 Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48588
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: grow.chunkycorp.shop
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48587
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: openhostings.co.uk.
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48586
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ethereal8.arixo.shop
-Port: 443
-Secret: ee229d823c9edddf43de43f240ce98e75c657468657265616c382e617269786f2e73686f70
 @ProxyMTProto
 </div>
 

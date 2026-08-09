@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/18 15:52
+📅 آخرین بروزرسانی: 1405/05/18 17:01
 
 ---
+
+## ProxyMTProto — post 48528
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ethereal4.arixo.shop
+Port: 443
+Secret: ee46a1111ddd4e14df06045987bd9c3036657468657265616c342e617269786f2e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48527
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: coffee.sattarbox.co.uk
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48526
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: login.klyuch1k.org
+Port: 443
+Secret: eecabbd4d9fd4481bbb66bcaf9f424d7c56c6f67696e2e6b6c79756368316b2e6f7267
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48525
 
@@ -154,33 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: 34.6.97.246
 Port: 443
 Secret: dde15c0efa2f77bf7378cb3dc8cea5ddde
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48508
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48507
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: portal.balalaika.click
-Port: 443
-Secret: eed9b57dfbf5b124dd877540301c89c774706f7274616c2e62616c616c61696b612e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48506
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: br.kingproxynewdomailasiatech.ink
-Port: 22
-Secret: dd79e7010200010007f0030386e24c3add
 @ProxyMTProto
 </div>
 
