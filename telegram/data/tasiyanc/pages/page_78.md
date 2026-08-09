@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/18 19:51
+📅 آخرین بروزرسانی: 1405/05/18 22:51
 
 ---
+
+## tasiyanc — post 6579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی متد جدید همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6578
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سیو کنین کانفیگارو
+</div>
+
+## tasiyanc — post 6577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ سیریک و قشم مورد حمله قرار گرفت
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6576
 
@@ -193,30 +222,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 ادامه اخبار در چنل پروکسی
 
 https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸
-🔴ترامپ:
-با بمب افکن های B_2 آنها را بسیار سخت هدف قرار خواهیم داد.
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 
-🔴ترامپ : تا اینجا هم بخاطر پاکستان فرصت داده بودم ، امروز بشدت به ایران ضربه خواهیم زد
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6550
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خلاصه برنامه زیاده ، البته امیدوارم قطعی پیش نیاد
 </div>
 

@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/18 19:51
+📅 آخرین بروزرسانی: 1405/05/18 22:51
 
 ---
+
+## tasiyanc — post 9138
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروه تاسیان فعاله جوین بشید https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 9137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروه تاسیان فعاله جوین بشید
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 9136
+
+<div align="center"><video src="files/post_9136_tasiyanc_9136.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9136_tasiyanc_9136.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کودک خردسال جاویدنام فاطمه سلطانی بجای در آغوش گرفتن مادر قهرمانش سنگ سرد ارامگاهش را میبوسد.
+
+@TASIYANC 🏛
+</div>
 
 ## tasiyanc — post 9133
 
@@ -274,35 +299,4 @@ r18
 </div>
 
 ## tasiyanc — post 9116
-
-## tasiyanc — post 9115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن Turkey📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 
-🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متاسفانه توسعه دهنده های NPV TUNNEL بیشتر از ۳ ماه هست که رو آپدیت جدید و رفع باگ های این برنامه محبوب کار نکردن ، جوری شده کانفیگ ها با پینگ Real 60 رو برنامه های دیگه با سرعت وصله ولی تو نپستر پینگ Out میده و علاوه بر این سرعت مورد نظر مارو نمیدن
-</div>
-
-## tasiyanc — post 9113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کارما چیزیه ک سراغ همه میاد عزیزم حتی شما دوست عزیز چه اعتقاد داشته باشی چه نه کارای خوبت و بدت پیش کسی که می‌پرستی چرتکه میندازن تعادل باید برقرار باشه😞
-</div>
 

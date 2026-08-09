@@ -1,8 +1,64 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/18 19:51
+📅 آخرین بروزرسانی: 1405/05/18 22:51
 
 ---
+
+## tasiyanc — post 9011
+
+<div align="center"><img src="files/post_9011_tasiyanc_9011.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺ موبایل سامسونگ A26؛ پنجشنبه 52 میلیون بود و امروز شده 87 میلیون!فقط در عرض 2 روز، 35 میلیون گرون شده!
+
+
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9010
+
+<div align="center"><video src="files/post_9010_tasiyanc_9010.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9010_tasiyanc_9010.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خفن ترین تیپستر های ایران با هم جمع شدن و TRUST BET رو تشکیل دادن
+👍
+
+هیچ سایت بتی دوست نداره شما این کانال رو پیدا کنین
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+سریع از این لینک جوین بدین کانالشون
+👇(این پست پاک میشه)
+g14
+
+https://t.me/+cBQ8n7zLQiUzN2U0
+https://t.me/+cBQ8n7zLQiUzN2U0
+</div>
+
+## tasiyanc — post 9009
+
+<div align="center"><img src="files/post_9009_tasiyanc_9009.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+40 میلیون تومن برداشت روزانه ی کانال تراست بت 
+🎁
+پول دراوردن از بت تجربه و استراتژی میخواد نه ادعا
+
+برایند ماه تیر توی کانال تراست بت: 78 درصد رشد سرمایه بود
+✅
+
+40 بازی اخیر 34 برد 
+📊
+
+
+💠https://t.me/+cBQ8n7zLQiUzN2U0
+g14
+
+💠 https://t.me/+cBQ8n7zLQiUzN2U0
+</div>
 
 ## tasiyanc — post 9008
 
@@ -380,32 +436,5 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 طبق گزارش اعضا اینترنت همراه و ایرانسل ریده و اکثر فیلترشکنا از کار افتادن
-</div>
-
-## tasiyanc — post 8989
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همراه اول و ایرانسل وضعیت اینترنت شما چطوره الان؟
-</div>
-
-## tasiyanc — post 8988
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز تولد جاوید نام پهلوان مسعود ذات پرور قهرمان ایران هستش روحش شاد🖤
-</div>
-
-## tasiyanc — post 8987
-
-<div align="center"><video src="files/post_8987_tasiyanc_8987.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8987_tasiyanc_8987.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ساغر غلامی طی یک ویدیویی خبر اعدام و داستان عقد شدنش با سپاهی را تکذیب کرد
-
-+من چند ماهه با قید وثیقه بیرونم، به شایعات توجه نکنید
-
-@Tasiyanc 
-⭐️
 </div>
 

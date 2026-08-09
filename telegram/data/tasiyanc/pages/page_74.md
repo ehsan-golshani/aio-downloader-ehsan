@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/05/18 19:51
+📅 آخرین بروزرسانی: 1405/05/18 22:51
 
 ---
+
+## tasiyanc — post 6716
+
+<div align="center"><img src="files/post_6716_tasiyanc_6716.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴شکیرا در جام جهانی 2006 & 2010 & 2014 & 2026
+
+‏شکیرا حتی از پیکه هم تو فوتبال موفق تره 🤣
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6715
+
+<div align="center"><img src="files/post_6715_tasiyanc_6715.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روز جهانی دوس داشتنو بهتون تبریک میگیم
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6714
+
+<div align="center"><img src="files/post_6714_tasiyanc_6714.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسی و رونالدو اگه ایران بدنیا میومدن :
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6712
 
@@ -162,25 +192,6 @@ Rend ⚡ (1).npvt
 
 
 ✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6689
-
-## tasiyanc — post 6688
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون ورود جنگنده ها و هواپیماهای سوخترسان برای امضای توافق
-</div>
-
-## tasiyanc — post 6687
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%E2%9A%A1%40Tasiyanc%F0%9F%94%B7
-🌐🇩🇪
-
-@Tasiyanc 
 ✅
 </div>
 

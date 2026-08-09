@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/18 19:51
+📅 آخرین بروزرسانی: 1405/05/18 22:51
 
 ---
+
+## tasiyanc — post 6337
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید چخبرا ؟
+</div>
+
+## tasiyanc — post 6334
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی  🇮🇹 🇩🇪 🇳🇱
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🚀
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  ⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6333
 
@@ -166,38 +198,5 @@ Password : @Tasiyanc 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چطوره؟
-</div>
-
-## tasiyanc — post 6310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لوگو چنل مرتبط با اسم تغییراتی کوچک دادیم ، گممون نکنین ❤️
-</div>
-
-## tasiyanc — post 6308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3 سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سندروم Survivor's Guilt:
-حالت روانی‌ای که فرد پس از زنده موندن از یه فاجعه یا تجربه مرگبار با وجود بی تقصیر بودن، دچار احساس گناه از زنده موندن میشه، به ویژه وقتی دیگران آسیب دیده یا جان باختن.
-
-پروکسی • پروکسی
-
-@Tasiyanproxy ✅
 </div>
 

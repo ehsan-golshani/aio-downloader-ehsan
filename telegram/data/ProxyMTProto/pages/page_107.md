@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/05/18 21:52
+📅 آخرین بروزرسانی: 1405/05/18 22:49
 
 ---
+
+## ProxyMTProto — post 47839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: boost.flowstreamhub.site
+Port: 8443
+Secret: ee7ee0a641b78ecc8d210e47981904a50a626f6f73742e666c6f7773747265616d6875622e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47838
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 9965
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47837
 
@@ -165,24 +183,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
 Server: 89.125.49.250
 Port: 443
 Secret: eeb40eda3c7b6561f0ef22eb54b49eacf477622e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47819
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 61016
-Secret: 7nnnAQIAAQAH8AMDhuJMOt0%3D
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47818
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: turbo2proxy.vpnproxy.cc
-Port: 8443
-Secret: ee56af68a36d94c4d47d100196d6a59f1d747572626f3270726f78792e76706e70726f78792e6363
 @ProxyMTProto
 </div>
 

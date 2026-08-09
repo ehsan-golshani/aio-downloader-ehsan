@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/18 21:52
+📅 آخرین بروزرسانی: 1405/05/18 22:49
 
 ---
+
+## ProxyMTProto — post 48539
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: openhostings.co.uk.
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48538
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: node.nowabst.net
+Port: 853
+Secret: ee1bbdcdcfd200974bb999813180a12738766b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48537
 
@@ -163,24 +181,6 @@ Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e63
 Server: get.utkanos.life
 Port: 443
 Secret: ee50bc25d9708e2abc9d39ff7c654de9a26765742e75746b616e6f732e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48519
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48518
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: spider.chunkycorp.shop
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 
