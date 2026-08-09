@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/19 00:54
+📅 آخرین بروزرسانی: 1405/05/19 01:38
 
 ---
+
+## tasiyanc — post 8070
+
+<div align="center"><img src="files/post_8070_tasiyanc_8070.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه دوس دختر داشتم از اینا براش میخریدم:)
+
+
+@Tasiyanc ⭐️
+#NiNi
+</div>
+
+## tasiyanc — post 8069
+
+<div align="center"><img src="files/post_8069_tasiyanc_8069.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرغی که مامانم گذاشته بود رو گاز و گفته بود حواست باشه نسوزه!
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8067
 
@@ -258,27 +281,6 @@
 قضیه داره پیچیده میشه
 🚨حمله موشکی حوثی ها به فرودگاه بین‌المللی «ابها» در جنوب عربستان
 
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8007
-
-<div align="center"><video src="files/post_8007_tasiyanc_8007.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8007_tasiyanc_8007.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماتون بریزه ، آمریکا دیشب اینجوری با قایق انتحاری عملیات انجام داده :
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ:
-🔻امشب ما مهمانی بسیار ویژه خواهیم داشت که در حملات ما به ایران شرکت خواهد داشت.
-فیکه خبر
 @Tasiyanc ⭐️
 </div>
 

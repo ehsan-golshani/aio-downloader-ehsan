@@ -1,8 +1,30 @@
 # آرشیو کانال VahidOOnLine - صفحه 218
 
-📅 آخرین بروزرسانی: 1405/05/19 00:51
+📅 آخرین بروزرسانی: 1405/05/19 01:35
 
 ---
+
+## VahidOOnLine — post 249212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای ارسالی به ایران اینترنشنال نشان می‌دهد که گروهی از ایرانیان مقیم فنلاند، پنج‌شنبه جلوی سفارت جمهوری اسلامی در این کشور تجمع کردند. این تجمع اعتراضی در پاسخ به فراخوان شاهزاده رضا پهلوی برگزار شد و شرکت‌کنندگان با هرگونه توافق آمریکا با جمهوری اسلامی مخالفت کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249211
+
+<div align="center"><img src="files/post_249211_VahidOOnLine_249211.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️در پی انتشار گزارش‌هایی مبنی بر شنیده شدن صدای چند انفجار در بوشهر در روز پنجشنبه ۱۸ تیر ماه، معاون سیاسی، امنیتی و اجتماعی این استان به خبرگزاری ایرنا گفت چند نقطه در استان بوشهر، از جمله «حریم پیرامونی نیروگاه اتمی» هدف حملات آمریکا قرار گرفته است.
+این مقام استانی گفت این حملات در ادامه حملات آمریکا به ایران و پس از نقض تفاهم آتش‌بس انجام شده است.
+هنوز جزئیات بیشتری از میزان خسارات منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249210
 
@@ -301,32 +323,6 @@
 
 علی خامنه‌ای و تعدادی از اعضای خانواده‌اش روز ۹ اسفند ۱۴۰۴ در موج اول حملات موشکی آمریکا و اسرائیل کشته شدند. مراسم عمومی تشییع و خاکسپاری تابوت رهبر پیشین جمهوری اسلامی از جمعه هفته گذشته در تهران آغاز شد و پس از پایتخت، قم و نجف و کربلا در عراق، قرار است امروز دفن شود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249187
-
-<div align="center"><video src="files/post_249187_VahidOOnLine_249187.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249187_VahidOOnLine_249187.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که گروهی از ایرانیان مقیم نیوزیلند ظهر پنج‌شنبه مقابل سفارت جمهوری اسلامی ایران در ولینگتون تجمع کردند. این تجمع در پی فراخوان شاهزاده رضا پهلوی برگزار شد و شرکت‌کنندگان با در دست داشتن پرچم‌های شیر و خورشید و پلاکاردها، اعتراض خود به جمهوری اسلامی را ابراز کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249186
-
-<div align="center"><video src="files/post_249186_VahidOOnLine_249186.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249186_VahidOOnLine_249186.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس گزارش‌ها، سوله‌های موشکی در مسیر چغادک به بوشهر هدف حمله آمریکا قرار گرفت. ویدیوی رسیده به ایران اینترنشنال، برخاستن دود سیاهرنگ ناشی از انفجار در این مواضع را نشان می‌هد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

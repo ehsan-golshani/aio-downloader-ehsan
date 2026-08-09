@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/19 00:54
+📅 آخرین بروزرسانی: 1405/05/19 01:38
 
 ---
+
+## tasiyanc — post 8727
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺کاهش 8% درصدی قیمت نفت به ۹۱ دلار بدلیل توقف حملات جمهوری اسلامی و آمریکا
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8726
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc ⚡🇹🇷.nm
+</div>
 
 ## tasiyanc — post 8725
 
@@ -225,36 +238,5 @@
 ​نمایش مدل‌های سه‌بعدی بسیار باکیفیت و جذاب از ماشین‌ها.
 ​امکان کاستومایز و شخصی‌سازی صفر تا صد ماشین (از سپر و گلگیر گرفته تا رینگ و جزئیات بدنه) برای ساخت ماشین رویایی خودت
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8699
-
-<div align="center"><img src="files/post_8699_tasiyanc_8699.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با این سایت به کل دنیا گوش بده 🎼
-
-https://radio.garden/visit/reykjavik/82Q3wG81
-
-🌐 تا حالا شده کنجکاو شی مردم یه شهر اونور دنیا دارن چی گوش میدن؟
-
-با Radio Garden میتونی فقط با چرخوندن کره زمین، رادیوی زنده چندین هزار شهر از سراسر دنیا رو گوش بدی. از موسیقی و اخبار گرفته تا برنامه‌های محلی و حتی تبلیغات همون کشور!
-
-🔎 اگه دنبال یه شهر خاص باشی، فقط کافیه اسمش رو سرچ کنی…
-﻿
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8698
-
-<div align="center"><video src="files/post_8698_tasiyanc_8698.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8698_tasiyanc_8698.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺پروفسور نادر انقطاع فیزیک‌دان و دانشمند نخبه ایرانی متولد سال 1334 تهران , دارنده نشان بنجامین فرانکلین( مدالی که انیشتین و تسلا هم گرفته بود)
-کسی که تحول عظیمی در رادار گریزی جنگنده های نسل جدید آمریکا مثل F22 Raptor و F35 و B-52 ایجاد کرد !
-
-@TASIYANC 💠
 </div>
 

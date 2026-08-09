@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/05/19 00:54
+📅 آخرین بروزرسانی: 1405/05/19 01:38
 
 ---
+
+## tasiyanc — post 6292
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+8سرور پرمیوم  سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به درخواست شما عزیزان معرفی میکنیم ولی بنده به شخصه از کلاینت های متن باز و مورد اعتماد و شناخته شده
+
+WireGuard • OpenVPN • Xray (VLESS / Reality) • V2Ray • Npv
+استفاده میکنم چون امنیت بسیار بالاتری نسبت به کلاینت و اپ های VPN دارند
+</div>
 
 ## tasiyanc — post 6289
 
@@ -194,31 +219,5 @@ https://t.me/TasiyanProxy
 ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6267
-
-<div align="center"><img src="files/post_6267_tasiyanc_6267.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-BadBoys 🚀 موشک.npvt
-</div>
-
-## tasiyanc — post 6266
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۳ سرور پرومیوم  سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها 
-⏩
-
-✔️ @Tasiyanc 
-✅
 </div>
 

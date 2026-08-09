@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/19 00:54
+📅 آخرین بروزرسانی: 1405/05/19 01:38
 
 ---
+
+## tasiyanc — post 8296
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 انفجار در اهواز
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8295
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 هم اکنون آمریکا به بندرعباس،قشم،بوشهر و سیریک حمله کرد و صدای چندین انفجار تو این مناطق شنیده شد.
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8294
 
@@ -145,21 +161,5 @@ JAVID SHAH 👑
 🚨⭕️ انفجار در یگان امداد سنندج ، تایید / تکذیب نمیشه
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8274
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ انفجار شدید در بوشهر
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8273
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 حملات بی سابقه سپاه به مواضع کرد ها در سلیمانیه ، دلیلش چی می‌تونه باشه 🤔
-
-@Tasiyanc ✅
 </div>
 

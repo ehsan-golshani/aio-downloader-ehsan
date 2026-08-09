@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/19 00:54
+📅 آخرین بروزرسانی: 1405/05/19 01:38
 
 ---
+
+## tasiyanc — post 9074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 7 آگوست روز جهانی ترویج شیردهی هست
+
++بفرست برا کسی که میخوای بت شیر بده 😞
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ در تروث سوشیال : "دونالد ترامپ در جنگ با ایران پیروز شد." @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9072
 
@@ -332,30 +348,5 @@ Join @TASIYANC
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گزارش از وضعیت اینترنت خطوط همراه و ایرانسل بدید
-</div>
-
-## tasiyanc — post 9044
-
-<div align="center"><video src="files/post_9044_tasiyanc_9044.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9044_tasiyanc_9044.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سوتی جدید. پزشکیان:
-
-پزشکیان: ما بچه که بودیم پنکه نداشتیم
-مجری: آخه آذربایجان خنکه
-پزشکیان: من تو زابل خدمت میکردم
-مجری: آخه شما میگی وقتی بچه بودم
-پزشکیان: من تو زابل خدمت میکردم و پنکه‌ام نداشتم، حالا چی میگی؟
-@Tasiyanc
-</div>
-
-## tasiyanc — post 9043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ایران عوارض ۷٪ را بر تمام کشتی‌های تجاری عبوری از تنگه هرمز اعلام کرده است , این امر برای ایران ۳۸۵ میلیون دلار خالص روزانه یا بیش از ۱۰۰ میلیارد دلار خالص سالانه با حجم ترافیک پیش از جنگ ایجاد می‌کند
-
-@TASIYANC ✅
 </div>
 

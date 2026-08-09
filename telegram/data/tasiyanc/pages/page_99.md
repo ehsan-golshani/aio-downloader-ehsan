@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/05/19 00:54
+📅 آخرین بروزرسانی: 1405/05/19 01:38
 
 ---
+
+## tasiyanc — post 6035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+باز الان یکی میاد چرت چند میگه نه اینجور نیست خب پاره شدیم تحقیق کردیم جامپ مخربه و ربطی به آیپی نداره بری فعال یا غیر فعال کنی ، بقیه فیلترشکنا چنین چیزی گزارش نشده
+</div>
+
+## tasiyanc — post 6034
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درسته اکانت خانومم امروز از دسترس خارج شد ازهمین استفاده میکرد
+</div>
 
 ## tasiyanc — post 6033
 
@@ -118,34 +130,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 🇬🇧.npvt
-</div>
-
-## tasiyanc — post 6015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-سرور  سرعتی
-🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
-✅
-
-دانلود  NPV tunnel  
-🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-
-
-🦁  @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک فیلتر شکن استفاده میکنن امروز شنیدم هرکی با jumpjump وصل شده رفته اینستا ، اکانتش از دسترس خارج شده و نیاز به احراز هویت ( فیلم) داره تا اکانتش برگرده ، مراقب باشید با هر فیلترشکنی وصل نشید پ ن : نمی‌دونم درسته یا نه ولی دو سه نفر بهم گفتن @Tasiyanc…
 </div>
 

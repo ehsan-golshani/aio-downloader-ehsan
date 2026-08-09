@@ -1,8 +1,33 @@
 # آرشیو کانال VahidOOnLine - صفحه 131
 
-📅 آخرین بروزرسانی: 1405/05/19 00:51
+📅 آخرین بروزرسانی: 1405/05/19 01:35
 
 ---
+
+## VahidOOnLine — post 251253
+
+<div align="center"><img src="files/post_251253_VahidOOnLine_251253.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری تسنیم به نقل از خبرنگار خود گزارش داد موج جدیدی از حملات آغاز شده و صدای چند انفجار در بندر چابهار و کنارک شنیده شده است.
+
+تاکنون جزییات بیشتری درباره علت این انفجارها یا خسارت و تلفات احتمالی منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251252
+
+<div align="center"><img src="files/post_251252_VahidOOnLine_251252.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش‌های دریافتی کانال خبری وحید آنلاین از مخاطبان، حاکی از شنیده شدن چند صدای انفجار در بندرعباس و قشم، از حدود ساعت ۱:۴۶ تا ۱:۴۸ بامداد است. شماری از مخاطبان اعلام کرده‌اند این صداها از محدوده پایگاه هوایی یا اطراف فرودگاه بندرعباس شنیده شده است.
+برخی گزارش‌ها از دو تا چهار انفجار پیاپی و لرزش شیشه‌ها خبر می‌دهند. تاکنون هیچ مقام رسمی درباره علت این صداها یا خسارت و تلفات احتمالی اظهار نظر نکرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251251
 
@@ -213,28 +238,6 @@
 
 همزمان با اعلام سنتکام مبنی آغاز دور تازه حملات علیه جمهوری اسلامی، رسانه‌های ایران از شنیده شدن صدای انفجار در بندرعباس، سیریک و قشم خبر دادند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251233
-
-<div align="center"><img src="files/post_251233_VahidOOnLine_251233.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری مهر، دوشنبه‌شب از فعالیت سامانه‌های پدافندی در اطراف نیروگاه اتمی بوشهر خبر داد. همزمان، ایرنا گزارش داد که چند انفجار در سیریک، بندرعباس و قشم شنیده شده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251232
-
-<div align="center"><img src="files/post_251232_VahidOOnLine_251232.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ایرنا، دوشنبه‌شب، ۲۹ تیرماه از شنیده‌شدن چند انفجار در سیریک، بندرعباس و قشم خبر داد. براساس این گزارش، «محل دقیق این انفجارها مشخص نیست».
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
