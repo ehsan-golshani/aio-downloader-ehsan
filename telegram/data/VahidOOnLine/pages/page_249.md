@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 249
 
-📅 آخرین بروزرسانی: 1405/05/19 02:20
+📅 آخرین بروزرسانی: 1405/05/19 02:50
 
 ---
+
+## VahidOOnLine — post 248538
+
+<div align="center"><img src="files/post_248538_VahidOOnLine_248538.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ دونالد ترامپ، رئیس‌جمهوری آمریکا، روز شنبه ۱۳ تیر در گفتگو با آکسیوس تایید کرد که به‌دلیل برگزاری مراسم تشییع علی خامنه‌ای، روند مذاکرات تهران و واشنگتن وقفه‌ای یک هفته‌ای دارد. او به خبرنگار آکسیوس گفت: «همه آن‌ها الآن آن‌جا هستند. کار یک شلیک است. اما این کار را نمی‌کنیم چرا که در آن صورت کسی را نخواهیم داشت که با او مذاکره کنیم.» ترامپ در ادامه از تصاویر حضور مردم در مراسم تشییع خامنه‌ای و گریه آن‌ها ابراز تعجب کرد و گفت: «فکر می‌کردم مردم از او متنفر بودند. شاید گریه‌های مصنوعی باشد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248537
 
@@ -265,19 +276,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ایرانیان دانمارک روز شنبه با تشکیل تجمعی مقابل سفارت آمریکا در کپنهاگ، در پاسخ به فراخوان شاهزاده رضا پهلوی، نسبت به توافق واشینگتن و تهران اعتراض کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248516
-
-<div align="center"><video src="files/post_248516_VahidOOnLine_248516.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248516_VahidOOnLine_248516.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در پی فراخوان شاهزاده رضا پهلوی برای تجمع مقابل سفارت‌های آمریکا و در اعتراض به توافق با جمهوری اسلامی، ایرانیان قبرس جنوبی در نیکوزیا تجمع برگزار کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

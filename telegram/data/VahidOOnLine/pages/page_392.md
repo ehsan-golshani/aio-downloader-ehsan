@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 392
 
-📅 آخرین بروزرسانی: 1405/05/19 02:20
+📅 آخرین بروزرسانی: 1405/05/19 02:50
 
 ---
+
+## VahidOOnLine — post 244894
+
+<div align="center"><video src="files/post_244894_VahidOOnLine_244894.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244894_VahidOOnLine_244894.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روایت زنان بازداشت‌شده در هرات از برخوردهای خشن و تحقیرآمیز نیروهای طالبان حکایت دارد. این زنان می‌گویند با آن‌ها با خشونت رفتار شده و شماری نیز در زندان طالبان مورد تعرض و شکنجه قرار گرفته‌اند. الهام کریمی در گزارشی به این روایت‌ها پرداخته است
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244893
 
@@ -259,17 +272,6 @@
 اداره امور کنسولی وزارت خارجه آمریکا در حساب رسمی اعلام کرد گزارش‌ها نشان می‌دهد موشک‌ها، پهپادها یا راکت‌ها در حریم هوایی اردن مشاهده شده‌اند. در این هشدار از افراد خواسته شده فورا به پناهگاه یا مکان دارای پوشش مناسب بروند و در محل امن باقی بمانند.
 
 سفارت آمریکا در اردن نیز اعلام کرده وضعیت را به طور مستمر بررسی می‌کند و در صورت لزوم اطلاعات بیشتری منتشر خواهد کرد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244861
-
-<div align="center"><img src="files/post_244861_VahidOOnLine_244861.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیات هواپیمایی کشوری کویت اعلام کرد در پی آنچه حملات حکومت ایران عنوان شده، حریم هوایی این کشور به طور موقت بسته شده است. iranintl
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

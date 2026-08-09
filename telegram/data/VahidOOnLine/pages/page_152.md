@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 152
 
-📅 آخرین بروزرسانی: 1405/05/19 02:20
+📅 آخرین بروزرسانی: 1405/05/19 02:50
 
 ---
+
+## VahidOOnLine — post 250795
+
+<div align="center"><video src="files/post_250795_VahidOOnLine_250795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250795_VahidOOnLine_250795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در رسانه‌های اجتماعی وضعیت تونل «شهید میرزایی»‌ بندرعباس پس از حملات تازه آمریکا را نشان می‌دهد. این تونل در استان هرمزگان و در محور مواصلاتی بندرعباس به حاجی‌آباد (در امتداد جاده استراتژیک بندرعباس - سیرجان) قرار دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250794
 
@@ -295,21 +308,6 @@ iranintl
 
 لبنان و اسرائیل در هفته‌های اخیر با میانجی‌گری آمریکا درباره اجرای چارچوبی برای پایان دادن به درگیری‌ها، استقرار ارتش لبنان در جنوب، عقب‌نشینی تدریجی نیروهای اسرائیلی و خلع سلاح گروه‌های مسلح، از جمله حزب‌الله، مذاکره کرده‌اند. مقام‌های آمریکایی و لبنانی این روند را بخشی از تلاش برای تثبیت آتش‌بس و کاهش نفوذ حزب‌الله در ساختار امنیتی لبنان می‌دانند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250775
-
-<div align="center"><video src="files/post_250775_VahidOOnLine_250775.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250775_VahidOOnLine_250775.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد که زادروز جاویدنام سودا اکرمی‌فرد بر مزارش برگزار شد.
-
-این جاویدنام ۱۹ دی ۱۴۰۴ در اعتراضات مارلیک کرج در سن ۱۶ سالگی به دست سرکوبگران جمهوری اسلامی کشته شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/19 02:20
+📅 آخرین بروزرسانی: 1405/05/19 02:50
 
 ---
+
+## VahidOOnLine — post 252555
+
+<div align="center"><video src="files/post_252555_VahidOOnLine_252555.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252555_VahidOOnLine_252555.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مروری بر تازه‌ترین خبرها، مواضع سیاسی و دیپلماتیک در روز سه‌شنبه ۶ مرداد ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252554
 
@@ -329,19 +342,6 @@
 
 در ادامه این بیانیه تاکید شده است که تهدید ترامپ مبنی بر مصادره و استفاده از این منابع، یک «اقدام غیرقانونی» محسوب می‌شود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252525
-
-<div align="center"><img src="files/post_252525_VahidOOnLine_252525.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک منبع آگاه به ایران‌اینترنشنال گفت مصطفی رمضانی، زندانی سیاسی محبوس در زندان قزلحصار کرج، هنگام مراجعه به بهداری مرکزی این زندان از سوی ماموران مورد فحاشی و ضرب‌وجرح قرار گرفته است.
-
-بر اساس این اطلاعات، رمضانی روز یکشنبه ۴ مردادماه پس از مراجعه به بهداری مرکزی قزلحصار، از سوی چند مامور مورد ضرب‌وجرح قرار گرفت. به گفته این منبع، یکی از ماموران نیز با فحاشی و توهین به مصطفی رمضانی و خانواده‌اش، روند درمان او را مختل کرد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
