@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/18 23:29
+📅 آخرین بروزرسانی: 1405/05/19 00:54
 
 ---
+
+## tasiyanc — post 8272
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش از چهار انفجار وحشتناک در بندرعباس
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8271
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 حملات سپاه به اقلیم کردستان عراق
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8270
 
@@ -181,25 +197,5 @@
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8241
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک نفت کش سپاهی توسط کماندو های امریکا به اسارت گرفته شد.
-
-با اعلام سنت‌کام تمام خدمه نفتکش سپاهی توسط تفنگداران آمریکایی بازداشت شدند
-
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 8240
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رئیس مرکز روابط عمومی وزارت بهداشت: تا ساعت ۶:۳۰صبح ۲۶ تیر، شمار مصدومین حملات آمریکا از ۴۰۰ نفر عبور و ۳۸ نفر هموطن جانشان را از دست دادند
-
-@Tasiyanc
-✅
 </div>
 

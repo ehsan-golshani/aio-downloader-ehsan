@@ -1,8 +1,37 @@
 # آرشیو کانال VahidOOnLine - صفحه 437
 
-📅 آخرین بروزرسانی: 1405/05/19 00:18
+📅 آخرین بروزرسانی: 1405/05/19 00:51
 
 ---
+
+## VahidOOnLine — post 243596
+
+<div align="center"><video src="files/post_243596_VahidOOnLine_243596.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243596_VahidOOnLine_243596.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اداره کل هواپیمایی کشوری کویت با انتشار ویدیویی در شبکه اجتماعی ایکس، لحظه برخورد پهپاد شاهد ۱۳۶ جمهوری اسلامی به فرودگاه بین‌المللی این کشور را نشان می‌دهد. این ویدیو، که توسط دوربین مداربسته ثبت شده است، انفجار شدید ناشی از این برخورد را به تصویر می‌کشد.
+در پی حمله جمهوری اسلامی به کویت، یک شهروند هندی کشته و ۶۳ نفر زخمی شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243595
+
+<div align="center"><video src="files/post_243595_VahidOOnLine_243595.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243595_VahidOOnLine_243595.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه ۱۳ خردادماه در پاسخ به سوالی درباره تعریف آتش‌بس، بدون اشاره به درگیری سه‌شنبه‌شب میان جمهوری اسلامی و نیروهای آمریکا، گفت: «تقریبا به همین شکلی که اکنون وجود دارد.»
+
+او افزود: «آنجا بخش متفاوتی از جهان است. در آن قسمت از جهان، آتش‌بس یعنی طرف‌ها با شدت کمتری به تیراندازی ادامه می‌دهند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243594
 
@@ -236,34 +265,6 @@
 او افزود: «مذاکرات بسیار خوب پیش می‌رود. ممکن است به نتیجه برسد یا نرسد، اما اگر قرار باشد اتفاقی بیفتد، شاید همین آخر هفته رخ دهد. آن منطقه بخش متفاوتی از جهان است؛ آنجا آتش‌بس یعنی به شکلی ملایم‌تر به تیراندازی ادامه دادن.»
 ترامپ گفت: «هر اتفاقی ممکن است بیفتد وقتی با جمهوری اسلامی طرف هستید. این یکی از بی‌ثبات‌ترین مناطق جهان است.»
 او همچنین گفت: «ما از سه تیم رهبری عبور کرده‌ایم. این یک وضعیت نظامی است و هیچ ارتشی مانند ارتش ما نیست. می‌توانیم دو یا سه هفته دیگر ادامه دهیم و همه را کاملا نابود کنیم، اما ترجیح می‌دهم این کار را نکنم. انجامش آسان است و آن‌ها آماده انجام آن هستند.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243576
-
-<div align="center"><video src="files/post_243576_VahidOOnLine_243576.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243576_VahidOOnLine_243576.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ دونالد ترامپ، رئیس‌جمهوری ایالات متحده، چهارشنبه‌شب ۱۳ خردادماه در کاخ سفید و در پاسخ به سوالی درباره مذاکرات با جمهوری اسلامی گفت احتمال دارد این مذاکرات به نتیجه برسد و حتی ممکن است این اتفاق همین آخر هفته رخ دهد.
-
-ترامپ گفت: «ممکن است این اتفاق بیفتد. اگر رخ دهد، هرچند ممکن است هم رخ ندهد، چه کسی می‌داند، اما اگر اتفاق بیفتد، احتمال دارد همین آخر هفته به نتیجه برسد.»
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243575
-
-<div align="center"><video src="files/post_243575_VahidOOnLine_243575.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243575_VahidOOnLine_243575.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد با ادامه اختفای مجتبی خامنه‌ای، شهروندان در گلشهر کرج، اطلاعیه‌ای با عنوان «مفقودی» برای رهبر جمهوری اسلامی نصب کرده‌اند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

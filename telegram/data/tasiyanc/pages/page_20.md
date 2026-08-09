@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/18 23:29
+📅 آخرین بروزرسانی: 1405/05/19 00:54
 
 ---
+
+## tasiyanc — post 8643
+
+<div align="center"><img src="files/post_8643_tasiyanc_8643.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸🇮🇱 مانور مشترک ارتش آمریکا و اسرائیل در صحرای نقب
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سپاه :
+در بیست‌وهفتمین موج عملیات «نصر ۲»، ساختمان باقی‌ماندهٔ مرکز داده شرکت آمازون که برای پشتیبانی از اطلاعات و عملیات اطلاعاتی ارتش آمریکا مورد استفاده قرار می‌گرفت، هدف قرار گرفت و منهدم شد.
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8640
 
@@ -216,32 +233,6 @@ Location 🇺🇸
 
 شگفت انگیزتر اینکه ۶۷ نفر از این کودکان از دوران نوزادی جان سالم به در بردند؛ اتفاقی بسیار نادر در آن زمان.
 
-Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8611
-
-<div align="center"><video src="files/post_8611_tasiyanc_8611.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8611_tasiyanc_8611.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تلمبه اسراییل به جنوب لبنان
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8610
-
-<div align="center"><video src="files/post_8610_tasiyanc_8610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8610_tasiyanc_8610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺عجیب ترین زبان جهان 🌍
-
-قبیلهٔ Kawelka در ارتفاعات پاپوا گینهٔ نو به سبک بیان پرقدرت و پرهیجانشان شناخته میشوند. گفتارشان برای بسیاری از غریبه ها شبیه فریاد یا مشاجره به نظر میرسد
-حتی وقتی فاصلهای بین افراد نیست.
 Fact @TASIYANC ✅
 </div>
 

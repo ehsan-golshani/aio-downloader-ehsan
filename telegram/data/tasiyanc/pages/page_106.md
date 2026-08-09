@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/18 23:29
+📅 آخرین بروزرسانی: 1405/05/19 00:54
 
 ---
+
+## tasiyanc — post 5859
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کالافو اپدیت کردم دمت گرم
+</div>
+
+## tasiyanc — post 5858
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عالیهههه خدا خیرتون بده
+</div>
 
 ## tasiyanc — post 5857
 
@@ -144,19 +156,5 @@
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5818
-
-<div align="center"><img src="files/post_5818_tasiyanc_5818.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀 VIP SPEEEEEEEED.npvt
-</div>
-
-## tasiyanc — post 5817
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوباره بگم؟
 </div>
 

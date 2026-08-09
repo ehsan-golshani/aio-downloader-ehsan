@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/18 23:29
+📅 آخرین بروزرسانی: 1405/05/19 00:54
 
 ---
+
+## tasiyanc — post 8923
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 📶 Open Vpn Config ✅ ━━━╮
+
+آموزش اتصال 
+
+در صورت برقرار نشده اتصال چند بار بزنید پشت هم
+
+⚡️ Unlimated• By @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8922
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترور در قلب مسکو
+به گزارش چندین خبرگزاری خارجی ساعاتی پیش الکساندر چایکو « فرمانده هوا فضای ارتش روسیه » در روز تولدش ترور شد تعدادی از فرماندهان رده بالا نیز در اثر انفجار کشته یا زخمی شدند - تایید / رد نمیشود
+
+💙@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8921
 
@@ -262,22 +283,6 @@ New Wallpapers ✨ HD
 vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.46:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#Hi%20%C4%B0stanbul%20%F0%9F%87%B9%F0%9F%87%B7%20%40Tasiyanc
 vmess://eyJhZGQiOiI1LjE4OC4xOTAuMjUyIiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiIiLCJpZCI6IjA0NjIxYmFlLWFiMzYtMTFlYy1iOTA5LTAyNDJhYzEyMDAwMiIsImluc2VjdXJlIjoiMCIsIm5ldCI6InRjcCIsInBhdGgiOiIiLCJwY3MiOiIiLCJwb3J0IjoiMjIzMjQiLCJwcyI6IkBUYXNpeWFuYyDwn4e58J+HtyIsInNjeSI6ImF1dG8iLCJzbmkiOiIiLCJ0bHMiOiIiLCJ0eXBlIjoibm9uZSIsInYiOiIyIiwidmNuIjoiIn0=
 
-
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8898
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 کاخ سفید : خداوند سربازان ما را حفظ کند جنگ سهمگین در راهه؟ 🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8897
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 کاخ سفید : خداوند سربازان ما را حفظ کند
-
-جنگ سهمگین در راهه؟
 
 🔱 @TASIYANC
 </div>

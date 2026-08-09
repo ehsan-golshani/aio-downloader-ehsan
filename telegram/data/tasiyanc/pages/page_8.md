@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/18 23:29
+📅 آخرین بروزرسانی: 1405/05/19 00:54
 
 ---
+
+## tasiyanc — post 8968
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر 🖤
+</div>
+
+## tasiyanc — post 8966
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+سرور  سرعتی پرمیوم ⚡️
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید⛓
+
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8965
 
@@ -263,33 +291,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 اتصال امن برای همه 🇮🇷
 
 👹 Join As @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 کانفیگ اختصاصی نامحدود اینجکتور📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
-
-سرور سرعتی‌ لوکیشن آلمان و ترکیه 📍
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال 🔸
-
-اتصال امن برای همه 🇮🇷
-
-📱 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پیشنهاد_ویژه ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
-دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
 </div>
 

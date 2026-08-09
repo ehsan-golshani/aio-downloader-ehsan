@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/18 23:29
+📅 آخرین بروزرسانی: 1405/05/19 00:54
 
 ---
+
+## tasiyanc — post 9015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم🖤
+
+کانفیگ اختصاصی نامحدود HttpCustum 📱
+
+سرور سرعتی مناسب تمام نت‌ها ⚡️
+
+آموزش اتصال ✅
+
+دانلود  📱android🕹  iOS
+
+اتصال امن برای همه 🏠
+
+💙@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9014
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ HttpCustum بزاریم ؟
+</div>
 
 ## tasiyanc — post 9012
 
@@ -422,45 +446,5 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 8992
-
-<div align="center"><video src="files/post_8992_tasiyanc_8992.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8992_tasiyanc_8992.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #بازی_پولساز 
-⚠️
-
-🔥 بلک کارت جدید ترین بازی معروف جهانی هست که فقط کافیه یکمی باهوش باشی تا حریفات رو شکست بدی 👌🏼
-</div>
-
-## tasiyanc — post 8991
-
-<div align="center"><video src="files/post_8991_tasiyanc_8991.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8991_tasiyanc_8991.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😯 اگر هوشت بالاست 
-🗼 :
-
-
-❌ 
-👍 این ‌ویدیو‌ آموزشی رو‌ ببین و با ‌استفاده از هوش بالایی که داری پول در بیار.
-
-
-🟢 بازی خیلی حرفه ای و‌ #پولساز رو‌ از این ویدیو یاد بگیر
-
-💻لینک سایت بازی:
-
-💻 betinja.bet
-
-💻 betinja.bet
-
-🌐 کانال بونوس های رایگان a13
-@betinjabet
 </div>
 

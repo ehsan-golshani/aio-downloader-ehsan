@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/18 23:29
+📅 آخرین بروزرسانی: 1405/05/19 00:54
 
 ---
+
+## tasiyanc — post 9041
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووری 🔴 در پی حمله موشکی حوثی های یمن
+
+تعدادی از نیروهای عربستان سعودی کشته و زخمی شدند، پس از آنکه یک موشک شلیک شده از یمن مستقیماً به پایگاه‌های نیروهای تیپ واکنش سریع اصابت کرد.
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ویس های پخش شده منتسب به سالومه مجری منوتو ، با هوش مصنوعی ساخته شده دیدم وایرال داره میشه گفتم بگم
+
+پ‌ن : انقد سطحی و مبتدیانه ساخته شده بچه ۴ ساله هم میفهمه
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9039
 
@@ -234,29 +253,5 @@ Join As @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وضعیت نت خرابه ، گزارش وضعیت از خطوط همراه و ایرانسل بدید...
-</div>
-
-## tasiyanc — post 9015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم🖤
-
-کانفیگ اختصاصی نامحدود HttpCustum 📱
-
-سرور سرعتی مناسب تمام نت‌ها ⚡️
-
-آموزش اتصال ✅
-
-دانلود  📱android🕹  iOS
-
-اتصال امن برای همه 🏠
-
-💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ HttpCustum بزاریم ؟
 </div>
 

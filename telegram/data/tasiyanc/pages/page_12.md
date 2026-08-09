@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/18 23:29
+📅 آخرین بروزرسانی: 1405/05/19 00:54
 
 ---
+
+## tasiyanc — post 8863
+
+<div align="center"><video src="files/post_8863_tasiyanc_8863.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8863_tasiyanc_8863.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻با این پرامپت نویسنده و ویراستار حرفه‌ای خودت باش 
+🤖🤖
+
+⭕️ کافیه چند کلمه یا جمله بهش بدی پایینش پرامپت رو بزنی نتیجه عالی میشه !
+
+✔️PROMPT
+
+Act as a professional editor and copywriter.
+Your task is to rewrite the following text while preserving its original meaning and tone.
+
+Before rewriting:
+- Correct grammar, spelling, and punctuation mistakes.
+- Improve clarity and readability.
+- Enhance sentence flow and structure.
+- Replace weak or repetitive words with stronger, more natural alternatives.
+- Make the writing more engaging and emotionally compelling.
+- Remove unnecessary words or awkward phrasing.
+- Keep the author's intent unchanged.
+
+Provide:
+1. The polished version.
+2. A brief explanation of the key improvements you made.
+
+Text:
+[اینجا جمله یا کلمات را بنویس ]
+
+✈️@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8862
+
+<div align="center"><img src="files/post_8862_tasiyanc_8862.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 تعویض پس زمینه و بالابردن کیفیت عکس
+( حرفه ای و طبیعی)
+
+Prompt
+Replace the background with a realistic environment while preserving the original subject, lighting, shadows, reflections and perspective. Blend everything naturally for a seamless result.
+﻿
+آموزش استفاده از پرامپت 
+👉
+
+
+✈️@TASIYANC 💠
+</div>
 
 ## tasiyanc — post 8861
 
@@ -256,24 +311,5 @@ R8
 🎵https://spotmate.online/en1
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ برا ویندوز بزارم ؟
-</div>
-
-## tasiyanc — post 8838
-
-<div align="center"><video src="files/post_8838_tasiyanc_8838.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8838_tasiyanc_8838.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سنای آمریکا با ۵۰ رأی مخالف در برابر ۴۹ رأی موافق
-طرح محدود کردن اختیارات ترامپ برای اقدام نظامی علیه ایران رو رد کرد
-
-✈️@TASIYANC ⭐️
 </div>
 

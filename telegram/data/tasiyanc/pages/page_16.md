@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/18 23:29
+📅 آخرین بروزرسانی: 1405/05/19 00:54
 
 ---
+
+## tasiyanc — post 8754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Vip for TS ⚡🔥.npvt
+</div>
+
+## tasiyanc — post 8753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی  ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ @TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8752
 
@@ -189,34 +223,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc ⚡🇹🇷.nm
-</div>
-
-## tasiyanc — post 8725
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-تست شده روی همه نت ها
-
-آموزش اتصال روی اندروید
-⛓
-آموزش اتصال روی ویندوز  
-⛓
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8724
-
-<div align="center"><img src="files/post_8724_tasiyanc_8724.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹20 ابزار کاربردی عالی برای دانشجویان 😐
-
-@TASIYANC ✅
 </div>
 

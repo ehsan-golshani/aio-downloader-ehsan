@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/18 23:29
+📅 آخرین بروزرسانی: 1405/05/19 00:54
 
 ---
+
+## tasiyanc — post 5642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5641
+
+<div align="center"><img src="files/post_5641_tasiyanc_5641.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📈 Confirmed: Live metrics show a partial restoration to internet connectivity in #Iran on day 88, after 2093 hours of near-total isolation from international networks, the longest nationwide internet shutdown in modern history. It is unclear if the restoration will be sustained.
+</div>
 
 ## tasiyanc — post 5640
 
@@ -180,21 +201,5 @@
 ⭕️ وزیر ارتباطات:
 با دستور رئیس‌جمهوری و پس از برگزاری ۳ جلسه فشرده کارشناسی، فرایند بازگرداندن اینترنت کشور به وضعیت قبل از دی‌ماه ۱۴۰۴ آغاز شده است.
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5609
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوری 🚨
-صفحه خرید و درخواست اینترنت پرو از سایت همراه اول حذف شد
-
-و همچنین جی‌میل در دسترس قرار گرفت
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دارن وصل میکنن؟
 </div>
 

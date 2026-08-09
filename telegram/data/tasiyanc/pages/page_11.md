@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/18 23:29
+📅 آخرین بروزرسانی: 1405/05/19 00:54
 
 ---
+
+## tasiyanc — post 8898
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 کاخ سفید : خداوند سربازان ما را حفظ کند جنگ سهمگین در راهه؟ 🔱 @TASIYANC
+</div>
+
+## tasiyanc — post 8897
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 کاخ سفید : خداوند سربازان ما را حفظ کند
+
+جنگ سهمگین در راهه؟
+
+🔱 @TASIYANC
+</div>
 
 ## tasiyanc — post 8896
 
@@ -308,60 +324,5 @@ a9
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8863
-
-<div align="center"><video src="files/post_8863_tasiyanc_8863.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8863_tasiyanc_8863.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻با این پرامپت نویسنده و ویراستار حرفه‌ای خودت باش 
-🤖🤖
-
-⭕️ کافیه چند کلمه یا جمله بهش بدی پایینش پرامپت رو بزنی نتیجه عالی میشه !
-
-✔️PROMPT
-
-Act as a professional editor and copywriter.
-Your task is to rewrite the following text while preserving its original meaning and tone.
-
-Before rewriting:
-- Correct grammar, spelling, and punctuation mistakes.
-- Improve clarity and readability.
-- Enhance sentence flow and structure.
-- Replace weak or repetitive words with stronger, more natural alternatives.
-- Make the writing more engaging and emotionally compelling.
-- Remove unnecessary words or awkward phrasing.
-- Keep the author's intent unchanged.
-
-Provide:
-1. The polished version.
-2. A brief explanation of the key improvements you made.
-
-Text:
-[اینجا جمله یا کلمات را بنویس ]
-
-✈️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8862
-
-<div align="center"><img src="files/post_8862_tasiyanc_8862.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 تعویض پس زمینه و بالابردن کیفیت عکس
-( حرفه ای و طبیعی)
-
-Prompt
-Replace the background with a realistic environment while preserving the original subject, lighting, shadows, reflections and perspective. Blend everything naturally for a seamless result.
-﻿
-آموزش استفاده از پرامپت 
-👉
-
-
-✈️@TASIYANC 💠
 </div>
 

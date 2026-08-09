@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/18 23:29
+📅 آخرین بروزرسانی: 1405/05/19 00:54
 
 ---
+
+## tasiyanc — post 8486
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 20 July روز جهانی ماهه
+
+به تمام دختر پسرای چنلمون تبریك میگیم این روز رو 🌚
+</div>
+
+## tasiyanc — post 8484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt
+</div>
 
 ## tasiyanc — post 8483
 
@@ -178,22 +192,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خوبه به ترامپ میکروفن ندادن وگرنه میخواست بگه ایران نباید سلاح هسته ای داشته باشه وسط زمین
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویس علی دایی در مورد باخت آرژانتین 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8461
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ میخواست با بازیکنا اسپانیا قهرمانیو جشن بگیره که رئیس فیفا اومد بهش گفت مشتی بیا اینور 😂😂😂😂😂
 
 @TASIYANC ✅
 </div>
