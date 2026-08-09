@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 117
 
-📅 آخرین بروزرسانی: 1405/05/18 14:31
+📅 آخرین بروزرسانی: 1405/05/18 18:33
 
 ---
+
+## tasiyanc — post 5537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده  📶
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترکیبی ✅ vless://5b34187f-f811-58b1-7e68-3cc63df5df3b@meli.masterdadeh.ir:80?type=ws&host=meli.masterdadeh.ir&path=%2F#%40Tasiyanc%20%D8%AA%D8%B1%DA%A9%DB%8C%D8%A8%DB%8C%C2%B9 Join @Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 5535
 
@@ -339,17 +356,5 @@ Tarkibi
 لینک داخلی آخرین نسخه اسلیپ نت👈
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5506
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش نداریم فعلا پول نزنید باز شه اطلاع میدم
-</div>
-
-## tasiyanc — post 5503
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-gül bana dünyalar benim olsun
 </div>
 

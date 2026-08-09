@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/18 14:31
+📅 آخرین بروزرسانی: 1405/05/18 18:33
 
 ---
+
+## tasiyanc — post 8763
+
+<div align="center"><img src="files/post_8763_tasiyanc_8763.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتانیاهو و تیمش در حال آماده شدن برای دیدار با پرزیدنت ترامپ در کاخ سفید.
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8762
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️اکثر سایت‌ها یا آپشن‌هایی مثل «آفساید» و «مالکیت» رو ندارن، یا وقتی مبلغ سنگین میشه، موقع برداشت هزارتا بهونه میارن. ​ما بالاخره دو مقصد رو پیدا کردیم که «امنیت» و «تنوع» رو همزمان دارن
+
+🔘 @WePariFarsi
+
+🔘 @DerbyBetOfficial
+</div>
 
 ## tasiyanc — post 8761
 
@@ -209,31 +230,4 @@ https://t.me/TsMoviee
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Multi Loc ⚡ @Tasiyanc.npvt
 </div>
-
-## tasiyanc — post 8735
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8734
 

@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/18 14:31
+📅 آخرین بروزرسانی: 1405/05/18 18:33
 
 ---
+
+## tasiyanc — post 6102
+
+<div align="center"><img src="files/post_6102_tasiyanc_6102.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+غیر رسمی پزشکیان استعفاء داد تایید شده نیست
+</div>
+
+## tasiyanc — post 6101
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+غیر رسمی
+
+پزشکیان استعفاء داد
+
+تایید شده نیست
+</div>
 
 ## tasiyanc — post 6100
 
@@ -174,26 +192,5 @@ UDP 53 & TCP 80 TCP 8080
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 150 گیگ تو گپ تاسیان کانفیگ ویتوری
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6075
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FastVip⚡.npvt
-</div>
-
-## tasiyanc — post 6074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده روی همه اپراتورا🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
 </div>
 

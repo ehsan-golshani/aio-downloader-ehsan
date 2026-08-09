@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/18 14:31
+📅 آخرین بروزرسانی: 1405/05/18 18:33
 
 ---
+
+## tasiyanc — post 9105
+
+<div align="center"><img src="files/post_9105_tasiyanc_9105.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خورخه مسی، پدر لیونل مسی درگذشت
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9104
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری سپاه پاسداران:
+بازگشایی تنگه هرمز منوط به پذیرش کامل شرایط ما از سوی ایالات متحده است.
+بازگشایی تنگه هرمز تابع سازوکارها و شرایط تعیین‌شده توسط جمهوری اسلامی ایران است و ارتباطی با مذاکرات ایران و عمان ندارد.
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9103
 
@@ -233,51 +252,5 @@ Prompt
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9081
-
-<div align="center"><video src="files/post_9081_tasiyanc_9081.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9081_tasiyanc_9081.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕کانفیگ اختصاصی نامحدود اینجکتور
-📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی 
-⚡️
-
-سرور سرعتی‌ لوکیشن USA - Germany 
-📍
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون  
-📱
-
-آموزش اتصال 
-🔸
-
-اتصال امن برای همه 
-🇮🇷
-
-
-📱 @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مارک لوین:
-
-اگر قرار باشه رژیم ایران شکست بخوره، باید مردم ایران مسلح بشن.
-
-به‌جای توافق با جمهوری اسلامی، باید از مردم ایران برای سرنگونی حکومت حمایت بشه.
-
-@TASIYANC 
-⭐️
 </div>
 

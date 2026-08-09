@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/05/18 17:45
+📅 آخرین بروزرسانی: 1405/05/18 18:31
 
 ---
+
+## ProxyMTProto — post 48151
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: iran.protocolsix.info
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: api.prxtoday.store
+Port: 443
+Secret: ee1fed31d4c3ce8255aedc8c4c14a36f536170692e707278746f6461792e73746f7265
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48149
 
@@ -163,24 +181,6 @@ Secret: eea91f379099ba53e83fea21dec0db748d617669746f2e7275
 Server: 176.65.135.69
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 51.250.75.249
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48130
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowabst.net
-Port: 853
-Secret: ee12893ffd2044cecd31104edc02a7e5586164732e78352e7275
 @ProxyMTProto
 </div>
 

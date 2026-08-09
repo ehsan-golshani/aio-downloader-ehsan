@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/18 14:31
+📅 آخرین بروزرسانی: 1405/05/18 18:33
 
 ---
+
+## tasiyanc — post 8142
+
+<div align="center"><img src="files/post_8142_tasiyanc_8142.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانو Ester هستن زید مدل اسپانیایی امباپه بازیکن رئال 🦥
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 8140
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴گزارش هایی مبنی بر اینکه حرم امام رضا اتیش گرفته تاییذ و تکذیب نمیشه @TasiyanProxy✅
+</div>
 
 ## tasiyanc — post 8138
 
@@ -179,21 +195,5 @@
 🔴حملات شدید آمریکا به اهواز عزیز
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتیجه دقیق بازی آرژانتین 🇦🇷 و انگلیس 🏴󠁧󠁢󠁥󠁮󠁧󠁿 بگید کانفیگ وایرگارد بگیرید
-</div>
-
-## tasiyanc — post 8112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ👂 به فاکس نیوز:
-
-🔻 حملات علیه ایران هفته آینده گسترش خواهد یافت و خاورمیانه برای آنچه بعداً رخ خواهد داد آماده میشود
-
-@Tasiyanc ⭐️
 </div>
 

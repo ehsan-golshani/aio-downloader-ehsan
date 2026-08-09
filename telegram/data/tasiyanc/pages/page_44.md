@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/05/18 14:31
+📅 آخرین بروزرسانی: 1405/05/18 18:33
 
 ---
+
+## tasiyanc — post 7806
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ : ممکنه دوباره جنگ با ایران پر قدرت شروع بشه.
+</div>
+
+## tasiyanc — post 7799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+4 سرور سرعتی حجم و کاربر نامحدود ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال به اینجکتور ✨
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7798
 
@@ -172,17 +202,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فووووووری حملات آمریکا به اسکله حقانی در سیریك
-</div>
-
-## tasiyanc — post 7754
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واکنش اسرائیل به جنگ فعلی : خوابیما قطعش کنین
-</div>
-
-## tasiyanc — post 7753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنگه هرمز بسته شد💪
 </div>
 

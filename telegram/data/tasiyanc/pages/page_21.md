@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/18 14:31
+📅 آخرین بروزرسانی: 1405/05/18 18:33
 
 ---
+
+## tasiyanc — post 8600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 ترامپ :
+
+بیش از 52 هزار معترض در ایران در دو ماه گذشته توسط جمهوری اسلامی کشته شدند؛
+
+اما نمیدونم چرا هیچکس راجب این موضوع صحبت نمی‌کنه، هیچ رسانه ای ازش نمیگه!
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8599
+
+<div align="center"><video src="files/post_8599_tasiyanc_8599.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8599_tasiyanc_8599.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ امشب فاز نصیحت برداشته:
+
+یه پلیس بهم گفت از وقتی زنم فهمیده هوش مالی بالایی دارم و خوب پول در میارم، بیشتر دوسم داره.
+شما نباید کسیو بخاطر پول دوس داشته باشین.
+
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8592
 
@@ -256,19 +284,5 @@ Join As @TASIYANC ✅
 جدیدترین مورد از بیش از 52 هزار معترض بی‌گناه. وحشی‌ها!!! دموکرات‌ها کِی میخوان بیدار بشن؟؟؟
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8555
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میساقی مجری صداسیما : من ۱۰۰ نفرو حریف بودم ۱۰۱ نفر اومدن مادرمو گای*یدن
-</div>
-
-## tasiyanc — post 8554
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-س*اک زدن دنیا خانوم جهانبخت برای تتلو 🤣
-
-مشاهده فیلم 👉
 </div>
 
