@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/19 01:38
+📅 آخرین بروزرسانی: 1405/05/19 02:22
 
 ---
+
+## tasiyanc — post 8877
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است @TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8875
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8869
 
@@ -281,33 +295,5 @@ R8
 🔗لینک وبسایت👉
 ⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 8845
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-4 سرور سرعتی لوکییشن 🇮🇹
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8844
-
-<div align="center"><video src="files/post_8844_tasiyanc_8844.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8844_tasiyanc_8844.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موقعیت؛ ترامپ وقتی به کشتی‌ها حمله می‌شه تو هرمز :
-
-@TASIYANC ⭐️
 </div>
 

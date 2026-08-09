@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/19 01:38
+📅 آخرین بروزرسانی: 1405/05/19 02:22
 
 ---
+
+## tasiyanc — post 9145
+
+<div align="center"><a href="files/post_9145_اختلال شکن 🌱.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 اختلال شکن 🌱.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن Turkey📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9144
+
+<div align="center"><img src="files/post_9144_tasiyanc_9144.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 پرامپت اختصاصی 🤖🤖
+
+Prompt Woman
+
+A high-contrast, moody black and white portrait photograph. A young woman with dark, wavy hair, wearing sunglasses, an oversized quilted puffer jacket, wide black trousers, and heavy combat boots, is seated on a low metal stool on a rugged dirt path. She is leaning forward in a contemplative pose, looking downward at her hands, which are holding a coiled leather leash. Directly behind her stands a massive black panther, looking intensely forward with sharp eyes. The backdrop is a desolate outdoor landscape with low, scrubby brush and a stormy, dark sky above, all rendered with dramatic film grain and strong chiaroscuro lighting. Solemn, grounded, atmospheric. Medium shot, caught on a high-end film camera.
+
+Prompt Man
+
+A high-contrast, moody black and white portrait photograph. A handsome young man with short, styled dark wavy hair, a neat beard, wearing sunglasses, an oversized quilted puffer jacket, wide black trousers, and heavy combat boots, is seated on a low metal stool on a rugged dirt path. He is leaning forward in a contemplative pose, looking downward at his hands, which are holding a coiled leather leash. Directly behind him stands a massive black panther, looking intensely forward with sharp eyes. The backdrop is a desolate outdoor landscape with low, scrubby brush and a stormy, dark sky above, all rendered with dramatic film grain and strong chiaroscuro lighting. Solemn, grounded, atmospheric. Medium shot, caught on a high-end film camera.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9143
 
@@ -216,59 +257,5 @@ Join As @TASIYANC
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴خبرگزاری تسنیم : حمیدرضا رجب‌زاده، مداحی که چند روزی بود گم شده بود، به قتل رسیده و فیلم لحظه قتلش به خانواده‌‌اش ارسال شده، پلیس فعلا داره پیگیری می‌کنه. « مشاهده »
-</div>
-
-## tasiyanc — post 9122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated location 🇹🇷━━━╮ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.141:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage…
-</div>
-
-## tasiyanc — post 9121
-
-<div align="center"><img src="files/post_9121_tasiyanc_9121.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی کانال 🆕
-
-Velvet Roses 💐
-
-Prompt 🤖🤖
-
-Create a highly realistic dark romantic portrait of a young woman standing indoors against a plain textured warm gray-beige wall.
-
-COMPOSITION:
-Vertical portrait, upper-body framing, camera positioned directly in front of the woman, slightly above chest level. The woman occupies the center of the frame. Her head is slightly tilted to one side, shoulders relaxed. A very large bouquet of deep burgundy-red roses is held directly in front of her chest and covers most of the lower half of the image. The bouquet is dense and luxurious, consisting of many realistic fully bloomed dark red roses with velvety layered petals and subtle dark green leaves.
-
-MODEL:
-Young adult woman, elegant feminine appearance, natural realistic facial proportions, long straight dark brown hair falling over both shoulders, subtle dark burgundy/red highlights visible in the hair. Defined natural eyebrows, long eyelashes, soft eyeliner, subtle warm makeup, smooth but realistic skin texture, matte deep burgundy lipstick.
-
-POSE AND EXPRESSION:
-Eyes gently closed, calm and peaceful expression, slightly raised chin, head subtly tilted backward and to the side. Relaxed lips, elegant neck and shoulders. Both hands gently hold the bouquet from underneath, naturally positioned around the stems. Realistic hands, fingers and nails.
-
-CLOTHING:
-Elegant fitted black long-sleeve top with a simple wide neckline, minimal and sophisticated. A very thin delicate gold necklace with a tiny circular pendant around her neck. No other visible jewelry.
-
-LIGHTING:
-Extremely soft and dim cinematic lighting. Warm low-key ambient illumination from the front-left. Very subtle deep red light falling across the left side of the hair and background. Soft shadow of the woman's head and hair cast onto the wall behind her. Face remains naturally illuminated but the overall exposure is dark and moody. No hard flash, no bright studio lighting.
-
-COLOR PALETTE:
-Dark burgundy, deep crimson red, black, muted brown, warm gray and subtle skin tones. Low saturation, cinematic muted colors, rich dark shadows, deep blacks, soft warm highlights.
-
-PHOTOGRAPHY STYLE:
-Dark romantic editorial fashion photography, gothic romantic aesthetic, intimate luxury portrait, cinematic photography, realistic DSLR photography, 85mm portrait lens, f/1.8 aperture, shallow depth of field, natural perspective, soft optical bokeh, subtle film grain, realistic skin pores, realistic individual hair strands, highly detailed rose petals, natural shadows, professional color grading.
-
-IMPORTANT:
-Photorealistic human anatomy, realistic facial proportions, realistic hands and fingers, realistic rose petals and leaves. Preserve natural imperfections and authentic skin texture. The image should look like a real photograph taken in a dimly lit room, not AI-generated, not illustration.
-
-MOOD:
-Elegant, mysterious, melancholic, romantic, intimate, dark feminine, luxurious and cinematic.
-
-NEGATIVE PROMPT:
-cartoon, anime, illustration, CGI, 3D render, plastic skin, porcelain skin, excessive beauty retouching, overexposed face, bright lighting, flash photography, oversaturated colors, neon colors, smiling, open eyes, distorted face, asymmetrical eyes, deformed hands, extra fingers, missing fingers, malformed fingers, duplicated hands, artificial flowers, unrealistic rose petals, floating flowers, bad anatomy, short hair, curly hair, blonde hair, colorful clothing, excessive jewelry, busy background, text, watermark, logo, low resolution, blur, excessive HDR, harsh sharpening
-
-آموزش استفاده ♻️
-
-@TASIYANC ✅
 </div>
 

@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/19 01:38
+📅 آخرین بروزرسانی: 1405/05/19 02:22
 
 ---
+
+## tasiyanc — post 8973
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد
+
+زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم 😂
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8972
+
+<div align="center"><video src="files/post_8972_tasiyanc_8972.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8972_tasiyanc_8972.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Fast Tekno💥.npvt
+</div>
 
 ## tasiyanc — post 8970
 
@@ -277,25 +297,5 @@ ss://YWVzLTI1Ni1nY206UmV4bkJnVTdFVjVBRHhH@185.213.20.110:7001#%40Tasiyanc%20%F0%
 Location ⚡️🇮🇹
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏴🇮🇷
-</div>
-
-## tasiyanc — post 8948
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود نپسترنت📱
-
-۶ سرور سرعتی تست شده  لوکیشن ایتالیا 📍
-
-آموزش اتصال ⚡️
-
-اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 

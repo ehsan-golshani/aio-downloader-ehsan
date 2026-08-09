@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/05/19 01:38
+📅 آخرین بروزرسانی: 1405/05/19 02:22
 
 ---
+
+## tasiyanc — post 7378
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد نامحدود مخصوص گیم،وب‌گردی 👑
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7377
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود سرور 🇩🇪
+
+4سرور سرعتی ⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc | تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7368
 
@@ -222,29 +251,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 
 
  💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۰٪ کانفیگای وایرگارد اندپوینتا اختلال دارن ، تا زمانیکه اندپوینت مناسب پیدا کنم تا اتصالتون پایدار باشه نمیزاریم
-</div>
-
-## tasiyanc — post 7332
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند فکت تاریخی :
-
-💘.سال 1352 ایران بعنوان ازادترین کشورجهان انتخاب شد
-
-💘.سال 1356 ایران قوی ترین نیروی هوایی آسیا و سوم دنیا بود
-
-💘.سال 1355 تهران سومین پایتخت پاکیزه جهان شد
-
-💘.سالی که ورزشگاه آزادی ساخته شد تو کشورهای عربی حتی توپ فوتبال هم نبود
-
-💘.ایران در سال 1352 تنها کشور اسیا بود که در تمام دنیا پاسپورتش نیاز به ویزا نداشت
-@Tasiyanc 
-✅
 </div>
 

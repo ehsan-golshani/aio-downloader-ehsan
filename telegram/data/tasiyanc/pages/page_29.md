@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/19 01:38
+📅 آخرین بروزرسانی: 1405/05/19 02:22
 
 ---
+
+## tasiyanc — post 8365
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌انفجار در بندر عباس و بیرجند
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8363
 
@@ -221,21 +235,5 @@ Multi Location ⚡ Fast.npvt
 پروکسی | پروکسی | پروکسی | پروکسی
 
 @Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت همراه اول/ایرانسل تو شهر شما چطوریه؟
-</div>
-
-## tasiyanc — post 8322
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیک نیوز زیاد شده ، اخبار رو از چنل خودمون دنبال کنین
-( رک بگم حمایت کنین جوین بدین 😂❤️)
-
-@TasiyanProxy
-@TasiyanProxy
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/19 01:38
+📅 آخرین بروزرسانی: 1405/05/19 02:22
 
 ---
+
+## tasiyanc — post 9020
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•تقدیم به مردم سرزمینم 🖤
+
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 📍
+
+•آموزش اتصال ⚡️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پیشنهاد_ویژه ⚠️
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
+دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
+</div>
 
 ## tasiyanc — post 9018
 
@@ -385,61 +411,5 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 🔴 دست کم ۷ انفجار در دوبی منطقه جبل علی
 
 مشخص نیست حمله شده یا چی
-</div>
-
-## tasiyanc — post 8996
-
-<div align="center"><video src="files/post_8996_tasiyanc_8996.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8996_tasiyanc_8996.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 یک سایت اما دسترسی به ده‌ها هوش مصنوعی!
-
-
-🟠اگر نمی‌خواهی برای هر مدل هوش مصنوعی یک سایت جدا باز کنی، Poe.com دقیقاً همان چیزی است که دنبالش هستی.
-
-در Poe می‌توانی با مدل‌هایی مثل ChatGPT، Claude، Gemini، DeepSeek، Grok، Llama و ده‌ها مدل دیگر، همه در یک پلتفرم، گفتگو کنی و بهترین پاسخ را بگیری.
-
-🪩 https://Poe.com
-
-
-
-⚡️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠هوش‌های مصنوعی که برای ساخت پروژه‌های نرم‌افزاری کمک می‌کنند 
-👩‍💻
-
-فقط کافیه پروژه رو توضیح بدید، کد رو تولید می‌کنند
-
-
-🔗 replit.com
-
-🔗 bolt.new
-
-🔗 stack.ai
-
-🔗 v0.dev
-
-🔗 cursor.sh
-
-🔗 Lovable.dev
-
-🔗 codeium.com
-
-🔗 tabnine.com
-
-🔗 github.com/features/copilot
-
-مشکلی داشتید برید ChatGpt یا Gemini سایت رو بهش بدید کمکتون میکنه چیکار کنی
-
-
-⚡️@TASIYANC 
-✅
 </div>
 

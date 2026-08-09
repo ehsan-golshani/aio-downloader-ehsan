@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/19 01:38
+📅 آخرین بروزرسانی: 1405/05/19 02:22
 
 ---
+
+## tasiyanc — post 8785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر گلای توی خونه
+</div>
+
+## tasiyanc — post 8784
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ سپاه : ساعاتی پیش سه نفتکش متخلف که بی‌توجه به اخطارهای ما، به حرکت در مسیر ناامن و غیرقانونی ادامه می‌دادند مورد اصابت قرار گرفته و متوقف شدند.
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8783
 
@@ -216,33 +230,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ایرانی بودنم سخته ، اداره برق نه تنها برقو قطع می‌کنه ، بعدش میاد یه اپ معرفی می‌کنه پول میگیره میگه کی برقتون قطع میشه
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8758
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود لوک ترکیه📱
-
-تست شده روی همه نت ها
-
-آموزش اتصال روی اندروید⛓
-آموزش اتصال روی ویندوز  ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8757
-
-<div align="center"><video src="files/post_8757_tasiyanc_8757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8757_tasiyanc_8757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صنعت پهبادی اوکراین تو یه لول دیگه اس !
-🇷🇺🇺🇦 یک تانک روسی T-80BVM با ارزش تقریبی ۴ میلیون دلار، توسط یک پهپاد ۵۰۰ دلاری اوکراینی منهدم شد.
-﻿
-@TASIYANC ⭐️
 </div>
 
