@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/18 12:57
+📅 آخرین بروزرسانی: 1405/05/18 14:31
 
 ---
+
+## tasiyanc — post 6912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📊 حجم : نامحدود  |  ⏳انقضا : 30Day
+📶 وضعیت اتصال : فعال ✅
+⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید
+
+دریافت کانفیگ نامحدود رایگان
+
+🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
+</div>
 
 ## tasiyanc — post 6911
 
@@ -191,11 +203,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpvWklvQTY5UTh5aGNRVjhrYTNQYTNB@82.38.31.11:80
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6873
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال شدید رو خطوط همراه داریم دلیلش نمیدونم
 </div>
 

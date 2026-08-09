@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/18 12:57
+📅 آخرین بروزرسانی: 1405/05/18 14:31
 
 ---
+
+## tasiyanc — post 9125
+
+<div align="center"><video src="files/post_9125_tasiyanc_9125.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9125_tasiyanc_9125.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی جدید 
+🆕
+
+Midnight Street Style → prompt 
+🤖
+🤖
+
+مرد
+
+​"A close-up moody urban portrait of a handsome young man with long wavy dark hair and a beard, wearing dark-tinted sunglasses. He is dressed in an all-dark outfit: a textured charcoal grey nylon bomber jacket, a charcoal t-shirt, and dark grey washed jeans. He is leaning back against a black industrial structure. His posture is relaxed and cool, with his hand resting near his chest, gazing slightly away. The lighting is diffused and dark, emphasizing the moody atmosphere. High-resolution, cinematic quality, natural skin, rich dark color palette."
+
+
+زن
+
+​"A moody street style portrait of a stylish woman with wavy blonde hair leaning against a concrete column. She is wearing an oversized flannel shirt with a grey and black plaid pattern, light grey relaxed-fit denim jeans, a beige baseball cap worn backward, and cat-eye sunglasses. Large intricate gold hoop earrings are visible. Her pose is confident, looking off to the side. The background features a dark wood paneled garage door. High-end streetwear editorial photography, dark and muted tones, cinematic natural lighting, realistic skin textures."
+
+
+آموزش استفاده 
+👉
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9124
 
@@ -261,11 +292,5 @@ fashion editorial photography, front shot, upper body, professional female model
 بازگشایی تنگه هرمز منوط به پذیرش کامل شرایط ما از سوی ایالات متحده است.
 بازگشایی تنگه هرمز تابع سازوکارها و شرایط تعیین‌شده توسط جمهوری اسلامی ایران است و ارتباطی با مذاکرات ایران و عمان ندارد.
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9103
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
 </div>
 

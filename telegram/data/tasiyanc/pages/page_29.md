@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/18 12:57
+📅 آخرین بروزرسانی: 1405/05/18 14:31
 
 ---
+
+## tasiyanc — post 8335
+
+<div align="center"><img src="files/post_8335_tasiyanc_8335.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زیبایي کوههای مریخيِ چابهارِ زیبا
+
+پروکسی | پروکسی | پروکسی | پروکسی
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8333
 
@@ -170,15 +182,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8302
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاطمه مهاجرانی، سخنگوی دولت:
-
-دولت پزشکیان تا پای جان کنار مردم خونگرم جنوبه و از صبر و ایستادگیشون تو دوران متشنج جنگی تشکر میکنه
-
-@Tasiyanc ⭐️
 </div>
 

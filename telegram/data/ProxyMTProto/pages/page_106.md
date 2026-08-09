@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/18 13:44
+📅 آخرین بروزرسانی: 1405/05/18 14:29
 
 ---
+
+## ProxyMTProto — post 47842
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd79e7010200010007f0030386e24c3add
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47841
 
@@ -174,15 +183,6 @@ Secret: 76706e76706e76706e76706e76706e76
 Server: spain.nolags.pw
 Port: 443
 Secret: ddda11050e6e98fb151d0094b549b0344a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47822
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: jet.quickrouteapp.xyz
-Port: 8443
-Secret: eeedca657d767c71c26de484e74182c3076a65742e717569636b726f7574656170702e78797a
 @ProxyMTProto
 </div>
 

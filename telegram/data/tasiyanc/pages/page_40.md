@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/18 12:57
+📅 آخرین بروزرسانی: 1405/05/18 14:31
 
 ---
+
+## tasiyanc — post 7985
+
+<div align="center"><img src="files/post_7985_tasiyanc_7985.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+A true friend of the Iranian people, may your soul rest in peace. You will always be remembered, dear Senator Graham 🖤
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7981
 
@@ -226,20 +236,6 @@ Change the background behind those two people with white curtains. With hugging 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 همین گنده گوزیا بگاتون داد
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7935
-
-<div align="center"><img src="files/post_7935_tasiyanc_7935.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نوشته بود پدره واقعا باباست، مادره هم واقعا مامانه، بچه‌ها هم واقعا بچه‌ان
-
-اینم عکس خانوادگی آتلیه ایشون😭😭😭
-راستی پدر
-چپی مادر
 
 @Tasiyanc ⭐️
 </div>

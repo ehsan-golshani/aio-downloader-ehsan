@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/18 12:57
+📅 آخرین بروزرسانی: 1405/05/18 14:31
 
 ---
+
+## tasiyanc — post 6618
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم
+https://t.me/+v0wRP5SGNrg5MThk
+</div>
 
 ## tasiyanc — post 6617
 
@@ -190,12 +197,5 @@ PASSWORD 🔑 : @Tasiyanc
 ⭕️⭕️
 وزیر جنگ آمریکا پیت هگست : امشب تاسیسات ایران را بمباران خواهیم کرد
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6567
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk
-گپ تاسیان - تحلیلگران جنگ بیان
 </div>
 
