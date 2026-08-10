@@ -1,8 +1,96 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/19 22:16
+📅 آخرین بروزرسانی: 1405/05/19 23:24
 
 ---
+
+## tasiyanc — post 9121
+
+<div align="center"><img src="files/post_9121_tasiyanc_9121.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی کانال 🆕
+
+Velvet Roses 💐
+
+Prompt 🤖🤖
+
+Create a highly realistic dark romantic portrait of a young woman standing indoors against a plain textured warm gray-beige wall.
+
+COMPOSITION:
+Vertical portrait, upper-body framing, camera positioned directly in front of the woman, slightly above chest level. The woman occupies the center of the frame. Her head is slightly tilted to one side, shoulders relaxed. A very large bouquet of deep burgundy-red roses is held directly in front of her chest and covers most of the lower half of the image. The bouquet is dense and luxurious, consisting of many realistic fully bloomed dark red roses with velvety layered petals and subtle dark green leaves.
+
+MODEL:
+Young adult woman, elegant feminine appearance, natural realistic facial proportions, long straight dark brown hair falling over both shoulders, subtle dark burgundy/red highlights visible in the hair. Defined natural eyebrows, long eyelashes, soft eyeliner, subtle warm makeup, smooth but realistic skin texture, matte deep burgundy lipstick.
+
+POSE AND EXPRESSION:
+Eyes gently closed, calm and peaceful expression, slightly raised chin, head subtly tilted backward and to the side. Relaxed lips, elegant neck and shoulders. Both hands gently hold the bouquet from underneath, naturally positioned around the stems. Realistic hands, fingers and nails.
+
+CLOTHING:
+Elegant fitted black long-sleeve top with a simple wide neckline, minimal and sophisticated. A very thin delicate gold necklace with a tiny circular pendant around her neck. No other visible jewelry.
+
+LIGHTING:
+Extremely soft and dim cinematic lighting. Warm low-key ambient illumination from the front-left. Very subtle deep red light falling across the left side of the hair and background. Soft shadow of the woman's head and hair cast onto the wall behind her. Face remains naturally illuminated but the overall exposure is dark and moody. No hard flash, no bright studio lighting.
+
+COLOR PALETTE:
+Dark burgundy, deep crimson red, black, muted brown, warm gray and subtle skin tones. Low saturation, cinematic muted colors, rich dark shadows, deep blacks, soft warm highlights.
+
+PHOTOGRAPHY STYLE:
+Dark romantic editorial fashion photography, gothic romantic aesthetic, intimate luxury portrait, cinematic photography, realistic DSLR photography, 85mm portrait lens, f/1.8 aperture, shallow depth of field, natural perspective, soft optical bokeh, subtle film grain, realistic skin pores, realistic individual hair strands, highly detailed rose petals, natural shadows, professional color grading.
+
+IMPORTANT:
+Photorealistic human anatomy, realistic facial proportions, realistic hands and fingers, realistic rose petals and leaves. Preserve natural imperfections and authentic skin texture. The image should look like a real photograph taken in a dimly lit room, not AI-generated, not illustration.
+
+MOOD:
+Elegant, mysterious, melancholic, romantic, intimate, dark feminine, luxurious and cinematic.
+
+NEGATIVE PROMPT:
+cartoon, anime, illustration, CGI, 3D render, plastic skin, porcelain skin, excessive beauty retouching, overexposed face, bright lighting, flash photography, oversaturated colors, neon colors, smiling, open eyes, distorted face, asymmetrical eyes, deformed hands, extra fingers, missing fingers, malformed fingers, duplicated hands, artificial flowers, unrealistic rose petals, floating flowers, bad anatomy, short hair, curly hair, blonde hair, colorful clothing, excessive jewelry, busy background, text, watermark, logo, low resolution, blur, excessive HDR, harsh sharpening
+
+آموزش استفاده ♻️
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9120
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه پرامپت VİP تاسیان برا دختر خانومای چنل ، بریم توکارش
+</div>
+
+## tasiyanc — post 9119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated location 🇹🇷━━━╮
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.141:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%87%B9%F0%9F%87%B7
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.55:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%87%B9%F0%9F%87%B7%E2%9A%A1
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.154:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%87%B9%F0%9F%87%B7
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.67:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&host=storage.yandex.net&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%F0%9F%87%B9%F0%9F%87%B7%20Turkey%2C%20Tasiyanc
+
+
+Android 🕹 : V2box🔐  Npv tunnel 🔐  V2rayNG 🔐
+
+iOS  📱: V2BOX 🔐  Npv tunnel 🔐
+
+Join As @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9118
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+r18
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9117
 
@@ -171,58 +259,5 @@ A person with slicked-back dark hair wearing oversized square sunglasses is show
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 از تیم اتکر تاسیان تشکر میکنم بخاطر کار خوبی ک چند روزه کردن ، خط قرمز کانال و اعضاء رد بشه تیم اتکر ورود میکنن
-</div>
-
-## tasiyanc — post 9096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت کاپلی VIP اختصاصی تاسیان 
-🆕 😎 عکس خودتون و پارتنرتون بدید به AI Prompt 🤖🤖 "Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim…
-</div>
-
-## tasiyanc — post 9095
-
-<div align="center"><img src="files/post_9095_tasiyanc_9095.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت کاپلی VIP اختصاصی تاسیان 
-🆕 😎
-
-عکس خودتون و پارتنرتون بدید به AI
-
-Prompt 🤖🤖
-"Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim shirt, driving with a lit cigar in his mouth, hand on the wheel. Woman with dark, shaggy hair and bangs, wearing gold-framed aviator sunglasses and a denim shirt, leaning her head on the man's shoulder. View is framed by the car's windshield and wipers. The red hood is prominent in the foreground. Gritty film grain, warm color correction, vintage photography. Shot with Kodak Portra film."
-آموزش استفاده 👉
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9094
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-90% پرامپتا VIP و بیشتر کانالها بابتش پول میگیرن ، براتون رایگان میزاریم ، استفاده کنین
-</div>
-
-## tasiyanc — post 9093
-
-<div align="center"><video src="files/post_9093_tasiyanc_9093.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9093_tasiyanc_9093.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت VIP 
-🆕
-«پرتره سینمایی با نور گرم کرکره‌ای»
-
-Prompt 
-🤖
-🤖
-اگر پسر هستید جای Woman کلمه Man بزارید
-Close-up portrait of a woman illuminated by soft, warm afternoon light streaming through window blinds, creating striking shadow patterns across her face. She has a natural, glowing complexion with dewy skin and subtly highlighted cheekbones. Her expressive eyes are accented with long lashes and a hint of soft eyeshadow, while her full lips are painted in a soft peach shade. The background features muted teal walls that enhance the warmth of the scene. She wears a dark, pinstriped blazer, adding a touch of elegance. The overall aesthetic is hyperrealistic, capturing intricate details like the texture of her skin and the delicate play of light and shadow, with a color palette of warm neutrals and soft pastels.
-آموزش استفاده 
-👉
-
-@TASIYANC 
-✅
 </div>
 

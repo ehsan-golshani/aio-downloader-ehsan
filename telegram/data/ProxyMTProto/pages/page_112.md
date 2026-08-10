@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/19 22:14
+📅 آخرین بروزرسانی: 1405/05/19 23:22
 
 ---
+
+## ProxyMTProto — post 47773
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: trump.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47772
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: nether.nolags.pw
+Port: 443
+Secret: dd0ed82c381c8fccacbe15605dec874662
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47771
 
@@ -168,24 +186,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: r42.proxytg.space
 Port: 8443
 Secret: eed45e80e76b5cd09e7994e4417a324fa17234322e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 147.45.68.59
-Port: 443
-Secret: eeea62717efcf6c6c3beba94b1f8a4166a766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.21.89
-Port: 443
-Secret: 7sEXmKsAiDG0dAZsnh6_XHBhdml0by5ydQ
 @ProxyMTProto
 </div>
 

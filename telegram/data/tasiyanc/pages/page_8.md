@@ -1,8 +1,85 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/19 22:16
+📅 آخرین بروزرسانی: 1405/05/19 23:24
 
 ---
+
+## tasiyanc — post 8995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠هوش‌های مصنوعی که برای ساخت پروژه‌های نرم‌افزاری کمک می‌کنند 
+👩‍💻
+
+فقط کافیه پروژه رو توضیح بدید، کد رو تولید می‌کنند
+
+
+🔗 replit.com
+
+🔗 bolt.new
+
+🔗 stack.ai
+
+🔗 v0.dev
+
+🔗 cursor.sh
+
+🔗 Lovable.dev
+
+🔗 codeium.com
+
+🔗 tabnine.com
+
+🔗 github.com/features/copilot
+
+مشکلی داشتید برید ChatGpt یا Gemini سایت رو بهش بدید کمکتون میکنه چیکار کنی
+
+
+⚡️@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗡𝗲𝘄_𝗙𝗮𝘀𝘁_𝗠𝘂𝗹𝘁𝗶_𝗹𝗼𝗰𝗮𝘁𝗶𝗼𝗻_⚡️.npvt
+</div>
+
+## tasiyanc — post 8993
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم 
+🖤
+🇮🇷
+
+کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+سرور سرعتی تست شده  لوکیشن هلند، انگلیس ، آمریکا ، هند 
+📍
+
+آموزش اتصال 
+⚡️
+فعالسازی IPV6
+⚡️
+
+اتصال امن برای همه
+
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 8992
+
+<div align="center"><video src="files/post_8992_tasiyanc_8992.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8992_tasiyanc_8992.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #بازی_پولساز 
+⚠️
+
+🔥 بلک کارت جدید ترین بازی معروف جهانی هست که فقط کافیه یکمی باهوش باشی تا حریفات رو شکست بدی 👌🏼
+</div>
 
 ## tasiyanc — post 8991
 
@@ -234,58 +311,5 @@ vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم 😂
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8972
-
-<div align="center"><video src="files/post_8972_tasiyanc_8972.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8972_tasiyanc_8972.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Fast Tekno💥.npvt
-</div>
-
-## tasiyanc — post 8970
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم 
-🖤
-🇮🇷
-
-کانفیگ اختصاصی نامحدود نپسترنت
-📱
-
-سرور سرعتی تست شده  لوکیشن امارات ، لهستان ، انگلیس 
-📍
-
-آموزش اتصال 
-⚡️
-فعالسازی IPV6 
-⚡️
-
-اتصال امن برای همه
-
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 8969
-
-<div align="center"><video src="files/post_8969_tasiyanc_8969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8969_tasiyanc_8969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری، ترامپ: این آخرین فرصت ایران برای توافقه، اگه توافق نشه، جنگ قطعیه.
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر 🖤
 </div>
 
