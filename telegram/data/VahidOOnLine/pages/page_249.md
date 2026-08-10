@@ -1,8 +1,33 @@
 # آرشیو کانال VahidOOnLine - صفحه 249
 
-📅 آخرین بروزرسانی: 1405/05/19 19:34
+📅 آخرین بروزرسانی: 1405/05/19 20:14
 
 ---
+
+## VahidOOnLine — post 248631
+
+<div align="center"><img src="files/post_248631_VahidOOnLine_248631.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امیر حاتمی، فرمانده کل ارتش جمهوری اسلامی، در گفت‌وگو با صداوسیمای جمهوری اسلامی گفت ارتش پس از علی خامنه‌ای «پشت سر مجتبی خامنه‌ای بدون سر سوزنی تردید» حرکت خواهد کرد.
+
+حاتمی همچنین گفت به مجتبی خامنه‌ای قول داده است «یقه کسانی که علی خامنه‌ای را کشتند» رها نخواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248630
+
+<div align="center"><img src="files/post_248630_VahidOOnLine_248630.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمد مخبر، مشاور و دستیار رهبر جمهوری اسلامی، در حاشیه مراسم تشییع علی خامنه‌ای به خبرنگار صداوسیمای جمهوری اسلامی گفت عاملان کشته شدن علی خامنه‌ای «به مرگ طبیعی نخواهند مرد» و نظام از آنها انتقام خواهد گرفت.
+مخبر گفت: «باور نمی‌کردیم روزی بر جنازه او نماز بخوانیم. این شرایط قابل تحمل نیست. قابل تصور نیست که این قاتلان آزادانه روی زمین بگردند. انتقام این خون گرفته خواهد شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248629
 
@@ -294,29 +319,6 @@
 
 اورشلیم‌پست نوشت چندین مقام اسرائیلی اظهار داشتند که تصمیم برای ارسال آتش‌بار گنبد آهنین و موشک‌های رهگیر، پس از تماس تلفنی بنیامین نتانیاهو، نخست‌وزیر اسرائیل، با محمد بن زاید، رییس امارات متحده عربی، گرفته شده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248602
-
-<div align="center"><video src="files/post_248602_VahidOOnLine_248602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248602_VahidOOnLine_248602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که به ایران‌اینترنشنال ارسال شده نشان می‌دهد گروهی از حامیان حکومت در حال پخش نوحه با بلندگو در خیابان‌های تهران و ایجاد مزاحمت شبانه برای مردم هستند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248601
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیا پس از خامنه‌ای، جمهوری اسلامی وارد مرحله‌ای تازه از بازتوزیع قدرت می‌شود؟
-این پادکست بررسی می‌کند که میراث او چگونه می‌تواند هم راه تغییر را باز کند و هم ساختار را امنیتی‌تر و بسته‌تر سازد.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

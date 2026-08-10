@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/05/19 19:37
+📅 آخرین بروزرسانی: 1405/05/19 20:17
 
 ---
+
+## tasiyanc — post 7702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانیا زد 💔
+</div>
 
 ## tasiyanc — post 7701
 
@@ -217,11 +223,5 @@ VIP 🎯 @Tasiyanc.nm
 🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
 
 @Tasiyanc | اتصال امن ✅
-</div>
-
-## tasiyanc — post 7673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آخر اسم چنل کلمه VPN اضافه شد
 </div>
 

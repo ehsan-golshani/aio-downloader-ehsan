@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/19 19:37
+📅 آخرین بروزرسانی: 1405/05/19 20:17
 
 ---
+
+## tasiyanc — post 5722
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده ⛈ 
+
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5721
 
@@ -178,21 +190,5 @@ sv Country 🇬🇧
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [37] SuperStar Servers⚡.npvt
-</div>
-
-## tasiyanc — post 5699
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass @Tasiyanc
-
-
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈5 سرور vip تست شده روی همراه بقیه اپراتورا تست کنن⛈ 
-
-Country: 🇩🇪🇫🇷🇺🇸
-
-🚀 @Tasiyanc ✅
 </div>
 

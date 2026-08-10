@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/05/19 19:34
+📅 آخرین بروزرسانی: 1405/05/19 20:14
 
 ---
+
+## VahidOOnLine — post 251916
+
+<div align="center"><video src="files/post_251916_VahidOOnLine_251916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251916_VahidOOnLine_251916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️عباس عراقچی و سرگئی لاوروف، وزیران خارجه جمهوری اسلامی ایران و روسیه، روز جمعه دوم مرداد ماه، در حاشیه نشست شورای وزیران سازمان همکاری شانگهای در قرقیزستان با یکدیگر دیدار کردند.
+خبرگزاری‌های رسمی ایران تصاویری از این دیدار منتشر کردند، اما جزئیاتی از محتوای گفتگوها منتشر نشد.
+لاوروف یک روز پیش از این دیدار، در حاشیه نشست وزیران خارجه اتحادیه کشورهای جنوب شرق آسیا (آسه‌آن) در مانیل فیلیپین با مارکو روبیو، وزیر خارجه آمریکا دیدار کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251895
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اعتصاب غذا و تحصن زندانیان قزلحصار در اعتراض به اعدام‌ها پنج‌شنبه یکم مرداد، برای یازدهمین روز ادامه یافت. این اعتصاب پس از انتقال شش زندانی محکوم به اعدام به سلول انفرادی آغاز شد و معترضان خواستار توقف اعدام‌ها شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251894
 
@@ -284,28 +308,6 @@ iranintl
 روابط عمومی ارتش در پایان این اطلاعیه هشدار داد: «هر اقدامی در جهت مقابله با منافع مشروع و قانونی ملت و نظام مقدس جمهوری اسلامی ایران، موجبات سلب امنیت و منافع اقتصادی دیگر کشورهای منطقه را نیز فراهم خواهد آورد.»
 
 ساعاتی پیش از این بیانیه، فرماندهی مرکزی ایالات متحده (سنتکام)، اعلام کرده بود،
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251876
-
-<div align="center"><img src="files/post_251876_VahidOOnLine_251876.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری رویترز گزارش داد که صبح جمعه دوم مرداد، آژیرهای هشدار در بحرین به صدا درآمد. این خبر جزئیات بیشتری درباره علت به صدا درآمدن آژیرها منتشر نکرد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251874
-
-<div align="center"><img src="files/post_251874_VahidOOnLine_251874.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️اکبر صالحی، معاون امنیتی و انتظامی استاندار اصفهان، اعلام کرد بامداد جمعه دوم مرداد، منطقه‌ای در شهرستان نایین هدف حمله آمریکا قرار گرفت. به گفته او، این حمله هیچ تلفات جانی در پی نداشت و میزان خسارات احتمالی در دست بررسی است.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

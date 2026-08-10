@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/05/19 19:37
+📅 آخرین بروزرسانی: 1405/05/19 20:17
 
 ---
+
+## tasiyanc — post 5607
+
+<div align="center"><img src="files/post_5607_tasiyanc_5607.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc [02] WiFi ⚡ (1).npvt
+</div>
 
 ## tasiyanc — post 5606
 
@@ -157,17 +165,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc _ وای‌فای.npvt
-</div>
-
-## tasiyanc — post 5577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password @Tasiyanc
-
-🌐 اختصاصی تاسیان 2 سرور تست شده  وای‌فای   🌐
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/19 19:37
+📅 آخرین بروزرسانی: 1405/05/19 20:17
 
 ---
+
+## tasiyanc — post 7440
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل عوض شد --- ❤️
+</div>
 
 ## tasiyanc — post 7438
 
@@ -177,11 +183,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گلللللللللللللللللللل مصرررررر 🇪🇬
-</div>
-
-## tasiyanc — post 7411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیدارید؟
 </div>
 

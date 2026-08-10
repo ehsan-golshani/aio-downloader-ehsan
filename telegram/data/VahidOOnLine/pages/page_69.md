@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/05/19 19:34
+📅 آخرین بروزرسانی: 1405/05/19 20:14
 
 ---
+
+## VahidOOnLine — post 252849
+
+<div align="center"><video src="files/post_252849_VahidOOnLine_252849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252849_VahidOOnLine_252849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت خارجه نیوزیلند در پاسخ به ایران‌اینترنشنال بر مخالفت خود با اعدام و حمایت از حق اعتراض مسالمت‌آمیز در ایران تاکید کرد و استرالیا نیز با محکوم کردن اعدام مخالفان سیاسی از سوی جمهوری اسلامی، خواستار توقف فوری اعدام‌ها شد.
+
+گفت‌وگو با علیرضا محبی، خبرنگار ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252848
+
+<div align="center"><video src="files/post_252848_VahidOOnLine_252848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252848_VahidOOnLine_252848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کتی امیری‌یونسی، وکیل مدنی، درباره اعدام معترضان در ایران از سوی جمهوری اسلامی به ایران‌اینترنشنال گفت نهادهای بین‌المللی حقوق بشری در حال ثبت جنایت‌های جمهوری اسلامی هستند و عاملان این جنایت‌ها باید در آینده پاسخ‌گو شوند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252847
 
@@ -273,32 +301,6 @@
 
 بر اساس گزارش مقام‌های محلی بوشهر، این حملات تلفات جانی در پی نداشته است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252807
-
-<div align="center"><img src="files/post_252807_VahidOOnLine_252807.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ دانشگاه علوم پزشکی هرمزگان، صبح پنجشنبه، هشتم مرداد ماه اعلام کرد، بر اثر حمله آمریکا به «یک منزل مسکونی» در محله چاهتنگو در قشم،‌ سه عضو یک خانواده کشته و دو نفر دیگر زخمی شدند.
-دانشگاه علوم پزشکی هرمزگان اعلام کرد در حمله آمریکا «به یک منزل مسکونی در محله چاه تنگو شهر قشم، پدر و مادر خانواده و یک کودک ۲ ساله به کشته شدند و ۲ فرزند ۷ و ۹ ساله بر اثر این حملات زخمی و به بیمارستان منتقل شدند.»
-به گفته مقام‌های استان هرمزگان، تلاش نیروهای امدادی برای یافتن کودک دیگر این خانواده، ادامه دارد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252806
-
-<div align="center"><video src="files/post_252806_VahidOOnLine_252806.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252806_VahidOOnLine_252806.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرخط خبرهای پنج‌شنبه ۸ مرداد
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

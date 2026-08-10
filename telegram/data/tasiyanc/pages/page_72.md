@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/19 19:37
+📅 آخرین بروزرسانی: 1405/05/19 20:17
 
 ---
+
+## tasiyanc — post 6826
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون بازی شروع شد
+Qatar 🇶🇦 & Switzerland🇨🇭
+</div>
 
 ## tasiyanc — post 6824
 
@@ -220,12 +227,5 @@ Vahid online
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز فروش به احتمال زیاد باز شه ، آیپی ثابتن سرورا 🦦
-</div>
-
-## tasiyanc — post 6798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بخاطر نمک ریختنتون امروز کلا npv نمیزارم 😍
-فقط در صورتی میزارم ک ریکشن قلب بالای ۲۰۰ تا باشه رو پست
 </div>
 

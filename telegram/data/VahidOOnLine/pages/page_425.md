@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 425
 
-📅 آخرین بروزرسانی: 1405/05/19 19:34
+📅 آخرین بروزرسانی: 1405/05/19 20:14
 
 ---
+
+## VahidOOnLine — post 243990
+
+<div align="center"><video src="files/post_243990_VahidOOnLine_243990.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243990_VahidOOnLine_243990.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در پیامی به ایران اینترنشنال گفت که تیم فوتبال جمهوری اسلامی نماینده ملت ایران نیست و نباید برایش در آمریکا ویزا صادر شود. صدای شهروند برای حفظ امنیتش با هوش مصنوعی بازخوانی شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243989
+
+<div align="center"><img src="files/post_243989_VahidOOnLine_243989.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک‌تایمز نوشت: «وزارت جنگ آمریکا سطح ارزیابی تهدید ضدجاسوسی را به بالاترین سطح خود افزایش داده و گفته می‌شود اسرائیل مکالمات مربوط به مذاکرات آمریکا با ایران را شنود کرده است.»
+
+بر اساس گزارش نیویورک‌تایمز، اسرائیل تلاش‌های خود را برای شنود مقام‌های ارشد آمریکایی از جمله استیو ویتکاف و البریج کولبی، معاون وزیر جنگ آمریکا، را افزایش داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243988
 
@@ -252,32 +278,6 @@
 بر اساس گزارش خانواده، ماموران در جریان این عملیات رفتارهای توهین‌آمیز و بی‌احترامی‌های شدیدی نسبت به اعضای خانواده داشته و در مواردی نیز از برخورد فیزیکی استفاده کرده‌اند.
 
 خانواده پارسا تنها از طریق یک تماس تلفنی مطلع شدند که او به زندان مرکزی اصفهان منتقل شده است. با این حال، تاکنون هیچ‌گونه اطلاعات دیگری درباره وضعیت او، دلایل بازداشت یا روند پرونده در اختیار خانواده قرار نگرفته است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243970
-
-<div align="center"><video src="files/post_243970_VahidOOnLine_243970.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243970_VahidOOnLine_243970.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز شنبه در جریان اعتراض دانش‌آموزان یزد در مقابل اداره‌کل آموزش و پرورش این استان تنش صورت گرفت و برخی دانش‌آموزان زخمی شدند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243969
-
-<div align="center"><img src="files/post_243969_VahidOOnLine_243969.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «ما در حال تثبیت یک معادله ایرانی در منطقه هستیم که طی آن، جمهوری اسلامی دیگر در برابر هیچ شرارت و بی‌نظمی خویشتن‌داری نمی‌کند.»
-
-او اضافه کرد: «مقداری برای آمریکایی‌ها درد و خرج دارد اما عادت خواهند کرد.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

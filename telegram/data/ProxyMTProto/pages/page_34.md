@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/05/19 19:35
+📅 آخرین بروزرسانی: 1405/05/19 20:15
 
 ---
+
+## ProxyMTProto — post 49335
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: portal.malevich7.top
+Port: 443
+Secret: eee30148fd4521c39485fba4d59705671a706f7274616c2e6d616c6576696368372e746f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49334
 
@@ -172,15 +181,6 @@ Secret: ee16309abd572d284b309ef26bd7a3f685d0b7d0ba70726f78792e6c6f646b69726d6d2e
 Server: 95.217.193.214
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49315
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: link.freetg.pw
-Port: 443
-Secret: ee4c0aaae1a7ff2d9e33412599353250fb6c696e6b2e6672656574672e7077
 @ProxyMTProto
 </div>
 

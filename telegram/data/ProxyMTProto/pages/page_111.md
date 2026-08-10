@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 111
 
-📅 آخرین بروزرسانی: 1405/05/19 19:35
+📅 آخرین بروزرسانی: 1405/05/19 20:15
 
 ---
+
+## ProxyMTProto — post 47787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: big3.mtproxygram.lol
+Port: 853
+Secret: ee9909e7aa6bc62461a0b60f33af14a68462726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47786
 
@@ -178,14 +187,5 @@ PROXYMTPROTO
 
 💳 Кошелёк → 🎁 Применить промокод ⬇️
 @BlyatNetBot @BlyatNetBot
-</div>
-
-## ProxyMTProto — post 47767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r43.proxytg.space
-Port: 8443
-Secret: ee53e5dc51c0bc1af6f2e26c8462f60f2f7234332e70726f787974672e7370616365
-@ProxyMTProto
 </div>
 

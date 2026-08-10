@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/19 19:37
+📅 آخرین بروزرسانی: 1405/05/19 20:17
 
 ---
+
+## tasiyanc — post 6140
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+vip 🚀🔥 @Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6139
 
@@ -193,11 +199,5 @@ Fast2⚡@Tasiyanc.conf
 
 دانلود برنامه Wg tunnel 🕹
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظرتون رو داخل کامنت بگید
 </div>
 
