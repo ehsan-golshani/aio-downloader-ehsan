@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/19 13:20
+📅 آخرین بروزرسانی: 1405/05/19 14:33
 
 ---
+
+## tasiyanc — post 6629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به یاد فرزندان ایران 🖤 ۱۸ & ۱۹
+</div>
 
 ## tasiyanc — post 6622
 
@@ -172,23 +178,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آمریکا میخواد بزنه تقصیر منه ریکشن نمیزنین؟
-</div>
-
-## tasiyanc — post 6573
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی متد جدید همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-PASSWORD 🔑 : @Tasiyanc
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

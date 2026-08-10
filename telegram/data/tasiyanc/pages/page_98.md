@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/05/19 13:20
+📅 آخرین بروزرسانی: 1405/05/19 14:33
 
 ---
+
+## tasiyanc — post 6077
+
+<div align="center"><img src="files/post_6077_tasiyanc_6077.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠آموزش اتصال با فیلترشکن امن Windscribe 🔐
+
+🔢 با جی‌میل یا ایمیل فیک یه اکانت ایجاد کنین
+
+🔢وارد setting بشین
+Connection →Anti Censorship
+حتما گزینه Protocol Tweaks رو Enable باشه و پایین دو تا گزینه به اسم Iran مشاهده خواهید کرد یکیشو انتخاب کنین
+🔢هر دو پروتکل طبق تستی ک انجام دادم کار کرد برام ، روی همراه اول روی ایرانسل هم کار میده تست شده
+UDP 53 & TCP 80 TCP 8080
+
+دانلود از طریق AppStore 📱
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6076
 
@@ -179,11 +199,5 @@ Hot Servers 🔥🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6047
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نزنه رسانه ای میکنم
 </div>
 
