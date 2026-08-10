@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/05/19 02:50
+📅 آخرین بروزرسانی: 1405/05/19 03:27
 
 ---
+
+## VahidOOnLine — post 251782
+
+<div align="center"><img src="files/post_251782_VahidOOnLine_251782.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی ارتش آمریکا، سنتکام، روز پنجشنبه اول مرداد اعلام کرد که از زمان از سر گیری محاصره دریایی علیه بنادر ایران، نیروهای آمریکایی به ۱۲ کشتی دستور تغییر مسیر داده و یک کشتی را که از این دستور پیروی نکرده، از کار انداخته‌اند.
+
+با برقراری این محاصره دریایی، تمامی شناورهای مرتبط با ایران و شناورهایی که مبداء یا مقصدشان بنادر ایران باشد، اجازه عبور از تنگه هرمز و ورود به آب‌های آزاد را ندارند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251781
+
+<div align="center"><img src="files/post_251781_VahidOOnLine_251781.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی ایالات متحده (سنتکام) پنج‌شنبه اعلام کرد از زمان ازسرگیری محاصره دریایی ایران، ۱۲ کشتی مجبور به تغییر مسیر شده‌اند و یک فروند کشتی از کار انداخته شده است تا از ورود و خروج کشتی‌ها به بنادر ایران یا مناطق ساحلی این کشور جلوگیری شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251780
+
+<div align="center"><img src="files/post_251780_VahidOOnLine_251780.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️مجیدرضا حریری، رئیس هیات مدیره اتاق بازرگانی مشترک ایران و چین، روز پنجشنبه اول مرداد، در شبکه اجتماعی ایکس نوشت مشکلات اقتصادی کشور تا زمانی که تمرکز قدرت در دست «گروه‌های قدرتمند» صاحب نفوذ سیاسی و تمکن اقتصادی باقی بماند، ادامه خواهد داشت.
+
+او تاکید کرد بخش قابل توجهی از تصمیم‌گیری‌های اقتصادی—از جمله بازگشت ارز صادراتی، فعالیت در بازارها و بورس، و بازپرداخت بدهی‌های بانکی—از اختیار دولت‌ها خارج شده و در دست این گروه‌های پرنفوذ قرار گرفته است.
+
+حریری با اشاره به بحران حکمرانی و نبود ثبات در اقتصاد کشور افزود تا زمانی که برخورد جدی با فساد سازمان‌یافته و ساختاری صورت نگیرد، هیچ دولتی قادر به تحقق ثبات اقتصادی نخواهد بود. او همچنین یادآور شد که این نقطه ضعف ساختاری، دقیقا همان بخشی است که «دشمن» نیز بر آن تمرکز می‌کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251779
 
@@ -235,43 +274,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گزارشگرمنوتو: «این وضع منه؛ اسنپ‌فود حقوقم رو نمی‌ده»
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251750
-
-<div align="center"><video src="files/post_251750_VahidOOnLine_251750.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251750_VahidOOnLine_251750.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مروری بر مهم‌ترین خبرهای پنجشنبه ۱ مرداد ۱۴۰۵؛ بر اساس پوشش و گزارش رسانه‌های خبری بین‌المللی درباره ایران و منطقه.
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251749
-
-<div align="center"><img src="files/post_251749_VahidOOnLine_251749.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکسیوس به نقل از دو منبع منطقه‌ای آگاه از تلاش‌های میانجی‌گری گزارش داد که رهبران حکومت ایران، آخرین پیشنهاد ارائه‌شده میانجی‌ها را نپذیرفت.
-
-یکی از آنها به اکسیوس گفت: «ما در حال تلاش هستیم، اما ایرانی‌ها همکاری نمی‌کنند.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251748
-
-<div align="center"><img src="files/post_251748_VahidOOnLine_251748.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ خبرگزاری رکنا گزارش داد که ساعت ۱۸:۵۰ عصر پنجشنبه اول مرداد، یک موشک به نقطه‌ای در ساحل شهر سوزا، در جزیره قشم برخورد کرده است. هنوز گزارشی از تلفات یا خسارات احتمالی این حمله منتشر نشده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
