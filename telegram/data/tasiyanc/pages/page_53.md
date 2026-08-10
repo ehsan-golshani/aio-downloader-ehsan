@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/19 14:33
+📅 آخرین بروزرسانی: 1405/05/19 18:19
 
 ---
+
+## tasiyanc — post 7514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ARABICA ☕⚡️HoT.npvt
+</div>
+
+## tasiyanc — post 7499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپستر 🔥
+
+7 سرور سرعتی ویژه ⚡️
+
+آموزش اتصال ⛓
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7498
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلم جدید تو چنل پروکسی فور شد به دلایلی , خواستید ببینید از اینجا دان کنید
+💘@TasiyanProxy
+</div>
 
 ## tasiyanc — post 7494
 
@@ -166,32 +195,5 @@ ESPRESSO 🔥☕.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز 28 June، روزِ  LGBTQ یا همون همجنسگراست
 بفرست واسه رفیق گِیت🤣
-</div>
-
-## tasiyanc — post 7460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال 
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد حسین میساکی بدون اینکه خندش بگیره خیلی جدی : تیمهای الجزایر و اتریش تبانی کردن 🤣🤣🤣
-</div>
-
-## tasiyanc — post 7458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیگه از بدشانسی زر نزن آقای رامین رضائیان
 </div>
 
