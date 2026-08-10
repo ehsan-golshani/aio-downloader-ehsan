@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/05/19 11:34
+📅 آخرین بروزرسانی: 1405/05/19 13:20
 
 ---
+
+## tasiyanc — post 6681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️سپاه پاسداران:
+اگر امریکا تمام خواسته‌های ما را در سندی که ارائه دادیم بپذیرد، به احتمال زیاد ما این توافق را تایید خواهیم کرد.
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6680
 
@@ -187,12 +195,6 @@ Fotmob iOS
 </div>
 
 ## tasiyanc — post 6658
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطورید رو به راهید؟
-</div>
-
-## tasiyanc — post 6657
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چطورید رو به راهید؟

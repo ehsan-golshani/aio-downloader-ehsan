@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/19 11:34
+📅 آخرین بروزرسانی: 1405/05/19 13:20
 
 ---
+
+## tasiyanc — post 9106
+
+<div align="center"><img src="files/post_9106_tasiyanc_9106.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید 🆕
+
+Prompt 🤖🤖
+
+fashion editorial photography, front shot, upper body, professional female model, shot with hasselblad x2d 100c, xcd 90mm f/2.5 lens, cinematic sepia color grading with golden hour warmth, dramatic black silhouette against burnt umber to honey amber gradient backdrop, avant-garde composition with tilted head pose, staring to camera, profound gaze, elongated body stance, flowing black turtleneck, professional main fresnel light at 60 degree angle with silk diffusion, rim light with cto gel at 75 degree angle, haze machine for ethereal atmosphere, feathered shadows, contrast curve manipulation, selective dodge and burn, grain texture overlay, color temperature adjustment at 5500k to 3200k gradient, ultra sharp details, raw format, inspired by paolo roversi lighting technique, hyper realistic, 16K, rich detail --ar 9:16 --quality 2 --style raw --personalize nq7rq2j --stylize 500 --v 6.1
+
+آموزش استفاده 👉
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9105
 
@@ -237,20 +253,5 @@ Prompt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گزارش از وضعیت اینترنت خطوط همراه ، ایرانسل بدید عشقا
-</div>
-
-## tasiyanc — post 9083
-
-<div align="center"><video src="files/post_9083_tasiyanc_9083.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9083_tasiyanc_9083.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مورگان فریمن ستاره هالیوود : من زرتشتی هستم !!
-
-🤴 دین زرتشت یکی از کهن‌ترین آیین‌های توحیدی جهان است که در ایران باستان ظهور کرد و پایه‌گذار آن «اشوزرتشت» پیامبر بزرگ ایرانی بود و اصول بنیاد آن پرستش خدای یکتا ( اهورا مزدا) بود ، ایرانیان ۳۵۰۰ سال پیش با پیروی از دین زرتشت از اولین یکتا پرستان جهان بودند !!
-
-@TASIYANC 
-✅
 </div>
 

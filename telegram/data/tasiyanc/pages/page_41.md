@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/19 11:34
+📅 آخرین بروزرسانی: 1405/05/19 13:20
 
 ---
+
+## tasiyanc — post 7988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هم اکنون حملات آمریکا پایان یافت ، حملات سپاه به سمت کویت ، بحرین آغاز شد
+@TasiyanC ⭐️
+</div>
 
 ## tasiyanc — post 7987
 
@@ -235,18 +242,5 @@ Speed Fast ⚡ 🇩🇪.npvt
 اصفهان:
 
 @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 7938
-
-<div align="center"><img src="files/post_7938_tasiyanc_7938.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با این پرامپت بچگیتو در آغوش بگیر 👼
-از اون پرامپت‌های وایرال شده و به شدت جذابه ..
-
-Take a photo taken with a Polaroid camera. The photo should look like an ordinary photograph, without an explicit subject or property. The photo should have a slight blur and consistent light source, like a flash from a dark room, scattered throughout the photo.Don't change the face.
-Change the background behind those two people with white curtains. With hugging me.
-@Tasiyanc ⭐️
 </div>
 

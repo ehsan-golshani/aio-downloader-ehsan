@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/19 11:34
+📅 آخرین بروزرسانی: 1405/05/19 13:20
 
 ---
+
+## tasiyanc — post 9153
+
+<div align="center"><img src="files/post_9153_tasiyanc_9153.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌎هر کشور سازنده چه چیزی است؟
+فقط ایران ››››
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9152
 
@@ -41,8 +52,6 @@ ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.167:443#%40Tasiyanc
 </div>
 
 ## tasiyanc — post 9150
-
-<div align="center"><a href="files/post_9150_app (7).apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app (7).apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚠️ #پیشنهاد_ویژه ⚠️
@@ -228,15 +237,5 @@ g18
 لینک چنل
 https://t.me/+_btGj-rRAxs3NGVk
 https://t.me/+_btGj-rRAxs3NGVk
-</div>
-
-## tasiyanc — post 9129
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️دادسرای جنایی تهران :
-
-ساعاتی پیش جنازه حمیدرضا رجب‌زاده(مداح) اطراف تهران کشف شد،جنازه رجب‌‌زاده توسط قاتلین تکه تکه شده و سپس سوخته.
-
-🌎 @Tasiyanc
 </div>
 
