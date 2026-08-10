@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/19 20:17
+📅 آخرین بروزرسانی: 1405/05/19 22:16
 
 ---
+
+## tasiyanc — post 8484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt
+</div>
 
 ## tasiyanc — post 8483
 
@@ -186,14 +192,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویس علی دایی در مورد باخت آرژانتین 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8461
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ میخواست با بازیکنا اسپانیا قهرمانیو جشن بگیره که رئیس فیفا اومد بهش گفت مشتی بیا اینور 😂😂😂😂😂
 
 @TASIYANC ✅
 </div>

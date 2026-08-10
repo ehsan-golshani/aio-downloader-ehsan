@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/05/19 20:17
+📅 آخرین بروزرسانی: 1405/05/19 22:16
 
 ---
+
+## tasiyanc — post 6088
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرمیوم سرعتی ⚡.npvt
+</div>
 
 ## tasiyanc — post 6087
 
@@ -206,14 +212,5 @@ Hot Servers 🔥🌶️.npvt
 چون شما مثل خانواده من هستید و من اجازه نمیدم هیچکس هیچکس به خانواده عزیز من توهین بکنه
 
 دوستتون دارم❤️
-</div>
-
-## tasiyanc — post 6056
-
-<div align="center"><img src="files/post_6056_tasiyanc_6056.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife
-اوبی کونی پدر با من در میوفتی🤣
 </div>
 

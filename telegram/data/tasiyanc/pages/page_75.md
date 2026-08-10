@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/19 20:17
+📅 آخرین بروزرسانی: 1405/05/19 22:16
 
 ---
+
+## tasiyanc — post 6718
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+INFERNO ⚡ vip.npvt
+</div>
 
 ## tasiyanc — post 6717
 
@@ -175,11 +181,5 @@ vless://da48859d-edf9-4a8c-a026-80910591f284@151.101.1.164:80?mode=auto&path=%2F
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اخبار داغ و پروکسی های تاسیان ( حمایت کنین )
 https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6691
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Rend ⚡ (1).npvt
 </div>
 

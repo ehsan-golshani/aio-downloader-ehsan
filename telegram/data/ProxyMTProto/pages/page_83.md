@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/05/19 21:27
+📅 آخرین بروزرسانی: 1405/05/19 22:14
 
 ---
+
+## ProxyMTProto — post 48351
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 103.161.35.23
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.garden-troll.life
+Port: 443
+Secret: eea3dc3cf5e6fb44c1e2f2cdd3e9bf9acb666173742e67617264656e2d74726f6c6c2e6c696665
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48349
 
@@ -163,24 +181,6 @@ Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
 Server: edge.rknwatch.digital
 Port: 443
 Secret: ee9e8767a28148936ae7e50eb9b0689a49656467652e726b6e77617463682e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48331
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: go.antitspu.com
-Port: 443
-Secret: ee0d12d8f206a08b06eced9a104734a824676f2e616e7469747370752e636f6d
 @ProxyMTProto
 </div>
 

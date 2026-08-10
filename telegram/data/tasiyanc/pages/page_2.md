@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/19 20:17
+📅 آخرین بروزرسانی: 1405/05/19 22:16
 
 ---
+
+## tasiyanc — post 9140
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 یه نفت کش تو تنگه هرمز میخواست راهشو کج کنه از مسیر آمریکا (عمان) رد شه که با ۴ موشک مورد اصابت قرار گرفت
+</div>
 
 ## tasiyanc — post 9139
 
@@ -277,30 +283,5 @@ Join As @TASIYANC ✅
 r18
 🎁کد هدیه ثبت نام Melbet90 ✌️
 ✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9117
-
-<div align="center"><img src="files/post_9117_tasiyanc_9117.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-r18
-✔ https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

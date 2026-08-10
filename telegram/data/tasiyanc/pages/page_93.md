@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/05/19 20:17
+📅 آخرین بروزرسانی: 1405/05/19 22:16
 
 ---
+
+## tasiyanc — post 6218
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگ میشه یا آتش بس برقراره؟
+</div>
 
 ## tasiyanc — post 6217
 
@@ -175,13 +181,5 @@ SuperFast @Tasiyanc 🪐⚡.npvt
 
 🦁  @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-2سرور  سرعتی تست شده 🚀
-@Tasiyanc ✅
 </div>
 

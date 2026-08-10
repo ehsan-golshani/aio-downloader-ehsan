@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/19 20:17
+📅 آخرین بروزرسانی: 1405/05/19 22:16
 
 ---
+
+## tasiyanc — post 7560
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️⁰⁷@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 7553
 
@@ -240,22 +246,5 @@ Password :  @Tasiyanc ❤️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇦🇪@Tasiyanc ⚡️.nm
-</div>
-
-## tasiyanc — post 7520
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 کانفیگ اختصاصی نت مود 🚀
-
-4 سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-دانلود برنامه 🕹
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 

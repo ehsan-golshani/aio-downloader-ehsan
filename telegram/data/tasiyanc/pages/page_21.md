@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/19 20:17
+📅 آخرین بروزرسانی: 1405/05/19 22:16
 
 ---
+
+## tasiyanc — post 8642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سپاه :
+در بیست‌وهفتمین موج عملیات «نصر ۲»، ساختمان باقی‌ماندهٔ مرکز داده شرکت آمازون که برای پشتیبانی از اطلاعات و عملیات اطلاعاتی ارتش آمریکا مورد استفاده قرار می‌گرفت، هدف قرار گرفت و منهدم شد.
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8640
 
@@ -229,19 +237,5 @@ Fact @TASIYANC ✅
 تلمبه اسراییل به جنوب لبنان
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8610
-
-<div align="center"><video src="files/post_8610_tasiyanc_8610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8610_tasiyanc_8610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺عجیب ترین زبان جهان 🌍
-
-قبیلهٔ Kawelka در ارتفاعات پاپوا گینهٔ نو به سبک بیان پرقدرت و پرهیجانشان شناخته میشوند. گفتارشان برای بسیاری از غریبه ها شبیه فریاد یا مشاجره به نظر میرسد
-حتی وقتی فاصلهای بین افراد نیست.
-Fact @TASIYANC ✅
 </div>
 

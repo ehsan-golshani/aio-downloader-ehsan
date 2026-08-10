@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/19 20:17
+📅 آخرین بروزرسانی: 1405/05/19 22:16
 
 ---
+
+## tasiyanc — post 7040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+2 سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7039
 
@@ -206,12 +222,6 @@ matador ⚡ Fast.npvt
 </div>
 
 ## tasiyanc — post 6991
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥⚡Tasiyanc.dark
-</div>
-
-## tasiyanc — post 6990
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥⚡Tasiyanc.dark

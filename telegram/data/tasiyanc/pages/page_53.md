@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/19 20:17
+📅 آخرین بروزرسانی: 1405/05/19 22:16
 
 ---
+
+## tasiyanc — post 7520
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+4 سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7519
 
@@ -201,12 +218,6 @@ ESPRESSO 🔥☕.npvt
 </div>
 
 ## tasiyanc — post 7477
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌هم اکنون شلیک موشک از ایران به سمت اردن
-</div>
-
-## tasiyanc — post 7476
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ❌هم اکنون شلیک موشک از ایران به سمت اردن

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/19 21:27
+📅 آخرین بروزرسانی: 1405/05/19 22:14
 
 ---
+
+## ProxyMTProto — post 49500
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: f1.car-race.co.uk
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtproto.workingproxy.xyz
+Port: 443
+Secret: dd28d1629617423db1e80a7b4a00de6032
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49498
 
@@ -151,24 +169,6 @@ Secret: ee2566052eb7f98d9601ca0b656f9032177365637572652e676f72627573686b696e2e63
 </div>
 
 ## ProxyMTProto — post 49480
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49479
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: login.veltura.digital
-Port: 443
-Secret: ee48a0b26b638c58ad97859fba41e9c21a6c6f67696e2e76656c747572612e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49478
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown

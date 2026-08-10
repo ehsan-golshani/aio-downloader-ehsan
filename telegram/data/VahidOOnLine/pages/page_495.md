@@ -1,8 +1,50 @@
 # آرشیو کانال VahidOOnLine - صفحه 495
 
-📅 آخرین بروزرسانی: 1405/05/19 21:27
+📅 آخرین بروزرسانی: 1405/05/19 22:13
 
 ---
+
+## VahidOOnLine — post 242118
+
+<div align="center"><img src="files/post_242118_VahidOOnLine_242118.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ در تروث سوشال نوشت مذاکرات با جمهوری اسلامی به‌خوبی در حال پیشرفت است. یا توافقی بزرگ برای همه خواهد بود، یا اصلا توافقی در کار نخواهد بود؛ در غیر این صورت بازگشت به میدان نبرد و تیراندازی در ابعادی بزرگ‌تر و قدرتمندتر از قبل رخ خواهد داد، و هیچ‌کس این را نمی‌خواهد.»
+
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242117
+
+<div align="center"><img src="files/post_242117_VahidOOnLine_242117.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری رویترز، روز دوشنبه چهارم خرداد به نقل از یک منبع آگاه گزارش کرد محمدباقر قالیباف، رئیس مجلس شورای اسلامی و مذاکره‌کننده ارشد جمهوری اسلامی به همراه عباس عراقچی برای مذاکره با نخست‌وزیر قطر در مورد توافق احتمالی ایران و آمریکا با هدف پایان دادن به جنگ، به دوحه سفر کرده‌اند.
+
+این مقام که نامش فاش نشده به رویترز گفت که «مذاکرات عمدتا بر تنگه هرمز و ذخایر اورانیوم غنی‌شده با خلوص بالا متمرکز است.»
+
+به گزارش رویترز،عبدالناصر همتی، رئیس بانک مرکزی ایران نیز عضو هیئتی است که قرار است در مورد آزادسازی احتمالی دارایی‌های مسدود شده ایران به عنوان بخشی از توافق نهایی با مقام‌های قطری گفتگو کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242116
+
+<div align="center"><img src="files/post_242116_VahidOOnLine_242116.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رویترز به نقل از یک مقام آگاه گزارش داد محمدباقر قالیباف و عباس عراقچی برای دیدار با نخست‌وزیر قطر، در خصوص توافق احتمالی میان جمهوری اسلامی و آمریکا، وارد دوحه شده‌اند.
+
+پیش‌تر رسانه‌های ایران از سفر عبدالناصر همتی، رییس کل بانک مرکزی به قطر خبر داده بودند.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242115
 
@@ -252,53 +294,6 @@ iranintl
 
 او ادامه داد: «قوه قضاییه آماده است بیش از گذشته با مجلس و نمایندگان آن، همکاری و مساعدت داشته باشد.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242097
-
-<div align="center"><video src="files/post_242097_VahidOOnLine_242097.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_242097_VahidOOnLine_242097.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گفت‌وگو درباره اعتراضات خارج از کشور:
-« چه رفتارهایی به همبستگی و رساندن پیام مردم ایران کمک می‌کند؟»
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242096
-
-<div align="center"><img src="files/post_242096_VahidOOnLine_242096.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مهدی خراطیان، تحلیلگر نزدیک به نهادهای امنیتی جمهوری اسلامی گفت: «رهبر انقلاب بر اساس پروتکل‌های پیچیده امنیتی، مدام جابه‌جا می‌شد و برای برگزاری جلسات به دفتر خود مراجعه می‌کرد. محل اقامت او نیز به‌طور مداوم تغییر می‌کرد و من کشته شدن او را جز در نتیجه نفوذ، به شکل دیگری قابل تفسیر نمی‌دانم.»
-
-او افزود موساد فرصتی برای کشتن علی خامنه‌ای به دست آورد.
-
-دفتر خامنه‌ای در نخستین ساعات آغاز جنگ میان جمهوری اسلامی، آمریکا و اسرائیل در ۹ اسفند ۱۴۰۴ هدف حمله موشکی قرار گرفت.
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242095
-
-<div align="center"><video src="files/post_242095_VahidOOnLine_242095.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_242095_VahidOOnLine_242095.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ «جمعیت اندک در تجمع شبانه حامیان حکومت در اهواز»
-
-♦️یکی از مخاطبان ایندیپندنت فارسی ویدیویی را از جمعیت اندک در تجمع شبانه حامیان جمهوری اسلامی در پارک داریوش اهواز ارسال کرده است.
-این شهروند که ویدیو را از خودرو و در حال حرکت گرفته است در پایان شعار «جاوید شاه» سر می‌دهد.
-از دومین روز حملات آمریکا و اسرائیل به جمهوری اسلامی، هواداران حکومت هر شب در مکان‌های تعیین شده در شهرها و روستاها تجمع برگزار می‌کنند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
