@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/19 02:22
+📅 آخرین بروزرسانی: 1405/05/19 06:02
 
 ---
+
+## tasiyanc — post 6540
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سریا هنوزم دارن آیپی شیرخورشید میفرستن تو چنلاشون 😐🤣 خدایا بکش منو
+پ ن : سایفون و شیرخورشید همیجوریشم کار میدن الان
+</div>
 
 ## tasiyanc — post 6539
 
@@ -198,11 +205,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
 </div>
 

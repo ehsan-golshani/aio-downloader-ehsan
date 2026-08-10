@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/19 02:22
+📅 آخرین بروزرسانی: 1405/05/19 06:02
 
 ---
+
+## tasiyanc — post 9099
+
+<div align="center"><img src="files/post_9099_tasiyanc_9099.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت Vip جدید 🆕
+
+Prompt 🤖🤖
+عکس دخترانه هم میشه بدید
+A person with slicked-back dark hair wearing oversized square sunglasses is shown in a dramatic, cinematic portrait. The lighting creates a strong shadow across the face, revealing only part of the skin tone and features, while the background is a vibrant gradient of deep red to orange, forming a glowing circular or sun-like halo effect behind the head. The clothing is dark, almost blending into the shadows, giving the portrait a bold, fashion-editorial, and futuristic mood.
+آموزش استفاده 👉
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9098
 
@@ -285,28 +300,5 @@ https://t.me/+5fvta-uF4QA3ZDY0
 g16
 https://t.me/+5fvta-uF4QA3ZDY0
 https://t.me/+5fvta-uF4QA3ZDY0
-</div>
-
-## tasiyanc — post 9077
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت
-📱
-
-•10 سرور سرعتی تست شده تمام اپراتور ها 
-⚡️
-
-• لوکیشن 🇩🇪 - 🇦🇿 - 🇺🇸
-
-•آموزش اتصال 
-⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 
-🇮🇷
-
-
-✅ @TASIYANC
 </div>
 

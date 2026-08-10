@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/19 02:22
+📅 آخرین بروزرسانی: 1405/05/19 06:02
 
 ---
+
+## tasiyanc — post 8786
+
+<div align="center"><video src="files/post_8786_tasiyanc_8786.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8786_tasiyanc_8786.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴انتقال اجساد حشدالشعبی
+
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8785
 
@@ -221,14 +235,5 @@
 🔴 پژمان بهروزی، شرکت کننده برنامه ایدز ابدی، اومده تو برنامه خط قرمز صداوسیما برا ایرانیا از وطن پرستی بگه
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8759
-
-<div align="center"><img src="files/post_8759_tasiyanc_8759.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانی بودنم سخته ، اداره برق نه تنها برقو قطع می‌کنه ، بعدش میاد یه اپ معرفی می‌کنه پول میگیره میگه کی برقتون قطع میشه
-@Tasiyanc ⭐️
 </div>
 

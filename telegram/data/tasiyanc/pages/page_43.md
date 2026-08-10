@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/19 02:22
+📅 آخرین بروزرسانی: 1405/05/19 06:02
 
 ---
+
+## tasiyanc — post 7893
+
+<div align="center"><img src="files/post_7893_tasiyanc_7893.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نقش پدر در زندگی:
+
+روح تمام پدر های آسمانی شاد🖤
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7892
 
@@ -278,19 +290,5 @@
 
 آدرس پابلیک
 @Tasiyanc
-</div>
-
-## tasiyanc — post 7843
-
-<div align="center"><video src="files/post_7843_tasiyanc_7843.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7843_tasiyanc_7843.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریافت کانفیگ نت مود مخصوص شرایط اضطراری پر سرعت ( برای گیم و دانلود و اینستاگرام)
-
-
-👈 دریافت کانفیگ ها 
-👉
 </div>
 
