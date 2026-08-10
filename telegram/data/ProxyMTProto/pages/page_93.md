@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/05/19 14:32
+📅 آخرین بروزرسانی: 1405/05/19 15:32
 
 ---
+
+## ProxyMTProto — post 48138
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Iran.mother.ir.jetish.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 185.44.253.46
+Port: 20598
+Secret: 870cd7d91c727fc7d9687a8fedd8c23d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48136
 
@@ -163,24 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: hub.proxyvpn.site
 Port: 443
 Secret: ee7f6d6d39e09f3578784d72946dae50cc6875622e70726f787976706e2e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48118
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: For.dear-iranian-people.com.heazshddd.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: get.proxyz.site
-Port: 443
-Secret: ee8bfeb37ebe59a0f6aed1ccae9b9981566765742e70726f78797a2e73697465
 @ProxyMTProto
 </div>
 
