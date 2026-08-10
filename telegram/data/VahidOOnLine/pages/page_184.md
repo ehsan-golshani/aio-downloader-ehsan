@@ -1,8 +1,48 @@
 # آرشیو کانال VahidOOnLine - صفحه 184
 
-📅 آخرین بروزرسانی: 1405/05/20 01:45
+📅 آخرین بروزرسانی: 1405/05/20 02:35
 
 ---
+
+## VahidOOnLine — post 250228
+
+<div align="center"><img src="files/post_250228_VahidOOnLine_250228.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سنتکام اعلام کرد نیروهای فرماندهی مرکزی آمریکا، ظهر دوشنبه به وقت ایران، موجی از حملات را علیه جمهوری اسلامی آغاز کردند.
+
+به گفته سنتکام این حملات به منظور تضعیف بیشتر قابلیت‌های نظامی نیروهای ایرانی برای حمله به کشتی‌های تجاری در تنگه هرمز طراحی شده‌اند.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250227
+
+<div align="center"><video src="files/post_250227_VahidOOnLine_250227.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250227_VahidOOnLine_250227.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدجواد اکبرین، عضو تحریریه ایران‌اینترنشنال، در واکنش به پیام‌های سپاه خطاب به مردم اردن و کویت، که از آن‌ها خواسته موسسات آمریکایی را در کشورشان تخریب کنند، گفت این اقدام را روح‌الله خمینی نیز انجام می‌داد و به گفته برخی، این رفتار در آغاز جنگ با عراق تاثیر داشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250226
+
+<div align="center"><video src="files/post_250226_VahidOOnLine_250226.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250226_VahidOOnLine_250226.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال در واکنش به اظهارات ترامپ درباره حمله زمینی و هدف قرار دادن زیرساخت‌های ایران گفت اگر هدف، خلع سلاح گسترده جمهوری اسلامی باشد، عملیات نظامی باید هفته‌ها ادامه یابد؛ در غیر این صورت، این تهدیدها با هدف وادار کردن تهران به مذاکره است
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250225
 
@@ -265,50 +305,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس گزارش و ویدیوی ارسالی به ایران اینترنشنال، حدود ساعت ۵:۲۶ بامداد چهارشنبه ۲۴ تیر، انفجار شدیدی در سایت موشکی فاز ۴ سربندر رخ داد. در این گزارش آمده است که پس از انفجار، دود سفیدی در محل مشاهده شد که ماهیت آن مشخص نیست. ویدیوی ارسالی دقایقی پس از انفجار ضبط شده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250208
-
-<div align="center"><img src="files/post_250208_VahidOOnLine_250208.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری قوه قضائیه جمهوری اسلامی صبح چهارشنبه ۲۴ تیرماه از اعدام  محمد امینی دهاقانی، یکی از معترضان انقلاب ملی ایرانیان خبر داد.
-
-میزان نوشته است محمد امینی دهاقانی به جرم پرتاب کوکتل مولوتوف به‌سوی ساختمان کلانتری و فرمانداری شهرستان دهاقان استان اصفهان در جریان اعتراضات ۱۹ دی‌ماه به اعدام محکوم شده بود و حکم وی بامداد امروز و پس از تائید دیوان عالی کشور اجرا شد.
-
-شورای حقوق بشر سازمان ملل متحد می‌گوید از دی‌ماه سال ۱۴۰۴ تاکنون دست‌کم ۱۵۶ نفر در ایران اعدام شده‌اند. به گفته همین نهاد حداقل ۲۰ نفر به جرم شرکت در اعتراضات اعدام شده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250207
-
-<div align="center"><img src="files/post_250207_VahidOOnLine_250207.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منوچهر متکی، نماینده تهران در مجلس، در یک برنامه تلویزیونی اعلام کرد پایگاه‌هایی در منطقه که از آن به خاک ایران حمله می‌شود، «اهداف مشروع» هستند و باید یکی از آنها از سوی جمهوری اسلامی تصرف شود.
-
-نماینده تهران در مجلس گفت: «باید به صورت زمینی به پایگاه‌های نظامی آمریکا در منطقه حمله و آنها را تصرف کنیم و هزاران سرباز آمریکایی اسیر بگیریم و به ایران بیاوریم.»
-
-او افزود: «ما باید حمله زمینی را آغاز کنیم، چیزی که آمریکایی‌ها مدت‌ها تهدید کردند اما جرات اقدام نداشتند.»
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250206
-
-<div align="center"><video src="files/post_250206_VahidOOnLine_250206.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250206_VahidOOnLine_250206.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال، نشان می‌دهد که بامداد ۲۴ تیر، یک فروند موشک از تبریز پرتاب شد. جزئیات بیشتری درباره محل دقیق پرتاب یا مقصد احتمالی آن منتشر نشده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
