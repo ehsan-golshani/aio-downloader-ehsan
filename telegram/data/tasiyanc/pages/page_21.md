@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/19 23:24
+📅 آخرین بروزرسانی: 1405/05/20 00:06
 
 ---
+
+## tasiyanc — post 8651
+
+<div align="center"><video src="files/post_8651_tasiyanc_8651.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8651_tasiyanc_8651.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹یادی کنیم از عملیات « شوک وحشت» آمریکا در سال ۲۰۰۳ علیه رژیم صدام
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8650
 
@@ -233,19 +245,5 @@ Fact @TASIYANC ✅
 اگر این نظریه درست باشد، تمام لحظاتی که در کارتون میبینیم، در واقع روح دختر بچه ای تنها بود که برای آرام کردن خرسی که از کشته شدن نا خواسته اش عذاب وجدان داشت با اون دوست شده بود 💔
 
 Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8616
-
-<div align="center"><video src="files/post_8616_tasiyanc_8616.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8616_tasiyanc_8616.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ویدیویی شگفت انگیز از تهران قدیم ۱۰۰ سال قبل سال 1306 شمسی
-صدای ویدیو را باز کنید
-
-یکی از معتبرترین تصاویر تهران قدیم است که توسط فردریک گادامر، فیلمبردار فرانسوی در تهران ضبط شده است. در این ویدیو، تصاویری از کوچه‌ها و بازار تهران را میبینید. ویدیو را تا پایان تماشا کنید و بنویسید که تصویر آخر در کدام خیابان تهران ضبط شده است؟
-FACT @TASIYANC 💠
 </div>
 

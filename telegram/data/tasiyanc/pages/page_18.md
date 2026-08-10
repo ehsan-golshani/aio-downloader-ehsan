@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/19 23:24
+📅 آخرین بروزرسانی: 1405/05/20 00:06
 
 ---
+
+## tasiyanc — post 8729
+
+<div align="center"><img src="files/post_8729_tasiyanc_8729.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 کشورایی که سالانه بیشترین میانگین توریست رو دارن
+
+@TASIYANC 💠
+</div>
 
 ## tasiyanc — post 8728
 
@@ -216,18 +226,6 @@
 وطن‌پرستی؛ شفا نمی‌دهد ، شرافت میدهد 🏠
 
 📍آرامگاه کوروش بزرگ 💪
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8702
-
-<div align="center"><video src="files/post_8702_tasiyanc_8702.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8702_tasiyanc_8702.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تلاش های بی بی نتانیاهو برای جلوگیری از توافق 😂 :
 
 @TASIYANC ✅
 </div>

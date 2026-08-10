@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/05/19 23:24
+📅 آخرین بروزرسانی: 1405/05/20 00:06
 
 ---
+
+## tasiyanc — post 6097
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Vip SamanTel ⚡.npvt
+</div>
 
 ## tasiyanc — post 6096
 
@@ -184,13 +190,5 @@ FastVip⚡.npvt
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6069
-
-<div align="center"><img src="files/post_6069_tasiyanc_6069.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FastVip⚡.npvt
 </div>
 

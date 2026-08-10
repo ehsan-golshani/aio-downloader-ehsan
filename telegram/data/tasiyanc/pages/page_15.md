@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/19 23:24
+📅 آخرین بروزرسانی: 1405/05/20 00:06
 
 ---
+
+## tasiyanc — post 8808
+
+<div align="center"><video src="files/post_8808_tasiyanc_8808.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8808_tasiyanc_8808.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر وقت ایرانیا فهمیدن عادل فرقی با میساکی نداره بازیو بردن
+</div>
 
 ## tasiyanc — post 8807
 
@@ -246,11 +256,5 @@ Multi Location ⚡
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر گلای توی خونه
 </div>
 

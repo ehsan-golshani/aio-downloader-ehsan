@@ -1,12 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/19 23:24
+📅 آخرین بروزرسانی: 1405/05/20 00:06
 
 ---
 
-## tasiyanc — post 9167
+## tasiyanc — post 9168
 
-<div align="center"><a href="files/post_9167_⚡️@Tasiyanc ⚡️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡️@Tasiyanc ⚡️.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸اظهارات ترامپ درباره ایران برای بار انم:
+
+همانطور که احتمالاً شنیده‌اید، ما تمام تنگه را پاکسازی مین کرده‌ایم. شاید شما این را نشنیده باشید.
+
+ما کنترل ۱۰۰ درصدی این تنگه را در اختیار داریم.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9167
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 •کانفیگ اختصاصی نامحدود نپسترنت📱
@@ -25,8 +35,6 @@
 </div>
 
 ## tasiyanc — post 9166
-
-<div align="center"><a href="files/post_9166_melbet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 melbet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇩🇪آپ اندروید سایت جهانی Melbet💥
@@ -309,23 +317,5 @@ ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.167:443#%40Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختلال شکن 🌱.npvt
-</div>
-
-## tasiyanc — post 9145
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن Turkey📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 
