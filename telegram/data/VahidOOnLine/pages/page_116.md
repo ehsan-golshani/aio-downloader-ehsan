@@ -1,8 +1,82 @@
 # آرشیو کانال VahidOOnLine - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/05/20 00:03
+📅 آخرین بروزرسانی: 1405/05/20 00:58
 
 ---
+
+## VahidOOnLine — post 251700
+
+<div align="center"><video src="files/post_251700_VahidOOnLine_251700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251700_VahidOOnLine_251700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الی کوهن، وزیر انرژی و زیرساخت‌های اسرائیل در گفت‌وگو با رادیو ۱۰۳ اف‌ام گفت اسرائیل برای هر سناریوی احتمالی آماده است و هشدار داد در صورت حمله جمهوری اسلامی به اسرائیل، با پاسخی قاطع و قدرتمند روبه‌رو خواهد شد.
+
+گفت‌وگو با بابک اسحاقی، خبرنگار ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251699
+
+<div align="center"><video src="files/post_251699_VahidOOnLine_251699.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251699_VahidOOnLine_251699.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در یک برنامه زنده تلویزیونی، امیرحسین ثابتی، نماینده جبهه پایداری در مجلس شورای اسلامی، و محمدمهدی شهریاری، عضو کمیسیون امنیت ملی مجلس، درباره وضعیت تنگه هرمز به‌شدت با یکدیگر بحث کردند. در این برنامه، شهریاری از نمایندگان تندرو مجلس خواست دست از سر تنگه هرمز بردارند.
+
+گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251698
+
+<div align="center"><video src="files/post_251698_VahidOOnLine_251698.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251698_VahidOOnLine_251698.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود فرهیخته، معلم زندانی و فعال صنفی، برای هفتمین بار از زندان مرکزی کرج به مکانی نامعلوم منتقل شده است. شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران گزارش داد این انتقال در حالی انجام شده که او سه روز پیش، پس از ۲۰ روز حبس در سلول انفرادی، به بند عمومی بازگشته بود.
+
+گفت‌‌وگو با اسماعیل عبدی، فعال صنفی معلمان
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251697
+
+<div align="center"><video src="files/post_251697_VahidOOnLine_251697.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251697_VahidOOnLine_251697.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️مسعود پزشکیان، روز پنجشنبه اول مهر ماه، در مراسمی رسمی در تهران، از علی فالح الزیدی، نخست وزیر عراق استقبال کرد.
+سخنگوی دولت عراق، پیشتر اعلام کرده بود که الزایدی به دعوت پزشکیان و برای گفتگو درباره «همکاری‌های گازی و بررسی تحولات منطقه‌ای در راستای منافع ملی عراق» به تهران سفر می‌کند.
+
+فالح الزیدی، روز ۲۳ تیرماه نیز در سفری رسمی به واشنگتن با دونالد ترامپ، رئیس جمهوری آمریکا دیدار کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251696
+
+<div align="center"><img src="files/post_251696_VahidOOnLine_251696.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ابوالفضل ابوترابی، نماینده مجلس، گفت دولت مسعود پزشکیان با ارسال ۲۸ نامه به مجتبی خامنه‌ای، رهبر جمهوری اسلامی، برای مذاکره اصرار کرده و او را «تهدید» کرده است.
+ابوترابی گفت قالیباف و پزشکیان در «تله مذاکره» افتادند و افزود: «باید به عقل هر کسی که الان حرف از مذاکره می‌زند، شک کرد.»
+او همچنین گفت اگر جمهوری اسلامی «دو هفته دیگر جنگ را تحمل می‌کرد»، آمریکا و دونالد ترامپ، رییس‌جمهوری آمریکا، پیش از آغاز مذاکرات «همه خواسته‌های» جمهوری اسلامی را می‌پذیرفتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251695
 
@@ -217,78 +291,6 @@
 مارکو روبیو، وزیر خارجه آمریکا، گفت جمهوری اسلامی به‌وضوح برای دستیابی به توافقی که به آن پایبند بماند آماده نیست و آمریکا با حملات شبانه، هزینه اقدامات جمهوری اسلامی را هر شب افزایش می‌دهد تا زمانی که رویکرد خود را تغییر دهد.
 او در حاشیه نشست آسه‌آن در مانیل گفت مقام‌های جمهوری اسلامی هر توافقی را نقض می‌کنند یا پس از امضای آن، به‌دنبال تغییر مفادش هستند و این نشان می‌دهد برای رسیدن به توافق آمادگی ندارند. او گفت: «آنها به‌زودی آماده توافق خواهند شد، زیرا هزینه‌ای که می‌پردازند بسیار بالا است.»
 وزیر خارجه آمریکا همچنین گزارش‌های رسانه‌ها درباره اختلاف میان مقام‌های دولت آمریکا بر سر ایران را رد کرد و گفت دونالد ترامپ، رییس‌جمهوری آمریکا، مذاکره‌کننده اصلی است و اعضای تیم او بسته به موضوع، نقش‌های متفاوتی را ایفا می‌کنند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251680
-
-<div align="center"><img src="files/post_251680_VahidOOnLine_251680.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️صدا و سیما و خبرگزاری تسنیم، روز پنجشنبه یکم مرداد ماه از شنیده شدن صدای چند انفجار در شهرستان کنارک در استان سیستان و بلوچستان خبر داده‌اند.
-خبرنگار صدا و سیما در گزارش زنده اعلام کرد، صدای پرواز جنگنده‌ها نیز در این منطقه شنیده شده است. به گفته این منبع خبری،َ انفجارهای روز پنجشنبه، اولین حملات آمریکا در طی ۲۴ ساعت گذشته به این شهرستان بوده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251679
-
-<div align="center"><video src="files/post_251679_VahidOOnLine_251679.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251679_VahidOOnLine_251679.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارکو روبیو، وزیر خارجه آمریکا، در حاشیه نشست آسه‌آن در مانیل گفت تفاهم‌نامه با جمهوری اسلامی بر پایه پایبندی به تعهدات شکل گرفته بود، اما تهران آن را نقض کرد و در نتیجه، این توافق دیگر معتبر نیست.
-
-گزارش علیرضا محبی، خبرنگار ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251678
-
-<div align="center"><video src="files/post_251678_VahidOOnLine_251678.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251678_VahidOOnLine_251678.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی فالح الزیدی، نخست‌وزیر عراق، روز پنجشنبه راهی تهران می‌شود و این در حالی است که به گفته منابع آگاه، بغداد تلاش دارد با بهره‌گیری از روابط متوازن خود با تهران و واشینگتن، نقش میانجی را ایفا کند.
-
-تروسکه صادقی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251677
-
-<div align="center"><video src="files/post_251677_VahidOOnLine_251677.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251677_VahidOOnLine_251677.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-الی کوهن، وزیر انرژی و زیرساخت‌های اسرائیل در گفت‌وگو با رادیو ۱۰۳ اف‌ام گفت اسرائیل برای هر سناریوی احتمالی آماده است و هشدار داد در صورت حمله جمهوری اسلامی به اسرائیل، با پاسخی قاطع و قدرتمند روبه‌رو خواهد شد.
-
-گفت‌وگو با بابک اسحاقی، خبرنگار ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251676
-
-<div align="center"><video src="files/post_251676_VahidOOnLine_251676.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251676_VahidOOnLine_251676.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شبکه العربیه گزارش داد پاکستان به حوثی‌های یمن هشدار داده که هرگونه حمله به کشتی‌های پاکستانی در تنگه باب‌المندب با پاسخ نظامی ارتش این کشور روبه‌رو خواهد شد.
-
-جواد همدانی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

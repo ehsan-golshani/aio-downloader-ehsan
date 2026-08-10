@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/20 00:06
+📅 آخرین بروزرسانی: 1405/05/20 01:01
 
 ---
+
+## tasiyanc — post 6616
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡🇩🇪 Fast - DE (1).npvt
+</div>
 
 ## tasiyanc — post 6615
 
@@ -196,20 +202,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 دانلود برنامه 🕹 IOS 📱 Android 
 
 آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6565
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
 </div>

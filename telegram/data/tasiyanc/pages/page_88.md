@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/05/20 00:06
+📅 آخرین بروزرسانی: 1405/05/20 01:01
 
 ---
+
+## tasiyanc — post 6348
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کلاینت OLCNG ✅
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6346
 
@@ -200,11 +207,5 @@ Password : @Tasiyanc 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پخت پز در راه است
-</div>
-
-## tasiyanc — post 6323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐 ریکشن ۵ تا؟
 </div>
 

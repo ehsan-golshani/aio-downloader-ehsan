@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/20 00:06
+📅 آخرین بروزرسانی: 1405/05/20 01:01
 
 ---
+
+## tasiyanc — post 8172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
+</div>
 
 ## tasiyanc — post 8171
 
@@ -208,15 +214,5 @@
 اگر لازم بدونم نیروی زمینی به ایران اعزام خواهم کرد هنوز وضعیت رو نهایی نکردیم
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺امروز July 16، روز جهانی ماره 🌟
-
-+ این روزو به آدمای سمی زندگیت تبریک بگو
-
-@Tasiyanc ⭐️| مرجع کانفیگ
 </div>
 
