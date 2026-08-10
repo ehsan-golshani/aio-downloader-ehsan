@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/05/19 18:19
+📅 آخرین بروزرسانی: 1405/05/19 19:37
 
 ---
+
+## tasiyanc — post 7629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همتون اینجکتور & نت مود دانلود کردید بزارم کانفیگاشو دوباره؟
+</div>
+
+## tasiyanc — post 7627
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمام تیم مصر عزیز به مرحله بعدی رفت ، درود به شرف مصری‌ها و روان پاک انور سادات تنها رفیق شاهنشاه فقید
+</div>
+
+## tasiyanc — post 7626
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این گل بشه تمومه
+</div>
 
 ## tasiyanc — post 7625
 
@@ -138,24 +156,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عرزشی لف بده😂
-</div>
-
-## tasiyanc — post 7590
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مادران داغ دیده ی دی ماه شما یه فرزند از دست دادید ولی میلیون ها فرزند بدست آوردید ، هرچی از غم و داغ دل شما بگیم کم گفتیم ...
-تا ابد اسم فرزندان شما هك خواهد ماند روی قلب تک تک ایرانیان وطن پرست
-</div>
-
-## tasiyanc — post 7589
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینجکتور خیلی پایداریش عجیبه کانفیگای دیروز هم وصله با سرعت
-</div>
-
-## tasiyanc — post 7588
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حالتون چطوره؟
 </div>
 

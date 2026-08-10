@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/05/19 18:19
+📅 آخرین بروزرسانی: 1405/05/19 19:37
 
 ---
+
+## tasiyanc — post 7666
+
+<div align="center"><img src="files/post_7666_tasiyanc_7666.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡ Unlimited.npvt
+</div>
+
+## tasiyanc — post 7665
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر عشقا 😍
+</div>
+
+## tasiyanc — post 7664
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+4سرور سرعتی پرمیوم متد جدید 
+⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+ 
+✅@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7660
 
@@ -140,23 +172,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شرکت ها و سایتهای معتبر جهت اسپانسری (همکاری) و حمایت از چنل با آیدی پشتیبانی در ارتباط باشید
 @StarTasiyan
-</div>
-
-## tasiyanc — post 7629
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همتون اینجکتور & نت مود دانلود کردید بزارم کانفیگاشو دوباره؟
-</div>
-
-## tasiyanc — post 7627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمام تیم مصر عزیز به مرحله بعدی رفت ، درود به شرف مصری‌ها و روان پاک انور سادات تنها رفیق شاهنشاه فقید
-</div>
-
-## tasiyanc — post 7626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این گل بشه تمومه
 </div>
 
