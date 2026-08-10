@@ -1,8 +1,102 @@
 # آرشیو کانال VahidOOnLine - صفحه 224
 
-📅 آخرین بروزرسانی: 1405/05/19 06:00
+📅 آخرین بروزرسانی: 1405/05/19 07:51
 
 ---
+
+## VahidOOnLine — post 249113
+
+<div align="center"><video src="files/post_249113_VahidOOnLine_249113.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249113_VahidOOnLine_249113.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال، وقوع انفجارهای مهیب را در چابهار در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249112
+
+<div align="center"><img src="files/post_249112_VahidOOnLine_249112.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️گزارش‌های کاربران شبکه‌های اجتماعی حاکی از قطع برق در برخی از مناطق این شهر در پی حملات بامداد پنجشنبه ۱۸ تیرماه آمریکا است.
+
+یکی از ساکنان بندرعباس در شبکه اجتماعی اکس نوشت برق مناطقی از این شهر قطع شده است. او در پیام دیگری نوشت: «من یک بندرعباسی‌ام، ما آدمیم، نه تیتر خبر.»
+
+این گزارش همزمان با ادامه حملات آمریکا به اهدافی‌ها در نوار ساحلی جنوب ایران و انفجارها در بندرعباس، سیریک، چابهار، کنارک و جزیره ابوموسی منتشر شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249111
+
+<div align="center"><img src="files/post_249111_VahidOOnLine_249111.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وال‌استریت ژورنال به نقل از مقام‌های آمریکایی و عراقی گزارش داد بغداد در ازای ازسرگیری انتقال اسکناس دلار از آمریکا، پذیرفته است تدابیر جدیدی برای جلوگیری از رسیدن دلار به جمهوری اسلامی و گروه‌های شبه‌نظامی همسو با تهران اجرا کند.
+
+بر اساس این گزارش، عراق متعهد شده دسترسی جمهوری اسلامی و متحدانش به دلار از طریق صرافی‌ها و پرداخت حقوق اعضای گروه‌های مسلح همسو با تهران را محدود کند. دولت دونالد ترامپ نیز پس از این تعهد، ارسال محموله‌های اسکناس دلار به بغداد را که از آغاز جنگ متوقف شده بود، از سر گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249110
+
+<div align="center"><img src="files/post_249110_VahidOOnLine_249110.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری مهر گزارش داد در حمله‌های آمریکا به بخش‌هایی از استان بوشهر، هیچ آسیبی به نیروگاه اتمی بوشهر وارد نشده است.
+
+این خبرگزاری به نقل از منابع خود افزود جای هیچ‌گونه نگرانی در این زمینه وجود ندارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249109
+
+<div align="center"><video src="files/post_249109_VahidOOnLine_249109.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249109_VahidOOnLine_249109.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای ارسال‌شده به ایران‌اینترنشنال، وقوع انفجارهای مهیب را در بندرعباس در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249108
+
+<div align="center"><video src="files/post_249108_VahidOOnLine_249108.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249108_VahidOOnLine_249108.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️بامداد پنجشنبه ۱۸ تیرماه، حساب کاربری وحیدآنلاین تصاویری را در شبکه اجتماعی اکس منتشر کرد که انفجارهای شدید در پی حمله آمریکا به اهداف نظامی جمهوری اسلامی در بوشهر را نشان می‌دهد.
+پیش‌تر، سنتکام از آغاز حملات بیشتر آمریکا خبر داده و اکسیوس نیز گزارش داده بود اهداف نظامی جمهوری اسلامی در تنگه هرمز هدف حملات آمریکا قرار گرفته‌اند. همزمان، رسانه‌های داخلی از انفجار در بندرعباس، سیریک، چابهار، کنارک و جزیره ابوموسی خبر داده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249107
+
+<div align="center"><video src="files/post_249107_VahidOOnLine_249107.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249107_VahidOOnLine_249107.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای منتشرشده در حساب کاربری «وحید آنلاین» و شبکه‌های اجتماعی، حملات سنگین آمریکا به چابهار را در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249106
 
@@ -192,102 +286,6 @@
 
 این رسانه اضافه کرد شامگاه سه‌شنبه نیز آمریکا به چندین نقطه در استان‌های جنوبی حمله کرد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249093
-
-<div align="center"><img src="files/post_249093_VahidOOnLine_249093.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ خبرگزاری العربیه، چهارشنبه‌شب، ۱۷ تیر به نقل از منابع خود گزارش داد که عاصم منیر، فرمانده کل ارتش پاکستان که نقش پررنگی نیز در مذاکرات میان تهران و واشنگتن داشت، در حال رایزنی با مقام‌های جمهوری اسلامی است تا از تشدید تنش‌ها با ایالات متحده جلوگیری کند.
-
-پاکستان روز چهارشنبه در بیانیه‌ای رسمی نیز از طرفین خواسته بود خویشتنداری نشان داده و به مفاد تفاهم‌نامه اسلام‌آباد پایبند باشند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249092
-
-<div align="center"><img src="files/post_249092_VahidOOnLine_249092.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری مهر شامگاه چهارشنبه از شنیده‌شدن صدای چند انفجار در بندرعباس خبر دادند.
-
-پیش‌تر دونالد ترامپ در حاشیه نشست ناتو گفته بود ارتش آمریکا احتمالا امشب دور تازه‌ای از حملات علیه اهدافی در ایران انجام خواهد داد.
-
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249091
-
-<div align="center"><video src="files/post_249091_VahidOOnLine_249091.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249091_VahidOOnLine_249091.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد یک شهروند در چالدران در مخالفت با جمهوری اسلامی و سیاست‌های آن روی دیوار نوشته است: «موشک‌های شما سر سره مردم فرود می‌آیند.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249090
-
-<div align="center"><img src="files/post_249090_VahidOOnLine_249090.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وال‌استریت ژورنال به نقل از مقام‌های آمریکایی و عراقی گزارش داد عراق برای ازسرگیری ارسال اسکناس دلار از آمریکا، با اعمال محدودیت‌های جدید برای جلوگیری از دسترسی جمهوری اسلامی و گروه‌های نیابتی آن به دلار موافقت کرده است.
-به گزارش وال‌استریت ژورنال، بغداد متعهد شده است دسترسی نیابتی‌های جمهوری اسلامی به دلار از طریق صرافی‌ها و پرداخت حقوق به اعضای این گروه‌ها را محدود کند. این اقدام در ازای لغو تعلیق چهارماهه ارسال اسکناس دلار از آمریکا انجام شده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249089
-
-<div align="center"><img src="files/post_249089_VahidOOnLine_249089.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جی‌دی ونس، معاون رییس‌جمهوری آمریکا، گفت ایالات متحده با جمهوری اسلامی به توافق رسیده بود، اما تهران بار دیگر شلیک به کشتی‌ها را از سر گرفته است.
-ونس گفت: «برنامه هسته‌ای ایران نابود شد، توان نظامی متعارف آن نیز از بین رفت، و حالا برخی افراد در داخل حاکمیت ایران می‌گویند که می‌خواهند رابطه‌شان را با ایالات متحده تغییر دهند و فصل تازه‌ای را آغاز کنند.»
-او افزود دونالد ترامپ، رییس‌جمهوری آمریکا، پذیرفت پای میز مذاکره بنشیند تا مشخص شود «آیا افراد عاقل در آن نظام می‌توانند جای افراد دیوانه را بگیرند یا نه».
-ونس درباره محتوای توافق گفت: «اگر شما شلیک به کشتی‌ها را متوقف کنید، ما هم محاصره‌مان را برمی‌داریم. اما اگر به کشتی‌ها شلیک کنید، پاسخ سختی خواهید گرفت.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249088
-
-<div align="center"><img src="files/post_249088_VahidOOnLine_249088.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، و شیخ محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر امور خارجه قطر، چهارشنبه ۱۷ تیرماه، در گفتگویی تلفنی درباره آخرین تحولات منطقه، به‌ویژه وقایع اخیر در تنگه هرمز، و دیگر مسائل منطقه‌ای و دوجانبه، تبادل نظر کردند.
-
-دو طرف در این گفتگو با بررسی آخرین تحولات منطقه، بر ضرورت استفاده از ظرفیت‌های دیپلماتیک برای پیگیری مسائل منطقه‌ای و مدیریت تنش‌ها تاکید کردند.
-
-عراقچی و همتای قطری همچنین بر اهمیت تداوم تماس‌ها، هماهنگی‌ها و رایزنی‌های سیاسی میان دو کشور با هدف جلوگیری از تشدید تنش‌ها و حفظ ثبات و امنیت منطقه تاکید کردند
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249087
-
-<div align="center"><img src="files/post_249087_VahidOOnLine_249087.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ارلینگ هالند، ستاره تیم ملی نروژ، پیش از دیدار حساس برابر انگلیس در مرحله یک‌چهارم نهایی جام جهانی ۲۰۲۶، همچنان یکی از آماده‌ترین بازیکنان جام جهانی است.
-مهاجم ۲۵ ساله با زدن ۷ گل، نقش اصلی را در صعود نروژ ایفا کرده و حالا نگاه‌ها به تقابل او با انگلیس دوخته شده است.
-رسانه‌ها گزارش داده‌اند که هالند برای حفظ این آمادگی، روزانه حدود ۶ هزار کالری در ۶ وعده غذایی مصرف می‌کند. رژیم سخت‌گیرانه او شامل مرغ، پاستای ساده، انواع ماهی و سبزیجات است و تقریباً فقط آب می‌نوشد.
-با این حال، این «وایکینگ گلزن» گاهی هم به علاقه‌اش برمی‌گردد؛ کباب. هالند که با الهام از رژیم حرفه‌ای کریستیانو رونالدو سبک تغذیه‌اش را تغییر داده، گفته کباب را دوست دارد اما فقط در زمان‌های محدود آن هم در زادگاهش می‌خورد.
-حالا انگلیس باید راهی برای مهار مهاجمی پیدا کند که تا اینجای جام، هیچ تیمی موفق به متوقف کردنش نشده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
