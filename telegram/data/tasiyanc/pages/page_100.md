@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/19 06:02
+📅 آخرین بروزرسانی: 1405/05/19 11:34
 
 ---
+
+## tasiyanc — post 6022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپل آیدی لاک میشه
+</div>
+
+## tasiyanc — post 6021
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من سه تا اپل ایدی سرش بگا دادم
+</div>
+
+## tasiyanc — post 6020
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این فیلتر شکن مخربو سریع حذف کنین بخدا من فشاری شدم دیگه ،
+</div>
+
+## tasiyanc — post 6019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+راجب jumjump اینو بگم کی کلی از دوستان میگن حسابشون از دسترس خارج شده ، ربطی به آیپی نداره، من هرروز با ۱۰ تا آیپی میرم اینستا و بقیه ، چرا فقط هرکی این vpn استفاده کرده زده اکانتشو بگا داده؟ بقیه VPN ها چنین چیزی نشده گزارشی نیست بهرحال به حرف هرچنلی گوش…
+</div>
 
 ## tasiyanc — post 6018
 
@@ -143,45 +167,5 @@ VİP 🔥.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5996
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-2سرور  سرعتی قدرتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروکسی ۱
-پروکسی ۲
-پروکسی ۳
-پروکسی ۴
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5994
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور جدید با متد جدید ساعت ۸
-</div>
-
-## tasiyanc — post 5988
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حتی ماه هم داخل خرداد مودی شده 😂
-خودمم خردادی ام ❤️❤️
 </div>
 

@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/05/19 09:26
+📅 آخرین بروزرسانی: 1405/05/19 11:32
 
 ---
+
+## ProxyMTProto — post 49318
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49317
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy.lodkirmm.ru
+Port: 8443
+Secret: ee16309abd572d284b309ef26bd7a3f685d0b7d0ba70726f78792e6c6f646b69726d6d2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 95.217.193.214
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49315
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: link.freetg.pw
+Port: 443
+Secret: ee4c0aaae1a7ff2d9e33412599353250fb6c696e6b2e6672656574672e7077
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49314
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Fighter-Man.ir-proxy.Manege-Desktop-For.Co.Im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49313
 
@@ -136,51 +181,6 @@ Secret: dd39a22112c392f0cbfb056066b429addd
 Server: super.sub-ploter.co.uk
 Port: 25565
 Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49298
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: testt1.nolags.pw
-Port: 443
-Secret: ddc2d13ebbc4ab5596c87f99b0928aa150
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49297
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eeecd508d816f611bb329487809f8dac88706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49295
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: best-proxy.ink
-Port: 443
-Secret: ee3646eba8c65e0e1d4804a7f9caa6531d626573742d70726f78792e696e6b
 @ProxyMTProto
 </div>
 
