@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/20 01:01
+📅 آخرین بروزرسانی: 1405/05/20 01:47
 
 ---
+
+## tasiyanc — post 8904
+
+<div align="center"><img src="files/post_8904_tasiyanc_8904.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#سرگرمی - #کاربردی
+
+🪐 می‌خوای منظومه شمسی رو زنده ببینی؟
+
+ناسا یک سایت فوق‌العاده ساخته که می‌تونی حرکت سیاره‌ها، فضاپیماها و مأموریت‌های فضایی رو به‌صورت سه‌بعدی و تعاملی تماشا کنی.
+
+🌐 https://eyes.nasa.gov
+
+بعد از باز کردن سایت ، رو هر کدوم از سیاره ها ، شهاب سنگ و ... بزنید با جزییات براتون میاره
+
+🔱 @TASIYANC
+</div>
 
 ## tasiyanc — post 8903
 
@@ -300,30 +318,5 @@ dic.b-amooz.com
 👇
 🆔 https://t.me/+Aq2Af6VNNE44M2Rk
 🆔 https://t.me/+Aq2Af6VNNE44M2Rk
-</div>
-
-## tasiyanc — post 8879
-
-<div align="center"><video src="files/post_8879_tasiyanc_8879.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8879_tasiyanc_8879.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥بمب 100% آماده شد
-🔥
-
-💵دریافتی از منبع خارجی Wiliam Hills 
-
-
-⬅️رایگان در کانال قرار گرفت
-
-⬅️فقط جوین شید و تمام
-
-➡️ https://t.me/+Aq2Af6VNNE44M2Rk
-➡️ https://t.me/+Aq2Af6VNNE44M2Rk
-a9
-
-⚠️عضویت رایگان به مدت و تعداد محدود زودتر جوین بده
-⚠️
 </div>
 

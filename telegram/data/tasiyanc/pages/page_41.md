@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/20 01:01
+📅 آخرین بروزرسانی: 1405/05/20 01:47
 
 ---
+
+## tasiyanc — post 8014
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا دقایقی دیگه پرزیدنت ترامپ سخنرانی مهمی در کاخ سفید خواهد داشت
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8013
 
@@ -224,12 +231,5 @@
 A true friend of the Iranian people, may your soul rest in peace. You will always be remembered, dear Senator Graham 🖤
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7981
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ساعاتی پیش میچ مک‌کانل نزدیک به ترامپ و مخالف ج ا، یکی دیگه از سناتورهای جمهوری‌خواه آمریکایی بر اثر عارضه قلبی راهی بیمارستان شد. @TasiyanProxy
-⭐️
 </div>
 

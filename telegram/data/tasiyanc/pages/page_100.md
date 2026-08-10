@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/20 01:01
+📅 آخرین بروزرسانی: 1405/05/20 01:47
 
 ---
+
+## tasiyanc — post 6042
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@ineedknife
+آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
+</div>
 
 ## tasiyanc — post 6041
 
@@ -124,11 +131,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این فیلتر شکن مخربو سریع حذف کنین بخدا من فشاری شدم دیگه ،
-</div>
-
-## tasiyanc — post 6019
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-راجب jumjump اینو بگم کی کلی از دوستان میگن حسابشون از دسترس خارج شده ، ربطی به آیپی نداره، من هرروز با ۱۰ تا آیپی میرم اینستا و بقیه ، چرا فقط هرکی این vpn استفاده کرده زده اکانتشو بگا داده؟ بقیه VPN ها چنین چیزی نشده گزارشی نیست بهرحال به حرف هرچنلی گوش…
 </div>
 

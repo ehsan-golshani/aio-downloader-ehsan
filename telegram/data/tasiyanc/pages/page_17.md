@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/20 01:01
+📅 آخرین بروزرسانی: 1405/05/20 01:47
 
 ---
+
+## tasiyanc — post 8760
+
+<div align="center"><img src="files/post_8760_tasiyanc_8760.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پژمان بهروزی، شرکت کننده برنامه ایدز ابدی، اومده تو برنامه خط قرمز صداوسیما برا ایرانیا از وطن پرستی بگه
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8759
 
@@ -217,13 +227,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 +مشاهده ویدیوها بدون سانسور
 ‌
 ‌
-</div>
-
-## tasiyanc — post 8731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قلعه الموت قزوین ثبت جهانی شد؛ قزوینیا راحت میتونن خارجیا رو هم انگشت کنن
-
-@TASIYANC 🕒
 </div>
 

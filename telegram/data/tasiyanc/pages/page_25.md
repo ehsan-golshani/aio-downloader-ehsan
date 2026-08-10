@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/20 01:01
+📅 آخرین بروزرسانی: 1405/05/20 01:47
 
 ---
+
+## tasiyanc — post 8507
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری دنیا جهانبخت از حضور در مراسم عزاداری. وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8504
 
@@ -251,13 +257,5 @@ Loc 🇩🇪 🇩🇪
 🚨⭕️ سنتکام : حملات ما به ایران آغاز شد
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8468
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ گزارش از انفجار در منطقه سردرود تبریز
-
-@TASIYANC ✅
 </div>
 

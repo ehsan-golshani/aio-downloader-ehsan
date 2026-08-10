@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/05/20 01:01
+📅 آخرین بروزرسانی: 1405/05/20 01:47
 
 ---
+
+## tasiyanc — post 5626
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کی از همه قشنگتره؟ کامنتارو 🗿
+</div>
 
 ## tasiyanc — post 5625
 
@@ -150,11 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ممنون که کنارمون بودی این روزای سخت هم وطن🤍🕊
-</div>
-
-## tasiyanc — post 5595
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانالت عالیه من همیشه با تو وصلم
 </div>
 

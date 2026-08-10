@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/05/20 01:01
+📅 آخرین بروزرسانی: 1405/05/20 01:47
 
 ---
+
+## tasiyanc — post 8448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گل شد ولی افساید
+</div>
 
 ## tasiyanc — post 8447
 
@@ -138,11 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چه بازی کسشریه
-</div>
-
-## tasiyanc — post 8425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داور خطای واضح روی اسپانیارو نمیگیره🤣
 </div>
 

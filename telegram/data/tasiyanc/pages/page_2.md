@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/20 01:01
+📅 آخرین بروزرسانی: 1405/05/20 01:47
 
 ---
+
+## tasiyanc — post 9149
+
+<div align="center"><video src="files/post_9149_tasiyanc_9149.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9149_tasiyanc_9149.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🖱به راحتی کسب درامد کن 💵💰
+
+🟢 ویدیو #آموزش بازی chicky choice رو براتون گذاشتم خیلی راحت و بدون ریسک و میتونی بازی کنی و کلی پول دربیاری🔥
+
+💖 حتما ویدیو رو تا انتها ببینید
+💻لینک سایت بازی:
+💻 betinja.bet
+💻 betinja.bet
+🌐 کانال بونوس های رایگان r19
+@betinjabet
+</div>
 
 ## tasiyanc — post 9146
 
@@ -229,31 +248,6 @@ Midnight Street Style → prompt
 👉
 
 @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9124
-
-<div align="center"><video src="files/post_9124_tasiyanc_9124.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9124_tasiyanc_9124.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی کانال 
-🆕
-
-Oreo Hair — Night Selfie 
-🤖
-🤖
-
-Prompt - بزنید روش کپی میشه
-
-An extremely unremarkable iPhone mirror selfie photo with no clear subject or framing—just a careless snapshot. The photo has a touch of motion blur, and mildly overexposed from uneven sunlight. The angle is awkward, the composition nonexistent, and the overall effect is aggressively mediocre—like a photo taken by accident while pulling the phone out of a pocket to take the selfie. It's of an e girl in a skirt, oversized (very big) black hoodie, and has tight, white legs warmers with converse shoes, she holds her legs up, she is sitting in the sofa, her face is visible, she has oreo hair, vertical 9:16 aspect ratio, no lights, it’s night, the mirror is slightly dirty.
-
-آموزش استفاده 
-♻️
-
-Join As @TASIYANC 
 ✅
 </div>
 

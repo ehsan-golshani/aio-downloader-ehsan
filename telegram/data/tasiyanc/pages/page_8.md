@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/20 01:01
+📅 آخرین بروزرسانی: 1405/05/20 01:47
 
 ---
+
+## tasiyanc — post 8998
+
+<div align="center"><img src="files/post_8998_tasiyanc_8998.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید 🆕
+
+Based on our chats, generate a clean 3x3 picture showing how you see me as a color, a song, a weather, a season, a book, a scent, a place, a flower, and a food.
+
+🚨کاربرد : این پرامپت رو میدید AI که باهاش حرف میزنید بر اساس چیز هایی که بهش گفتید به شما میگه
+چه وایب مثل رنگ، آهنگ، آب و هوا، فصل، کتاب، مکان، گل و غذا از شما گرفته !
+
+💙@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8997
 
@@ -293,37 +308,5 @@ vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 
 ❌
 ❌طرح شارژ رایگان فقط تا پایان مرداد ماه
-</div>
-
-## tasiyanc — post 8975
-
-<div align="center"><video src="files/post_8975_tasiyanc_8975.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8975_tasiyanc_8975.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛍 #میلان Vs #اینتر💰
-
-🛍 #چلسی Vs #یوونتوس💰
-
-زمان: چهارشنبه ساعت ۱۴
-
-
-🚨 تجربه پیشبینی مطمئن با
-
-🤩 
-🤩 
-🅰️ شارژ اضافی و ریسک خیلی پایین در #بت_اینجا رو از دست نده
-❌
-
-
-🤩 
-🤩 درصد برگشت وجه در صورت باخت:
-
-🌐 betinja.bet
-
-🌐 betinja.bet
-کانال بونوس های رایگان g13
-@betinjabet
 </div>
 

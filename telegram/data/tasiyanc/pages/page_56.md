@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/05/20 01:01
+📅 آخرین بروزرسانی: 1405/05/20 01:47
 
 ---
+
+## tasiyanc — post 7419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گگگگگگگگگگگگگللللللللل ایران
+</div>
 
 ## tasiyanc — post 7418
 
@@ -198,6 +204,4 @@ FAST ⚡⚡🔥.npvt
 @Tasiyanc 
 💠
 </div>
-
-## tasiyanc — post 7381
 

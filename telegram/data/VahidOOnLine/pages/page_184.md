@@ -1,8 +1,48 @@
 # آرشیو کانال VahidOOnLine - صفحه 184
 
-📅 آخرین بروزرسانی: 1405/05/20 00:58
+📅 آخرین بروزرسانی: 1405/05/20 01:45
 
 ---
+
+## VahidOOnLine — post 250225
+
+<div align="center"><img src="files/post_250225_VahidOOnLine_250225.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خانواده کریگ و لیندزی فورمن، زوج بریتانیایی زندانی در ایران اعلام کردند که دادگاه حکم زندان کریگ فورمن را به دلیل گفت‌وگو با رسانه‌ها دو سال افزایش داده است.
+
+پیش‌تر خانواده این زوج بریتانیایی اعلام کرده بودند این دو نفر به اتهام جاسوسی، به ۱۰ سال زندان محکوم شده‌اند.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250224
+
+<div align="center"><video src="files/post_250224_VahidOOnLine_250224.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250224_VahidOOnLine_250224.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش‌های دریافتی از ممسنی از وقوع آتش‌سوزی گسترده در مناطق پادراز و مورکی و پیشروی شعله‌ها به سمت کوه دکل، اشکان و روستاهای اطراف حکایت دارد. بر اساس این گزارش‌ها، مردم با درخواست کمک برای مهار آتش، نسبت به گسترش لحظه‌به‌لحظه آن ابراز نگرانی کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250223
+
+<div align="center"><video src="files/post_250223_VahidOOnLine_250223.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250223_VahidOOnLine_250223.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیلگر سیاسی، به ایران‌اینترنشنال گفت با وجود حملات جمهوری اسلامی به هشت کشور منطقه، این کشورها به همکاری نظامی با آمریکا ادامه خواهند داد، اما هنوز نشانه‌ای از تصمیم آن‌ها برای حمله مستقل به جمهوری اسلامی دیده نمی‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250222
 
@@ -270,51 +310,6 @@ iranintl
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال، نشان می‌دهد که بامداد ۲۴ تیر، یک فروند موشک از تبریز پرتاب شد. جزئیات بیشتری درباره محل دقیق پرتاب یا مقصد احتمالی آن منتشر نشده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250205
-
-<div align="center"><video src="files/post_250205_VahidOOnLine_250205.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250205_VahidOOnLine_250205.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اداره‌ کل بنادر و دریانوردی استان سیستان‌وبلوچستان صبح چهارشنبه ۲۴ تیرماه اعلام کرد درپی حملات شب  ساعات آمریکا به بندر چابهار، مرکز کنترل ترافیک دریایی این بندر برای دومین بار در هفته گذشته مورد اصابت قرار گرفت و خساراتی به سازه آن وارد شد.
-به گفته مقام‌های محلی حملات نیمه‌شب سه‌شنبه و بامداد چهارشنبه به چابهار کسی کشته یا زخمی نشده است.
-
-ویدیوهای منتشر شده در شبکه‌های اجتماعی وقوع انفجارهای پیاپی و برخاستن ستون دود از مناطق مختلف در چابهار را نشان می‌دهد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250204
-
-<div align="center"><img src="files/post_250204_VahidOOnLine_250204.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️اردن: سه موشک شلیک شده از ایران را رهگیری و منهدم کردیم
-
-♦️ارتش اردن صبح چهارشنبه ۲۴ تیرماه اعلام کرد که در ساعات گذشته موفق شده است سه موشک شلیک شده از ایران را در آسمان این کشور رهگیری و منهدم کند.
-
-نیروهای مسلح جمهوری اسلامی از زمان آغاز دوباره درگیری‌ها در تنگه هرمز، علاوه بر کشورهای حاشیه جنوبی خلیج فارس، بارها به سوی اردن هم موشک و پهپاد شلیک کرده‌اند.
-ارتش اردن می‌گوید سامانه پدافند هوایی این کشور پرتابه‌های ایرانی را رهگیری و منهدم می‌کند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️یک مغازه‌دار در شهر دلیجان استان مرکزی روز دوشنبه ۲۲ تیرماه با انتشار ویدیویی در شبکه‌های اجتماعی گفت قطع برق خارج از برنامه، حدود ۱۸۰ کیلوگرم بستنی او را از بین برده و خسارت سنگینی به کسب‌وکارش وارد کرده است.
-
-به گفته این مغازه‌دار، قرار بود برق واحد صنفی او هر روز از ساعت چهار تا شش بعدازظهر قطع شود و او نیز برای کاهش خسارت، موتور برق تهیه و برنامه کاری خود را با زمان خاموشی هماهنگ کرده بود. با این حال، روز ۲۲ تیر برق از ساعت دو بعدازظهر قطع شد و او فرصت آمادگی برای مقابله با این وضعیت را نداشت.
-
-این مغازه‌دار با اشاره به هزینه بالای مواد اولیه از جمله پسته، خامه، زعفران و مغز گردو، می‌گوید که قطعی بی‌برنامه برق خسارات سنگینی به او وارد کرده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/20 01:01
+📅 آخرین بروزرسانی: 1405/05/20 01:47
 
 ---
+
+## tasiyanc — post 7981
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ساعاتی پیش میچ مک‌کانل نزدیک به ترامپ و مخالف ج ا، یکی دیگه از سناتورهای جمهوری‌خواه آمریکایی بر اثر عارضه قلبی راهی بیمارستان شد. @TasiyanProxy
+⭐️
+</div>
 
 ## tasiyanc — post 7977
 
@@ -235,13 +242,5 @@ Change the background behind those two people with white curtains. With hugging 
 چپی مادر
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حس میکنم خیلی زود اسرائیل ترامپ رو ترور میکنه 😟
-
-@Tasiyanc✅
 </div>
 

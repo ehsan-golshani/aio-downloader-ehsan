@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/05/20 01:01
+📅 آخرین بروزرسانی: 1405/05/20 01:47
 
 ---
+
+## tasiyanc — post 6297
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•𝐅_𝟐𝟐_⚡💣_ᴾʳᵉᵐᶤᵘᵐ_ᶳᵉʳᵛᵉʳᶳ.npvt
+</div>
 
 ## tasiyanc — post 6295
 
@@ -202,17 +208,5 @@ MCI - SamanTel - wifi تست شده
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ON TARGET ⚡✅.npvt
-</div>
-
-## tasiyanc — post 6272
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور پرمیوم  آلمان 🇩🇪
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
-
-✔️ @Tasiyanc ✅
 </div>
 
