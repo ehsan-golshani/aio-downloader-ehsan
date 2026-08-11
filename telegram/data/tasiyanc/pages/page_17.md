@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/21 00:38
+📅 آخرین بروزرسانی: 1405/05/21 01:37
 
 ---
+
+## tasiyanc — post 8782
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ :
+
+نخست وزیر بی‌بی نتانیاهو از اسرائیل، به همراه من و نمایندگان جلسه بسیار خوبی داشتیم. تو این جلسه درباره موضوعات مهم زیادی صحبت شد
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8781
 
@@ -229,13 +240,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ایران جای عجیبیه جای لف دادن از چنل سام صابری حرومزاده ممبراش بالا اومده
-</div>
-
-## tasiyanc — post 8755
-
-<div align="center"><img src="files/post_8755_tasiyanc_8755.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسلیت.
 </div>
 

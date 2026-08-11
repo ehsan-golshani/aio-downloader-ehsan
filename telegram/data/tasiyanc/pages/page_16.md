@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/21 00:38
+📅 آخرین بروزرسانی: 1405/05/21 01:37
 
 ---
+
+## tasiyanc — post 8805
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 معاون استاندار خوزستان:
+مناطقی در نزدیکی شهر شادگان در جنوب غربی ایران هدف حملات هوایی آمریکا قرار گرفته
+
+@TasiyanProxy
+</div>
 
 ## tasiyanc — post 8803
 
@@ -231,17 +240,6 @@ Multi Location ⚡
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 فاکس نیوز : برد موشک های جمهوری اسلامی به اروپا هم میرسند.
 
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8782
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پست جدید ترامپ :
-
-نخست وزیر بی‌بی نتانیاهو از اسرائیل، به همراه من و نمایندگان جلسه بسیار خوبی داشتیم. تو این جلسه درباره موضوعات مهم زیادی صحبت شد
 
 @Tasiyanc 
 ⭐️

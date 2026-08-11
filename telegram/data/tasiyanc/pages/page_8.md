@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/21 00:38
+📅 آخرین بروزرسانی: 1405/05/21 01:37
 
 ---
+
+## tasiyanc — post 9017
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت نت خرابه ، گزارش وضعیت از خطوط همراه و ایرانسل بدید...
+</div>
 
 ## tasiyanc — post 9015
 
@@ -422,29 +428,5 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 𝗡𝗲𝘄_𝗙𝗮𝘀𝘁_𝗠𝘂𝗹𝘁𝗶_𝗹𝗼𝗰𝗮𝘁𝗶𝗼𝗻_⚡️.npvt
-</div>
-
-## tasiyanc — post 8993
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم 
-🖤
-🇮🇷
-
-کانفیگ اختصاصی نامحدود نپسترنت
-📱
-
-سرور سرعتی تست شده  لوکیشن هلند، انگلیس ، آمریکا ، هند 
-📍
-
-آموزش اتصال 
-⚡️
-فعالسازی IPV6
-⚡️
-
-اتصال امن برای همه
-
-
-✅ @TASIYANC
 </div>
 

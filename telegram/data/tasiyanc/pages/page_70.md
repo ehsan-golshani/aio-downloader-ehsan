@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/05/21 00:38
+📅 آخرین بروزرسانی: 1405/05/21 01:37
 
 ---
+
+## tasiyanc — post 6933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسنیم
+لحظاتی دیگر مقامات راجب توافق با مردم صحبت خواهند کرد
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6932
 
@@ -212,13 +221,5 @@ https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بمب براتون آماده کردم
-</div>
-
-## tasiyanc — post 6903
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوری ترامپ
-از ایران می‌خواهم که به اسرائیل موشک شلیک نکند. توافق در ساعات آینده امضا خواهد شد
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/21 00:38
+📅 آخرین بروزرسانی: 1405/05/21 01:37
 
 ---
+
+## tasiyanc — post 9196
+
+<div align="center"><a href="files/post_9196_@𝐓𝐚𝐬𝐢𝐲𝐚𝐧𝐜_𝐅𝐚𝐬𝐭𝐍𝐩𝐯_⚡️.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @𝐓𝐚𝐬𝐢𝐲𝐚𝐧𝐜_𝐅𝐚𝐬𝐭𝐍𝐩𝐯_⚡️.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+•سرور سرعتی تست شده تمام اپراتور ها 
+⚡️
+
+• لوکیشن multi📍
+
+•آموزش اتصال 
+⚡️
+
+توجه :  اسکنر نپستر متاسفانه باگش برطرف نشده 
+⭕️
+
+•اتصال امن برای همه 
+🇮🇷
+
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 9195
 
@@ -316,29 +342,5 @@ r20
 a19
 🎁کد هدیه ثبت نام Melbet90 ✌️
 ✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9165
-
-<div align="center"><img src="files/post_9165_tasiyanc_9165.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷 a19
-✔ https://t.me/+x60dZGAgXTUxM2U0
 </div>
 
