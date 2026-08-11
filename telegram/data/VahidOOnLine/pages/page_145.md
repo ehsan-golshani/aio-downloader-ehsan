@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 145
 
-📅 آخرین بروزرسانی: 1405/05/20 05:51
+📅 آخرین بروزرسانی: 1405/05/20 07:33
 
 ---
+
+## VahidOOnLine — post 251076
+
+<div align="center"><img src="files/post_251076_VahidOOnLine_251076.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، گزارش داد صدای چند انفجار در بندر ماهشهر و بندر امام در استان خوزستان شنیده شده است. این خبرگزاری جزییات بیشتری درباره علت انفجارها یا خسارت احتمالی منتشر نکرده است.
+
+همزمان، خبرگزاری مهر به نقل از خبرنگار خود گزارش داد سامانه پدافند نیروهای مسلح ایران یک «پهپاد متخاصم» را در آسمان جنوب کشور ساقط کرده است.تاکنون هیچ مقام رسمی ارتباط میان شنیده شدن صدای انفجارها در خوزستان و گزارش ساقط شدن این پهپاد را تایید نکرده است و جزییات بیشتری درباره محل دقیق رهگیری یا هویت پهپاد منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251075
+
+<div align="center"><img src="files/post_251075_VahidOOnLine_251075.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️همزمان با آغاز نهمین شب حملات متوالی آمریکا به مواضع نظامی در ایران، بامداد یکشنبه، فارس از اثابت چند موشک و شنیده‌شدن صدای انفجارها در شهرهای تبریز، چابهار، کنارک، بندر ماهشهر و بندر خمینی در خوزستان خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251074
 
@@ -245,28 +269,6 @@
 
 جمهوری اسلامی تاکنون به این خبر واکنشی نشان نداده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251056
-
-<div align="center"><img src="files/post_251056_VahidOOnLine_251056.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️وزارت کشور بحرین، بامداد دوشنبه، با اعلام به صدا درآمدن آژیرهای هشدار، از مردم و ساکنان خواست ضمن حفظ آرامش، به نزدیک‌ترین پناهگاه امن بروند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251055
-
-<div align="center"><img src="files/post_251055_VahidOOnLine_251055.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️به‌دنبال انتشار گزارش‌ها از شنیده‌شدن صدای انفجار در اراک، فرماندار این شهر اعلام کرد این صداها متعلق به «اقدامات آفندی» در یکی از استان‌های مجاور بوده و جای نگرانی نیست.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

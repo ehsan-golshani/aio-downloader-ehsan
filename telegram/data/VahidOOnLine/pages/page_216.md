@@ -1,8 +1,28 @@
 # آرشیو کانال VahidOOnLine - صفحه 216
 
-📅 آخرین بروزرسانی: 1405/05/20 05:51
+📅 آخرین بروزرسانی: 1405/05/20 07:33
 
 ---
+
+## VahidOOnLine — post 249413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد تعدادی از دانش‌آموزان نیکشهر در استان سیستان و بلوچستان، تصاویر خمینی را در کتاب‌های درسی خود آتش می‌زنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249412
+
+<div align="center"><img src="files/post_249412_VahidOOnLine_249412.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ دفتر نخست‌وزیری پاکستان اعلام کرد که شهباز شریف، نخست‌وزیر این کشور، روز جمعه ۱۹ تیر، در گفتگویی تلفنی با مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران، آخرین تحولات منطقه‌ای را مورد بررسی قرار داد. نخست‌وزیر پاکستان در این تماس ضمن ابراز نگرانی نسبت به تشدید تنش‌های اخیر با ایالات متحده، از ایران و تمامی طرفین خواست تا خویشتنداری پیشه کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249411
 
@@ -246,34 +266,6 @@
 
 شرکت روس‌اتم که در حال ساخت دو واحد جدید در نیروگاه بوشهر است، پس از آغاز جنگ مشترک آمریکا و اسرائیل علیه جمهوری اسلامی ایران، صدها نفر از کارکنان خود را از این کشور خارج کرده بود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249376
-
-<div align="center"><img src="files/post_249376_VahidOOnLine_249376.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدصالح جوکار، نماینده یزد در مجلس، گفت: «دشمن باید بداند که تنگه هرمز به شرایط قبل جنگ باز نخواهد گشت و این تنگه با ترتیبات جمهوری اسلامی مدیریت خواهد شد.»
-
-او به خبرگزاری خانه ملت گفت: «به کشورهای منطقه هشدار می‌دهیم که همراهی با سیاست‌های آمریکا، هزینه‌های سنگین و جبران‌ناپذیری برای شما به همراه خواهد داشت.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249375
-
-<div align="center"><video src="files/post_249375_VahidOOnLine_249375.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249375_VahidOOnLine_249375.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق روایت‌های رسیده به ایران‌اینترنشنال در کارزار کشف حقیقت، نیروهای امنیتی با حضور در بیمارستان غرضی اصفهان، آثار کشتار و جنایات سپاه پاسداران و سرکوبگران وابسته به این نهاد نظامی در اعتراضات دی ۱۴۰۴ را پاک کرده‌اند.
-
-گزارش فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

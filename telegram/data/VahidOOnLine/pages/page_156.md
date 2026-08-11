@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 156
 
-📅 آخرین بروزرسانی: 1405/05/20 05:51
+📅 آخرین بروزرسانی: 1405/05/20 07:33
 
 ---
+
+## VahidOOnLine — post 250838
+
+<div align="center"><img src="files/post_250838_VahidOOnLine_250838.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسنیم، رسانه وابسته به سپاه پاسداران، شنبه ۲۷ تیر گزارش داد در ساعت‌های ۱۲:۳۰، ۱۶:۳۰ و ۱۶:۴۰ به وقت محلی نقاط مختلفی در سیریک هدف حملات نظامی جنگنده‌های آمریکا قرار گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250837
+
+<div align="center"><img src="files/post_250837_VahidOOnLine_250837.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️یم ملی والیبال زیر ۱۸ سال ایران، شنبه ۲۷ تیر، با پیروزی ۳ بر یک مقابل ژاپن در دیدار نهایی مسابقات قهرمانی آسیا ۲۰۲۶، عنوان قهرمانی این رقابت‌ها را به دست آورد.
+
+شاگردان عبدالرضا علیزاده پس از واگذاری ست نخست با نتیجه ۲۵ بر ۲۳، سه ست بعدی را با نتایج ۲۵ بر ۲۲، ۲۵ بر ۱۷ و ۲۵ بر ۲۲ به سود خود پایان دادند و بدون شکست قهرمان این دوره از مسابقات شدند.
+
+این هشتمین قهرمانی تیم ملی والیبال نوجوانان ایران در رقابت‌های قهرمانی آسیا و نخستین عنوان این تیم پس از ۱۲ سال در این رده سنی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250836
 
@@ -275,31 +301,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مستندات و اطلاعات خود درباره زندانیان انقلاب ملی ایرانیان در استان‌ها و شهرهای مختلف را برای انتشار به ایران اینترنشنال ارسال کنید. در صورتی که هر کدام از شهروندان در ارتباط با اعتراضات دی‌ماه ۱۴۰۴ با تشکیل پرونده، محکومیت یا زندان مواجه شده‌اند، جزییات آن را به مدیابات ایران اینترنشنال با لینک زیر ارسال کنید. t.me
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250817
-
-<div align="center"><img src="files/post_250817_VahidOOnLine_250817.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت خارجه کویت اعلام کرد حمله جمهوری اسلامی به یک نیروگاه تولید برق، تاسیسات آب‌شیرین‌کن، تاسیسات بخش نفت و شماری از زیرساخت‌های حیاتی، باعث آتش‌سوزی و خسارت‌های گسترده به زیرساخت‌ها، تاسیسات غیرنظامی و ساختمان‌های مسکونی شده است.
-وزارت خارجه کویت این حملات را محکوم کرد و در بیانیه‌ای تاکید کرد که هدف قرار دادن مکرر زیرساخت‌های حیاتی، نقض آشکار حقوق بین‌الملل و قطعنامه ۲۸۱۷ شورای امنیت سازمان ملل است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250816
-
-<div align="center"><video src="files/post_250816_VahidOOnLine_250816.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250816_VahidOOnLine_250816.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند ویدیویی برای ایران اینترنشنال فرستاد که در آن دمای ظهر اهواز را به حرارت سونا تشبیه کرد و گفت گرمای حدود ۵۰ درجه سانتیگراد گرمازدگی به دنبال دارد و حکومت هم در تامین برق این شهر ناتوان است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

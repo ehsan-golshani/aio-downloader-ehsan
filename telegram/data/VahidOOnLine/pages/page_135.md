@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 135
 
-📅 آخرین بروزرسانی: 1405/05/20 05:51
+📅 آخرین بروزرسانی: 1405/05/20 07:33
 
 ---
+
+## VahidOOnLine — post 251308
+
+<div align="center"><img src="files/post_251308_VahidOOnLine_251308.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ستار هاشمی، وزیر ارتباطات و فناوری اطلاعات، به خبرگزاری ایلنا گفت در حملات اخیر آمریکا، ارتباط با جزایر خارک و قشم در چند مرحله قطع شد، اما تلاش شده است این ارتباط در کوتاه‌ترین زمان ممکن دوباره برقرار شود.
+
+وزیر ارتباطات اضافه کرد در برخی مناطق جنوبی ایران، بستر فیبر نوری هدف قرار گرفت و برای پایداری ارتباط، به‌طور موقت از بسترهای رادیویی و ماهواره‌ای استفاده شده است.
+
+هاشمی گفت که با وجود شرایط پیچیده و حجم حملات، تلاش شده ارتباط جزایر با سرزمین اصلی قطع نشود و افزود استفاده از ارتباطات رادیویی و ماهواره‌ای راهکاری موقت است و بسترهای فیبر نوری باید ترمیم شوند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251307
+
+<div align="center"><video src="files/post_251307_VahidOOnLine_251307.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251307_VahidOOnLine_251307.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ویدیویی از تقسیم تور دروازه فینال جام جهانی میان هواداران در شبکه‌های اجتماعی پربازدید شده است.
+در این ویدیو دیده می‌شود که ماموران پلیس نیویورک پس از مراسم و قهرمانی اسپانیا، به تماشاگران برای بریدن و بردن تکه‌های تور دروازه فینال کمک می‌کنند.
+اسپانیا با شکست آرژانتین در فینال، برای دومین بار قهرمان جام جهانی فوتبال شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251306
 
@@ -252,28 +282,6 @@ iranintl
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️به گزارش ایرنا، بهزاد نورمحمدی، فرماندار آبدانان صبح سه‌شنبه از برخورد دو موشک به کوه‌های بیرون از شهر آبدانان در جنوب استان ایلام خبر داد. صداوسیما پیش‌تر از چند انفجار در سیریک، بندرعباس، قشم، کنارک، چابهار، بندرلنگه و شیراز خبر داده بود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251285
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارتش جمهوری اسلامی اعلام کرد در مرحله نوزدهم عملیات «صاعقه»، پایگاه‌های عریفجان، العدیری و احمد الجابر آمریکا در کویت را با پهپادهای انهدامی هدف قرار داده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251284
-
-<div align="center"><img src="files/post_251284_VahidOOnLine_251284.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندار آبدانان در استان ایلام اعلام کرد یک موشک به منطقه‌ای غیرنظامی در کوه‌های آبدانان اصابت کرده است.
-
-او افزود این حمله تلفات جانی نداشته است.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 408
 
-📅 آخرین بروزرسانی: 1405/05/20 05:51
+📅 آخرین بروزرسانی: 1405/05/20 07:33
 
 ---
+
+## VahidOOnLine — post 244576
+
+<div align="center"><img src="files/post_244576_VahidOOnLine_244576.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️العربیه، سه‌شنبه‌شب، ۱۹ خردادماه، به نقل از «منابع اسرائیلی» گزارش داد که دونالد ترامپ، رئیس جمهوری آمریکا و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، درباره ایران و لبنان به صورت تلفنی گفتگو کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244575
+
+<div align="center"><video src="files/post_244575_VahidOOnLine_244575.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244575_VahidOOnLine_244575.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ورود یک سامانه ناپایدار جوی به آذربایجان شرقی، سبب وقوع بارش‌های سنگین باران، ریزش تگرگ و رعدوبرق‌های پیاپی در ارتفاعات سونگون ورزقان شد. بر اساس گزارش‌های محلی، شدت فعالیت این سامانه و ریزش تگرگ در برخی ارتفاعات این منطقه به حدی بوده است که سطح زمین در مدت زمانی کوتاه کاملا سفیدپوش شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244574
 
@@ -285,34 +309,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 منوچهر متکی، نماینده تهران در مجلس، خواستار صدور حکم اعدام برای دونالد ترامپ و بنیامین نتانیاهو از سوی رییس قوه قضاییه جمهوری اسلامی شد.
 او با اشاره به فتوای روح‌الله خمینی علیه سلمان رشدی، گفت: «ضابطین دادگستری ما شاید دستشان نرسد که این حکم را اجرا کنند پس پیشنهاد می‌کنم غلامحسین محسنی اژه‌ای اجرای حکم را به مسلمانان جهان واگذار کند.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244556
-
-<div align="center"><img src="files/post_244556_VahidOOnLine_244556.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ خبرگزاری سی‌ان‌ان به نقل از دو مقام آمریکایی گزارش داد که هلی‌کوپتر نیروی زمینی ارتش این کشور که در سواحل عمان سقوط کرد، توسط یک پهپاد ایرانی سرنگون شده است. در همین حال، یک منبع آگاه دیگر که از جزئیات حادثه مطلع است، در گفتگو با سی‌ان‌ان تایید کرد که یک پهپاد از نوع «شاهد» به این هلی‌کوپتر آمریکایی برخورد کرده است.
-
-ارتش ایالات متحده پیش از این در روز سه‌شنبه اعلام کرده بود که دو خدمه این هلی‌کوپتر توسط یک شناور بدون سرنشین نجات یافته‌اند.
-
-در پی این حادثه، دونالد ترامپ، رئیس‌جمهوری آمریکا با انتشار پیامی در رسانه‌های اجتماعی نوشت که ارتش آمریکا به او اطلاع داده که ایران یک هلی‌کوپتر آپاچی ارتش را سرنگونکرده است و ایالات متحده «باید» به این اقدام پاسخ دهد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244555
-
-<div align="center"><video src="files/post_244555_VahidOOnLine_244555.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244555_VahidOOnLine_244555.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند از رشت با ارسال پیامی می‌گوید که حقوق او برای یک خانواده سه نفره تنها کفاف ۱۰ روز از زندگی را می‌دهد. پیام او با هوش مصنوعی خوانده شده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

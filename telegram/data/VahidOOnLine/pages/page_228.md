@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 228
 
-📅 آخرین بروزرسانی: 1405/05/20 05:51
+📅 آخرین بروزرسانی: 1405/05/20 07:33
 
 ---
+
+## VahidOOnLine — post 249127
+
+<div align="center"><img src="files/post_249127_VahidOOnLine_249127.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️فرماندهی مرکزی ایالات متحده، سنتکام، شامگاه چهارشنبه ۱۷ تیرماه اعلام کرد به دستور فرمانده کل قوا، ارتش آمریکا حملات بیشتری را علیه ایران آغاز کرده‌ تا توانایی این کشور برای تهدید آزادی کشتیرانی در تنگه هرمز را بیش از پیش تضعیف کند.
+
+سنتکام در این بیانیه افزود ایالات متحده ایران را بابت حملات اخیر به کشتی‌های تجاری و خدمه غیرنظامی در این آبراه حیاتی بین‌المللی مسئول می‌داند.
+
+رسانه‌های ایران از حملات گسترده ارتش آمریکا به شهرها و بنادر ساحل جنوبی ایران در استان‌های بوشهر، هرمزگان و سیستان و بلوچستان خبر می‌دهند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249126
+
+<div align="center"><img src="files/post_249126_VahidOOnLine_249126.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری مهر گزارش داد صدای چند انفجار در منطقه شمال شرقی «ایرانشهر» واقع در استان سیستان و بلوچستان شنیده شده است.
+
+این خبر هم‌زمان با ادامه حملات آمریکا به اهدافی در جنوب و جنوب‌شرق ایران منتشر شده و جزئیات بیشتری درباره محل انفجارها یا خسارت‌های احتمالی اعلام نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249125
 
@@ -240,32 +268,6 @@
 ♦️بامداد پنجشنبه ۱۸ تیرماه، حساب کاربری وحیدآنلاین تصاویری را در شبکه اجتماعی اکس منتشر کرد که انفجارهای شدید در پی حمله آمریکا به اهداف نظامی جمهوری اسلامی در بوشهر را نشان می‌دهد.
 پیش‌تر، سنتکام از آغاز حملات بیشتر آمریکا خبر داده و اکسیوس نیز گزارش داده بود اهداف نظامی جمهوری اسلامی در تنگه هرمز هدف حملات آمریکا قرار گرفته‌اند. همزمان، رسانه‌های داخلی از انفجار در بندرعباس، سیریک، چابهار، کنارک و جزیره ابوموسی خبر داده بودند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249107
-
-<div align="center"><video src="files/post_249107_VahidOOnLine_249107.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249107_VahidOOnLine_249107.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای منتشرشده در حساب کاربری «وحید آنلاین» و شبکه‌های اجتماعی، حملات سنگین آمریکا به چابهار را در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249106
-
-<div align="center"><video src="files/post_249106_VahidOOnLine_249106.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249106_VahidOOnLine_249106.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال، وقوع انفجارهای مهیب را در بندرعباس در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
