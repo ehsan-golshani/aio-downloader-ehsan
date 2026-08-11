@@ -1,8 +1,101 @@
 # آرشیو کانال VahidOOnLine - صفحه 189
 
-📅 آخرین بروزرسانی: 1405/05/20 03:22
+📅 آخرین بروزرسانی: 1405/05/20 05:51
 
 ---
+
+## VahidOOnLine — post 250134
+
+<div align="center"><video src="files/post_250134_VahidOOnLine_250134.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250134_VahidOOnLine_250134.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم آلمان، سه‌شنبه ۲۳ تیر در اعتراض به اعدام‌های جمهوری اسلامی در ایران، در شهر هانوفر تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250133
+
+<div align="center"><video src="files/post_250133_VahidOOnLine_250133.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250133_VahidOOnLine_250133.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تصاویر منتشرشده در شبکه‌های اجتماعی، شلیک موشک‌های پدافندی سامانه «پاتریوت» آمریکا را نشان می‌دهد که سه‌شنبه ۲۳ تیر، برای مقابله با حملات هوایی جمهوری اسلامی ایران و دفاع از کویت به کار گرفته شدند.
+پیش‌تر سی‌ان‌ان به نقل از دو مقام آمریکایی گزارش داده بود که نیروهای ایالات متحده در طول روز سه‌شنبه به کویت برای مقابله با موج حملات جمهوری اسلامی ایران کمک کرده‌اند و در این عملیات از سامانه‌های موشکی «پاتریوت» استفاده شده است.
+سی‌ان‌ان پیش از این مدعی شده بود که ذخایر موشک‌های رهگیر «پاتریوت» آمریکا در جریان درگیری با جمهوری اسلامی به میزان قابل توجهی کاهش یافته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250132
+
+<div align="center"><img src="files/post_250132_VahidOOnLine_250132.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد از ساعت ۲۳:۳۰ به وقت تهران، محاصره دریایی کشتی‌هایی را که به بنادر و مناطق ساحلی ایران رفت‌وآمد می‌کنند، از سر گرفت.
+ارتش آمریکا گفت بیش از ۲۰ ناو جنگی نیروی دریایی آمریکا و صدها هواپیمای نظامی این کشور در سراسر خاورمیانه در حال عملیات هستند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250131
+
+<div align="center"><video src="files/post_250131_VahidOOnLine_250131.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250131_VahidOOnLine_250131.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد که روز سه‌شنبه در شهر صدرا در ۱۵ کیلومتری شمال غربی شیراز، دود ناشی از انفجار به آسمان برخاست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250130
+
+<div align="center"><video src="files/post_250130_VahidOOnLine_250130.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250130_VahidOOnLine_250130.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروهی از ایرانیان سه‌شنبه ۲۳ تیرماه با تجمع مقابل پارلمان بریتانیا در لندن، به اعدام‌ها در ایران اعتراض کردند. شرکت‌کنندگان در این تجمع خواستار اخراج دیپلمات‌های جمهوری اسلامی شدند و با تروریستی خواندن سپاه پاسداران، بر ضرورت مقابله با جمهوری اسلامی تاکید کردند. آنان همچنین با در دست داشتن پلاکاردها، خواستار حمایت از زندانیان محکوم به اعدام و رساندن صدای آنان به جهان شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250129
+
+<div align="center"><img src="files/post_250129_VahidOOnLine_250129.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️با دستور دونالد ترامپ، رئیس‌جمهوری ایالات متحده آمریکا، محاصره دریایی بنادر و شناورهای مرتبط به ایران از ساعت ۲۳:۳۰ روز سه‌شنبه ۲۳ تیر مجددا آغاز شد. پیش از این و در پی امضای تفاهم‌نامه اسلام‌آباد میان تهران و واشنگتن، این محاصره لغو شده بود.
+
+بر این اساس، کلیه شناورهایی که مبدا یا مقصدشان بنادر ایران باشد و نیز شناورهایی که مالکیت یا بهره‌وری آن‌ها به جمهوری اسلامی ایران تعلق داشته باشد، از عبور و مرور در تنگه هرمز و خروج از دریای عمان به سمت آب‌های آزاد منع می‌شوند. فرماندهی مرکزی ارتش آمریکا، سنتکام، اعلام کرده است که برای اعمال این محاصره، برای از کار انداختن یا از بین بردن شناورهای خاطی، اقدامات نظامی لازم را به کار خواهد گرفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250128
+
+<div align="center"><img src="files/post_250128_VahidOOnLine_250128.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاون امنیتی و انتظامی استانداری خوزستان خبر داد که نقاطی در شهرستان اهواز هدف حمله و اصابت پرتابه‌های آمریکا قرار گرفته است.
+
+پیش‌تر نیز رسانه‌های ایران از شنیده‌شدن صدای انفجار در قشم، اهواز، بندرعباس و سیریک خبر دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250127
 
@@ -189,105 +282,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سپاه پاسداران در بیانیه‌ای حملات شامگاه سه‌شنبه به «مواضع دشمن» در خاک بحرین و کویت را تایید کرد و گفت عملیات «نصر۲»، پاسخ به حملات عصر سه‌شنبه آمریکا به تعدادی از ایستگاه‌های ساحلی نیروهای مسلح جمهوری اسلامی بوده است.
 در این بیانیه آمده است، در صورت تکرار حملات، مقابله به مثل جمهوری اسلامی ادامه خواهد داشت و این «تجاوزها» نتیجه‌ای جز تاخیر در بازگشایی تنگه هرمز ندارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250106
-
-<div align="center"><video src="files/post_250106_VahidOOnLine_250106.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250106_VahidOOnLine_250106.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️اسکلت یکی از کامل‌ترین نمونه‌های شناخته‌شده «تیرانوسوروس رکس» در جهان، سه‌شنبه ۲۳ تیر، در حراجی ساتبیز نیویورک به قیمت ۵۰.۱ میلیون دلار، با احتساب هزینه‌ها، فروخته شد و رکورد گران‌ترین فسیل دایناسور فروخته‌شده در حراجی را شکست.
-
-این اسکلت که «گاس» نام دارد، از ۱۸۳ استخوان فسیل‌شده تشکیل شده و حدود ۶۳ درصد آن کامل است. «گاس» ۱۱.۶ متر طول دارد و یکی از بزرگ‌ترین نمونه‌های تی‌رکس کشف‌شده به شمار می‌رود.
-
-این فسیل در سال ۲۰۲۱ در یک مزرعه دامداری در داکوتای جنوبی کشف شد و قدمت آن به حدود ۶۶ تا ۷۲ میلیون سال پیش بازمی‌گردد.
-
-«گاس» پس از حدود ۱۰ دقیقه رقابت میان هفت خریدار، به فردی ناشناس فروخته شد. رکورد پیشین متعلق به اسکلت استگوسوروسی موسوم به «اِیپکس» بود که در سال ۲۰۲۴ به قیمت ۴۴.۶ میلیون دلار فروخته شد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250105
-
-<div align="center"><img src="files/post_250105_VahidOOnLine_250105.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️یک مقام وزارت امور خارجه ایالات متحده به خبرگزاری رویترز اعلام کرد که مذاکرات روز سه‌شنبه ۲۳ تیر میان نمایندگان اسرائیل و لبنان در رم «سازنده» بوده است. قرار است دور بعدی این گفتگوها فردا برگزار شود.
-
-پیش‌تر در روز چهارشنبه، رویترز گزارش داد که اسرائیل برای پیشبرد طرح‌های خروج نیروهای نظامی خود از دو منطقه در جنوب لبنان، مطابق با توافق تحت میانجیگری آمریکا، اعلام آمادگی کرده است. این مذاکرات در ادامه نشستی است که در تاریخ پنجم تیرماه در واشنگتن برگزار شد. توافق حاصل از آن نشست، محورهایی از جمله پایان جنگ اسرائیل علیه لبنان، خلع سلاح حزب‌الله، استقرار نیروهای ارتش لبنان در جنوب و عقب‌نشینی تدریجی نیروهای اسرائیلی را در بر می‌گرفت.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250104
-
-<div align="center"><img src="files/post_250104_VahidOOnLine_250104.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ای‌بی‌سی نیوز شامگاه سه‌شنبه گزارش داد مقام‌های آمریکایی تایید کرده‌اند نیروهای ایالات متحده در حال انجام حملات هوایی جدید علیه اهدافی در ایران هستند.
-به گفته یک مقام آمریکایی، این حملات از چند ساعت پیش آغاز شده و همچنان ادامه دارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250103
-
-<div align="center"><img src="files/post_250103_VahidOOnLine_250103.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکسیوس سه‌شنبه گزارش داد دونالد ترامپ در تماس با بنیامین نتانیاهو از او خواست روند خروج تدریجی نیروهای اسرائیلی از سوریه را آغاز کند و در لبنان نیز اقدام مشابهی انجام دهد.
-به گزارش اکسیوس، ترامپ حضور ارتش اسرائیل در سوریه را عامل تنش دانسته، اما نتانیاهو بر حفظ مناطق حائل امنیتی در مرزهای اسرائیل تاکید کرده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250102
-
-<div align="center"><video src="files/post_250102_VahidOOnLine_250102.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250102_VahidOOnLine_250102.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران، سه‌شنبه ۲۳ تیر، با تاکید بر حمایت از نیروهای نظامی گفت: «نه‌تنها خودم را از نیروهای نظامی جدا نمی‌دانم، بلکه آن‌ها را باعث عزت و سربلندی خودم می‌دانم و با قدرت از آن‌ها دفاع می‌کنم.»
-
-پزشکیان افزود: «حاضرم بروم و در همان خط مقدم بجنگم و از شهادت نه‌تنها نمی‌ترسم، بلکه آن را برای خودم فوز می‌دانم.»
-
- پزشکیان پیش‌تر نیز در واکنش به انتقادها از اختصاص ۲۰ میلیون بشکه نفت به نیروی هوافضای سپاه گفته بود اگر دوباره چنین شرایطی پیش بیاید، «نه ۲۰ میلیون بشکه، بلکه ۱۰۰ میلیون بشکه» هم در اختیار این نیرو قرار می‌دهد و به این حمایت افتخار می‌کند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250101
-
-<div align="center"><video src="files/post_250101_VahidOOnLine_250101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250101_VahidOOnLine_250101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عرفان کرکی، برادر جاویدنام امین کرکی، اعلام کرد برادر دیگرش کامین کرکی جمعه ۱۲ تیر به دست نیروهای امنیتی در مشهد بازداشت شده است. به گفته او، کامین کرکی که پس از مراجعه به شعبه ۲۵۷ بازپرسی ربوده و به مکانی نامعلوم منتقل شده، از تماس تلفنی محروم است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250100
-
-<div align="center"><img src="files/post_250100_VahidOOnLine_250100.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد مخبر، مشاور و دستیار مجتبی خامنه‌ای، سه‌شنبه در مراسمی که برای رهبر کشته‌شده جمهوری اسلامی در مصلای تهران برگزار شد، گفت خون علی خامنه‌ای چیزی نیست که «ملت» و ارکان نظام از آن بگذرند و افزود قصاص حتمی است.
-
-او افزود: ترامپ مثل گذشته بار دیگر به وعده‌های خود عمل نکرد و پس از برجام، این تفاهم‌نامه را نیز پاره کرد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
