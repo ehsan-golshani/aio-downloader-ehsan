@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/20 01:47
+📅 آخرین بروزرسانی: 1405/05/20 08:56
 
 ---
+
+## tasiyanc — post 7577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال رو همه اپراتورا هم اکنون ( وصل اما قط وصل)
+</div>
+
+## tasiyanc — post 7576
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر گلای تو خونه
+</div>
+
+## tasiyanc — post 7574
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+۲ سرور  سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7571
 
@@ -229,32 +258,5 @@ Fast ⚡️🚀 Premium.npvt
 اطلاع رسانی بشه
 
 @Tasiyanc 💠 | اتصال امن با مجموعه تاسیان
-</div>
-
-## tasiyanc — post 7537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ولی پسرامون ( دخترامونم ) ثابت کردن چقد باغیرتن
-</div>
-
-## tasiyanc — post 7536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
-</div>
-
-## tasiyanc — post 7535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-5سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- ✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 

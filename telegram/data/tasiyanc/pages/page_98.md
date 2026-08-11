@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/05/20 01:47
+📅 آخرین بروزرسانی: 1405/05/20 08:56
 
 ---
+
+## tasiyanc — post 6102
+
+<div align="center"><img src="files/post_6102_tasiyanc_6102.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+غیر رسمی پزشکیان استعفاء داد تایید شده نیست
+</div>
+
+## tasiyanc — post 6101
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+غیر رسمی
+
+پزشکیان استعفاء داد
+
+تایید شده نیست
+</div>
+
+## tasiyanc — post 6100
+
+<div align="center"><img src="files/post_6100_tasiyanc_6100.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان، بلاشک مرجع قوی‌ترین کانفیگ‌هایِ نپستر در تلگرام. به صد نفر تا الان کانال شمارو معرفی کردم.
+</div>
 
 ## tasiyanc — post 6099
 
@@ -166,32 +192,5 @@ UDP 53 & TCP 80 TCP 8080
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 150 گیگ تو گپ تاسیان کانفیگ ویتوری
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6075
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FastVip⚡.npvt
-</div>
-
-## tasiyanc — post 6074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده روی همه اپراتورا🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6073
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میخواستم کانفیگ اوپن دیگه بدم ولی ری اکشن کمه
 </div>
 

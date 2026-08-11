@@ -1,8 +1,72 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/20 01:47
+📅 آخرین بروزرسانی: 1405/05/20 08:56
 
 ---
+
+## tasiyanc — post 9081
+
+<div align="center"><video src="files/post_9081_tasiyanc_9081.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9081_tasiyanc_9081.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕کانفیگ اختصاصی نامحدود اینجکتور
+📶
+
+پایداری بالا ، مناسب گیم ، دانلود ، وبگردی 
+⚡️
+
+سرور سرعتی‌ لوکیشن USA - Germany 
+📍
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون  
+📱
+
+آموزش اتصال 
+🔸
+
+اتصال امن برای همه 
+🇮🇷
+
+
+📱 @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 مارک لوین:
+
+اگر قرار باشه رژیم ایران شکست بخوره، باید مردم ایران مسلح بشن.
+
+به‌جای توافق با جمهوری اسلامی، باید از مردم ایران برای سرنگونی حکومت حمایت بشه.
+
+@TASIYANC 
+⭐️
+</div>
+
+## tasiyanc — post 9079
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود با استراتژی بدست میاد نه ادعا 
+👌
+
+
+امروز پاریس
+⚡️ و منچستر یونایتد 
+⚡️بازی دارن بیا استراتژی مو ببین و یاد بگیر
+
+
+⚠️مخصوص کسایی که بالا ۵۰میلیون سرمایه دارن
+g16
+https://t.me/+5fvta-uF4QA3ZDY0
+https://t.me/+5fvta-uF4QA3ZDY0
+</div>
 
 ## tasiyanc — post 9078
 
@@ -305,56 +369,5 @@ Join @TASIYANC
 باباش با سنگ میزنه تو سرش و به قتل میرسونتش و بعدش جنازه‌شو میندازه تو یه چاه 40 متری!!
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9058
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟اپلیکیشن‌های کاربردی برای ادیت :
-
-
-⚡️ Picsart
-• کلاژ، فیلترای خوب، همه کار
-⚡️ Ps Express
-•روتوش چهره
-⚡️ Snapedit
-•حذف سوژه‌ی اضافه
-⚡️ Lightroom
-•خدای رنگ و نور
-⚡️ VN
-•ادیت Cash ویدئو
-⚡️ Instories
-•ساخت استوری‌های متفاوت
-
-👹@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥با این سایت به راحتی میتونی کل ضرر های جام جهانی رو جبران کنی
-بونوس هاش واقعا عالیه👌🏼بدون قیدوشرط
-❌با هر 1 میلیون شارژ ، 🤩🤩🤩 هزارتومان شارژ اضافی بگیر🅰️
-
-❌❌طرح شارژ رایگان فقط تا پایان مرداد ماه
-</div>
-
-## tasiyanc — post 9056
-
-<div align="center"><img src="files/post_9056_tasiyanc_9056.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛍 #بایرن_مونیخ Vs #استون_ویلا
-
-زمان: جمعه ساعت 15
-
-🚨 تجربه پیشبینی مطمئن با
-🤩 🤩 🅰️ شارژ اضافی و ریسک خیلی پایین در #بت_اینجا رو از دست نده❌
-
-🤩 🤩 درصد برگشت وجه در صورت باخت:
-🌐 betinja.bet
-🌐 betinja.bet
-کانال بونوس های رایگان g15
-@betinjabet
 </div>
 

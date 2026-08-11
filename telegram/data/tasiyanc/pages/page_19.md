@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/20 01:47
+📅 آخرین بروزرسانی: 1405/05/20 08:56
 
 ---
+
+## tasiyanc — post 8708
+
+<div align="center"><img src="files/post_8708_tasiyanc_8708.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جدیدا یه چالشی راه افتاده که پسرا با دوس دخترشون که دور کمرشون اندازه یه کف دسته عکس میگیرن و به اشتراک میذارن.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی اهدایی ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8705
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ تست شده 🔸
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 💠
+</div>
 
 ## tasiyanc — post 8704
 
@@ -234,29 +288,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 🔺دریافت پرامپت 👉
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8681
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خیلیییییی گرمهههههه
-</div>
-
-## tasiyanc — post 8679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرنگار کاخ سفید به نقل از سنتکام:
-
-بعضی اوقات ما به ایران حمله نمی‌کردیم ولی میدیدیم که کلی موشک در آسمان به طرف ایران میره، بعد می‌فهمیدیم که کویت و بحرین و عربستان و … در حال حمله به ایران بودند ولی به طور رسمی اعلام نمی‌کردند
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8677
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سی‌ان‌ان:
-
-سنتکام پس از ۱۳ شب حمله علیه ایران، جمعه بیانیه‌ای منتشر نکرد
-@Tasiyanc
 </div>
 

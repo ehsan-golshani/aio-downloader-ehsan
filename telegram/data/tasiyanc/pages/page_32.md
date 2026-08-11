@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/20 01:47
+📅 آخرین بروزرسانی: 1405/05/20 08:56
 
 ---
+
+## tasiyanc — post 8305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاهش پهنای باند داره گزارش میشه
+کانفیگ مخصوص نت ملی رو بگیرید
+
+دریافت کانفیگ 👉
+</div>
+
+## tasiyanc — post 8303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+3سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8302
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فاطمه مهاجرانی، سخنگوی دولت:
+
+دولت پزشکیان تا پای جان کنار مردم خونگرم جنوبه و از صبر و ایستادگیشون تو دوران متشنج جنگی تشکر میکنه
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8301
 
@@ -134,28 +176,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 JAVID SHAH 👑
-</div>
-
-## tasiyanc — post 8281
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-JAVID SHAH 👑
-</div>
-
-## tasiyanc — post 8280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگل داشت نابود میشد ، ولی درختان هنوز به تبر رای میدادن چون اون قانعشون کرده بود دستش چوبیه پس از خودشونه :) @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8279
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگل داشت نابود میشد ،
-ولی درختان هنوز به تبر رای میدادن
-چون اون قانعشون کرده بود
-دستش چوبیه پس از خودشونه :)
-
-@Tasiyanc ✅
 </div>
 

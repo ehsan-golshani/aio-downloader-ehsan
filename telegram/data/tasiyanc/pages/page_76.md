@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/05/20 01:47
+📅 آخرین بروزرسانی: 1405/05/20 08:56
 
 ---
+
+## tasiyanc — post 6707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی تاسیان 🆕
+
+✅50 کانفیگ تست شده سرعتی
+
+مناسب وب‌گردی ، استریم ، اینستاگرام 🦦
+
+فایل Txt رو باز کنین کانفیگ رو تو آپ 🔐 & 🔐 & 🔐 بزنید پینگ بگیرید وصل شید  🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگای رایگان مارو تو بله روبیکا به اسم نامحدود ۶۰۰ تومن میفروشن 😐
+تاسیان تو هیچ اپ ایرانی فعالیتی نداره و فروشی ام ندارع تا اطلاع ثانوی،بخدا دیگه خستم شدم انقد گفتم مراقب باشید
+</div>
+
+## tasiyanc — post 6701
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.194.219:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%40Tasiyanc%20%E2%9A%A1%F0%9F%94%B7
+﻿
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6700
 
@@ -154,32 +183,5 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 ⭕️⭕️سپاه پاسداران:
 اگر امریکا تمام خواسته‌های ما را در سندی که ارائه دادیم بپذیرد، به احتمال زیاد ما این توافق را تایید خواهیم کرد.
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6680
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ترامپ درباره توافق با ایران:
-ما به‌تازگی یک توافق عالی درباره جنگ با ایران انجام دادیم و در حال نهایی کردن مدارک هستیم. باید طی چند روز آینده کار تمام شود.
-
-احتمالاً امضا در اروپا انجام خواهد شد و این یک اتفاق عالی است.
-
-بازار سهام ۱۰۰۰ واحد رشد کرده است. این یعنی آن‌ها این توافق را دوست دارند.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️خبرگزاری فارس:
-
-با توجه به اینکه امریکا متن پیشنهادی ایران را پذیرفته است احتمال تایید این متن در مراجع اصلی‌نظام بالا است‌
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6678
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۰٪ کانفیگای NPV ک زدم امروز وصلن
 </div>
 

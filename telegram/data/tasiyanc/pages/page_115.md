@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/05/20 01:47
+📅 آخرین بروزرسانی: 1405/05/20 08:56
 
 ---
+
+## tasiyanc — post 5666
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 🇸🇦
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈3 سرور وی ای پی تست شده وای‌فای ⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5665
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 V2RayNG wifi
+
+vless://d37a75db-76b6-4db8-b213-0d5b044d138d@172.64.152.100:443?path=%2F&security=tls&encryption=none&insecure=0&host=hio-awx.pages.dev&type=ws&allowInsecure=0&sni=hio-awx.pages.dev#%40Tasiyanc%20%F0%9F%87%BA%F0%9F%87%B8
+
+﻿@Tasiyanc ☑
+</div>
+
+## tasiyanc — post 5664
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+WİFİ موشک.npvt
+</div>
 
 ## tasiyanc — post 5663
 
@@ -168,31 +197,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تمام سرورا با همراه اول & وای‌فای تست میشن
-</div>
-
-## tasiyanc — post 5629
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈۲سرور تست شده همه اپراتورا⛈
-
-برای اتصال پایدار صبور باشید🚀
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5628
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرورای وای‌فای ک بالا گذاشتم هنوز وصله✅
-</div>
-
-## tasiyanc — post 5627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی
 </div>
 

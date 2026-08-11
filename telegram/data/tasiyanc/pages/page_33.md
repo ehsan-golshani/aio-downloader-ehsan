@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/20 01:47
+📅 آخرین بروزرسانی: 1405/05/20 08:56
 
 ---
+
+## tasiyanc — post 8281
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+JAVID SHAH 👑
+</div>
+
+## tasiyanc — post 8280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگل داشت نابود میشد ، ولی درختان هنوز به تبر رای میدادن چون اون قانعشون کرده بود دستش چوبیه پس از خودشونه :) @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8279
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگل داشت نابود میشد ،
+ولی درختان هنوز به تبر رای میدادن
+چون اون قانعشون کرده بود
+دستش چوبیه پس از خودشونه :)
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8278
 
@@ -146,46 +169,5 @@
 تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اینترنت تون چطوره؟
-</div>
-
-## tasiyanc — post 8255
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-6سرور سرعتی پرمیوم متد جدید ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8252
-
-<div align="center"><img src="files/post_8252_tasiyanc_8252.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل
-فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️
-
-مدیریت مجموعه تاسیان
 </div>
 
