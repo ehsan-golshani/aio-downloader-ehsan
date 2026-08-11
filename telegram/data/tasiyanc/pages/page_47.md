@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 7764
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+2سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜
+🛜🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7757
 
@@ -133,11 +159,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مسییییییییی
-</div>
-
-## tasiyanc — post 7722
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مصر گل دوم رو زد
 </div>
 

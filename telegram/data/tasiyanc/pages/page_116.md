@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 5634
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور تست شده همه اپراتورا⛈
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5633
 
@@ -172,11 +184,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یدونه هستش درست ۲ هفته وصلم 😂😂
-</div>
-
-## tasiyanc — post 5602
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اقا واقعا وصل ممنون تاسيان♥️♥️♥️
 </div>
 

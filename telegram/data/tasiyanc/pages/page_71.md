@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 6880
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+3سرور سرعتی تست شده 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6879
 
@@ -214,11 +230,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.189:8
 ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6851
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساعت 1.30 بامداد شروع بازی 🇧🇷 Brazil - 🇲🇦 Morocco @Tasiyanc ✅
 </div>
 

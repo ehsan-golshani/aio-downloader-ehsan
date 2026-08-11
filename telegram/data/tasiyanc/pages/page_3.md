@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 9132
+
+<div align="center"><img src="files/post_9132_tasiyanc_9132.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕
+
+اسم : Mountain Embrace ❤️
+
+
+آموزش استفاده 👉
+
+دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9131
 
@@ -295,11 +312,5 @@ prompt Cinematic Winter Fashion Portrait
 cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, street, symmetrical face, look at camera, detailed face, photo studio, awesome light, muted colors :: Fashion Photographer
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9111
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرگزاری تسنیم : حمیدرضا رجب‌زاده، مداحی که چند روزی بود گم شده بود، به قتل رسیده و فیلم لحظه قتلش به خانواده‌‌اش ارسال شده، پلیس فعلا داره پیگیری می‌کنه. « مشاهده »
 </div>
 

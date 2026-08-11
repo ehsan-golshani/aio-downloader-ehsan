@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 9181
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قانون جدید
+اگر مدل ماشینتون 1385به قبله، جزو خودروهای فرسوده حساب میشه و
+به این ماشین‌ها دیگه بنزین سهمیه‌ای نمیدن، حق تو اسنپ و تاکسی های اینترنتی هم ندارن!
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9180
 
@@ -350,11 +360,5 @@ A high-contrast black and white studio portrait of a handsome Middle Eastern man
 •اتصال امن برای همه 🇮🇷
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱 ممنون ک هستید❤️
 </div>
 

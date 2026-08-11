@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 8794
+
+<div align="center"><img src="files/post_8794_tasiyanc_8794.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجا نه نیویورکه نه دوبی نه ژاپن
+این نمای نزدیک از مادربرد یک کامپیوتره !
+
+⭐ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8793
 
@@ -209,17 +220,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8769
-
-<div align="center"><video src="files/post_8769_tasiyanc_8769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8769_tasiyanc_8769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سام صابری که دیشب اون گندش بالا اومد، امروز با این الفاظ مردم رو خطاب کرد و به همه ناموسی داد:
-
-@TASIYANC
 </div>
 

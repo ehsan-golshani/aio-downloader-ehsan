@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/05/20 14:45
+📅 آخرین بروزرسانی: 1405/05/20 15:37
 
 ---
+
+## ProxyMTProto — post 47671
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: otklyuchi-vpn.nolags.pw
+Port: 443
+Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47670
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hotmtpro.duckdns.org
+Port: 443
+Secret: 7u-wXMxodyqALbbZW3bovVF3d3cuYW1hem9uLmNvbQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47669
 
@@ -164,24 +182,6 @@ Secret: ee17b59d905a546c7bf7355cf95c4ecfed7777772e636c6f7564666c6172652e636f6d
 Server: s3.neo-trading.org
 Port: 993
 Secret: eec3fefd89a25d37ca3af1a602c7bfd8de7777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: otklyuchi-vpn.nolags.pw
-Port: 443
-Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47650
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r10.proxytg.space
-Port: 8443
-Secret: ee65032756d1cfb78ebbd0ea8db83d43937231302e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 

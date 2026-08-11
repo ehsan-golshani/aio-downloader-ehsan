@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 8516
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اختلال اینترنت در سراسر ایران
+</div>
 
 ## tasiyanc — post 8515
 
@@ -247,11 +253,5 @@ Loc 🇩🇪 🇩🇪
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
 </div>
 

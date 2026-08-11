@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 7821
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دریافت کانفیگ نت ملی در صورت قطعی 👉
+ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
+</div>
 
 ## tasiyanc — post 7819
 
@@ -179,31 +186,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبر هارو تو چنل پروکسی دنبال کنین
 @TasiyanProxy
-</div>
-
-## tasiyanc — post 7764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-2سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜
-🛜🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
 </div>
 

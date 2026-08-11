@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 8856
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود نپسترنت 🔐
+
+سرور سرعتی تست شده مولتی لوکییشن 🌍
+
+آموزش اتصال 
+⛓
+
+اتصال امن برای همه 
+🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8855
 
@@ -259,11 +275,5 @@ R8
 🔴 ورود خودروهای آفرود به جنگل، کویر و ساحل‌های کشور ممنوع شد😞
 
 @Tasiyanc 🕒
-</div>
-
-## tasiyanc — post 8822
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡𝙉𝙚𝙬 𝙎𝙥𝙚𝙚𝙙 ⚡.npvt
 </div>
 

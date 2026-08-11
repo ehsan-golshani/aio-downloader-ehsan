@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 101
 
-📅 آخرین بروزرسانی: 1405/05/20 14:45
+📅 آخرین بروزرسانی: 1405/05/20 15:37
 
 ---
+
+## ProxyMTProto — post 48011
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: apex.proxytop.space
+Port: 443
+Secret: ee05d3d7463edfb7a674cc1d89ba24eeba617065782e70726f7879746f702e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48010
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: jet.quickrouteapp.xyz
+Port: 8443
+Secret: eeedca657d767c71c26de484e74182c3076a65742e717569636b726f7574656170702e78797a
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48009
 
@@ -163,24 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: connect.chunkycorp.shop
 Port: 443
 Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47991
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vortex.flowstreamhub.site
-Port: 443
-Secret: eeafcde96fcec1b95dd190a95814b0f026766f727465782e666c6f7773747265616d6875622e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 

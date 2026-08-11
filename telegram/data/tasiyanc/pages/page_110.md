@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 5789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈2سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5788
 
@@ -167,18 +180,5 @@ V2Box 🔐 RighTel
 vless://da2ab05b-6b96-4d0c-96eb-7b320b343fc0@zdas.zeabur.app:443?path=%2Fsecurity%3Dtls&security=tls&encryption=none&insecure=0&host=zdas.zeabur.app&type=ws&allowInsecure=0#%40Tasiyanc%20RighTel%20%E2%9B%93%EF%B8%8F
 
 @Tasiyanc ✔️
-</div>
-
-## tasiyanc — post 5762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-
-🚀 @Tasiyanc ✅
 </div>
 

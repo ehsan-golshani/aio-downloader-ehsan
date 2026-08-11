@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 6820
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ در تروث : توافق فردا امضا می‌شود @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6818
 
@@ -222,11 +228,5 @@ Vahid online
 امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩
 
 @Tasiyanc ✅ | تاسیان
-</div>
-
-## tasiyanc — post 6789
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن نزنید یه موقع زشته
 </div>
 

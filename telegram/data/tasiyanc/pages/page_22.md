@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 8626
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احوال شما؟
+</div>
 
 ## tasiyanc — post 8625
 
@@ -233,15 +239,6 @@ Fact @TASIYANC ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 واکنش عجیب مردم کره شمالی به دیدن اولین کنسرت ( موزیک) گروه کی پاپ در سال ۲۰۱۸ ...
 
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ کوبا در مسیر آزادی
-مارکو روبیو:
-"هدف ما این است که به کشوری به نام کوبا برسیم که مردم آن بتوانند از رفاه، امنیت، و یک زندگی بهتر در آینده بهره‌مند شوند."
 @TASIYANC ✅
 </div>
 

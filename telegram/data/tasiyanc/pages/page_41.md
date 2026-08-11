@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 8052
+
+<div align="center"><img src="files/post_8052_tasiyanc_8052.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 14 July، روز جهانی Nude یا همون لخت بودنه ❤️
+بفرست برا کسی که میخوای نود بگیری ازش 😂🦦
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8049
 
@@ -264,25 +276,5 @@
 
 @Tasiyanc
 ✅
-</div>
-
-## tasiyanc — post 7993
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ تست شده 🔸
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc 💠
 </div>
 

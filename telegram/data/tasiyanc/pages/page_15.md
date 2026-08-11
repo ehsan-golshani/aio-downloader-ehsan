@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 8822
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡𝙉𝙚𝙬 𝙎𝙥𝙚𝙚𝙙 ⚡.npvt
+</div>
 
 ## tasiyanc — post 8821
 
@@ -266,16 +272,5 @@ Multi Location ⚡
 
 ⭐ @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 8794
-
-<div align="center"><img src="files/post_8794_tasiyanc_8794.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینجا نه نیویورکه نه دوبی نه ژاپن
-این نمای نزدیک از مادربرد یک کامپیوتره !
-
-⭐ @Tasiyanc ✅
 </div>
 

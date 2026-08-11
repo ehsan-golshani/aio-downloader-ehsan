@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 6685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠⭕️⭕️ ترامپ : خودم احتمالاً نمی‌تونم تو مراسم امضای توافق حضور داشته باشم و ونس به نمایندگی از آمریکا اونجا خواهد بود
+- امضای توافق ممکنه خیلی زود انجام بشه، حتی شاید همین آخر هفته
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6683
 
@@ -173,16 +182,5 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6660
-
-<div align="center"><img src="files/post_6660_tasiyanc_6660.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ تو مراسم افتتاحیه جام جهانی امشب راس ساعت 21:00
-شکیرا، دنی اوشن، جی بالوین، بلیندا و لیسا توش قراره اجرا داشته باشن
-@Tasiyanc 
-✅
 </div>
 

@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 7210
+
+<div align="center"><video src="files/post_7210_tasiyanc_7210.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7210_tasiyanc_7210.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ اختصاصی دارک تانل 
+🌟
+
+برای گیم 
+🎲 دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖 
+
+حجم نامحدود - سرعتی 
+🚀
+
+تست شده رو تمام نت ها 
+✅
+
+دانلود Dark Tunnel  
+🕹
+
+آموزش اتصال به سرور دارک 
+⏩
+
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7209
 
@@ -295,12 +329,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡⚡🇩🇪.npvt
-</div>
-
-## tasiyanc — post 7183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود سرور فرانکفورت 
-🇩🇪
 </div>
 

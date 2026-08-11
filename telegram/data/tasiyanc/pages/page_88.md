@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 6356
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+گپمون هنو ۴ کا نشده 🗽😐 جوین شید عشقا
+</div>
 
 ## tasiyanc — post 6355
 
@@ -199,11 +206,5 @@ Password : @Tasiyanc  ⏩
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دولت شیرکاکائوئیا (پاکستانی ها) اینترنت بین الملل رو بخاطر فراخوان اعتراضی بستند
-</div>
-
-## tasiyanc — post 6332
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حال ندارید ریکشن بزنید بریم بخوابیم
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 8379
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماممم انگلیس ۶ ، ۴ فرانسه رو کرد
+</div>
 
 ## tasiyanc — post 8375
 
@@ -198,18 +204,6 @@ Multi Location ⚡ Fast.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کوله‌ی دخترش رو انداخته بود،
 براش آواز هم می‌خوند تا خستگی مهد از تنش در بره...🫠💘
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8345
-
-<div align="center"><img src="files/post_8345_tasiyanc_8345.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 18 July؛ روز ملی خوشگلا | Attractive Day هست🥹.
-
-+این پست رو به خوشگل ترین فرد تو زندگیت بفرست و روزشو تبریک بگو.
 
 @Tasiyanc✅
 </div>

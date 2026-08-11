@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 6001
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۴۰ هزار نفر ۲ تا ریکشن🤣🤣
+</div>
 
 ## tasiyanc — post 6000
 
@@ -176,11 +182,5 @@ Create openvpn
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرور های vip بعدی با متد جدید ساعت ۴ در حال تستشم جواب بده میزارم
-</div>
-
-## tasiyanc — post 5970
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پینگ نگیرید ، کانکت شدید بیاید تل یا اینستا بالا میاد خودش
 </div>
 

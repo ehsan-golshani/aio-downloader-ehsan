@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/20 14:47
+📅 آخرین بروزرسانی: 1405/05/20 15:39
 
 ---
+
+## tasiyanc — post 6632
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Homayoun Shajarian & Sohrab Pournazeri – Irane Man
+</div>
 
 ## tasiyanc — post 6630
 
@@ -164,19 +170,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پخت پز ب عشق خودتون ، قطعی باشه نباشه پیش همیم🩷🤝
-</div>
-
-## tasiyanc — post 6575
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
