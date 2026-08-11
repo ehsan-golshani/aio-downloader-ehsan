@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/20 21:21
+📅 آخرین بروزرسانی: 1405/05/20 22:19
 
 ---
+
+## ProxyMTProto — post 49312
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49311
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp1.hlebushek.com
+Port: 443
+Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49310
 
@@ -163,24 +181,6 @@ Secret: ee3646eba8c65e0e1d4804a7f9caa6531d626573742d70726f78792e696e6b
 Server: vizhe-download.co.uk.
 Port: 8443
 Secret: Vizhe_danlod_namahdod
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49292
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49291
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Oh.Oh.AjaB_Sorati_Dare
-Port: 443
-Secret: BeZaN_RoooSh_Connect
 @ProxyMTProto
 </div>
 

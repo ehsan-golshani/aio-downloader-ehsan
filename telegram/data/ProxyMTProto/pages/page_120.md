@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/05/20 21:21
+📅 آخرین بروزرسانی: 1405/05/20 22:19
 
 ---
+
+## ProxyMTProto — post 47644
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.21.87
+Port: 443
+Secret: 7sEXmKsAiDG0dAZsnh6_XHFhdml0by5ydQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47643
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.21.87
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c71617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47642
 
@@ -166,24 +184,6 @@ Secret: 7mYW_5fPLJzJxcvUupkA3pN3d3cuZ29vZ2xlLmNvbQ
 Server: nd1.mowork.twc1.net
 Port: 443
 Secret: ee79faca7ec8bd1b9125007dee535716f47777772e6d6963726f736f66742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 45.12.109.223
-Port: 443
-Secret: ee43db025a33093757dadf5ab0aa9966b1676f6f676c65617069732e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47623
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 72.56.87.28
-Port: 443
-Secret: 7sEXmKsAiDG0dAZsnh6_XHZhdml0by5ydQ
 @ProxyMTProto
 </div>
 

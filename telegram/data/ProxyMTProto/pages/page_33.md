@@ -1,8 +1,19 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/20 21:21
+📅 آخرین بروزرسانی: 1405/05/20 22:19
 
 ---
+
+## ProxyMTProto — post 49392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49391
 
 ## ProxyMTProto — post 49390
 
@@ -156,24 +167,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: tge0a4dd98.koshkaproxy.shop
 Port: 443
 Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: openhostings.co.uk.
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49371
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fleethop.online
-Port: 443
-Secret: eed82e9162b09c2ddfdbe3ddfe7d28d87a666c656574686f702e6f6e6c696e65
 @ProxyMTProto
 </div>
 

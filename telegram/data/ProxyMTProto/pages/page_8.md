@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/20 21:21
+📅 آخرین بروزرسانی: 1405/05/20 22:19
 
 ---
+
+## ProxyMTProto — post 49896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: api.nowabst.net
+Port: 853
+Secret: ee4b0955a40972e28dc3e76df92e9a3f1e766b2e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49895
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: offers.wrenshire.co.uk
+Port: 7980
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49894
 
@@ -163,24 +181,6 @@ Secret: eed09b88cbbd4e744865b890e5a0bd26876164322e617269786f2e73686f70
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49874
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49873
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn2.librava.click
-Port: 443
-Secret: ee949089dd5eebdb2db7a13f24e981b7d563646e322e6c6962726176612e636c69636b
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/20 21:21
+📅 آخرین بروزرسانی: 1405/05/20 22:19
 
 ---
+
+## ProxyMTProto — post 49332
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: super.sub-ploter.co.uk
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49331
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mc-ssh.t-proxyru.info.
+Port: 25565
+Secret: 7hBEYoISSb16xRkTAiDCXQljZG4ueWVrdGFuZXQuY29t
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49330
 
@@ -163,24 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: ad3.arixo.shop
 Port: 443
 Secret: ee722fba8d97b9027b5fc4deb041b290cb6164332e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49312
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49311
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp1.hlebushek.com
-Port: 443
-Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
 @ProxyMTProto
 </div>
 
