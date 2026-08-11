@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/20 10:08
+📅 آخرین بروزرسانی: 1405/05/20 13:53
 
 ---
+
+## tasiyanc — post 8115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش جنوب ایران هم اندازه جنوب لبنان براتون مهم بود
+</div>
 
 ## tasiyanc — post 8114
 
@@ -216,13 +222,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تتر 190 - ریدید تو زندگی ما
-</div>
-
-## tasiyanc — post 8088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ یک مقام ارشد آمریکایی : جمهوری اسلامی از توافق با آمریکا رسما خارج شد
-
-@Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/20 10:08
+📅 آخرین بروزرسانی: 1405/05/20 13:53
 
 ---
+
+## tasiyanc — post 7990
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 13 July، روزِ جهانی دخترای قد کوتاهه 👼
+@TasiyanC 
+⭐️
+</div>
 
 ## tasiyanc — post 7988
 
@@ -232,15 +240,5 @@ Speed Fast ⚡ 🇩🇪.npvt
 
 
 @Tasiyanc ⭐️ | مرجع کانفیگ وصل
-</div>
-
-## tasiyanc — post 7939
-
-<div align="center"><img src="files/post_7939_tasiyanc_7939.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اصفهان:
-
-@Tasiyanc⭐️
 </div>
 

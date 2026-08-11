@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/05/20 10:08
+📅 آخرین بروزرسانی: 1405/05/20 13:53
 
 ---
+
+## tasiyanc — post 6230
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🌤️Vip.conf
+</div>
 
 ## tasiyanc — post 6229
 
@@ -180,11 +186,5 @@ https://t.me/TasiyanProxy
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یعنی هر بار باید بگم ؟؟؟؟؟؟؟؟؟
-</div>
-
-## tasiyanc — post 6205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP 🚀@Tasiyanc GhdMethod .conf
 </div>
 

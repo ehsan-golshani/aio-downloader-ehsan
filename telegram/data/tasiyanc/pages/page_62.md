@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/20 10:08
+📅 آخرین بروزرسانی: 1405/05/20 13:53
 
 ---
+
+## tasiyanc — post 7208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹هیئت مذاکره کننده جمهوری اسلامی دقایقی قبل به ریاست قالیباف راهی سوئیس شد.
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7207
 
@@ -281,13 +290,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ❌تنگه هرمز بدلیل کرم ریختن اسرائیل و حمله به مناطق نظامی و غیر نظامی لبنان بسته شد
-</div>
-
-## tasiyanc — post 7181
-
-<div align="center"><img src="files/post_7181_tasiyanc_7181.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Milano 🇮🇹🔥.npvt
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 101
 
-📅 آخرین بروزرسانی: 1405/05/20 12:45
+📅 آخرین بروزرسانی: 1405/05/20 13:51
 
 ---
+
+## ProxyMTProto — post 48007
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tg.nowabst.net
+Port: 853
+Secret: eebfbfb8093b088269716ea5262d483e1d6164732e78352e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48006
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ%3D%3D
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48005
 
@@ -162,24 +180,6 @@ Secret: ee79ba93b4e649ba70dcd191e72539c99e676f6f676c65617069732e636f6d
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown
 Port: 25565
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47987
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vortex.flowstreamhub.site
-Port: 443
-Secret: eeafcde96fcec1b95dd190a95814b0f026766f727465782e666c6f7773747265616d6875622e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47986
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
 Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>

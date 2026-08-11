@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/05/20 10:08
+📅 آخرین بروزرسانی: 1405/05/20 13:53
 
 ---
+
+## tasiyanc — post 6787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6786
 
@@ -181,14 +196,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6730
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️وزیر انرژی آمریکا:
-
-🔻  ممکن است به عنوان بخشی از امتیازاتی که ما ارائه می‌دهیم، بخشی از تحریم‌های ایران لغو شود
-@Tasiyanc ✅
 </div>
 

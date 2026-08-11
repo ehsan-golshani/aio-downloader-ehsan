@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/05/20 10:08
+📅 آخرین بروزرسانی: 1405/05/20 13:53
 
 ---
+
+## tasiyanc — post 5668
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Mci [22].npvt
+</div>
 
 ## tasiyanc — post 5667
 
@@ -179,19 +185,6 @@ WİFİ موشک.npvt
 </div>
 
 ## tasiyanc — post 5633
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈سرور تست شده همه اپراتورا⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5632
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔑Pass : @Tasiyanc

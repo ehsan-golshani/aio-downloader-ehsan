@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/05/20 10:08
+📅 آخرین بروزرسانی: 1405/05/20 13:53
 
 ---
+
+## tasiyanc — post 5809
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GM TASIYAN 💝
+</div>
 
 ## tasiyanc — post 5808
 
@@ -193,13 +199,5 @@ Fast ⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تبلیغاتی ک زیر پستها میاد متعلق به ما نیست از طرف تلگرامه
-</div>
-
-## tasiyanc — post 5787
-
-<div align="center"><img src="files/post_5787_tasiyanc_5787.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Panda 🐼.npvt
 </div>
 

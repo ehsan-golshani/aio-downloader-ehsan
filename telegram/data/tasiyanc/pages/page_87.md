@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/20 10:08
+📅 آخرین بروزرسانی: 1405/05/20 13:53
 
 ---
+
+## tasiyanc — post 6383
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[Fast] ⚡ @Tasiyanc.npvt
+</div>
 
 ## tasiyanc — post 6382
 
@@ -219,11 +225,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه سری چنلهای عزیز هم ک باهاشون رفیقم فور میکنن بدون اینکه دیکد کنن ، جا داره ازشون تشکر کنم ❤️‍🔥
-</div>
-
-## tasiyanc — post 6354
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی لاقل اجازه بده ممبرای خودم وصل شن بعد
 </div>
 

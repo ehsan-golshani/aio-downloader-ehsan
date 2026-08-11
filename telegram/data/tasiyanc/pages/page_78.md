@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/20 10:08
+📅 آخرین بروزرسانی: 1405/05/20 13:53
 
 ---
+
+## tasiyanc — post 6658
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطورید رو به راهید؟
+</div>
 
 ## tasiyanc — post 6657
 
@@ -205,11 +211,5 @@ Homayoun Shajarian & Sohrab Pournazeri – Irane Man
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Homayoun Shajarian & Sohrab Pournazeri – Irane Man
-</div>
-
-## tasiyanc — post 6629
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به یاد فرزندان ایران 🖤 ۱۸ & ۱۹
 </div>
 

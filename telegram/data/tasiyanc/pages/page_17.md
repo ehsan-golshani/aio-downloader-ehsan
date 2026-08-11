@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/20 10:08
+📅 آخرین بروزرسانی: 1405/05/20 13:53
 
 ---
+
+## tasiyanc — post 8765
+
+<div align="center"><img src="files/post_8765_tasiyanc_8765.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نخست‌وزیر نتانیاهو و رئیس‌جمهور ترامپ در کاخ سفید.
+
+@TASIYANc ⭐️
+</div>
 
 ## tasiyanc — post 8764
 
@@ -223,12 +233,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc 💠
-</div>
-
-## tasiyanc — post 8741
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینم چنل جدیدمون ک بیشتر فیلم و سریال خواهیم گذاشت دوس داشتید برای حمایت جوین بشید دوستون دارم 💖
-https://t.me/TsMoviee
 </div>
 

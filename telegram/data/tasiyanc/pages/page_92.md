@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/05/20 10:08
+📅 آخرین بروزرسانی: 1405/05/20 13:53
 
 ---
+
+## tasiyanc — post 6253
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪐🇩🇪 @Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6252
 
@@ -181,11 +187,5 @@ HOT 🔥@TASIYANC.conf
 ⏩
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6230
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🌤️Vip.conf
 </div>
 
