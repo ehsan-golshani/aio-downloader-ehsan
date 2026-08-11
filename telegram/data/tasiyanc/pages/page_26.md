@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/20 19:24
+📅 آخرین بروزرسانی: 1405/05/21 00:38
 
 ---
+
+## tasiyanc — post 8486
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 20 July روز جهانی ماهه
+
+به تمام دختر پسرای چنلمون تبریك میگیم این روز رو 🌚
+</div>
+
+## tasiyanc — post 8484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt
+</div>
+
+## tasiyanc — post 8483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+10سرور سرعتی پرمیوم سرور ترکیه⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8482
 
@@ -154,32 +192,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خوبه به ترامپ میکروفن ندادن وگرنه میخواست بگه ایران نباید سلاح هسته ای داشته باشه وسط زمین
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویس علی دایی در مورد باخت آرژانتین 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8461
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ میخواست با بازیکنا اسپانیا قهرمانیو جشن بگیره که رئیس فیفا اومد بهش گفت مشتی بیا اینور 😂😂😂😂😂
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8460
-
-<div align="center"><img src="files/post_8460_tasiyanc_8460.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فووووری ، حمله سپاه پاسداران به ورزشگاهی که ترامپ در اون حضور داشت !
 
 @TASIYANC ✅
 </div>

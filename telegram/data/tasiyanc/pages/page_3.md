@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/20 19:24
+📅 آخرین بروزرسانی: 1405/05/21 00:38
 
 ---
+
+## tasiyanc — post 9141
+
+<div align="center"><video src="files/post_9141_tasiyanc_9141.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9141_tasiyanc_9141.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شعله های آتش نفتکش در سواحل عمان که مورد اصابت موشک قرار گرفته
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9140
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 یه نفت کش تو تنگه هرمز میخواست راهشو کج کنه از مسیر آمریکا (عمان) رد شه که با ۴ موشک مورد اصابت قرار گرفت
+</div>
+
+## tasiyanc — post 9139
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴متهمین قتل «حمیدرضا رجب‌زاده» دستگیر شدند طبق اعلام مقام‌های قضایی، خودرویی که او آخرین‌بار سوار شده بود شناسایی و مالک آن دستگیر شد. این فرد اعتراف کرده که به همراه ۴ نفر دیگر و با تحریک یک شبکه خارج از کشور، اقدام به ربایش و قتل رجب‌زاده کرده‌اند @TASIYANC…
+</div>
 
 ## tasiyanc — post 9138
 
@@ -259,44 +283,4 @@ iOS  📱: V2BOX 🔐  Npv tunnel 🔐
 
 Join As @TASIYANC ✅
 </div>
-
-## tasiyanc — post 9118
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-r18
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9117
-
-<div align="center"><img src="files/post_9117_tasiyanc_9117.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-r18
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9116
 

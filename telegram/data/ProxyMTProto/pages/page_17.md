@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/20 23:26
+📅 آخرین بروزرسانی: 1405/05/21 00:36
 
 ---
+
+## ProxyMTProto — post 49717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ops2ops.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49716
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cloud.neoqua.pro
+Port: 443
+Secret: ee030089cc0dcc47eab9137c31a92a8ad9636c6f75642e6e656f7175612e70726f
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49715
 
@@ -161,24 +179,6 @@ Secret: ee1dd78b7b5132effe70cb01bef69a351a6f7a6f6e2e7275
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: ops2ops.co.uk.
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49697
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad1.arixo.shop
-Port: 443
-Secret: eee09f46368021f91b92ad3dea14c7ac896164312e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49696
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto

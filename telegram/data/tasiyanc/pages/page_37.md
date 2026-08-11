@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/20 19:24
+📅 آخرین بروزرسانی: 1405/05/21 00:38
 
 ---
+
+## tasiyanc — post 8196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨
+🚨۷ انفجار مهیب در بوشهر
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
+</div>
+
+## tasiyanc — post 8194
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه
+
+دریافت کانفیگ 👉
+</div>
 
 ## tasiyanc — post 8192
 
@@ -147,26 +172,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عجیب اما واقعی جنوب ایران زیر بمباران هست صدا سیما از جنوب لبنان میگه
-</div>
-
-## tasiyanc — post 8167
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هدف قرار گرفتن پل کهورستان بندرعباس و قطع ارتباط شهرهای جنوب با همدیگه
-نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8165
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️حمله به فرودگاه ایرانشهر در سیستان و بلوچستان @TasiyanProxy
-</div>
-
-## tasiyanc — post 8163
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بندرعباس عزیز زیر حملات شدید آمریکا 💔
 </div>
 

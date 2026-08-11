@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/20 23:26
+📅 آخرین بروزرسانی: 1405/05/21 00:36
 
 ---
+
+## ProxyMTProto — post 49396
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49395
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 34.12.229.246
+Port: 443
+Secret: dd2bc98ec562627d4d23f303a558febf39
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49394
 
@@ -149,24 +167,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: more1.gram.blog
 Port: 443
 Secret: ee19407ecec18eebf09a96119ccbe703c462726f777365722e79616e6465782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49376
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: logs.jinxandjack.co.uk.
-Port: 443
-Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49375
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 185.16.38.157
-Port: 443
-Secret: 136d233c4b3c2d9784ab00e5c3dedc7a
 @ProxyMTProto
 </div>
 
