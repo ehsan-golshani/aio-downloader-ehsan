@@ -1,8 +1,27 @@
 # آرشیو کانال ProxyMTProto - صفحه 122
 
-📅 آخرین بروزرسانی: 1405/05/20 22:19
+📅 آخرین بروزرسانی: 1405/05/20 23:26
 
 ---
+
+## ProxyMTProto — post 47606
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rus1.mtproxygram.pro
+Port: 443
+Secret: eefbee6e61d427a84d26b97590a8f63bab62726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47605
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Учитывая многочисленные запросы наших дорогих пользователей на покупку персональных и выделенных прокси, мы запустили специального бота для обработки ваших заказов. Те, кто желает совершить покупку, могут легко сделать это, нажав на кнопку или ссылку ниже‼️
+
+Частные прокси без рекламы
+
+https://t.me/proxycenter_rubot?start
+</div>
 
 ## ProxyMTProto — post 47604
 
