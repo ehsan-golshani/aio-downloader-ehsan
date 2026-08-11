@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/20 13:53
+📅 آخرین بروزرسانی: 1405/05/20 14:47
 
 ---
+
+## tasiyanc — post 6683
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ : محل امضای توافق بزودی اعلام میشود
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6682
 
@@ -175,27 +182,6 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚽️ تو مراسم افتتاحیه جام جهانی امشب راس ساعت 21:00
 شکیرا، دنی اوشن، جی بالوین، بلیندا و لیسا توش قراره اجرا داشته باشن
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6659
-
-<div align="center"><video src="files/post_6659_tasiyanc_6659.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6659_tasiyanc_6659.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟢معرفی اپ کاربردی برای فوتبالیا
-
-🔴برای اطلاع از زمان دقیق بازیها - جزئیات و ترکیب تیمها در جام جهانی کافیه این اپ جهانی رو نصب کنین و FIFA world cup رو فالو کنین
-
-Fotmob Android 
-🕹
-
-Fotmob iOS 
-📱
-
 @Tasiyanc 
 ✅
 </div>

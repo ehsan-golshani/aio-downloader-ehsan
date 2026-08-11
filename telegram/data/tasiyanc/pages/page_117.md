@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 117
 
-📅 آخرین بروزرسانی: 1405/05/20 13:53
+📅 آخرین بروزرسانی: 1405/05/20 14:47
 
 ---
+
+## tasiyanc — post 5601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
+</div>
 
 ## tasiyanc — post 5600
 
@@ -170,11 +176,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هدیه 25 کا شدن ما تمومی ندارع بازم میزارم سرور
-</div>
-
-## tasiyanc — post 5571
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باز ما پختو پز کردیمو ری اکشن ندیدیم 🥺
 </div>
 

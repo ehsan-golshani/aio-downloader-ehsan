@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/20 13:53
+📅 آخرین بروزرسانی: 1405/05/20 14:47
 
 ---
+
+## tasiyanc — post 8432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موقع قطعی خودتو بکشی ام رات نمیدم
+</div>
 
 ## tasiyanc — post 8431
 
@@ -151,11 +157,5 @@
 آبادان، پنجاه‌سال پیش، ملقب به مروارید خاورمیانه.
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8406
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04]⚡@Tasiyanc.ovpn
 </div>
 

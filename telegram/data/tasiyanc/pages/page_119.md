@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 119
 
-📅 آخرین بروزرسانی: 1405/05/20 13:53
+📅 آخرین بروزرسانی: 1405/05/20 14:47
 
 ---
+
+## tasiyanc — post 5540
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان سرور تست شده وای‌فای 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5539
 
@@ -339,15 +349,5 @@ t.me/TasiyanOwner
 برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ لینک داخلی نپسترنت آپدیت نهایی
-
-🔐 NPV Tunnel 👈
-
-Password file : @Tasiyanc
 </div>
 

@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/20 13:53
+📅 آخرین بروزرسانی: 1405/05/20 14:47
 
 ---
+
+## tasiyanc — post 9155
+
+<div align="center"><img src="files/post_9155_tasiyanc_9155.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕
+
+اسم : Cozy Cat Cuddle 😒
+
+آموزش استفاده 👉
+
+دریافت پرامپت👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9154
 
@@ -219,14 +235,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 دریافت پرامپت 👉
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زمانی به این درجه از سود توی بت میرسی که بدونی کی و کجا وارد شی🚀
-
-https://t.me/+_btGj-rRAxs3NGVk
-https://t.me/+_btGj-rRAxs3NGVk
 </div>
 

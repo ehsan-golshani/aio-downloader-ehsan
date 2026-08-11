@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/20 13:53
+📅 آخرین بروزرسانی: 1405/05/20 14:47
 
 ---
+
+## tasiyanc — post 6156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید 📱
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6155
 
@@ -182,11 +191,5 @@ vip 🚀🔥 @Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fast2⚡@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6130
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر 💋
 </div>
 
