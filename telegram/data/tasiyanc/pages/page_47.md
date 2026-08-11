@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/05/20 08:56
+📅 آخرین بروزرسانی: 1405/05/20 10:08
 
 ---
+
+## tasiyanc — post 7755
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری حملات آمریکا به اسکله حقانی در سیریك
+</div>
 
 ## tasiyanc — post 7754
 
@@ -150,11 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دروازه بان مصرو 😐😂
-</div>
-
-## tasiyanc — post 7719
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مصر یک صفر جلوئه
 </div>
 

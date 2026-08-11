@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/05/20 08:56
+📅 آخرین بروزرسانی: 1405/05/20 10:08
 
 ---
+
+## tasiyanc — post 6457
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 🇯🇵♻️
+
+تست شده سامانتل - رایتل - وایفای 
+🚀
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6456
 
@@ -218,11 +233,5 @@ Fast ⚡🪐 متد جدید.npvt
 😬Password :″  @Tasiyanc  ″
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6429
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
 </div>
 

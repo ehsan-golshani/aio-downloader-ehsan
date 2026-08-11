@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/20 08:54
+📅 آخرین بروزرسانی: 1405/05/20 10:06
 
 ---
+
+## ProxyMTProto — post 49268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49267
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 95.85.237.7
+Port: 14305
+Secret: dd36d988a8d13716c2c3aa9e90b7a8b18a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49266
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49265
 
@@ -154,33 +181,6 @@ Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
 Server: lazeyka-1.getvelora.space
 Port: 443
 Secret: ee3f558f47bfd43aafffc4c8bb4ffc0130706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49248
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: www2.acientirani-uor4.ir
-Port: 443
-Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49247
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 2ca164.zipline.cc
-Port: 443
-Secret: ee5ab264a139bb00bd82c48212db75f9b33263613136342e7a69706c696e652e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49246
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 103.161.35.23
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

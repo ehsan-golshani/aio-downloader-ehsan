@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/05/20 08:56
+📅 آخرین بروزرسانی: 1405/05/20 10:08
 
 ---
+
+## tasiyanc — post 6076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+150 گیگ تو گپ تاسیان کانفیگ ویتوری
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 6075
 
@@ -178,11 +185,5 @@ Hot Servers 🔥🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نزنه رسانه ای میکنم
-</div>
-
-## tasiyanc — post 6046
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکم صبر میکنم دیل آک بزنه
 </div>
 

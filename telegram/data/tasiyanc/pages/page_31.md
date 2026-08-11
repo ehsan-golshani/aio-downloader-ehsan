@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/20 08:56
+📅 آخرین بروزرسانی: 1405/05/20 10:08
 
 ---
+
+## tasiyanc — post 8342
+
+<div align="center"><img src="files/post_8342_tasiyanc_8342.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معلم جلوی پروژکتور معلم کنار پروژکتور
+
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8341
 
@@ -172,13 +183,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خاورمیانه آرومه امشب انگار؟
-</div>
-
-## tasiyanc — post 8306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ شنیده شدن صدای انفجار در اهواز
-
-@Tasiyanc ⭐️
 </div>
 

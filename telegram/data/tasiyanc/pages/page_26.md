@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/20 08:56
+📅 آخرین بروزرسانی: 1405/05/20 10:08
 
 ---
+
+## tasiyanc — post 8472
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ صدای انفجار در خرم آباد
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8471
 
@@ -160,11 +169,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اسپانییییییییییییا قهرمان جام جهانی شد
-</div>
-
-## tasiyanc — post 8452
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تماااااامممممممم
 </div>
 
