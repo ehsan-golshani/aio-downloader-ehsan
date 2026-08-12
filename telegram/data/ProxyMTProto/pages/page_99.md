@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/05/21 09:40
+📅 آخرین بروزرسانی: 1405/05/21 11:32
 
 ---
+
+## ProxyMTProto — post 48076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48075
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: apex.proxytop.space
+Port: 443
+Secret: ee05d3d7463edfb7a674cc1d89ba24eeba617065782e70726f7879746f702e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48072
 
@@ -145,42 +181,6 @@ Secret: ee172f5214b57f137805957e350d01e0946361622e70726f787974672e6c697665
 Server: Unknown
 Port: 443
 Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ%3D%3D
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: kilo.proxyux.site
-Port: 443
-Secret: ee62d16bd3fa5f892202a2af3062a7321d6b696c6f2e70726f787975782e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48055
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy14.arixo.shop
-Port: 443
-Secret: ee3e14c7409631b938a4ad5f0dcee01bc8617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48053
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: FgMBAgABAAH8AxOG4kw63Q
 @ProxyMTProto
 </div>
 
