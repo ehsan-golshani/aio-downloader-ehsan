@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/21 01:37
+📅 آخرین بروزرسانی: 1405/05/21 09:42
 
 ---
+
+## tasiyanc — post 8903
+
+<div align="center"><img src="files/post_8903_tasiyanc_8903.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری: پست جدید اتاق جنگ اسرائیل
+
+تیک تاک⌛ دقیقا قبل از جنگ ۴۰ روزه، همچین توییتی زده بود.
+
+🔱 @TASIYANc
+</div>
+
+## tasiyanc — post 8902
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺قیمت دلار  ۱۹۶ هزار تومان  شد
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8901
+
+<div align="center"><img src="files/post_8901_tasiyanc_8901.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+
+در حال نابودی کامل ارزش پول ایران هستم. در شروع دوران ریاست جمهوری من دلار ۹۰ هزار تومن بوده و الان شده ۱۹۶ هزار تومن.
+
+🔱 @TASIYANC
+</div>
+
+## tasiyanc — post 8900
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود نپسترنت
+
+سرور سرعتی تست شده لوکییشن ایتالیا 🇮🇹
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه
+
+✔️ @TASIYANC
+</div>
 
 ## tasiyanc — post 8899
 
@@ -279,32 +325,5 @@ a9
 
 ⚠️عضویت رایگان به مدت و تعداد محدود زودتر جوین بده
 ⚠️
-</div>
-
-## tasiyanc — post 8878
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 به تمام دیتاسنترها آماده باش داده شده تا در صورت وقوع جنگ٫ اینترنت سراسری قطع شود ( تایید / رد نمیشود)
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8875
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8869
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@TASIYANC ⚡ 04.ovpn
 </div>
 

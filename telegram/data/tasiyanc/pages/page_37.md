@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/21 01:37
+📅 آخرین بروزرسانی: 1405/05/21 09:42
 
 ---
+
+## tasiyanc — post 8202
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ارتش آمریکا یک عملیات هلی‌بورنی را بر روی یک نفتکش ایرانی انجام داد هم اکنون
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8201
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ohhh
+</div>
+
+## tasiyanc — post 8200
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨
+🚨 تمامی پرواز های ایران هم اکنون کنسل شد
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8199
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پرواز جنگنده های اسرائیلی به مقصد نامعلوم
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8197
 
@@ -135,43 +169,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨هدف قرار گرفتن پل کهورستان بندرعباس و قطع ارتباط شهرهای جنوب با همدیگه نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده @Tasiyanc
-</div>
-
-## tasiyanc — post 8172
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
-</div>
-
-## tasiyanc — post 8171
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند پل دیگه رو داره میزنه که به بندرعباس راه دارن
-وقتی این پل ها زده بشه هیچ چیزی نمیتونه بره بندرعباس
-طبق چیزایی که داره اتفاق میوفته احتمالاً آمریکا می‌خواد نیرو زمینی پیاده کنه!
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8170
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢طبق گزارش‌ها، اینترنت تو بعضی از نقاط کشور به شدت ضعیف شده
-
-وضعیت نت شما چطوره؟
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8169
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📰تسنیم:
-
-🇺🇸💢آمریکا شروع به زدن زیرساخت ها و پل ها کرده
-اونا به شهرستان بندرخمیر و بخش کهورستان حمله کردن و پل ارتباطی بندرعباس به شیراز که معروف به پل بندرعباس - کهورستان - لار هست رو هدف قرار دادن.
-برق مناطقی از کهورستان هم قطع شده
-
-@Tasiyanc✅
 </div>
 

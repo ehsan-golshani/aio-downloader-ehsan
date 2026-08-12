@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/21 01:37
+📅 آخرین بروزرسانی: 1405/05/21 09:42
 
 ---
+
+## tasiyanc — post 8246
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+3سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8245
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلاااااااااار 195 😐
+</div>
+
+## tasiyanc — post 8244
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلاااااااااار 195 😐
+</div>
+
+## tasiyanc — post 8243
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش اعضا : اصفهان و استان های جنوبی اینترنت بشدت ضعیفه ،
+
+کامنت بزارید وضعیت نتتون چطوره
+</div>
 
 ## tasiyanc — post 8242
 
@@ -156,40 +199,5 @@
 🇺🇸 پیت هگست: کنترل تنگه هرمز دست ایران نیست
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8224
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨جمهوری اسلامی یکی از رادار های آمریکا در کویت را مورد هدف قرار داد
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8223
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وطن عشق من🇮🇷
-هموطن جان من💔
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8222
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⁉️پل ارتباطی جم سیراف رو هم زدن
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استانداری بوشهر :
-
-در حملۀ دقایقی پیش به بوشهر چند موشک به پایگاه‌های هوایی و پایگاه دریایی بوشهر اصابت کرد.
-
-@Tasiyanc ⭐️
 </div>
 

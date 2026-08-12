@@ -1,8 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/21 01:37
+📅 آخرین بروزرسانی: 1405/05/21 09:42
 
 ---
+
+## tasiyanc — post 8997
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دست کم ۷ انفجار در دوبی منطقه جبل علی
+
+مشخص نیست حمله شده یا چی
+</div>
+
+## tasiyanc — post 8996
+
+<div align="center"><video src="files/post_8996_tasiyanc_8996.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8996_tasiyanc_8996.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 یک سایت اما دسترسی به ده‌ها هوش مصنوعی!
+
+
+🟠اگر نمی‌خواهی برای هر مدل هوش مصنوعی یک سایت جدا باز کنی، Poe.com دقیقاً همان چیزی است که دنبالش هستی.
+
+در Poe می‌توانی با مدل‌هایی مثل ChatGPT، Claude، Gemini، DeepSeek، Grok، Llama و ده‌ها مدل دیگر، همه در یک پلتفرم، گفتگو کنی و بهترین پاسخ را بگیری.
+
+🪩 https://Poe.com
+
+
+
+⚡️@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠هوش‌های مصنوعی که برای ساخت پروژه‌های نرم‌افزاری کمک می‌کنند 
+👩‍💻
+
+فقط کافیه پروژه رو توضیح بدید، کد رو تولید می‌کنند
+
+
+🔗 replit.com
+
+🔗 bolt.new
+
+🔗 stack.ai
+
+🔗 v0.dev
+
+🔗 cursor.sh
+
+🔗 Lovable.dev
+
+🔗 codeium.com
+
+🔗 tabnine.com
+
+🔗 github.com/features/copilot
+
+مشکلی داشتید برید ChatGpt یا Gemini سایت رو بهش بدید کمکتون میکنه چیکار کنی
+
+
+⚡️@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗡𝗲𝘄_𝗙𝗮𝘀𝘁_𝗠𝘂𝗹𝘁𝗶_𝗹𝗼𝗰𝗮𝘁𝗶𝗼𝗻_⚡️.npvt
+</div>
 
 ## tasiyanc — post 8993
 
@@ -255,55 +325,5 @@ vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 🌐 betinja.bet
 کانال بونوس های رایگان g13
 @betinjabet
-</div>
-
-## tasiyanc — post 8974
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم…
-</div>
-
-## tasiyanc — post 8973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد
-
-زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم 😂
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8972
-
-<div align="center"><video src="files/post_8972_tasiyanc_8972.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8972_tasiyanc_8972.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Fast Tekno💥.npvt
-</div>
-
-## tasiyanc — post 8970
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم 
-🖤
-🇮🇷
-
-کانفیگ اختصاصی نامحدود نپسترنت
-📱
-
-سرور سرعتی تست شده  لوکیشن امارات ، لهستان ، انگلیس 
-📍
-
-آموزش اتصال 
-⚡️
-فعالسازی IPV6 
-⚡️
-
-اتصال امن برای همه
-
-
-✅ @TASIYANC
 </div>
 

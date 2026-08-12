@@ -1,8 +1,49 @@
 # آرشیو کانال VahidOOnLine - صفحه 169
 
-📅 آخرین بروزرسانی: 1405/05/21 08:06
+📅 آخرین بروزرسانی: 1405/05/21 09:40
 
 ---
+
+## VahidOOnLine — post 250729
+
+<div align="center"><img src="files/post_250729_VahidOOnLine_250729.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رویترز گزارش داد سازمان دفاع مدنی عربستان سعودی اوایل روز شنبه برای شهر الخرج و ینبع دو هشدار صادر کرد و از ساکنان خواست در برابر «خطر احتمالی» هوشیار باشند.
+
+این سازمان بعدتر اعلام کرد خطر در هر دو منطقه برطرف شده است، اما درباره ماهیت تهدیدی که به صدور این هشدارها منجر شد، توضیحی نداد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250728
+
+<div align="center"><img src="files/post_250728_VahidOOnLine_250728.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری ایرنا گزارش داد بامداد شنبه صدای انفجار در بخش‌هایی از شهرستان امیدیه در استان خوزستان شنیده شده است. تاکنون مقام‌های رسمی درباره محل احتمالی اصابت، خسارات یا تلفات احتمالی اظهارنظر نکرده‌اند.
+
+هم‌زمان، فرماندار بوشهر اعلام کرد نقطه‌ای در اطراف شهر چغادک از توابع این شهرستان هدف حمله آمریکا قرار گرفته است. تاکنون جزئیاتی درباره محل دقیق اصابت، خسارات یا تلفات احتمالی این حمله منتشر نشده است.
+
+در هرمزگان نیز معاون سیاسی، امنیتی و اجتماعی استانداری اعلام کرد حملات بامداد شنبه به چند نقطه از این استان سه کشته و هشت زخمی بر جای گذاشته است. او گفت آمار و جزئیات تکمیلی پس از پایان بررسی‌های میدانی اعلام خواهد شد.
+
+این مقام استانی افزود نیروهای راهداری در حال بازگشایی مسیرهای مسدودشده هستند. استانداری هرمزگان نیز با اشاره به احتمال حملات دوباره، از شهروندان خواست تا اطلاع بعدی از تردد غیرضروری در جاده‌ها و محورهای ارتباطی استان خودداری کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250727
+
+<div align="center"><img src="files/post_250727_VahidOOnLine_250727.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️بنابر اعلام معاونت سیاسی، امنیتی و اجتماعی استانداری هرمزگان، در پی حملات موشکی و هوایی به برخی مناطق این استان، تاکنون «سه نفر جان خود را از دست داده و هشت نفر دیگر مجروح شده‌اند».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250726
 
@@ -239,41 +280,6 @@
 
 iranintl.co
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250709
-
-<div align="center"><video src="files/post_250709_VahidOOnLine_250709.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250709_VahidOOnLine_250709.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️به گزارش تسنیم، خبرگزاری وابسته به سپاه، بامداد شنبه «صدای پنج انفجار در برخی مناطق حاشیه‌ای شهر یزد شنیده شد.» براساس این گزارش، صدای پرواز جنگنده‌ها در آسمان برخی مناطق یزد به وضوح شنیده شده است. همزمان کانال تلگرامی «وحید آنلاین» تصاویری از انفجارها در یزد را منتشر کرد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250708
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم اسپانیا جمعه ۲۶ تیر مراسم بزگداشت لیندزی گراهام، سناتور جمهوری‌خواه آمریکا و از منتقدان سرسخت جمهوری اسلامی را مقابل سفارت آمریکا در مادرید برگزار کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250707
-
-<div align="center"><video src="files/post_250707_VahidOOnLine_250707.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250707_VahidOOnLine_250707.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری مهر، بامداد شنبه گزارش داد:‌ «منابع محلی اعلام کردند که یک برخورد در حاشیه جنوبی لار شنیده شده است.» لار مرکز شهرستان لارستان است که در جنوب شرقی استان فارس قرار دارد. همزمان کانال تلگرامی «وحید آنلاین» تصاویری از «حمله به سایت موشکی در جاده گراش لار» را منتشر کرد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

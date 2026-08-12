@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/21 08:06
+📅 آخرین بروزرسانی: 1405/05/21 09:40
 
 ---
+
+## ProxyMTProto — post 48492
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: malmo.viking-vibe.co.uk
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48491
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 79.137.196.223
+Port: 1443
+Secret: eeee52288a1c9bf20ef3423488f8418c3f087777772e636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48490
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48489
 
@@ -154,33 +181,6 @@ Secret: eebbf55b9bfecba7ac5fd1e437a7a632447365637572652e676f72627573686b696e2e63
 Server: gorbeye-7000-sale.asiaadomainsshatelhamrahaval.co.uk.
 Port: 443
 Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48472
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tr.nowabst.net
-Port: 853
-Secret: eeceaec97c86b6332adc48b3c081954e606164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48471
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eed09b88cbbd4e744865b890e5a0bd26876164322e617269786f2e73686f70
 @ProxyMTProto
 </div>
 
