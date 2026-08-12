@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/21 18:59
+📅 آخرین بروزرسانی: 1405/05/21 20:11
 
 ---
+
+## tasiyanc — post 8682
+
+<div align="center"><img src="files/post_8682_tasiyanc_8682.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•پرامپت اختصاصی تاسیان 👑
+
+•عکساتو زیباتر کن 💖
+•آموزش استفاده 🤖🤖
+
+
+🔺دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خیلیییییی گرمهههههه
+</div>
+
+## tasiyanc — post 8679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرنگار کاخ سفید به نقل از سنتکام:
+
+بعضی اوقات ما به ایران حمله نمی‌کردیم ولی میدیدیم که کلی موشک در آسمان به طرف ایران میره، بعد می‌فهمیدیم که کویت و بحرین و عربستان و … در حال حمله به ایران بودند ولی به طور رسمی اعلام نمی‌کردند
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8677
 
@@ -160,34 +191,5 @@
 نیروی هوایی را پاداش می دهم... ساعتی از این خبر نگذشته بود که دلیر مردان ایران اهداف مهمی را در عمق خاک عراق مورد هدف قرار دادند در این عملیات خلبانان ایرانی موفق شدند پالایشگاه الدوره را با بمب 82
 بمباران کنند
 @TASIYANC 💠
-</div>
-
-## tasiyanc — post 8657
-
-## tasiyanc — post 8656
-
-<div align="center"><video src="files/post_8656_tasiyanc_8656.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8656_tasiyanc_8656.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یاد کنیم از رقص F35 ارتش اسرائیل در آسمان کرج مربوط به جنگ ۳۹ روزه
-
-@TASIYANC 💠
-</div>
-
-## tasiyanc — post 8655
-
-<div align="center"><video src="files/post_8655_tasiyanc_8655.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8655_tasiyanc_8655.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قابل توجه ؛ ناوگان هفتم دریایی نیروهای ایالات متحده آمریکا به تنها ارتش چین را می‌بلعد ! ناوگان هفتم نیروی دریایی آمریکا بزرگترین ناوگان نظامی تهاجمی جهان است که
-بخونید 👇
-
-از حداقل ۷۰ کشتی و زیردریایی، ۱۵۰ هواپیما و ۲۰ هزار نیرو برای حضور و واکنش سریع مقابل چین در شرق آسیا مستقر شده است. منطقه عملیاتی آن یعنی آسیا و اقیانوسیه، ۱۲۴ میلیون کیلومتر مربع، ۳۶ کشور و نیمی از جمعیت جهان را پوشش میدهد. رهبری این واحد دریایی را ناو هواپیمابر رونالد ریگان برعهده دارد. مقر این ناوگان یوکوسوکای ژاپن است. ناوگان هفتم آمریکا یک نیروی پیشرو است که از نظر تجربه رزمی، مهارت خدمه، و ادغام فناوریهای پیشرفته در کشتیها و زیردریاییهایش، برتری کیفیتی قابل توجهی دارد که میتواند خسارات سهمگینی به نیروی دریایی چین وارد کند ایران جای خود داره 🤣
-
-@TASIYANC ⭐️
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/05/21 18:59
+📅 آخرین بروزرسانی: 1405/05/21 20:11
 
 ---
+
+## tasiyanc — post 5599
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خیلی خوبن🥹
+</div>
+
+## tasiyanc — post 5598
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من فقط با نپستر این چنل وصلم
+</div>
+
+## tasiyanc — post 5597
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
+</div>
 
 ## tasiyanc — post 5596
 
@@ -163,23 +181,5 @@
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو ده مین ۱۰۰ تا فور 😐
-</div>
-
-## tasiyanc — post 5568
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نامحدودن بستگی داره چقد سرور شلوغ باشه
-</div>
-
-## tasiyanc — post 5567
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-WAR 🔥.npvt
 </div>
 

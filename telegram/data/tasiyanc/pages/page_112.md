@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/21 18:59
+📅 آخرین بروزرسانی: 1405/05/21 20:11
 
 ---
+
+## tasiyanc — post 5758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+
+🚀 @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 5757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز باشه
+</div>
+
+## tasiyanc — post 5756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🍓 4 server 🔥.npvt
+</div>
 
 ## tasiyanc — post 5755
 
@@ -170,39 +198,4 @@ https://t.me/Tasiyanc/5733
 ## tasiyanc — post 5737
 
 <div align="center"><img src="files/post_5737_tasiyanc_5737.jpg" alt="Photo"></div>
-
-## tasiyanc — post 5736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده روی تمام اپراتورها ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5734
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده روی رایتل و ایرانسل - بقیه اپراتورا تست کنن ⛈ 
-
-رمز : ″ @Tasiyanc ″
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 RighTel - Moscow
-vless://079c1b04-7ef9-4c49-8a7a-849a18ba7b9b@83.222.20.64:17910?security=reality&encryption=none&pbk=KUhrhiJBplVCVCrAKP2KjIA_asOgkkvEEAxUJVofjgc&headerType=none&fp=chrome&spx=%2F&type=tcp&sni=yahoo.com&sid=8c09fb78b12f#%40Tasiyanc%20%E2%9C%A8%20Rightel
-@Tasiyanc ✅
-</div>
 

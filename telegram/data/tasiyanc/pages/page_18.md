@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/21 18:59
+📅 آخرین بروزرسانی: 1405/05/21 20:11
 
 ---
+
+## tasiyanc — post 8764
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق اعلام بانک مرکزی؛
+تورم نقطه به نقطه تیرماه ۸۳.۹ درصد اعلام شد.
+یعنی کالاها نسبت به تیرماه سال قبل؛ ۸۳.۹ درصد گرون تر شدن ک فک کنم زیاد بوده باشه
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8763
+
+<div align="center"><img src="files/post_8763_tasiyanc_8763.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتانیاهو و تیمش در حال آماده شدن برای دیدار با پرزیدنت ترامپ در کاخ سفید.
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8762
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️اکثر سایت‌ها یا آپشن‌هایی مثل «آفساید» و «مالکیت» رو ندارن، یا وقتی مبلغ سنگین میشه، موقع برداشت هزارتا بهونه میارن. ​ما بالاخره دو مقصد رو پیدا کردیم که «امنیت» و «تنوع» رو همزمان دارن
+
+🔘 @WePariFarsi
+
+🔘 @DerbyBetOfficial
+</div>
 
 ## tasiyanc — post 8761
 
@@ -201,39 +231,4 @@ Multi Loc ⚡ @Tasiyanc.npvt
 اینم چنل جدیدمون ک بیشتر فیلم و سریال خواهیم گذاشت دوس داشتید برای حمایت جوین بشید دوستون دارم 💖
 https://t.me/TsMoviee
 </div>
-
-## tasiyanc — post 8740
-
-<div align="center"><img src="files/post_8740_tasiyanc_8740.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Multi Loc ⚡ @Tasiyanc.npvt
-</div>
-
-## tasiyanc — post 8735
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8734
 
