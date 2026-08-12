@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/22 00:39
+📅 آخرین بروزرسانی: 1405/05/22 01:35
 
 ---
+
+## tasiyanc — post 8396
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[04]⚡@Tasiyanc.ovpn
+</div>
+
+## tasiyanc — post 8392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون 📱
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8391
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر
+</div>
 
 ## tasiyanc — post 8390
 
@@ -159,32 +192,6 @@ IP
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨خبرگزرای CBS به نقل از مقام نظامی: حملات امشب دقایقی دیگر آغاز میشود و گستردگی بیشتری دارد
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8367
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌انفجار در سنندج
-
-۴انفجار در بندر عباس
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌دلار ۱۹۵رو شکست
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8365
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌انفجار در بندر عباس و بیرجند
 
 @Tasiyanc✅
 </div>

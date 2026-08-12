@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/22 00:39
+📅 آخرین بروزرسانی: 1405/05/22 01:35
 
 ---
+
+## tasiyanc — post 8930
+
+## tasiyanc — post 8929
+
+<div align="center"><img src="files/post_8929_tasiyanc_8929.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#کاربردی 🆕
+
+🔎 اگه همیشه استرس اینو داشتید که یه سایت کلاهبرداریه یا نه، این ابزار آنلاین کمکتون می‌کنه هر سایتی رو زیر و رو کنید، درصد احتمال کلاهبردار بودنشو ببینید و دلیلشم بفهمید.
+
+
+• سایت‌ها رو کامل بررسی می‌کنه و نمره اعتماد میده
+• درصد احتمال اسکم بودن رو نشون میده
+• دلیل این تحلیل‌ها رو واضح و راحت توضیح میده
+👉 https://scamminder.com/
+
+👹 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8928
+
+<div align="center"><video src="files/post_8928_tasiyanc_8928.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8928_tasiyanc_8928.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 شبی که مردم ایران با آمریکا ابراز همدردی کردند
+
+یازدهم سپتامبر 2001 بعد از فاجعه بزرگ برخورد ۲ هواپیمای ربوده شده توسط «گروهک تروریستی القائده» به برج های دوقلو تجارت جهانی که منجر به کشته شدن تعداد زیادی غیرنظامی شد مردم ایران برای ابراز همدردی به خیابان ها آمدند و شعار « آمریکا تسلیت ؛ مرگ بر القائده» سر دادند و به یاد کشته شده ها شمع روشن کردند
+﻿
+📱@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8927
 
@@ -245,43 +279,5 @@ IPv6
 New Wallpapers ✨ HD
 
 🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8904
-
-<div align="center"><img src="files/post_8904_tasiyanc_8904.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#سرگرمی - #کاربردی
-
-🪐 می‌خوای منظومه شمسی رو زنده ببینی؟
-
-ناسا یک سایت فوق‌العاده ساخته که می‌تونی حرکت سیاره‌ها، فضاپیماها و مأموریت‌های فضایی رو به‌صورت سه‌بعدی و تعاملی تماشا کنی.
-
-🌐 https://eyes.nasa.gov
-
-بعد از باز کردن سایت ، رو هر کدوم از سیاره ها ، شهاب سنگ و ... بزنید با جزییات براتون میاره
-
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8903
-
-<div align="center"><img src="files/post_8903_tasiyanc_8903.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری: پست جدید اتاق جنگ اسرائیل
-
-تیک تاک⌛ دقیقا قبل از جنگ ۴۰ روزه، همچین توییتی زده بود.
-
-🔱 @TASIYANc
-</div>
-
-## tasiyanc — post 8902
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺قیمت دلار  ۱۹۶ هزار تومان  شد
-
-@Tasiyanc
 </div>
 

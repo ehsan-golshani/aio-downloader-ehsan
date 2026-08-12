@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/22 00:39
+📅 آخرین بروزرسانی: 1405/05/22 01:35
 
 ---
+
+## tasiyanc — post 9172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن multi📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر متاسفانه باگش برطرف نشده ⭕️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 11 آگوست روز جهانی کراش زدنه 😭
+
+رو هرکی کراشید برید بگید بهش
+
+@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 9168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸اظهارات ترامپ درباره ایران برای بار انم:
+
+همانطور که احتمالاً شنیده‌اید، ما تمام تنگه را پاکسازی مین کرده‌ایم. شاید شما این را نشنیده باشید.
+
+ما کنترل ۱۰۰ درصدی این تنگه را در اختیار داریم.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9167
 
@@ -280,48 +321,5 @@ ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.167:443#%40Tasiyanc
 ⚠️ #پیشنهاد_ویژه ⚠️
 🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
 دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
-</div>
-
-## tasiyanc — post 9149
-
-<div align="center"><video src="files/post_9149_tasiyanc_9149.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9149_tasiyanc_9149.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖱به راحتی کسب درامد کن 💵💰
-
-🟢 ویدیو #آموزش بازی chicky choice رو براتون گذاشتم خیلی راحت و بدون ریسک و میتونی بازی کنی و کلی پول دربیاری🔥
-
-💖 حتما ویدیو رو تا انتها ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان r19
-@betinjabet
-</div>
-
-## tasiyanc — post 9146
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال شکن 🌱.npvt
-</div>
-
-## tasiyanc — post 9145
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن Turkey📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 
