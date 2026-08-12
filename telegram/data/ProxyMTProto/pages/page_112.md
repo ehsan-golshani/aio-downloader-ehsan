@@ -1,8 +1,28 @@
 # آرشیو کانال ProxyMTProto - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/21 21:13
+📅 آخرین بروزرسانی: 1405/05/21 22:19
 
 ---
+
+## ProxyMTProto — post 47837
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ Telegram access is becoming less stable due to new restrictions.
+
+🔥 We're constantly adding new working proxies for free.
+
+🌎 Get your dedicated proxy now!
+👇 پروکسی اختصاصی خودتو بگیر
+</div>
+
+## ProxyMTProto — post 47836
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: london.nolags.pw
+Port: 443
+Secret: dd6fe89c6d1f5f8b54afc931cf4f640b91
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47835
 
@@ -163,24 +183,6 @@ Secret: 7nnnAQIAAQAH8AMDhuJMOt0%3D
 Server: turbo2proxy.vpnproxy.cc
 Port: 8443
 Secret: ee56af68a36d94c4d47d100196d6a59f1d747572626f3270726f78792e76706e70726f78792e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47817
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47816
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: turbo.quickrouteapp.xyz
-Port: 8443
-Secret: ee7e87773423c90bb0792a4e005f54119d747572626f2e717569636b726f7574656170702e78797a
 @ProxyMTProto
 </div>
 

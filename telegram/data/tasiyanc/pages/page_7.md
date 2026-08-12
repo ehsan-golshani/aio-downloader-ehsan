@@ -1,8 +1,140 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/21 20:11
+📅 آخرین بروزرسانی: 1405/05/21 22:21
 
 ---
+
+## tasiyanc — post 9069
+
+<div align="center"><video src="files/post_9069_tasiyanc_9069.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9069_tasiyanc_9069.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 
+👍
+😁
+😊
+🙂
+
+🥇واریز و برداشت ارزی و ریالی
+‼️
+
+🔥بونوس 100% اولین واریز
+‼️
+
+⚽️بونوس ورزشی هرچهارشنبه
+‼️
+
+🆗کازینو و انفجار با ضرایب جهانی
+‼️
+
+
+🎁کد هدیه ثبت نام :Melbet90
+
+
+🇩🇪دانلود اپلیکیشن MELBET
+👉
+
+
+🔗لینک وبسایت
+👉
+
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
+🇨🇦 
+🇹🇷
+r16
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9067
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
+
+سرور سرعتی‌ لوکیشن Germany 📍
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال 🔸
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9066
+
+<div align="center"><video src="files/post_9066_tasiyanc_9066.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9066_tasiyanc_9066.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیووایرال شده پیرمرد شعبده باز 😞، همرو انگشت به دهن کرده 😐
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9065
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[SuperFast] @Tasiyanc 🔥.npvt
+</div>
+
+## tasiyanc — post 9064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 📍
+
+•آموزش اتصال ⚡️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9063
+
+<div align="center"><img src="files/post_9063_tasiyanc_9063.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 قالیباف:
+حمله بزرگی در راه است... صبر کنید، نه، آن‌ها می‌خواهند مذاکره کنند. این دیپلماسی نمایشی است که بارها تکرار شده است.
+استفاده از زور و تهدید، همراه با وعده‌های دروغین و اخبار جعلی، یک استراتژی شکست‌خورده است.
+حقایق را بپذیرید و به تعهدات خود عمل کنید. ما به نمایش‌های بیشتر نیازی نداریم.
+
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9060
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ⭕️ اطلاع رسانی حداکثری ... کلاهبرداری ..
+
+🚨 جدیدا برخی کانالهای تلگرامی در حوزه ارز دیجیتال شروع به معرفی شت‌کوین ( توکن های کلاهبرداری) بدون پشتوانه میکنن که بخرید قراره پامپ شه میلیونر بشید ...
+از جایی که ۹ ساله کارم فارکس و ارزدیجیتاله باید به شما هشدار بدم به هیچ عنوان حتی ۱ دلار هم بابت خرید این توکنهای دیجیتال پول ندید ، بعد خرید حتی نمیتونید بفروشید ، لیکوییدیتی (پشتوانه) این توکنها دست خود سازنده توکن قرار میگیره و فروش توکنو میبندن و شما نمیتوانید بفروشید چون لاک میشه و پولتون حروم میشه ، این روزا داره شدیداً ترند میشه ، حتی شما هم میتونید با یه برنامه نویسی ساده ارز دیجیتال ( توکن) بسازید با هر اسمی بر پایه شبکه اسمارت چین یا اتریوم ، به دام این کلاهبردارهای بی ریشه نیوفتید ، اطلاع رسانی کنید به همه تا سرشون کلاه نره .
+
+Join @TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9059
 
@@ -175,86 +307,5 @@
 ▫️آن دسته از کارکنان وظیفه که به هر دلیل خدمت سربازی خود را به اتمام نرسانده‌اند، می‌بایست وضعیت سربازی خود را از طریق یگان خدمتی تعیین تکلیف کنند و هیچ نوع معافیت جدیدی برای آنان در نظر گرفته نشده است.
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9038
-
-<div align="center"><img src="files/post_9038_tasiyanc_9038.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کوثری ؛ از فرماندهان سپاه:
-پسر لاریجانی یه لحظه گوشیش رو روشن میکنه و یه تماسی با یه نفر میگیره که همون موقع جاشون لو میره و میزننشون.
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9036
-
-<div align="center"><video src="files/post_9036_tasiyanc_9036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9036_tasiyanc_9036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماتون بریزه جدیدا تو تهران مهدکودک زدن واسه افراد بالای ۳۰ سال 😂
-
-شما ممکنه وقتی صبح تو خیابون راه میری یه سری مرد سیبیلو و زن ببینید که با کیف باب اسفنجی و عروسکی دارن میرن مهد کودک
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 6 آگوست روز جهانی فوت فتیش هاست 🐸
-
-بفرست برا کسی که میخوای عکس پاشو برات بده 😂
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9034
-
-<div align="center"><video src="files/post_9034_tasiyanc_9034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9034_tasiyanc_9034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این سکانس GOT برای دنیا معمولیه برای ما ایرانیا نه
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9032
-
-<div align="center"><img src="files/post_9032_tasiyanc_9032.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز تولد جاویدنام شیوا جاویده که در ۱۸ سالگی به قتل رسید 🕊️
-
-شیوا جاوید ۱۸ ساله، به همراه پدرش علی‌اکبر جاوید ۳۸ ساله، هر دو در مشهد، در آغوش همدیگه به قتل رسیدن.
-
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9031
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسعود پزشکیان درباره 18 و 19 دی : هنوز که هنوزه من اون حادثه رو نمی‌تونم فراموش کنم، نباید کارمون به اينجا می‌رسید!
-
-البته خود ترامپ نامرد هم گفت که ما اینا رو مسلح کردیم.
-یه عده بی‌گناه هم با اینا قاطی شده بودن. وقتی شورش میشه، آدم نمی‌تونه دوست و دشمن رو تشخیص بده.
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9028
-
-<div align="center"><img src="files/post_9028_tasiyanc_9028.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو اربعین یه موکب زدن که هرکسی تنها بوده میتونسته شب بره اینجا یه نفرو به یه مبلغ خوب صیغه کنه حتی از اینجا میتونسته زن ایندشو هم انتخاب کنه 😞
-
-
-@TASIYANC 🕒
 </div>
 

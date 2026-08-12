@@ -1,8 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/21 20:11
+📅 آخرین بروزرسانی: 1405/05/21 22:21
 
 ---
+
+## tasiyanc — post 8236
+
+<div align="center"><video src="files/post_8236_tasiyanc_8236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8236_tasiyanc_8236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 در حملات صبح امروز آمریکا به چابهار، برج ۸۰ متری کنترل دریایی این شهر بطور کامل فرو ریخت
+
+
+
+@Tasiyanc ✅| بانك کانفیگ رایگان
+</div>
+
+## tasiyanc — post 8235
+
+<div align="center"><img src="files/post_8235_tasiyanc_8235.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توی ۲۴ ساعت اخیر، سرچِ لغو عضویت جانفدا افزایش چند هزار درصدی داشته و به سرچ اول و ترند گوگل تبدیل شده!
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ تست شده 🔸
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون 📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 💠
+</div>
+
+## tasiyanc — post 8233
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ❤️
+</div>
+
+## tasiyanc — post 8232
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میره جنوب لبنان و نجات بده🤨
+</div>
+
+## tasiyanc — post 8231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هواپیمای عراقچی در حال خروج از ایران @Tasiyanc✅
+</div>
+
+## tasiyanc — post 8230
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واقعا مثل کشورم شدم همونطور که همه‌ جای ایران درد و غم داره منم کل بدنم درد و غم داره.
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8229
 
@@ -118,64 +188,5 @@
 ⏺حمله آمریکا به بندرلنگه
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8215
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برق ایرانشهر انگار کاملا رفته @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨دو انفجار سنگین در قشم
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برق ایرانشهر انگار کاملا رفته
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢 حمله آمریکا به شهر ویسیان لرستان
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8210
-
-<div align="center"><video src="files/post_8210_tasiyanc_8210.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8210_tasiyanc_8210.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨هم اکنون حملات سنگین آمریکا به بوشهر:
-
-
-
-
-@Tasiyanc ⭐️ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8209
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨 فرودگاه ایرانشهر مورد حمله قرار گرفت
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سپاه جون دارن جنوب میزنن خب؟چرا گیر دادی ب کردستان عراق داری اشتباهی میزنی ها😹
 </div>
 

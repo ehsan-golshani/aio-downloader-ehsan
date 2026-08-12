@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/21 21:13
+📅 آخرین بروزرسانی: 1405/05/21 22:19
 
 ---
+
+## ProxyMTProto — post 49285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn.toconvel.digital
+Port: 443
+Secret: ee663b5fc7e34e5b0ce56906c27ea0bc3063646e2e746f636f6e76656c2e6469676974616c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49283
 
@@ -163,24 +181,6 @@ Secret: dd36d988a8d13716c2c3aa9e90b7a8b18a
 Server: Unknown
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cloud.neoqua.pro
-Port: 443
-Secret: ee17a8c39b61cada586d48df4c790bc178636c6f75642e6e656f7175612e70726f
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49264
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Oh.Oh.AjaB_Sorati_Dare
-Port: 443
-Secret: BeZaN_RoooSh_Connect
 @ProxyMTProto
 </div>
 

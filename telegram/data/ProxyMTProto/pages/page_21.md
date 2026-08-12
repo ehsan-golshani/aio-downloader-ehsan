@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/21 21:13
+📅 آخرین بروزرسانی: 1405/05/21 22:19
 
 ---
+
+## ProxyMTProto — post 49666
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tgb92cf27d.koshkaproxy.shop
+Port: 443
+Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49665
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ops2ops.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49664
 
@@ -164,15 +182,4 @@ Port: 443
 Secret: eea0398370ab267aa0164231325beb48866d6972726f722e62616c616c61696b612e636c69636b
 @ProxyMTProto
 </div>
-
-## ProxyMTProto — post 49646
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fleethop.online
-Port: 443
-Secret: ee7b65b9f92173a83dcd4d1c5b8c1031f7666c656574686f702e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49645
 

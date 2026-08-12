@@ -1,8 +1,85 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/21 20:11
+📅 آخرین بروزرسانی: 1405/05/21 22:21
 
 ---
+
+## tasiyanc — post 7518
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😐😐😐😐 آلمان حذف شد
+</div>
+
+## tasiyanc — post 7517
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ARABICA ☕⚡️HoT.npvt
+</div>
+
+## tasiyanc — post 7515
+
+<div align="center"><img src="files/post_7515_tasiyanc_7515.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▪️احضار: آخرین مراسم 2025 [the Conjuring]
+
+🎭 ژانر: ترسناک & ماورایی & هیجان_انگیز
+⭐️ امتیاز: 6.5 از 10
+🌐 محصول کشور: 🇺🇸
+
+📜خلاصه داستان:  اد و لورن وارن، متخصص حل پرونده‌های فراطبیعی، خطرناک‌ترین پرونده زندگی خود را بررسی می‌کنند. جک و جنت اسمرل به همراه فرزندان خود به خانه‌ای جدید نقل‌مکان می‌کنند که همیشه آرزویش را داشتند، اما به‌ زودی این خانه به کابوسی وحشتناک تبدیل می‌شود، وقتی نشانه‌های تسخیر ارواح شیطانی در آن پدیدار می‌گردد و ...
+
+✍️نسخه زیرنویس فارسی بدون سانسور
+📧 [ برای دانلود فیلم کلیک کنید ]
+
+🔉نسخه دوبله فارسی بدون سانسور
+📧 [ برای دانلود فیلم کلیک کنید ]
+
+@Tasiyanc 💠 | اتصال امن
+</div>
+
+## tasiyanc — post 7514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ARABICA ☕⚡️HoT.npvt
+</div>
+
+## tasiyanc — post 7499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپستر 🔥
+
+7 سرور سرعتی ویژه ⚡️
+
+آموزش اتصال ⛓
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7498
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلم جدید تو چنل پروکسی فور شد به دلایلی , خواستید ببینید از اینجا دان کنید
+💘@TasiyanProxy
+</div>
+
+## tasiyanc — post 7494
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7488
 
@@ -123,70 +200,5 @@ ESPRESSO 🔥☕.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️مذاکرات تهران و واشینگتن ک قرار بود این هفته برگزار بشه لغو شد
-</div>
-
-## tasiyanc — post 7474
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار هم اکنون 174000 😐
-</div>
-
-## tasiyanc — post 7473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپستر
-
-4 سرور سرعتی ⚡️
-
-آموزش اتصال ⛓
-
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7463
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 28 June، روزِ  LGBTQ یا همون همجنسگراست
-بفرست واسه رفیق گِیت🤣
-</div>
-
-## tasiyanc — post 7460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال 
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد حسین میساکی بدون اینکه خندش بگیره خیلی جدی : تیمهای الجزایر و اتریش تبانی کردن 🤣🤣🤣
-</div>
-
-## tasiyanc — post 7458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیگه از بدشانسی زر نزن آقای رامین رضائیان
-</div>
-
-## tasiyanc — post 7457
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-3 تا احتمال بزرگ داشته باشی تا صعود کنی ولی نتونی ، تو بازی ۳ تا تیرک بزنی ، گل آفساید بزنی ، پنالتی نتونی بزنی
-
-آقای رضائیان حالا ببین چی میگم وقتی میگفتی دلیل این همه بد شانسی نمیدونی چیه
-آه مادرانی ک سر مزار بچشون میرقصیدن همینه
 </div>
 

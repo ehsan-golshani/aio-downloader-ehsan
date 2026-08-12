@@ -1,8 +1,72 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/05/21 20:11
+📅 آخرین بروزرسانی: 1405/05/21 22:21
 
 ---
+
+## tasiyanc — post 7287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیونل مسی 🐐 نابغه تمام عیار فوتبال جهان امشب هم دبل کرد ، بازی قبلی هم هتریک کرده بود
+</div>
+
+## tasiyanc — post 7285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
+
+برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
+
+دانلود Dark Tunnel  🕹
+
+آموزش اتصال به سرور دارک ⏩
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7284
+
+## tasiyanc — post 7283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪⚡ Fast 🚀.npvt
+</div>
+
+## tasiyanc — post 7280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی وایر Windscribe 🔐
+
+🟢حجم و کاربر نامحدود 🟢
+
+تمام اپراتورا 🔺
+
+مناسب گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای
+
+دانلود ویندسکرایب : Android 📱  iOS 🕹
+
+آموزش اتصال به سرور ⏩
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7279
+
+## tasiyanc — post 7278
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV لوکیشن 🇩🇪
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7277
 
@@ -127,79 +191,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 طارمی اگه کون نداشت الان یک صفر بود بازی😒
-</div>
-
-## tasiyanc — post 7253
-
-<div align="center"><img src="files/post_7253_tasiyanc_7253.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل ایران رف وار آفساید شد
-</div>
-
-## tasiyanc — post 7252
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل ایران رف وار آفساید شد
-</div>
-
-## tasiyanc — post 7251
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاهد حضور جوان و پدیده نو ظهور فوتبال احسان حاج صفی در ترکیب هستیم
-</div>
-
-## tasiyanc — post 7250
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی چند چند میشه؟
-</div>
-
-## tasiyanc — post 7249
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وصله با سرعت ( مناسب گیم و وبگردی) 
-💓
-
-
-🔐 Config Win⁰¹ - Win⁰² 
-💘
-
-🌟 Config DarkTunnel 
-💘
-</div>
-
-## tasiyanc — post 7248
-
-<div align="center"><video src="files/post_7248_tasiyanc_7248.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7248_tasiyanc_7248.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV
-
-4سرور سرعتی متد جدید
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7247
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐
 </div>
 

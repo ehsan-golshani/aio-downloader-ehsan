@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/05/21 21:13
+📅 آخرین بروزرسانی: 1405/05/21 22:19
 
 ---
+
+## ProxyMTProto — post 48417
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: login.veltura.digital
+Port: 443
+Secret: ee42fc3bfc9aecc508eeba2ca3f5d43ab76c6f67696e2e76656c747572612e6469676974616c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48415
 
@@ -163,24 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: active.freetg.shop
 Port: 37443
 Secret: 139fa759df13542a416f1ee5af8d75f1
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48397
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy90.arixo.shop
-Port: 443
-Secret: eed715e5e741cb3ce98a926b8ee5ac68dc70726f787939302e617269786f2e73686f70
 @ProxyMTProto
 </div>
 
