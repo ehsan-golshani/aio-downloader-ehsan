@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 122
 
-📅 آخرین بروزرسانی: 1405/05/21 20:09
+📅 آخرین بروزرسانی: 1405/05/21 21:13
 
 ---
+
+## ProxyMTProto — post 47635
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: For Iran
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47634
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dns.vdl.lat
+Port: 853
+Secret: ee534adcf23a16f425cbae129c4cb574cb6164732e78352e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47633
 
@@ -166,24 +184,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: 146.103.96.129
 Port: 443
 Secret: ee627bdd42b085906e41105ddd7dab8cca706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dr1.dedus.pro
-Port: 443
-Secret: eeaf504aa56469ec880c9cb00515fc8a2d79616e6465782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47614
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dns.vdl.lat
-Port: 853
-Secret: ee534adcf23a16f425cbae129c4cb574cb6164732e78352e7275
 @ProxyMTProto
 </div>
 

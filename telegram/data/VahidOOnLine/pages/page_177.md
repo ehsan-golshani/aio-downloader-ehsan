@@ -1,8 +1,116 @@
 # آرشیو کانال VahidOOnLine - صفحه 177
 
-📅 آخرین بروزرسانی: 1405/05/21 20:08
+📅 آخرین بروزرسانی: 1405/05/21 21:12
 
 ---
+
+## VahidOOnLine — post 250637
+
+<div align="center"><img src="files/post_250637_VahidOOnLine_250637.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدرضا رضایی‌کوچی، رییس کمیسیون عمران مجلس، گفت: «اگر دشمن یک پل را هدف قرار دهد، ما دو پل از زیرساخت‌های آنها را هدف قرار خواهیم داد.»
+
+رضایی‌کوچی افزود: «نیروهای مسلح جمهوری اسلامی باید زیرساخت‌های کشورهایی را که با آمریکا همکاری می‌کنند، هدف قرار دهند.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250636
+
+<div align="center"><img src="files/post_250636_VahidOOnLine_250636.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رحیم نادعلی، معاون فرهنگی سپاه تهران، به خبرگزاری فارس گفت که خودروی حمل جنازه علی خامنه‌ای که در مراسم تشییع مورد استفاده قرار گرفت، به نمادی از «احساس، شور و حماسه» تبدیل شده و تا پایان ماه صفر، هر شب در یکی از میادین و تجمعات شبانه در تهران به نمایش گذاشته می‌شود.
+
+او ادامه داد: «این خودرو در میادین خواهد بود تا خاطره تشییع رهبر ما زنده بماند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250635
+
+<div align="center"><img src="files/post_250635_VahidOOnLine_250635.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احمد زارعی، امام جمعه اسلام‌آبادغرب، در خطبه‌های نماز جمعه این شهر گفت: «دشمن امروز با تمام توان حمله کرده، اما ارتش و سپاه در حال دادن درسی تاریخی به آمریکا هستند. اگر بندرعباس را می‌زنند، ما نیز بحرین، کویت و امارات را شخم می‌زنیم و رزمندگان برای اولین بار در سوریه ضربه‌ای کاری به پایگاه‌های آمریکا وارد کردند.»
+
+او اضافه کرد: «این جنگ هرچه جلوتر برود داغ‌تر می‌شود. دشمن به دنبال راه‌اندازی جنگ شناختی است تا مردم را به دو دسته موافق و مخالف مقاومت تقسیم کند؛ لذا مردم باید اتحاد، حضور در صحنه و ایستادگی خود را پررنگ‌تر کنند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250634
+
+<div align="center"><img src="files/post_250634_VahidOOnLine_250634.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی ایالات متحده اعلام کرد اظهارات جمهوری اسلامی درباره حمله به پایگاه التنف در سوریه و کشته یا اسیر شدن نیروهای آمریکایی نادرست است.
+
+سنتکام تاکید کرد هیچ‌یک از نیروهای آمریکایی مستقر در منطقه اخیرا کشته یا اسیر نشده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250633
+
+<div align="center"><img src="files/post_250633_VahidOOnLine_250633.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ فرماندهی مرکزی ارتش آمریکا، سنتکام، روز جمعه ۲۶ تیر با انتشار پیامی در شبکه اجتماعی ایکس، ادعای جمهوری اسلامی مبنی بر «کشته یا اسیر شدن» نیروهای این کشور در حمله به پایگاه نظامی التنف در سوریه را تکذیب کرد.
+
+پیش از این یک منبع نظامی سوریه نیز که نخواسته بود نامش فاش شود، در گفتگو با خبرگزاری فرانسه، اخبار مربوط به حمله به این پایگاه را تکذیب کرده بود.
+
+سپاه پاسداران صبح جمعه اعلام کرده بود که «حمله‌ای غافلگیرانه» به این پایگاه انجام داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250632
+
+<div align="center"><img src="files/post_250632_VahidOOnLine_250632.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حسن عاملی، امام جمعه اردبیل در نمار جمعه ۲۶ تیر در این شهر گفت: «آمریکا با برهم زدن توافق، خود را به جهنم انداخت و فرصت بزرگی برای جمهوری اسلامی ایجاد شد تا آمریکا را در «چاه ویل» غرق کند.»
+
+عاملی افزود: «اگر جنگ ادامه یابد و تنگه هرمز بسته بماند، آمریکا ناچار خواهد شد از طریق واسطه‌ها به سراغ جمهوری اسلامی بیاید.»
+
+امام جمعه اردبیل تاکید کرد‌نیروهای مسلح جمهوری اسلامی با همکاری یمن تنگه هرمز را به «برمودا» و باب‌المندب را به «دیوار ذوالقرنین» تبدیل کنند تا دونالد ترامپ با واقعیت‌ها آشنا شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250631
+
+<div align="center"><img src="files/post_250631_VahidOOnLine_250631.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️فیفا در فینال جام جهانی، میان آرژانتین و اسپانیا، به تیم قهرمان حلقه قهرمانی اهدا خواهد کرد؛ سنتی که بیشتر با ورزش آمریکا، به‌ویژه قهرمانان سوپربول در لیگ فوتبال آمریکایی، شناخته می‌شود.
+بر اساس اعلام فیفا، ۳۰ حلقه برای اعضای تیم قهرمان جهان آماده شده است و ۱۹۹۶ حلقه دیگر نیز برای فروش به هواداران عرضه خواهد شد. در طراحی هر حلقه، تصویری کوچک از جام جهانی دیده می‌شود و داخل حلقه نیز حکاکی اختصاصی خواهد داشت.
+دونالد ترامپ، رئیس‌جمهوری آمریکا، قرار است در مراسم فینال حضور داشته باشد و جام قهرمانی را اهدا کند. او سابقه حضور در رویدادهای ورزشی بزرگ مانند سوپربول، مسابقات تنیس آزاد آمریکا، فینال «ان‌بی‌ای» را در طول دو دوره ریاست جمهوری خود دارد.
+ایالات‌متحده آمریکا به همراه کانادا و مکزیک میزبان مشترک این مسابقات بوده‌اند و دو بازی پایانی فینال و رده‌بندی در آمریکا برگزار می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250630
+
+<div align="center"><img src="files/post_250630_VahidOOnLine_250630.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دنی دنون، سفیر اسرائیل در سازمان ملل، با اشاره به کشته شدن انس محمود احمد حمدان، از اعضای حماس، در شبکه اجتماعی ایکس نوشت: «هیچ مصونیتی برای هیچ تروریستی وجود ندارد؛ هر کسی که در حمله هفتم اکتبر مشارکت داشته، بهای آن را خواهد پرداخت.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250629
 
@@ -173,112 +281,6 @@
 مجید موسوی، فرمانده نیروی هوافضای سپاه پاسداران، در شبکه ویراستاری نوشت: «در نظام محاسباتی ما خاک، خاک است؛ تهران تا جنوب یکپارچه برای ایران هستند.»
 
 او ادامه داد: «شلیک‌های موثر و هدفمند ما از سراسر ایران بر سر دشمن تا برگشتن آرامش به خط ساحلی جنوب و تنگه هرمز ادامه خواهد داشت.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250617
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تصاویر منتشرشده در شبکه‌های اجتماعی نشان می‌دهد رانندگان زاهدان جمعه ۲۶ تیرماه برای دریافت سهمیه ۱۵ لیتری بنزین در جایگاه سوخت پایانه بار این شهر در صفی چندکیلومتری منتظر مانده‌اند.
-
-رانندگان می‌گویند از ساعات اولیه روز در این جایگاه برای سوخت‌گیری صف کشیده‌اند و به دلیل طولانی بودن صف، ساعت‌ها در گرمای شدید هوا منتظر مانده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250616
-
-<div align="center"><img src="files/post_250616_VahidOOnLine_250616.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدرضا ناصری، امام جمعه یزد با انتقاد از آنچه «گسترش پدیده بی‌حجابی» خوانده، در نماز جمعه این شهر گفت: «وضعیت کنونی حجاب در جامعه قابل‌قبول نیست و صدای اقشار مختلف درآمده و مسئولان و ستاد امر به معروف و دستگاه‌های فرهنگی باید با جدیت، برنامه‌ریزی و تدبیر در برابر فساد و بی‌حیایی ایستادگی کنند.»
-
-او ادامه داد: «مسئولان و نهادهای باید به وظایف قانونی و شرعی خود عمل کنند.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250615
-
-<div align="center"><video src="files/post_250615_VahidOOnLine_250615.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250615_VahidOOnLine_250615.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند پیامی ویدیویی فرستاد و گفت که بابت خرید چند پیمانه قهوه، نیم میلیون هزینه کرده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250614
-
-<div align="center"><video src="files/post_250614_VahidOOnLine_250614.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250614_VahidOOnLine_250614.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش‌های رسیده به مدیابات ایران‌اینترنشنال از ادامه کمبود و گرانی دارو و قطع پوشش بیمه‌ای برخی داروها در ایران حکایت دارد
-
-گفت‌وگو با لیلا سعادتی، عضو تحریریه ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250613
-
-<div align="center"><img src="files/post_250613_VahidOOnLine_250613.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی‌اکبر ولایتی، مشاور رهبر کشته‌شده جمهوری اسلامی، در یادداشتی سفر نخست‌وزیر عراق به آمریکا را «سفری تاسف‌بار، بی‌موقع و تخریب‌کننده مجاهدتهای ملت عراق در تاریخ چند هزارساله این کشور» دانست و علی الزیدی را فردی «جوان و کم تجربه» خواند.
-
-ولایتی اضافه کرد نخست‌وزیر عراق در حالی که هنوز مراسمات سوگواری رهبر جمهوری اسلامی به اتمام نرسیده، به کاخ سفید سفر کرده و هیچ نشانه‌ای از اندوه و تاثر در آن دیدار نداشت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250612
-
-<div align="center"><video src="files/post_250612_VahidOOnLine_250612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250612_VahidOOnLine_250612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی‌حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال، گفت جمهوری اسلامی، ایران را وارد جنگی کرده که سال‌ها طول می‌کشد تا خسارت‌های ناشی از آن جبران شود.
-
-او افزود این تازه دور ششم حملات است و ممکن است ادامه‌دار باشد، بی‌آنکه واکنش گسترده‌ای در پی داشته باشد، این همان اتفاقی است که در لبنان رخ داده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250611
-
-<div align="center"><img src="files/post_250611_VahidOOnLine_250611.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️سازمان عملیات تجارت دریایی بریتانیا جمعه ۲۶ تیرماه اعلام کرد گزارشی از وقوع حادثه‌ای مرتبط با یک کشتی تجاری و نیروهای نظامی در حدود ۱۸۵ کیلومتری شرق دقم عمان دریافت کرده است.
-
-بر اساس این اطلاعیه، این حادثه در جریان جنگ جاری ایران و آمریکا رخ داده است.
-این نهاد همچنین به کشتی‌های عبوری توصیه کرد آخرین اطلاعات امنیت دریایی را دنبال کنند و با توجه به شرایط عملیاتی در حال تحول منطقه، هوشیاری خود را حفظ کنند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250610
-
-<div align="center"><video src="files/post_250610_VahidOOnLine_250610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250610_VahidOOnLine_250610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
