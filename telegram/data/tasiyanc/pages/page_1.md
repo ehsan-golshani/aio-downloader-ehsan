@@ -1,12 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/21 09:42
+📅 آخرین بروزرسانی: 1405/05/21 14:18
 
 ---
 
-## tasiyanc — post 9201
+## tasiyanc — post 9203
 
-<div align="center"><a href="files/post_9201_@Tasiyanc 🔥.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🔥.ovpn</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز ۱۲ آگوست روز جهانی بچه اول خانوادس .
+
+@Tasiyanc 🔋
+</div>
+
+## tasiyanc — post 9201
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 📶
@@ -49,8 +55,6 @@ An ultra-realistic high-fashion editorial portrait of a person wearing an oversi
 </div>
 
 ## tasiyanc — post 9199
-
-<div align="center"><a href="files/post_9199_melbet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 melbet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✈️ اپلیکیشن MelBet 🥇
@@ -347,23 +351,5 @@ https://t.me/+c5jwC3lt9z45NTE0
 r20
 🔔کانال دربی بت :👇
 ✅https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9172
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن multi📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر متاسفانه باگش برطرف نشده ⭕️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 
