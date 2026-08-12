@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 5846
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان خدایی دمت گرم تنها کانال که کانفینگاش پرسرعته تویی دمت گرم خدایی
+</div>
 
 ## tasiyanc — post 5845
 
@@ -216,11 +222,5 @@ GM TASIYAN 💝
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چن تا سرور بمب آماده کردم یکیشون تا ۵ مین دیگه میفرستم
 </div>
 

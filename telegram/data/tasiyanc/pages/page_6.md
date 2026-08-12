@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 9079
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود با استراتژی بدست میاد نه ادعا 
+👌
+
+
+امروز پاریس
+⚡️ و منچستر یونایتد 
+⚡️بازی دارن بیا استراتژی مو ببین و یاد بگیر
+
+
+⚠️مخصوص کسایی که بالا ۵۰میلیون سرمایه دارن
+g16
+https://t.me/+5fvta-uF4QA3ZDY0
+https://t.me/+5fvta-uF4QA3ZDY0
+</div>
 
 ## tasiyanc — post 9078
 
@@ -337,24 +355,5 @@ Join @TASIYANC
 ❌با هر 1 میلیون شارژ ، 🤩🤩🤩 هزارتومان شارژ اضافی بگیر🅰️
 
 ❌❌طرح شارژ رایگان فقط تا پایان مرداد ماه
-</div>
-
-## tasiyanc — post 9056
-
-<div align="center"><img src="files/post_9056_tasiyanc_9056.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛍 #بایرن_مونیخ Vs #استون_ویلا
-
-زمان: جمعه ساعت 15
-
-🚨 تجربه پیشبینی مطمئن با
-🤩 🤩 🅰️ شارژ اضافی و ریسک خیلی پایین در #بت_اینجا رو از دست نده❌
-
-🤩 🤩 درصد برگشت وجه در صورت باخت:
-🌐 betinja.bet
-🌐 betinja.bet
-کانال بونوس های رایگان g15
-@betinjabet
 </div>
 

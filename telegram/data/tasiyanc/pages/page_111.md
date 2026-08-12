@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 111
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 5783
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال گسترده در داده های همراه
+</div>
 
 ## tasiyanc — post 5782
 
@@ -184,24 +190,5 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🍓 4 server 🔥.npvt
-</div>
-
-## tasiyanc — post 5755
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈ تست شده روی همه اپراتورا ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-در صورت اختلال حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-
-🚀 @Tasiyanc 
-✅
 </div>
 

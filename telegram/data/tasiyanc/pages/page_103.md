@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 103
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 5994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور جدید با متد جدید ساعت ۸
+</div>
 
 ## tasiyanc — post 5988
 
@@ -159,12 +165,5 @@ Gold🥇Vip servers.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرعتی - 🇫🇷
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5963
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ npv سرعت بالا (تست)
-@Tasiyanc
 </div>
 

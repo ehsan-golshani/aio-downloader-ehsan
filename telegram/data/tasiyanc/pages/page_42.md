@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 8015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴موج جدید حملات گروهك تروریستی حوثی ها به عربستان
+@tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8014
 
@@ -221,15 +228,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7985
-
-<div align="center"><img src="files/post_7985_tasiyanc_7985.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-A true friend of the Iranian people, may your soul rest in peace. You will always be remembered, dear Senator Graham 🖤
-
-@Tasiyanc ⭐️
 </div>
 

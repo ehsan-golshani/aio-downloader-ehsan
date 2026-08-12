@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 5686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ ویتوری یکی دوتا بزارم بعدش بریم سمت نپستر
+</div>
 
 ## tasiyanc — post 5685
 
@@ -180,11 +186,5 @@ Mci [22].npvt
 vless://d37a75db-76b6-4db8-b213-0d5b044d138d@172.64.152.100:443?path=%2F&security=tls&encryption=none&insecure=0&host=hio-awx.pages.dev&type=ws&allowInsecure=0&sni=hio-awx.pages.dev#%40Tasiyanc%20%F0%9F%87%BA%F0%9F%87%B8
 
 ﻿@Tasiyanc ☑
-</div>
-
-## tasiyanc — post 5664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-WİFİ موشک.npvt
 </div>
 

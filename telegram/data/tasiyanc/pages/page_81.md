@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 6567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+DhVkjFb6qhZmYTFk
+گپ تاسیان - تحلیلگران جنگ بیان
+</div>
 
 ## tasiyanc — post 6566
 
@@ -210,33 +217,5 @@ https://t.me/TasiyanProxy
 ⭕️
 ⭕️
 ⭕️
-</div>
-
-## tasiyanc — post 6542
-
-<div align="center"><video src="files/post_6542_tasiyanc_6542.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6542_tasiyanc_6542.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-4سرور سرعتی مناسب همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

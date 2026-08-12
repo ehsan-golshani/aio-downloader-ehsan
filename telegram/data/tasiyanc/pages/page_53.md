@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 7574
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+۲ سرور  سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7571
 
@@ -241,20 +258,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
-</div>
-
-## tasiyanc — post 7535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-5سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- ✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 

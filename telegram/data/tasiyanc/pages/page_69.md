@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 6963
+
+<div align="center"><img src="files/post_6963_tasiyanc_6963.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪐@Tasiyanc.dark
+</div>
 
 ## tasiyanc — post 6961
 
@@ -231,21 +239,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Vip SPEED ⚡⚡.npvt
-</div>
-
-## tasiyanc — post 6939
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی تست شده  🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

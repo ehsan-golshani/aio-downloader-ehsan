@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/21 17:59
+📅 آخرین بروزرسانی: 1405/05/21 18:57
 
 ---
+
+## ProxyMTProto — post 47790
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wb.flowaccess.site
+Port: 8443
+Secret: ee2fcc64ad41fc313d96fb8cb686e5620677622e666c6f776163636573732e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47788
 
@@ -163,24 +181,6 @@ Secret: dd0ed82c381c8fccacbe15605dec874662
 Server: r44.proxytg.space
 Port: 8443
 Secret: eebf7b9e22c9202130923254db55f17ed07234342e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47770
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47769
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: poll900.mtproxygram.pro
-Port: 853
-Secret: ee18ccad215fa76f14969bb6da115ed56b62726f777365722e79616e6465782e636f6d
 @ProxyMTProto
 </div>
 

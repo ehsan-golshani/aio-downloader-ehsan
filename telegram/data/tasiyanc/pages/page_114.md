@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 5709
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈ سرور تست شده تمام اپراتورا ⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5708
 
@@ -182,11 +194,5 @@ vless://bafacd98-136a-4530-838d-4e5c51838dac@188.226.180.209:443?path=%2Fshows%2
 vmess://eyJhZGQiOiIxNzIuMjMzLjE3Ljc2IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiIiLCJpZCI6IjA0NjIxYmFlLWFiMzYtMTFlYy1iOTA5LTAyNDJhYzEyMDAwMiIsImluc2VjdXJlIjoiMCIsIm5ldCI6InRjcCIsInBhdGgiOiIvIiwicG9ydCI6IjIyMzI0IiwicHMiOiJAVGFzaXlhbmMgQnJhemlsIHZpcCIsInNjeSI6ImF1dG8iLCJzbmkiOiIiLCJ0bHMiOiIiLCJ0eXBlIjoibm9uZSIsInYiOiIyIn0
 vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=tls&encryption=none&insecure=0&host=uin-ape.pages.dev&type=ws&allowInsecure=0&sni=uin-ape.pages.dev#%40Tasiyanc%20%E2%9A%A1
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ ویتوری یکی دوتا بزارم بعدش بریم سمت نپستر
 </div>
 

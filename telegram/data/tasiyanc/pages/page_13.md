@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 8905
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New Wallpapers ✨ HD
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8904
 
@@ -293,30 +301,5 @@ dic.b-amooz.com
 
 ✈️@TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8880
-
-<div align="center"><video src="files/post_8880_tasiyanc_8880.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8880_tasiyanc_8880.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📌 آمار دیروز کانال تراست بت :
-
-
-✅✅✅ 3.46
-⬅️
-✅✅✅ 3.94⬅️
-✅✅✅ 3.46⬅️
-✅✅✅ 4.67⬅️
-✅✅✅ 2.76⬅️
-✅✅✅ 7.43⬅️
-✅✅✅ 1.30⬅️
-
-👇بدو جوین شو فرم بعدی بگیر
-👇
-🆔 https://t.me/+Aq2Af6VNNE44M2Rk
-🆔 https://t.me/+Aq2Af6VNNE44M2Rk
 </div>
 

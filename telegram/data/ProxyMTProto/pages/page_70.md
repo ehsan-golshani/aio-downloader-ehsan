@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/05/21 17:59
+📅 آخرین بروزرسانی: 1405/05/21 18:57
 
 ---
+
+## ProxyMTProto — post 48672
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48671
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48669
 
@@ -163,24 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
 Server: get.utkanos.life
 Port: 443
 Secret: eef09a7a4c51b6bc6caf4d3134b312b0f56765742e75746b616e6f732e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48650
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: zone.chunkycorp.shop
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48649
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: link.mishkalapy.life
-Port: 443
-Secret: ee4b6b1de597b3b682aadd9133cd774fee6c696e6b2e6d6973686b616c6170792e6c696665
 @ProxyMTProto
 </div>
 

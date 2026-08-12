@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 6783
+
+<div align="center"><img src="files/post_6783_tasiyanc_6783.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معرفی فیلم 🎬
+▪️ فیلم : Michael (2026)
+🩷​IMDb 7.7
+فیلم بیوگرافی و پرسروصدای مایکل جکسون سرانجام اکران شد. این اثر ۴ دهه زندگی، نبوغ هنری، پشت‌صحنه موزیک‌ویدیوهای شاهکار و چالش‌های شخصی مایکل رو به تصویر کشیده.
+با هنرنمایی Jaafar Jackson (برادرزاده واقعی مایکل جکسون)
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6781
 
@@ -171,11 +186,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وقتی یه شیر تو ایران به دنیا میاد 😈
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6726
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این واقعی ترین کلیپ از جنگه، اگه میخواین بدونین نزدیک‌تون یا جایی که هستین موشک بخوره چه اتفاقی میوفته حتما این کلیپ رو ببینین. @Tasiyanc ✅
 </div>
 

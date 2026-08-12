@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 8302
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فاطمه مهاجرانی، سخنگوی دولت:
+
+دولت پزشکیان تا پای جان کنار مردم خونگرم جنوبه و از صبر و ایستادگیشون تو دوران متشنج جنگی تشکر میکنه
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8301
 
@@ -146,16 +156,5 @@ JAVID SHAH 👑
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جنگل داشت نابود میشد ، ولی درختان هنوز به تبر رای میدادن چون اون قانعشون کرده بود دستش چوبیه پس از خودشونه :) @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8279
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگل داشت نابود میشد ،
-ولی درختان هنوز به تبر رای میدادن
-چون اون قانعشون کرده بود
-دستش چوبیه پس از خودشونه :)
-
-@Tasiyanc ✅
 </div>
 

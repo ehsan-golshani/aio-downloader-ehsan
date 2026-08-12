@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 9150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پیشنهاد_ویژه ⚠️
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
+دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
+</div>
 
 ## tasiyanc — post 9149
 
@@ -218,36 +226,5 @@ vless://b052df40-d51c-456c-9bd6-57af01a87e4e@cdn.pinecloud.net:443?security=real
 
 📍Multi location
 @TASIYANC 🔋
-</div>
-
-## tasiyanc — post 9125
-
-<div align="center"><video src="files/post_9125_tasiyanc_9125.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9125_tasiyanc_9125.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی جدید 
-🆕
-
-Midnight Street Style → prompt 
-🤖
-🤖
-
-مرد
-
-​"A close-up moody urban portrait of a handsome young man with long wavy dark hair and a beard, wearing dark-tinted sunglasses. He is dressed in an all-dark outfit: a textured charcoal grey nylon bomber jacket, a charcoal t-shirt, and dark grey washed jeans. He is leaning back against a black industrial structure. His posture is relaxed and cool, with his hand resting near his chest, gazing slightly away. The lighting is diffused and dark, emphasizing the moody atmosphere. High-resolution, cinematic quality, natural skin, rich dark color palette."
-
-
-زن
-
-​"A moody street style portrait of a stylish woman with wavy blonde hair leaning against a concrete column. She is wearing an oversized flannel shirt with a grey and black plaid pattern, light grey relaxed-fit denim jeans, a beige baseball cap worn backward, and cat-eye sunglasses. Large intricate gold hoop earrings are visible. Her pose is confident, looking off to the side. The background features a dark wood paneled garage door. High-end streetwear editorial photography, dark and muted tones, cinematic natural lighting, realistic skin textures."
-
-
-آموزش استفاده 
-👉
-
-@TASIYANC 
-✅
 </div>
 

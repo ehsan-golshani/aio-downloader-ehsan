@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/21 14:18
+📅 آخرین بروزرسانی: 1405/05/21 18:59
 
 ---
+
+## tasiyanc — post 8592
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امیر دوست پسر قبلی نیکا فلاحی وقتی فهمید نیکا با مرسلی رفته تو رابطه از لجش اومده عکسای نود بدون سانسورشو پخش کرده ولی خودمونیم چیز خوبیه 📥 مشاهده ویدیو
+</div>
 
 ## tasiyanc — post 8591
 
@@ -264,16 +270,5 @@ Join As @TASIYANC ✅
 س*اک زدن دنیا خانوم جهانبخت برای تتلو 🤣
 
 مشاهده فیلم 👉
-</div>
-
-## tasiyanc — post 8552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-vless://073d1d50-8478-47bf-a828-7a1b381931d5@104.17.147.31:443?path=%2Fodiyfws&security=tls&encryption=none&insecure=0&host=octopusss.net&fp=chrome&type=ws&allowInsecure=0&sni=octopusss.net#%40Tasiyanc%20%F0%9F%87%AB%F0%9F%87%B7%20Paris
-vless://073d1d50-8478-47bf-a828-7a1b381931d5@104.17.147.129:443?path=%2Fodiyfws&security=tls&encryption=none&insecure=0&host=octopusss.net&fp=chrome&type=ws&allowInsecure=0&sni=octopusss.net#%40Tasiyanc%20%F0%9F%87%AB%F0%9F%87%B7%20Paris
-Location 🤯 🇫🇷
-
-@TASIYANC✅
 </div>
 
