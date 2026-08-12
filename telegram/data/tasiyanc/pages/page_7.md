@@ -1,8 +1,94 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/21 22:21
+📅 آخرین بروزرسانی: 1405/05/21 23:39
 
 ---
+
+## tasiyanc — post 9073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ در تروث سوشیال : "دونالد ترامپ در جنگ با ایران پیروز شد." @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9072
+
+<div align="center"><img src="files/post_9072_tasiyanc_9072.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ در تروث سوشیال :
+"دونالد ترامپ در جنگ با ایران پیروز شد."
+
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9071
+
+<div align="center"><video src="files/post_9071_tasiyanc_9071.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9071_tasiyanc_9071.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 
+🖤 Config Unlimated Vip 
+⚡️━━━╮
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@89.116.161.84:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%E2%9A%A1%EF%B8%8F%20fast
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@216.205.52.151:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%E2%9A%A1%EF%B8%8F%20fast
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@94.247.142.167:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@89.116.161.84:2087?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%94%B1
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@104.29.111.147:2087?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%94%B1
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@45.128.76.171:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@103.116.7.174:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
+
+ANDROID 
+🕹
+V2box
+🔐 Npv tunnel 
+🔐  V2rayNG 
+🔐
+iOS  
+📱
+V2BOX 
+🔐  Npv tunnel 
+🔐
+
+Join As @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9070
+
+<div align="center"><video src="files/post_9070_tasiyanc_9070.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9070_tasiyanc_9070.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet
+💥
+
+
+🎁بونوس ورزشی هر چهارشنبه
+🔥
+
+💸واریز و برداشت متنوع
+💵
+
+⭕️بدون نیاز به فیلتر شکن
+⭕️
+r16
+
+🎁کد هدیه ثبت نام Melbet90 
+✌️
+
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9069
 
@@ -269,43 +355,5 @@ Join @TASIYANC
 مجری: آخه شما میگی وقتی بچه بودم
 پزشکیان: من تو زابل خدمت میکردم و پنکه‌ام نداشتم، حالا چی میگی؟
 @Tasiyanc
-</div>
-
-## tasiyanc — post 9043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ایران عوارض ۷٪ را بر تمام کشتی‌های تجاری عبوری از تنگه هرمز اعلام کرده است , این امر برای ایران ۳۸۵ میلیون دلار خالص روزانه یا بیش از ۱۰۰ میلیارد دلار خالص سالانه با حجم ترافیک پیش از جنگ ایجاد می‌کند
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووری 🔴 در پی حمله موشکی حوثی های یمن
-
-تعدادی از نیروهای عربستان سعودی کشته و زخمی شدند، پس از آنکه یک موشک شلیک شده از یمن مستقیماً به پایگاه‌های نیروهای تیپ واکنش سریع اصابت کرد.
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویس های پخش شده منتسب به سالومه مجری منوتو ، با هوش مصنوعی ساخته شده دیدم وایرال داره میشه گفتم بگم
-
-پ‌ن : انقد سطحی و مبتدیانه ساخته شده بچه ۴ ساله هم میفهمه
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9039
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سازمان وظیفه عمومی فراجا شایعه معافیت سربازان فراری را تکذیب کرد
-
-اطلاعیه سازمان وظیفه عمومی:
-▫️آن دسته از کارکنان وظیفه که به هر دلیل خدمت سربازی خود را به اتمام نرسانده‌اند، می‌بایست وضعیت سربازی خود را از طریق یگان خدمتی تعیین تکلیف کنند و هیچ نوع معافیت جدیدی برای آنان در نظر گرفته نشده است.
-
-@Tasiyanc ✅
 </div>
 

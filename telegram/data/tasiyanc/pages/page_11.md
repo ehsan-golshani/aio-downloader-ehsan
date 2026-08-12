@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/21 22:21
+📅 آخرین بروزرسانی: 1405/05/21 23:39
 
 ---
+
+## tasiyanc — post 8969
+
+<div align="center"><video src="files/post_8969_tasiyanc_8969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8969_tasiyanc_8969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری، ترامپ: این آخرین فرصت ایران برای توافقه، اگه توافق نشه، جنگ قطعیه.
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8968
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر 🖤
+</div>
+
+## tasiyanc — post 8966
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+سرور  سرعتی پرمیوم ⚡️
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید⛓
+
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پنالتی راحترین بازی پولساز ⚠️
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید راحتو سریع برنده شو👌🏼
+💖 مرجع بازی های روز دنیا در ‌پلتفرم جهانی بت اینجا ⭐
+</div>
 
 ## tasiyanc — post 8964
 
@@ -237,72 +286,5 @@ Location ⚡️🇮🇹
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8946
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 SubLink Unlimited Vip ⚡️ ━━━╮
-
-
-https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-
-
-آموزش اضافه کردن ساب ⚡️
-
-تست بگیرید وصل شید ✅
-
-اتصال امن برای همه 🇮🇷
-
-👹 Join As @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 کانفیگ اختصاصی نامحدود اینجکتور📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
-
-سرور سرعتی‌ لوکیشن آلمان و ترکیه 📍
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال 🔸
-
-اتصال امن برای همه 🇮🇷
-
-📱 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پیشنهاد_ویژه ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
-دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
-</div>
-
-## tasiyanc — post 8942
-
-<div align="center"><video src="files/post_8942_tasiyanc_8942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8942_tasiyanc_8942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖱اگر #تندو تیز هستی اینو ببین 💵💰
-
-✊این بازی فقط سرعت عمل بالا میخواد😍
-
-🟢 ویدیو #آموزش بازی AVI رو براتون گذاشتم خیلی راحت با سرعت عمل بالا بدون ریسک کلی پول دراورد به همراه 🤩🤩% شارژ اضافی🔥
-
-💖 حتما ویدیو رو تا انتها ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان r12
-@betinjabet
 </div>
 

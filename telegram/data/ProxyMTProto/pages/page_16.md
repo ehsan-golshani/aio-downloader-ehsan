@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/21 22:19
+📅 آخرین بروزرسانی: 1405/05/21 23:37
 
 ---
+
+## ProxyMTProto — post 49769
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: download.gung-ho.co.uk.
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49768
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fleethop.online
+Port: 443
+Secret: eed82e9162b09c2ddfdbe3ddfe7d28d87a666c656574686f702e6f6e6c696e65
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49767
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: miravox.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49766
 
@@ -154,33 +181,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: Unknown
 Port: 443
 Secret: eef783c9e53b90b92a084bb3e50e028baa6164312e666c757876706e67756172642e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49749
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: best7uer.co.uk
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49748
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: srv.savelyev.click
-Port: 443
-Secret: ee966bd27e82ca84e00f7dcf1eecd7237c7372762e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49747
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: data.savelyev.click
-Port: 443
-Secret: ee4a2d96b1f28e7ceb3ca477c79fc54f8f646174612e736176656c7965762e636c69636b
 @ProxyMTProto
 </div>
 

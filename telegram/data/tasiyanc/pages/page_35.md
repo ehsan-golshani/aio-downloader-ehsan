@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/21 22:21
+📅 آخرین بروزرسانی: 1405/05/21 23:39
 
 ---
+
+## tasiyanc — post 8273
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 حملات بی سابقه سپاه به مواضع کرد ها در سلیمانیه ، دلیلش چی می‌تونه باشه 🤔
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8272
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش از چهار انفجار وحشتناک در بندرعباس
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8271
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 حملات سپاه به اقلیم کردستان عراق
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8270
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 انفجار مهیب در قشم
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8268
 
@@ -163,46 +196,5 @@
 گزارش اعضا : اصفهان و استان های جنوبی اینترنت بشدت ضعیفه ،
 
 کامنت بزارید وضعیت نتتون چطوره
-</div>
-
-## tasiyanc — post 8242
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨اخبار منتشر شده راجب قطعی اینترنت و دیتا سنترا فعلا کذبه نگران نباشید
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8241
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک نفت کش سپاهی توسط کماندو های امریکا به اسارت گرفته شد.
-
-با اعلام سنت‌کام تمام خدمه نفتکش سپاهی توسط تفنگداران آمریکایی بازداشت شدند
-
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 8240
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رئیس مرکز روابط عمومی وزارت بهداشت: تا ساعت ۶:۳۰صبح ۲۶ تیر، شمار مصدومین حملات آمریکا از ۴۰۰ نفر عبور و ۳۸ نفر هموطن جانشان را از دست دادند
-
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 8239
-
-<div align="center"><video src="files/post_8239_tasiyanc_8239.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8239_tasiyanc_8239.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که از یکی از سرباز های تیپ 388 بمپور ایرانشهر به شدت وایرال شده که داره آهنگ میخونه 💔
-
-@Tasiyanc ✅| بانك کانفیگ رایگان
 </div>
 
