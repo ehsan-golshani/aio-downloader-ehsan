@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/21 23:39
+📅 آخرین بروزرسانی: 1405/05/22 00:39
 
 ---
+
+## tasiyanc — post 8701
+
+<div align="center"><video src="files/post_8701_tasiyanc_8701.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8701_tasiyanc_8701.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاربردی
+
+خودروی رویایی‌ات رو از صفر تا صد خودت بساز! 😊
+
+​اگر به ماشین و تیونینگ علاقه داری، سری به این سایت بزن 
+  https://www.modsnation.com 👈
+
+ویژگی‌های سایت:
+​دسترسی به لیست جذابی از انواع خودروهای مدرن و کلاسیک مختلف.
+​نمایش مدل‌های سه‌بعدی بسیار باکیفیت و جذاب از ماشین‌ها.
+​امکان کاستومایز و شخصی‌سازی صفر تا صد ماشین (از سپر و گلگیر گرفته تا رینگ و جزئیات بدنه) برای ساخت ماشین رویایی خودت
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8699
+
+<div align="center"><img src="files/post_8699_tasiyanc_8699.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با این سایت به کل دنیا گوش بده 🎼
+
+https://radio.garden/visit/reykjavik/82Q3wG81
+
+🌐 تا حالا شده کنجکاو شی مردم یه شهر اونور دنیا دارن چی گوش میدن؟
+
+با Radio Garden میتونی فقط با چرخوندن کره زمین، رادیوی زنده چندین هزار شهر از سراسر دنیا رو گوش بدی. از موسیقی و اخبار گرفته تا برنامه‌های محلی و حتی تبلیغات همون کشور!
+
+🔎 اگه دنبال یه شهر خاص باشی، فقط کافیه اسمش رو سرچ کنی…
+﻿
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8698
 
@@ -215,18 +254,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨حمله آمریکا به سیریک
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هم اکنون حمله سپاه به بحرین
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8672
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب چقد آرومه 🦦
 </div>
 

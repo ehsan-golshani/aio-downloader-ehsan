@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/21 23:37
+📅 آخرین بروزرسانی: 1405/05/22 00:37
 
 ---
+
+## ProxyMTProto — post 47841
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: connect.arixo.shop
+Port: 443
+Secret: eeed5518514cf40187d905c5b7c9e4d595617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47840
 
@@ -174,15 +183,6 @@ Secret: ddda11050e6e98fb151d0094b549b0344a
 Server: jet.quickrouteapp.xyz
 Port: 8443
 Secret: eeedca657d767c71c26de484e74182c3076a65742e717569636b726f7574656170702e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47821
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/21 23:39
+📅 آخرین بروزرسانی: 1405/05/22 00:39
 
 ---
+
+## tasiyanc — post 7610
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ SuperFast⚡.npvt
+</div>
+
+## tasiyanc — post 7608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرتغال به رهبری رونالدو 🇵🇹 به دور یک هشتم رفت و رقیب اسپانیا شد ⚡️
+</div>
 
 ## tasiyanc — post 7605
 
@@ -174,30 +186,5 @@
 📧 [ برای دانلود  کلیک کنید ]
 
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7566
-
-<div align="center"><img src="files/post_7566_tasiyanc_7566.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☕ Nitro⚡Fast.npvt
-</div>
-
-## tasiyanc — post 7565
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-7سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
-
-🗝Password :  @Tasiyanc
-
- 
-✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 
