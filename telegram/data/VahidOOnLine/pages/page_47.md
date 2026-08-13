@@ -1,8 +1,62 @@
 # آرشیو کانال VahidOOnLine - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/05/22 14:17
+📅 آخرین بروزرسانی: 1405/05/22 15:12
 
 ---
+
+## VahidOOnLine — post 253837
+
+<div align="center"><img src="files/post_253837_VahidOOnLine_253837.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت خزانه‌داری آمریکا چهارشنبه ۱۴ مرداد اعلام کرد نام شرکت هواپیمایی «فلای بغداد» و نام‌های دیگر آن، «فلای بغداد ایرلاینز» و «عراق اکسپرس»، به همراه دو هواپیمای این شرکت را از فهرست تحریم‌های خود خارج کرده است.
+
+این شرکت و دو هواپیمای آن پیش‌تر به دلیل ارتباط با نیروی قدس سپاه پاسداران تحریم شده بودند.
+
+هم‌زمان، این نهاد ارتباط بشیر عبد الکاظم علوان الشبانی را در فهرست تحریم‌ها به‌روزرسانی و او را به جای شرکت فلای بغداد، مرتبط با نیروی قدس سپاه پاسداران معرفی کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253836
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ با اشاره به مذاکرات با تهران گفت مقام‌های ایرانی خواهان گفتگو و دستیابی به توافق هستند و اگر «باهوش باشند» توافق خواهند کرد. او افزود که مقام‌های ایرانی با واشنگتن تماس گرفته‌اند، پیشرفت زیادی در مذاکرات حاصل شده و تهران نمی‌خواهد هدف حمله قرار بگیرد. رئیس‌جمهوری آمریکا همچنین با اشاره به احتمال بازگشایی تنگه هرمز در روزهای آینده، گفت که توافق تصمیمی «بسیار هوشمندانه» خواهد بود، هرچند باید منتظر ماند و دید در نهایت چه اتفاقی رخ می‌دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253835
+
+<div align="center"><video src="files/post_253835_VahidOOnLine_253835.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253835_VahidOOnLine_253835.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال دیوارنویسی اعتراضی شهروندان علیه جنگ‌طلبی مجتبی خامنه‌ای و احمد وحیدی را در پیرانشهر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253834
+
+<div align="center"><img src="files/post_253834_VahidOOnLine_253834.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پلیس لندن اعلام کرد چهار مرد روز چهارشنبه در منطقه کاونت گاردن در مرکز لندن با ضربات چاقو زخمی شدند و یک زن ۴۷ ساله را بازداشت کرده است.
+
+به گزارش اسکای‌نیوز، این زن به ظن حمل سلاح سرد و ارتکاب حمله بازداشت شده است.
+
+سخنگوی سازمان آمبولانس لندن گفت چهار مصدوم در محل درمان اولیه شدند و سپس به یک مرکز تخصصی تروما منتقل شدند.
+
+پلیس اعلام کرد نیروهای امدادی حدود ساعت ۱۲:۳۰ به وقت محلی در پی گزارش وقوع چاقوکشی در خیابان اندل به محل اعزام شدند. مجروحان ۳۴، ۳۹، ۴۲ و ۵۲ ساله هستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253833
 
@@ -267,65 +321,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان بریتانیا روز سه‌شنبه در اعتراض به اعدام مخالفان حکومت و زندانیان در ایران در مرکز لندن برنامه‌ای برگزار کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253817
-
-<div align="center"><img src="files/post_253817_VahidOOnLine_253817.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داده‌های رهگیری وب‌سایت مارین‌ترافیک اعلام کرد شمار عبور کشتی‌ها از تنگه هرمز در ۱۳ مرداد از ۱۰ مورد به هشت مورد کاهش یافته است.
-
-این گزارش با اشاره به تغییرات تردد دریایی در مناطق راهبردی، اعلام کرد عبور شناورهای بدون سیگنال، شناورهای تحت تحریم و ناوگان سایه همچنان ریسک‌های دریانوردی را افزایش داده است.
-
-بر اساس این داده‌ها، همزمان با کاهش شمار عبور کشتی‌ها از تنگه هرمز، تردد شناورها در باب‌المندب افزایش یافته است.
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253816
-
-<div align="center"><video src="files/post_253816_VahidOOnLine_253816.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253816_VahidOOnLine_253816.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ارتش ژاپن تصاویری از نخستین شلیک آزمایشی موشک کروز تاماهاوک را منتشر کرد. این شلیک روز ۷ مرداد در جریان رزمایش مشترک ژاپن و آمریکا انجام شد و نخستین شلیک این موشک توسط نیروهای ژاپنی به شمار می‌رود.
-این رزمایش با واکنش تند کیم یو جونگ، خواهر رهبر کره شمالی، همراه شد. او ژاپن را «کشوری جنایتکار در جنگ» خواند و گفت دستیابی توکیو به توان حمله پیش‌دستانه، تهدیدی جدی برای صلح و ثبات بین‌المللی است.
-او همچنین تاکید کرد پیونگ‌یانگ هرگز روند تقویت توان نظامی ژاپن را که می‌تواند امنیت کره شمالی را تهدید کند، نادیده نخواهد گرفت و در برابر آن از گزینه‌های نظامی خود استفاده خواهد کرد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253815
-
-<div align="center"><video src="files/post_253815_VahidOOnLine_253815.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253815_VahidOOnLine_253815.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدجواد اکبرین، عضو تحریریه ایران‌اینترنشنال، با اشاره به تضعیف نیروهای نیابتی جمهوری اسلامی، گفت حکومت ایران تلاش می‌کند اندک نیروهای باقی‌مانده خود را در یک نقطه متمرکز کند تا از آخرین توانایی‌های آن‌ها علیه منطقه و جهان استفاده کند
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253814
-
-<div align="center"><video src="files/post_253814_VahidOOnLine_253814.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253814_VahidOOnLine_253814.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد اتابک، وزیر صنعت، معدن و تجارت جمهوری اسلامی، در سفر به پاکستان از مقام‌های این کشور خواست مشکلات کانتینرهای ایرانی دپو‌شده در بندر کراچی را پیگیری کنند.
-
-مهتاب قلی‌زاده، روزنامه‌نگاراقتصادی، گفت با بسته‌شدن مسیرهای دریایی، بار ایران به مسیرهای زمینی منتقل شده، اما ازدحام و معطلی در مرزها نشان می‌دهد این راه هم پرهزینه و پرمشکل است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
