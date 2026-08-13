@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/05/22 16:16
+📅 آخرین بروزرسانی: 1405/05/22 17:52
 
 ---
+
+## tasiyanc — post 7474
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار هم اکنون 174000 😐
+</div>
 
 ## tasiyanc — post 7473
 
@@ -171,14 +177,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پروفایل چنل عوض شد --- ❤️
-</div>
-
-## tasiyanc — post 7438
-
-<div align="center"><img src="files/post_7438_tasiyanc_7438.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای خرید بازی GTA VI در‌ هر کشور چند روز باید کار کنی ؟
-@Tasiyanc 💠
 </div>
 

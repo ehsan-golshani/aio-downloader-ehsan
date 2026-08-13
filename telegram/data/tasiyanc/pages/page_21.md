@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/22 16:16
+📅 آخرین بروزرسانی: 1405/05/22 17:52
 
 ---
+
+## tasiyanc — post 8720
+
+<div align="center"><img src="files/post_8720_tasiyanc_8720.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹می‌دونستین همه دندونای دلفینایی که در مکان‌هایی به اسم "پارک دلفینها" برای سرگرمی مردم زندونی میشن، یکی‌یکی کشیده میشه و بعدش توی پارکا به مردم نمایش داده میشن.
+
+به این پارک ها نرید و تو آزار و شکنجشون شریک نشین!!!
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8719
 
@@ -238,17 +249,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 
 ترامپ دستور داد که تمام حملات علیه مواضع جمهوری اسلامی بطور موقت لغو شود
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8693
-
-<div align="center"><video src="files/post_8693_tasiyanc_8693.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8693_tasiyanc_8693.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ویدیویی دیده نشده از ورود محمدرضا شاه و ملکه فرح پهلوی به آمریکا و استقبال از او در زمان ریاست جمهوری جان اف کندی
-
-@TASIYANC 💠
 </div>
 

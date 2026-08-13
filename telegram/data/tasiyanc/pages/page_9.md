@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/22 16:16
+📅 آخرین بروزرسانی: 1405/05/22 17:52
 
 ---
+
+## tasiyanc — post 9038
+
+<div align="center"><img src="files/post_9038_tasiyanc_9038.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کوثری ؛ از فرماندهان سپاه:
+پسر لاریجانی یه لحظه گوشیش رو روشن میکنه و یه تماسی با یه نفر میگیره که همون موقع جاشون لو میره و میزننشون.
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9036
 
@@ -267,19 +278,6 @@ Join As @TASIYANC ✅
 
 
 📱 @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9011
-
-<div align="center"><img src="files/post_9011_tasiyanc_9011.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺ موبایل سامسونگ A26؛ پنجشنبه 52 میلیون بود و امروز شده 87 میلیون!فقط در عرض 2 روز، 35 میلیون گرون شده!
-
-
-
-@TASIYANC 
 ✅
 </div>
 

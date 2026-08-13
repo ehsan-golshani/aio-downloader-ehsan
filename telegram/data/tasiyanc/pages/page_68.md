@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/22 16:16
+📅 آخرین بروزرسانی: 1405/05/22 17:52
 
 ---
+
+## tasiyanc — post 7080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شب نشینی با تاسیان😁
+🦦
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
 
 ## tasiyanc — post 7079
 
@@ -205,11 +213,5 @@ Location 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نیوزلند انقد کیری باز می‌کنه تیم شموشک بود دو تا گل میزد
-</div>
-
-## tasiyanc — post 7035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللللل نیوزلند
 </div>
 

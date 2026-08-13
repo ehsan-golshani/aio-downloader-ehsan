@@ -1,12 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/22 16:16
+📅 آخرین بروزرسانی: 1405/05/22 17:52
 
 ---
 
-## tasiyanc — post 9241
+## tasiyanc — post 9242
 
-<div align="center"><a href="files/post_9241_⚡️@TASIYANC⚡️🇩🇪.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡️@TASIYANC⚡️🇩🇪.ovpn</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از اوپن ها راضی اید؟
+</div>
+
+## tasiyanc — post 9241
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 📶 
@@ -240,11 +244,5 @@ a21
 🎯همین حالا عضو شو و شروع کن👇
 https://t.me/+FaoDjhEVG34wMWFk
 https://t.me/+FaoDjhEVG34wMWFk
-</div>
-
-## tasiyanc — post 9216
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودرو های ماقبل ۸۵ هیچی بهشون تعلق نمیگیره فقط میتونن بنزین ۸۷ تومنی بزنن فقط میشه شاشید تو باک
 </div>
 

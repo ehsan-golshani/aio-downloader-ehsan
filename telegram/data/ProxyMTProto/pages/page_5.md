@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/22 16:14
+📅 آخرین بروزرسانی: 1405/05/22 17:50
 
 ---
+
+## ProxyMTProto — post 50013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fresh.t-proxy.info.
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50012
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s010.neo-trading.org
+Port: 8443
+Secret: ee2c46ee89b4f2c79c1d8325d13091e580647a656e2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50011
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50010
 
@@ -154,33 +181,6 @@ Secret: ee9e28cf588967add684c5e759fea036d47777772e636c6f7564666c6172652e636f6d
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49993
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: edge2.kvakzon.top
-Port: 443
-Secret: eed6962c6820fac66c942ad857b7072ae265646765322e6b76616b7a6f6e2e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49992
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49991
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dev.nowabst.net
-Port: 853
-Secret: ee54079943a5db4dc9163650c09dfc806d766b2e636f6d
 @ProxyMTProto
 </div>
 

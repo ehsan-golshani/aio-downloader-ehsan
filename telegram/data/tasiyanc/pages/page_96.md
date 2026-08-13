@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/22 16:16
+📅 آخرین بروزرسانی: 1405/05/22 17:52
 
 ---
+
+## tasiyanc — post 6214
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وایر های قبلی ک‌گذااشتم مثل موشك وصلن نیازی به جدید نی فعلا
+</div>
 
 ## tasiyanc — post 6212
 
@@ -177,13 +183,5 @@ SuperFast @Tasiyanc 🪐⚡.npvt
 https://t.me/TasiyanProxy
 
 از امروز شروع بکار کرد
-</div>
-
-## tasiyanc — post 6190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Proxy 1 ✅ proxy 2
-Proxy 3 ✅ proxy 3
-@TasiyanProxy ✅
 </div>
 

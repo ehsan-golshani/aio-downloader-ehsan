@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/22 16:16
+📅 آخرین بروزرسانی: 1405/05/22 17:52
 
 ---
+
+## tasiyanc — post 8482
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ممنون بابت حمایت‌هاتون @i_am_souji_2 ❤️ شب بالای ۵۰ استارز زده زیر پست کانفیگا
+</div>
 
 ## tasiyanc — post 8481
 
@@ -174,17 +180,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨فووووری ، حمله سپاه پاسداران به ورزشگاهی که ترامپ در اون حضور داشت !
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8459
-
-<div align="center"><img src="files/post_8459_tasiyanc_8459.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فقط دو سرمربی تو این دوره از جام جهانی باخت نداشتن:
-
 
 @TASIYANC ✅
 </div>
