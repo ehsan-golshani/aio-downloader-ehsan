@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/22 01:35
+📅 آخرین بروزرسانی: 1405/05/22 09:48
 
 ---
+
+## tasiyanc — post 8910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ: رهبران قطر، عربستان سعودی و امارات متحده عربی درخواست کردند که حمله به ایران دو یا سه روز به تعویق بیفتد
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8909
+
+<div align="center"><video src="files/post_8909_tasiyanc_8909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8909_tasiyanc_8909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پیت هگست وزیر جنگ آمریکا این ویدئو رو منتشر کرد :
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8905
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New Wallpapers ✨ HD
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8904
 
@@ -272,51 +300,5 @@ dic.b-amooz.com
 
 ✈️@TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8882
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@TASIYANC ⚡ 04.ovpn
-</div>
-
-## tasiyanc — post 8881
-
-<div align="center"><video src="files/post_8881_tasiyanc_8881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8881_tasiyanc_8881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این برنامه کسایی که خنده های عجیب دارنو دعوت کرده - نتیجه رو ببینید🗿😂😂
-
-
-
-✈️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8880
-
-<div align="center"><video src="files/post_8880_tasiyanc_8880.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8880_tasiyanc_8880.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📌 آمار دیروز کانال تراست بت :
-
-
-✅✅✅ 3.46
-⬅️
-✅✅✅ 3.94⬅️
-✅✅✅ 3.46⬅️
-✅✅✅ 4.67⬅️
-✅✅✅ 2.76⬅️
-✅✅✅ 7.43⬅️
-✅✅✅ 1.30⬅️
-
-👇بدو جوین شو فرم بعدی بگیر
-👇
-🆔 https://t.me/+Aq2Af6VNNE44M2Rk
-🆔 https://t.me/+Aq2Af6VNNE44M2Rk
 </div>
 

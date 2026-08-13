@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/05/22 01:35
+📅 آخرین بروزرسانی: 1405/05/22 09:48
 
 ---
+
+## tasiyanc — post 7453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 3 بازی پرتغال و کلمبیا ...
+</div>
+
+## tasiyanc — post 7450
+
+<div align="center"><video src="files/post_7450_tasiyanc_7450.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7450_tasiyanc_7450.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود DE 🇩🇪
+
+4 سرور سرعتی 
+⚡️
+
+دانلود برنامه 
+🕹 IOS 📱 Android 
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+🔑Password :  @Tasiyanc
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️حملات مجدد آمریکا به قشم
+</div>
 
 ## tasiyanc — post 7448
 
@@ -176,26 +212,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آقای رضاییان هنوز نمیدونی چرا بدشانسی میارید؟ 😒
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7428
-
-<div align="center"><img src="files/post_7428_tasiyanc_7428.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐😐😐
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آفسایدددددددددد
-</div>
-
-## tasiyanc — post 7420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم بره وار
 </div>
 

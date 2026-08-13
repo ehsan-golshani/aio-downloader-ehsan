@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/22 01:35
+📅 آخرین بروزرسانی: 1405/05/22 09:48
 
 ---
+
+## tasiyanc — post 9232
+
+<div align="center"><img src="files/post_9232_tasiyanc_9232.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ رفته تماشای بازی‌های پاتریوتس؛ بازیکنا هم دخترای نوجوان بودند.
+جالبه ترامپی که همه‌جا چرت می‌زنه، این بار چند ساعت کامل بیدار و متمرکز مونده!🤣
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9231
+
+<div align="center"><a href="files/post_9231_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+✅اسپانسر لیگ انگلستان
+👑 امکان شارژ و برداشت با کارت بانکی
+⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
+😀Telegram Channel👇
+https://t.me/+c5jwC3lt9z45NTE0
+</div>
+
+## tasiyanc — post 9230
+
+<div align="center"><img src="files/post_9230_tasiyanc_9230.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤میخوای مسابقات فوتبال پیش بینی کنی؟!
+🥇پس نیاز داری به یه سایت بین المللی و معتبر🥇
+
+⛔دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+⭐دارای لایسنس و مجوز anjuan
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+r22
+🔔کانال دربی بت :👇
+✅https://t.me/+c5jwC3lt9z45NTE0
+</div>
 
 ## tasiyanc — post 9229
 
@@ -13,8 +64,6 @@
 </div>
 
 ## tasiyanc — post 9225
-
-<div align="center"><a href="files/post_9225_TS - ⚡️ Fast.dark.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 TS - ⚡️ Fast.dark</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
@@ -168,66 +217,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 ⚡️ کافیه فقط یه پروکسی MTPROTO خوب و پایدار وصل باشید و تماس بگیرید. فقط یه نکته مهم: حتماً طرف مقابل باید آنلاین باشه و شماره شما توی لیست مخاطبانشون ذخیره شده باشه.
 
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی⁉️
-
-🔥کمپانی بین المللی We pari همون انتخاب🔥
-
-            👑سایتی برای حرفه ای ها👑
-
-🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
-
-🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
-💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
-💖واریز اول و هر شنبه 2 برابر شارژ میشین
-💖تسویه حساب سریع و بدون احراز
-💖دارای مجوز رسمی Anjuan و curacao
-💖فعالیت بدون تخلف در کشورهای مختلف دنیا
-💖بازگشت بخشی از باخت به صورت هفتگی
-💖اسپانسر سوپر  لیگ ترکیه
-😃😃😃😃
-👑کد هدیه ثبت نام:GG007
-
-👑ادرس سایت:
-http://til.ac/z5jcpGT
-ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
-
-👑دانلود اپلیکیشن اندروید➡️
-g21
-🔥کانال اطلاع رسانی ایران:👇
-https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

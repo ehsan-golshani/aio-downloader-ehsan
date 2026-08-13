@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/22 08:12
+📅 آخرین بروزرسانی: 1405/05/22 09:46
 
 ---
+
+## ProxyMTProto — post 48085
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48084
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: apex.proxym.world
+Port: 443
+Secret: ee4459d77ba2b570d1a593a478d3cd94a4617065782e70726f78796d2e776f726c64
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48083
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48082
 
@@ -154,33 +181,6 @@ Secret: ddab90965a833231bb7c6e024564b75a91
 Server: Unknown
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48065
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: desk.proxytg.live
-Port: 443
-Secret: ee7930091e4348bb260a09c61562aa661a6465736b2e70726f787974672e6c697665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: surge.linkflowhub.shop
-Port: 443
-Secret: ee932f87d141afddf9a957c5e3c85d8bb673757267652e6c696e6b666c6f776875622e73686f70
 @ProxyMTProto
 </div>
 

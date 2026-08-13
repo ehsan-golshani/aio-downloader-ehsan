@@ -1,8 +1,69 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/22 01:35
+📅 آخرین بروزرسانی: 1405/05/22 09:48
 
 ---
+
+## tasiyanc — post 9206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
+
+## tasiyanc — post 9205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی⁉️
+
+🔥کمپانی بین المللی We pari همون انتخاب🔥
+
+            👑سایتی برای حرفه ای ها👑
+
+🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
+
+🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
+💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
+💖واریز اول و هر شنبه 2 برابر شارژ میشین
+💖تسویه حساب سریع و بدون احراز
+💖دارای مجوز رسمی Anjuan و curacao
+💖فعالیت بدون تخلف در کشورهای مختلف دنیا
+💖بازگشت بخشی از باخت به صورت هفتگی
+💖اسپانسر سوپر  لیگ ترکیه
+😃😃😃😃
+👑کد هدیه ثبت نام:GG007
+
+👑ادرس سایت:
+http://til.ac/z5jcpGT
+ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
+
+👑دانلود اپلیکیشن اندروید➡️
+g21
+🔥کانال اطلاع رسانی ایران:👇
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
+
+## tasiyanc — post 9204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9203
 
@@ -294,62 +355,5 @@ vless://e4514801-0d5a-42ba-869f-39bd605aef9e@18.153.84.121:22222?security=&encry
 vless://e4514801-0d5a-42ba-869f-39bd605aef9e@63.178.105.116:22224?security=&encryption=none&headerType=none&type=tcp#%F0%AA%9A%82%20%40Tasiyanc
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9175
-
-<div align="center"><img src="files/post_9175_tasiyanc_9175.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی 
-🆕
-
-" Golden Sunflower Gaze "
-
-Prompt 🤖🤖
-
-Ultra realistic beauty portrait using the reference image as identity anchor, preserve exact facial features, bone structure, eye shape, lips, skin tone, natural asymmetry and overall likeness. Extreme close-up, direct eye contact, sunflower covering half the face, petals softly touching cheek, nose and lips, delicate floral shadows on skin. Luxury skincare campaign, Vogue Beauty cover style, intimate editorial photography, shallow depth of field, ultra detailed flower texture, crisp iris details, warm cinematic highlights, soft shadows, natural window light, Canon EOS R5, RF 85mm f/1.2L, subtle film grain, fine art floral portrait, luxury beauty advertisement, elegant feminine mood, Pinterest-worthy composition.Photorealistic 8K, realistic anatomy, no Al look, no beauty filter, no skin smoothing, visible pores, authentic skin texture, vertical 5:7.
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9174
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
-✅اسپانسر لیگ انگلستان
-👑 امکان شارژ و برداشت با کارت بانکی
-⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
-😀Telegram Channel👇
-https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9173
-
-<div align="center"><img src="files/post_9173_tasiyanc_9173.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤میخوای مسابقات فوتبال پیش بینی کنی؟!
-🥇پس نیاز داری به یه سایت بین المللی و معتبر🥇
-
-⛔دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-⭐دارای لایسنس و مجوز anjuan
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-r20
-🔔کانال دربی بت :👇
-✅https://t.me/+c5jwC3lt9z45NTE0
 </div>
 

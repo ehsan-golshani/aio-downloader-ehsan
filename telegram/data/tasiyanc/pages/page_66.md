@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/22 01:35
+📅 آخرین بروزرسانی: 1405/05/22 09:48
 
 ---
+
+## tasiyanc — post 7137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️ اسماعیل بقایی سخنگوی وزارت خارجه : همین الان ریاست جمهوری ایران و آمریکا توافق نامه را بصورت آنلاین امضاء کردند
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇹🇷⛓️⚡️VIP -IST.npvt
+</div>
+
+## tasiyanc — post 7134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود لوکیشن🇹🇷
+
+4سرور سرعتی متد جدید⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7133
 
@@ -181,43 +212,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آقام رونالدو تو ترکیبه 🥹❤️
-</div>
-
-## tasiyanc — post 7102
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-2سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ➡️
-
-مناسب دانلود🎥 وب‌گردی🔍 جمینای 🤖 🚀
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-5 کانفیگ حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-🛡Password Zip: @Tasiyanc
-
-T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7099
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبید رو به راهید؟
 </div>
 

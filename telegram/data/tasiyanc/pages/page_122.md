@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 122
 
-📅 آخرین بروزرسانی: 1405/05/22 01:35
+📅 آخرین بروزرسانی: 1405/05/22 09:48
 
 ---
+
+## tasiyanc — post 5506
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش نداریم فعلا پول نزنید باز شه اطلاع میدم
+</div>
+
+## tasiyanc — post 5503
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+gül bana dünyalar benim olsun
+</div>
+
+## tasiyanc — post 5502
+
+<div align="center"><img src="files/post_5502_tasiyanc_5502.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+WiFi 🥝.npvt
+</div>
 
 ## tasiyanc — post 5501
 
