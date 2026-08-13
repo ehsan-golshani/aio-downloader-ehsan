@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/22 00:37
+📅 آخرین بروزرسانی: 1405/05/22 08:12
 
 ---
+
+## ProxyMTProto — post 49811
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 82daad.dashcdn.org
+Port: 443
+Secret: ee43f3418c9f8da7f31ded210fad921f8f3832646161642e6461736863646e2e6f7267
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49810
 
@@ -172,15 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: Unknown
 Port: 10443
 Secret: ee63fccdeb9951e5f99d66d274148278b97777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 65.21.205.29
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

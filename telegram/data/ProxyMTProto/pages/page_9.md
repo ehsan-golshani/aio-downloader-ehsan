@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/22 00:37
+📅 آخرین بروزرسانی: 1405/05/22 08:12
 
 ---
+
+## ProxyMTProto — post 49914
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49913
 
@@ -172,15 +181,6 @@ Secret: ee4b0955a40972e28dc3e76df92e9a3f1e766b2e636f6d
 Server: offers.wrenshire.co.uk
 Port: 7980
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49894
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s2.postpulse.space
-Port: 443
-Secret: ee263bf8f7de3c2b04aa1c008ab21e4a566164322e617269786f2e73686f70
 @ProxyMTProto
 </div>
 

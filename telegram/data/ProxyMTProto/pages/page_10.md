@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/22 00:37
+📅 آخرین بروزرسانی: 1405/05/22 08:12
 
 ---
+
+## ProxyMTProto — post 49894
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s2.postpulse.space
+Port: 443
+Secret: ee263bf8f7de3c2b04aa1c008ab21e4a566164322e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49893
 
@@ -172,15 +181,6 @@ Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 Server: cdn2.librava.click
 Port: 443
 Secret: ee949089dd5eebdb2db7a13f24e981b7d563646e322e6c6962726176612e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49872
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: webhook.vingardium.co.uk.
-Port: 443
-Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
 @ProxyMTProto
 </div>
 

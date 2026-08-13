@@ -1,8 +1,10 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/22 00:37
+📅 آخرین بروزرسانی: 1405/05/22 08:12
 
 ---
+
+## ProxyMTProto — post 49430
 
 ## ProxyMTProto — post 49429
 
@@ -172,15 +174,6 @@ Secret: ee95674c99428c9e894c09d9567f963e33666173742d70726f78792e696e6b
 Server: super.sub-ploter.co.uk
 Port: 25565
 Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fleethop.online
-Port: 443
-Secret: eed82e9162b09c2ddfdbe3ddfe7d28d87a666c656574686f702e6f6e6c696e65
 @ProxyMTProto
 </div>
 
