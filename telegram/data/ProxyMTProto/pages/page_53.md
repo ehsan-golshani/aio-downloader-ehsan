@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/22 22:21
+📅 آخرین بروزرسانی: 1405/05/22 23:27
 
 ---
+
+## ProxyMTProto — post 49054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee402900cd57c3daef160c3a2aef80a29c6164312e617269786f2e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Best.Ping.ir.hdhdhfdrde.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49052
 
@@ -163,24 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: cdn.savelyev.click
 Port: 443
 Secret: eefcacf4447d2bd244c9c0a8c8b0f4f1a563646e2e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49034
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: super.sub-ploter.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49033
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 35.204.159.194
-Port: 443
-Secret: dd9cea7850eb43fd1838c435737914ec29
 @ProxyMTProto
 </div>
 

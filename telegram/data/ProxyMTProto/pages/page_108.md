@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/05/22 22:21
+📅 آخرین بروزرسانی: 1405/05/22 23:27
 
 ---
+
+## ProxyMTProto — post 47952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 9965
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: june.nolags.pw
+Port: 443
+Secret: dd479dd5c298eb110a7c9cffc8d6ce500c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47950
 
@@ -163,24 +181,6 @@ Secret: ee3ab621bbb1dea6b3be09c8f3582c61a364726976652e676f6f676c652e636f6d
 Server: Unknown
 Port: 15
 Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 79.137.196.223
-Port: 9443
-Secret: eeeed3431eaef666469f9beb5286a544d96f7777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47931
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
 @ProxyMTProto
 </div>
 

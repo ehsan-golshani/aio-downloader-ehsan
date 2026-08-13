@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/22 22:21
+📅 آخرین بروزرسانی: 1405/05/22 23:27
 
 ---
+
+## ProxyMTProto — post 49460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: probably.nolags.pw
+Port: 443
+Secret: ddc986c839977fd65cfbc10a931129e311
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49458
 
@@ -158,24 +176,6 @@ Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78
 </div>
 
 ## ProxyMTProto — post 49441
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tgb92cf27d.koshkaproxy.shop
-Port: 443
-Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49439
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown

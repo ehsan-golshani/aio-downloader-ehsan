@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/05/22 22:21
+📅 آخرین بروزرسانی: 1405/05/22 23:27
 
 ---
+
+## ProxyMTProto — post 48312
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: back.nolags.pw
+Port: 443
+Secret: dd23930f2da14e8bad3dcf4620e9db128b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48311
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: zinova.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48310
 
@@ -163,24 +181,6 @@ Secret: eefcbdb65a11b00bbfbbd9de6fb0b17099706f7274616c2e62616c616c61696b612e636c
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48292
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.savelyev.click
-Port: 443
-Secret: eedd1174aeeba154742b9b2d722fab283763646e2e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48291
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: b8rta.co.uk.
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 
