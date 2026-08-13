@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/05/22 11:38
+📅 آخرین بروزرسانی: 1405/05/22 16:16
 
 ---
+
+## tasiyanc — post 7350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ دارک تانل رو از این به بعد تو گروه تاسیان میزارم پین میکنم یکم دیگه ۲.۳ تا می‌زارم ، هرکی خواست جوین بشه لینک عوض میشه https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ دارک تانل رو از این به بعد تو گروه تاسیان میزارم پین میکنم
+یکم دیگه ۲.۳ تا می‌زارم ، هرکی خواست جوین بشه لینک عوض میشه
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7348
+
+<div align="center"><video src="files/post_7348_tasiyanc_7348.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7348_tasiyanc_7348.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود مولتی لوکیشن
+
+۴سرور سرعتی 
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+💘
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+ 💘@Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 7347
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned a photo
+</div>
 
 ## tasiyanc — post 7345
 
@@ -193,39 +241,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گلللللللللللللللل
-</div>
-
-## tasiyanc — post 7318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روناااااااااالدوووووووووووو زد
-</div>
-
-## tasiyanc — post 7317
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡@Tasiyanc⚡️.ovpn
-</div>
-
-## tasiyanc — post 7316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی پرتغال شروع شروع شد
-به امید گلزنی و درخشش ستاره بی بدیل جهان حضرت رونالدو کبیر🤩❤️‍🔥
-</div>
-
-## tasiyanc — post 7309
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال 
-
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

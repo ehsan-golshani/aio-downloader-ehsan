@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 400
 
-📅 آخرین بروزرسانی: 1405/05/22 15:12
+📅 آخرین بروزرسانی: 1405/05/22 16:14
 
 ---
+
+## VahidOOnLine — post 245298
+
+<div align="center"><img src="files/post_245298_VahidOOnLine_245298.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آویگدور لیبرمن، رهبر حزب راستگرای «اسرائیل، خانه ما» و وزیر پیشین دفاع این کشور، در شبکه ایکس نوشت: «توافقی که در حال شکل‌گیری با تهران است، یک پیروزی کامل برای آیت‌الله‌ها و از دیدگاه اسرائیل یک فاجعه است.»
+
+او اضافه کرد: «مسئولیت چنین توافقی برعهده بنیامین نتانیاهو است.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245297
+
+<div align="center"><img src="files/post_245297_VahidOOnLine_245297.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارتش اسرائیل از ساکنان غسانیه، زراریه، مزرعه کوثریه الرز و صیر الغربیه در جنوب لبنان خواست فورا خانه‌های خود را ترک کنند و به شمال رودخانه زهرانی منتقل شوند. ارتش اسرائیل اعلام کرد در پی نقض توافق آتش‌بس از سوی حزب‌الله، علیه این گروه اقدام خواهد کرد.
+
+ارتش همچنین هشدار داد حضور در نزدیکی نیروها و تاسیسات حزب‌الله جان غیرنظامیان را به خطر می‌اندازد.
+
+ارتش اسرائیل پیش‌تر نیز برای ساکنان روستاهای صرفند، تفاحتا و مزرعه سینا در جنوب لبنان هشدار تخلیه صادر کرده بود.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245296
 
@@ -272,28 +302,6 @@ iranintl
 🔹سلام، الان رفتم مغازه، بانک ملی، ملت و تجارت هیچ‌کدام جواب نمی‌دهند.
 
 🔹 امروز شنبه ۲۳ خرداد ۱۴۰۵ نزدیک به ۹۰درصد بانک‌ها ۴ساعت است که قطع شده‌اند و من یک مغازه‌دار هستم و مردم دیگر نمی‌توانند از مغازه خرید کنند و دستگاه پوز خطای صادرکننده می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245273
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که به تازگی از انقلاب ملی ایرانیان در دی‌ماه به ایران اینترنشنال رسیده نشان می‌دهد یکی از معترضان در فولادشهر اصفهان پرچم شیروخورشید را بالای تابلوی راهنمایی و رانندگی برده و به اهتزاز در آورده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245272
-
-<div align="center"><video src="files/post_245272_VahidOOnLine_245272.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_245272_VahidOOnLine_245272.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مصطفی رمضانی، زندانی سیاسی پادشاهی‌خواه، در پیامی صوتی از زندان قزل‌حصار زادروز مجیدرضا رهنورد، جانباخته خیزش انقلابی ۱۴۰۱ را گرامی داشت و آن را به مردم ایران و خاندان پهلوی تبریک گفت.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

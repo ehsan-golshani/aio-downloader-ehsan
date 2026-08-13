@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/22 11:38
+📅 آخرین بروزرسانی: 1405/05/22 16:16
 
 ---
+
+## tasiyanc — post 8572
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی پرمیوم  ترکیه - استانبول⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8571
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ وارد سیکت*یر ( ۳۱ تیر شدیم)
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8570
+
+<div align="center"><img src="files/post_8570_tasiyanc_8570.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید ✨
+
+تحلیل زیبایی شما 💖
+
+آموزش استفاده 👉
+
+دانلود Gemini 🤖
+
+دانلود ChatGpt 🤖
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8569
+
+<div align="center"><img src="files/post_8569_tasiyanc_8569.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 NEW prompt
+عکساتو زیباتر کن 🦦
+
+آموزش استفاده 👉
+
+دانلود Gemini 🤖
+
+دانلود ChatGpt 🤖
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8562
 
@@ -204,31 +272,5 @@ Location 🤯 🇫🇷
 🚨💪 انفجار در کنارك
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8519
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقا این جان فداهای ما چی شد؟
-</div>
-
-## tasiyanc — post 8518
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 چابهار چندین انفجار مهیب
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انفجار در شیراز ، تایید میکنید شیرازیا؟
-</div>
-
-## tasiyanc — post 8516
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اختلال اینترنت در سراسر ایران
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/22 15:13
+📅 آخرین بروزرسانی: 1405/05/22 16:14
 
 ---
+
+## ProxyMTProto — post 49868
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: best.router.iran.ir.bishdhaep.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49867
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowabst.net
+Port: 853
+Secret: ee4e9fcd5caf6e9be2f8ec43e370e902d6766b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49866
 
@@ -163,24 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: ad2.arixo.shop
 Port: 443
 Secret: eed09b88cbbd4e744865b890e5a0bd26876164322e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49847
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 6775
-Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49846
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: petrichor.slarkfat.icu
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 

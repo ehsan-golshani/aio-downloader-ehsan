@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/22 11:38
+📅 آخرین بروزرسانی: 1405/05/22 16:16
 
 ---
+
+## tasiyanc — post 8663
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 مقر حوثی ها در جزیره کمران توسط عربستان بمباران شد
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8662
+
+<div align="center"><img src="files/post_8662_tasiyanc_8662.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تکمیلی
+نیروی هوایی عربستان بندر الحدید مواضع حوثی هارو بمبارون کرد
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8661
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرزیدنت دونالد ترامپ :
+
+ایران، باورنکردنیه، شروع کرد به شلیک کردن به همه‌جای خاورمیانه.
+اگه سلاح هسته‌ای داشت، حتما ازش استفاده میکرد.
+
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 8660
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این وسط ارتش عربستان سعودی داره تقه میزنه به یمن 😂
+</div>
 
 ## tasiyanc — post 8659
 
@@ -189,34 +226,5 @@
 
 
 Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8629
-
-<div align="center"><img src="files/post_8629_tasiyanc_8629.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ذات توافق :
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8628
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پلیس فتای استان خراسان رضوی، از دستگیری زوجی که فیلم جنسی ارباب و برده ضبط می‌کردند و سپس آنها را در تلگرام با قیمت های نجومی می‌فروختند، خبر داد
-@Tasiyanc 😐
-</div>
-
-## tasiyanc — post 8627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شب جمعه به این آرومی؟ مشکوکه
-</div>
-
-## tasiyanc — post 8626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احوال شما؟
 </div>
 

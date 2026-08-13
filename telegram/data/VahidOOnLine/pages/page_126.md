@@ -1,8 +1,30 @@
 # آرشیو کانال VahidOOnLine - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/05/22 15:12
+📅 آخرین بروزرسانی: 1405/05/22 16:14
 
 ---
+
+## VahidOOnLine — post 251876
+
+<div align="center"><img src="files/post_251876_VahidOOnLine_251876.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری رویترز گزارش داد که صبح جمعه دوم مرداد، آژیرهای هشدار در بحرین به صدا درآمد. این خبر جزئیات بیشتری درباره علت به صدا درآمدن آژیرها منتشر نکرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251874
+
+<div align="center"><img src="files/post_251874_VahidOOnLine_251874.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️اکبر صالحی، معاون امنیتی و انتظامی استاندار اصفهان، اعلام کرد بامداد جمعه دوم مرداد، منطقه‌ای در شهرستان نایین هدف حمله آمریکا قرار گرفت. به گفته او، این حمله هیچ تلفات جانی در پی نداشت و میزان خسارات احتمالی در دست بررسی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251873
 
@@ -285,33 +307,6 @@ iranintl
 به گفته همین منبع، این حمله توانست با عبور از از سامانه‌های دفاعی آمریکا به یک انبار تسلیحاتی در نزدیکی همان پایگاه هوایی اصابت کند؛ این انبار تسلیحاتی همان موضعی بود که چند روز پیشتر نیز سه نظامی آمریکایی براثر حمله جمهوری اسلامی، در آن کشته شده بودند.
 
 نیویورک‌پست در ادامه این گزارش نوشت، با آنکه دستگاه‌های اطلاعاتی خارجی پیش‌تر درباره احتمال وقوع چنین حمله‌ای هشدار داده بودند، اما سامانه‌های دفاعی آمریکا قادر به دفع آن نشدند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251854
-
-<div align="center"><video src="files/post_251854_VahidOOnLine_251854.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251854_VahidOOnLine_251854.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️رسانه‌های ایران با انتشار تصاویری از مشاهده یک شیء پرنده در حال سقوط در آسمان قشم خبر دادند.
-بر اساس این تصاویر، این شیء در حال از دست دادن ارتفاع بوده و به سمت زمین سقوط می‌کند، اما هنوز جزئیات دقیقی درباره ماهیت آن منتشر نشده است.پ
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251845
-
-<div align="center"><img src="files/post_251845_VahidOOnLine_251845.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آسه‌آن در بیانیه پایانی نشست وزیران خارجه خود، با ابراز نگرانی از تشدید درگیری‌ها پس از حملات اسرائیل و آمریکا به جمهوری اسلامی و حملات تلافی‌جویانه حکومت ایران، خواستار خویشتنداری، حل اختلاف‌ها از راه دیپلماسی و حفظ امنیت و آزادی کشتیرانی در تنگه هرمز شد.
-
-این اتحادیه همچنین از ادامه تلاش‌های دیپلماتیک و میانجی‌گری برای کاهش تنش حمایت کرد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/05/22 15:12
+📅 آخرین بروزرسانی: 1405/05/22 16:14
 
 ---
+
+## VahidOOnLine — post 253512
+
+<div align="center"><video src="files/post_253512_VahidOOnLine_253512.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253512_VahidOOnLine_253512.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی روز دوشنبه ۱۲ مردادماه ویدیویی غم‌انگیز از مرگ تعداد زیادی از ماهیان رودخانه مسقان شیراز را منتشر کرد.
+به گزارش مهر، این فاجعه زیست‌محیطی به‌علت «ورود آب‌های شور ناشی از گنبد نمکی به رودخانه و کاهش شدید کیفیت آب» روی داده است.
+رودخانه مسقان در ارتفاعات کوهمره‌سرخی شیراز قرار دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253511
+
+<div align="center"><img src="files/post_253511_VahidOOnLine_253511.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسماعیل کهرم، پیش‌کسوت و فعال محیط زیست، در مراسم بزرگداشت اسکندر فیروز گفت: «فیروز می‌گفت قرار نبود دریاچه ارومیه خشک شود، چه کسی اجازه این کار را داد؟ قرار نبود این همه تالاب که در معرض خطر هستند، چنین سرنوشتی داشته باشند.»
+
+به گزارش پیام ما، کهرم افزود: «فیروز از بی‌توجهی مسئولان امور تالاب‌ها و دریاچه‌ها گله داشت و می‌گفت ۱۵۳ تالابی را که با جان و دل و مشکلات فراوان حفظ کرده بودیم، چگونه به این وضع درآوردند و چه کسی اجازه این کار را داد؟»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253510
 
@@ -269,38 +297,6 @@
 این نماینده مجلس همچنین افزود آمریکا هیچ حقی برای دخالت در آب‌های سرزمینی جمهوری اسلامی ندارد و چنین اقدامی با قوانین بین‌المللی سازگار نیست.
 
 اسماعیلی گفت: «آمریکا به قوانین و حقوق بین‌الملل پایبند نیست و در نهایت ناچار خواهد شد مدیریت ایران در منطقه را بپذیرد.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253475
-
-<div align="center"><video src="files/post_253475_VahidOOnLine_253475.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253475_VahidOOnLine_253475.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تلویزیون دولتی کره شمالی تصاویری «نادر» از تعطیلات تابستانی در این کشور را همراه با موج بی‌سابقه گرما منتشر کرده است.
-
-در این تصاویر که روز دوشنبه ۱۲ مردادماه منتشر شده، جمعیت گسترده‌ای از مردم در منطقه گردشگری «وونسان کالمای» دیده می‌شوند که برای فرار از گرما در آخر هفته، تن به آب زده‌اند. ساختمان‌های بلند، پارک آبی و جت‌اسکی، با تصاویر رایج از این کشور منزوی شرق آسیا، متفاوت است.
-
-سواحل گردشگری کره شمالی، علاوه بر مسافران چینی، در سال‌های اخیر میزبان گردشگران روسیه بوده است که پس از آغاز جنگ با اوکراین، به جای اروپا به این کشور می‌روند.
-
-براساس گزارش‌های هواشناسی، دمای هوا هفته گذشته در کره شمالی بین ۳۵ تا ۴۹ درجه سانتیگراد بود.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253474
-
-<div align="center"><video src="files/post_253474_VahidOOnLine_253474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253474_VahidOOnLine_253474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده نشان می‌دهند گروهی از ایرانیان مقیم آلمان یکشنبه ۱۱ مرداد در اعتراض به اعدام‌های جمهوری اسلامی، در شهر مونیخ تجمع کرده و سرود «ای ایران» را هم‌خوانی کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

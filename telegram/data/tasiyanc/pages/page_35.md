@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/22 11:38
+📅 آخرین بروزرسانی: 1405/05/22 16:16
 
 ---
+
+## tasiyanc — post 8289
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعدیا بیان پیوی
+</div>
+
+## tasiyanc — post 8288
+
+<div align="center"><img src="files/post_8288_tasiyanc_8288.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+09197478492
+
+ثمینه جعفری ، مادر جنده اعظم
+</div>
+
+## tasiyanc — post 8287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی با عرزشی بحث میکنم احساس میکنم نجس میشم و مثل این میمونه ۱ ماه تو تابستون نری حموم
+</div>
+
+## tasiyanc — post 8286
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
+</div>
 
 ## tasiyanc — post 8285
 
@@ -135,39 +163,5 @@ JAVID SHAH 👑
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8267
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرگزاری تسنیم: هم اکنون حمله موشکی سپاه به یک کشتی تجاری در تنگه هرمز
-
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8266
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ⭕️ سنتکام: امروز ( به وقت آمریکا ) سنگین‌ترین حمله از ابتدای جنگ به جمهوری اسلامی وارد خواهد شد
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار از چنل اصلی پوشش بدیم ؟ همه بگن
-
-بله 👍 نه 👎
-</div>
-
-## tasiyanc — post 8262
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💪🚨 ترامپ:
-توافق اینقدر خوب پیش رفته که به زودی هزاران شهروند آمریکایی مهاجرت میکنن به ایران، منتها لباس نظامی تنشونه.
-
-@Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/05/22 11:38
+📅 آخرین بروزرسانی: 1405/05/22 16:16
 
 ---
+
+## tasiyanc — post 6053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه چیزای دستم رسیده نمی‌دونم بزارم نزارم🤣
+</div>
+
+## tasiyanc — post 6052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عکس و ..؟
+</div>
+
+## tasiyanc — post 6051
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب بریم به آدرس و شماره تلفن یا چیزای دیگه بدم؟
+</div>
+
+## tasiyanc — post 6050
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فایل تمام پیام‌های تلگرامش
+
+@ineedknife
+</div>
 
 ## tasiyanc — post 6048
 
@@ -106,29 +132,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مال منم حالا چیکاکنم برکرده
-</div>
-
-## tasiyanc — post 6029
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اره برامنم امروز پرید
-</div>
-
-## tasiyanc — post 6028
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم لیمیت خوردم
-</div>
-
-## tasiyanc — post 6027
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم اکانتم پرید
-</div>
-
-## tasiyanc — post 6026
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوست من سه روز پیش اکانتش پرید
 </div>
 

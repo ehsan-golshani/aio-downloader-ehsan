@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/05/22 15:12
+📅 آخرین بروزرسانی: 1405/05/22 16:14
 
 ---
+
+## VahidOOnLine — post 253616
+
+<div align="center"><img src="files/post_253616_VahidOOnLine_253616.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسماعیل کوثری، عضو کمیسیون امنیت ملی مجلس، به خبرگزاری خانه ملت گفت: «تهدیدهای اخیر ترامپ علیه زیرساخت‌های ایران، صرفا ابزاری برای جنگ روانی است.»
+
+کوثری ادامه داد: «زیرساخت‌های کشورهای میزبان پایگاه‌های نظامی آمریکا، در راستای نابودی هدف قرار خواهند گرفت.»
+
+این نماینده مجلس افزود: «آتش تقابل مجدد، دامنگیر هر کشوری می‌شود که امنیت خود را به آمریکا سپرده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253615
+
+<div align="center"><video src="files/post_253615_VahidOOnLine_253615.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253615_VahidOOnLine_253615.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ بیش از ۷۰ دانش‌آموز و معلم از هنگ‌کنگ روز دوشنبه ۱۲ مرداد ماه، با حضور در دانشگاه تسینگ‌هوا، از «آزمایشگاه فناوری شادی» و پایگاه آموزش عملی ربات‌های انسان‌نما در پکن بازدید کردند.
+شرکت‌کنندگان در این برنامه در سخنرانی‌هایی درباره هوش تجسم‌یافته (Embodied Intelligence) حضور یافتند و مسابقه فوتبال ربات‌ها را از نزدیک تماشا کردند.
+هنگ‌کنگ یک ‌منطقه اداری ویژه چین است که پس از پایان حاکمیت بریتانیا در سال ۱۹۹۷ به چین بازگردانده شد. این منطقه بر اساس اصل «یک کشور، دو نظام» اداره می‌شود؛ یعنی بخشی از چین است، اما در بسیاری از حوزه‌ها از جمله نظام حقوقی، اقتصادی و برخی امور اجرایی، تا سال ۲۰۴۷ از درجه‌ای از خودمختاری برخوردار است، در حالی که امور دفاعی و سیاست خارجی آن در اختیار دولت مرکزی چین قرار دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253614
 
@@ -273,32 +303,6 @@
 ## VahidOOnLine — post 253596
 
 <div align="center"><img src="files/post_253596_VahidOOnLine_253596.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سازمان عملیات تجارت دریایی بریتانیا گفت یک کشتی باری هدف یک پرتابه ناشناس قرار گرفته است.
-
-این سازمان اشاره کرد که این حادثه در ۲۰ مایل دریایی (۳۷ کیلومتری) شمال شرقی الخصب عمان روی داده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253595
-
-<div align="center"><img src="files/post_253595_VahidOOnLine_253595.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سازمان عملیات تجارت دریایی بریتانیا گفت یک کشتی باری هدف یک پرتابه ناشناس قرار گرفته است.
-
-این سازمان اشاره کرد که این حادثه در ۲۰ مایل دریایی (۳۷ کیلومتری) شمال شرقی الخصب عمان روی داده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253594
-
-<div align="center"><img src="files/post_253594_VahidOOnLine_253594.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سازمان عملیات تجارت دریایی بریتانیا گفت یک کشتی باری هدف یک پرتابه ناشناس قرار گرفته است.

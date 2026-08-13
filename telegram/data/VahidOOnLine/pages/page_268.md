@@ -1,8 +1,31 @@
 # آرشیو کانال VahidOOnLine - صفحه 268
 
-📅 آخرین بروزرسانی: 1405/05/22 15:12
+📅 آخرین بروزرسانی: 1405/05/22 16:14
 
 ---
+
+## VahidOOnLine — post 248602
+
+<div align="center"><video src="files/post_248602_VahidOOnLine_248602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248602_VahidOOnLine_248602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی که به ایران‌اینترنشنال ارسال شده نشان می‌دهد گروهی از حامیان حکومت در حال پخش نوحه با بلندگو در خیابان‌های تهران و ایجاد مزاحمت شبانه برای مردم هستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا پس از خامنه‌ای، جمهوری اسلامی وارد مرحله‌ای تازه از بازتوزیع قدرت می‌شود؟
+این پادکست بررسی می‌کند که میراث او چگونه می‌تواند هم راه تغییر را باز کند و هم ساختار را امنیتی‌تر و بسته‌تر سازد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248600
 
@@ -253,33 +276,6 @@
 
 ایمانی‌پور در ادامه گفت: «در این مراسم، از ۳۰ کشور معتبر و مهم خارجی مهمانانی در سطوح مختلف حضور داشتند، تا جایی که حتی دونالد ترامپ، رییس‌جمهوری آمریکا، هم از این حجم حضور سران و مقام‌های کشورهای خارجی تعجب کرده بود.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248582
-
-<div align="center"><video src="files/post_248582_VahidOOnLine_248582.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248582_VahidOOnLine_248582.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده، کروهی از ایرانیان مقیم یونان شنبه ۱۳ تیر با فراخوان شاهزاده رضا پهلوی مقابل سفارت آمریکا در آتن تجمع کرده و سرود «ای ایران» را در مخالفت با مماشات با جمهوری اسلامی همخوانی کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248581
-
-<div align="center"><video src="files/post_248581_VahidOOnLine_248581.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248581_VahidOOnLine_248581.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️جشن‌های دویست‌وپنجاهمین سالگرد استقلال آمریکا شامگاه شنبه با برگزاری آتش‌بازی بر فراز آسمان واشنگتن به پایان رسید. دلیل طوفان و شرایط نامساعد جوی، این مراسم نورانی را برای چند ساعت به تعویق انداخته بود.
-پیش از آغاز آتش‌بازی، مقام‌های محلی به دلیل وقوع طوفان، جمعیت حاضر در محل را به طور موقت تخلیه کردند. پس از بهبود شرایط آب‌وهوایی، تماشاگران بار دیگر به «نشنال مال» (National Mall) بازگشتند و آتش‌بازی پس از سخنرانی دونالد ترامپ، رئیس‌جمهوری آمریکا، برگزار شد و پایان‌بخش برنامه‌های بزرگداشت دویست‌وپنجاهمین سالگرد استقلال این کشور بود.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

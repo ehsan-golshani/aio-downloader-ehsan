@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 130
 
-📅 آخرین بروزرسانی: 1405/05/22 15:12
+📅 آخرین بروزرسانی: 1405/05/22 16:14
 
 ---
+
+## VahidOOnLine — post 251782
+
+<div align="center"><img src="files/post_251782_VahidOOnLine_251782.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی ارتش آمریکا، سنتکام، روز پنجشنبه اول مرداد اعلام کرد که از زمان از سر گیری محاصره دریایی علیه بنادر ایران، نیروهای آمریکایی به ۱۲ کشتی دستور تغییر مسیر داده و یک کشتی را که از این دستور پیروی نکرده، از کار انداخته‌اند.
+
+با برقراری این محاصره دریایی، تمامی شناورهای مرتبط با ایران و شناورهایی که مبداء یا مقصدشان بنادر ایران باشد، اجازه عبور از تنگه هرمز و ورود به آب‌های آزاد را ندارند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251781
+
+<div align="center"><img src="files/post_251781_VahidOOnLine_251781.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی ایالات متحده (سنتکام) پنج‌شنبه اعلام کرد از زمان ازسرگیری محاصره دریایی ایران، ۱۲ کشتی مجبور به تغییر مسیر شده‌اند و یک فروند کشتی از کار انداخته شده است تا از ورود و خروج کشتی‌ها به بنادر ایران یا مناطق ساحلی این کشور جلوگیری شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251780
 
@@ -250,32 +274,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گزارشگرمنوتو: «این وضع منه؛ اسنپ‌فود حقوقم رو نمی‌ده»
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251750
-
-<div align="center"><video src="files/post_251750_VahidOOnLine_251750.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251750_VahidOOnLine_251750.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مروری بر مهم‌ترین خبرهای پنجشنبه ۱ مرداد ۱۴۰۵؛ بر اساس پوشش و گزارش رسانه‌های خبری بین‌المللی درباره ایران و منطقه.
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251749
-
-<div align="center"><img src="files/post_251749_VahidOOnLine_251749.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکسیوس به نقل از دو منبع منطقه‌ای آگاه از تلاش‌های میانجی‌گری گزارش داد که رهبران حکومت ایران، آخرین پیشنهاد ارائه‌شده میانجی‌ها را نپذیرفت.
-
-یکی از آنها به اکسیوس گفت: «ما در حال تلاش هستیم، اما ایرانی‌ها همکاری نمی‌کنند.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

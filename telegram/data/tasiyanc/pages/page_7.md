@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/22 11:38
+📅 آخرین بروزرسانی: 1405/05/22 16:16
 
 ---
+
+## tasiyanc — post 9089
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اتاق جنگ ارتش اسرائیل:
+آمریکا امروز فروش بیش از ۵ هزار فروند موشک رهگیر را به بحرین، کویت، قطر و امارات متحده عربی تأیید کرد تا ذخایر سامانه‌های پدافند هوایی این کشورها دوباره تأمین شود.
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9088
+
+<div align="center"><img src="files/post_9088_tasiyanc_9088.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تایید نشده :
+🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن تا جان بده!
+
+@Tasiyanc⭐️
+</div>
+
+## tasiyanc — post 9087
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 
+📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9086
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سنایِ آمریکا طرح تحریم‌های جدید علیه روسیه و ایران با نام «لیندسی گراهام» رو تصویب کرد.
+
+86 رأی موافق ، 11 رأی مخالف.
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9085
 
@@ -307,60 +355,5 @@ r16
 r16
 
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9067
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 کانفیگ اختصاصی نامحدود اینجکتور 📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
-
-سرور سرعتی‌ لوکیشن Germany 📍
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال 🔸
-
-اتصال امن برای همه 🇮🇷
-
-📱 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9066
-
-<div align="center"><video src="files/post_9066_tasiyanc_9066.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9066_tasiyanc_9066.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیووایرال شده پیرمرد شعبده باز 😞، همرو انگشت به دهن کرده 😐
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9065
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[SuperFast] @Tasiyanc 🔥.npvt
-</div>
-
-## tasiyanc — post 9064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 📍
-
-•آموزش اتصال ⚡️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 

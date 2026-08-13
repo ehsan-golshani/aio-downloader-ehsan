@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/22 11:38
+📅 آخرین بروزرسانی: 1405/05/22 16:16
 
 ---
+
+## tasiyanc — post 7946
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ حمله سپاه به یک کشتی غول پیکر در تنگه ، در جواب به ترامپ ک‌گفته بود باید تا آخر امشب ایران تنگه رو باز کنه کامل
+</div>
+
+## tasiyanc — post 7944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آخرین باری که دانش اموزا همه باهم دینی میخوندن یه نفر رو خرس خورد😹😹😹
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7942
+
+<div align="center"><img src="files/post_7942_tasiyanc_7942.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیازمندی ها:🥺
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7941
 
@@ -196,55 +244,5 @@ home.by.me
 لیستی از هوش مصنوعی‌های رایگان که اکثرا دوتای اول رو فقط میشناختید!
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7917
-
-<div align="center"><img src="files/post_7917_tasiyanc_7917.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت آوردم براتون که عکساتونو اینجوری خوشگل میکنه برای پست استوری ام خوبه
-
-
-Cinematic street photography, a person standing in a dense crowd of blurred pedestrians, looking up and to the side with a curious/wondering expression, shallow depth of field with crowd heavily out of focus (bokeh), moody overcast city atmosphere, muted cold color tones (blue-grey), soft diffused lighting, shot on 85mm lens, f
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7916
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عکس مربوط به انفجار دزفول فیکه.
-</div>
-
-## tasiyanc — post 7915
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🦅⚡️ WAR.npvt
-</div>
-
-## tasiyanc — post 7914
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/05/22 11:38
+📅 آخرین بروزرسانی: 1405/05/22 16:16
 
 ---
+
+## tasiyanc — post 7318
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روناااااااااالدوووووووووووو زد
+</div>
+
+## tasiyanc — post 7317
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡@Tasiyanc⚡️.ovpn
+</div>
+
+## tasiyanc — post 7316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی پرتغال شروع شروع شد
+به امید گلزنی و درخشش ستاره بی بدیل جهان حضرت رونالدو کبیر🤩❤️‍🔥
+</div>
+
+## tasiyanc — post 7309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال 
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7308
 
@@ -157,45 +191,5 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 لیونل مسی 🐐 نابغه تمام عیار فوتبال جهان امشب هم دبل کرد ، بازی قبلی هم هتریک کرده بود
-</div>
-
-## tasiyanc — post 7285
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
-
-برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
-
-دانلود Dark Tunnel  🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7284
-
-## tasiyanc — post 7283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪⚡ Fast 🚀.npvt
-</div>
-
-## tasiyanc — post 7280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایر Windscribe 🔐
-
-🟢حجم و کاربر نامحدود 🟢
-
-تمام اپراتورا 🔺
-
-مناسب گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای
-
-دانلود ویندسکرایب : Android 📱  iOS 🕹
-
-آموزش اتصال به سرور ⏩
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
