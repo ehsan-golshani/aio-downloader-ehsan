@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/22 21:16
+📅 آخرین بروزرسانی: 1405/05/22 22:21
 
 ---
+
+## ProxyMTProto — post 47630
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s25.proxyru.top
+Port: 443
+Secret: eefe281d2bfa13f991ed6be43138e5e14c79612e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s15.proxyru.top
+Port: 993
+Secret: eefe281d2bfa13f991ed6be43138e5e14c7777772e636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47628
 
@@ -166,24 +184,6 @@ Secret: eec11798ab008831b474066c9e1ebf5c75617669746f2e7275
 Server: 72.56.87.28
 Port: 443
 Secret: eec11798ab008831b474066c9e1ebf5c76617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47610
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s11.neo-trading.org
-Port: 993
-Secret: ee17b59d905a546c7bf7355cf95c4ecfed7777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47609
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s15.proxyru.top
-Port: 993
-Secret: eefe281d2bfa13f991ed6be43138e5e14c7777772e636c6f7564666c6172652e636f6d
 @ProxyMTProto
 </div>
 
