@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/22 18:59
+📅 آخرین بروزرسانی: 1405/05/22 20:09
 
 ---
+
+## ProxyMTProto — post 48506
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: br.kingproxynewdomailasiatech.ink
+Port: 22
+Secret: dd79e7010200010007f0030386e24c3add
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48505
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp.nowabst.net
+Port: 853
+Secret: ee82ce1f84af4033cc7e7b021069be3d5b6164732e78352e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: zinova.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48503
 
@@ -154,33 +181,6 @@ Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e63
 Server: Unknown
 Port: 443
 Secret: eef334baa1cb1e7ca5cf1a48e461b5dbfa62726f777365722e79616e6465782e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48486
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48485
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: login.klyuch1k.org
-Port: 443
-Secret: eecabbd4d9fd4481bbb66bcaf9f424d7c56c6f67696e2e6b6c79756368316b2e6f7267
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48484
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 34.51.227.196
-Port: 443
-Secret: dd3cec606d9be26a99756789121ce87239
 @ProxyMTProto
 </div>
 
