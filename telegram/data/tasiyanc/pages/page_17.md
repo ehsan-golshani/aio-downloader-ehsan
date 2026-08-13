@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/22 09:48
+📅 آخرین بروزرسانی: 1405/05/22 11:38
 
 ---
+
+## tasiyanc — post 8821
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐
+
+
+vless://146eb6cf-a99c-4022-85ca-022cf81502dc@195.74.93.254:443?security=reality&encryption=none&pbk=7ReQIe2kMtP4rCrptgH5glkOM-JGcSAPzHNxOED-Z0s&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=web.max.ru&sid=247fd6dab1a34a48#%E2%9A%A1%EF%B8%8FT.me%2F%2FTasiyanc%E2%9A%A1%EF%B8%8FTR
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@ronaldo15.fordnsdirect.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%E2%9A%A1%EF%B8%8FT.me%2F%2FTasiyanc%E2%9A%A1%EF%B8%8F%C4%B0T
+vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?security=reality&encryption=none&pbk=dNfk0sOCzOlmE61B7ur7YzU2i08RqXIBcGVBA2Ne1Ck&headerType=none&fp=chrome&spx=%2F&type=tcp&sni=www.oracle.com&sid=7548bc#%E2%9A%A1%EF%B8%8FT.me%2F%2FTasiyanc%E2%9A%A1%EF%B8%8FSW
+
+3 Server - Fast ⚡
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8818
+
+<div align="center"><video src="files/post_8818_tasiyanc_8818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8818_tasiyanc_8818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺حکم اعدام بنیامین نقدی صادر شد.
+
+بنیامین از قهرمانان کیک بوکس بود و کلی مدال کشوری و جهانی داشت.
+
+⭐@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡𝙉𝙚𝙬 𝙎𝙥𝙚𝙚𝙙 ⚡.npvt
+</div>
 
 ## tasiyanc — post 8815
 
@@ -242,48 +277,5 @@ Multi Location ⚡
 این نمای نزدیک از مادربرد یک کامپیوتره !
 
 ⭐ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8793
-
-<div align="center"><img src="files/post_8793_tasiyanc_8793.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مقایسه بلند ترین قله کره زمین با بلند ترین قله کره مریخ !🙂
-قله اورست زمین با 8848 متر
-قله المپوس مریخ با 21222 متر
-
-⭐ @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8792
-
-<div align="center"><video src="files/post_8792_tasiyanc_8792.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8792_tasiyanc_8792.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید کاخ سفید با تصاویری از ترامپ و متن:
-
-« کار این جنگ رو یه‌سره کن »
-
-
-⭐ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8791
-
-<div align="center"><video src="files/post_8791_tasiyanc_8791.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8791_tasiyanc_8791.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این مجری بعد این برنامه کلا اخراج شد 😂
-ارزش دانلود ۱۰۰۰ از ۱۰
-
-داستان از این قراره کسایی ک مشکلات حنجره داشتن و معلول بودن دعوت بودن به برنامه
-
-⭐@TASIYANC 
-⭐️
 </div>
 

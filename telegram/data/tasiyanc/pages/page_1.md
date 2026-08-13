@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/22 09:48
+📅 آخرین بروزرسانی: 1405/05/22 11:38
 
 ---
+
+## tasiyanc — post 9237
+
+<div align="center"><a href="files/post_9237_@Tasiyanc 🫦.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🫦.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶 🇳🇱
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9235
+
+<div align="center"><a href="files/post_9235_@Tasiyanc 🔥.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🔥.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ اینترنشنال : ترامپ اطلاعات کلی مهاجر ایرانیو داده به مقامات جمهوری اسلامی
+
+@Tasiyanc⭐️
+</div>
 
 ## tasiyanc — post 9232
 
@@ -17,8 +61,6 @@
 </div>
 
 ## tasiyanc — post 9231
-
-<div align="center"><a href="files/post_9231_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
@@ -183,39 +225,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9211
-
-<div align="center"><img src="files/post_9211_tasiyanc_9211.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حالتون چطوره ، شما ک حالمو نمیپرسید باید من بپرسم
-</div>
-
-## tasiyanc — post 9207
-
-<div align="center"><img src="files/post_9207_tasiyanc_9207.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📞 با پروکسی هم میشه تماس تلگرامی گرفت؟
-
-⚡️ بله حتماً! شاید تا حالا اگه میخواستید به کسی زنگ بزنید مجبور بودید فیلترشکن قوی وصل کنید و کلی دردسر بکشید؛ ولی الان میخوام یه ترفند خوب بهتون بگم که دیگه به هیچ VPN اضافی نیاز ندارید.
-
-⚡️ قدم اول: برید تو تنظیمات و بخش Privacy and security رو باز کنید. بعد Call رو انتخاب کنید، گزینه Use Peer-to-Peer with رو بزنید و My Contacts رو انتخاب کنید.
-
-⚡️ حالا برگردید عقب و به بخش Data and Storage برید. گزینه Use less data for calls رو پیدا کنید و روی حالت Always بذارید تا مصرف اینترنت کم بشه.
-
-⚡️ کافیه فقط یه پروکسی MTPROTO خوب و پایدار وصل باشید و تماس بگیرید. فقط یه نکته مهم: حتماً طرف مقابل باید آنلاین باشه و شماره شما توی لیست مخاطبانشون ذخیره شده باشه.
-
-@Tasiyanc ☑️
 </div>
 

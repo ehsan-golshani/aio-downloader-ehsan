@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/22 09:48
+📅 آخرین بروزرسانی: 1405/05/22 11:38
 
 ---
+
+## tasiyanc — post 8766
+
+<div align="center"><img src="files/post_8766_tasiyanc_8766.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠  نسخه اختصاصی مود GitiVPN
+✅️سیستم عامل: اندروید
+
+تست شده با همه اینترنت ها📶📶📶🛜🛜
+
+🟢توضیحات مهم:
+وارد لیست سرور ها بشید، یکی را انتخاب کنید و متصل بشید. سرعت خوبی داره.
+
+نسخه: 111
+
+ویژگی های نسخه مود:
+• باز بودن سرور های پریمیوم
+• حذف تبلیغات اضافی
+• نامحدود شدن تایم
+
+برای دانلود روی لینک زیر کلیک کنید
+
+🔗《لینک دانلود》👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8765
+
+<div align="center"><img src="files/post_8765_tasiyanc_8765.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نخست‌وزیر نتانیاهو و رئیس‌جمهور ترامپ در کاخ سفید.
+
+@TASIYANc ⭐️
+</div>
+
+## tasiyanc — post 8764
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق اعلام بانک مرکزی؛
+تورم نقطه به نقطه تیرماه ۸۳.۹ درصد اعلام شد.
+یعنی کالاها نسبت به تیرماه سال قبل؛ ۸۳.۹ درصد گرون تر شدن ک فک کنم زیاد بوده باشه
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8763
 
@@ -194,40 +240,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 #امیرحسین_صفری #علیرضا_سپاهی #ابولفضل_سپاهی میخوان در ملا عام اعدامشون کنن💔 @TasiyanProxy
-</div>
-
-## tasiyanc — post 8742
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ تست شده 🔸
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc 💠
-</div>
-
-## tasiyanc — post 8741
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینم چنل جدیدمون ک بیشتر فیلم و سریال خواهیم گذاشت دوس داشتید برای حمایت جوین بشید دوستون دارم 💖
-https://t.me/TsMoviee
-</div>
-
-## tasiyanc — post 8740
-
-<div align="center"><img src="files/post_8740_tasiyanc_8740.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Multi Loc ⚡ @Tasiyanc.npvt
 </div>
 

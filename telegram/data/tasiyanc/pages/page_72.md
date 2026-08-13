@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/22 09:48
+📅 آخرین بروزرسانی: 1405/05/22 11:38
 
 ---
+
+## tasiyanc — post 6921
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑ساب لینک اختصاصی تاسیان
+👑
+
+https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+اینو بزنید 🔐
+🔐 هر ۴ ساعت کانفیگا آپدیت میشن
+بعد از ۴ ساعت update subscription بزنید تا آپدیت شن
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6920
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢 ساب لینک اختصاصی تاسیان 🔹پر سرعت و نامحدود 🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt 
+🔐 🔐 
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6919
+
+<div align="center"><video src="files/post_6919_tasiyanc_6919.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6919_tasiyanc_6919.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+😎
+
+۳سرور سرعتی تست شده  
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+🔹
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6916
 
@@ -157,36 +208,6 @@ T.me/Tasiyanc ✅
 📶 اختصاصی تاسیان 😎
 
 3سرور سرعتی تست شده 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6879
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpvWklvQTY5UTh5aGNRVjhrYTNQYTNB@82.38.31.11:8080#%40Tasiyanc%20%E2%9B%93%EF%B8%8F
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6878
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متاسفانه قضیه خیلی جدیه ( اختلال شدید رو تمام اپراتورا )
-</div>
-
-## tasiyanc — post 6877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-2سرور سرعتی تست شده با همراه 🔥
 
 دانلود  وب‌گردی ، اینستاگرام🚀
 

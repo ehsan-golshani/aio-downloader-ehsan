@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/22 09:48
+📅 آخرین بروزرسانی: 1405/05/22 11:38
 
 ---
+
+## tasiyanc — post 8886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻پادگان چهارم شکاری دزفول تمامی سرباز هارو فرستادن مرخصی و به خانواده‌های نظامیا داخل پادگانم گفتن تخلیه کنید تا عصر.
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8885
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 امریکا به شهروندانش در اردن و اسراییل هشدار تخلیه فوری ارسال کرده
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8883
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز August 1، روز دوست دختره 
+😞
+
+پروکسی متصل | پروکسی متصل
+
+
+
+✈️@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8882
 
@@ -272,27 +302,5 @@ Restore this old photograph with maximum realism. Remove scratches, dust, stains
 🇮🇷
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8855
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نت بلاکس : دولت ترکیه بصورت ناگهانی اینترنت کل مردم ترکیه رو قطع کرد.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8853
-
-## tasiyanc — post 8852
-
-<div align="center"><img src="files/post_8852_tasiyanc_8852.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معتبر ترین دانشگاه ها در سال 2026 🌐
-
-پروکسی متصل | پروکسی متصل
-
-
-✈️@TASIYANC ✅
 </div>
 

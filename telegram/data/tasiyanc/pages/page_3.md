@@ -1,8 +1,64 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/22 09:48
+📅 آخرین بروزرسانی: 1405/05/22 11:38
 
 ---
+
+## tasiyanc — post 9180
+
+<div align="center"><img src="files/post_9180_tasiyanc_9180.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕
+
+اسم : Ethereal Lake Muse 🤍
+
+آموزش استفاده 👉
+
+دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9178
+
+<div align="center"><img src="files/post_9178_tasiyanc_9178.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 
+🆕
+
+" 🖤 Silent Noir Portrait "
+
+Prompt 🤖🤖
+
+
+Use uploaded images as face reference. Absolute face lock. Black-and-white minimalist portrait of an adult man sitting in a chair, waist-up, right profile/three-quarter profile, head slightly lowered, looking down. Wearing a black baseball cap (visor casting shadow over eyes), oversized black T-shirt, light shorts/pants, and a metal wristwatch. Calm, thoughtful mood. Plain light-gray textured wall background with negative space above and on the right; edge of a leather chair visible on the left. Soft diffused light from upper left, moderate contrast, deep facial shadows, realistic fabric/skin texture, subtle film grain. Studio/interior photography, 50mm, f/2.8, ISO 200, high detail, natural proportions, clean composition, 1:1 aspect ratio. Negative: color, bright tones, smile, eye contact, text/logos, extra people, heavy retouching, glossy look, overexposure, blur, artifacts, face/hand distortions, extra fingers, watermark.
+
+
+آموزش استفاده 
+👉
+
+
+@TASIYANC 
+⭐️
+</div>
+
+## tasiyanc — post 9177
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated Multi⚡️━━━╮
+
+vless://06d44c57-8e1a-41f4-b9c4-65d35869e078@78.17.126.222:13868?security=reality&encryption=none&pbk=sgpya-5ohMKCjzyrDe4RWz7b8O9XegDzQ88oHCV45Gk&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=booking.com&sid=e852dc#%F0%9F%94%A5%20%40Tasiyanc
+
+vless://06d44c57-8e1a-41f4-b9c4-65d35869e078@78.17.125.201:13868?security=reality&encryption=none&pbk=sgpya-5ohMKCjzyrDe4RWz7b8O9XegDzQ88oHCV45Gk&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=booking.com&sid=e852dc#%F0%9F%94%A5%20%40Tasiyanc
+
+vless://e4514801-0d5a-42ba-869f-39bd605aef9e@18.153.84.121:22222?security=&encryption=none&headerType=none&type=tcp#%F0%9F%A1%A0%20%40Tasiyanc
+
+vless://e4514801-0d5a-42ba-869f-39bd605aef9e@63.178.105.116:22224?security=&encryption=none&headerType=none&type=tcp#%F0%AA%9A%82%20%40Tasiyanc
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9175
 
@@ -300,39 +356,5 @@ A high-contrast black and white studio portrait of a handsome Middle Eastern man
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱 ممنون ک هستید❤️
-</div>
-
-## tasiyanc — post 9155
-
-<div align="center"><img src="files/post_9155_tasiyanc_9155.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Cozy Cat Cuddle 😒
-
-آموزش استفاده 👉
-
-دریافت پرامپت👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱
-ممنون ک هستید❤️
-</div>
-
-## tasiyanc — post 9153
-
-<div align="center"><img src="files/post_9153_tasiyanc_9153.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌎هر کشور سازنده چه چیزی است؟
-فقط ایران ››››
-
-@TASIYANC ✅
 </div>
 

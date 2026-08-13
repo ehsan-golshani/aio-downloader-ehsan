@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/22 09:48
+📅 آخرین بروزرسانی: 1405/05/22 11:38
 
 ---
+
+## tasiyanc — post 6431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡🪐 متد جدید.npvt
+</div>
+
+## tasiyanc — post 6430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۳سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
+</div>
 
 ## tasiyanc — post 6428
 
@@ -159,30 +191,5 @@ FAST⚡TASIYAN🚀.npvt
 
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبلیغاتی ک میاد از طرف تلگرامه و قابل تایید ما نیست مراقب باشید تو این شرایط جیبتون نزنن❤️
-</div>
-
-## tasiyanc — post 6407
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شخص خودم فعالیتی تو روبیکا نخواهم داشت با توجه به اینکه ۳ تا اکانتم مسدوده ولی ادمینای تلگرام تو چنل و گروه روبیکا میگم کانفیگارو بفرستن در صورت قطعی
-https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
-</div>
-
-## tasiyanc — post 6406
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی تاسیان 🆕
-
-✅77 کانفیگ پروتکل Trojan تست شده 🔄
-
-فایل Txt رو باز کنین کانفیگارو کپی کنین بریزید V2Box 🚀
-
-@Tasiyanc ✅
 </div>
 

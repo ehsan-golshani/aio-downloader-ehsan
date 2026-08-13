@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/05/22 09:48
+📅 آخرین بروزرسانی: 1405/05/22 11:38
 
 ---
+
+## tasiyanc — post 7721
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+7 سرور سرعتی پرمیوم متد جدید سرور ایتالیا ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7720
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دروازه بان مصرو 😐😂
+</div>
+
+## tasiyanc — post 7719
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مصر یک صفر جلوئه
+</div>
 
 ## tasiyanc — post 7718
 
@@ -171,35 +206,5 @@ Password @Tasiyanc
 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7696
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc _ SuperFast⚡.npvt
-</div>
-
-## tasiyanc — post 7693
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-4 سرور سرعتی حجم و کاربر نامحدود ⚡️
-
-تست شده روی همه نت ها
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال به اینجکتور ✨
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
-</div>
-
-## tasiyanc — post 7692
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ های وایرگارد آپدیت شد ، با سرعت مناسب گیم و اینستاگرام 🔥🚀 فول سرعتی مناسب تمام اپراتورها 👇 دریافت کانفیگ های وایرگارد 🔥
 </div>
 

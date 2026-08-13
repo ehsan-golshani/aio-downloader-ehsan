@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/22 09:48
+📅 آخرین بروزرسانی: 1405/05/22 11:38
 
 ---
+
+## tasiyanc — post 8913
+
+<div align="center"><img src="files/post_8913_tasiyanc_8913.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛍 #لیورپول Vs #لیدز💰
+
+🏳آپشن های متفاوت و بونوس های بدون قیدو شرط
+
+🚨 تجربه پیشبینی مطمئن با
+🤩 🤩 🅰️ شارژ اضافی و ریسک خیلی پایین در #بت_اینجا رو از دست نده❌
+
+🤩 🤩 درصد برگشت وجه در صورت باخت
+⌛ همه بونوس ها بی قیدوشرطن:
+🌐 betinja.bet
+🌐 betinja.bet
+کانال بونوس های رایگان r11
+@betinjabet
+</div>
+
+## tasiyanc — post 8912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 آکسیوس:
+
+در پی تماسهای وزرای امور خارجه ترکیه قطر و پاکستان در مورد آمادگی ایران برای برگزاری نشستی در ژنو سوئیس برای ادامه مذاکرات فرماندهی مرکزی ایالات متحده (CENTCOM) عملیات امشب را به طور موقت به مدت ۴۸ ساعت متوقف کرد.
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 ترامپ:
+
+من به خاطر آینده جهان و بقای ج ا ایران موافقت کردم که در ازای احتمال دستیابی سریع به توافق، حمله را لغو کنم.
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8910
 
@@ -270,35 +318,5 @@ fastdic.com
 dic.b-amooz.com
 ﻿
 🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8886
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻پادگان چهارم شکاری دزفول تمامی سرباز هارو فرستادن مرخصی و به خانواده‌های نظامیا داخل پادگانم گفتن تخلیه کنید تا عصر.
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8885
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 امریکا به شهروندانش در اردن و اسراییل هشدار تخلیه فوری ارسال کرده
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8883
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز August 1، روز دوست دختره 
-😞
-
-پروکسی متصل | پروکسی متصل
-
-
-
-✈️@TASIYANC 
-✅
 </div>
 
