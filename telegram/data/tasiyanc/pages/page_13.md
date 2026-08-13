@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/22 19:01
+📅 آخرین بروزرسانی: 1405/05/23 01:36
 
 ---
+
+## tasiyanc — post 8949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏴🇮🇷
+</div>
+
+## tasiyanc — post 8948
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود نپسترنت📱
+
+۶ سرور سرعتی تست شده  لوکیشن ایتالیا 📍
+
+آموزش اتصال ⚡️
+
+اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 8947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دزدی از جیب مردم تا کی ؟
+
+
+🔴جدیدا اینترنت مردم به طرز وحشتناکی خیلی زود و عجیب تموم میشه!
+برای استفاده از اینترنت بین الملل دارن ضریب ۲.۷ حساب میکنن واقعا خنده داره ، نمی‌دونم چی بگم واقن
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8946
 
@@ -212,37 +245,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 👉 https://scamminder.com/
 
 👹 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8928
-
-<div align="center"><video src="files/post_8928_tasiyanc_8928.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8928_tasiyanc_8928.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 شبی که مردم ایران با آمریکا ابراز همدردی کردند
-
-یازدهم سپتامبر 2001 بعد از فاجعه بزرگ برخورد ۲ هواپیمای ربوده شده توسط «گروهک تروریستی القائده» به برج های دوقلو تجارت جهانی که منجر به کشته شدن تعداد زیادی غیرنظامی شد مردم ایران برای ابراز همدردی به خیابان ها آمدند و شعار « آمریکا تسلیت ؛ مرگ بر القائده» سر دادند و به یاد کشته شده ها شمع روشن کردند
-﻿
-📱@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8927
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴احمدرضا رادان، فرمانده کل نیروی انتظامی:
-
-من یه مشکلی برام پیش اومد که گفتم نمیتونم در جلسه شورای دفاع در نهم اسفندماه شرکت کنم و غلامرضا رضاییان، رییس سازمان اطلاعات فراجا به جای من در جلسه شرکت کرد و کشته شد.
-
-💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پیشنهاد_ویژه ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
-دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
 </div>
 

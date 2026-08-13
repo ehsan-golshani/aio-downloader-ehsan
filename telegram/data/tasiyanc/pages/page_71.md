@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/22 19:01
+📅 آخرین بروزرسانی: 1405/05/23 01:36
 
 ---
+
+## tasiyanc — post 6959
+
+<div align="center"><video src="files/post_6959_tasiyanc_6959.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6959_tasiyanc_6959.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+😎
+
+۲سرور سرعتی تست شده  
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+🔹
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6957
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطوره؟
+</div>
+
+## tasiyanc — post 6956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ دارک تونل 🌟
+
+حجم نامحدود - سرعتی 🚀
+
+تست شده رو تمام نت ها ✅
+
+دانلود Dark Tunnel  🕹
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6955
 
@@ -159,41 +207,5 @@ Vip SPEED ⚡⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آخرش یکی به این ترامپ کسخل نگفت قبل اینکه حمله کنی تنگه باز بود عوارضم نداشت ، الان باز شدن تنگه رو دست آورد بزرگ می‌دونه برا خودش کسخل کله زرد املاکی
-</div>
-
-## tasiyanc — post 6936
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6935
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حالتون خوبه قربونتون برم من 🥹؟
-</div>
-
-## tasiyanc — post 6934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی تست شده  🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

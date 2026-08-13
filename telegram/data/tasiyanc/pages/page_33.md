@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/22 19:01
+📅 آخرین بروزرسانی: 1405/05/23 01:36
 
 ---
+
+## tasiyanc — post 8365
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌انفجار در بندر عباس و بیرجند
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8363
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8362
 
@@ -213,27 +235,5 @@ Multi Location ⚡ Fast.npvt
 پروکسی | پروکسی | پروکسی | پروکسی
 
 @Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت همراه اول/ایرانسل تو شهر شما چطوریه؟
-</div>
-
-## tasiyanc — post 8322
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیک نیوز زیاد شده ، اخبار رو از چنل خودمون دنبال کنین
-( رک بگم حمایت کنین جوین بدین 😂❤️)
-
-@TasiyanProxy
-@TasiyanProxy
-</div>
-
-## tasiyanc — post 8321
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طرف کلا نمیدونه دیتاسنتر چیه هی تو چنلش میزنه در حال قطع شدن
 </div>
 

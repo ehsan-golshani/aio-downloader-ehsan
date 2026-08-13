@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/22 19:01
+📅 آخرین بروزرسانی: 1405/05/23 01:36
 
 ---
+
+## tasiyanc — post 7568
+
+<div align="center"><img src="files/post_7568_tasiyanc_7568.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎥 اسم فیلم: " Pleasure 2021 "
+
+‌🎭 ژانر: درام بزرگسالان ⚠️🔞
+
+❌ بدون س‍‌.انسور و ح‍‌.ذفیات
+کارگردان:  Ninja Thyberg
+با هنرنمایی : Sofia Kappel
+خلاصه داستان:
+«بلا» دختری ۱۹ ساله است که با رویای ستاره شدن، از سوئد به لس‌آنجلس می‌رود تا وارد صنعت فیلم‌های بزرگسال شود. اما این سفرِ پرزرق‌وبرق، به کابوسی از واقعیت‌های بی‌رحم تبدیل می‌شود. فیلمی درباره بهای سنگینِ شهرت، از دست رفتن هویت و سقوط در دنیایی که هیچ‌کس راه برگشتی از آن ندارد.
+💬 نسخه زیرنویس چسبیده فارسی 🔻
+
+📧 [ برای دانلود  کلیک کنید ]
+
+@Tasiyanc 💠
+</div>
+
+## tasiyanc — post 7566
+
+<div align="center"><img src="files/post_7566_tasiyanc_7566.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☕ Nitro⚡Fast.npvt
+</div>
+
+## tasiyanc — post 7565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+7سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
+
+🗝Password :  @Tasiyanc
+
+ 
+✅@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7564
 
@@ -212,48 +258,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc ⚡ Fast ⁰³.nm
-</div>
-
-## tasiyanc — post 7530
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 6 سرور سرعتی همه نت ها
-کانفیگ حجم نامحدود نپسترنت🚀
-
-آموزش اتصال ⛓
-
-Password :  @Tasiyanc ❤️
-
- ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7527
-
-<div align="center"><video src="files/post_7527_tasiyanc_7527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7527_tasiyanc_7527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 کانفیگ اختصاصی نت مود 🚀
-
-۳ سرور  سرعتی پرمیوم 
-⚡️
-
-آموزش اتصال ⛓
-
-دانلود برنامه 
-🕹
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7526
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صداوسیما:
-اگر ترامپ را می‌کشتیم؛ آمریکا با ما مذاکره می‌کرد؟!
 </div>
 

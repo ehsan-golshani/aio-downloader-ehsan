@@ -1,8 +1,100 @@
 # آرشیو کانال VahidOOnLine - صفحه 203
 
-📅 آخرین بروزرسانی: 1405/05/23 00:32
+📅 آخرین بروزرسانی: 1405/05/23 01:34
 
 ---
+
+## VahidOOnLine — post 250250
+
+<div align="center"><img src="files/post_250250_VahidOOnLine_250250.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استانداری هرمزگان اعلام کرد نقطه‌ای در جزیره هنگام هدف پرتابه‌های آمریکا قرار گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250249
+
+<div align="center"><img src="files/post_250249_VahidOOnLine_250249.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی گفت جمهوری اسلامی تعهدات خود را تا زمانی اجرا می‌کند که طرف مقابل به آن‌ها پایبند باشد و در صورت نقض تعهدات، اقدامات متقابل انجام خواهد داد.
+
+بقائی گفت طرف مقابل از ابتدای تفاهم‌نامه بدعهدی و پیمان‌شکنی کرده است و جمهوری اسلامی هم در میدان و هم در اجرای تعهدات، متناسب با این اقدام پاسخ خواهد داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250248
+
+<div align="center"><img src="files/post_250248_VahidOOnLine_250248.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️فرماندهی مرکزی ایالات متحده (سنتکام) روز چهارشنبه ۲۴ تیر، اعلام کرد که از زمان آغاز مجدد محاصره دریایی ایران در روز سه‌شنبه، دو کشتی تجاری را «تغییر مسیر» داده است.
+
+طبق بیانیه سنتکام، نیروهای ایالات متحده در ۱۷ ساعت گذشته از آغاز محاصره دریایی بنادر ایران، دو کشتی تجاری را که قصد داشتند از این محاصره عبور کنند، وادار به تغییر مسیر کرده‌اند. ارتش آمریکا تاکید کرده است که همچنان هوشیار بوده و برای تضمین رعایت کامل این محاصره آمادگی کامل دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250247
+
+<div align="center"><img src="files/post_250247_VahidOOnLine_250247.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارشناسان سازمان ملل با انتشار بیانیه‌ای، مصادره مجتمع کلیسای تاریخی انجیلی پطرس مقدس در تهران و اخراج ۲۷ نفر از اعضای اقلیت‌های مسیحی ارمنی و آشوری ساکن این مجموعه را محکوم کردند.
+به گفته آنان، ساکنان این مجتمع تنها دو هفته فرصت داشتند خانه‌های خود را تخلیه کنند و رهبران کلیسا نیز در صورت مخالفت، به بازداشت تهدید شدند. کارشناسان هشدار دادند این مجموعه، که شامل کلیسا، مدرسه، خانه‌های مسکونی و دفترهای نهادهای مسیحی بود، در معرض تخریب قرار دارد.
+
+در این بیانیه آمده است که مصادره این مجتمع ادامه روندی طولانی‌مدت علیه جامعه مسیحیان ایران، به‌ویژه کلیساهای فارسی‌زبان، است. کارشناسان همچنین اعلام کردند دست‌کم ۷۹ مسیحی، که بیشتر آن‌ها نوکیش هستند، هم‌اکنون در بازداشت یا زندان به سر می‌برند و برخی نیز به اعتراف اجباری زیر شکنجه وادار شده‌اند.
+
+کارشناسان سازمان ملل از مقام‌های جمهوری اسلامی خواستند اجازه بازگشت ساکنان و اعضای کلیسا به این مجتمع را صادر کنند، به تهدید و ارعاب جامعه مسیحیان پایان دهند و همه افرادی را که به‌طور خودسرانه بازداشت شده‌اند آزاد کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250246
+
+<div align="center"><img src="files/post_250246_VahidOOnLine_250246.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدحسین صفار هرندی، عضو مجمع تشخیص مصلحت نظام گفت: «مطالبه اجرای پیام مجتبی خامنه‌ای باید با پرهیز از اهانت به مسئولان همراه باشد و حمله یا نسبت دادن وابستگی به آنان درست نیست.»
+
+صفار هرندی گفت: «قصاص بخشی از خونخواهی است، اما انتقام به آن محدود نمی‌شود و آزادی قدس نیز بخشی از آن است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250245
+
+<div align="center"><img src="files/post_250245_VahidOOnLine_250245.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احمد علم‌الهدی، امام جمعه مشهد، گفت: «موضوع خونخواهی و انتقام علی خامنه‌ای تنها یک موضوع حکومتی نیست و ریشه در دین، قرآن و اسلام دارد و باید بر اساس مبانی دینی روشن شود.»
+
+او تاکید کرد: «اگر رهبر کشته شود، امت اسلام ولی‌دم او هستند و باید خونخواهی کنند. این موضوع باید به‌عنوان یک تکلیف دینی و شرعی برای مردم روشن شود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250244
+
+<div align="center"><img src="files/post_250244_VahidOOnLine_250244.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دو زمین‌لرزه، چهارشنبه ۲۴ تیر، بخش‌هایی از استان‌های گلستان و خوزستان را لرزاندند. زمین‌لرزه‌ای به بزرگی ۳.۹ با مرکزیت انبارالوم در شهرستان آق‌قلا در حوالی گرگان ثبت شد.
+
+هم‌زمان، زمین‌لرزه‌ای به بزرگی ۳.۲ خرمشهر را لرزاند. این زمین‌لرزه در عمق ۱۰ کیلومتری زمین رخ داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250243
 
@@ -194,103 +286,6 @@ iranintl
 
 او به سایت ‌دیده‌بان ایران نیز گفت: «آمریکا که هیچ، بزرگ‌تر از آمریکا هم نمی‌تواند هیچ غلطی بکند. ترامپ و نیروهای او باید گورشان را از منطقه گم کنند و تنگه هرمز تحت کنترل جمهوری اسلامی است، نه یک کلمه بیشتر و نه یک کلمه کمتر.»
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250230
-
-<div align="center"><img src="files/post_250230_VahidOOnLine_250230.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️سنتکام از آغاز موج تازه حملات آمریکا علیه ایران خبر داد
-
-♦️فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد از ساعت ۶ صبح به وقت شرق آمریکا (۱۳.۳۰ به‌وقت تهران) موج تازه‌ای از حملات علیه ایران را آغاز کرده‌ است.
-
-به گفته سنتکام، این حملات با هدف تضعیف بیشتر توان نظامی نیروهای جمهوری اسلامی انجام می‌شود؛ توانمندی‌هایی که به گفته این فرماندهی، برای حمله به کشتی‌های تجاری در تنگه هرمز مورد استفاده قرار گرفته‌اند.
-
-سنتکام تأکید کرده است که این عملیات در ادامه تلاش‌های آمریکا برای مقابله با تهدیدهای جمهوری اسلامی علیه کشتیرانی تجاری و مسیرهای دریایی در منطقه انجام می‌شود.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250228
-
-<div align="center"><img src="files/post_250228_VahidOOnLine_250228.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سنتکام اعلام کرد نیروهای فرماندهی مرکزی آمریکا، ظهر دوشنبه به وقت ایران، موجی از حملات را علیه جمهوری اسلامی آغاز کردند.
-
-به گفته سنتکام این حملات به منظور تضعیف بیشتر قابلیت‌های نظامی نیروهای ایرانی برای حمله به کشتی‌های تجاری در تنگه هرمز طراحی شده‌اند.
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250227
-
-<div align="center"><video src="files/post_250227_VahidOOnLine_250227.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250227_VahidOOnLine_250227.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدجواد اکبرین، عضو تحریریه ایران‌اینترنشنال، در واکنش به پیام‌های سپاه خطاب به مردم اردن و کویت، که از آن‌ها خواسته موسسات آمریکایی را در کشورشان تخریب کنند، گفت این اقدام را روح‌الله خمینی نیز انجام می‌داد و به گفته برخی، این رفتار در آغاز جنگ با عراق تاثیر داشت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250226
-
-<div align="center"><video src="files/post_250226_VahidOOnLine_250226.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250226_VahidOOnLine_250226.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال در واکنش به اظهارات ترامپ درباره حمله زمینی و هدف قرار دادن زیرساخت‌های ایران گفت اگر هدف، خلع سلاح گسترده جمهوری اسلامی باشد، عملیات نظامی باید هفته‌ها ادامه یابد؛ در غیر این صورت، این تهدیدها با هدف وادار کردن تهران به مذاکره است
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250225
-
-<div align="center"><img src="files/post_250225_VahidOOnLine_250225.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خانواده کریگ و لیندزی فورمن، زوج بریتانیایی زندانی در ایران اعلام کردند که دادگاه حکم زندان کریگ فورمن را به دلیل گفت‌وگو با رسانه‌ها دو سال افزایش داده است.
-
-پیش‌تر خانواده این زوج بریتانیایی اعلام کرده بودند این دو نفر به اتهام جاسوسی، به ۱۰ سال زندان محکوم شده‌اند.
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250224
-
-<div align="center"><video src="files/post_250224_VahidOOnLine_250224.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250224_VahidOOnLine_250224.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش‌های دریافتی از ممسنی از وقوع آتش‌سوزی گسترده در مناطق پادراز و مورکی و پیشروی شعله‌ها به سمت کوه دکل، اشکان و روستاهای اطراف حکایت دارد. بر اساس این گزارش‌ها، مردم با درخواست کمک برای مهار آتش، نسبت به گسترش لحظه‌به‌لحظه آن ابراز نگرانی کرده‌اند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250223
-
-<div align="center"><video src="files/post_250223_VahidOOnLine_250223.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250223_VahidOOnLine_250223.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیلگر سیاسی، به ایران‌اینترنشنال گفت با وجود حملات جمهوری اسلامی به هشت کشور منطقه، این کشورها به همکاری نظامی با آمریکا ادامه خواهند داد، اما هنوز نشانه‌ای از تصمیم آن‌ها برای حمله مستقل به جمهوری اسلامی دیده نمی‌شود.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
