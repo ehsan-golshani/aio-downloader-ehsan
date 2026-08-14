@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/05/23 23:44
+📅 آخرین بروزرسانی: 1405/05/24 01:09
 
 ---
+
+## tasiyanc — post 7291
+
+<div align="center"><img src="files/post_7291_tasiyanc_7291.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪🚀 Full Fast⚡.npvt
+</div>
 
 ## tasiyanc — post 7290
 
@@ -192,11 +200,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اخرااااااااج بازیکن بلژیک 🔹
-</div>
-
-## tasiyanc — post 7257
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشمای بلژیک ریخته ۱۱ نفری دفاع میکنن
 </div>
 

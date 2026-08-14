@@ -1,12 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/23 23:44
+📅 آخرین بروزرسانی: 1405/05/24 01:09
 
 ---
 
-## tasiyanc — post 9301
+## tasiyanc — post 9302
 
-<div align="center"><a href="files/post_9301_🐊 @Tasiyanc .nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🐊 @Tasiyanc .nm</a></div>
+<div align="center"><img src="files/post_9302_tasiyanc_9302.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کد های مخفی ChatGpt که بکارتون میاد🤖
+
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9301
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
@@ -188,6 +197,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9276
 
 ## tasiyanc — post 9275
-
-## tasiyanc — post 9274
 

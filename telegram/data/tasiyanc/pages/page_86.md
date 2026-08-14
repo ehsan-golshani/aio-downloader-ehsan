@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/05/23 23:44
+📅 آخرین بروزرسانی: 1405/05/24 01:09
 
 ---
+
+## tasiyanc — post 6535
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لینک گپ تاسیان ❤️‍🔥 https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 6534
 
@@ -189,17 +195,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختلال زیاد شده 😐
-</div>
-
-## tasiyanc — post 6505
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی تاسیان 🆕
-
-✅87 کانفیگ تست شده
-
-فایل Txt رو باز کنین کانفیگ رو تو آپ NPV & V2BOX & V2RAYNG زیر بزنید پینگ بگیرید وصل شید  🚀
-
-@Tasiyanc ✅
 </div>
 

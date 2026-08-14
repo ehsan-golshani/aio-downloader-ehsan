@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/23 23:44
+📅 آخرین بروزرسانی: 1405/05/24 01:09
 
 ---
+
+## tasiyanc — post 8865
+
+<div align="center"><video src="files/post_8865_tasiyanc_8865.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8865_tasiyanc_8865.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود OpenVpn 📶
+
+
+تست شده تمام نت‌ها 
+🛜
+🛜
+🛜
+🛜🛜
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8863
 
@@ -296,20 +327,5 @@ R8
 اتصال امن برای همه 🇮🇷
 
 ✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8840
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#کاربردی
-
-با این دو سایت میتونید آهنگهای SoundCloud & Spotify رو دانلود کنید
-کافیه لینک آهنگ رو بدید تا براتون دانلود کنه با کیفیت دلخواه ، من شخصا با ساندکلاد زیاد حال میکنم
-
-🎵 https://www.dltracks.com/en
-
-🎵https://spotmate.online/en1
-
-@TASIYANC ⭐️
 </div>
 

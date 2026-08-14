@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/05/23 23:44
+📅 آخرین بروزرسانی: 1405/05/24 01:09
 
 ---
+
+## tasiyanc — post 7605
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+10سرور سرعتی پرمیوم متد جدید ⚡️
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
+
+ 
+✅@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7602
 
@@ -184,20 +199,5 @@
 
  
 ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7564
-
-<div align="center"><video src="files/post_7564_tasiyanc_7564.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7564_tasiyanc_7564.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیروز کریمی رو آنتن زنده صداوسیما:
-
-قلعه‌نویی ۵ سانت و ۱۰ سانت رو تحمل کرد ولی ۳۰ سانت رو میخواد کجاش بذاره؟!
-
-
-@Tasiyanc 💠
 </div>
 

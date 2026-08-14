@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/23 23:44
+📅 آخرین بروزرسانی: 1405/05/24 01:09
 
 ---
+
+## tasiyanc — post 9119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated location 🇹🇷━━━╮
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.141:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%87%B9%F0%9F%87%B7
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.55:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%87%B9%F0%9F%87%B7%E2%9A%A1
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.154:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%87%B9%F0%9F%87%B7
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.67:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&host=storage.yandex.net&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%F0%9F%87%B9%F0%9F%87%B7%20Turkey%2C%20Tasiyanc
+
+
+Android 🕹 : V2box🔐  Npv tunnel 🔐  V2rayNG 🔐
+
+iOS  📱: V2BOX 🔐  Npv tunnel 🔐
+
+Join As @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9118
 
@@ -208,11 +229,5 @@ Prompt 🤖🤖
 آموزش استفاده 👉
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9094
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-90% پرامپتا VIP و بیشتر کانالها بابتش پول میگیرن ، براتون رایگان میزاریم ، استفاده کنین
 </div>
 

@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/05/23 23:44
+📅 آخرین بروزرسانی: 1405/05/24 01:09
 
 ---
+
+## tasiyanc — post 6365
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🔝
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 🍏
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6364
 
@@ -184,17 +200,5 @@ FAST @Tasiyanc servers.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FAST @Tasiyanc servers.txt
-</div>
-
-## tasiyanc — post 6343
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪼 اختصاصی تاسیان 👑
-
-85 کانفیگ Fast پروتکل Trojan ⚡
-
-بریزید ویتوباکس یا ویتوری پینگ بگیرید وصل شید 💚
-
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/23 23:44
+📅 آخرین بروزرسانی: 1405/05/24 01:09
 
 ---
+
+## tasiyanc — post 8220
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹27 خرداد معاون وزیر ارتباطات گفت که اینترنت دیگه در شرایط بحران قطع نخواهد شد.
+با این حال طی ۲۴ ساعت گذشته وضعیت ترافیک اینترنت چند استان از جمله اصفهان، فارس، خراسان رضوی، البرز و تهران با کاهش نسبی ترافیک اینترنت مواجه بوده‌اند.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8219
 
@@ -164,12 +173,5 @@ Ohhh
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8197
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روبیکا لینک سیو کنین در صورت قطعی عضو شید فعلا فعالیت نداریم
-https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 </div>
 

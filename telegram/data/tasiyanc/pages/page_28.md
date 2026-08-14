@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/23 23:44
+📅 آخرین بروزرسانی: 1405/05/24 01:09
 
 ---
+
+## tasiyanc — post 8580
+
+<div align="center"><img src="files/post_8580_tasiyanc_8580.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه خانوم از اروپا بلند شده بره افغانستان و مثلا نشون بده که اره افغانیا خوبن و رفتارشون عالیه روز آخر توسط یه نفر مورد تجاوز قرار میگیره
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8579
 
@@ -283,13 +293,5 @@ Location 🤯 🇫🇷
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 8525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ فاکس نیوز رسانه نزدیک به ترامپ:
-اسرائیل به جنگ‌ خواهد پیوست.
-@TASIYANC ⭐️
 </div>
 

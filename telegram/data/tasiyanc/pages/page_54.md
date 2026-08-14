@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/05/23 23:44
+📅 آخرین بروزرسانی: 1405/05/24 01:09
 
 ---
+
+## tasiyanc — post 7679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️ 💘 دریافت کانفیگ👈 💘
+</div>
 
 ## tasiyanc — post 7678
 
@@ -164,22 +170,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پخت پز کردم براتون🔥
-</div>
-
-## tasiyanc — post 7634
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 کانفیگ اختصاصی نت مود 🚀
-
-سرور  سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-دانلود برنامه 🕹
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/23 23:44
+📅 آخرین بروزرسانی: 1405/05/24 01:09
 
 ---
+
+## tasiyanc — post 7166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطوریددد؟
+</div>
 
 ## tasiyanc — post 7165
 
@@ -250,11 +256,5 @@ T.me/Tasiyanc ✅
 مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7119
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ناموصاااا پختو پز کردیممم‌این حق ری اکشنمونننن برید اینستاااا عشق کنیددددد
 </div>
 
