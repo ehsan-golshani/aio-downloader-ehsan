@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/05/23 22:53
+📅 آخرین بروزرسانی: 1405/05/23 23:42
 
 ---
+
+## ProxyMTProto — post 48186
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: football.world-pro.co.uk
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: go.antitspu.com
+Port: 443
+Secret: ee31d386ef7e695ee39f4f28ecfbd28a37676f2e616e7469747370752e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48184
 
@@ -163,24 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: gergh.etherealvpn.uk
 Port: 443
 Secret: ee543c9faea80baa5803188629f133cfc5617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48166
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48165
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: get.utkanos.life
-Port: 443
-Secret: ee9657c0f5d3500ab1649000fcd8a0ad816765742e75746b616e6f732e6c696665
 @ProxyMTProto
 </div>
 

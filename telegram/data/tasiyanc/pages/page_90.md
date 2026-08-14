@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/05/23 22:55
+📅 آخرین بروزرسانی: 1405/05/23 23:44
 
 ---
+
+## tasiyanc — post 6419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/+RTGtcYWb8HdkNjdk
+
+بیاید گپمون
+</div>
 
 ## tasiyanc — post 6415
 
@@ -202,13 +210,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آغاز عملیات وعده صادق ۵
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6394
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨فووووووری
-حملات موشکی سپاه به اسرائیل
-@Tasiyanc
 </div>
 

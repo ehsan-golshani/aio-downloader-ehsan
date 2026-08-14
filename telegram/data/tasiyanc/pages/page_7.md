@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/23 22:55
+📅 آخرین بروزرسانی: 1405/05/23 23:44
 
 ---
+
+## tasiyanc — post 9141
+
+<div align="center"><video src="files/post_9141_tasiyanc_9141.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9141_tasiyanc_9141.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شعله های آتش نفتکش در سواحل عمان که مورد اصابت موشک قرار گرفته
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9140
 
@@ -270,18 +282,5 @@ Android 🕹 : V2box🔐  Npv tunnel 🔐  V2rayNG 🔐
 iOS  📱: V2BOX 🔐  Npv tunnel 🔐
 
 Join As @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9118
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-r18
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

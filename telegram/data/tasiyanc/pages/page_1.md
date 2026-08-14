@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/23 22:55
+📅 آخرین بروزرسانی: 1405/05/23 23:44
 
 ---
+
+## tasiyanc — post 9301
+
+<div align="center"><a href="files/post_9301_🐊 @Tasiyanc .nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🐊 @Tasiyanc .nm</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+
+آموزش اتصال روی اندروید⚡️
+
+آموزش اتصال روی ویندوز  ⚡️
+
+دانلود برنامه برای ویندوز 💻
+
+@TASIYANC ☑️
+</div>
 
 ## tasiyanc — post 9300
 
@@ -13,8 +29,6 @@
 </div>
 
 ## tasiyanc — post 9299
-
-<div align="center"><a href="files/post_9299_@Tasiyanc 🐊.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🐊.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 📶
@@ -176,6 +190,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9275
 
 ## tasiyanc — post 9274
-
-## tasiyanc — post 9273
 

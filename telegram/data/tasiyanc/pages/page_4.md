@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/23 22:55
+📅 آخرین بروزرسانی: 1405/05/23 23:44
 
 ---
+
+## tasiyanc — post 9220
+
+<div align="center"><img src="files/post_9220_tasiyanc_9220.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 پرامپت VİP برای وطن پرستان !
+
+اگر در زمان هخامنشیان 🤴 به دنیا میومدی شغلت چی بود؟؟
+
+Prompt 🤖🤖
+
+
+Create a premium cinematic infographic poster using the uploaded photo as the exact reference. Preserve facial identity, face shape, eyes, expression, hairstyle, skin tone and overall likeness. Analyze ONLY visible features (face, posture, style, presence). Compare all historically documented Achaemenid court roles and select the best visual match with historical accuracy. Transform the same person into that Achaemenid figure with authentic clothing, jewelry, symbols and objects in a matching setting (Persepolis, Apadana, Susa, Pasargadae, palace, treasury, royal garden). Style: ultra-realistic, museum-quality, Persian imperial aesthetic, dramatic lighting, 8K. Create a luxury infographic layout with Persian typography. Add: "اگر در دربار هخامنشی بودی، جایگاهت این بود..." + role + title + historical fact + 3 visual analysis bullets + why this role (2–4 lines) + 4 fictional court ratings (%) + 2 original Ferdowsi-inspired epic Persian verses (not quoted). Premium movie-poster design.
+
+@TASIYANC 🔋
+</div>
 
 ## tasiyanc — post 9219
 
@@ -271,23 +288,5 @@ An ultra-realistic high-fashion editorial portrait of a person wearing an oversi
 
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9195
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.76:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%8C%B1%2001
-
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.52:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%8C%B1%2002
-
-vless://fe566714-bb4b-4811-bf47-b6412cb93985@185.178.208.176:443?path=%2Fstream%2F615428%2Fsocket&security=tls&alpn=h3%2Ch2&encryption=none&insecure=0&host=founders-blog.online&fp=chrome&type=ws&allowInsecure=0&sni=founders-blog.online#%40Tasiyanc%20%F0%9F%8C%B1%2003
-
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.50:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%8C%B1%2004
-
-
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.16:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%8C%B1%2005
-
-
-🚨 @TASIYANC ✅
 </div>
 

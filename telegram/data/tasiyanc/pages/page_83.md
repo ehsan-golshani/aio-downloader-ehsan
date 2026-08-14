@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/05/23 22:55
+📅 آخرین بروزرسانی: 1405/05/23 23:44
 
 ---
+
+## tasiyanc — post 6644
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بهرحال منتی نیست ، به عشق شما ادامه میدیم 🦦
+</div>
 
 ## tasiyanc — post 6640
 
@@ -187,14 +193,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگای بالا ک گذاشتم همگی با سرعت وصلن ، درصورت فیلتر جدیدشو قرار میدیم ❤️
-</div>
-
-## tasiyanc — post 6583
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ تسنیم:
-
-هم اکنون یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه بمباران شد.
-@Tasiyanc ✅
 </div>
 

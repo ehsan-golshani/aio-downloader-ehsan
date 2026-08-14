@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/23 22:55
+📅 آخرین بروزرسانی: 1405/05/23 23:44
 
 ---
+
+## tasiyanc — post 9041
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووری 🔴 در پی حمله موشکی حوثی های یمن
+
+تعدادی از نیروهای عربستان سعودی کشته و زخمی شدند، پس از آنکه یک موشک شلیک شده از یمن مستقیماً به پایگاه‌های نیروهای تیپ واکنش سریع اصابت کرد.
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9040
 
@@ -244,23 +253,5 @@ Join As @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وضعیت نت خرابه ، گزارش وضعیت از خطوط همراه و ایرانسل بدید...
-</div>
-
-## tasiyanc — post 9015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم🖤
-
-کانفیگ اختصاصی نامحدود HttpCustum 📱
-
-سرور سرعتی مناسب تمام نت‌ها ⚡️
-
-آموزش اتصال ✅
-
-دانلود  📱android🕹  iOS
-
-اتصال امن برای همه 🏠
-
-💙@TASIYANC ✅
 </div>
 

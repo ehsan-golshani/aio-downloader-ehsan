@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/05/23 22:55
+📅 آخرین بروزرسانی: 1405/05/23 23:44
 
 ---
+
+## tasiyanc — post 7413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پنالتیییی ایران
+</div>
 
 ## tasiyanc — post 7412
 
@@ -216,13 +222,5 @@ T.me/Tasiyanc ✅
 ۴ سرور نامحدود سرعتی ⚡️
 
 آموزش اتصال 💘
-</div>
-
-## tasiyanc — post 7356
-
-<div align="center"><img src="files/post_7356_tasiyanc_7356.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ Summer Vip.npvt
 </div>
 

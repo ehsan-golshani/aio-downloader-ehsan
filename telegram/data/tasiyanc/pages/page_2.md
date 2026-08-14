@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/23 22:55
+📅 آخرین بروزرسانی: 1405/05/23 23:44
 
 ---
+
+## tasiyanc — post 9273
 
 ## tasiyanc — post 9272
 
@@ -192,19 +194,5 @@ r23
 
 اتصال امن برای همه 🇮🇷
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9248
-
-<div align="center"><video src="files/post_9248_tasiyanc_9248.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9248_tasiyanc_9248.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک دانشجوی ۲۱ ساله آمریکایی در یک ماه با یک دوست دختر مجازی مبتنی بر هوش مصنوعی ۴۳,۰۰۰ دلار درآمد کسب کرد
-.
-
-یه حساب OnlyFans به نام Maya راه‌اندازی کرده با برچسب ترک تحصیل کرده رشته روانشناسی UCF، با ۱,۱۴۷ مشترک پول
-@Tasiyanc ☑️
 </div>
 

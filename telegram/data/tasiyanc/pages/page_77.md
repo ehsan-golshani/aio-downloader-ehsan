@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/23 22:55
+📅 آخرین بروزرسانی: 1405/05/23 23:44
 
 ---
+
+## tasiyanc — post 6833
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6832
 
@@ -220,13 +234,6 @@ Vahid online
 
 پنجشنبه 18 تیر (24 محرم، شب شهادت امام سجاد ): تشییع در مشهد مقدس و سپس خاکسپاری در حرم امام رضا
 
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6801
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴🆕 حملات سایبری به زیرساخت های تمام بانکای کشور کارت و خدمات اغلب بانک ها از دسترس خارج شده است
 @Tasiyanc ✅
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/23 22:55
+📅 آخرین بروزرسانی: 1405/05/23 23:44
 
 ---
+
+## tasiyanc — post 8643
+
+<div align="center"><img src="files/post_8643_tasiyanc_8643.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸🇮🇱 مانور مشترک ارتش آمریکا و اسرائیل در صحرای نقب
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8642
 
@@ -225,17 +234,5 @@ Location 🇺🇸
 شگفت انگیزتر اینکه ۶۷ نفر از این کودکان از دوران نوزادی جان سالم به در بردند؛ اتفاقی بسیار نادر در آن زمان.
 
 Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8611
-
-<div align="center"><video src="files/post_8611_tasiyanc_8611.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8611_tasiyanc_8611.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تلمبه اسراییل به جنوب لبنان
-
-@Tasiyanc
 </div>
 

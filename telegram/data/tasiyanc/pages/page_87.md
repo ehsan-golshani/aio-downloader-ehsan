@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/23 22:55
+📅 آخرین بروزرسانی: 1405/05/23 23:44
 
 ---
+
+## tasiyanc — post 6504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از عصر دارم بمب براتون آماده میکنم عشق کنین الان آماده شده
+</div>
 
 ## tasiyanc — post 6503
 
@@ -225,11 +231,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جهت ارتباط با ادمین ها و تبادلات گپمون : https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا یکم اوضاع اوکی میشه مارو فراموش میکنین؟ 🤣
 </div>
 
