@@ -1,8 +1,105 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/23 20:51
+📅 آخرین بروزرسانی: 1405/05/23 22:55
 
 ---
+
+## tasiyanc — post 8922
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترور در قلب مسکو
+به گزارش چندین خبرگزاری خارجی ساعاتی پیش الکساندر چایکو « فرمانده هوا فضای ارتش روسیه » در روز تولدش ترور شد تعدادی از فرماندهان رده بالا نیز در اثر انفجار کشته یا زخمی شدند - تایید / رد نمیشود
+
+💙@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8921
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود دوستان پروفایل چنلمون عوض شد 🌸
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+</div>
+
+## tasiyanc — post 8918
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🔐 V2RAY CONFIG🔐 ━━━╮
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@ronaldo14.fordnsdirect.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%F0%9F%87%AE%F0%9F%87%B9%E2%9A%A1%20%40Tasiyanc%20%D8%B3%D8%B1%D8%B9%D8%AA%DB%8C
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@151.115.165.172:8880?mode=gun&security=none&encryption=none&type=grpc#%F0%9F%87%AE%F0%9F%87%B9%20%40Tasiyanc%2004
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca8.directdnsai.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40Tasiyanc%20%F0%9F%87%AE%F0%9F%87%B9%F0%9F%94%B1%F0%9F%8F%9D%EF%B8%8F
+﻿
+⚡️ Unlimated Italy• By 💙 @TASIYANC ✅
+╰━━━━━━━━━━━━━━━━━━╯
+</div>
+
+## tasiyanc — post 8917
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 👾 GAME DNS ارسالی اعضاء━━━╮
+
+⚡️ DNS #1
+IPv4
+78.157.42.100
+5.160.243.237
+IPv6
+2a00:94c1:abcd::78a5:ea7b:c
+2a00:94c1:abcd::78a5:4d6c:b
+
+➖➖➖➖➖➖➖
+
+⚡️ DNS #2
+IPv4
+78.157.42.101
+24.48.134.102
+IPv6
+2607:f8b1:99aa::d101:c11e:c
+2607:f8b1:99aa::d101:66c4:b
+
+➖➖➖➖➖➖➖
+
+⚡️DNS #3
+IPv4
+78.157.42.101
+37.112.14.40
+IPv6
+2a02:2f0::1fce:b7a5:c
+2a02:2f0::1fce:fa57:b
+
+➖➖➖➖➖➖➖
+
+⚡️ DNS #4
+IPv4
+78.157.42.101
+5.48.156.49
+IPv6
+2a01:e0a::cdf3:15d9:c
+2a01:e0a::cdf3:ea6a:b
+
+⚡️ Low Ping • Stable Connection
+╰━━━━━━━━━━━━━━━━━━╯
+
+💙@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8916
+
+<div align="center"><img src="files/post_8916_tasiyanc_8916.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 مرندی عضو تیم مذاکره : همه میدونن این یه خبر فیکه
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8915
 
@@ -182,84 +279,5 @@ vmess://eyJhZGQiOiI1LjE4OC4xOTAuMjUyIiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔺 کاخ سفید : خداوند سربازان ما را حفظ کند جنگ سهمگین در راهه؟ 🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8897
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 کاخ سفید : خداوند سربازان ما را حفظ کند
-
-جنگ سهمگین در راهه؟
-
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8896
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📌 آمار دیروز کانال تراست بت :
-
-✅✅✅ 3.46⬅️
-✅✅✅ 3.94⬅️
-✅✅✅ 3.46⬅️
-✅✅✅ 4.67⬅️
-✅✅✅ 2.76⬅️
-✅✅✅ 7.43⬅️
-✅✅✅ 1.30⬅️
-👇بدو جوین شو فرم بعدی بگیر👇
-🆔 https://t.me/+umLw_34TXrEzYTQ0
-🆔 https://t.me/+umLw_34TXrEzYTQ0
-</div>
-
-## tasiyanc — post 8894
-
-<div align="center"><img src="files/post_8894_tasiyanc_8894.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥بمب 100% آماده شد
-🔥
-
-💵دریافتی از منبع خارجی Wiliam Hills 
-
-⬅️رایگان در کانال قرار گرفت
-⬅️فقط جوین شید و تمام
-
-➡️ https://t.me/+umLw_34TXrEzYTQ0
-➡️ https://t.me/+umLw_34TXrEzYTQ0
-g10
-⚠️عضویت رایگان به مدت و تعداد محدود زودتر جوین بده⚠️
-</div>
-
-## tasiyanc — post 8893
-
-<div align="center"><video src="files/post_8893_tasiyanc_8893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8893_tasiyanc_8893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ : میدونید موشک‌های ج‌ا رو چطوری رهگیری میکنیم ؟
-بینگ،بینگ،بینگ بینگ ،بینگ 😂
-
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8891
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ لوکیشن ترکیه و اسپانیا 💥
-
-دانلود برای اندروید
-
-دانلود برای آیفون 
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه
-
- @TASIYANC ✨
 </div>
 
