@@ -1,8 +1,49 @@
 # آرشیو کانال VahidOOnLine - صفحه 190
 
-📅 آخرین بروزرسانی: 1405/05/23 18:34
+📅 آخرین بروزرسانی: 1405/05/23 19:38
 
 ---
+
+## VahidOOnLine — post 250612
+
+<div align="center"><video src="files/post_250612_VahidOOnLine_250612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250612_VahidOOnLine_250612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی‌حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال، گفت جمهوری اسلامی، ایران را وارد جنگی کرده که سال‌ها طول می‌کشد تا خسارت‌های ناشی از آن جبران شود.
+
+او افزود این تازه دور ششم حملات است و ممکن است ادامه‌دار باشد، بی‌آنکه واکنش گسترده‌ای در پی داشته باشد، این همان اتفاقی است که در لبنان رخ داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250611
+
+<div align="center"><img src="files/post_250611_VahidOOnLine_250611.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سازمان عملیات تجارت دریایی بریتانیا جمعه ۲۶ تیرماه اعلام کرد گزارشی از وقوع حادثه‌ای مرتبط با یک کشتی تجاری و نیروهای نظامی در حدود ۱۸۵ کیلومتری شرق دقم عمان دریافت کرده است.
+
+بر اساس این اطلاعیه، این حادثه در جریان جنگ جاری ایران و آمریکا رخ داده است.
+این نهاد همچنین به کشتی‌های عبوری توصیه کرد آخرین اطلاعات امنیت دریایی را دنبال کنند و با توجه به شرایط عملیاتی در حال تحول منطقه، هوشیاری خود را حفظ کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250610
+
+<div align="center"><video src="files/post_250610_VahidOOnLine_250610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250610_VahidOOnLine_250610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250609
 
@@ -260,54 +301,6 @@ iranintl
 
 این نهاد همچنین هشدار داد در صورت ادامه این روند از سوی آمریکا، «پاسخ‌های خردکننده‌تری در راه است؛ پاسخ‌هایی که در تاریخ نبردها ماندگار خواهد شد.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250592
-
-<div align="center"><video src="files/post_250592_VahidOOnLine_250592.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250592_VahidOOnLine_250592.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️در پی حملات هوایی آمریکا به دو شهر ویسیان و چنگی در استان لرستان، مخابرات این استان اعلام کرد به دلیل بروز اختلال فنی گسترده در تجهیزات زیرساختی، شبکه تلفن ثابت و همراه در بخش ویسیان و شهرستان معمولان به طور کامل قطع شده است.
-
-بر اساس بیانیه رسمی شرکت مخابرات منطقه لرستان، ارتباطات تلفنی بخش ویسیان،  تا عصر شنبه به حالت عادی باز می‌گردد، اما برقراری مجدد شبکه تلفن همراه و ثابت در شهرستان معمولان به دلیل حجم خسارت‌ها به زمان بیشتری نیاز دارد و حداکثر تا بعدازظهر فردا برقرار خواهد شد.
-خبرگزاری‌های دولتی ایران، نیمه شب جمعه از حمله هوایی به شهرهایی در استان لرستان خبر داده بودند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250591
-
-<div align="center"><video src="files/post_250591_VahidOOnLine_250591.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250591_VahidOOnLine_250591.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در حملات ارتش آمریکا به استان هرمزگان، پل کهورستان شهرستان خمیر هدف گرفته شد. ویدیوهای رسیده به ایران اینترنشنال وضعیت فعلی و میزان تخریب این پل در جاده بندرعباس به لارستان را نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250590
-
-<div align="center"><img src="files/post_250590_VahidOOnLine_250590.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری فارس، وابسته به سپاه پاسداران، روز شنبه ۲۶ تیر ماه در گزارشی تحلیلی مدعی شد پس از حمله به زیرساخت‌های بندر چابهار، پنج بندر کلیدی منطقه در صورت تشدید تنش‌ها ممکن است در معرض حمله نیروهای مسلح جمهوری اسلامی قرار گیرند.
-
-این خبرگزاری حمله به زیرساخت‌های غیرنظامی چابهار را «اشتباه راهبردی» از سوی آمریکا توصیف کرده و نوشته است که این اقدام می‌تواند فهرستی از بنادر تجاری مهم منطقه را که به گفته این خبرگزاری حکومتی «میزبان منافع آمریکا» هستند، در اختیار تهران قرار دهد.
-
-فارس در این گزارش از بندر جبل‌علی در امارات متحده عربی، بندر مینا سلمان در بحرین، بندر الشعیبه و کمپ عریفجان در کویت، بندر حمد در قطر و بندر صنعتی ملک فهد در ینبع عربستان سعودی به‌عنوان مراکز کلیدی نام برده است.
-این خبرگزاری مدعی شده است که این بنادر به دلیل نقش تجاری، نظامی یا لجستیکی، از جمله نقاط آسیب‌پذیر در صورت گسترش درگیری‌ها در منطقه خواهند بود.
-
-این گزارش در بحبوحه حملات متقابل نیروهای مسلح جمهوری اسلامی و ارتش آمریکا در جنوب ایران و منطقه خلیج فارس منتشر می‌شود.
-در همین حال، وزارت برق و انرژی کویت در بیانیه‌ای از تخریب تاسیسات آب و برق این کشور در اثر حمله پهپادی جمهوری اسلامی خبر داده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
