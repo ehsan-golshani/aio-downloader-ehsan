@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/23 17:23
+📅 آخرین بروزرسانی: 1405/05/23 18:35
 
 ---
+
+## ProxyMTProto — post 49364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: update.femboylover.org
+Port: 443
+Secret: ee7f302883cf187bb6f9e1906f5fe5f3a57777772e6d6963726f736f66742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49363
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49362
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: one1.mtproxygram.lol
+Port: 443
+Secret: ee563dc88ae5d1c70b18d01472f77a969962726f777365722e79616e6465782e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49361
 
@@ -154,33 +181,6 @@ Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 Server: Wow.Oh.Oh.AjaB_Sorati_Dare
 Port: 443
 Secret: BeZaN_RoooSh_Connect
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49344
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: swag.caxero.ru
-Port: 443
-Secret: 8f3c7a1d4b92e6c51a7d0fb843c2e91f
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49343
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mirror.malevich7.top
-Port: 443
-Secret: ee291d58b9456c5824c8675ad904b2386e6d6972726f722e6d616c6576696368372e746f70
 @ProxyMTProto
 </div>
 

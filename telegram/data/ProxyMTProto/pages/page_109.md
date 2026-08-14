@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/05/23 17:23
+📅 آخرین بروزرسانی: 1405/05/23 18:35
 
 ---
+
+## ProxyMTProto — post 47956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: flux.proxytelega.store
+Port: 443
+Secret: eec57f379567b25a79cbd1fa0ad73b98d9666c75782e70726f787974656c6567612e73746f7265
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47955
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 93.190.247.226
+Port: 443
+Secret: ee77b20ec12fb5b1fa89b055f21e9c6712617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47953
 
@@ -154,33 +181,6 @@ Secret: dddf514ae4da112140933c25803d720852
 Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47936
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: bolt.proxyonline.online
-Port: 443
-Secret: ee98741a4df96ee86a25ca542a538a3484626f6c742e70726f78796f6e6c696e652e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47935
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp10.sosproxy.space
-Port: 443
-Secret: ee3ab621bbb1dea6b3be09c8f3582c61a364726976652e676f6f676c652e636f6d
 @ProxyMTProto
 </div>
 
