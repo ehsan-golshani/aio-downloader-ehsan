@@ -1,92 +1,145 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/05/23 11:36
+📅 آخرین بروزرسانی: 1405/05/23 14:07
 
 ---
 
-## tasiyanc — post 8341
-
-<div align="center"><img src="files/post_8341_tasiyanc_8341.jpg" alt="Photo"></div>
+## tasiyanc — post 8372
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴10 فیلم معروفی که پایان‌بندی‌شون غافلگیرتون می‌کنه و پشماتون از دیدنشون میریزه:
+کانفیگ حجم نامحدود نپسترنت 
+🔐
 
-▪️The Sixth Sense 1999
-▫️Se7en 1995
-▪️Fight Club 1999
-▫️The Prestige 2006
-▪️Shutter Island 2010
-▫️The Usual Suspects 1995
-▪️ Oldboy 2003
-▫️Primal Fear 1996
-▪️The Mist 2007
-▫️Incendies 2010
+5سرور سرعتی پرمیوم دارای ۳ لوکیشن  ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8371
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏴󠁧󠁢󠁥󠁮󠁧󠁿 🇫🇷 کدوم می‌بره؟
+
+
+نتیجه دقیق بگید تا قبل شروع بازی کانفیگ وایرگارد هدیه بگیرید
+</div>
+
+## tasiyanc — post 8369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرگزرای CBS به نقل از مقام نظامی: حملات امشب دقایقی دیگر آغاز میشود و گستردگی بیشتری دارد
 
 @Tasiyanc✅
 </div>
 
-## tasiyanc — post 8339
+## tasiyanc — post 8367
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 18 July، روز جهانی گوش دادن
-گوش دادن به آهنگ و چیزای دیگه مثل کسشرای رفیقته
+❌انفجار در سنندج
 
-@Tasiyanc ✅| مرجع کانفیگ
+۴انفجار در بندر عباس
+
+@Tasiyanc✅
 </div>
 
-## tasiyanc — post 8335
-
-<div align="center"><img src="files/post_8335_tasiyanc_8335.jpg" alt="Photo"></div>
+## tasiyanc — post 8366
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زیبایي کوههای مریخيِ چابهارِ زیبا
+❌دلار ۱۹۵رو شکست
 
-پروکسی | پروکسی | پروکسی | پروکسی
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8365
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌انفجار در بندر عباس و بیرجند
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8363
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8362
+
+<div align="center"><video src="files/post_8362_tasiyanc_8362.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8362_tasiyanc_8362.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹مرگبارترین رکورد گینس
+
+در سال ۱۹۸۳، ریک چارلز با شیرجه از ارتفاع ۵۲ متر در سی‌ورلد، یکی از خطرناک‌ترین شیرجه‌های تاریخ را ثبت کرد. او با سرعتی بیش از ۱۱۶ کیلومتر بر ساعت و ورودی کاملاً عمودی، بدون آسیب جدی از آب بیرون آمد. این شیرجه هنوز هم یکی از شگفت‌انگیزترین اجراهای تاریخ ورزش محسوب می‌شود.
 
 @Tasiyanc ✅ | مرجع کانفیگ
 </div>
 
-## tasiyanc — post 8333
+## tasiyanc — post 8359
+
+<div align="center"><video src="files/post_8359_tasiyanc_8359.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8359_tasiyanc_8359.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
-</div>
+🚨 وضعیت مسکو روسیه بعد از حملات امروز اوکراین
 
-## tasiyanc — post 8324
+انگار فیلم آخر الزمانی هست
 
-<div align="center"><img src="files/post_8324_tasiyanc_8324.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاوت‌های جنسی در دنیای جانوران 🦋
-
-پروکسی | پروکسی | پروکسی | پروکسی
 
 @Tasiyanc ✅ | مرجع کانفیگ
 </div>
 
-## tasiyanc — post 8323
+## tasiyanc — post 8358
+
+<div align="center"><img src="files/post_8358_tasiyanc_8358.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت همراه اول/ایرانسل تو شهر شما چطوریه؟
+😐 ترامپ کلی هزینه کرد که پل تو جنوب رو بزنه، اما بخاطر اینکه رودخونه‌ی کنار پل خشک شده بود، مردم یه جاده خاکی از همونجا درست کردن و تردد میکنن 😂
+
+@Tasiyanc ✅
 </div>
 
-## tasiyanc — post 8322
+## tasiyanc — post 8350
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیک نیوز زیاد شده ، اخبار رو از چنل خودمون دنبال کنین
-( رک بگم حمایت کنین جوین بدین 😂❤️)
+جهت دریافت وایرگارد مخصوص گیم و وبگردی وارد ربات تاسیان شوید بگیرید ظرفیت پر شه لینک پاک میکنم
 
-@TasiyanProxy
-@TasiyanProxy
+دریافت کانفیگ 🤜
 </div>
 
-## tasiyanc — post 8321
+## tasiyanc — post 8349
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طرف کلا نمیدونه دیتاسنتر چیه هی تو چنلش میزنه در حال قطع شدن
+Multi Location ⚡ Fast.npvt
 </div>
 
-## tasiyanc — post 8320
+## tasiyanc — post 8348
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت 🔐
@@ -110,75 +163,77 @@
 ✔️ T.me/Tasiyanc
 </div>
 
-## tasiyanc — post 8316
+## tasiyanc — post 8347
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از قدیم گفتن مراقب تله مرغابی های زندگیت باش
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
 </div>
 
-## tasiyanc — post 8315
+## tasiyanc — post 8346
+
+<div align="center"><img src="files/post_8346_tasiyanc_8346.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این ربات بصورت ناشناس ساخته بودم مجبور کردن اطلاع رسانی کنیم پست ها پاک میشه خواستم بگم جریانو فقط ❤️
+کوله‌ی دخترش رو انداخته بود،
+براش آواز هم می‌خوند تا خستگی مهد از تنش در بره...🫠💘
+
+@Tasiyanc✅
 </div>
 
-## tasiyanc — post 8314
+## tasiyanc — post 8345
+
+<div align="center"><img src="files/post_8345_tasiyanc_8345.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرچ نامحدود ۲۰۰ استارز میکنم از پسفردا چون اینا می‌خوان اطلاعات بزارن ❤️
+امروز 18 July؛ روز ملی خوشگلا | Attractive Day هست🥹.
+
++این پست رو به خوشگل ترین فرد تو زندگیت بفرست و روزشو تبریک بگو.
+
+@Tasiyanc✅
 </div>
 
-## tasiyanc — post 8313
+## tasiyanc — post 8344
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
+🔴رسمی : امتحانات نهایی لغو شد ولی باز هم فقط واسه 4 استان!
+
+■ هرمزگان
+■ بوشهر
+■ خوزستان
+■ سیستان و بلوچستان
+
+- پایه یازدهم و دوازدهم
+- روزهای یکشنبه و دوشنبه، 28 و 29 تیر
+
+پروکسی |  پروکسی | پروکسی
+پروکسی |  پروکسی | پروکسی
+
+@Tasiyanc✅
 </div>
 
-## tasiyanc — post 8312
+## tasiyanc — post 8343
+
+<div align="center"><img src="files/post_8343_tasiyanc_8343.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ ۴ انفجار در یزد شنیده شد
+یه خانواده بندرعباسی بچه‌شونو داخل یه تیکه کائوچو میذارن که کنار دریا بازی کنه
+حواس خانواده پرت میشه آب بچه رو میبره و نیروی دریایی ارتش این بچه رو لب مرز دریایی امارات پیدا میکنن و برمیگردونن🤣🤣
 
-@Tasiyanc ✅
+@Tasiyanc✅
 </div>
 
-## tasiyanc — post 8311
+## tasiyanc — post 8342
+
+<div align="center"><img src="files/post_8342_tasiyanc_8342.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
-</div>
+معلم جلوی پروژکتور معلم کنار پروژکتور
 
-## tasiyanc — post 8310
 
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
-</div>
-
-## tasiyanc — post 8309
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاهش پهنای باند داره گزارش میشه کانفیگ مخصوص نت ملی رو بگیرید دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش انفجار ۱۰ مین پیش در یزد از اعضای عزیز
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خاورمیانه آرومه امشب انگار؟
-</div>
-
-## tasiyanc — post 8306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ شنیده شدن صدای انفجار در اهواز
-
-@Tasiyanc ⭐️
+@Tasiyanc✅
 </div>
 

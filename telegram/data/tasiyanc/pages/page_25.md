@@ -1,31 +1,98 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/23 11:36
+📅 آخرین بروزرسانی: 1405/05/23 14:07
 
 ---
 
-## tasiyanc — post 8622
+## tasiyanc — post 8656
+
+<div align="center"><video src="files/post_8656_tasiyanc_8656.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8656_tasiyanc_8656.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ درباره جنگ ایران:
+یاد کنیم از رقص F35 ارتش اسرائیل در آسمان کرج مربوط به جنگ ۳۹ روزه
 
-ما می‌خواهیم به این جنگ پایان دهیم، اما می‌خواهیم به شیوه درست آن را تمام کنیم
+@TASIYANC 💠
+</div>
+
+## tasiyanc — post 8655
+
+<div align="center"><video src="files/post_8655_tasiyanc_8655.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8655_tasiyanc_8655.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قابل توجه ؛ ناوگان هفتم دریایی نیروهای ایالات متحده آمریکا به تنها ارتش چین را می‌بلعد ! ناوگان هفتم نیروی دریایی آمریکا بزرگترین ناوگان نظامی تهاجمی جهان است که
+بخونید 👇
+
+از حداقل ۷۰ کشتی و زیردریایی، ۱۵۰ هواپیما و ۲۰ هزار نیرو برای حضور و واکنش سریع مقابل چین در شرق آسیا مستقر شده است. منطقه عملیاتی آن یعنی آسیا و اقیانوسیه، ۱۲۴ میلیون کیلومتر مربع، ۳۶ کشور و نیمی از جمعیت جهان را پوشش میدهد. رهبری این واحد دریایی را ناو هواپیمابر رونالد ریگان برعهده دارد. مقر این ناوگان یوکوسوکای ژاپن است. ناوگان هفتم آمریکا یک نیروی پیشرو است که از نظر تجربه رزمی، مهارت خدمه، و ادغام فناوریهای پیشرفته در کشتیها و زیردریاییهایش، برتری کیفیتی قابل توجهی دارد که میتواند خسارات سهمگینی به نیروی دریایی چین وارد کند ایران جای خود داره 🤣
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8654
+
+<div align="center"><img src="files/post_8654_tasiyanc_8654.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکبر عبدی بازیگر سینما درگذشت 🖤
 @Tasiyanc ⭐️
 </div>
 
-## tasiyanc — post 8621
+## tasiyanc — post 8653
+
+<div align="center"><video src="files/post_8653_tasiyanc_8653.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8653_tasiyanc_8653.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت
-🔐
+«چشم‌های تمساح ؛ یکی از پیشرفته ترین چشم‌ها در قلمرو جانوران ک طی بیش از ۲۰۰ میلیون سال تکامل یافته اند » 🐊👁
 
-سرور سرعتی 
-⚡️
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8652
+
+<div align="center"><video src="files/post_8652_tasiyanc_8652.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8652_tasiyanc_8652.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹تنها جنگنده ای که آمریکا به متحدانش نمیفرشه 🗽
+
+جنگنده ی F22Raptor مرموزترین ، پیشرفته ترین ، گرانترین جنگنده آمریکا که فقط 187 فروند ازش هست و همشون در اختیار ارتش آمریکاست
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8651
+
+<div align="center"><video src="files/post_8651_tasiyanc_8651.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8651_tasiyanc_8651.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹یادی کنیم از عملیات « شوک وحشت» آمریکا در سال ۲۰۰۳ علیه رژیم صدام
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8650
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در صورت تداوم عدم حمایت و نداشتن جذب ، چنل بزودی بفروش خواهد رسید و اتمام فعالیت تاسیان بزودی اعلام خواهد شد ❤️
+</div>
+
+## tasiyanc — post 8647
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی ⚡️
 
 تست شده روی همه نت ها 🛜🛜🛜🛜
 
-آموزش اتصال 
-⛓
+آموزش اتصال ⛓
 
 دانلود اندروید 🕹
 
@@ -41,214 +108,116 @@
 ✔️ @TASIYANC ✅
 </div>
 
-## tasiyanc — post 8620
+## tasiyanc — post 8646
 
-<div align="center"><video src="files/post_8620_tasiyanc_8620.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+<div align="center"><video src="files/post_8646_tasiyanc_8646.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
 
-<div align="center"><a href="files/post_8620_tasiyanc_8620.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+<div align="center"><a href="files/post_8646_tasiyanc_8646.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹ویدیو دیده نشده
-شاید نمیدونستید در سال 1943 ، بیش از 120 هزار لهستانی پس از سالها تبعید و رنج در اردوگاه های شوروی به ایران آمدند
+🔹وقتی یه عالمه اسباب‌بازی داری ولی هیشکی باهات بازی نمیکنه :)
 
-در سالهای ۱۹۴۲ تا ۱۹۴۳، همزمان با جنگ جهانی دوم، بیش از ۱۲۰ هزار لهستانی—شامل زنان، کودکان، سربازان و غیرنظامیان—پس از سالها تبعید و رنج در اردوگاههای کار اجباری شوروی، از مسیر آسیای میانه به ایران منتقل شدند.
-ایران که خود در اشغال متفقین و دچار کمبود شدید غذا و امکانات بود، به یکی از امنترین پناهگاههای این آوارگان تبدیل شد؛ بندر انزلی، تهران، اصفهان و اهواز از مهمترین مراکز اسکان آنها بودند.
-بسیاری از این لهستانیها در وضعیت جسمی بسیار وخیم، دچار سوءتغذیه، بیماری و فرسودگی شدید وارد ایران شدند؛ با این حال، مردم ایران—با وجود شرایط سخت جنگ—تا حد توان به آنها کمک کردند.
-اصفهان بهدلیل تعداد بالای کودکان لهستانی، بعدها لقب «شهر کودکان لهستانی» را گرفت.
-این مهاجرت، یکی از کمتر گفتهشدهترین فصلهای انسانی جنگ جهانی دوم است؛ جایی که ایران، نه در مقام قدرت نظامی، بلکه بهعنوان پناهگاه انسانها در تاریخ ثبت شد
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8643
+
+<div align="center"><img src="files/post_8643_tasiyanc_8643.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸🇮🇱 مانور مشترک ارتش آمریکا و اسرائیل در صحرای نقب
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سپاه :
+در بیست‌وهفتمین موج عملیات «نصر ۲»، ساختمان باقی‌ماندهٔ مرکز داده شرکت آمازون که برای پشتیبانی از اطلاعات و عملیات اطلاعاتی ارتش آمریکا مورد استفاده قرار می‌گرفت، هدف قرار گرفت و منهدم شد.
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8640
+
+<div align="center"><video src="files/post_8640_tasiyanc_8640.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8640_tasiyanc_8640.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شیر سیاه گونه ای زیبا و در حال انقراض از شیر ها در آفریقا 🦁
+
+@TASIYANC✅
+</div>
+
+## tasiyanc — post 8639
+
+<div align="center"><video src="files/post_8639_tasiyanc_8639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8639_tasiyanc_8639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امکانات و ویژگی های خودرو ریاست جمهوری ایالات متحده🇺🇸
+
+ويژگى هاى اين خودرو كه هيولا نام دارد:
+هیولا توسط شرکت کادیلاک و تحت نظارت سرویس مخفی آمریکا ساخته شده و برخلاف ظاهر لوکسش، بیشتر شبیه یک تانک زرهی پنهان است.
+درون خودرو یک مرکز کنترل ارتباطی پیشرفته وجود دارد که رئیس‌جمهور میتواند در آن با فرماندهی ارتش یا مقامات اضطراری تماس فوری برقرار کند.
+خودرو همیشه در کاروانی ویژه همراه با چند نسخه مشابه حرکت میکند تا هویت واقعی رئیسجمهور مشخص نباشد.
+هیولا مجهز به دوربین دید در شب، سیستم اشعه مادون قرمز و تجهیزات دفع گاز اشک‌آور است.
+کلیدهای امنیتی اصلی خودرو فقط در اختیار مأمور ویژه‌ی سرویس مخفی است، و حتی راننده هم دسترسی کامل به همه‌ی سیستم‌ها ندارد
+
 
 Fact @TASIYANC ✅
 </div>
 
-## tasiyanc — post 8619
+## tasiyanc — post 8629
+
+<div align="center"><img src="files/post_8629_tasiyanc_8629.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نفت شد ۱۰۰ دلار ،،،
-ترامپ یه ساعت بعد : داریم مذاکره می‌کنیم توافق نزدیکه
-</div>
-
-## tasiyanc — post 8618
-
-<div align="center"><video src="files/post_8618_tasiyanc_8618.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8618_tasiyanc_8618.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واقعیتی تلخ از انیمیشن ماشا که جدیدا وایرال شده 💔 🤪
-
-ادامه بخونید 👇
-
-ماشا در این روایت، دختری روسی بود که تمام دنیایش در شور و هیجان خلاصه میشد؛ دختری که حتی لحظه‌ای آرام نمیگرفت و همیشه در حال جنب‌وجوش بود. در یکی از روزهای تابستان، وقتی همراه خانواده‌اش برای پیکنیک به جنگل رفته بود، روحیهٔ کنجکاو و بیقرارش باعث شد از آنها فاصله بگیرد و در میان جنگل راهش را گم کند.
-
-میگویند حقیقت پشت این داستان، غم‌انگیزتر از چیزی است که تصور میکنیم...
-
-طبق این نظریه، خرسی او را در جنگل پیدا میکند و شروع به بازی با او میکند؛ اما بازی ناخواسته بیش از حد خشن میشود و ماشا در این حادثه جانش را از دست میدهد. خرس هرگز قصد آسیب رساندن به او را نداشت و پس از آن، با عذاب وجدانی سنگین، جنگل را ترک میکند.
-
-خانوادهٔ ماشا پیکر بیجان او را پیدا میکنند، اما سالها بعد، خرس همچنان ماشا را در جنگل میبیند؛ غافل از اینکه آنچه میبیند، روح ماشاست، نه خودِ ماشای زنده.
-
-اگر این نظریه درست باشد، تمام لحظاتی که در کارتون میبینیم، در واقع روح دختر بچه ای تنها بود که برای آرام کردن خرسی که از کشته شدن نا خواسته اش عذاب وجدان داشت با اون دوست شده بود 💔
-
-Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8616
-
-<div align="center"><video src="files/post_8616_tasiyanc_8616.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8616_tasiyanc_8616.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ویدیویی شگفت انگیز از تهران قدیم ۱۰۰ سال قبل سال 1306 شمسی
-صدای ویدیو را باز کنید
-
-یکی از معتبرترین تصاویر تهران قدیم است که توسط فردریک گادامر، فیلمبردار فرانسوی در تهران ضبط شده است. در این ویدیو، تصاویری از کوچه‌ها و بازار تهران را میبینید. ویدیو را تا پایان تماشا کنید و بنویسید که تصویر آخر در کدام خیابان تهران ضبط شده است؟
-FACT @TASIYANC 💠
-</div>
-
-## tasiyanc — post 8615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-پینگ نگیرید
-vless://4bde007a-f683-4a43-83ad-e11eff35e6b4@tasiyanc.nova-5e611f.workers.dev:443?path=%2F&security=tls&encryption=none&insecure=0&host=tasiyanc.nova-5e611f.workers.dev&fp=chrome&type=ws&allowInsecure=0&sni=tasiyanc.nova-5e611f.workers.dev#%40TASIYANC%20%F0%9F%9A%80
-Location 🇺🇸
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8614
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
-</div>
-
-## tasiyanc — post 8612
-
-<div align="center"><video src="files/post_8612_tasiyanc_8612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8612_tasiyanc_8612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺والنتینا واسیلیوا زنی بود که طبق اسناد تاریخی، در روسیه قرن هجدهم ۲۷ بار زایمان کرد و صاحب ۶۹ فرزند شد؛ ۱۶ بار دوقلو، ۷ بار سه قلو و ۴ بار چهارقلو 😐
-
-شگفت انگیزتر اینکه ۶۷ نفر از این کودکان از دوران نوزادی جان سالم به در بردند؛ اتفاقی بسیار نادر در آن زمان.
-
-Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8611
-
-<div align="center"><video src="files/post_8611_tasiyanc_8611.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8611_tasiyanc_8611.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تلمبه اسراییل به جنوب لبنان
+ذات توافق :
 
 @Tasiyanc
 </div>
 
-## tasiyanc — post 8610
-
-<div align="center"><video src="files/post_8610_tasiyanc_8610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8610_tasiyanc_8610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## tasiyanc — post 8628
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺عجیب ترین زبان جهان 🌍
-
-قبیلهٔ Kawelka در ارتفاعات پاپوا گینهٔ نو به سبک بیان پرقدرت و پرهیجانشان شناخته میشوند. گفتارشان برای بسیاری از غریبه ها شبیه فریاد یا مشاجره به نظر میرسد
-حتی وقتی فاصلهای بین افراد نیست.
-Fact @TASIYANC ✅
+🔴 پلیس فتای استان خراسان رضوی، از دستگیری زوجی که فیلم جنسی ارباب و برده ضبط می‌کردند و سپس آنها را در تلگرام با قیمت های نجومی می‌فروختند، خبر داد
+@Tasiyanc 😐
 </div>
 
-## tasiyanc — post 8609
-
-<div align="center"><video src="files/post_8609_tasiyanc_8609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8609_tasiyanc_8609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## tasiyanc — post 8627
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤖 ربات‌ها دارن آرام‌آرام میان تا بخشی از پازل زندگی ما بشن.
-مرز بین فیلم‌های علمی-تخیلی و زندگی واقعی داره باریک میشه
-
-
-چیزی که تا چند سال پیش فقط در فیلمهای علمی تخیلی میدیدیم، حالا کمکم در دنیای واقعی دیده میشود. در این ویدیو یک ربات انسان نما متعلق به شرکت تسلا به بازدیدکننده پاپکورن تحویل میدهد و نشان میدهد فناوری تا چه اندازه به زندگی روزمره نزدیک شده است
-
-Fact @TASIYANC ✅
+شب جمعه به این آرومی؟ مشکوکه
 </div>
 
-## tasiyanc — post 8608
+## tasiyanc — post 8626
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
+احوال شما؟
 </div>
 
-## tasiyanc — post 8607
-
-<div align="center"><video src="files/post_8607_tasiyanc_8607.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8607_tasiyanc_8607.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## tasiyanc — post 8625
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیه به هر کدوم فک کنی اونو می‌شنوی 😂😂😂
+🚨 شلیك موشك به کویت
 
-@TASIYANC ✅
+@Tasiyanc ⭐️
 </div>
 
-## tasiyanc — post 8606
+## tasiyanc — post 8624
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چخبر امتحانتونو چطور دادید؟
+🚨 ترامپ : در این دو جنگ ۱۸ سرباز از دست دادیم
+@Tasiyanc ⭐️
 </div>
 
-## tasiyanc — post 8605
-
-<div align="center"><video src="files/post_8605_tasiyanc_8605.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8605_tasiyanc_8605.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## tasiyanc — post 8623
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واکنش عجیب مردم کره شمالی به دیدن اولین کنسرت ( موزیک) گروه کی پاپ در سال ۲۰۱۸ ...
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ کوبا در مسیر آزادی
-مارکو روبیو:
-"هدف ما این است که به کشوری به نام کوبا برسیم که مردم آن بتوانند از رفاه، امنیت، و یک زندگی بهتر در آینده بهره‌مند شوند."
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8603
-
-<div align="center"><video src="files/post_8603_tasiyanc_8603.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8603_tasiyanc_8603.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت گذرگاه مرزی شلمچه بین ایران و عراق، بعد از حملات ارتش آمریکا : تعداد کشته‌ها به 3 نفر رسید. @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8602
-
-<div align="center"><video src="files/post_8602_tasiyanc_8602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8602_tasiyanc_8602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت گذرگاه مرزی شلمچه بین ایران و عراق، بعد از حملات ارتش آمریکا :
-
-تعداد کشته‌ها به 3 نفر رسید.
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8601
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبلیغات و همکاری با مجموعه ما
-👉 Admin @TsSub
+🚨ترامپ:
+ما روابط بسیار خوبی با ایران داریم. آنها به دنبال یک توافق هستند، اما من می‌گویم که آنها هنوز آماده نیستند. آنها باید بیشتر مجازات شوند. آنها هنوز هم اهداف شومی در مورد برنامه هسته‌ای خود دارند، و آنها هرگز نباید به سلاح هسته‌ای دست یابند.
+@Tasiyanc ☑️
 </div>
 

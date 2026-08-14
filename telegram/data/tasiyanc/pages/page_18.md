@@ -1,146 +1,224 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/23 11:36
+📅 آخرین بروزرسانی: 1405/05/23 14:07
 
 ---
 
-## tasiyanc — post 8815
+## tasiyanc — post 8851
+
+<div align="center"><video src="files/post_8851_tasiyanc_8851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8851_tasiyanc_8851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«ویدیوی وایرال شده این روزها » صبحانه ای که برای سربازان ارتش آمریکا در میدان جنگ / بیرون مرزها دور از وطنشون « سرو » میشود
+
+پروکسی متصل | پروکسی متصل
+
+✈️@TASIYANC
+</div>
+
+## tasiyanc — post 8850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻کد های مخفی ChatGpt - Gemini 🤖🤖
+
+کد : 10x THINK - به سوالاتت دقیق تر و عمیق تر جواب میده
+
+کد : EL10 - پاسخ سوالاتت رو ساده توضیح میده ، انگار بچه ده ساله ای
+
+کد : KILL CRITIC - گذاشتن این کد در اول سوالاتت باعث میشه باهات صادقانه و رک باشه و موافق نباشه باهات
+کد : ALT3 - با این کد به جای یک جواب سه تا گزینه بهت میده بابت سوالاتت
+
+
+✈️@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8849
+
+<div align="center"><video src="files/post_8849_tasiyanc_8849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8849_tasiyanc_8849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاول دوروف مالک تلگرام میگه هیچ خانه، زمین، ملک، جت شخصی یا قایق تفریحی ندارد!!
+
+✈️@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8848
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+R8
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 8847
+
+<div align="center"><img src="files/post_8847_tasiyanc_8847.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 8845
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت🔐
 
-سرور سرعتی مولتی لوکیشن
-🇩🇪🇮🇹🇸🇪🇯🇵🇹🇼🇹🇷
+4 سرور سرعتی لوکییشن 🇮🇹
 
 تست شده روی همه نت ها 🛜🛜🛜🛜
 
 آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
 
 اتصال امن برای همه 🇮🇷
 
 ✔️ @TASIYANC ✅
 </div>
 
-## tasiyanc — post 8814
+## tasiyanc — post 8844
 
-<div align="center"><img src="files/post_8814_tasiyanc_8814.jpg" alt="Photo"></div>
+<div align="center"><video src="files/post_8844_tasiyanc_8844.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8844_tasiyanc_8844.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡 اینترنت استارلینک به‌صورت رسمی در عراق فعال شد.
+موقعیت؛ ترامپ وقتی به کشتی‌ها حمله می‌شه تو هرمز :
 
-هزینه اشتراک‌ها با نرخ هر دینار عراق = 147 تومان :
-
-💰 طرح 100 مگابیت با دانلود نامحدود: حدود 9 میلیون و 200 هزار تومان در ماه
-
-💰 طرح 400 مگابیت با دانلود نامحدود: حدود 14 میلیون و 500 هزار تومان در ماه
-
-شاید در نگاه اول گرون به نظر برسه، اما از اونجایی که هر دیش استارلینک می‌تونه اینترنت یه آپارتمان یا چند واحد رو تأمین کنه، اگه مثلاً 6 یا 7 خانواده هزینه رو با هم تقسیم کنن، مبلغی که به هر خانواده می‌رسه کاملاً منطقی و مقرون‌به‌صرفه میشه.
-﻿
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-
-⭐ @TASIYANC✅
+@TASIYANC ⭐️
 </div>
 
-## tasiyanc — post 8811
+## tasiyanc — post 8842
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، صداوسیما خیلی جدی : امروز صبح در حملات آمریکا به ایران، 6 تا جنگنده F-35 رو زدیم! 3 تاشون کامل منهدم شدن، 3 تاشون هم خسارت دیدن! چند تا از خلبانان جنگنده هم کشته شده. 🐸🐸🐸🐸 
-⭐@Tasiyanc ⭐
+کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+
+سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید⛓
+
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ⭐️
 </div>
 
-## tasiyanc — post 8810
-
-<div align="center"><img src="files/post_8810_tasiyanc_8810.jpg" alt="Photo"></div>
+## tasiyanc — post 8840
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، صداوسیما خیلی جدی : امروز صبح در حملات آمریکا به ایران، 6 تا جنگنده F-35 رو زدیم!
+#کاربردی
 
-3 تاشون کامل منهدم شدن، 3 تاشون هم خسارت دیدن!
-چند تا از خلبانان جنگنده هم کشته شده.
-🐸🐸🐸🐸
+با این دو سایت میتونید آهنگهای SoundCloud & Spotify رو دانلود کنید
+کافیه لینک آهنگ رو بدید تا براتون دانلود کنه با کیفیت دلخواه ، من شخصا با ساندکلاد زیاد حال میکنم
 
+🎵 https://www.dltracks.com/en
 
-⭐@Tasiyanc ⭐
+🎵https://spotmate.online/en1
+
+@TASIYANC ⭐️
 </div>
 
-## tasiyanc — post 8809
-
-<div align="center"><video src="files/post_8809_tasiyanc_8809.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8809_tasiyanc_8809.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## tasiyanc — post 8839
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک موش خرما به نام چانک به مدت ۴ سال محصول یک کشاورز را می‌دزدید و آنهارا جلوی دوربین کشاورز میخورد 😂
-
-
-⭐ @TASIYANC ⭐
+کانفیگ برا ویندوز بزارم ؟
 </div>
 
-## tasiyanc — post 8808
+## tasiyanc — post 8838
 
-<div align="center"><video src="files/post_8808_tasiyanc_8808.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+<div align="center"><video src="files/post_8838_tasiyanc_8838.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
 
-<div align="center"><a href="files/post_8808_tasiyanc_8808.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+<div align="center"><a href="files/post_8838_tasiyanc_8838.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر وقت ایرانیا فهمیدن عادل فرقی با میساکی نداره بازیو بردن
+🚨سنای آمریکا با ۵۰ رأی مخالف در برابر ۴۹ رأی موافق
+طرح محدود کردن اختیارات ترامپ برای اقدام نظامی علیه ایران رو رد کرد
+
+✈️@TASIYANC ⭐️
 </div>
 
-## tasiyanc — post 8807
+## tasiyanc — post 8837
 
-<div align="center"><img src="files/post_8807_tasiyanc_8807.jpg" alt="Photo"></div>
+<div align="center"><video src="files/post_8837_tasiyanc_8837.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8837_tasiyanc_8837.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبر خوب ، نوید زیادخان قره‌داغی مادرج*ده که دخترارو تو لایو اینستاگرام کتک می‌زد دستگیر شد
+🚨 فوری : مدارس امسال از مهر باز نمیشن!
 
-« مشاهده ویدیو »
+عمران عباسی، عضو کمیسیون آموزش مجلس:
 
-
-⭐ @TASIYANC 
-⭐️
+قطعا تو مهرماه مدارس باز نمیشن.
+چون برگزاری آزمون‌ها تقریبا یک ماه تاخیر داشته.
+حالا همه تلاش‌مون رو می‌کنیم که اول آبان یا تو خودِ آبان ماه مدارس رو باز کنیم.
+✈️@TASIYANC ⭐️
 </div>
 
-## tasiyanc — post 8806
+## tasiyanc — post 8833
 
-<div align="center"><video src="files/post_8806_tasiyanc_8806.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+<div align="center"><video src="files/post_8833_tasiyanc_8833.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
 
-<div align="center"><a href="files/post_8806_tasiyanc_8806.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+<div align="center"><a href="files/post_8833_tasiyanc_8833.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویدیو های منتشر شده از زار و شیون اعضای حشدالشبی بر سر اجساد بستگانشان
+🔴 امروز 8 مرداد، تولد جاویدنام آیدا حیدری هست، دانشجوی پزشکی 21 ساله‌، که در اعتراضات دی ماه، به قتل رسید.
 
+مادر آیدا بعد از فوت دخترش، هر شب به بالکن میره و زار زار گریه می‌کنه.
+⭐ @TASIYANC ⭐️
+</div>
 
+## tasiyanc — post 8832
+
+<div align="center"><img src="files/post_8832_tasiyanc_8832.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید مالک تلگرام پاول دروف توی چنل تلگرامش:
+
+عکس خودشو گذاشته نوشته به من میگن تروریست.
+بعد به طالبان میگن شرکای تجاری😂
 ⭐ @TASIYANC ✅
 </div>
 
-## tasiyanc — post 8805
+## tasiyanc — post 8826
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 معاون استاندار خوزستان:
-مناطقی در نزدیکی شهر شادگان در جنوب غربی ایران هدف حملات هوایی آمریکا قرار گرفته
-
-@TasiyanProxy
-</div>
-
-## tasiyanc — post 8803
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور 📶
+کانفیگ اختصاصی نامحدود اینجکتور📶
 
 مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
 
-سرور سرعتی‌ لوکیشن آلمان و اسپانیا 💥
+سرور سرعتی‌ لوکیشن ترکیه و ایتالیا 💥
 
 دانلود برای اندروید 🕹
 
@@ -153,137 +231,52 @@
 ✔️ @TASIYANC 💠
 </div>
 
-## tasiyanc — post 8802
-
-<div align="center"><video src="files/post_8802_tasiyanc_8802.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8802_tasiyanc_8802.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## tasiyanc — post 8823
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢ترامپ: آمریکا به‌زودی «ضربه بسیار سختی» به ایران خواهد زد.
-ایران شب گذشته پنج موشک شلیک کرده که همگی رهگیری شدن، حالا نوبت ماست.
-باید دید در نهایت توافقی حاصل میشه یا نه.
+🔴 ورود خودروهای آفرود به جنگل، کویر و ساحل‌های کشور ممنوع شد😞
 
-⭐ @TASIYANC ⭐️ | پروکسی متصل
+@Tasiyanc 🕒
 </div>
 
-## tasiyanc — post 8801
+## tasiyanc — post 8822
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-3 کانفیگ پر سرعت 😞
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%F0%9F%87%B9%F0%9F%87%B7%20%40Tasiyanc%20%E2%9A%A1
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpYRjBrbHc3ODcwdlhuM3VRSXhlMTlR@217.138.207.106:1080#FR%20%40Tasiyanc%20%E2%9A%A1%EF%B8%8F
-vless://7216b4e8-e935-4d68-b959-73d145accdee@154.222.9.240:443?security=reality&encryption=none&pbk=ISa-DZOI4LRRb9DHMFYm5oFqBXDjYzz0hVWUfWvzLmo&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=8d3293f0066e129a#DE%20%40Tasiyanc%20%E2%9A%A1
-
-Multi Location ⚡
-⭐ @TASIYANC ✅
+⚡𝙉𝙚𝙬 𝙎𝙥𝙚𝙚𝙙 ⚡.npvt
 </div>
 
-## tasiyanc — post 8799
+## tasiyanc — post 8821
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
+🔐🔐🔐
 
 
-اتصال امن برای همه 🇮🇷
+vless://146eb6cf-a99c-4022-85ca-022cf81502dc@195.74.93.254:443?security=reality&encryption=none&pbk=7ReQIe2kMtP4rCrptgH5glkOM-JGcSAPzHNxOED-Z0s&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=web.max.ru&sid=247fd6dab1a34a48#%E2%9A%A1%EF%B8%8FT.me%2F%2FTasiyanc%E2%9A%A1%EF%B8%8FTR
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@ronaldo15.fordnsdirect.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%E2%9A%A1%EF%B8%8FT.me%2F%2FTasiyanc%E2%9A%A1%EF%B8%8F%C4%B0T
+vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?security=reality&encryption=none&pbk=dNfk0sOCzOlmE61B7ur7YzU2i08RqXIBcGVBA2Ne1Ck&headerType=none&fp=chrome&spx=%2F&type=tcp&sni=www.oracle.com&sid=7548bc#%E2%9A%A1%EF%B8%8FT.me%2F%2FTasiyanc%E2%9A%A1%EF%B8%8FSW
 
-✔️ @TASIYANC ✅
+3 Server - Fast ⚡
+
+@TASIYANC ✅
 </div>
 
-## tasiyanc — post 8798
+## tasiyanc — post 8818
+
+<div align="center"><video src="files/post_8818_tasiyanc_8818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8818_tasiyanc_8818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹الجزیره: تعداد کشته و مجروح های حشدالشعبی تو حملات دیشب آمریکا و عربستان به 50نفر رسید 🚶‍♂
+⏺حکم اعدام بنیامین نقدی صادر شد.
+
+بنیامین از قهرمانان کیک بوکس بود و کلی مدال کشوری و جهانی داشت.
+
+⭐@TASIYANC ✅
 </div>
 
-## tasiyanc — post 8796
+## tasiyanc — post 8816
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تکمیلی 
-🔴12 تن از اعضای حشدالشعبی شب گذشته در جریان حمله‌ای مشترک آمریکا و عربستان سعودی در عراق کشته شدن 
-⭐ @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8795
-
-<div align="center"><video src="files/post_8795_tasiyanc_8795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8795_tasiyanc_8795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کارهای غیرممکنی که بروسلی تو عالم واقعیت انجام میداد 
-😞
-
-
-⭐ @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8794
-
-<div align="center"><img src="files/post_8794_tasiyanc_8794.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینجا نه نیویورکه نه دوبی نه ژاپن
-این نمای نزدیک از مادربرد یک کامپیوتره !
-
-⭐ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8793
-
-<div align="center"><img src="files/post_8793_tasiyanc_8793.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مقایسه بلند ترین قله کره زمین با بلند ترین قله کره مریخ !🙂
-قله اورست زمین با 8848 متر
-قله المپوس مریخ با 21222 متر
-
-⭐ @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8792
-
-<div align="center"><video src="files/post_8792_tasiyanc_8792.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8792_tasiyanc_8792.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید کاخ سفید با تصاویری از ترامپ و متن:
-
-« کار این جنگ رو یه‌سره کن »
-
-
-⭐ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8791
-
-<div align="center"><video src="files/post_8791_tasiyanc_8791.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8791_tasiyanc_8791.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این مجری بعد این برنامه کلا اخراج شد 😂
-ارزش دانلود ۱۰۰۰ از ۱۰
-
-داستان از این قراره کسایی ک مشکلات حنجره داشتن و معلول بودن دعوت بودن به برنامه
-
-⭐@TASIYANC 
-⭐️
+⚡𝙉𝙚𝙬 𝙎𝙥𝙚𝙚𝙙 ⚡.npvt
 </div>
 

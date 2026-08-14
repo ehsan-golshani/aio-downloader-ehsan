@@ -1,37 +1,110 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/23 11:36
+📅 آخرین بروزرسانی: 1405/05/23 14:07
 
 ---
 
-## tasiyanc — post 7653
+## tasiyanc — post 7691
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فستیوال این مادرقهبه ها تموم نشد؟
+کارلو آنجلوتی رید برزیل و حذف کرد
 </div>
 
-## tasiyanc — post 7652
+## tasiyanc — post 7689
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☕⚡Mocha Fast.npvt
+گللللللللللل برا نروژ 🔥 هالللللند
 </div>
 
-## tasiyanc — post 7651
+## tasiyanc — post 7688
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Canada 🇨🇦 & Morocco 🇲🇦 🏆
+کانفیگ های وایرگارد آپدیت شد ، با سرعت مناسب گیم و اینستاگرام 🔥🚀
 
-کی میبره
+فول سرعتی مناسب تمام اپراتورها
+
+
+👇 دریافت کانفیگ های وایرگارد 🔥
 </div>
 
-## tasiyanc — post 7645
+## tasiyanc — post 7686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سن دریافت گواهینامه رانندگی از ۱۸ سال به ۱۶ سال کاهش پیدا کرد.
+</div>
+
+## tasiyanc — post 7685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP 🎯 @Tasiyanc.nm
+</div>
+
+## tasiyanc — post 7682
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+3سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
+</div>
+
+## tasiyanc — post 7681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗘𝗰𝗵𝗼 𝗩𝗶𝗽 🔥⁰⁴.ehi
+</div>
+
+## tasiyanc — post 7680
+
+<div align="center"><img src="files/post_7680_tasiyanc_7680.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎥انیمیشن داستان اسباب بازی ها (Toy Story 5) 2026
+ژانر : انیمیشن ، خانوادگی ، کمدی
+مدت زمان 🕰: 102 دقیقه 
+کشور: 🇺🇸
+وودی، باز، جسی و دیگر اعضای گروه با چالشی تازه روبه‌رو می‌شوند؛ زمانی که با وسایل الکترونیکی آشنا می‌شوند، فناوری‌های جدیدی که به تهدیدی برای بازی و سرگرمی کودکان تبدیل شده‌اند و جایگاه آن‌ها را به خطر می‌اندازند.
+💘 برای دانلود دوبله فارسی کلیک کنید 💘
+💘 دانلود زبان اصلی 💘
+با ۴ کیفیت متفاوت😍
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️ 💘 دریافت کانفیگ👈 💘
+</div>
+
+## tasiyanc — post 7678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️
+
+💘 دریافت کانفیگ👈 💘
+</div>
+
+## tasiyanc — post 7674
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی İnjector  📶
 
-2 سرور حجم و کاربر نامحدود ⚡️
+4 سرور سرعتی حجم و کاربر نامحدود ⚡️
 
-تست شده روی همه نت ها 🛜🛜🛜
+تست شده روی همه نت ها 🛜🛜🛜🛜
 
 دانلود برنامه اندروید 🕹
 
@@ -39,124 +112,78 @@ Canada 🇨🇦 & Morocco 🇲🇦 🏆
 
 آموزش اتصال به اینجکتور ✨
 
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
 
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
+🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
+
+@Tasiyanc | اتصال امن ✅
 </div>
 
-## tasiyanc — post 7643
+## tasiyanc — post 7673
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید https://t.me/FreeConfigTsBot?start=facac4538f0c
+آخر اسم چنل کلمه VPN اضافه شد
 </div>
 
-## tasiyanc — post 7642
+## tasiyanc — post 7666
+
+<div align="center"><img src="files/post_7666_tasiyanc_7666.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید https://t.me/FreeConfigTsBot?start=facac4538f0c
+Fast ⚡ Unlimited.npvt
 </div>
 
-## tasiyanc — post 7641
+## tasiyanc — post 7665
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید
-https://t.me/FreeConfigTsBot?start=facac4538f0c
+صبحتون بخیر عشقا 😍
 </div>
 
-## tasiyanc — post 7640
+## tasiyanc — post 7664
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز کردم براتون🔥
-</div>
+کانفیگ حجم نامحدود نپسترنت 🔐
 
-## tasiyanc — post 7634
+4سرور سرعتی پرمیوم متد جدید 
+⚡️
 
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 کانفیگ اختصاصی نت مود 🚀
-
-سرور  سرعتی پرمیوم ⚡️
+تست شده روی همه نت ها 🛜🛜🛜🛜
 
 آموزش اتصال ⛓
 
-دانلود برنامه 🕹
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
 
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
+ 
+✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 
-## tasiyanc — post 7633
-
-<div align="center"><video src="files/post_7633_tasiyanc_7633.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7633_tasiyanc_7633.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+## tasiyanc — post 7660
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ فووری - خبرنگار کاخ سفید مرضیه حسینی
-
-خلبانی که تو ایران افتاده بود گفته ایران به پیشرفته ترین تکنولوژی پهپادی در جهان رسیده که فقط آمریکا و چین و روسیه دارنش و با همین تکنولوژی باعث سقوطش شدن!!!
-
-@Tasiyanc 💠
+از چنلای مردمی حمایت کنید ، بناموسم بخاطر خودم نمیگم ، ما مثل اینا جیره خور نبودیم همه چیو از جیب خودمون خرج کردیم نه کانفیگ گیگی یه میلیون فروختیم ، نه سکوت کردیم مثلاً امروز گروه تعطیل کنیم یا موقع قطعی فعالیت نکرده باشیم
 </div>
 
-## tasiyanc — post 7632
+## tasiyanc — post 7659
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهنمو ضرر ، رو برد کیپ ورد بستم
+خودتون خوبین قربونتون برم؟
 </div>
 
-## tasiyanc — post 7630
+## tasiyanc — post 7658
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شرکت ها و سایتهای معتبر جهت اسپانسری (همکاری) و حمایت از چنل با آیدی پشتیبانی در ارتباط باشید
-@StarTasiyan
+مدیتیشن تموم شد 😂
 </div>
 
-## tasiyanc — post 7629
+## tasiyanc — post 7655
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همتون اینجکتور & نت مود دانلود کردید بزارم کانفیگاشو دوباره؟
+عرزشی 🍑 🤬🍆
 </div>
 
-## tasiyanc — post 7627
+## tasiyanc — post 7654
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمام تیم مصر عزیز به مرحله بعدی رفت ، درود به شرف مصری‌ها و روان پاک انور سادات تنها رفیق شاهنشاه فقید
-</div>
-
-## tasiyanc — post 7626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این گل بشه تمومه
-</div>
-
-## tasiyanc — post 7625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللل
-</div>
-
-## tasiyanc — post 7624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد صلاح پشت توپ
-</div>
-
-## tasiyanc — post 7623
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تیم انور سادات فقید 2 , استرالیا 1
-</div>
-
-## tasiyanc — post 7622
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید برد تیم بزرگ مصر میراث انور سادات فقید رفیق واقعی ایرانیان
-</div>
-
-## tasiyanc — post 7621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تیم انور سادات بزرگ شاهنشاه فقید مصر و استرالیا رفت پنالتی
+زجه بزن عرزشی ، زجه زدنای شما منو ارضا میکنه
 </div>
 
