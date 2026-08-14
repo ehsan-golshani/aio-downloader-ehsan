@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 133
 
-📅 آخرین بروزرسانی: 1405/05/24 01:07
+📅 آخرین بروزرسانی: 1405/05/24 01:36
 
 ---
+
+## VahidOOnLine — post 251960
+
+<div align="center"><img src="files/post_251960_VahidOOnLine_251960.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، حسین (شاهان) علیزاده آذر، زندانی سیاسی، با اتهامات سنگینی مانند «توهین به رهبری»، «تبلیغ علیه نظام» و «سب‌النبی» به دلیل «توهین به آدم و حوا» روبه‌رو شده است.
+
+او دی سال گذشته نیز بازداشت و به «تبلیغ علیه نظام» متهم شده بود.
+
+این شهروند ۳۸ ساله و مهندس نقشه‌بردار، با قرار وثیقه آزاد شده بود اما بار دیگر در ۱۳ تیرماه مقابل منزل خود در اسلامشهر به دست نیروهای امنیتی بازداشت و به زندان تهران بزرگ منتقل شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251951
+
+<div align="center"><video src="files/post_251951_VahidOOnLine_251951.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251951_VahidOOnLine_251951.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مروری بر مهم‌ترین خبرهای جمعه ۲ مرداد ۱۴۰۵؛ بر اساس پوشش و گزارش رسانه‌های خبری بین‌المللی درباره ایران و منطقه.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251935
 
@@ -281,36 +309,6 @@ iranintl
 
 سپاه پاسداران از مردم این کشورها خواست محل‌های جدید استقرار نظامیان آمریکایی را از طریق حساب رسمی روابط عمومی این نهاد در تلگرام یا بخش «تماس با ما» در پایگاه اطلاع‌رسانی سپاه پاسداران اعلام کنند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251917
-
-<div align="center"><video src="files/post_251917_VahidOOnLine_251917.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251917_VahidOOnLine_251917.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با ادامه آتش‌سوزی‌های گسترده در جنوب غرب فرانسه، امانوئل مکرون، رییس‌جمهور این کشور، اعلام کرد از چند کشور اروپایی برای اعزام تجهیزات اطفای حریق درخواست کمک کرده است.
-
-ساجده شریفی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251916
-
-<div align="center"><video src="files/post_251916_VahidOOnLine_251916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251916_VahidOOnLine_251916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️عباس عراقچی و سرگئی لاوروف، وزیران خارجه جمهوری اسلامی ایران و روسیه، روز جمعه دوم مرداد ماه، در حاشیه نشست شورای وزیران سازمان همکاری شانگهای در قرقیزستان با یکدیگر دیدار کردند.
-خبرگزاری‌های رسمی ایران تصاویری از این دیدار منتشر کردند، اما جزئیاتی از محتوای گفتگوها منتشر نشد.
-لاوروف یک روز پیش از این دیدار، در حاشیه نشست وزیران خارجه اتحادیه کشورهای جنوب شرق آسیا (آسه‌آن) در مانیل فیلیپین با مارکو روبیو، وزیر خارجه آمریکا دیدار کرده بود.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

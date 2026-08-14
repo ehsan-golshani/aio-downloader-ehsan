@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/24 01:09
+📅 آخرین بروزرسانی: 1405/05/24 01:38
 
 ---
+
+## tasiyanc — post 8587
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 حمله به عربستان هم اکنوننننننن
+</div>
 
 ## tasiyanc — post 8580
 
@@ -248,50 +254,5 @@ Location 🤯 🇫🇷
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇹🇷🍃 HotFast.npvt
-</div>
-
-## tasiyanc — post 8540
-
-<div align="center"><video src="files/post_8540_tasiyanc_8540.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8540_tasiyanc_8540.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم  ترکیه - استانبول
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود 
-⬇️ ترید 
-🤑
-اینستاگرام 
-📸 جمینای 
-🤖
-
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

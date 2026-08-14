@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/24 01:07
+📅 آخرین بروزرسانی: 1405/05/24 01:36
 
 ---
+
+## VahidOOnLine — post 253358
+
+<div align="center"><video src="files/post_253358_VahidOOnLine_253358.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253358_VahidOOnLine_253358.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️هادی نیکی، شهروندخبرنگار، با انتشار ویدیویی مقایسه‌ای از وضعیت سد کرج (امیرکبیر)، تغییر چشمگیر حجم آب این سد را در مقایسه با مرداد سال گذشته به تصویر کشیده است.
+بر اساس اطلاعات منتشرشده، حجم ذخیره آب سد کرج اکنون به حدود ۱۶۵ میلیون مترمکعب رسیده و میزان پرشدگی مخزن به ۹۲ درصد ظرفیت رسیده است؛ رقمی که در مقایسه با مدت مشابه سال گذشته، ۱۷۹ درصد افزایش را نشان می‌دهد.
+در این ویدیو، تصاویر ثبت‌شده از مرداد سال گذشته در کنار تصاویر مرداد امسال قرار گرفته و افزایش محسوس تراز آب و گسترش سطح مخزن سد به‌وضوح قابل مشاهده است.
+سد کرج که یکی از مهم‌ترین منابع تامین آب شرب استان تهران و شهر کرج به شمار می‌رود، در سال‌های اخیر تحت تاثیر خشکسالی و کاهش بارندگی با افت قابل توجه ذخایر آبی مواجه شده بود. با این حال، بارش‌های مناسب در سال آبی جاری و افزایش روان‌آب‌ها موجب بهبود قابل توجه وضعیت این سد شده است.
+کارشناسان هواشناسی می‌گویند با توجه به در جریان بودن پدیده ال‌نینو، احتمال بارش‌های «بی‌سابقه» در پاییز در محدوده فلات ایران وجود دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253349
+
+<div align="center"><video src="files/post_253349_VahidOOnLine_253349.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253349_VahidOOnLine_253349.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مروری بر مهم‌ترین اخبار و تحولات جنگ در روز یکشنبه ۱۱ مرداد، از تحرکات نظامی تا تازه‌ترین مواضع سیاسی و دیپلماتیک.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253348
 
@@ -276,39 +306,6 @@
 
 بیشتر بخوانید...
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253330
-
-<div align="center"><video src="files/post_253330_VahidOOnLine_253330.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253330_VahidOOnLine_253330.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️مسجد کبود بلخ؛ از مزار شریف علی‌ابن ابی‌‌طالب تا راز «آرامگاه» زرتشت
-
-📌پادکست
-
-♦️مسجد کبود مزار شریف یکی از پررمزورازترین بناهای تاریخی جهان است. برخی از شیعیان آن را زیارتگاه امام علی می‌دانند و گروهی از تاریخ‌پژوهان این فرضیه را مطرح کرده‌اند که ممکن است یکی از مشهورترین زیارتگاه‌های جهان اسلام بر زمینی بنا شده باشد که روزگاری خاستگاه آیین زرتشتی یا از مراکز دینی و نیایشگاهی ایران پیش از اسلام بوده است.
-همچنین این احتمال را می‌دهند که رسم برافراشتن «ژنده شاهِ اولیا» در آغاز نوروز در مزار شریف، آیینی دیرین و به‌جامانده از سنت‌های باستانی بلخ است و بعدها با باورهای اسلامی و جشن بهار پیوند خورده است.
-
-لینک پخش
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253320
-
-<div align="center"><video src="files/post_253320_VahidOOnLine_253320.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253320_VahidOOnLine_253320.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در مجموعهٔ «زبان‌های در خطر ایران»، زبان‌های گوناگون در معرض فراموشی را بررسی می‌کنیم. این قسمت، روایتی است از زبان خوانساری، گنجینه‌ای زنده از تاریخ و فرهنگ ایران.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

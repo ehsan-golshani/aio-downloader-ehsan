@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/24 01:09
+📅 آخرین بروزرسانی: 1405/05/24 01:38
 
 ---
+
+## tasiyanc — post 6776
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ NEXUS 🪐.npvt
+</div>
 
 ## tasiyanc — post 6775
 
@@ -171,11 +177,5 @@ INFERNO ⚡ vip.npvt
   
 فعلاً رسانه‌ها درباره جزئیاتش حدس و گمان نزنن، وقتی کار نهایی شد، همه جزئیات رو به‌صورت رسمی به مردم اعلام می‌کنیم.
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6721
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[30] 🪐@Tasiyanc.conf
 </div>
 

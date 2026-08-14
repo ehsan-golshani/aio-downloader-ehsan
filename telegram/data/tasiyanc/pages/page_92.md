@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/05/24 01:09
+📅 آخرین بروزرسانی: 1405/05/24 01:38
 
 ---
+
+## tasiyanc — post 6366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ❤️
+</div>
 
 ## tasiyanc — post 6365
 
@@ -189,14 +195,6 @@ Join As @Tasiyanc ✅
 </div>
 
 ## tasiyanc — post 6345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST @Tasiyanc servers.txt
-</div>
-
-## tasiyanc — post 6344
-
-<div align="center"><img src="files/post_6344_tasiyanc_6344.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FAST @Tasiyanc servers.txt
