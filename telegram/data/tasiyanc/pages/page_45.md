@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/23 15:52
+📅 آخرین بروزرسانی: 1405/05/23 20:51
 
 ---
+
+## tasiyanc — post 8055
+
+<div align="center"><img src="files/post_8055_tasiyanc_8055.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پول خوشبختی نمیاره :
+
+بانو برونا روتا هستن دوس دختر (اکس) رودریگو بازیکن کصمشنگ رئال مادرید 😐
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8052
+
+<div align="center"><img src="files/post_8052_tasiyanc_8052.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 14 July، روز جهانی Nude یا همون لخت بودنه ❤️
+بفرست برا کسی که میخوای نود بگیری ازش 😂🦦
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8049
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیک نیوز چقد زیاد شده 😐
+خبر هارو از اینجا دنبال کنین ، تبلیغ نیست چنل خودمونه
+📶⭕️@TasiyanProxy
+⭕️📶@TasiyanProxy
+</div>
+
+## tasiyanc — post 8045
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8036
 
@@ -216,67 +273,6 @@
 🇮🇷
 
 @Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 7995
-
-<div align="center"><video src="files/post_7995_tasiyanc_7995.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7995_tasiyanc_7995.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختره نوشته: دوس پسرم برای چند ساعت رفت بیرون و منم تصمیم گرفتم سورپرایزش کنم.
-🚬
-
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 7993
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ تست شده 🔸
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7991
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
-
-
-برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
-
-
-دانلود Dark Tunnel  🕹
-
-
-آموزش اتصال به سرور دارک ⏩
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 13 July، روزِ جهانی دخترای قد کوتاهه 👼
-@TasiyanC 
 ⭐️
 </div>
 

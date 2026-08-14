@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/23 15:52
+📅 آخرین بروزرسانی: 1405/05/23 20:51
 
 ---
+
+## tasiyanc — post 8118
+
+<div align="center"><video src="files/post_8118_tasiyanc_8118.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8118_tasiyanc_8118.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ جی دی ونس:
+ـ اگه مردم ایران بخوان قیام کنن و حکومتشون رو عوض کنن، این مربوط به خودشونه.
+ـ ما قرار نیست ۱۵۰ هزار نیروی زمینی بفرستیم تا برای تغییر حکومت ایران بجنگن.
+ـ ما در هر صورت نیرو اعزام نمی‌کنیم.
+چون اگه چنین کاری بکنیم، یعنی ارتش آمریکا داره کار مردم ایران رو انجام می‌ده.
+ـ دیگه وارد چنین بازی‌هایی نمی‌شیم؛ اون دوران گذشته.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8117
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اهواز عزیز طاقت بیار ...
+</div>
+
+## tasiyanc — post 8116
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اهواز زیر دود بمباران 💔
+</div>
+
+## tasiyanc — post 8115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش جنوب ایران هم اندازه جنوب لبنان براتون مهم بود
+</div>
 
 ## tasiyanc — post 8114
 
@@ -192,36 +227,6 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دیس و دیس بک😂
 
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری بر اساس تصمیم ستاد عالی آزمون های وزارت آموزش و پرورش و با توجه به شرایط خاص کشور در استان های هرمزگان، بوشهر، خوزستان و سیستان_و_بلوچستان امتحانات نهایی تمامی رشته های تحصیلی پایه دوازدهم در روز پنجشنبه؛ مورخ 1405/04/25 و پایه یازدهم در روز شنبه، 1405/04/27 لغو و به زمان دیگری که متعاقباً اعلام خواهد شد، موکول می شود.
-
-@Tasiyanc ⭐️ | بانك کانفیگ
-</div>
-
-## tasiyanc — post 8090
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیروز که به یخچال نیاز داشتن، برق قطع نمیشد! به محض اینکه کارشون تموم شد، شروع کردن برقارو قطع کردن.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تتر 190 - ریدید تو زندگی ما
-</div>
-
-## tasiyanc — post 8088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ یک مقام ارشد آمریکایی : جمهوری اسلامی از توافق با آمریکا رسما خارج شد
 
 @Tasiyanc ⭐️
 </div>
