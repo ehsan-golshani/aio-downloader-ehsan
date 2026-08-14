@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/24 01:38
+📅 آخرین بروزرسانی: 1405/05/24 02:22
 
 ---
+
+## tasiyanc — post 8200
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨
+🚨 تمامی پرواز های ایران هم اکنون کنسل شد
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8199
 
@@ -158,16 +169,6 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 چند پل دیگه رو داره میزنه که به بندرعباس راه دارن
 وقتی این پل ها زده بشه هیچ چیزی نمیتونه بره بندرعباس
 طبق چیزایی که داره اتفاق میوفته احتمالاً آمریکا می‌خواد نیرو زمینی پیاده کنه!
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8170
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢طبق گزارش‌ها، اینترنت تو بعضی از نقاط کشور به شدت ضعیف شده
-
-وضعیت نت شما چطوره؟
 
 @Tasiyanc✅
 </div>

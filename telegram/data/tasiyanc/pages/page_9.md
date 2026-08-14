@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/24 01:38
+📅 آخرین بروزرسانی: 1405/05/24 02:22
 
 ---
+
+## tasiyanc — post 9096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت کاپلی VIP اختصاصی تاسیان 
+🆕 😎 عکس خودتون و پارتنرتون بدید به AI Prompt 🤖🤖 "Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim…
+</div>
 
 ## tasiyanc — post 9095
 
@@ -307,15 +314,5 @@ https://t.me/+5fvta-uF4QA3ZDY0
 «هرگونه حمله مسلحانه به هر یک از کشورها، از جمله ترکیه، عربستان سعودی و پاکستان، به عنوان یک حمله به همه آن‌ها تلقی می‌شود.»
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9075
-
-<div align="center"><img src="files/post_9075_tasiyanc_9075.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مردی در کشور ولز لباس عزرائیل میپوشید هر صبح می‌رفت روبروی بیمارستان به پنجره بیماران زل میزد ، توسط پلیس دستگیر شد 😞
-
-@TASIYANC ✅
 </div>
 

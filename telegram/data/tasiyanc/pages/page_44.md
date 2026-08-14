@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/05/24 01:38
+📅 آخرین بروزرسانی: 1405/05/24 02:22
 
 ---
+
+## tasiyanc — post 8103
+
+<div align="center"><img src="files/post_8103_tasiyanc_8103.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ابوالفضل ملایی، سربازی که فقط یک روز از خدمتش مونده بود و مادرش منتظر بود برگرده خونه، اما جنازه‌شو برای مادرش آوردن💔
+
+@Tasiyanc ⭐️| مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8102
 
@@ -231,11 +241,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 این لحظه باید وقت بذاری و با ذوق و شوق براشون تعریف کنی که چیشد ازشون خوشت اومد.
 صد بارم تعریف کنی بازم خوششون میاد، قشنگ جزئیات ظاهری و رفتاری رو کامل بگو که از چه چیزی‌شون خوشت اومد.
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8072
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گزارش‌های اولیه حاکی از آن است که نیروگاه «کیش» در استان هرمزگان ایران توسط یک موشک هدف قرار گرفت و تجهیزات آن آسیب دید. قطعی برق پیش‌بینی می‌شود. @TasiyanProxy✅
 </div>
 
