@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 183
 
-📅 آخرین بروزرسانی: 1405/05/24 02:20
+📅 آخرین بروزرسانی: 1405/05/24 02:38
 
 ---
+
+## VahidOOnLine — post 250802
+
+<div align="center"><video src="files/post_250802_VahidOOnLine_250802.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250802_VahidOOnLine_250802.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی در رسانه‌های اجتماعی منتشر شده است که در آن یک شهروند می‌گوید جریان آب شهری در بعضی مناطق شهریار از یک هفته پیش قطع شده است. این ویدیو نشان می‌دهد که مردم آب مورد نیاز خود را از تانکر شرکت آب‌وفاضلاب ستان تهران تامین و با دبه حمل می‌کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250801
 
@@ -292,20 +305,6 @@ iranintl
 
 مقام‌های استانی اعلام کرده‌اند عملیات ایجاد مسیرهای جایگزین و راه‌های کنارگذر برای برقراری تردد در حال انجام است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250782
-
-<div align="center"><img src="files/post_250782_VahidOOnLine_250782.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با حملات هوایی شامگاه جمعه آمریکا کلان‌شهر بندرعباس با وضعیت محاصره اقتصادی و نظامی مواجه شده است. شما شهروندان ساکن شهرهای استان‌های جنوبی ایران درباره اختلال در زندگی روزمره، محدودیت‌های تردد یا مشکلات در اشتغال به ما بگویید.
-
-مشاهدات و تجربیات خود را برای ما ارسال کنید. پیام‌های شما به صورت تلویزیونی و در شبکه‌های اجتماعی ایران اینترنشنال نمایش داده خواهد شد. پیام‌های خود را از طریق مدیابات به ایران اینترنشنال ارسال کنید. لینک مدیابات از طریق زیر قابل دسترس است:
-t.me
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

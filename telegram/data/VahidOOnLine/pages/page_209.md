@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 209
 
-📅 آخرین بروزرسانی: 1405/05/24 02:20
+📅 آخرین بروزرسانی: 1405/05/24 02:38
 
 ---
+
+## VahidOOnLine — post 250248
+
+<div align="center"><img src="files/post_250248_VahidOOnLine_250248.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️فرماندهی مرکزی ایالات متحده (سنتکام) روز چهارشنبه ۲۴ تیر، اعلام کرد که از زمان آغاز مجدد محاصره دریایی ایران در روز سه‌شنبه، دو کشتی تجاری را «تغییر مسیر» داده است.
+
+طبق بیانیه سنتکام، نیروهای ایالات متحده در ۱۷ ساعت گذشته از آغاز محاصره دریایی بنادر ایران، دو کشتی تجاری را که قصد داشتند از این محاصره عبور کنند، وادار به تغییر مسیر کرده‌اند. ارتش آمریکا تاکید کرده است که همچنان هوشیار بوده و برای تضمین رعایت کامل این محاصره آمادگی کامل دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250247
 
@@ -280,19 +293,6 @@ iranintl
 
 به گفته سنتکام این حملات به منظور تضعیف بیشتر قابلیت‌های نظامی نیروهای ایرانی برای حمله به کشتی‌های تجاری در تنگه هرمز طراحی شده‌اند.
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250227
-
-<div align="center"><video src="files/post_250227_VahidOOnLine_250227.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250227_VahidOOnLine_250227.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدجواد اکبرین، عضو تحریریه ایران‌اینترنشنال، در واکنش به پیام‌های سپاه خطاب به مردم اردن و کویت، که از آن‌ها خواسته موسسات آمریکایی را در کشورشان تخریب کنند، گفت این اقدام را روح‌الله خمینی نیز انجام می‌داد و به گفته برخی، این رفتار در آغاز جنگ با عراق تاثیر داشت.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

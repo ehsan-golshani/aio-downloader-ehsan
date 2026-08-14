@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 282
 
-📅 آخرین بروزرسانی: 1405/05/24 02:20
+📅 آخرین بروزرسانی: 1405/05/24 02:38
 
 ---
+
+## VahidOOnLine — post 248503
+
+<div align="center"><img src="files/post_248503_VahidOOnLine_248503.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خیرت ویلدرس، رهبر حزب آزادی و نماینده پارلمان هلند، در پیامی در شبکه اجتماعی ایکس نوشت که نباید برای علی خامنه‌ای سوگواری کرد و او را «هیولا، قصاب و قاتل» خواند.
+ویلدرز در ادامه این پیام نوشت: «مردم ایران شایسته سکولاریسم و آزادی هستند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248502
 
@@ -283,21 +295,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان ساکن نیوزیلند در شهرهای اوکلند و وِلینگتون تجمع کرده و در برابر سفارتخانه آمریکا مخالفت خود با هرگونه توافق با جمهوری اسلامی را فریاد زدند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248473
-
-<div align="center"><video src="files/post_248473_VahidOOnLine_248473.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248473_VahidOOnLine_248473.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده جمعه‌شب، در سخنرانی مراسم ۲۵۰ سالگی استقلال آمریکا گفت هویت آمریکایی بار دیگر هدف حمله قرار گرفته است و از «رادیکال‌ها و افراطی‌های داخلی» انتقاد کرد.
-ترامپ در سخنرانی خود در کوه راشمور در داکوتای جنوبی گفت: «در حالی به این سالگرد باشکوه نزدیک می‌شویم که می‌بینیم هویت آمریکایی ما بار دیگر هدف حمله قرار گرفته است.»
-او همچنین گفت: «یک نسل پس از آنکه در جنگ سرد بر تهدید کمونیسم غلبه کردیم، اکنون شاهد بازگشت تهدید کمونیسم در کشورمان هستیم.»
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 325
 
-📅 آخرین بروزرسانی: 1405/05/24 02:20
+📅 آخرین بروزرسانی: 1405/05/24 02:38
 
 ---
+
+## VahidOOnLine — post 247540
+
+<div align="center"><img src="files/post_247540_VahidOOnLine_247540.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️رامین رضاییان در دقیقه ۱۴ بازی توانست با باز کردن دروازه مصر، نتیجه بازی را ۱-۱ مساوی کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247539
 
@@ -252,19 +263,6 @@
 
 او تاکید کرد توافق‌نامه‌ «آغاز راهی برای ثمربخشیدن فداکاری‌های» مردم است، تا بتوانند به سرزمین آزاد شده‌ خود بازگردند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247513
-
-<div align="center"><video src="files/post_247513_VahidOOnLine_247513.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247513_VahidOOnLine_247513.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️طرفداران حزب‌الله، جمعه‌شب، در پی امضای «توافق‌نامه سه‌جانبه» لبنان با اسرائیل و ایالات متحده، پایتخت لبنان را به ناآرامی و آشوب کشاندند. براساس گزارش‌های منتشر شده از بیروت، طرفداران حزب‌الله با حضور در خیابان‌ها، آتش زدن لاستیک‌ها و مسدود کردن راه‌ها، خشم خود را نسبت به این اقدام مقامات لبنانی ابراز کرده‌اند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

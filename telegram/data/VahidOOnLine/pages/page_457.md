@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 457
 
-📅 آخرین بروزرسانی: 1405/05/24 02:20
+📅 آخرین بروزرسانی: 1405/05/24 02:38
 
 ---
+
+## VahidOOnLine — post 243894
+
+<div align="center"><img src="files/post_243894_VahidOOnLine_243894.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری دولتی کویت اعلام کرد پدافند هوایی این کشور در حال رهگیری حمله‌های موشکی و پهپادی است.
+جمهوری اسلامی چهارشنبه نیز حملات موشکی و پهپادی مرگباری علیه کویت انجام داد که در نتیجه آن یک نفر کشته و ۶۳ نفر مجروح شدند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243893
 
@@ -229,19 +242,6 @@ https
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کریس رایت، وزیر انرژی آمریکا، روز جمعه گفت افزایش جریان نفت از طریق تنگه هرمز برای کمک به کاهش قیمت بنزین و گازوییل، در نهایت مستلزم حل‌وفصل مسائل با جمهوری اسلامی خواهد بود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243864
-
-<div align="center"><img src="files/post_243864_VahidOOnLine_243864.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ جمعه در یک سخنرانی در ویسکانسین گفت که مسئله مرتبط با برنامه هسته‌ای ایران «تا حد زیادی پایان یافته» است و افزود این موضوع «به هر شکلی حل خواهد شد.»
-او گفت: «ما تا حد زیادی آن را تمام کرده‌ایم، خواهید دید، و به هر شکلی تمام شده است. یا با یک تکه کاغذ، یا به شکلی دشوارتر.»
-
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

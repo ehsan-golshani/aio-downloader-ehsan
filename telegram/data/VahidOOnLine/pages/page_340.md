@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 340
 
-📅 آخرین بروزرسانی: 1405/05/24 02:20
+📅 آخرین بروزرسانی: 1405/05/24 02:38
 
 ---
+
+## VahidOOnLine — post 247199
+
+<div align="center"><video src="files/post_247199_VahidOOnLine_247199.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247199_VahidOOnLine_247199.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده نشان می‌دهد مراسم زادروز جاویدنام محمدمعین محمدیوسفی بر سر مزار او برگزار شده است.
+محمدیوسفی، ۱۸ دی‌ در جریان اعتراضات محله نازی‌آباد تهران با شلیک ماموران کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247198
 
@@ -276,17 +290,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️رئیس‌جمهوری ایالات متحده پیش از عزیمت به سنا، در اظهاراتی کوتاه به خبرنگاران گفت: «ما با اختلاف زیادی در حال پیروز شدن هستیم و ایران در حال دادن امتیازات بسیار بزرگی است.» او که برای دیداری «پشت درهای بسته» با نمایندگان جمهوری‌خواه به ساختمان مجلس رفته بود، بدون ارائه جزئیات بیشتر در این باره، افزود که شرایط «بسیار، بسیار خوب» پیش می‌رود و از ارائه توضیحات تکمیلی خودداری کرد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247179
-
-<div align="center"><img src="files/post_247179_VahidOOnLine_247179.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، در واکنش به اظهارات روز سه‌شنبه مارکو روبیو مبنی بر اینکه پایان درگیری‌ها بدون توقف حملات نیروهای نیابتی جمهوری اسلامی ممکن نیست، در شبکه ایکس نوشت: «تا زمانی که نظامی‌گری و مداخله‌جویی آمریکا و اسرائیل ادامه داشته باشد، منطقه روی صلح نخواهد دید.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
