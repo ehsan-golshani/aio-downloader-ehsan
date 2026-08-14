@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 318
 
-📅 آخرین بروزرسانی: 1405/05/24 02:38
+📅 آخرین بروزرسانی: 1405/05/24 03:16
 
 ---
+
+## VahidOOnLine — post 247698
+
+<div align="center"><video src="files/post_247698_VahidOOnLine_247698.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247698_VahidOOnLine_247698.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از دانشجویان ارشد و دکتری، یکشنبه هفتم تیرماه در اعتراض به حضوری بودن امتحانات مقابل سازمان مرکزی دانشگاه آزاد در تهران تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247697
+
+<div align="center"><img src="files/post_247697_VahidOOnLine_247697.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تورج سرباز، عضو هیئت مدیره اتحادیه مشاوران املاک، در گفتگو با مهر اعلام کرد قیمت مسکن از پیش از جنگ تاکنون حدود ۸۰ درصد افزایش یافته و مستأجران در این شرایط بیشترین فشار را متحمل شده‌اند. او تعیین سقف ۲۵ درصدی افزایش اجاره‌بها را تصمیمی منطقی برای حمایت از مستأجران و کاهش فشار بر این قشر دانست.
+
+سرباز گفت بر اساس مصوبه دولت، قرارداد اجاره مستأجرانی که موعد پایان قراردادشان فرا رسیده است، بدون نیاز به تنظیم قرارداد جدید برای یک سال تمدید می‌شود. در این تمدید، مبلغ ودیعه و اجاره‌بهای ماهانه حداکثر تا سقف ۲۵ درصد افزایش می‌یابد و مستأجران می‌توانند با همین شرایط در واحد مسکونی خود بمانند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247696
+
+<div align="center"><video src="files/post_247696_VahidOOnLine_247696.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247696_VahidOOnLine_247696.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم فرانسه شنبه ششم تیرماه در بوردو تجمع کردند و یاد جاویدنامان انقلاب ملی را گرامی داشتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247695
 
@@ -231,49 +270,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از ایرانیان در مونترال کانادا، شنبه ششم تیرماه تجمع برگزار کردند و فریاد «مرگ بر جمهوری اسلامی» سردادند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247678
-
-<div align="center"><video src="files/post_247678_VahidOOnLine_247678.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247678_VahidOOnLine_247678.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ارتش اسرائیل اعلام کرد در عملیاتی در جنوب لبنان، تعدادی از نیروهای مسلح حزب‌الله را که به سلاح آرپی‌جی مجهز بودند، هدف قرار داده و کشته است. به گفته ارتش اسرائیل، این عملیات با هدایت نیروهای یگان ویژه «اگوز» تحت فرماندهی لشکر ۳۶ و با مشارکت نیروی هوایی انجام شده است.
-بر اساس بیانیه ارتش اسرائیل، نیروهای حزب‌الله در نزدیکی محل استقرار نیروهای اسرائیلی فعالیت می‌کردند و از نگاه ارتش اسرائیل، تهدیدی برای نیروهای این کشور به شمار می‌رفتند. ارتش اسرائیل همچنین اعلام کرد علاوه بر هدف قرار دادن این افراد، ساختمانی را که این نیروها از آنجا فعالیت می‌کردند نیز بمباران کرده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247677
-
-<div align="center"><video src="files/post_247677_VahidOOnLine_247677.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247677_VahidOOnLine_247677.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم اسپانیا شنبه ششم تیرماه در مادرید تجمع کردند و علیه جمهوری اسلامی شعار دادند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247676
-
-<div align="center"><img src="files/post_247676_VahidOOnLine_247676.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روزنامه شرق در گزارشی نوشت علی معماری، رییس اداره محیط زیست بهبهان، از جان باختن تقی چنگلوایی از داوطلبان مردمی، حین خاموش کردن آتش‌سوزی منطقه شکار ممنوع بدیل خبر داد و گفت این فرد بر اثر سوختگی شدید جان خود را از دست داد. او همچنین آتش‌سوزی این منطقه را «عمدی» دانست.
-معماری اضافه کرد آتش‌سوزی که از شامگاه جمعه پنجم تیر در شمال بهبهان آغاز شده، همچنان ادامه دارد.
-
-او گفت: چنگلوایی، از اهالی روستای اسدآباد، هنگام مشارکت در عملیات اطفای حریق بر اثر تغییر جهت باد در میان آتش گرفتار شد و به دلیل سوختگی شدید در بیمارستان جان باخت.
-
-معماری با بیان اینکه هنوز وسعت منطقه دچار حریق برآورد نشده، گفت خط آتش حدود ۹ کیلومتر است، اما به دلیل پراکندگی کانون‌های آتش، تعیین مساحت منطقه سوخته به بررسی‌های بیشتر نیاز دارد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
