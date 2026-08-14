@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/23 01:36
+📅 آخرین بروزرسانی: 1405/05/23 06:13
 
 ---
+
+## tasiyanc — post 9169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 11 آگوست روز جهانی کراش زدنه 😭
+
+رو هرکی کراشید برید بگید بهش
+
+@Tasiyanc 
+☑️
+</div>
 
 ## tasiyanc — post 9168
 
@@ -311,11 +322,5 @@ ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.167:443#%40Tasiyanc
 💻 betinja.bet
 🌐 کانال بونوس های رایگان r19
 @betinjabet
-</div>
-
-## tasiyanc — post 9146
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال شکن 🌱.npvt
 </div>
 
