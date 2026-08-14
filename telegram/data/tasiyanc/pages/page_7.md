@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/23 06:13
+📅 آخرین بروزرسانی: 1405/05/23 09:46
 
 ---
+
+## tasiyanc — post 9104
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری سپاه پاسداران:
+بازگشایی تنگه هرمز منوط به پذیرش کامل شرایط ما از سوی ایالات متحده است.
+بازگشایی تنگه هرمز تابع سازوکارها و شرایط تعیین‌شده توسط جمهوری اسلامی ایران است و ارتباطی با مذاکرات ایران و عمان ندارد.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9103
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
+</div>
+
+## tasiyanc — post 9102
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴قوه قضاییه : آیت‌الله خرازی به دلیل حرف های کذب و دروغش تحت تعقیب قرار گرفت و براش تشکیل پرونده دادیم.
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9099
 
@@ -252,53 +275,5 @@ Prompt
 
 📱 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مارک لوین:
-
-اگر قرار باشه رژیم ایران شکست بخوره، باید مردم ایران مسلح بشن.
-
-به‌جای توافق با جمهوری اسلامی، باید از مردم ایران برای سرنگونی حکومت حمایت بشه.
-
-@TASIYANC 
-⭐️
-</div>
-
-## tasiyanc — post 9079
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود با استراتژی بدست میاد نه ادعا 
-👌
-
-
-امروز پاریس
-⚡️ و منچستر یونایتد 
-⚡️بازی دارن بیا استراتژی مو ببین و یاد بگیر
-
-
-⚠️مخصوص کسایی که بالا ۵۰میلیون سرمایه دارن
-g16
-https://t.me/+5fvta-uF4QA3ZDY0
-https://t.me/+5fvta-uF4QA3ZDY0
-</div>
-
-## tasiyanc — post 9078
-
-<div align="center"><img src="files/post_9078_tasiyanc_9078.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 شب و 6 برد پشت هم 
-✅
-
-من به پول هیچکدومتون نیاز ندارم و قرار نیست چیزی بهتون بفروشم
-
-آماری رو رقم زدم که حتی تازه وارد هم میفهمه این آمار کار هرکس نیست
-🚀
-g16
-https://t.me/+5fvta-uF4QA3ZDY0
-https://t.me/+5fvta-uF4QA3ZDY0
 </div>
 

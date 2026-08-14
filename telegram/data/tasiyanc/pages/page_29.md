@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/23 06:13
+📅 آخرین بروزرسانی: 1405/05/23 09:46
 
 ---
+
+## tasiyanc — post 8470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ اورمیه و چابهار صدای انفجارررر
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8469
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ سنتکام : حملات ما به ایران آغاز شد
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8468
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش از انفجار در منطقه سردرود تبریز
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8467
 
@@ -138,23 +163,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اوه اوه اسپانیا از کون اورد
-</div>
-
-## tasiyanc — post 8450
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه گل صحیح اسپانیا هم آفساید گرفته شد
-</div>
-
-## tasiyanc — post 8449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی بعدی فینال ایران و امریکا
-</div>
-
-## tasiyanc — post 8448
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل شد ولی افساید
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/23 06:13
+📅 آخرین بروزرسانی: 1405/05/23 09:46
 
 ---
+
+## tasiyanc — post 8789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴انتقال اجساد حشدالشعبی @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8788
+
+<div align="center"><img src="files/post_8788_tasiyanc_8788.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیشب یه پراید هاچبک تو تهران بخاطر اینکه سیستم صوتیش رو اصولی نصب نکرده بود، به محض اینکه رانندش ولوم آهنگ رو تا آخر بالا برد منفجر شد :
+
+⭐ @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان امنیت روسیه: پاول دوروف، بنیانگذار تلگرام، در فهرست افراد تحت تعقیب بین‌المللی قرار گرفت!!
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8786
 
@@ -195,45 +222,5 @@
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️اکثر سایت‌ها یا آپشن‌هایی مثل «آفساید» و «مالکیت» رو ندارن، یا وقتی مبلغ سنگین میشه، موقع برداشت هزارتا بهونه میارن. ​ما بالاخره دو مقصد رو پیدا کردیم که «امنیت» و «تنوع» رو همزمان دارن
-
-🔘 @WePariFarsi
-
-🔘 @DerbyBetOfficial
-</div>
-
-## tasiyanc — post 8761
-
-<div align="center"><img src="files/post_8761_tasiyanc_8761.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️هنوز داری روی برنده-بازنده شرط می‌بندی؟
-
-📌​اگه حرفه‌ای هستی، میدونی که سود اصلی تو «گزینه‌های خاص» خوابیده؛ نه نتیجه بازی!
-
-
-​✔️ برای دوستانی که با کریپتو شارژ میکنند (وی‌پاری):
-بدون محدودیت سقف برداشت، با ضریب‌های واقعی و آپشن‌های ریزِ بازی و شرطبندی های میلیاردی.
-🔘 [Wepari.com]
-
-
-​✔️ برای طرفداران کارت‌به‌کارت و واریز ریالی
-🔘 (DERBYBET.Com):
-سریع‌ترین واریز ریالی با محیط کاربری امن برای شرط‌های سنگین و آپشن های فراوان.g6
-</div>
-
-## tasiyanc — post 8760
-
-<div align="center"><img src="files/post_8760_tasiyanc_8760.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پژمان بهروزی، شرکت کننده برنامه ایدز ابدی، اومده تو برنامه خط قرمز صداوسیما برا ایرانیا از وطن پرستی بگه
-
-@TASIYANC ⭐️
 </div>
 
