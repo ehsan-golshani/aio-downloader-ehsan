@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/23 11:34
+📅 آخرین بروزرسانی: 1405/05/23 12:50
 
 ---
+
+## ProxyMTProto — post 50056
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ardesvpn1.ru
+Port: 8443
+Secret: ee05cf8e164f926f4a664b2404d276a1d6617264657376706e312e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50054
 
@@ -163,24 +181,6 @@ Secret: ee4e9fcd5caf6e9be2f8ec43e370e902d6766b2e636f6d
 Server: chai.mikham.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50036
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp.webvirt.cloud
-Port: 443
-Secret: ee938dd87467bc49301de2e9765cf20f4374656c2e776562766972742e636c6f7564
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 
