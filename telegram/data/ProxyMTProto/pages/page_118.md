@@ -1,8 +1,22 @@
 # آرشیو کانال ProxyMTProto - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/05/23 14:05
+📅 آخرین بروزرسانی: 1405/05/23 14:59
 
 ---
+
+## ProxyMTProto — post 47768
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ Выделенный VPN или MTProxy?
+
+Заберите свой первый со скидкой 25% 🎁
+
+Промокод:
+PROXYMTPROTO
+
+💳 Кошелёк → 🎁 Применить промокод ⬇️
+@BlyatNetBot @BlyatNetBot
+</div>
 
 ## ProxyMTProto — post 47767
 
@@ -175,15 +189,6 @@ We're constantly adding new proxies and currently providing them for free 🔥
 Server: alpinavpn.hatecens.cc
 Port: 7443
 Secret: ee27a9fe4d55c1a9dabfcb2b872b00b6e6616c70696e6176706e2e6861746563656e732e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47748
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: dd79e7010200010007f0030386e24c3add
 @ProxyMTProto
 </div>
 

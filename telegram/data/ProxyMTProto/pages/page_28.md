@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/23 14:05
+📅 آخرین بروزرسانی: 1405/05/23 14:59
 
 ---
+
+## ProxyMTProto — post 49577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cloud.neoqua.pro
+Port: 443
+Secret: ee3fa2666ad08eb559375e0772a379be32636c6f75642e6e656f7175612e70726f
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49576
 
@@ -165,15 +174,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: ardesvpn1.ru
 Port: 8443
 Secret: ee05cf8e164f926f4a664b2404d276a1d6617264657376706e312e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49557
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 135.181.74.178
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 
