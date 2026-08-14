@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/05/23 09:46
+📅 آخرین بروزرسانی: 1405/05/23 11:36
 
 ---
+
+## tasiyanc — post 7718
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقایقی بعد آغاز بازی , چند چند میشه؟
+
+Egypt 🇪🇬 🇦🇷 Argentina
+</div>
 
 ## tasiyanc — post 7717
 
@@ -193,11 +201,5 @@ Password @Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ های وایرگارد آپدیت شد ، با سرعت مناسب گیم و اینستاگرام 🔥🚀 فول سرعتی مناسب تمام اپراتورها 👇 دریافت کانفیگ های وایرگارد 🔥
-</div>
-
-## tasiyanc — post 7691
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کارلو آنجلوتی رید برزیل و حذف کرد
 </div>
 

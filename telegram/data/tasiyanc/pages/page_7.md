@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/23 09:46
+📅 آخرین بروزرسانی: 1405/05/23 11:36
 
 ---
+
+## tasiyanc — post 9105
+
+<div align="center"><img src="files/post_9105_tasiyanc_9105.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خورخه مسی، پدر لیونل مسی درگذشت
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9104
 
@@ -241,39 +251,6 @@ Prompt
 🤴 دین زرتشت یکی از کهن‌ترین آیین‌های توحیدی جهان است که در ایران باستان ظهور کرد و پایه‌گذار آن «اشوزرتشت» پیامبر بزرگ ایرانی بود و اصول بنیاد آن پرستش خدای یکتا ( اهورا مزدا) بود ، ایرانیان ۳۵۰۰ سال پیش با پیروی از دین زرتشت از اولین یکتا پرستان جهان بودند !!
 
 @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9081
-
-<div align="center"><video src="files/post_9081_tasiyanc_9081.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9081_tasiyanc_9081.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕کانفیگ اختصاصی نامحدود اینجکتور
-📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی 
-⚡️
-
-سرور سرعتی‌ لوکیشن USA - Germany 
-📍
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون  
-📱
-
-آموزش اتصال 
-🔸
-
-اتصال امن برای همه 
-🇮🇷
-
-
-📱 @TASIYANC 
 ✅
 </div>
 

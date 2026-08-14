@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/23 09:46
+📅 آخرین بروزرسانی: 1405/05/23 11:36
 
 ---
+
+## tasiyanc — post 8206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
+</div>
 
 ## tasiyanc — post 8205
 
@@ -157,17 +163,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
-</div>
-
-## tasiyanc — post 8184
-
-<div align="center"><img src="files/post_8184_tasiyanc_8184.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨تصویر تخریب پل کهورستان در بندر خمیر
-
-@Tasiyanc 
-⭐️
 </div>
 

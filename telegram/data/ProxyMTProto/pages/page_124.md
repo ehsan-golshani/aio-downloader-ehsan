@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/23 09:44
+📅 آخرین بروزرسانی: 1405/05/23 11:34
 
 ---
+
+## ProxyMTProto — post 47642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tproxy.monster
+Port: 2053
+Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47641
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌍 Staying connected to Telegram is getting harder in many regions, our proxies are actively working in Russia, Iran, and Iraq ⚡
+
+Подключайтесь и оставайтесь онлайн
+جوین شید و متصل بمونید 👇
+</div>
+
+## ProxyMTProto — post 47640
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: otklyuchi-vpn.nolags.pw
+Port: 443
+Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47639
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: For Iran
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47638
 
@@ -148,45 +184,6 @@ Secret: ee43db025a33093757dadf5ab0aa9966b1676f6f676c65617069732e636f6d
 Server: 72.56.87.28
 Port: 443
 Secret: 7sEXmKsAiDG0dAZsnh6_XHZhdml0by5ydQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47622
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 186.246.21.40
-Port: 443
-Secret: eec11798ab008831b474066c9e1ebf5c74617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ Рабочие прокси сейчас быстро отключаются из-за новых ограничений
-
-Если Telegram снова плохо грузит — лучше подключиться заранее 👀
-
-Мы постоянно добавляем новые прокси и пока раздаём их бесплатно 🔥
-
-⬇️ Запусти бота и получи рабочий прокси прямо сейчас
-</div>
-
-## ProxyMTProto — post 47620
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r6.proxytg.space
-Port: 8443
-Secret: eea66a6c939a8f1a0596bd06f17dae253772362e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47619
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tproxy.ink
-Port: 443
-Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
 @ProxyMTProto
 </div>
 

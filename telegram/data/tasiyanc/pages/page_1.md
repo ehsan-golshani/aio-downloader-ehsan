@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/23 09:46
+📅 آخرین بروزرسانی: 1405/05/23 11:36
 
 ---
+
+## tasiyanc — post 9259
+
+<div align="center"><a href="files/post_9259_@Tasiyanc-3.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc-3.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+در صورت ارور چند بار بزنید
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9258
 
@@ -27,8 +44,6 @@
 <div align="center"><video src="files/post_9257_tasiyanc_9257.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_9257_tasiyanc_9257.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_9257_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
@@ -288,17 +303,5 @@ https://t.me/+MT03hkV78q9kMTc0
 ⭕️⭕️ اینترنشنال : ترامپ اطلاعات کلی مهاجر ایرانیو داده به مقامات جمهوری اسلامی
 
 @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9232
-
-<div align="center"><img src="files/post_9232_tasiyanc_9232.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ رفته تماشای بازی‌های پاتریوتس؛ بازیکنا هم دخترای نوجوان بودند.
-جالبه ترامپی که همه‌جا چرت می‌زنه، این بار چند ساعت کامل بیدار و متمرکز مونده!🤣
-
-
-@Tasiyanc ⭐️
 </div>
 

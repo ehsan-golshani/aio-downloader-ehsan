@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/23 09:46
+📅 آخرین بروزرسانی: 1405/05/23 11:36
 
 ---
+
+## tasiyanc — post 8512
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان.
+
+مشاهده فیلم 👉
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8511
 
@@ -243,15 +254,6 @@ Loc 🇩🇪 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨⭕️ صدای انفجار در خرم آباد
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8471
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️صدای انفجار مهیب در کنارك
 
 @TASIYANC 
 ✅

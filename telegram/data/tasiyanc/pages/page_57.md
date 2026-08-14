@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/05/23 09:46
+📅 آخرین بروزرسانی: 1405/05/23 11:36
 
 ---
+
+## tasiyanc — post 7487
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطور بود فیلما؟
+</div>
 
 ## tasiyanc — post 7486
 
@@ -172,11 +178,5 @@ ESPRESSO 🔥☕.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ تیم فوتبال جمهوری اسلامی از دور مسابقات کنار رفت و از صعود به مرحله بعد جام جهانی جا ماند
-</div>
-
-## tasiyanc — post 7453
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساعت 3 بازی پرتغال و کلمبیا ...
 </div>
 

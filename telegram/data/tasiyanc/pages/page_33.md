@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/23 09:46
+📅 آخرین بروزرسانی: 1405/05/23 11:36
 
 ---
+
+## tasiyanc — post 8372
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 
+🔐
+
+5سرور سرعتی پرمیوم دارای ۳ لوکیشن  ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8371
 
@@ -208,27 +233,6 @@ Multi Location ⚡ Fast.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 معلم جلوی پروژکتور معلم کنار پروژکتور
 
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8341
-
-<div align="center"><img src="files/post_8341_tasiyanc_8341.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴10 فیلم معروفی که پایان‌بندی‌شون غافلگیرتون می‌کنه و پشماتون از دیدنشون میریزه:
-
-▪️The Sixth Sense 1999
-▫️Se7en 1995
-▪️Fight Club 1999
-▫️The Prestige 2006
-▪️Shutter Island 2010
-▫️The Usual Suspects 1995
-▪️ Oldboy 2003
-▫️Primal Fear 1996
-▪️The Mist 2007
-▫️Incendies 2010
 
 @Tasiyanc✅
 </div>
