@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/23 00:33
+📅 آخرین بروزرسانی: 1405/05/23 08:11
 
 ---
+
+## ProxyMTProto — post 48035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wb.proxyonline.online
+Port: 8443
+Secret: eee8f530985fe58c2518873a7899fd690b77622e70726f78796f6e6c696e652e6f6e6c696e65
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48034
 
@@ -172,15 +181,6 @@ Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ%3D%3D
 Server: apex.proxyux.site
 Port: 443
 Secret: ee1e16392ec634c2ebce9387a9edcf24e3617065782e70726f787975782e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy8.arixo.shop
-Port: 443
-Secret: eeb244bd047b4e9e68340bf827ab7bd9b1617669746f2e7275
 @ProxyMTProto
 </div>
 
