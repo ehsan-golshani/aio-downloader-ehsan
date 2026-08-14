@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/23 20:49
+📅 آخرین بروزرسانی: 1405/05/23 21:45
 
 ---
+
+## ProxyMTProto — post 48222
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 93.77.183.14
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48221
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: go.antitspu.com
+Port: 443
+Secret: ee0d12d8f206a08b06eced9a104734a824676f2e616e7469747370752e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48220
 
@@ -163,24 +181,6 @@ Secret: ee6d6963726f736f66742e636f6dd95c
 Server: moh.kingproxynewdomailasiatech.ink
 Port: 25565
 Secret: FgMBAgABAAH8AxOG4kw63Q
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 150.241.65.151
-Port: 443
-Secret: ee6d6963726f736f66742e636f6d2e03
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: b8rta.co.uk.
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 
