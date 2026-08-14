@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/23 14:07
+📅 آخرین بروزرسانی: 1405/05/23 15:52
 
 ---
+
+## tasiyanc — post 8207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ آمریکا رفته سراغ پل های ارتباطی بوشهر - تایید نشده
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8206
 
@@ -157,11 +165,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حملات امشب بی سابقه اس
-</div>
-
-## tasiyanc — post 8185
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
 </div>
 

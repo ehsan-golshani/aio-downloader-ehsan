@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/23 14:07
+📅 آخرین بروزرسانی: 1405/05/23 15:52
 
 ---
+
+## tasiyanc — post 8430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تموم شد بریم بازی کسشر رو ببینیم
+</div>
 
 ## tasiyanc — post 8429
 
@@ -158,11 +164,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 Ip 🇩🇪 🇩🇪
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂 دریافت رسانه 👉
 </div>
 

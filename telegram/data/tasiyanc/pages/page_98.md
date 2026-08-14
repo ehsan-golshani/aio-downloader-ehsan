@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/05/23 14:07
+📅 آخرین بروزرسانی: 1405/05/23 15:52
 
 ---
+
+## tasiyanc — post 6204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6203
 
@@ -185,13 +194,6 @@ GANG 🇳🇱🇬🇧🚀 (1).npvt
 دانلود  Wg tunnel 🕹
 دانلود iOS 📱
 آموزش⏩
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تست شده با ایرانسل & سامانتل   ♻️
 @Tasiyanc ✅
 </div>
 

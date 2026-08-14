@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/23 14:07
+📅 آخرین بروزرسانی: 1405/05/23 15:52
 
 ---
+
+## tasiyanc — post 8114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴حملات شدید آمریکا به اهواز عزیز
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8113
 
@@ -214,14 +222,6 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ یک مقام ارشد آمریکایی : جمهوری اسلامی از توافق با آمریکا رسما خارج شد
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💢 فوری صنایع الکترونیک شیراز زدن
 
 @Tasiyanc ⭐️
 </div>

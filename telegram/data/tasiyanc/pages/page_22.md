@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/23 14:07
+📅 آخرین بروزرسانی: 1405/05/23 15:52
 
 ---
+
+## tasiyanc — post 8740
+
+<div align="center"><img src="files/post_8740_tasiyanc_8740.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Multi Loc ⚡ @Tasiyanc.npvt
+</div>
 
 ## tasiyanc — post 8735
 
@@ -204,11 +212,5 @@
 ۴ و ۵ مرداد سالگرد مرگ دو ابر مرد تاریخ رضاشاه کبیر و محمدرضا شاه فقید 🖤
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@TASIYANC 💥 سرعتی.npvt
 </div>
 
