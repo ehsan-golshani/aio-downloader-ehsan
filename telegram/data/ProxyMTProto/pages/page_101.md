@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 101
 
-📅 آخرین بروزرسانی: 1405/05/24 14:37
+📅 آخرین بروزرسانی: 1405/05/24 15:13
 
 ---
+
+## ProxyMTProto — post 48142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Gengbeng.etherealvpn.uk
+Port: 443
+Secret: eec3332fab3d82ff009bc26822e5b7dc84617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48141
 
@@ -172,15 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: my.proxyz.site
 Port: 443
 Secret: ee0a9ab2b66d72b6797fa11106f55707056d792e70726f78797a2e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: moh.kingproxynewdomailasiatech.ink
-Port: 25565
-Secret: FgMBAgABAAH8AxOG4kw63Q
 @ProxyMTProto
 </div>
 
