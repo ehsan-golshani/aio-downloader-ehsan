@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/24 13:39
+📅 آخرین بروزرسانی: 1405/05/24 14:20
 
 ---
+
+## tasiyanc — post 8514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+💪 حمله سپاه به کویت
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8513
 
@@ -250,13 +259,5 @@ Loc 🇩🇪 🇩🇪
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ گزارش انفجار در زنجان ، تابیده؟
-
-@TASIYANC ⭐️
 </div>
 

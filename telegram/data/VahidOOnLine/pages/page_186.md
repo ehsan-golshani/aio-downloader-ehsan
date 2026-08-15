@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 186
 
-📅 آخرین بروزرسانی: 1405/05/24 13:36
+📅 آخرین بروزرسانی: 1405/05/24 14:18
 
 ---
+
+## VahidOOnLine — post 250789
+
+<div align="center"><video src="files/post_250789_VahidOOnLine_250789.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250789_VahidOOnLine_250789.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشر شده در شبکه ‌های اجتماعی نشان می‌دهد که گروهی از همشهری‌ها و دوستان جاویدنام ماهان حقیقی، زادورز او را بر سر مزارش گرامی داشتند.
+
+ماهان حقیقی، جوان کشتی‌گیر و دارای مقام قهرمانی استانی، شامگاه پنج‌شنبه ۱۸ دی‌ماه در شهر رشت، با شلیک گلوله جنگی ماموران حکومتی کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در رسانه‌های اجتماعی نشان می‌دهد در پی حمله به جنوب ایران و تخریب تعدادی پل در استان هرمزگان، یک جاده خاکی جایگزین در محور رودان در نظر گرفته شده که خودروها مجبورند از آن تردد کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250787
 
@@ -273,33 +297,6 @@ iranintl
 حسین مظفر، عضو مجمع تشخیص مصلحت نظام گفت که ما به کشتی‌ها در بخش عمانی تنگه هرمز حمله می‌کنیم چون که دشمن از همان مسیر و با عبور از آب‌های عمان، تجهیزات نظامی خود را حمل می‌کند تا امنیت ملی ما را به مخاطره بیندازد.
 
 او ادامه داد: «ما با دشمنی مکار، حیله‌گر و فریبکار مواجهیم که زیر میز مذاکره می‌زند، اما نباید از آرمان‌های خود کوتاه بیاییم و باید دقیقا همان شروطی را که رهبری گفته، مد نظر داشته باشیم.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250769
-
-<div align="center"><video src="files/post_250769_VahidOOnLine_250769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250769_VahidOOnLine_250769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️استانداری هرمزگان اعلام کرد بامداد شنبه ۲۷ تیر، در ادامه حملات آمریکا، پل محور میناب به رودان پس از دوراهی سرزه، پل رودخانه شور در محور بندرعباس–سیرجان و همچنین تونل شهید میرزایی در مسیر رفت و برگشت هدف حمله قرار گرفته‌اند.
-در ویدیوهای منتشرشده در شبکه‌های اجتماعی از محل حادثه، دیده می‌شود دو خودرو بر اثر آسیب دیدن پل به پایین سقوط کرده‌اند. مقام‌های استانی اعلام کرده‌اند تلاش برای ایجاد مسیرهای جایگزین و راه‌های کنارگذر در حال انجام است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250768
-
-<div align="center"><video src="files/post_250768_VahidOOnLine_250768.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250768_VahidOOnLine_250768.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال وقوع انفجار بامداد شنبه در سایت موشکی لار در استان فارس را نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

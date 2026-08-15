@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/05/24 13:39
+📅 آخرین بروزرسانی: 1405/05/24 14:20
 
 ---
+
+## tasiyanc — post 6354
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشتی لاقل اجازه بده ممبرای خودم وصل شن بعد
+</div>
 
 ## tasiyanc — post 6353
 
@@ -204,12 +210,5 @@ Password : @Tasiyanc  ⏩
 آموزش⏩
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید گپمون - تبادل کانفیگ & ...
-https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 

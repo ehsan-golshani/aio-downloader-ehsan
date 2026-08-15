@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/24 13:39
+📅 آخرین بروزرسانی: 1405/05/24 14:20
 
 ---
+
+## tasiyanc — post 8473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش انفجار در زنجان ، تابیده؟
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8472
 
@@ -163,11 +171,5 @@
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8453
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسپانییییییییییییا قهرمان جام جهانی شد
 </div>
 

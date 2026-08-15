@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/24 13:39
+📅 آخرین بروزرسانی: 1405/05/24 14:20
 
 ---
+
+## tasiyanc — post 7344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 18.30 والیبال 😐
+ایران Vs آمریکا 🦦
+</div>
 
 ## tasiyanc — post 7341
 
@@ -212,10 +219,4 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 </div>
 
 ## tasiyanc — post 7308
-
-## tasiyanc — post 7307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مردم خوبی داریم ، از چنلای حمایت میکنن ک تو ۳ ماه قطعی یه کانفیگم نزاشتن 😂😂
-</div>
 

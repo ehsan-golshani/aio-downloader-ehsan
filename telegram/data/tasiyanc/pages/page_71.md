@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/24 13:39
+📅 آخرین بروزرسانی: 1405/05/24 14:20
 
 ---
+
+## tasiyanc — post 7061
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@series-a2.samanehha.co:443#%F0%9F%87%AC%F0%9F%87%A7%40Tasiyanc%20%F0%9F%8C%99
+Loc 🇬🇧
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7060
 
@@ -188,26 +197,6 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  Ovpn سرور 🇸🇰📶
-
-تست شده تمام نتها 🚀
-
-دانلود OpenVpn  
-🕹
-
-آموزش اتصال
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7015
-
-<div align="center"><video src="files/post_7015_tasiyanc_7015.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7015_tasiyanc_7015.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  Ovpn 📶
 
 تست شده تمام نتها 🚀
 

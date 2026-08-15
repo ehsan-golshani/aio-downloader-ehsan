@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/05/24 13:39
+📅 آخرین بروزرسانی: 1405/05/24 14:20
 
 ---
+
+## tasiyanc — post 7580
+
+<div align="center"><img src="files/post_7580_tasiyanc_7580.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کاپل امروز رفتن بالای empire state و پسره از دختره خواستگاری کرد
+
+چقدررر خفن و سکسی بود
+
+@TasiyanProxy✅
+</div>
 
 ## tasiyanc — post 7578
 
@@ -210,25 +222,5 @@ Fast ⚡️🚀 Premium.npvt
 
 @Tasiyanc 
 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 7541
-
-<div align="center"><img src="files/post_7541_tasiyanc_7541.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎥 اسم فیلم: " برلین لعنتی 2016 "
-
-‌🎭 ژانر: درام عاشقانه
-❌ بدون س‍‌.انسور و ح‍‌.ذفیات
-
-خلاصه داستان: سونیا که بیست سال سن دارد دختری زیبا ، بی حوصله و گرسنه برای زندگی ، از آزادی تازه پیدا شده خود و دور از پدر و مادرش استفاده می کند و فکر میکند که اگر به برلین برود اوقات سرگرم کننده تری خواهد داشت و به همین دلیل به برلین نقل مکان میکند و..
-﻿
-⭕️ تماشای این فیلم به اشخاص زیر 18 سال توصیه نمی شود
-
-💬 نسخه زیرنویس چسبیده فارسی 🔻
-📧 برای دانلود اینجا کلیک کنید
-
-@Tasiyanc💠
 </div>
 

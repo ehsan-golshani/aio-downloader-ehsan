@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/05/24 13:39
+📅 آخرین بروزرسانی: 1405/05/24 14:20
 
 ---
+
+## tasiyanc — post 7104
+
+<div align="center"><img src="files/post_7104_tasiyanc_7104.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادامه برنامه تیم ملی در جام جهانی 2026
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7103
 
@@ -266,14 +275,5 @@ Primary address ⚡️119.29.29.29
 Password ': @Tasiyanc
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7061
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@series-a2.samanehha.co:443#%F0%9F%87%AC%F0%9F%87%A7%40Tasiyanc%20%F0%9F%8C%99
-Loc 🇬🇧
-@Tasiyanc ✅
 </div>
 
