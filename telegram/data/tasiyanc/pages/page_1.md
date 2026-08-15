@@ -1,12 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/24 19:18
+📅 آخرین بروزرسانی: 1405/05/24 21:16
 
 ---
 
-## tasiyanc — post 9323
+## tasiyanc — post 9329
 
-<div align="center"><a href="files/post_9323_🪐 01.conf.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🪐 01.conf</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختر توپُر & اسکینی ؟ پسر توپُر & سیکس پک ؟ کامنت
+</div>
+
+## tasiyanc — post 9328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختر توپُر & اسکینی ؟
+
+پسر توپُر & سیکس پک ؟
+
+کامنت
+</div>
+
+## tasiyanc — post 9323
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختصاصی وایرگارد 😎
@@ -249,34 +263,5 @@ r24
 دانلود برنامه برای ویندوز 💻
 
 @TASIYANC ☑️
-</div>
-
-## tasiyanc — post 9300
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🐊 crocodile
-بعد سه ماه متولد شده عشق کنید
-تو قطعیا یادتونه دیگه چقد ترکوندیم
-</div>
-
-## tasiyanc — post 9299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

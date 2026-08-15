@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/24 19:18
+📅 آخرین بروزرسانی: 1405/05/24 21:16
 
 ---
+
+## tasiyanc — post 8165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️حمله به فرودگاه ایرانشهر در سیستان و بلوچستان @TasiyanProxy
+</div>
+
+## tasiyanc — post 8163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بندرعباس عزیز زیر حملات شدید آمریکا 💔
+</div>
 
 ## tasiyanc — post 8161
 
@@ -225,17 +237,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کامبککککک میزنه آرژانتین
-</div>
-
-## tasiyanc — post 8123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آرژانتین زددد
 </div>
 

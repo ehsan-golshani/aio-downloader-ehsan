@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 103
 
-📅 آخرین بروزرسانی: 1405/05/24 19:18
+📅 آخرین بروزرسانی: 1405/05/24 21:16
 
 ---
+
+## tasiyanc — post 6115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی کانفیگ وایرگارد ✅
+
+تست شده 🎚
+
+دانلود برنامه Wg tunnel 🕹
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظرتون رو داخل کامنت بگید
+</div>
 
 ## tasiyanc — post 6112
 
@@ -169,17 +186,5 @@ vless://1b9e301d-cecd-4eb1-8b36-eef811c2696d@de1.vitok.cc:443?security=reality&e
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دوستان کانفیگ اوپن ورداشتم یه تغییراتی میدم بعدش میفرستم ❤️
-</div>
-
-## tasiyanc — post 6088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرمیوم سرعتی ⚡.npvt
-</div>
-
-## tasiyanc — post 6087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Channel@Tasiyanc.ovpn
 </div>
 

@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/24 19:18
+📅 آخرین بروزرسانی: 1405/05/24 21:16
 
 ---
+
+## tasiyanc — post 5817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوباره بگم؟
+</div>
+
+## tasiyanc — post 5816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+″رمز @Tasiyanc ″
+
+📶  اختصاصی تاسیان  📶
+
+ 3 سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5815
 
@@ -192,25 +217,5 @@ Fast ⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fast ⚡.npvt
-</div>
-
-## tasiyanc — post 5795
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈2سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5794
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️خبرگذاری فارس سه انفجار مهیب در بندرعباس را تایید کرد
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/24 19:18
+📅 آخرین بروزرسانی: 1405/05/24 21:16
 
 ---
+
+## tasiyanc — post 6773
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VİP - ⛓️OMEGA ⚡.npvt
+</div>
+
+## tasiyanc — post 6770
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داداش بقران بهترین‌چنلی هستی دمت‌‌گرم که بفکری سرعتتتش‌موشکهه🥲😭😭😭
+</div>
 
 ## tasiyanc — post 6769
 
@@ -174,27 +186,5 @@ INFERNO ⚡ vip.npvt
 ⬇️ دانلود یا تماشای بدون سانسور
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-INFERNO ⚡ vip.npvt
-</div>
-
-## tasiyanc — post 6717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

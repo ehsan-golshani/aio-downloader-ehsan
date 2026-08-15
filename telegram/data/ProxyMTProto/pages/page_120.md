@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/05/24 20:38
+📅 آخرین بروزرسانی: 1405/05/24 21:15
 
 ---
+
+## ProxyMTProto — post 47775
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dot.vdl.lat
+Port: 853
+Secret: ee9963ec50cf89d852bb1e084a44b196e4646f742e76646c2e6c6174
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47774
 
@@ -177,15 +186,6 @@ Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
 Server: fridayvpn1.proxyprosto.sbs
 Port: 443
 Secret: ee81aebd9867cc45d05974d953706819d177622e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47755
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 
