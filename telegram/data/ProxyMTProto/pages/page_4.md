@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/24 17:38
+📅 آخرین بروزرسانی: 1405/05/24 18:18
 
 ---
+
+## ProxyMTProto — post 50101
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Empire-persia.iran.hey-gardash.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50100
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: stable.rkn.lat
+Port: 443
+Secret: ee63cd87a492fff3595fd75c82d0ec9afa636c6f756463646e2d6d392d362e63646e2e79616e6465782e6e6574
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50099
 
@@ -163,24 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: Unknown
 Port: 443
 Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s010.neo-trading.org
-Port: 8443
-Secret: ee2c46ee89b4f2c79c1d8325d13091e580647a656e2e7275
 @ProxyMTProto
 </div>
 

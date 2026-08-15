@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 125
 
-📅 آخرین بروزرسانی: 1405/05/24 17:38
+📅 آخرین بروزرسانی: 1405/05/24 18:18
 
 ---
+
+## ProxyMTProto — post 47669
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: free.proproxies.top
+Port: 443
+Secret: ee4fb60224ec3ba77691889623ffd44dc8667265652e70726f70726f786965732e746f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47668
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r19.proxytg.space
+Port: 8443
+Secret: eea5e937176fb9385a90ee837da1f589aa7231392e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47667
 
@@ -164,24 +182,6 @@ Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
 Server: r10.proxytg.space
 Port: 8443
 Secret: ee65032756d1cfb78ebbd0ea8db83d43937231302e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47649
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hotmtpro2.duckdns.org
-Port: 443
-Secret: 7kBjzU5SbZqTzIJZZEf4Tvp3d3cubWljcm9zb2Z0LmNvbQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47648
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: yard-yaystal-menyat.yard-tg-bot.ru
-Port: 443
-Secret: ee6a441d3845f1bfec1100662ce671d8ed76762e636f6d
 @ProxyMTProto
 </div>
 
