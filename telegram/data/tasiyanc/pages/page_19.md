@@ -1,8 +1,82 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/24 21:16
+📅 آخرین بروزرسانی: 1405/05/24 22:23
 
 ---
+
+## tasiyanc — post 8869
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@TASIYANC ⚡ 04.ovpn
+</div>
+
+## tasiyanc — post 8865
+
+<div align="center"><video src="files/post_8865_tasiyanc_8865.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8865_tasiyanc_8865.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود OpenVpn 📶
+
+
+تست شده تمام نت‌ها 
+🛜
+🛜
+🛜
+🛜🛜
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8863
+
+<div align="center"><video src="files/post_8863_tasiyanc_8863.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8863_tasiyanc_8863.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻با این پرامپت نویسنده و ویراستار حرفه‌ای خودت باش 
+🤖🤖
+
+⭕️ کافیه چند کلمه یا جمله بهش بدی پایینش پرامپت رو بزنی نتیجه عالی میشه !
+
+✔️PROMPT
+
+Act as a professional editor and copywriter.
+Your task is to rewrite the following text while preserving its original meaning and tone.
+
+Before rewriting:
+- Correct grammar, spelling, and punctuation mistakes.
+- Improve clarity and readability.
+- Enhance sentence flow and structure.
+- Replace weak or repetitive words with stronger, more natural alternatives.
+- Make the writing more engaging and emotionally compelling.
+- Remove unnecessary words or awkward phrasing.
+- Keep the author's intent unchanged.
+
+Provide:
+1. The polished version.
+2. A brief explanation of the key improvements you made.
+
+Text:
+[اینجا جمله یا کلمات را بنویس ]
+
+✈️@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8862
 
@@ -235,50 +309,5 @@ R8
 موقعیت؛ ترامپ وقتی به کشتی‌ها حمله می‌شه تو هرمز :
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8842
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
-
-سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید⛓
-
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8840
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#کاربردی
-
-با این دو سایت میتونید آهنگهای SoundCloud & Spotify رو دانلود کنید
-کافیه لینک آهنگ رو بدید تا براتون دانلود کنه با کیفیت دلخواه ، من شخصا با ساندکلاد زیاد حال میکنم
-
-🎵 https://www.dltracks.com/en
-
-🎵https://spotmate.online/en1
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ برا ویندوز بزارم ؟
 </div>
 

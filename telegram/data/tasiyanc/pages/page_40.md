@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/24 21:16
+📅 آخرین بروزرسانی: 1405/05/24 22:23
 
 ---
+
+## tasiyanc — post 8243
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش اعضا : اصفهان و استان های جنوبی اینترنت بشدت ضعیفه ،
+
+کامنت بزارید وضعیت نتتون چطوره
+</div>
+
+## tasiyanc — post 8242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨اخبار منتشر شده راجب قطعی اینترنت و دیتا سنترا فعلا کذبه نگران نباشید
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8241
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک نفت کش سپاهی توسط کماندو های امریکا به اسارت گرفته شد.
+
+با اعلام سنت‌کام تمام خدمه نفتکش سپاهی توسط تفنگداران آمریکایی بازداشت شدند
+
+@Tasiyanc
+✅
+</div>
 
 ## tasiyanc — post 8240
 
@@ -159,33 +187,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⁉️پل ارتباطی جم سیراف رو هم زدن
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استانداری بوشهر :
-
-در حملۀ دقایقی پیش به بوشهر چند موشک به پایگاه‌های هوایی و پایگاه دریایی بوشهر اصابت کرد.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹27 خرداد معاون وزیر ارتباطات گفت که اینترنت دیگه در شرایط بحران قطع نخواهد شد.
-با این حال طی ۲۴ ساعت گذشته وضعیت ترافیک اینترنت چند استان از جمله اصفهان، فارس، خراسان رضوی، البرز و تهران با کاهش نسبی ترافیک اینترنت مواجه بوده‌اند.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرتاب موشک از کرمانشاه
 
 @Tasiyanc✅
 </div>

@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/05/24 21:14
+📅 آخرین بروزرسانی: 1405/05/24 22:20
 
 ---
+
+## VahidOOnLine — post 252917
+
+<div align="center"><img src="files/post_252917_VahidOOnLine_252917.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی ایالات متحده، سنتکام، پنج‌شنبه هشتم مرداد در شبکه اجتماعی ایکس با رد ادعاهای سپاه پاسداران اعلام کرد هیچ‌یک از جنگنده‌ها و هواگردهای آمریکایی در حملات اخیر جمهوری اسلامی منهدم نشده‌ یا آسیب ندیده‌اند و همه موشک‌ها و پهپادهای شلیک‌شده رهگیری شده‌ یا به اهداف خود نرسیده‌اند.
+سنتکام افزود کشتی «ام‌تی نورا» از محاصره دریایی آمریکا عبور نکرده است و افزود بیش از ۲۰ ناو جنگی، صدها هواگرد و هزاران نیروی نظامی آمریکا همچنان در حال اجرای کامل این محاصره هستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252916
 
@@ -298,19 +310,6 @@
 
 در ماه‌های اخیر، گزارش‌های متعددی از بازداشت و محاکمه شهروندان اسرائیلی به اتهام همکاری و جاسوسی برای جمهوری اسلامی منتشر شده است. در اردیبهشت‌ماه نیز رسانه دولتی اسرائیل از پیگرد قضایی دومتخصص فنی نیروی هوایی این کشور به اتهام جاسوسی برای جمهوری اسلامی خبر داد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252897
-
-<div align="center"><video src="files/post_252897_VahidOOnLine_252897.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252897_VahidOOnLine_252897.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«برق قطعه و مامانم بدون دستگاه اکسیژن نمی‌تونه نفس بکشه» - گزارشگر
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

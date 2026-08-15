@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/24 21:14
+📅 آخرین بروزرسانی: 1405/05/24 22:20
 
 ---
+
+## VahidOOnLine — post 255232
+
+<div align="center"><video src="files/post_255232_VahidOOnLine_255232.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255232_VahidOOnLine_255232.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدجواد تاجیک، مدیرعامل سازمان بهشت‌زهرا در گفتگو با شبکه افق صداوسیمای جمهوری اسلامی مدعی شد که ۵ هزار قبر در بیابان‌های اطراف تهران برای سربازان آمریکایی آماده شده است.
+تاجیک در واکنش به تردیدها درباره صحت این خبر گفت: «برخی آن را عملیات روانی می‌دانستند، اما واقعا آماده کرده‌ایم.» او توضیح بیشتری درباره محل دقیق این قبرها، نحوه آماده‌سازی آنها یا مبنای این ادعا ارائه نکرد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255231
 
@@ -288,19 +302,6 @@ IranintlTV
 
 در ۲۴ مرداد ۱۴۰۵، حدود دو سال پس از وقوع قتل، سه متهم پرونده در شعبه دهم دادگاه کیفری یک استان تهران محاکمه شدند. در این جلسه، فرزندان مقتول برای متهم اصلی درخواست قصاص کردند. پس از آخرین دفاع متهمان و وکلای آنها، قضات برای بررسی پرونده و تصمیم‌گیری وارد شور شدند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255212
-
-<div align="center"><video src="files/post_255212_VahidOOnLine_255212.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255212_VahidOOnLine_255212.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که به ایران اینترنشنال رسیده نشان می‌دهد همزمان با بحران معیشتی و اقتصادی یک جوان ۲۷ ساله آگهی تبلیغ فروش کلیه خود را روی دیواری نصب کرده که در زیر این تکه کاغذ آگهی دیوارنگاره حکومتی تبلیغ «شهید خامنه‌ای» دیده می‌شود.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

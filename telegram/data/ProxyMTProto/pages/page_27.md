@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/05/24 21:36
+📅 آخرین بروزرسانی: 1405/05/24 22:21
 
 ---
+
+## ProxyMTProto — post 49646
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fleethop.online
+Port: 443
+Secret: ee7b65b9f92173a83dcd4d1c5b8c1031f7666c656574686f702e6f6e6c696e65
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49645
 
@@ -165,15 +174,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: edge.rknwatch.digital
 Port: 443
 Secret: ee4227e9ce17eeaa6676f85ec9528417bd656467652e726b6e77617463682e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 234
 
-📅 آخرین بروزرسانی: 1405/05/24 21:14
+📅 آخرین بروزرسانی: 1405/05/24 22:20
 
 ---
+
+## VahidOOnLine — post 249664
+
+<div align="center"><video src="files/post_249664_VahidOOnLine_249664.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249664_VahidOOnLine_249664.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از متقاضیان خودروی سنگین در تهران یکشنبه ۲۱ تیر در اعتراض به تحویل نگرفتن خودروهای خود از شرکت‌های اعیان تجارت، گلوبال و ممتاز، مقابل ساختمان قوه قضاییه در تهران تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249663
 
@@ -304,18 +317,6 @@ iranintl
 
 پیش‌تر ایران اعلام کرده بود یک شلیک هشدار از سوی نیروهای این کشور به یک کشتی که در مسیر غیرمجاز حرکت می‌کرد، اصابت کرده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249644
-
-<div align="center"><img src="files/post_249644_VahidOOnLine_249644.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری ایالات متحده، در شبکه اجتماعی تروث سوشال، با اشاره به درگذشت لیندسی گراهام، سناتور جمهوری‌خواه، نوشت: «لیندسی گراهام، یکی از بزرگ‌ترین افراد و سناتورهایی که تاکنون شناخته‌ام، درگذشت. او همیشه در حال کار و یک میهن‌پرست واقعی بود.»
-iranintl
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

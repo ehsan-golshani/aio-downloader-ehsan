@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/24 21:16
+📅 آخرین بروزرسانی: 1405/05/24 22:23
 
 ---
+
+## tasiyanc — post 8947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دزدی از جیب مردم تا کی ؟
+
+
+🔴جدیدا اینترنت مردم به طرز وحشتناکی خیلی زود و عجیب تموم میشه!
+برای استفاده از اینترنت بین الملل دارن ضریب ۲.۷ حساب میکنن واقعا خنده داره ، نمی‌دونم چی بگم واقن
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8946
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 SubLink Unlimited Vip ⚡️ ━━━╮
+
+
+https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+
+
+آموزش اضافه کردن ساب ⚡️
+
+تست بگیرید وصل شید ✅
+
+اتصال امن برای همه 🇮🇷
+
+👹 Join As @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 کانفیگ اختصاصی نامحدود اینجکتور📶
+
+پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
+
+سرور سرعتی‌ لوکیشن آلمان و ترکیه 📍
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال 🔸
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8943
 
@@ -198,44 +249,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 من یه مشکلی برام پیش اومد که گفتم نمیتونم در جلسه شورای دفاع در نهم اسفندماه شرکت کنم و غلامرضا رضاییان، رییس سازمان اطلاعات فراجا به جای من در جلسه شرکت کرد و کشته شد.
 
 💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پیشنهاد_ویژه ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
-دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
-</div>
-
-## tasiyanc — post 8925
-
-<div align="center"><video src="files/post_8925_tasiyanc_8925.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8925_tasiyanc_8925.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖱به راحتی کسب درامد کن 💵💰
-
-🟢 ویدیو #آموزش بازی chicky choice رو براتون گذاشتم خیلی راحت و بدون ریسک و میتونی بازی کنی و کلی پول دربیاری🔥
-
-💖 حتما ویدیو رو تا انتها ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان g11
-@betinjabet
-</div>
-
-## tasiyanc — post 8923
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 📶 Open Vpn Config ✅ ━━━╮
-
-آموزش اتصال 
-
-در صورت برقرار نشده اتصال چند بار بزنید پشت هم
-
-⚡️ Unlimated• By @TASIYANC ✅
 </div>
 

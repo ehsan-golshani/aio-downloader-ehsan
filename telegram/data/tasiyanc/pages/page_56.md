@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/05/24 21:16
+📅 آخرین بروزرسانی: 1405/05/24 22:23
 
 ---
+
+## tasiyanc — post 7640
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز کردم براتون🔥
+</div>
+
+## tasiyanc — post 7634
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+سرور  سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
+</div>
+
+## tasiyanc — post 7633
+
+<div align="center"><video src="files/post_7633_tasiyanc_7633.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7633_tasiyanc_7633.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ فووری - خبرنگار کاخ سفید مرضیه حسینی
+
+خلبانی که تو ایران افتاده بود گفته ایران به پیشرفته ترین تکنولوژی پهپادی در جهان رسیده که فقط آمریکا و چین و روسیه دارنش و با همین تکنولوژی باعث سقوطش شدن!!!
+
+@Tasiyanc 💠
+</div>
 
 ## tasiyanc — post 7632
 
@@ -129,32 +166,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc _ SuperFast⚡.npvt
-</div>
-
-## tasiyanc — post 7608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرتغال به رهبری رونالدو 🇵🇹 به دور یک هشتم رفت و رقیب اسپانیا شد ⚡️
-</div>
-
-## tasiyanc — post 7605
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-10سرور سرعتی پرمیوم متد جدید ⚡️
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
-
- 
-✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7602
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عرزشی لف بده تو چنل تاسیان نباشید
 </div>
 

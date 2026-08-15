@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/24 21:14
+📅 آخرین بروزرسانی: 1405/05/24 22:20
 
 ---
+
+## VahidOOnLine — post 254859
+
+<div align="center"><img src="files/post_254859_VahidOOnLine_254859.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی ایالات متحده، سنتکام، چهارشنبه ۲۱ مرداد با انتشار تصویری از برخاستن یک جنگنده اف/ای-۱۸ از ناو هواپیمابر یواس‌اس جورج اچ. دبلیو. بوش در شبکه ایکس اعلام کرد این ناو در آب‌های منطقه در حال حرکت است و از اجرای محاصره «دیوار فولادین» آمریکا علیه ایران پشتیبانی می‌کند.
+
+سنتکام افزود تا ۲۱ مرداد، نیروهای آمریکایی برای اجرای کامل این محاصره، مسیر ۵۹ کشتی تجاری را تغییر داده‌اند، سه کشتی را از کار انداخته‌اند و وارد دو کشتی شده‌اند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254858
 
@@ -294,19 +307,6 @@ Indypersian
 بنا بر این گزارش، نیروهای اطلاعات سپاه پاسداران او را با خشونت بازداشت و به مکانی نامعلوم منتقل کردند.
 
 به گفته این منبع، شاهو زیرک به دلیل انتشار مطالبی در حمایت از «انقلاب ملی» و شاهزاده رضا پهلوی در شبکه‌های اجتماعی بازداشت شده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254839
-
-<div align="center"><video src="files/post_254839_VahidOOnLine_254839.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254839_VahidOOnLine_254839.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال درباره گرانی‌های شدید در ایران می‌گوید دیگر توان خرید خورد و خوراک ندارد.
 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 228
 
-📅 آخرین بروزرسانی: 1405/05/24 21:14
+📅 آخرین بروزرسانی: 1405/05/24 22:20
 
 ---
+
+## VahidOOnLine — post 249801
+
+<div align="center"><img src="files/post_249801_VahidOOnLine_249801.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک مقام آمریکایی به شبکه خبری سی‌ان‌ان گفت که حملات علیه جمهوری اسلامی، بیش از سه ساعت پس از آغاز عملیات، هنوز به پایان نرسیده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249800
 
@@ -290,17 +301,6 @@
 هم‌زمان، وب‌سایت رویداد۲۴ گزارش داد صدای چند انفجار شدید در اهواز، کنگان و چابهار شنیده شده است.
 
 این رسانه همچنین از شنیده شدن صدای جنگنده در آسمان اصفهان خبر داد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249773
-
-<div align="center"><img src="files/post_249773_VahidOOnLine_249773.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زینب سلیمانی، دختر قاسم سلیمانی،‌ فرمانده سابق نیروی قدس سپاه پاسداران، خطاب به دونالد ترامپ، رییس‌جمهوری آمریکا، نوشت: «خواب راحت از چشمان‌تان رخت برمی‌بندد و مرگ راحت برای‌تان آرزو خواهد شد. این پیش‌بینی تحقق یک وعده صادق است.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

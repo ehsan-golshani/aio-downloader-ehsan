@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/24 21:16
+📅 آخرین بروزرسانی: 1405/05/24 22:23
 
 ---
+
+## tasiyanc — post 8321
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طرف کلا نمیدونه دیتاسنتر چیه هی تو چنلش میزنه در حال قطع شدن
+</div>
+
+## tasiyanc — post 8320
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+6سرور سرعتی پرمیوم متد جدید ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از قدیم گفتن مراقب تله مرغابی های زندگیت باش
+</div>
 
 ## tasiyanc — post 8315
 
@@ -142,31 +178,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴سپاه خورموج و اهواز مورد هدف موشکی.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨 انفجار در اهواز
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8295
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 هم اکنون آمریکا به بندرعباس،قشم،بوشهر و سیریک حمله کرد و صدای چندین انفجار تو این مناطق شنیده شد.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صداوسیما واسه حسن نصرالله و اسماعیل هنیه واسه هرکدوم پنج روز روبان مشکی گذاشت و عزا عمومی اعلام کرد ولی واسه سربازهای کشور خودمون حتی یک روز عزا عمومی و یک پرچم مشکی نزد!!
-حالا فهمیدید وطن فروش های واقعی کیان؟
 
 @Tasiyanc✅
 </div>

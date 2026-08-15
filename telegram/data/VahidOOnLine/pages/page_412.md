@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 412
 
-📅 آخرین بروزرسانی: 1405/05/24 21:14
+📅 آخرین بروزرسانی: 1405/05/24 22:20
 
 ---
+
+## VahidOOnLine — post 245329
+
+<div align="center"><img src="files/post_245329_VahidOOnLine_245329.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ رئیس مرکز اطلاع‌رسانی و روابط عمومی وزارت آموزش و پرورش، روز شنبه ۲۳ خرداد اعلام کرد که با توجه به همزمانی امتحانات نهایی مدارس با مراسم تشییع علی خامنه‌ای، رهبر پیشین جمهوری اسلامی در شهرهای تهران، قم و مشهد، موضوع تغییر زمان این امتحانات در دستور بررسی قرار گرفته است.
+
+مراسم تشییع خامنه‌ای قرار است طی شش روز، از ۱۳ تا ۱۸ تیرماه برگزار شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245328
 
@@ -279,19 +292,6 @@
 
 این رایزنی‌های دیپلماتیک در شرایطی صورت می‌گیرد که طی روزهای گذشته، مقامات آمریکا، ایران و پاکستان همگی بیانیه‌هایی را در خصوص وجود یک یادداشت تفاهم میان تهران و واشنگتن صادر کرده‌اند؛ تفاهم‌نامه‌ای که جزئیات و مفاد دقیق آن هنوز به طور رسمی و عمومی منتشر نشده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245309
-
-<div align="center"><video src="files/post_245309_VahidOOnLine_245309.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_245309_VahidOOnLine_245309.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانیان اسپانیا روز شنبه به یاد جانباختگان راه آزادی در مادرید تجمع کرده و پرچم شیروخورشید را بالا بردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

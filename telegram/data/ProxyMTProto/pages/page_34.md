@@ -1,8 +1,10 @@
 # آرشیو کانال ProxyMTProto - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/05/24 21:36
+📅 آخرین بروزرسانی: 1405/05/24 22:21
 
 ---
+
+## ProxyMTProto — post 49506
 
 ## ProxyMTProto — post 49505
 
@@ -165,15 +167,6 @@ Secret: eec5e0b6eade04d838e3af484c380745e4706f7274616c2e62616c616c61696b612e636c
 Server: download.namahdod.co.uk.
 Port: 443
 Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49485
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vpn4.primeperformance.space
-Port: 8443
-Secret: ee4331ae1586ba488e489e092e1783969e76706e342e7072696d65706572666f726d616e63652e7370616365
 @ProxyMTProto
 </div>
 

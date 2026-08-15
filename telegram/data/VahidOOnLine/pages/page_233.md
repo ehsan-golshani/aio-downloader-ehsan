@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 233
 
-📅 آخرین بروزرسانی: 1405/05/24 21:14
+📅 آخرین بروزرسانی: 1405/05/24 22:20
 
 ---
+
+## VahidOOnLine — post 249691
+
+<div align="center"><img src="files/post_249691_VahidOOnLine_249691.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت خارجه عمان اعلام کرد خالد المصلحی، معاون امور اداری و مالی این وزارتخانه، سفیر جمهوری اسلامی در مسقط، را در پی حملات پهپادی به مناطقی در استان‌های مسندم و الوسطی احضار و یادداشت اعتراضی رسمی عمان را به او ابلاغ کرد.
+خالد المصلحی در این دیدار نگرانی عمیق عمان را از اقدامات غیرمسئولانه جمهوری اسلامی ابراز کرد و خواستار احترام به حاکمیت کشورها، اصول حسن همجواری، عدم مداخله در امور داخلی و پایبندی به ارزش‌ها و اصول اخلاقی حاکم بر روابط دو کشور شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249690
 
@@ -245,19 +257,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از متقاضیان خودروی سایپا شنبه ۲۰ تیر به دلیل تحویل نگرفتن خودروهای خود مقابل شرکت این خودروسازی تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249664
-
-<div align="center"><video src="files/post_249664_VahidOOnLine_249664.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249664_VahidOOnLine_249664.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از متقاضیان خودروی سنگین در تهران یکشنبه ۲۱ تیر در اعتراض به تحویل نگرفتن خودروهای خود از شرکت‌های اعیان تجارت، گلوبال و ممتاز، مقابل ساختمان قوه قضاییه در تهران تجمع کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

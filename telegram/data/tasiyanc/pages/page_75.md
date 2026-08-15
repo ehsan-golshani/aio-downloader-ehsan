@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/24 21:16
+📅 آخرین بروزرسانی: 1405/05/24 22:23
 
 ---
+
+## tasiyanc — post 6934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی تست شده  🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسنیم
+لحظاتی دیگر مقامات راجب توافق با مردم صحبت خواهند کرد
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6932
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت هر تتر 💎 164000
+</div>
 
 ## tasiyanc — post 6931
 
@@ -200,28 +231,5 @@ https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
 🔐 🔐
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6904
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب براتون آماده کردم
-</div>
-
-## tasiyanc — post 6903
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوری ترامپ
-از ایران می‌خواهم که به اسرائیل موشک شلیک نکند. توافق در ساعات آینده امضا خواهد شد
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6902
-
-<div align="center"><img src="files/post_6902_tasiyanc_6902.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خود اپارات تو یوتوب اکانت زده🤣🔥
-@Tasiyanc ✅
 </div>
 

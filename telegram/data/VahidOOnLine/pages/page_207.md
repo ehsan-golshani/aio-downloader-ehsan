@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 207
 
-📅 آخرین بروزرسانی: 1405/05/24 21:14
+📅 آخرین بروزرسانی: 1405/05/24 22:20
 
 ---
+
+## VahidOOnLine — post 250381
+
+<div align="center"><video src="files/post_250381_VahidOOnLine_250381.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250381_VahidOOnLine_250381.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ گفت جمهوری اسلامی می‌خواهد با آمریکا به توافق برسد، اما از اقداماتی که ما انجام می‌دهیم خوشش نمی‌آید.
+او افزود: «خواهیم دید با آن‌ها به توافق می‌رسیم یا کار را یکسره می‌کنیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250380
 
@@ -278,22 +292,6 @@
 
 العبودی همچنین گفت اصلاحات مالی از محورهای گفت‌وگوهای علی الزیدی، نخست‌وزیر عراق، در سفر به واشینگتن است و دولت عراق پرونده‌های انحصار سلاح، اصلاحات اقتصادی، بهبود عملکرد نهادها و مبارزه با فساد را بر اساس یک رویکرد جامع و بدون برخورد گزینشی با «نهنگ‌های فساد» پیگیری می‌کند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250361
-
-<div align="center"><video src="files/post_250361_VahidOOnLine_250361.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250361_VahidOOnLine_250361.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در پاسخ به پرسشی درباره تهدیدهای مطرح‌شده از سوی ایران علیه جانش، گفت که به این موضوع «اصلا فکر نمی‌کند».
-او در گفتگو با فاکس بیزینس تاکید کرد: «اگر به این مسائل فکر کنم، دیگر نمی‌توانم مؤثر باشم.»
-ترامپ افزود این کار را دیگران انجام می دهند و به نظرم در این زمینه عملکرد خوبی دارند و تاکید کرد خودش به این موضوع اصلا فکر نمی‌کند.
-حساب فارسی وزارت خارجه آمریکا در اکس این بخش از مصاحبه فاکس با ترامپ را زیرنویس فارسی و منتشر کرده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

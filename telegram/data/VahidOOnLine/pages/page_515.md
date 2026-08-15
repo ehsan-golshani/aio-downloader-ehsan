@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 515
 
-📅 آخرین بروزرسانی: 1405/05/24 21:14
+📅 آخرین بروزرسانی: 1405/05/24 22:20
 
 ---
+
+## VahidOOnLine — post 242417
+
+<div align="center"><video src="files/post_242417_VahidOOnLine_242417.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242417_VahidOOnLine_242417.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از «کمک در راه است» تا مذاکره، معامله و بازگشت به همان سیاست همیشگی؟ ورق بزنید.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242416
 
@@ -321,19 +334,6 @@
 
 سفیر اسرائیل در استرالیا افزود درک مشترکی میان اسرائیل و ایالات متحده درباره این اهداف وجود دارد و دونالد ترامپ، رییس‌جمهوری آمریکا، نیز گفته است درباره موضوع غنی‌سازی اورانیوم و توانایی هسته‌ای ایران مصالحه نخواهد کرد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242388
-
-<div align="center"><img src="files/post_242388_VahidOOnLine_242388.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️قیمت نفت در بازارهای جهانی روز چهارشنبه ششم خرداد پس از چند ساعت افزایش و با «خوش‌بینی محتاطانه» به توافق احتمالی میان جمهوری اسلامی ایران و ایالات متحده، بیش از دو درصد کاهش یافت.
-
-بهای نفت خام برنت دریای شمال، قیمت معیار نفت، صبح چهارشنبه و همزمان با آغاز کار بازارهای اروپایی با ۲و۴۲ درصد کاهش به ۹۷ دلار و ۱۹ سنت رسید. این در حالی است که بامداد چهارشنبه و همزمان با آغاز به کار بورس‌های آسیایی، قیمت نفت از مرز ۹۹ دلار عبور کرده بود.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

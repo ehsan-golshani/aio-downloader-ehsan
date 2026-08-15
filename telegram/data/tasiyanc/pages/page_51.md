@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/05/24 21:16
+📅 آخرین بروزرسانی: 1405/05/24 22:23
 
 ---
+
+## tasiyanc — post 7839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار جدید درباره تعویق امتحانات 👉 🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
+</div>
+
+## tasiyanc — post 7838
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار جدید درباره تعویق امتحانات 👉
+🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
+</div>
+
+## tasiyanc — post 7834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگ رسما و شرعا آغاز شد
+</div>
 
 ## tasiyanc — post 7832
 
@@ -203,23 +222,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ ترامپ : دستور لغو توافق و مذاکرات را صادر کردم
-</div>
-
-## tasiyanc — post 7793
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ ترامپ : آتش بس ایران به پایان رسید
-</div>
-
-## tasiyanc — post 7792
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه
-</div>
-
-## tasiyanc — post 7791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️رسما توافق با آمریکا سرش گرد شد
 </div>
 

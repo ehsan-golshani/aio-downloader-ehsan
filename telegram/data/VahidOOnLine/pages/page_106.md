@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/24 21:14
+📅 آخرین بروزرسانی: 1405/05/24 22:20
 
 ---
+
+## VahidOOnLine — post 252700
+
+<div align="center"><img src="files/post_252700_VahidOOnLine_252700.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ خبرنگار شبکه آی۲۴نیوز به نقل از یک منبع دیپلماتیک ارشد اسرائیلی، روز چهارشنبه هفتم مردادماه، جزئیات جدیدی از دیدار بنیامین نتانیاهو و دونالد ترامپ در کاخ سفید افشا کرد. به گفته این منبع، محور اصلی و غالب این گفتگوها موضوع ایران بوده است.
+
+بر اساس این گزارش، ترامپ در حال بررسی سه گزینه در قبال ایران است: دست‌یابی به یک توافق هسته‌ای، حفظ و تشدید محاصره اقتصادی، یا ازسرگیری حملات نظامی.
+
+این مقام دیپلماتیک با تاکید بر اینکه تصمیم‌گیری نهایی بر عهده رئیس‌جمهور آمریکاست، تصریح کرد: «ما ترجیح خاصی را برای حمله نظامی به ترامپ دیکته نکردیم، بلکه ترجیح ما تحقق نتیجه است.»
+
+او همچنین با اشاره به بحران شدید اقتصادی در ایران از جمله کمبود سوخت و گازوئیل، تورم نزدیک به ۹۰ درصدی و آغاز اعتراضات عمومی، افزود که دو طرف درباره افزایش فشارهای اقتصادی و نظامی بر تهران رایزنی کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252699
 
@@ -284,19 +301,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پوشش زنان؛ «لج کردن حراست دانشگاه علم‌ و صنعت» ـ گزارشگر
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252671
-
-<div align="center"><video src="files/post_252671_VahidOOnLine_252671.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252671_VahidOOnLine_252671.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«لعنت بر خامنه‌ای»؛ سر دادن شعار در واکنش به اعدام‌های اصفهان _ گزارشگر
 ‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
