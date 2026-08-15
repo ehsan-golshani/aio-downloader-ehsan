@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/05/24 22:46
+📅 آخرین بروزرسانی: 1405/05/24 23:15
 
 ---
+
+## ProxyMTProto — post 47879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: light.nolags.pw
+Port: 443
+Secret: dd84b5a5dbe775244bd0b061c72f4e4c73
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47878
 
@@ -172,15 +181,6 @@ Secret: ddf4fa8f92de56cde758429546586eaac8
 Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47859
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowaboost.com
-Port: 853
-Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
 @ProxyMTProto
 </div>
 
