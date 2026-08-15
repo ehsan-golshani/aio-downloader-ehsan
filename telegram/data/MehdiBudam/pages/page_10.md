@@ -1,8 +1,14 @@
 # آرشیو کانال MehdiBudam - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/23 11:35
+📅 آخرین بروزرسانی: 1405/05/24 17:13
 
 ---
+
+## MehdiBudam — post 8073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بالاخره اینا هم میگذره ولی برخورد آدما تو این روزا فراموش نمیشه.
+</div>
 
 ## MehdiBudam — post 8072
 
@@ -212,20 +218,6 @@ Pass: @MehdiBudam
 slipnet-bundle-enc://AW/lKBC7YdcZU0CiCiulA8nZfdNHxNRnOul8SYoIRJ2v09g8ljR2roVqBGHlIPNaDYgzH214sXIWwkqMO6DWj1jMwlKOLJgNdCQ0eZPFeTVLIk1qcUYPc5uN0gnhAAxxecUKU6lM/V37tpcqe8p1rTOgQBpqEBIKXQAeCtNF2Dv4h4gFemJD+AoX7bdzDeoqnYJkR3nwCFvCcRWhiJncBEqhfDEPpuT5DtfMiynrJxS8sbnJyvnEa2iUTI0Wyk0yXeQVKV1W60zbV+pfInmZ7sBz5yOyhe339bJ71dFf8JnuSVVaNn2DH5kPPMAQ8TgQGrkfnGiKlE/lXn8sZ0SncgxLquWf5mgmfjfGV3f2KCHKX9pHWbMVHb1NNPSv02q4HzdYYT9NiWNmwtKGZG4gZiN3keuc+OaVkae+lBPBImwCtJaO9BAgX76U5tfoqsshgClMkqpbQhjsFBpfL3LTKh7krlOCoEdngYUD7aqfIj8seFyBsJsOMa6o9sTRbZuz2EGt376KSxg2xJTRowfpeqSrcxqISgIP9FDrK5Fold2bn3bR+ln0Sc+fDf6ZEPCNOajFKnEk6C9N95pxZ/SBWnbqHkwQpXkPZks2V2WmiWWZWB5SDhgNUcmwDzRMwHMd12Rjxle16GERxnOb3pUaMb37uK3GTfiYW2utOjKfACrh5N9jLRM3pcqMqoG/EDJGqHNimOB8vxv7ix6aI8cATUX9ABtmCkCSg0ScQGC/OtDvpufboXPiLZgUqzwTofVEor3YdzfS2gIBXkLHbYJVL33p9RO0LrwXtolN61pZ0XSwY5U0aIXvzZKw/doCUlBA2yWgiXsfxUAJYrldUXR5G1xR1BR/Q+1lzMRLMbrv6HLM04g67gHdpcux5fDLggKBwk2z9qGVvS/CT9SKqBPJ1I5Odtc7wquwE+btslNVXSPS1n1ja7oDpFHljQLSLgGk8GBVNkN8bEaDDbF2BhIhtJlV8oc1lWe4zzbOQ4ujZZR/pe81S/0SuelkWJPM7vQP29rIGfhGGa8JnnvmD/0UEDmKC2BVNNhKv4fho/564WJxPnNu797o
 
 
-Pass: @MehdiBudam
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-111
-
-
-slipnet-bundle-enc://AY7d1o4bBGspXeElppb3b56tbaKOrje6zBu8XyTJV9lJMeYtGHIbvayB2LVFbudFI3rZwpSWQfnJKz287HUjrZW7fIpAphC52SSOg1A4RNunTExyoggFqRGPUZK+3FdCqRYgOwKVrJNPMePzF0HfDvsMvoUsYp9InXtVS7tmNgTztNdpBfxmMiu7Z2q6NCX+CART7ynaAY0fenEFd6dEhfCQW5YZjDbAAirh7YHu0mXt4k9LSp/1fQiC8zdkmDI6t3sin5ZLHr+EQHNHuUVJ5X/FP+CgfbnJ4Sr6mKmC44S4dlXl75hPZTNs8NSfu7H/yGFY4oz6W4TCHXSCAnTZ4S2ZmB4kS4xarFiUa8xHtpxkUCM+KhHpA0qf88lGr/SBm7agYwx//CLN0P6lOijB1gbqUiWqOoTxSa8cWJTftUT7zErSNe4BGUO/cIjRU3vxNvKUC/oU7NsIpR5QuzxceVnOXnpPDOd58yGG5rdB0osMvmRkljmd0Lnwv2hZsSmg8FEEiDCpaMGejomYRZkcFY+wi3gqZrU6sfQG/UKeOzR+M/zbAX6dNravEjWDiT+9yhSKqWVmr7kIwPBKh2zsjNiHaT9LTunedIeQIaIuDFwnMXinWxUEsYkP727TOH6muO2FhdGBOHHTpTkmikXrt+pRQ/2bFkysA3OuIVDYxxYIyW03Gwqt7QnQouPeD2WSDTPNrNpnUFnp9ozna2BjzyXItej/0qzYwFBamrMvDggp2dUrEHuTIF0slDQHb7o+TtDwbRdF5mDoVsF5AimvLZyV7yszlCIFhKHIEL+rWdjr28Sj8fJkRVddNolgwA7GQ6Z6ou5orBUETp2E+1Bzk1va/X7QoateTLbmlELfyQCuzYdFPfUQ4JzW5OHtF9n03cn4bngxDy+RhGCh3Lg5WTrRWm+zbUStwbUFY/rUkEwlhsMSI3RmEnRSv+HbpXLxopOG049kh7iesOGPxZmWoGOoEIdXc/EY0lgCNDQtFJXGtdWX+n6qxgBmH+cIBpNCPOgxW2Di/cDi2GOqow5VrETc1glumqHg/cXe90bqanY/WLET0+rS9W8nUz72Rf/Wv4mYj3eqqg==
-
-﻿
 Pass: @MehdiBudam
 
 @MehdiBudam

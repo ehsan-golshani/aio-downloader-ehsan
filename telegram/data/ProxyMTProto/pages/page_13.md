@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/24 16:31
+📅 آخرین بروزرسانی: 1405/05/24 17:12
 
 ---
+
+## ProxyMTProto — post 49918
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: naro.guguli.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49917
 
@@ -172,15 +181,6 @@ Secret: ee4cac1442f878b9c522cf77e7cc47dd8765646765322e6c6962726176612e636c69636b
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49898
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: live.garden-troll.life
-Port: 443
-Secret: ee35e031f41ae8bb68b6d517e706ccdfb06c6976652e67617264656e2d74726f6c6c2e6c696665
 @ProxyMTProto
 </div>
 

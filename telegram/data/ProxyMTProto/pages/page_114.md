@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/24 16:31
+📅 آخرین بروزرسانی: 1405/05/24 17:13
 
 ---
+
+## ProxyMTProto — post 47886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sexy.arixo.shop
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c59617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47885
 
@@ -172,15 +181,6 @@ Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
 Server: highspeed.nolags.pw
 Port: 443
 Secret: dd6e87000d80db522523b5ab5bb58ab3af
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47866
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 
