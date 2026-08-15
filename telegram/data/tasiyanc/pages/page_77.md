@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/24 14:20
+📅 آخرین بروزرسانی: 1405/05/24 14:39
 
 ---
+
+## tasiyanc — post 6850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 1.30 بامداد شروع بازی
+🇧🇷 Brazil - 🇲🇦 Morocco
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6849
 
@@ -170,11 +178,5 @@ Qatar 🇶🇦 & Switzerland🇨🇭
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ ترامپ در تروث : توافق فردا امضا می‌شود @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6818
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت هر یک دلار هم اکنون ۱۷۰ تومن
 </div>
 

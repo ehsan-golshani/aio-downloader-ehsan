@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/24 14:20
+📅 آخرین بروزرسانی: 1405/05/24 14:39
 
 ---
+
+## tasiyanc — post 8344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴رسمی : امتحانات نهایی لغو شد ولی باز هم فقط واسه 4 استان!
+
+■ هرمزگان
+■ بوشهر
+■ خوزستان
+■ سیستان و بلوچستان
+
+- پایه یازدهم و دوازدهم
+- روزهای یکشنبه و دوشنبه، 28 و 29 تیر
+
+پروکسی |  پروکسی | پروکسی
+پروکسی |  پروکسی | پروکسی
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8343
 
@@ -180,13 +199,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کاهش پهنای باند داره گزارش میشه کانفیگ مخصوص نت ملی رو بگیرید دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش انفجار ۱۰ مین پیش در یزد از اعضای عزیز
-
-@Tasiyanc ⭐️
 </div>
 

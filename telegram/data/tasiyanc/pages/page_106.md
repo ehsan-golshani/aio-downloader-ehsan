@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/24 14:20
+📅 آخرین بروزرسانی: 1405/05/24 14:39
 
 ---
+
+## tasiyanc — post 6025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دقیقا رفیقم اینجوری شد
+</div>
 
 ## tasiyanc — post 6024
 
@@ -148,11 +154,5 @@ VİP 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۴۰ هزار نفر ۲ تا ریکشن🤣🤣
-</div>
-
-## tasiyanc — post 6000
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ریکشن میبینم خندم میگیره🤣
 </div>
 

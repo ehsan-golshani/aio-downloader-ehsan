@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/05/24 14:20
+📅 آخرین بروزرسانی: 1405/05/24 14:39
 
 ---
+
+## tasiyanc — post 7209
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅سرویس های حجم نامحدود با بهترین قیمت و کیفیت براتون تخفیف خورد 
+⭕️
+
+تک کاربر:290 هزار تومان
+دو کاربر:580هزار تومان
+سه کاربر:870هزارتومان
+
+
+🔥جهت خرید میتونید به PV زیر مراجعه کنید :
+
+🟢@nac_config
+
+🔵@nacconfig
+</div>
 
 ## tasiyanc — post 7208
 
@@ -284,11 +302,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐 کانفیگ نامحدود سرور فرانکفورت 
 🇩🇪
-</div>
-
-## tasiyanc — post 7182
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌تنگه هرمز بدلیل کرم ریختن اسرائیل و حمله به مناطق نظامی و غیر نظامی لبنان بسته شد
 </div>
 

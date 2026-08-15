@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/24 14:20
+📅 آخرین بروزرسانی: 1405/05/24 14:39
 
 ---
+
+## tasiyanc — post 9264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرایط
+
+میو میکنید ، ویسشو میدید پیوی ادمین تو کانال میزاریم اگر ریکشن زیاد بگیرید برنده میشید
+
+جایزه
+نفر اول: کانفیگ نامحدود اوپن VPN دو کاربر - وایرگارد
+
+نفر دوم وایرگارد - ویتوری
+
+نفر سوم وایرگارد
+
+Admin : @Tssub
+</div>
 
 ## tasiyanc — post 9263
 
@@ -275,16 +292,5 @@ https://t.me/+MT03hkV78q9kMTc0
 نمونه آموزش بازی Apple of Furtuneکه سودش تضمینیه رو براتون گذاشتیم پیش بینی های معتبر فوتبالی هم دارن z22:
 📶https://t.me/+MT03hkV78q9kMTc0
 📶https://t.me/+MT03hkV78q9kMTc0
-</div>
-
-## tasiyanc — post 9237
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶 🇳🇱
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-@TASIYANC ✅
 </div>
 

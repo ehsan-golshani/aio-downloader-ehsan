@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/05/24 14:20
+📅 آخرین بروزرسانی: 1405/05/24 14:39
 
 ---
+
+## tasiyanc — post 6000
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریکشن میبینم خندم میگیره🤣
+</div>
 
 ## tasiyanc — post 5999
 
@@ -176,22 +182,5 @@ Create openvpn
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پینگ نگیرید ، کانکت شدید بیاید تل یا اینستا بالا میاد خودش
-</div>
-
-## tasiyanc — post 5969
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان 
-
-5سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 

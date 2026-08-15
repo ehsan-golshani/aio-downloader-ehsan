@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/24 14:20
+📅 آخرین بروزرسانی: 1405/05/24 14:39
 
 ---
+
+## tasiyanc — post 8886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻پادگان چهارم شکاری دزفول تمامی سرباز هارو فرستادن مرخصی و به خانواده‌های نظامیا داخل پادگانم گفتن تخلیه کنید تا عصر.
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8885
 
@@ -294,12 +302,5 @@ Restore this old photograph with maximum realism. Remove scratches, dust, stains
 🇮🇷
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8855
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نت بلاکس : دولت ترکیه بصورت ناگهانی اینترنت کل مردم ترکیه رو قطع کرد.
-@Tasiyanc
 </div>
 

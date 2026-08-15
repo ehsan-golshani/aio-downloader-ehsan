@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/24 14:20
+📅 آخرین بروزرسانی: 1405/05/24 14:39
 
 ---
+
+## tasiyanc — post 9085
+
+<div align="center"><video src="files/post_9085_tasiyanc_9085.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9085_tasiyanc_9085.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نورا وینسنت ، زنی که تصور میکرد زندگی برای مردان بسیار راحت تر است ، ظاهر خود را به مرد تغییر داد ، اما ۱۸ ماه بعد ، بدلیل تحمل نکردن فشار های زندگی به عنوان یک مرد ، به زندگی خود پایان داد
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9084
 
@@ -350,20 +362,5 @@ r16
 •اتصال امن برای همه 🇮🇷
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9063
-
-<div align="center"><img src="files/post_9063_tasiyanc_9063.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 قالیباف:
-حمله بزرگی در راه است... صبر کنید، نه، آن‌ها می‌خواهند مذاکره کنند. این دیپلماسی نمایشی است که بارها تکرار شده است.
-استفاده از زور و تهدید، همراه با وعده‌های دروغین و اخبار جعلی، یک استراتژی شکست‌خورده است.
-حقایق را بپذیرید و به تعهدات خود عمل کنید. ما به نمایش‌های بیشتر نیازی نداریم.
-
-
-@TASIYANC 
-✅
 </div>
 

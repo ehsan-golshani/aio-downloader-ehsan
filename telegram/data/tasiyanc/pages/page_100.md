@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/24 14:20
+📅 آخرین بروزرسانی: 1405/05/24 14:39
 
 ---
+
+## tasiyanc — post 6180
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریکشن چنگی به دل نمیزنه نپستر بزاریم
+</div>
 
 ## tasiyanc — post 6178
 
@@ -197,14 +203,5 @@ VIP تاسیان 🪙 GOLD.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 3 تا سرور فول سرعتی تو راهه
-</div>
-
-## tasiyanc — post 6156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-🦁  @Tasiyanc ✅
 </div>
 

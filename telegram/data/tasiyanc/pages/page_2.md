@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/24 14:20
+📅 آخرین بروزرسانی: 1405/05/24 14:39
 
 ---
+
+## tasiyanc — post 9289
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
 
 ## tasiyanc — post 9288
 
@@ -94,21 +102,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9266
 
 ## tasiyanc — post 9265
-
-## tasiyanc — post 9264
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شرایط
-
-میو میکنید ، ویسشو میدید پیوی ادمین تو کانال میزاریم اگر ریکشن زیاد بگیرید برنده میشید
-
-جایزه
-نفر اول: کانفیگ نامحدود اوپن VPN دو کاربر - وایرگارد
-
-نفر دوم وایرگارد - ویتوری
-
-نفر سوم وایرگارد
-
-Admin : @Tssub
-</div>
 

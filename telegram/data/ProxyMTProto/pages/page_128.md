@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 128
 
-📅 آخرین بروزرسانی: 1405/05/24 14:18
+📅 آخرین بروزرسانی: 1405/05/24 14:37
 
 ---
+
+## ProxyMTProto — post 47601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 72.56.41.35
+Port: 443
+Secret: 7sEXmKsAiDG0dAZsnh6_XINhdml0by5ydQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47600
 

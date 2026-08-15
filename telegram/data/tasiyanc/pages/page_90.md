@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/05/24 14:20
+📅 آخرین بروزرسانی: 1405/05/24 14:39
 
 ---
+
+## tasiyanc — post 6431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡🪐 متد جدید.npvt
+</div>
 
 ## tasiyanc — post 6430
 
@@ -185,11 +191,5 @@ FAST⚡TASIYAN🚀.npvt
 
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبلیغاتی ک میاد از طرف تلگرامه و قابل تایید ما نیست مراقب باشید تو این شرایط جیبتون نزنن❤️
 </div>
 
