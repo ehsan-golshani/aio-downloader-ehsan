@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 242
 
-📅 آخرین بروزرسانی: 1405/05/25 02:10
+📅 آخرین بروزرسانی: 1405/05/25 02:36
 
 ---
+
+## VahidOOnLine — post 249505
+
+<div align="center"><img src="files/post_249505_VahidOOnLine_249505.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجتبی خامنه‌ای، رهبر جمهوری اسلامی، در پیامی به مناسبت دفن علی خامنه‌ای، انتقام خون او را «ماموریت الهی» خواند و گفت: «به‌زودی آزادگانی در سراسر دنیا هر یک بخشی از این ماموریت الهی را انجام خواهند داد.»
+
+او همچنین گفت کسانی که از آن‌ها به عنوان «جنایتکاران» یاد کرد، «آرزوی مرگی آرام و در بستر را با خود به گور خواهند برد.»
+
+مجتبی خامنه‌ای افزود: «آن‌ها باید بدانند که این امر، متوقف بر وجود شخص من یا سایر مسئولان نیست.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249504
 
@@ -311,19 +326,6 @@
 در روزهای اخیر در پی افزایش تنش‌ها درباره امنیت کشتیرانی در آبراه راهبردی تنگه هرمز، ارتش آمریکا مناطقی در پنج استان ایران را هدف حملات قرار داده است.
 سخنگوی وزارت خارجه ایران، صبح شنبه در پیامی اعلام کرد که نیروهای مسلح ایران در مناطق ساحلی و جزایر جنوبی کشور تحرکات نظامی را زیر نظر دارند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249485
-
-<div align="center"><video src="files/post_249485_VahidOOnLine_249485.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249485_VahidOOnLine_249485.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران اینترنشنال آتش‌سوزی در منطقه کارخانه اکسین پالایش در پل‌دختر را در روز جمعه نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

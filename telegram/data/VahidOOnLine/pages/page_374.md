@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 374
 
-📅 آخرین بروزرسانی: 1405/05/25 02:10
+📅 آخرین بروزرسانی: 1405/05/25 02:36
 
 ---
+
+## VahidOOnLine — post 246478
+
+<div align="center"><video src="files/post_246478_VahidOOnLine_246478.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246478_VahidOOnLine_246478.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانیان اسپانیا روز جمعه در مادرید مقابل سفارت آمریکا تجمع کردند تا اعتراض خود به توافق دولت ترامپ با جمهوری اسلامی را نشان دهند و فریاد بزنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246477
 
@@ -282,21 +295,6 @@
 نور‌نیوز با اشاره به حملات اخیر اسرائیل به لبنان پیش از آغاز مذاکرات اجرایی در سوئیس افزود: «بخشی از ساختار سیاسی و امنیتی اسرائیل از هرگونه کاهش تنش میان ایران و آمریکا نگران است.»
 
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246458
-
-<div align="center"><video src="files/post_246458_VahidOOnLine_246458.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246458_VahidOOnLine_246458.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️هم‌زمان با حضور و درخشش تیم ملی فوتبال نروژ در جام جهانی ۲۰۲۶، نمایندگان پارلمان این کشور به رهبری مسعود قره‌خانی، رئیس ایرانی‌تبار پارلمان نروژ، با اجرای حرکت نمادین «پاروزنی وایکینگ‌ها» در صحن مجلس، حمایت خود را از ملی‌پوشان فوتبال کشورشان نشان دادند.
-این شیوه تشویق در هفته‌های اخیر به یکی از نمادهای هواداران تیم ملی نروژ تبدیل شده است. هواداران با الگوبرداری از فرهنگ وایکینگ‌ها، حرکات هماهنگی را برای حمایت از تیم خود اجرا می‌کنند؛ روشی که در جریان رقابت‌های جام جهانی توجه زیادی را به خود جلب کرده است.
-بازیکنان تیم ملی نروژ نیز پیش‌تر با الهام از همین نمادها، برای عکس رسمی جام جهانی با لباس‌های وایکینگی، شمشیر و سپر سنتی ظاهر شده بودند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

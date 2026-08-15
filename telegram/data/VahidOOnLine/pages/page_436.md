@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 436
 
-📅 آخرین بروزرسانی: 1405/05/25 02:10
+📅 آخرین بروزرسانی: 1405/05/25 02:36
 
 ---
+
+## VahidOOnLine — post 244629
+
+<div align="center"><img src="files/post_244629_VahidOOnLine_244629.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارتش کویت اعلام کرد که سامانه‌های پدافند هوایی این کشور چند هدف هوایی متخاصم را رهگیری و منهدم کرده‌اند. پیش‌تر قرارگاه خاتم‌الانبیا از حمله تلافی‌جویانه سپاه و ارتش به چند پایگاه آمریکا در منطقه خبر داده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244628
 
@@ -238,17 +249,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️فارس گزارش داد که سپاه پاسداران یک پهپاد ام‌کیو۹ را در شمال خلیج فارس و در آسمان شهرستان جم در استان بوشهر، سرنگون کرده است. هنوز ارتش آمریکا در این زمینه اظهارنظر نکرده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244606
-
-<div align="center"><img src="files/post_244606_VahidOOnLine_244606.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️درحالی که بحرین و سنتکام هنوز گزارشی از حمله به ناوگان پنجم دریایی آمریکا منتشر نکرده‌اند، سپاه پاسداران در بیانیه‌ای گفت که حوالی ساعت ۲:۳۰ دقیقه بامداد چهارشنبه به این ناوگان حمله کرده است. قرارگاه خاتم نیز گفته که برخی پایگاه‌های آمریکا در منطقه هدف گرفته شدند. هنوز کشورهای منطقه یا سنتکام این حمله‌ها را تایید نکرده‌اند.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

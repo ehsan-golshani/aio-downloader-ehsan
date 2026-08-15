@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 481
 
-📅 آخرین بروزرسانی: 1405/05/25 02:10
+📅 آخرین بروزرسانی: 1405/05/25 02:36
 
 ---
+
+## VahidOOnLine — post 243409
+
+<div align="center"><video src="files/post_243409_VahidOOnLine_243409.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243409_VahidOOnLine_243409.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهایی که به تازگی به ایران اینترنشنال رسیده صحنه‌هایی از درگیری ماموران حکومت با مردم معترض در گوهردشت کرج در ۱۸ دی‌ماه را نشان می‌دهد. در این صحنه ماموران اقدام به تیراندازی می کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243408
 
@@ -298,19 +311,6 @@
 ریاست این کمیته به الحاج جواد الطلیباوی، از فرماندهان ارشد عصائب اهل الحق، واگذار شده است.
 
 ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243383
-
-<div align="center"><img src="files/post_243383_VahidOOnLine_243383.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارتش اسرائیل در بیانیه‌ای اعلام کرد در عملیات روز دوشنبه در مرکز نوار غزه، یوسف عایش عواد رمضان، جانشین فرمانده نیروهای نخبه حماس، کشته شده است.
-
-در این بیانیه آمده است او یکی از افرادی بود که در حمله هفتم اکتبر وارد خاک اسرائیل شد و در ربودن تعدادی از افراد نقش داشت همچنین تهدیدی فوری برای نیروهای اسرائیلی که در نوار غزه فعالیت می‌کنند محسوب می‌شد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
