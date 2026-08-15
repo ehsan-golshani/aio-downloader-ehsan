@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/24 18:39
+📅 آخرین بروزرسانی: 1405/05/24 19:18
 
 ---
+
+## tasiyanc — post 5553
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هم اکنون فعالیت پدافند بندرعباس (احتمالا تست هست)
+</div>
+
+## tasiyanc — post 5552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فارس :
+صداهای مشابهی در جزایر سیریک و جاسک شنیده شده
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5551
 
@@ -447,22 +461,5 @@ Join @Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 WİFİ 🚀speed.npvt
-</div>
-
-## tasiyanc — post 5517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان ۲سرور تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5516
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-TASIYAN INFO ✅
-t.me/TasiyanOwner
 </div>
 

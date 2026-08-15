@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/24 18:39
+📅 آخرین بروزرسانی: 1405/05/24 19:18
 
 ---
+
+## tasiyanc — post 8833
+
+<div align="center"><video src="files/post_8833_tasiyanc_8833.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8833_tasiyanc_8833.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز 8 مرداد، تولد جاویدنام آیدا حیدری هست، دانشجوی پزشکی 21 ساله‌، که در اعتراضات دی ماه، به قتل رسید.
+
+مادر آیدا بعد از فوت دخترش، هر شب به بالکن میره و زار زار گریه می‌کنه.
+⭐ @TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8832
+
+<div align="center"><img src="files/post_8832_tasiyanc_8832.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید مالک تلگرام پاول دروف توی چنل تلگرامش:
+
+عکس خودشو گذاشته نوشته به من میگن تروریست.
+بعد به طالبان میگن شرکای تجاری😂
+⭐ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8826
 
@@ -247,35 +272,5 @@ vless://7216b4e8-e935-4d68-b959-73d145accdee@154.222.9.240:443?security=reality&
 
 Multi Location ⚡
 ⭐ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8799
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹الجزیره: تعداد کشته و مجروح های حشدالشعبی تو حملات دیشب آمریکا و عربستان به 50نفر رسید 🚶‍♂
 </div>
 

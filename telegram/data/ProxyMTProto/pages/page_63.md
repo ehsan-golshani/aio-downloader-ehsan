@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/24 18:37
+📅 آخرین بروزرسانی: 1405/05/24 19:16
 
 ---
+
+## ProxyMTProto — post 48913
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: beer.crona-extra.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48912
 
@@ -172,15 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e63
 Server: 34.147.98.247
 Port: 443
 Secret: dd2d3b774c4cba953aa4f269b4c1a2e854
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48893
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 @ProxyMTProto
 </div>
 

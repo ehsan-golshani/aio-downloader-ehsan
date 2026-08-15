@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/24 18:37
+📅 آخرین بروزرسانی: 1405/05/24 19:16
 
 ---
+
+## ProxyMTProto — post 49419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49418
 
@@ -171,15 +180,6 @@ Secret: ee4331ae1586ba488e489e092e1783969e76706e342e7072696d65706572666f726d616e
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown
 Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49399
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: PAyDaR.goooalir.co.uk
-Port: 8443
 Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>

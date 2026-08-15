@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/05/24 18:39
+📅 آخرین بروزرسانی: 1405/05/24 19:18
 
 ---
+
+## tasiyanc — post 7828
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سپاه پاسداران : تنگه هرمز اکنون به طور دائم بسته شده است و ایالات متحده و متحدان آن دیگر هرگز از خلیج فارس نفت دریافت نخواهند کرد @Tasiyanproxy
+</div>
+
+## tasiyanc — post 7824
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دریافت کانفیگ نت ملی در صورت قطعی 👉 ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
+</div>
 
 ## tasiyanc — post 7823
 
@@ -177,18 +189,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اوه اوه ترامپ عصبانی شد
-</div>
-
-## tasiyanc — post 7788
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروفایل چنل با اجازتون عوض شد ❤️
-</div>
-
-## tasiyanc — post 7785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجب پخت پزی شد 💥 اندپوینتای جدید سرعتی
-دوستانی ک آیفون دارن تو ویندسکرایب بزنید
 </div>
 
