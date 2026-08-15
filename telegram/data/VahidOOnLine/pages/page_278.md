@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 278
 
-📅 آخرین بروزرسانی: 1405/05/24 06:34
+📅 آخرین بروزرسانی: 1405/05/24 07:25
 
 ---
+
+## VahidOOnLine — post 248601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا پس از خامنه‌ای، جمهوری اسلامی وارد مرحله‌ای تازه از بازتوزیع قدرت می‌شود؟
+این پادکست بررسی می‌کند که میراث او چگونه می‌تواند هم راه تغییر را باز کند و هم ساختار را امنیتی‌تر و بسته‌تر سازد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248600
+
+<div align="center"><video src="files/post_248600_VahidOOnLine_248600.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248600_VahidOOnLine_248600.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️در حاشیه مراسم دفن علی خامنه‌ای در مصلای تهران، فضای مراسم تحت‌تاثیر پیام‌ها و شعارهایی با محوریت «خونخواهی» و «انتقام» قرار گرفت، موضوعی که برخی چهره‌های سیاسی و نظامی نیز به‌طور علنی بر آن تاکید کردند.
+سعید جلیلی، عضو شورای عالی امنیت ملی، در اظهاراتی کوتاه در حاشیه مراسم گفت «خونخواهی» علی خامنه‌ای وظیفه مسئولان است. در این مراسم، برخی شرکت‌کنندگان نیز شعارها و پیام‌هایی با مضمون «انتقام» مطرح کردند.
+کانال تلگرامی روزنامه کیهان نیز تصویری از دیوارنویسی منتشر کرد که روی آن نوشته شده بود: «ما ترامپ را می‌کشیم».
+حمیدرضا مقدم‌فر، مشاور فرمانده کل سپاه پاسداران نیز با تاکید بر ادبیات «خونخواهی» گفت «قصاص دشمن یک تکلیف تاریخی برای همه مردم و مسئولان است» و افزود حتی در صورت ادامه مذاکرات، مطالبه «انتقام» همچنان پابرجا خواهد ماند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248599
 
@@ -249,33 +275,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس ویدیوهای رسیده، کروهی از ایرانیان مقیم یونان شنبه ۱۳ تیر با فراخوان شاهزاده رضا پهلوی مقابل سفارت آمریکا در آتن تجمع کرده و سرود «ای ایران» را در مخالفت با مماشات با جمهوری اسلامی همخوانی کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248581
-
-<div align="center"><video src="files/post_248581_VahidOOnLine_248581.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248581_VahidOOnLine_248581.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️جشن‌های دویست‌وپنجاهمین سالگرد استقلال آمریکا شامگاه شنبه با برگزاری آتش‌بازی بر فراز آسمان واشنگتن به پایان رسید. دلیل طوفان و شرایط نامساعد جوی، این مراسم نورانی را برای چند ساعت به تعویق انداخته بود.
-پیش از آغاز آتش‌بازی، مقام‌های محلی به دلیل وقوع طوفان، جمعیت حاضر در محل را به طور موقت تخلیه کردند. پس از بهبود شرایط آب‌وهوایی، تماشاگران بار دیگر به «نشنال مال» (National Mall) بازگشتند و آتش‌بازی پس از سخنرانی دونالد ترامپ، رئیس‌جمهوری آمریکا، برگزار شد و پایان‌بخش برنامه‌های بزرگداشت دویست‌وپنجاهمین سالگرد استقلال این کشور بود.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248580
-
-<div align="center"><video src="files/post_248580_VahidOOnLine_248580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248580_VahidOOnLine_248580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده نشان می‌دهد گروهی از دانشجویان پیام‌نور شهریار به یاد جاویدنامان انقلاب ملی، بادکنک‌های سفید در هوا رها کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

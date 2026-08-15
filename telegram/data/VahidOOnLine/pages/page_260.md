@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 260
 
-📅 آخرین بروزرسانی: 1405/05/24 06:34
+📅 آخرین بروزرسانی: 1405/05/24 07:25
 
 ---
+
+## VahidOOnLine — post 248985
+
+<div align="center"><video src="files/post_248985_VahidOOnLine_248985.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248985_VahidOOnLine_248985.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال، آتش‌سوزی و برخاستن دود در اسکله بندر کوهستک شهرستان سیریک را نشان می‌دهد که هدف حمله بامدادی آمریکا قرار گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248984
+
+<div align="center"><img src="files/post_248984_VahidOOnLine_248984.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️یک نیروی سپاه در حمله آمریکا به بندر ماهشهر کشته شد
+
+♦️سپاه روز چهارشنبه ۱۷ تیرماه اعلام کرد «یکی از پاسداران منطقه سوم نیروی دریایی سپاه» در این روز و همزمان با  حملات آمریکا به بندر ماهشهر کشته شد.
+
+در بیانیه روابط عمومی منطقه سوم نیروی دریایی سپاه آمده است که این نظامی در جریان مقابله با پهپادهای دشمن کشته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248983
 
@@ -273,32 +301,6 @@
 یک منبع خاورمیانه‌ای به سی‌ان‌ان گفت برخی از متحدان منطقه‌ای در حال ارسال پیام‌هایی به آمریکا و جمهوری اسلامی هستند تا از تشدید بیشتر درگیری‌ها جلوگیری کرده و آتش‌بس را حفظ کنند.
 
 این تلاش‌ها پس از حملات متقابل آمریکا و جمهوری اسلامی و افزایش دوباره تنش‌ها، با وجود تفاهم‌نامه آتش‌بس میان دو طرف، در جریان است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248965
-
-<div align="center"><img src="files/post_248965_VahidOOnLine_248965.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محسن رضایی، مشاور نظامی رهبر جمهوری اسلامی، گفت دونالد ترامپ می‌خواهد فشار را در کنار مذاکرات نگه دارد اما بداند اگر قصد حمله مجدد به ایران را داشته باشد کاملاً آماده هستیم.
-
-او این اظهارات را در حالی مطرح کرد که تنش‌ها میان تهران و واشینگتن پس از حملات متقابل در تنگه هرمز و جنوب ایران افزایش یافته است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248964
-
-<div align="center"><img src="files/post_248964_VahidOOnLine_248964.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دستیار وزیر امور خارجه استرالیا، گفت استرالیایی‌ها از تداوم درگیری‌های مقطعی میان آمریکا و جمهوری اسلامی «خسته و کلافه» شده‌اند و از دو طرف خواست به آتش‌بس موقت پایبند بمانند.
-
-مت تیسلثویت، افزود این درگیری بیش از حد طولانی شده و تاکید کرد آتش‌بس باید حفظ شود و تنگه هرمز نیز به‌طور دائمی به روی کشتیرانی بازگشایی شود تا اقتصاد جهانی به شرایط عادی بازگردد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

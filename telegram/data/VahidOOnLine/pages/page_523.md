@@ -1,8 +1,37 @@
 # آرشیو کانال VahidOOnLine - صفحه 523
 
-📅 آخرین بروزرسانی: 1405/05/24 06:34
+📅 آخرین بروزرسانی: 1405/05/24 07:25
 
 ---
+
+## VahidOOnLine — post 242109
+
+<div align="center"><img src="files/post_242109_VahidOOnLine_242109.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری فارس، وابسته به سپاه پاسداران، ضمن اعلام خبر سفر عبدالناصر همتی، رییس بانک مرکزی جمهوری اسلامی به قطر، نوشت که این سفر پیرامون بررسی «آزادسازی اموال بلوکه‌شده» و در راستای کمیسیون اقتصادی مذاکرات انجام شده است.
+
+این در حالی است که در روزهای اخیر و در جریان مذاکرات، هیاتی قطری به ایران سفر کرده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242108
+
+<div align="center"><video src="files/post_242108_VahidOOnLine_242108.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242108_VahidOOnLine_242108.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماسی از هلند:
+«می‌گفت هر روز با برنامه‌های منوتو زندگی می‌کردیم…
+و حالا نمی‌دانیم بعد از آن باید چه کنیم.»
+او همچنین از جاویدنام سینا حق‌شناس یاد کرد؛ دوستی که خبر جان‌باختنش زندگی او را زیر و رو کرده بو
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242107
 
