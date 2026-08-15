@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/05/24 23:15
+📅 آخرین بروزرسانی: 1405/05/24 23:35
 
 ---
+
+## ProxyMTProto — post 48400
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: active.freetg.shop
+Port: 38443
+Secret: 5a4137b07851fc43bd39a6955f56a79b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48399
 
@@ -172,15 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: go.antitspu.com
 Port: 443
 Secret: ee8209c31793eed02f435ab753825b891f676f2e616e7469747370752e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48380
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: iloveto.bein-norway.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

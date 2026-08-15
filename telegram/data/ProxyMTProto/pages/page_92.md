@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/05/24 23:15
+📅 آخرین بروزرسانی: 1405/05/24 23:35
 
 ---
+
+## ProxyMTProto — post 48340
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gate.soluqent.pro
+Port: 443
+Secret: ee6538b62fe47dff3c068ed861df1f0465676174652e736f6c7571656e742e70726f
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48339
 
@@ -172,15 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e
 Server: portal.balalaika.click
 Port: 443
 Secret: eefcbdb65a11b00bbfbbd9de6fb0b17099706f7274616c2e62616c616c61696b612e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48320
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: link.mishkalapy.life
-Port: 443
-Secret: eeb6b2b376ea60c64410542c640dc2765e6c696e6b2e6d6973686b616c6170792e6c696665
 @ProxyMTProto
 </div>
 
