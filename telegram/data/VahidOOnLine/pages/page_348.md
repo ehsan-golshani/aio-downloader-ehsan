@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 348
 
-📅 آخرین بروزرسانی: 1405/05/24 23:14
+📅 آخرین بروزرسانی: 1405/05/25 00:10
 
 ---
+
+## VahidOOnLine — post 247121
+
+<div align="center"><video src="files/post_247121_VahidOOnLine_247121.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247121_VahidOOnLine_247121.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برخی مخاطبان در پیام‌های خود به ایران‌اینترنشنال گفنند که افزایش قیمت مواد غذایی پس از توافق آمریکا و جمهوری اسلامی ادامه یافته و این توافق تاثیری بر معیشت مردم نداشته است. سبا حیدرخانی، عضو تحریریه ایران‌اینترنشنال گزارش می‌دهد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247120
 
@@ -314,19 +327,6 @@ iranintl
 
 لک‌علی‌آبادی در ادامه تاکید کرد، موضوع دارو مستقیما با سلامت و جان مردم در ارتباط است و نمی‌توان با وعده و توضیحات کلی از کنار آن عبور کرد. در صورت اثبات هرگونه قصور یا تخلف در این پرونده، کمیسیون بهداشت مجلس موضوع را تا روشن شدن ابعاد آن پیگیری خواهد کرد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247091
-
-<div align="center"><video src="files/post_247091_VahidOOnLine_247091.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247091_VahidOOnLine_247091.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد از کشتار ۱۸ و ۱۹ دی، بسیاری از ایرانیان با یک سؤال دردناک روبه‌رو هستند: اگر رژیمی حاضر است برای ماندن، مردم را در خیابان بکشد، مردم چگونه می‌توانند با آن مقابله کنند؟
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

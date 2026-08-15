@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 511
 
-📅 آخرین بروزرسانی: 1405/05/24 23:14
+📅 آخرین بروزرسانی: 1405/05/25 00:10
 
 ---
+
+## VahidOOnLine — post 242547
+
+<div align="center"><video src="files/post_242547_VahidOOnLine_242547.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242547_VahidOOnLine_242547.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان‌دهنده فعالیت پدافند بندرعباس در بامداد پنجشنبه ۷ خردادماه است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242546
 
@@ -279,17 +292,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️در نخستین ساعات بامداد پنجشنبه، رسانه‌های کویت از شنیده شدن صدای آژیر در این کشور خبر دادند. همزمان گزارش شد که سیستم دفاع هوایی کویت در مقابله با یک حمله موشکی و پهپادی متخاصم فعال شده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242513
-
-<div align="center"><img src="files/post_242513_VahidOOnLine_242513.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در پی شنیده شدن صداهای انفجار در کویت، ارتش این کشور اعلام کرد این صداها ناشی از رهگیری حملات موشکی و پهپادهای متخاصم از سوی سامانه‌های پدافند هوایی کویت بوده است. پیش‌تر رسانه‌ها از شنیده شدن صداهای انفجار و فعال شدن آژیرهای خطر در کویت خبر دادند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

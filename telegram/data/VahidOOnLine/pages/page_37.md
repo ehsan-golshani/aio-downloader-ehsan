@@ -1,8 +1,17 @@
 # آرشیو کانال VahidOOnLine - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/24 23:14
+📅 آخرین بروزرسانی: 1405/05/25 00:10
 
 ---
+
+## VahidOOnLine — post 254457
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش خبرگزاری فرانسه، تصاویر منتشرشده، پرتاب موشک‌های بالستیک و پهپادهای حوثی‌ها به سوی بندر مخا در غرب یمن را نشان می‌دهد. حوثی‌ها اعلام کردند این حملات مواضع و انبارهای تسلیحاتی در بندر مخا را هدف قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254456
 
@@ -261,19 +270,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بنیامین نتانیاهو، نخست‌ وزیر اسرائیل گفت: جمهوری اسلامی به اسرائیل حمله نمی‌کند چون می‌داند چه ضربه سختی می‌خورد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254437
-
-<div align="center"><video src="files/post_254437_VahidOOnLine_254437.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254437_VahidOOnLine_254437.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دانیال عیوضی، از آسیب‌دیدگان در جریان انقلاب ملی ایرانیان، به ساجده شریفی، خبرنگار ایران‌اینترنشنال، درباره اعتراضات ۱۸ و ۱۹ دی‌ماه گفت معترضان با شعار «جاوید شاه» و در حمایت از شاهزاده رضا پهلوی به خیابان‌ها رفتند، اما جمهوری اسلامی پاسخ آزادی‌خواهی مردم را با تفنگ داد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

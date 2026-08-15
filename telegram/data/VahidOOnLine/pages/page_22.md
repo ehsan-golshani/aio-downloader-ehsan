@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/24 23:14
+📅 آخرین بروزرسانی: 1405/05/25 00:10
 
 ---
+
+## VahidOOnLine — post 254783
+
+<div align="center"><video src="files/post_254783_VahidOOnLine_254783.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254783_VahidOOnLine_254783.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران اینترنشنال، از گرانی تخم‌مرغ و دیگر اقلام خوراکی انتقاد کرد و ضمن اشاره به حقوق پایین گروه بزرگی از شهروندان، تامین هزینه‌های روزمره زندگی را دشوار توصیف کرد و گفت: «سران جمهور اسلامی تا کجا می‌خواهند پیش بروند؟ ما مردم را نابود کردند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254782
 
@@ -312,15 +325,6 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک شهروند با ارسال ویدیویی به ایران اینترنشنال صف بنزین در بوشهر در بامداد ۲۱ مرداد را نشان داد و در پیام خود گزارش داد عرضه سوخت در استان بوشهر تنها با کارت و به‌ شکل محدود انجام می‌شود. او همچنین گفت هیچ مسئولی درباره این محدودیت پاسخگو نیست.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254763
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران اینترنشنال صف بلند بنزین در بندرعباس در بامداد ۲۱ مرداد را نشان داد و اشاره کرد که پیشتر، مسئولان مربوط از حل مشکل بنزین در این شهر خبر داده بودند.
 IranintlTV
 
 🤖 @VahidOOnLine

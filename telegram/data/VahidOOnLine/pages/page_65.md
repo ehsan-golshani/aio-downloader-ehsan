@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/05/24 23:14
+📅 آخرین بروزرسانی: 1405/05/25 00:10
 
 ---
+
+## VahidOOnLine — post 253747
+
+<div align="center"><img src="files/post_253747_VahidOOnLine_253747.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش تسنیم، زمین‌لرزه‌ای به بزرگی ۴، بامداد چهارشنبه، حوالی یاسوج در مرز استان‌های کهگیلویه و بویراحمد، اصفهان و فارس را لرزاند. براساس این گزارش، این زلزله در عمق ۶ کیلومتری زمین رخ داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253746
 
@@ -259,19 +270,6 @@
 این مراسم با حضور خانواده احسان ابوالحسن‌بیگی و خانواده‌های دیگر جاویدنامان این شهر، از جمله شمشاد اخلاصی، سعید دهقانی، حجت مرادی، محمدمهدی روستا و ابراهیم قاسمی‌نژاد برگزار شد. حاضران محل کشته شدن این جان‌باختگان را گل‌باران کردند.
 احسان ابوالحسن‌بیگی، ۴۴ ساله، ۱۸ دی‌ماه ۱۴۰۴ در جریان اعتراضات شیراز کشته شد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253727
-
-<div align="center"><video src="files/post_253727_VahidOOnLine_253727.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253727_VahidOOnLine_253727.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ دونالد ترامپ، رئیس‌جمهوری آمریکا، روز سه‌شنبه ۱۳مرداد ماه،  برای سفر به شهرهای لس‌آنجلس و لاس‌وگاس، سوار هواپیمای اختصاصی ریاست‌جمهوری «ایرفورس وان» شد. کاخ سفید اعلام کرده است ترامپ در جریان این سفر در چند برنامه و نشست از پیش تعیین‌شده شرکت خواهد کرد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
