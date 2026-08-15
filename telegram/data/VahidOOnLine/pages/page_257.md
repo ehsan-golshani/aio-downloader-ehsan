@@ -1,8 +1,33 @@
 # آرشیو کانال VahidOOnLine - صفحه 257
 
-📅 آخرین بروزرسانی: 1405/05/24 22:20
+📅 آخرین بروزرسانی: 1405/05/24 22:45
 
 ---
+
+## VahidOOnLine — post 249141
+
+<div align="center"><img src="files/post_249141_VahidOOnLine_249141.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، همزمان با حملات آمریکا به اهدافی در جنوب ایران، در پیامی در شبکه اجتماعی ایکس نوشت: «دشمن متجاوز و هم‌دستانش به‌شدت تنبیه خواهند شد.»
+او این پیام را به دو زبان عربی و فارسی خطاب به کشورهای حوزه خلیج فارس منتشر کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249140
+
+<div align="center"><img src="files/post_249140_VahidOOnLine_249140.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، در تروت سوشال طی حدود یک ساعت، ۱۱ عکس و ویدیو بدون هیچ شرح یا توضیحی از صحنه های انفجار در مناطق مختلف منتشر کرد.
+
+این تصاویر و ویدیوها، به نظر می‌رسد که به حملات ارتش آمریکا به اهدافی در ایران مربوط باشند؛ با اینحال ترامپ در هیچ‌یک از این پست‌ها توضیحی درباره زمان، مکان یا محتوای آنها ارائه نکرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249139
 
@@ -249,26 +274,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دونالد ترامپ، رییس‌جمهوری آمریکا، با بازنشر پستی در تروث سوشال که تصویری از یک آتش‌سوزی را نشان می‌دهد که بالای آن اسم چابهار آورده شده، نوشت: «این حملات در تلافی بمباران کشتی‌ها از سوی ایران در روز گذشته انجام شد. اگر دوباره تکرار شود، اوضاع بسیار بدتر خواهد شد.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249121
-
-<div align="center"><img src="files/post_249121_VahidOOnLine_249121.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، با بازنشر پستی در تروث سوشال که تصویری از یک آتش‌سوزی را نشان می‌دهد که بالای آن اسم چابهار آورده شده، نوشت: «این حملات در تلافی بمباران کشتی‌ها از سوی ایران در روز گذشته انجام شد. اگر دوباره تکرار شود، اوضاع بسیار بدتر خواهد شد.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249120
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال، دود بزرگ انفجاری را در بوشهر در پی حملات هوایی آمریکا نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

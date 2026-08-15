@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/24 22:23
+📅 آخرین بروزرسانی: 1405/05/24 22:48
 
 ---
+
+## tasiyanc — post 8588
+
+<div align="center"><video src="files/post_8588_tasiyanc_8588.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8588_tasiyanc_8588.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☄️ مرگ دایناسورها؛ داستان یک برخورد مرگبار
+
+شهاب‌سنگی عظیم به منطقه‌ای در مکزیک امروزی برخورد کرد و انفجاری با قدرتی باورنکردنی به وجود آورد. گردوغبار ناشی از این برخورد، آتش سوزی جنگلها و... زنجیره غذایی از هم پاشید و در نهایت حدود ۷۵ درصد از گونه‌های زنده زمین، از جمله دایناسورها، منقرض شدند.
+امروز دهانه عظیم چیکشلوب زیر خاک و آب‌های مکزیک مدفون است؛ یادگاری خاموش از یکی از سرنوشت‌سازترین لحظات تاریخ زمین🌍
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8587
 
@@ -248,11 +262,5 @@ Location 🤯 🇫🇷
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨
 ⭕️ انفجار در قطرررررررر
-</div>
-
-## tasiyanc — post 8541
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇹🇷🍃 HotFast.npvt
 </div>
 

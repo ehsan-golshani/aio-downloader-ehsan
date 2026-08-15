@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 202
 
-📅 آخرین بروزرسانی: 1405/05/24 22:20
+📅 آخرین بروزرسانی: 1405/05/24 22:45
 
 ---
+
+## VahidOOnLine — post 250483
+
+<div align="center"><img src="files/post_250483_VahidOOnLine_250483.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علیرضا زاکانی، شهردار تهران، در سخنانی گفت مسئولان کشور باید برای سر دونالد ترامپ، رییس‌جمهوری آمریکا، و «هم‌دستانش» جایزه تعیین کنند.
+
+او این اظهارات را در حالی مطرح کرد که تنش‌ها میان جمهوری اسلامی و آمریکا همچنان ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250482
+
+<div align="center"><img src="files/post_250482_VahidOOnLine_250482.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری مهر گزارش دادند که پنجشنبه‌شب ۲۵ تیرماه، ایستگاه انشعاب راه‌آهن بندرعباس هدف حمله ارتش آمریکا قرار گرفته است. بر اساس این گزارش‌ها، در پی این حمله دو نفرمجروح شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250481
 
@@ -255,32 +279,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان یونان روز پنجشنبه برای گرامیداشت سناتور فقید لیندزی گراهام، عضو کنگره آمریکا و حامی انقلاب ملی ایرانیان، مراسم بزرگداشتی در مقابل سفارت ایالات متحده در آتن برگزار کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250463
-
-<div align="center"><img src="files/post_250463_VahidOOnLine_250463.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ معاون امنیتی و انتظامی استاندار خوزستان، پنجشنبه‌شب ۲۵ تیر، اعلام کرد که نقاطی در اطراف شهر اهواز هدف حملات هوایی ارتش آمریکا قرار گرفته است. پیش از این گزارش‌ها از شنیده شدن صدای انفجار در بندرعباس و جزیره قشم نیز منتشر شده بود.
-
-فرماندهی مرکزی ارتش آمریکا، سنتکام، اعلام کرد که دور جدیدی از حملات خود را از ساعت ۲۱:۳۰ به وقت ایران آغاز کرده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250462
-
-<div align="center"><img src="files/post_250462_VahidOOnLine_250462.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، اظهارات دونالد ترامپ درباره آزادی یک زندانی آمریکایی را تکذیب کرد و اعلام کرد: «هیچ زندانی آمریکایی از زندان‌های ایران آزاد یا مبادله نشده است.»
-
-پیش‌تر دونالد ترامپ اعلام کرد جمهوری اسلامی به یک شهروند زن آمریکایی که در دسامبر ۲۰۲۴ و در دوران ریاست‌جمهوری جو بایدن «به ناحق بازداشت شده بود»، اجازه خروج از ایران را داده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

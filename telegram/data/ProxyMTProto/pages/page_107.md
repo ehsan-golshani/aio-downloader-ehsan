@@ -1,8 +1,20 @@
 # آرشیو کانال ProxyMTProto - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/05/24 22:21
+📅 آخرین بروزرسانی: 1405/05/24 22:46
 
 ---
+
+## ProxyMTProto — post 48038
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 Телеграм тормозит?
+🚨 تلگرام کند شده؟
+
+⚡Бесплатный рабочий прокси
+⚡پروکسی رایگان و فعال
+
+👇Получить / دریافت پروکسی
+</div>
 
 ## ProxyMTProto — post 48037
 
@@ -172,15 +184,6 @@ Secret: dd96d0f04ace50bb54a492c1415bfff1e5
 Server: Unknown
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48018
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ya.proxyobhod.online
-Port: 8443
-Secret: ee2419e93e2af4bddd80bb8bc8936ea49879612e70726f78796f62686f642e6f6e6c696e65
 @ProxyMTProto
 </div>
 

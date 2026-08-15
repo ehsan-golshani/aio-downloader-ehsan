@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/24 22:23
+📅 آخرین بروزرسانی: 1405/05/24 22:48
 
 ---
+
+## tasiyanc — post 9075
+
+<div align="center"><img src="files/post_9075_tasiyanc_9075.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مردی در کشور ولز لباس عزرائیل میپوشید هر صبح می‌رفت روبروی بیمارستان به پنجره بیماران زل میزد ، توسط پلیس دستگیر شد 😞
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9074
 
@@ -342,11 +352,5 @@ Join @TASIYANC
 اتصال امن برای همه 🇮🇷
 
 📱 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9048
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش از وضعیت اینترنت خطوط همراه و ایرانسل بدید
 </div>
 
