@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/24 02:22
+📅 آخرین بروزرسانی: 1405/05/24 09:21
 
 ---
+
+## tasiyanc — post 8369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرگزرای CBS به نقل از مقام نظامی: حملات امشب دقایقی دیگر آغاز میشود و گستردگی بیشتری دارد
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8367
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌انفجار در سنندج
+
+۴انفجار در بندر عباس
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌دلار ۱۹۵رو شکست
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8365
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌انفجار در بندر عباس و بیرجند
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8364
 
@@ -197,41 +231,5 @@ Multi Location ⚡ Fast.npvt
 گوش دادن به آهنگ و چیزای دیگه مثل کسشرای رفیقته
 
 @Tasiyanc ✅| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8335
-
-<div align="center"><img src="files/post_8335_tasiyanc_8335.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زیبایي کوههای مریخيِ چابهارِ زیبا
-
-پروکسی | پروکسی | پروکسی | پروکسی
-
-@Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
-</div>
-
-## tasiyanc — post 8324
-
-<div align="center"><img src="files/post_8324_tasiyanc_8324.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاوت‌های جنسی در دنیای جانوران 🦋
-
-پروکسی | پروکسی | پروکسی | پروکسی
-
-@Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت همراه اول/ایرانسل تو شهر شما چطوریه؟
 </div>
 

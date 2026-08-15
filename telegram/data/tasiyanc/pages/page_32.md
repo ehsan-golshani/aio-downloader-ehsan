@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/24 02:22
+📅 آخرین بروزرسانی: 1405/05/24 09:21
 
 ---
+
+## tasiyanc — post 8449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی بعدی فینال ایران و امریکا
+</div>
+
+## tasiyanc — post 8448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گل شد ولی افساید
+</div>
+
+## tasiyanc — post 8447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آرژانتین کامبک میزنه یا ن؟
+</div>
+
+## tasiyanc — post 8446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانیااااااااااا میزنه
+</div>
 
 ## tasiyanc — post 8445
 
@@ -120,29 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این بیژن مرتضوی ما چی شد
-</div>
-
-## tasiyanc — post 8427
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه بازی کسشریه
-</div>
-
-## tasiyanc — post 8425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داور خطای واضح روی اسپانیارو نمیگیره🤣
-</div>
-
-## tasiyanc — post 8424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه آرژانتین از کون اورد
-</div>
-
-## tasiyanc — post 8423
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت ترامپ کنار اینفانتینو امشب در استادیومه و قراره جام قهرمانی رو شخصا خودش به تیم قهرمان بده
 </div>
 

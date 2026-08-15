@@ -1,8 +1,102 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/24 02:22
+📅 آخرین بروزرسانی: 1405/05/24 09:21
 
 ---
+
+## tasiyanc — post 9000
+
+<div align="center"><video src="files/post_9000_tasiyanc_9000.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9000_tasiyanc_9000.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 
+👍
+😁
+😊
+🙂
+
+🥇واریز و برداشت ارزی و ریالی
+‼️
+
+🔥بونوس 100% اولین واریز
+‼️
+
+⚽️بونوس ورزشی هرچهارشنبه
+‼️
+
+🆗کازینو و انفجار با ضرایب جهانی
+‼️
+
+
+🎁کد هدیه ثبت نام :Melbet90
+
+
+🇩🇪دانلود اپلیکیشن MELBET
+👉
+
+
+🔗لینک وبسایت
+👉
+
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
+🇨🇦 
+🇹🇷 r14
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 8998
+
+<div align="center"><img src="files/post_8998_tasiyanc_8998.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید 🆕
+
+Based on our chats, generate a clean 3x3 picture showing how you see me as a color, a song, a weather, a season, a book, a scent, a place, a flower, and a food.
+
+🚨کاربرد : این پرامپت رو میدید AI که باهاش حرف میزنید بر اساس چیز هایی که بهش گفتید به شما میگه
+چه وایب مثل رنگ، آهنگ، آب و هوا، فصل، کتاب، مکان، گل و غذا از شما گرفته !
+
+💙@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8997
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دست کم ۷ انفجار در دوبی منطقه جبل علی
+
+مشخص نیست حمله شده یا چی
+</div>
+
+## tasiyanc — post 8996
+
+<div align="center"><video src="files/post_8996_tasiyanc_8996.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8996_tasiyanc_8996.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 یک سایت اما دسترسی به ده‌ها هوش مصنوعی!
+
+
+🟠اگر نمی‌خواهی برای هر مدل هوش مصنوعی یک سایت جدا باز کنی، Poe.com دقیقاً همان چیزی است که دنبالش هستی.
+
+در Poe می‌توانی با مدل‌هایی مثل ChatGPT، Claude، Gemini، DeepSeek، Grok، Llama و ده‌ها مدل دیگر، همه در یک پلتفرم، گفتگو کنی و بهترین پاسخ را بگیری.
+
+🪩 https://Poe.com
+
+
+
+⚡️@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8995
 
@@ -242,74 +336,5 @@ vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 
 👹@TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8976
-
-<div align="center"><video src="files/post_8976_tasiyanc_8976.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8976_tasiyanc_8976.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥با این سایت به راحتی میتونی کل ضرر های جام جهانی رو جبران کنی
-بونوس هاش واقعا عالیه👌🏼بدون قیدوشرط
-
-❌با هر 1 میلیون شارژ ، 
-🤩
-🤩
-🤩 هزارتومان شارژ اضافی بگیر
-🅰️
-
-
-❌
-❌طرح شارژ رایگان فقط تا پایان مرداد ماه
-</div>
-
-## tasiyanc — post 8975
-
-<div align="center"><video src="files/post_8975_tasiyanc_8975.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8975_tasiyanc_8975.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛍 #میلان Vs #اینتر💰
-
-🛍 #چلسی Vs #یوونتوس💰
-
-زمان: چهارشنبه ساعت ۱۴
-
-
-🚨 تجربه پیشبینی مطمئن با
-
-🤩 
-🤩 
-🅰️ شارژ اضافی و ریسک خیلی پایین در #بت_اینجا رو از دست نده
-❌
-
-
-🤩 
-🤩 درصد برگشت وجه در صورت باخت:
-
-🌐 betinja.bet
-
-🌐 betinja.bet
-کانال بونوس های رایگان g13
-@betinjabet
-</div>
-
-## tasiyanc — post 8974
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم…
-</div>
-
-## tasiyanc — post 8973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد
-
-زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم 😂
-
-@Tasiyanc ⭐️
 </div>
 

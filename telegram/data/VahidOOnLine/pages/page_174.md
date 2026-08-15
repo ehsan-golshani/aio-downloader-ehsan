@@ -1,8 +1,45 @@
 # آرشیو کانال VahidOOnLine - صفحه 174
 
-📅 آخرین بروزرسانی: 1405/05/24 08:14
+📅 آخرین بروزرسانی: 1405/05/24 09:19
 
 ---
+
+## VahidOOnLine — post 251021
+
+<div align="center"><img src="files/post_251021_VahidOOnLine_251021.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش خبرگزاری فرانسه، یسرائیل کاتز، وزیر دفاع اسرائیل، یکشنبه ۲۸ تیرماه گفت این کشور به هرگونه حمله ایران با «تمام قوا» پاسخ خواهد داد.
+کاتز در جریان بازدید از یک مرکز خدمات امدادی گفت: «اگر ایران به اسرائیل موشک شلیک کند، با تمام قوا به آنها حمله خواهیم کرد.» او افزود که اگر ایالات متحده سیاست خود را تغییر دهد، اسرائیل برای اقدامات دفاعی و تهاجمی علیه تهران آماده است.
+این اظهارات پس از آن مطرح شد که نیروهای اسرائیلی و اردنی یک موشک شلیک‌شده از ایران به سوی شهر عقبه در اردن را رهگیری کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251020
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا نقدِ یک جریان سیاسی، نشانه بی‌وفایی است یا لازمه موفقیت آن؟ این پادکست با استعاره‌ای از فوتبال، نشان می‌دهد چرا نقدِ راهبردها و تصمیم‌ها نه حمله به آرمان، بلکه بخشی ضروری از مسیرِ اصلاح، پیشرفت و پیروزی است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251019
+
+<div align="center"><video src="files/post_251019_VahidOOnLine_251019.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251019_VahidOOnLine_251019.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️هزاران نفر از ساکنان شهر باتان در استان بوئنوس‌آیرس آرژانتین، در آستانه دیدار فینال جام جهانی ۲۰۲۶، با رونمایی از یک پرچم ملی به طول ۱۰۰۰ متر از تیم ملی کشورشان حمایت کردند.
+این پرچم که با مشارکت و تلاش داوطلبانه مردم محلی تهیه شده، در خیابان‌های شهر به نمایش درآمد و به محور اصلی جشن هواداران آرژانتین پیش از دیدار فینال مقابل اسپانیا تبدیل شد.
+دو تیم آرژانتین و اسپانیا، شامگاه یکشنبه در ورزشگاه نیویورک ـ نیوجرسی فینال جام جهانی ۲۰۲۶ را برگزار می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251018
 
@@ -223,47 +260,6 @@
 بستگان از او به‌عنوان جوانی خوش‌رو، ورزشکار و پرانرژی یاد می‌کنند. مهدی از کودکی ورزش می‌کرد و در رشته‌های ووشو و کیک‌بوکسینگ موفق به کسب مدال در رقابت‌های کشوری شده بود. او همچنین به مدلینگ و نوازندگی پیانو علاقه زیادی داشت.
 پیکر مهدی رنجبری پس از برگزاری مراسم خاکسپاری، در بهشت زهرا به خاک
 https
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251001
-
-<div align="center"><img src="files/post_251001_VahidOOnLine_251001.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به گزارش تلویزیون رسمی اردن، آژیرهای هشدار در این کشور به صدا درآمدند.
-
-تاکنون مقامات اردنی جزییاتی درباره ماهیت تهدید یا خسارات و تلفات احتمالی منتشر نکرده‌اند.
-
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251000
-
-<div align="center"><img src="files/post_251000_VahidOOnLine_251000.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، در در تروث‌سوشال نوشت: «جمهوری‌خواهان باید جمهوری اسلامی را نیز به لایحه تحریم‌های روسیه اضافه کنند.»
-
-او در ادامه افزود این همان کاری بود که لیندزی گراهام می‌خواست انجام شود و قرار بود این اتفاق رخ دهد.
-
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250999
-
-<div align="center"><video src="files/post_250999_VahidOOnLine_250999.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250999_VahidOOnLine_250999.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهند که یکشنبه ۲۸ تیر، گروهی از بازنشستگان تامین اجتماعی شوش در شهر اهواز تجمع کرده و در اعتراض به مشکلات معیشتی و حقوق کم، شعار دادند: «زیر بار ستم نمی‌کنیم زندگی، جان فدا می‌کنیم در ره آزادگی»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

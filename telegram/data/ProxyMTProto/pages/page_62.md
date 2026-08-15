@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/24 08:43
+📅 آخرین بروزرسانی: 1405/05/24 09:19
 
 ---
+
+## ProxyMTProto — post 48912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: aerie.sosun4ik.top
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48911
 
@@ -172,15 +181,6 @@ Secret: dd2d3b774c4cba953aa4f269b4c1a2e854
 Server: Unknown
 Port: 443
 Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48892
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: swag.caxero.ru
-Port: 443
-Secret: 8f3c7a1d4b92e6c51a7d0fb843c2e91f
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,86 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/24 02:22
+📅 آخرین بروزرسانی: 1405/05/24 09:21
 
 ---
+
+## tasiyanc — post 6811
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به درخواست همراه اولیا گذاشتم ، شیرخورشید 88.221.169.217 88.221.169.207 88.221.169.38 88.221.169.11 88.221.169.18 88.221.169.28 88.221.169.132 88.221.169.127 88.221.169.107 88.221.169.121 @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6810
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به درخواست همراه اولیا گذاشتم ، شیرخورشید
+88.221.169.217
+88.221.169.207
+88.221.169.38
+88.221.169.11
+88.221.169.18
+88.221.169.28
+88.221.169.132
+88.221.169.127
+88.221.169.107
+88.221.169.121
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6809
+
+<div align="center"><video src="files/post_6809_tasiyanc_6809.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6809_tasiyanc_6809.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+😎
+
+۳سرور سرعتی همه نت ها 
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+🔹
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6808
+
+<div align="center"><video src="files/post_6808_tasiyanc_6808.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6808_tasiyanc_6808.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 
+👑
+
+حجم و کاربر نامحدود 
+🟢
+
+دانلود 
+📱 WG tunnel 
+🕹 iOS WG
+
+آموزش اتصال 
+⛓
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6804
 
@@ -155,50 +233,5 @@ VIP⚡ APEX ⛓️.npvt
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6783
-
-<div align="center"><img src="files/post_6783_tasiyanc_6783.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی فیلم 🎬
-▪️ فیلم : Michael (2026)
-🩷​IMDb 7.7
-فیلم بیوگرافی و پرسروصدای مایکل جکسون سرانجام اکران شد. این اثر ۴ دهه زندگی، نبوغ هنری، پشت‌صحنه موزیک‌ویدیوهای شاهکار و چالش‌های شخصی مایکل رو به تصویر کشیده.
-با هنرنمایی Jaafar Jackson (برادرزاده واقعی مایکل جکسون)
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6781
-
-<div align="center"><img src="files/post_6781_tasiyanc_6781.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یادآوری : شات معنادار 😂 اگه گفتید کیه؟
-</div>
-
-## tasiyanc — post 6779
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨صدای توافق در سیریک🤣
-
-@TasiyanProxy
-</div>
-
-## tasiyanc — post 6778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
 </div>
 
