@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/05/24 21:15
+📅 آخرین بروزرسانی: 1405/05/24 21:36
 
 ---
+
+## ProxyMTProto — post 47856
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sexy.arixo.shop
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c59617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47855
 
@@ -175,14 +184,5 @@ Secret: dd104462821249bd7ac519130220c25d09
 
 🌎 Get your dedicated proxy now!
 👇 پروکسی اختصاصی خودتو بگیر
-</div>
-
-## ProxyMTProto — post 47836
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: london.nolags.pw
-Port: 443
-Secret: dd6fe89c6d1f5f8b54afc931cf4f640b91
-@ProxyMTProto
 </div>
 
