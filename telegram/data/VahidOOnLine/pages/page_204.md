@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 204
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 250458
+
+<div align="center"><img src="files/post_250458_VahidOOnLine_250458.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهای آمریکا شامگاه پنج‌شنبه برای پنجمین شب متوالی، موج تازه‌ای از حملات علیه جمهوری اسلامی را آغاز کردند.
+به گفته سنتکام، هدف این حملات تضعیف بیشتر توانایی‌های نظامی جمهوری اسلامی است.
+همزمان رسانه‌های ایران از حمله جدید به نقاطی در بندرعباس در ساعت ۲۱:۳۵ به وقت محلی خبر دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250457
 
@@ -263,19 +276,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️خبرگزاری رکنا به نقل از استانداری هرمزگان اعلام کرد که پنجشنبه‌شب، ۲۵ تیر، نقاطی در حوالی بندرعباس در دو نوبت هدف موشک‌های آمریکا قرار گرفته است. پیش از این نیز گزارش‌هایی از هدف قرار گرفتن جزیره قشم منتشر شده بود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250438
-
-<div align="center"><img src="files/post_250438_VahidOOnLine_250438.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری رویترز شامگاه پنج شنبه به نقل از شاهدان عینی از شنیده شدن صدای انفجار در مرکز شهر دبی خبر داد.
-
-همزمان رسانه‌های ایران از «حملات آمریکا» به مناطقی از قشم و بندرعباس خبر دادند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

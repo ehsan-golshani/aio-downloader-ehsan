@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 189
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 250786
+
+<div align="center"><img src="files/post_250786_VahidOOnLine_250786.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️نیروی آتش‌نشانی کویت، روز شنبه ۲۷ تیرماه اعلام کرد چند آتش‌نشان و یک کارگر در جریان عملیات مقابله با آتش‌سوزی‌هایی که در پی حملات جمهوری اسلامی در این کشور رخ داده است، زخمی شده‌اند.
+پیشتر وزارت برق، آب و انرژی‌های تجدیدپذیر کویت، اعلام کرده بود پس از حمله نیروهای مسلح جمهوری اسلامی به یک نیروگاه تولید برق و آب‌شیرین‌کن در این کشور، آتش‌سوزی در این تاسیسات رخ داده و چند واحد تولید برق در پی این حادثه از مدار خارج شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250785
 
@@ -288,19 +300,6 @@ iranintl
 
 روابط عمومی سپاه پاسداران انقلاب اسلامی، صبح شنبه اعلام کرده بود: «اسکله پشتیبانی سوخت ناوگان آمریکا در بندر الاحمدی کویت» را هدف حملات پهپادی و موشکی قرار داده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250766
-
-<div align="center"><video src="files/post_250766_VahidOOnLine_250766.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250766_VahidOOnLine_250766.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که یک معترض در اصفهان، پرچم جمهوری اسلامی را به آتش کشید.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

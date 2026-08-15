@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 341
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 247301
+
+<div align="center"><img src="files/post_247301_VahidOOnLine_247301.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی ایالات متحده، سنتکام، تصاویری از برخاست و فرود جنگنده‌های اف-۳۵ روی ناو هواپیمابر یو‌اس‌اس تریپولی در دریای عرب در شبکه ایکس منتشر کرد و اعلام کرد نیروهای نیروی دریایی و تفنگداران دریایی آمریکا در این منطقه در حال انجام ماموریت هستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247300
 
@@ -273,19 +284,6 @@
 
 رئیس جمهوری آمریکا با تاکید چندباره بر «نابودی توان نظامی ایران» گفت: رهبری ایران نابود شده است برای نخستین بار در سه هزار سال گذشته، سرانجام در خاورمیانه صلح برقرار خواهد شد.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247279
-
-<div align="center"><video src="files/post_247279_VahidOOnLine_247279.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247279_VahidOOnLine_247279.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد که ظهر چهارم تیرماه در شهر ازنا در استان لرستان، روی پشت‌بام یک ساختمان در نزدیکی محل عزادارای عاشورا تک‌تیراندازها مستقر شدند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

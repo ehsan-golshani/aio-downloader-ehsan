@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 182
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 250945
+
+<div align="center"><img src="files/post_250945_VahidOOnLine_250945.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرکز لرزه‌نگاری دانشگاه تهران اعلام کرد زمین‌لرزه‌ای به بزرگی پنج ریشتر، بامداد یکشنبه منطقه سالند در استان خوزستان را لرزاند.
+
+بر اساس این گزارش، این زمین‌لرزه ساعت ۵:۵۵ به وقت ایران و در عمق ۱۲ کیلومتری زمین رخ داد و لرزش آن در شهرهای مختلف استان خوزستان، از جمله اندیمشک، شوش و اهواز احساس شد.
+
+تاکنون گزارشی درباره خسارات یا تلفات احتمالی این زمین‌لرزه منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250944
 
@@ -276,17 +291,6 @@ ht
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️منابع امنیتی به خبرگزاری رویترز اعلام کردند، بامداد یکشنبه، یک پهپاد مهاجم و انتحاری در نزدیکی کنسولگری ایالات متحده آمریکا در غرب شهر اربیل واقع در اقلیم کردستان عراق سرنگون شده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250916
-
-<div align="center"><img src="files/post_250916_VahidOOnLine_250916.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری رویترز به نقل از «منابع امنیتی» گزارش داد: یک پهپاد حامل مواد منفجره در نزدیکی کنسولگری آمریکا در غرب اربیل عراق سرنگون شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

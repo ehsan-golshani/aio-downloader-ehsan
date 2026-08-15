@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 199
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 250565
+
+<div align="center"><video src="files/post_250565_VahidOOnLine_250565.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250565_VahidOOnLine_250565.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد که برج مراقبت دریایی بندر کلانتری چابهار در حمله صبح جمعه آمریکا هدف قرار گرفته و تخریب شد. بنا بر گزارش خبرگزاری ایرنا این حادثه هیچ تلفاتی در پی نداشته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250564
 
@@ -336,21 +349,6 @@
 پیش‌تر در روز جمعه، وزارت کشور قطر اعلام کرده بود که یک کودک بر اثر سقوط ترکش ناشی از یک حمله رهگیری‌شده ایران زخمی شده است.
 همزمان در بحرین، وزارت کشور این کشور اعلام کرد که آژیرهای هشدار برای دومین بار صبح روز جمعه فعال شدند.
 ارتش جمهوری اسلامی ایران پیش‌تر گفته بود که اهداف نظامی آمریکا در بحرین را هدف قرار داده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250541
-
-<div align="center"><video src="files/post_250541_VahidOOnLine_250541.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250541_VahidOOnLine_250541.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ویدیوهای منتشرشده در کانال تلگرامی «وحید آنلاین» روز جمعه ۲۶ تیر، ستون‌های دود ناشی از حملات بامدادی در چابهار را نشان می‌دهد.
-پیش‌تر نیز تصاویری از لحظه فرو ریختن باقی‌مانده ساختمان برج مراقبت دریایی چابهار را منتشر شده بود.
-چابهار یکی از اهداف مهم آمریکا پس از آغاز حملات به ایران بوده است.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

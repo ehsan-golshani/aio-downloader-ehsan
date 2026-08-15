@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 253520
+
+<div align="center"><video src="files/post_253520_VahidOOnLine_253520.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253520_VahidOOnLine_253520.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند، گروهی از ایرانیان مقیم فرانسه یکشنبه ۱۱ مرداد در اعتراض به اعدام‌های جمهوری اسلامی، در شهر پاریس تجمع کرده و شعارهایی چون «قسم به خون یاران، ایستاده‌ایم تا پایان» سردادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253519
 
@@ -274,23 +287,6 @@ iranintl
 
 او ادامه داد: «منتظر اقدامات عملی کی‌یف هستیم تا اثبات کنند این اقدام غیرعمدی بوده است و هر اقدامی برای جلوگیری از تکرار این جنایت انجام خواهیم داد.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253483
-
-<div align="center"><img src="files/post_253483_VahidOOnLine_253483.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ خبرگزاری فارس، وابسته به سپاه پاسداران بامداد دوشنبه ۱۲ مردادماه از کشف یک لوله انتقال نفت سرقتی به یک مخزن زیرزمینی در دشتی بوشهر خبر داد.
-
-فارس به نقل از فرمانده انتظامی استان بوشهر نوشت: «انشعابی با لوله ۴۲ اینچی به طول ۹۰۰ متر، و مخزن زیرزمینی ذخیره نفت در شهرستان دشتی استان بوشهر شناسایی شد.
-
-به گفته این مقام محلی «تاکنون بیش از ۵۰ هزار لیتر نفت خام به ارزش ۵۰ میلیارد ریال کشف و تجهیزات توقیف شده است.»
-
-هنوز خبری درباره متهمان این پرونده منتشر نشده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

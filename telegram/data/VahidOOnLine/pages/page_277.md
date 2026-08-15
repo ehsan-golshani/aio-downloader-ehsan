@@ -1,8 +1,17 @@
 # آرشیو کانال VahidOOnLine - صفحه 277
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 248724
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد دوشنبه ۱۵ تیر گروهی از حامیان حکومت در تهران پس از شرکت در مراسم تشییع خامنه‌ای و در قطار مترو شعار «رهبر ما رو کشتن، مذاکره گذاشتن» سردادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248723
 
@@ -298,19 +307,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، نوشت سیاست خارجی حکومت در دوره رهبری علی خامنه‌ای بر مجموعه‌ای از اصول استوار بود که تصمیم‌گیری‌ها کمتر تحت تاثیر تغییر دولت‌ها یا تحولات سیاسی روزمره قرار می‌گرفت.
 او علی خامنه‌ای را یکی از معماران اصلی جهت‌گیری‌های کلان سیاست خارجی جمهوری اسلامی معرفی کرد و نوشت خامنه‌ای این رویکرد پیش از رهبری و در دوران ریاست‌جمهوری آغاز کرده بود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248699
-
-<div align="center"><video src="files/post_248699_VahidOOnLine_248699.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248699_VahidOOnLine_248699.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان یکشنبه ۱۴ تیر در هیوستون تگزاس علیه جمهوری اسلامی راهپیمایی کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

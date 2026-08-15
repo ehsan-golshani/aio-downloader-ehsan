@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 254634
+
+<div align="center"><video src="files/post_254634_VahidOOnLine_254634.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254634_VahidOOnLine_254634.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از پرستاران در نیشابور سه‌شنبه ۲۰ مرداد در اعتراض به پرداخت نشدن معوقات و کارانه، کمبود تجهیزات و پرسنل، اضافه‌کار اجباری، مدیریت ناصحیح و تبعیض در پرداخت کارانه، مقابل بیمارستان حکیم تجمع کردند و شعار «کارانه حق ماست، پولش تو جیب شماست» سردادند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254633
 
@@ -334,19 +347,6 @@ IranintlTV
 این حادثه بار دیگر دشواری امدادرسانی در مسیرهای کوهستانی و صعب‌العبور اورامان و همچنین وضعیت ایمنی جاده‌های منطقه را به مسئله‌ای جدی تبدیل کرده است.
 چهار جوان در این حادثه جان خود را از دست داده‌اند و پنجمین سرنشین که به‌شدت مجروح شده، برای دریافت خدمات درمانی به مرکز درمانی منتقل شده است.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254614
-
-<div align="center"><video src="files/post_254614_VahidOOnLine_254614.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254614_VahidOOnLine_254614.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال گروهی از ایرانیان مقیم آلمان دوشنبه ۱۹ مرداد علیه جمهوری اسلامی مقابل سرکنسولگری آمریکا در شهر دوسلدورف تجمع کرده و «ای ایران» را همخوانی کردند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

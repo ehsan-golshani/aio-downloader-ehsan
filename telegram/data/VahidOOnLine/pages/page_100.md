@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 252894
+
+<div align="center"><video src="files/post_252894_VahidOOnLine_252894.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252894_VahidOOnLine_252894.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیدار خانواده جاویدنام محسن رشیدی خانی‌آبادی و علی ایازی با خانواده عرفان اسفندیاری و امیر حسین صفری ـ گزارشگر (ویدیو صدا ندارد)
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252889
 
@@ -277,19 +290,6 @@
 
 دانشگاه علوم پزشکی هرمزگان گزارش کرده است، در نتیجه حملات آمریکا به منطقه چاهتنگو در قشم، سه تن از اعضای یک خانواده کشته شده‌اند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252861
-
-<div align="center"><video src="files/post_252861_VahidOOnLine_252861.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252861_VahidOOnLine_252861.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در شبکه‌های اجتماعی رقص علیرضا سپاهی، یکی از متهمان پرونده بازداشت‌شدگان اعتراضات دی‌ماه در اصفهان را نشان می‌دهد. قرار بود او بامداد سه‌شنبه اعدام شود اما پیش از انتقال به محل اجرای حکم دچار سکته قلبی شد و به بیمارستان الزهرای اصفهان انتقال یافت.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

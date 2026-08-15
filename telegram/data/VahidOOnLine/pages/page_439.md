@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 439
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 244565
+
+<div align="center"><img src="files/post_244565_VahidOOnLine_244565.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد وضعیت در تنگه هرمز همچنان پرخطر است.
+
+این سازمان افزود خطر مین‌گذاری در نزدیکی مسیرهای کشتیرانی همچنان پابرجاست و اختلال در سامانه موقعیت‌یابی ماهواره‌ای نیز ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244564
 
@@ -312,19 +325,6 @@
 
 دفتر هیئت معاونت سازمان ملل متحد در افغانستان (یوناما) نیز با ابراز نگرانی از بازداشت زنان در هرات، از طالبان خواست با همه افراد به‌طور برابر رفتار کند. رسانه‌های محلی گزارش داده‌اند که دست‌کم ۲۱ زن و دختر در این ولایت بازداشت شده‌اند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244545
-
-<div align="center"><video src="files/post_244545_VahidOOnLine_244545.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244545_VahidOOnLine_244545.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند در پیامی به ایران اینترنشنال از قطع بلندمدت آب در بندر کنگ روایت می‌کند. پیام او با هوش مصنوعی خوانده شده است.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

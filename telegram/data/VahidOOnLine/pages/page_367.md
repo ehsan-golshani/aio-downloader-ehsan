@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 367
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 246660
+
+<div align="center"><img src="files/post_246660_VahidOOnLine_246660.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+غلامرضا توکل شوریجه، نماینده سروستان در مجلس، خواستار برگزاری مراسم وداع با جنازه خامنه‌ای در شیراز شد و گفت: «برگزاری این مراسم در شیراز، نه تنها پاسخ به یک خواسته مردمی، بلکه پیوندی جاودانه میان تاریخ کهن این شهر و مطالبه حماسی مردم استان فارس است.»
+
+او اضافه کرد که کشته شدن علی خامنه‌ای، «قلب‌های تمامی مردم ولایت‌مدار را به درد آورده است.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246659
 
@@ -309,20 +323,6 @@ iranintl
 
 پزشکیان افزود: «دولت خود را موظف می‌داند برای بهبود معیشت مردم، کنترل تورم، اصلاح ساختارهای اقتصادی و ایجاد آینده‌ای روشن‌تر برای نسل جوان تلاش کند و اجازه ندهد شکاف‌های اقتصادی و اجتماعی بیش از این افزایش یابد.»
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246626
-
-<div align="center"><video src="files/post_246626_VahidOOnLine_246626.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246626_VahidOOnLine_246626.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در پاسخ به کارزار مردمی ایران‌اینترنشنال برای افشای ابعاد جنایت و سرکوب گسترده در رشت، یکی از مخاطبان ویدیویی ارسال کرده که ماموران را در حال شلیک مستقیم و هدفمند به مردم نشان می‌دهد.
-به گفته این مخاطب، زمان ویدیو ۱۸ دی ۱۴۰۴ و همزمان با آتش‌سوزی‌ گسترده بازار و گیرافتادن شهروندان در آن بوده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

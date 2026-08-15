@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 255308
+
+<div align="center"><video src="files/post_255308_VahidOOnLine_255308.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255308_VahidOOnLine_255308.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قله سبلان با ارتفاع ۴۸۱۱ متر، به عنوان سومین قله مرتفع ایران در اردبیل، به دلیل اقلیم کوهستانی ویژه و ارتفاع بسیار بالا، از یخچال‌های طبیعی دائمی برخوردار است. به طوری که حتی در گرم‌ترین روزهای تیر و مرداد نیز بخش‌هایی از ارتفاعات بالادست آن پوشیده از برف و یخ باقی می‌ماند. روز پنجشنبه، ۲۲ مردادماه، انتشار تصاویری از قله برفی سبلان در حساب کاربری آزاده مختاری، خبرنگار «رکنا»، توجه کاربران شبکه‌های اجتماعی را به خود جلب کرد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255307
 
@@ -256,22 +269,6 @@ Indypersian
 
 او ادامه داد: «ما هنوز هم مشکلات ناشی از جنگ را داریم.» کاشف‌آذر همچنین گفت در شرایطی که کار نمی‌کردیم، تلاش شده کارکنان اخراج نشوند و حقوق بگیرند.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255287
-
-<div align="center"><video src="files/post_255287_VahidOOnLine_255287.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255287_VahidOOnLine_255287.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محسن حیدری، مدیرکل هواشناسی سیستان و بلوچستان، روز شنبه ۲۴ مرداد ماه اعلام کرد سرعت وزش باد در زابل برای چهارمین روز متوالی از ۱۰۰ کیلومتر بر ساعت فراتر رفته و بامداد شنبه به ۱۰۴ کیلومتر بر ساعت رسیده است.
-به گفته او، وزش باد شدید در زابل دید افقی را به دو هزار متر کاهش داده است.
-
-مدیرکل هواشناسی سیستان و بلوچستان با پیش‌بینی آنکه وزش باد شدید و توفان گردوخاک روز یکشنبه ادامه خواهد داشت، از مردم این استان خواست استفاده از ماسک و احتیاط در رانندگی در محورهای استان را مدنظر قرار دهند.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>

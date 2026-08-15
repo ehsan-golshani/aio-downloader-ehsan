@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 373
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 246512
+
+<div align="center"><video src="files/post_246512_VahidOOnLine_246512.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246512_VahidOOnLine_246512.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چرا اسرائیل با وجود آتش‌بس هنوز در جنوب لبنان می‌جنگد؟
+
+پاسخ شاید در ارتفاعات علی‌الطاهر، مشرف بر نبطیه، پنهان باشد؛ نقطه‌ای راهبردی که سال‌هاست از آن به‌عنوان یکی از حساس‌ترین مناطق زیرزمینی حزب‌الله یاد می‌شود.
+
+هیچ مقام رسمی تأیید نکرده که شبکه «عماد ۴» در دل این ارتفاعات قرار دارد، اما اگر این فرض درست باشد، نبرد علی‌الطاهر فقط جنگ بر سر یک تپه نیست؛ جنگی است برای دسترسی به مرکز فرماندهی، انبارهای تسلیحاتی و بخشی از زیرساخت موشکی حزب‌الله در جنوب لبنان.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246498
 
@@ -303,19 +320,6 @@
 
 انتشار این ویدیو اما با انتقاد کاربران شبکه‌های اجتماعی روبه‌رو شد. شماری از کاربران این اقدام را «نمایشی» توصیف کردند و گفتند چنین رفتارهایی بیشتر با هدف جلب توجه و کسب رضایت طالبان پشتون‌تبار نزدیک به رهبر این گروه انجام می‌شود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246479
-
-<div align="center"><video src="files/post_246479_VahidOOnLine_246479.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246479_VahidOOnLine_246479.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد پرستاران و کارکنان دانشگاه علوم پزشکی قزوین در اعتراض به پایین بودن حقوق و تعطیل نبودن پنجنشنبه‌ها دست به اعتراض زدند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

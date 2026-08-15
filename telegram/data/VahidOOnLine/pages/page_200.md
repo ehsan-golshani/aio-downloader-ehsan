@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 200
 
-📅 آخرین بروزرسانی: 1405/05/25 02:36
+📅 آخرین بروزرسانی: 1405/05/25 03:06
 
 ---
+
+## VahidOOnLine — post 250541
+
+<div align="center"><video src="files/post_250541_VahidOOnLine_250541.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250541_VahidOOnLine_250541.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ویدیوهای منتشرشده در کانال تلگرامی «وحید آنلاین» روز جمعه ۲۶ تیر، ستون‌های دود ناشی از حملات بامدادی در چابهار را نشان می‌دهد.
+پیش‌تر نیز تصاویری از لحظه فرو ریختن باقی‌مانده ساختمان برج مراقبت دریایی چابهار را منتشر شده بود.
+چابهار یکی از اهداف مهم آمریکا پس از آغاز حملات به ایران بوده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250540
 
@@ -264,17 +279,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وزارت کشور قطر اعلام کرد سطح تهدید امنیتی در این کشور بالا است و از شهروندان و ساکنان خواست تا اطلاع ثانوی در خانه‌ها یا مکان‌های امن بمانند و دستورالعمل‌های مقام‌های رسمی را رعایت کنند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250518
-
-<div align="center"><img src="files/post_250518_VahidOOnLine_250518.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری رویترز بامداد جمعه به نقل از یک شاهد گزارش داد که صدای چند انفجار در دوحه، پایتخت قطر، شنیده شده و هم‌زمان دولت این کشور هشدار امنیتی برای تلفن‌های همراه ارسال کرده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
