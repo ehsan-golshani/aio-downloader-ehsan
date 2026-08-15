@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/24 13:12
+📅 آخرین بروزرسانی: 1405/05/24 13:39
 
 ---
+
+## tasiyanc — post 8980
+
+<div align="center"><video src="files/post_8980_tasiyanc_8980.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8980_tasiyanc_8980.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توی مراسم اربعین امسال، آهوهای ایرانیو کباب کردن میدن به زائرین!!!
+
+⚠️ حاوی تصاویر دلخراش.
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8978
 
@@ -295,15 +310,5 @@ vless://29ca503d-e6b8-4509-b666-48133f450857@one-for-all.levikogjgfdd.ir:443?pat
 
 👹@TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8956
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بی بی نتانیاهو:
-
-اکثریت قاطع ایرانیان اسرائیل را تحسین می‌کنند.
-
-@TASIYANC ✅
 </div>
 

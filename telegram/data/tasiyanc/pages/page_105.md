@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 105
 
-📅 آخرین بروزرسانی: 1405/05/24 13:12
+📅 آخرین بروزرسانی: 1405/05/24 13:39
 
 ---
+
+## tasiyanc — post 6046
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکم صبر میکنم دیل آک بزنه
+</div>
 
 ## tasiyanc — post 6045
 
@@ -123,13 +129,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نصب نکنید دوستان
 جدی میپرونه
-</div>
-
-## tasiyanc — post 6023
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من فقط جوین شدم که جواب شمارو بدم
-آره مال من پرید
-احراز هویت کردم برگشت
 </div>
 

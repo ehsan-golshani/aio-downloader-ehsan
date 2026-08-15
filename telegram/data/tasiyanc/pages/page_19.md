@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/24 13:12
+📅 آخرین بروزرسانی: 1405/05/24 13:39
 
 ---
+
+## tasiyanc — post 8852
+
+<div align="center"><img src="files/post_8852_tasiyanc_8852.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبر ترین دانشگاه ها در سال 2026 🌐
+
+پروکسی متصل | پروکسی متصل
+
+
+✈️@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8851
 
@@ -272,11 +285,5 @@ vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?secu
 بنیامین از قهرمانان کیک بوکس بود و کلی مدال کشوری و جهانی داشت.
 
 ⭐@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8816
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡𝙉𝙚𝙬 𝙎𝙥𝙚𝙚𝙙 ⚡.npvt
 </div>
 

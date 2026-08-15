@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/05/24 13:12
+📅 آخرین بروزرسانی: 1405/05/24 13:39
 
 ---
+
+## tasiyanc — post 7103
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقام رونالدو تو ترکیبه 🥹❤️
+</div>
 
 ## tasiyanc — post 7102
 
@@ -268,13 +274,6 @@ Password ': @Tasiyanc
 🔐🔐
 ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@series-a2.samanehha.co:443#%F0%9F%87%AC%F0%9F%87%A7%40Tasiyanc%20%F0%9F%8C%99
 Loc 🇬🇧
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7060
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 16 June روز برآورده شدن آرزوهاتونه😄
 @Tasiyanc ✅
 </div>
 

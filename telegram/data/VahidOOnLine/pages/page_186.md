@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 186
 
-📅 آخرین بروزرسانی: 1405/05/24 13:10
+📅 آخرین بروزرسانی: 1405/05/24 13:36
 
 ---
+
+## VahidOOnLine — post 250787
+
+<div align="center"><img src="files/post_250787_VahidOOnLine_250787.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجتبی یوسفی، عضو هیات رییسه مجلس، به سایت دیده‌بان ایران گفت: «اگر انتقام و قصاص عاملان ترور رهبری را مطالبه نکنیم، دچار خطای محاسباتی و راهبردی شده‌ایم.»
+
+او ادامه داد: «اگر امروز به تهدیدها علیه رهبر جدیدمان پاسخ محکم ندهیم، نگرانی‌هایی ایجاد می‌شود.»
+
+این عضو هیات رییسه مجلس افزود: «با چه توجیهی در ان‌پی‌تی مانده‌ایم؟ باید امروز تصمیم بگیریم و ان‌پی‌تی خارج شویم.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250786
+
+<div align="center"><img src="files/post_250786_VahidOOnLine_250786.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️نیروی آتش‌نشانی کویت، روز شنبه ۲۷ تیرماه اعلام کرد چند آتش‌نشان و یک کارگر در جریان عملیات مقابله با آتش‌سوزی‌هایی که در پی حملات جمهوری اسلامی در این کشور رخ داده است، زخمی شده‌اند.
+پیشتر وزارت برق، آب و انرژی‌های تجدیدپذیر کویت، اعلام کرده بود پس از حمله نیروهای مسلح جمهوری اسلامی به یک نیروگاه تولید برق و آب‌شیرین‌کن در این کشور، آتش‌سوزی در این تاسیسات رخ داده و چند واحد تولید برق در پی این حادثه از مدار خارج شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250785
 
@@ -272,34 +300,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال وقوع انفجار بامداد شنبه در سایت موشکی لار در استان فارس را نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250767
-
-<div align="center"><img src="files/post_250767_VahidOOnLine_250767.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️وزارت برق، آب و انرژی‌های تجدیدپذیر کویت، روز شنبه ۲۷ تیرماه، اعلام کرد پس از حمله نیروهای مسلح جمهوری اسلامی به یک نیروگاه تولید برق و آب‌شیرین‌کن در این کشور، آتش‌سوزی در این تاسیسات رخ داده و چند واحد تولید برق در پی این حادثه از مدار خارج شده‌اند.
-
-وزارت برق کویت روز جمعه نیز از خسارت و از کارافتادن یکی دیگر از تاسیسات تولید برق و آب این کشور در اثر حملات جمهوری اسلامی خبر داده بود.
-
-روابط عمومی سپاه پاسداران انقلاب اسلامی، صبح شنبه اعلام کرده بود: «اسکله پشتیبانی سوخت ناوگان آمریکا در بندر الاحمدی کویت» را هدف حملات پهپادی و موشکی قرار داده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250766
-
-<div align="center"><video src="files/post_250766_VahidOOnLine_250766.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250766_VahidOOnLine_250766.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که یک معترض در اصفهان، پرچم جمهوری اسلامی را به آتش کشید.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

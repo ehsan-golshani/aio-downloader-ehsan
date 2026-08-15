@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/24 13:10
+📅 آخرین بروزرسانی: 1405/05/24 13:36
 
 ---
+
+## VahidOOnLine — post 253366
+
+<div align="center"><video src="files/post_253366_VahidOOnLine_253366.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253366_VahidOOnLine_253366.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️جمعی از بازنشستگان و پیشکسوتان شرکت مخابرات، بازنشستگان سازمان تامین اجتماعی و فرهنگیان بازنشسته، روز یکشنبه ۱۱ مرداد با برگزاری تجمع‌ها و راهپیمایی‌های اعتراضی در شهرهای کرمانشاه، شوش، تهران و مشهد، نسبت به مشکلات معیشتی، تورم، گرانی و بی‌توجهی مسئولان به مطالبات صنفی خود اعتراض کردند.
+در شوش، بازنشستگان تامین اجتماعی شعارهایی از جمله «فقط کف خیابون، به دست میاد حقمون» و «نان، کار، آزادی؛ زندگی شایسته، حق همگان است» سر دادند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253365
+
+<div align="center"><video src="files/post_253365_VahidOOnLine_253365.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253365_VahidOOnLine_253365.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای منتشرشده مراسم خاکسپاری آروین خیرخواهان، معترض اعدام‌شده را در شاهرود نشان می‌دهد.
+﻿آروین خیرخواهان، از بازداشت‌شدگان اعتراضات دی ۱۴۰۴، شنبه ۱۰ مرداد در زندان شاهرود اعدام شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253364
 
@@ -280,34 +308,6 @@
 او ادامه داد: «در حوزه اقتصادی می‌دانیم مردم با مشکل مواجه هستند و دولت در حال تلاش است.»
 
 مهاجرانی اضافه کرد: «اگر بخواهم بگویم دولت نسبت به تحقق وعده‌های انتخاباتی خود چه کرده، باید بگویم وعده‌ها را پیگیری می‌کند و همچنان به آن‌ها پایبند است. البته پزشکیان چندان اهل وعده و قول دادن‌هایی نیست که نتواند اجرا کند.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253338
-
-<div align="center"><img src="files/post_253338_VahidOOnLine_253338.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️مجید ابن‌الرضا، سرپرست وزارت دفاع و پشتیبانی نیروهای مسلح جمهوری اسلامی روز یکشنبه ۱۱ مرداد و ساعاتی پس از آنکه دونالد ترامپ اعلام کرد برنامه حمله به ایران را متوقف کرده است، با انتشار پیامی نوشت: «نه غافلگیر می‌شویم و نه منفعل؛ تهدید را مبنای افزایش آمادگی، تقویت بازدارندگی و ارتقای قدرت خود قرار می‌دهیم.»
-
-این نخستین واکنش یک مقام نظامی جمهوری اسلامی ایران به پیام ترامپ مبنی بر توقف اجرای عملیات نظامی به درخواست ایران و کشورهای منطقه است.
-
-ابن الرضا که هنوز از مجلس رای اعتماد نگرفته و همچنان سرپرستی وزارت دفاع را بر عهده دارد در همین پیام نوشت: «اظهارات اخیر دشمن، هرچند در بستر عملیات روانی و جنگ محاسباتی مطرح می‌شود، اما از نگاه ما هر تهدیدی، یک تهدید واقعی و قابل اعتناست.»
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253337
-
-<div align="center"><video src="files/post_253337_VahidOOnLine_253337.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253337_VahidOOnLine_253337.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان ساکن آلمان شنبه ۱۰ مرداد در شهر فرانکفورت تجمع کردند و با اعتراض به اعدام‌های جمهوری اسلامی شعار دادند: «با اینکه دوریم از وطن، پشت شماییم هموطن»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

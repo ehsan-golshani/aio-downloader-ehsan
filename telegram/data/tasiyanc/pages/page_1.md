@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/24 13:12
+📅 آخرین بروزرسانی: 1405/05/24 13:39
 
 ---
+
+## tasiyanc — post 9311
+
+<div align="center"><video src="files/post_9311_tasiyanc_9311.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9311_tasiyanc_9311.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حملات دیوانه وار اسرائیل به جنوب لبنان
+
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9310
 
@@ -257,20 +270,5 @@ http://til.ac/z5jcpGT
 g23
 🔥کانال اطلاع رسانی ایران:👇
 https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9287
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-در صورت ارور چند بار بزنید
-
-✔️ T.me/Tasiyanc
 </div>
 

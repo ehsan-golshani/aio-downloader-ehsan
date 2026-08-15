@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/24 13:10
+📅 آخرین بروزرسانی: 1405/05/24 13:36
 
 ---
+
+## VahidOOnLine — post 253661
+
+<div align="center"><img src="files/post_253661_VahidOOnLine_253661.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ماجد محمد الانصاری، سخنگوی وزارت خارجه قطر، اعلام کرد رایزنی‌ها با همه طرف‌ها درباره مذاکرات ایران ادامه دارد.
+
+او افزود مهم‌ترین موضوع در حال حاضر، بازگشت به مذاکرات است.
+
+محمد الانصاری گفت: «می‌توانیم تایید کنیم که تلاش‌ها با همه طرف‌ها ادامه دارد و در حال بررسی راه‌حل دیپلماتیک هستیم.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253660
+
+<div align="center"><video src="files/post_253660_VahidOOnLine_253660.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253660_VahidOOnLine_253660.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد دوستان و نزدیکان جاویدنام مسعود ذات‌پرور سه‌شنبه ۱۳ مرداد در مراسم تولد او بر سر مزارش رفتند و آن را گلباران کردند.
+مسعود ذات‌پرور، ۳۹ ساله و قهرمان و مربی بدنسازی، ۱۸ دی ۱۴۰۴ با شلیک مستقیم نیروهای جمهوری اسلامی در رشت کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253659
 
@@ -250,33 +280,6 @@ iranintl
 استان بوشهر، که بخش مهمی از تاسیسات انرژی ایران را در خود جای داده، در جریان حملات آمریکا و اسرائیل بارها هدف حمله قرار گرفت.
 
 استاندار بوشهر همچنین اعلام کرد بر اساس ارزیابی‌های انجام‌شده، در مجموع ۸ هزار و ۴۵۶ واحد شامل ساختمان‌های مسکونی، تجاری و سایر واحدها در اثر این حملات آسیب دیده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253634
-
-<div align="center"><video src="files/post_253634_VahidOOnLine_253634.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253634_VahidOOnLine_253634.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال، نصب شعارهای اعتراضی را روی دیوارهای یکی از شهرهای ایران نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253633
-
-<div align="center"><video src="files/post_253633_VahidOOnLine_253633.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253633_VahidOOnLine_253633.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ پلیس آمریکا شماری از فعالان معترض را در جریان تجمعی داخل ساختمان کنگره در واشنگتن دی‌سی بازداشت کرد.
-به گزارش رویترز، شماری از فعالان مدنی و رهبران مذهبی به رهبری اسقف ویلیام باربر دوم در جمع بازداشت‌ شدگان‌ هستند. این گروه در اعتراض به جنگ ایران و همچنین آنچه «سرکوب حق رای» خواندند، در ساختمان تجمع کرده بودند.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

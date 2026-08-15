@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/24 13:12
+📅 آخرین بروزرسانی: 1405/05/24 13:39
 
 ---
+
+## tasiyanc — post 8682
+
+<div align="center"><img src="files/post_8682_tasiyanc_8682.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•پرامپت اختصاصی تاسیان 👑
+
+•عکساتو زیباتر کن 💖
+•آموزش استفاده 🤖🤖
+
+
+🔺دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8681
 
@@ -176,6 +192,4 @@
 بمباران کنند
 @TASIYANC 💠
 </div>
-
-## tasiyanc — post 8657
 

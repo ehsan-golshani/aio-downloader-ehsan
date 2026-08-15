@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/05/24 13:12
+📅 آخرین بروزرسانی: 1405/05/24 13:39
 
 ---
+
+## tasiyanc — post 6943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتونم بخیر 🥹
+</div>
 
 ## tasiyanc — post 6942
 
@@ -201,34 +207,6 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🟢 ساب لینک اختصاصی تاسیان 🔹پر سرعت و نامحدود 🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt 
 🔐 🔐 
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6919
-
-<div align="center"><video src="files/post_6919_tasiyanc_6919.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6919_tasiyanc_6919.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-۳سرور سرعتی تست شده  
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
 ✔️ T.me/Tasiyanc 
 ✅
 </div>

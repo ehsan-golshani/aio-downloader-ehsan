@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/24 13:12
+📅 آخرین بروزرسانی: 1405/05/24 13:39
 
 ---
+
+## tasiyanc — post 9234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ اینترنشنال : ترامپ اطلاعات کلی مهاجر ایرانیو داده به مقامات جمهوری اسلامی
+
+@Tasiyanc⭐️
+</div>
 
 ## tasiyanc — post 9232
 
@@ -197,23 +205,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حالتون چطوره ، شما ک حالمو نمیپرسید باید من بپرسم
-</div>
-
-## tasiyanc — post 9207
-
-<div align="center"><img src="files/post_9207_tasiyanc_9207.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📞 با پروکسی هم میشه تماس تلگرامی گرفت؟
-
-⚡️ بله حتماً! شاید تا حالا اگه میخواستید به کسی زنگ بزنید مجبور بودید فیلترشکن قوی وصل کنید و کلی دردسر بکشید؛ ولی الان میخوام یه ترفند خوب بهتون بگم که دیگه به هیچ VPN اضافی نیاز ندارید.
-
-⚡️ قدم اول: برید تو تنظیمات و بخش Privacy and security رو باز کنید. بعد Call رو انتخاب کنید، گزینه Use Peer-to-Peer with رو بزنید و My Contacts رو انتخاب کنید.
-
-⚡️ حالا برگردید عقب و به بخش Data and Storage برید. گزینه Use less data for calls رو پیدا کنید و روی حالت Always بذارید تا مصرف اینترنت کم بشه.
-
-⚡️ کافیه فقط یه پروکسی MTPROTO خوب و پایدار وصل باشید و تماس بگیرید. فقط یه نکته مهم: حتماً طرف مقابل باید آنلاین باشه و شماره شما توی لیست مخاطبانشون ذخیره شده باشه.
-
-@Tasiyanc ☑️
 </div>
 
