@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/05/24 14:39
+📅 آخرین بروزرسانی: 1405/05/24 18:39
 
 ---
+
+## tasiyanc — post 7699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب بازی حساس ساعت 22:30 🏆
+
+🔵 Spain 🇪🇸 Portugal 🇵🇹 🐯
+</div>
+
+## tasiyanc — post 7698
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه خبرا خوبید؟
+</div>
+
+## tasiyanc — post 7697
+
+<div align="center"><video src="files/post_7697_tasiyanc_7697.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7697_tasiyanc_7697.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 
+🔐
+
+11 سرور سرعتی پرمیوم متد جدید ⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 اینستاگرام 
+📸 جمینای 
+🤖
+
+ 
+Password @Tasiyanc 
+💘
+
+
+اتصال امن برای همه 
+🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7696
 
@@ -167,35 +225,5 @@ Fast ⚡ Unlimited.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر عشقا 😍
-</div>
-
-## tasiyanc — post 7664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-4سرور سرعتی پرمیوم متد جدید 
-⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
- 
-✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7660
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از چنلای مردمی حمایت کنید ، بناموسم بخاطر خودم نمیگم ، ما مثل اینا جیره خور نبودیم همه چیو از جیب خودمون خرج کردیم نه کانفیگ گیگی یه میلیون فروختیم ، نه سکوت کردیم مثلاً امروز گروه تعطیل کنیم یا موقع قطعی فعالیت نکرده باشیم
-</div>
-
-## tasiyanc — post 7659
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودتون خوبین قربونتون برم؟
 </div>
 

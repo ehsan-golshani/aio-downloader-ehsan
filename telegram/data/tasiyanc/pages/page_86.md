@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/05/24 14:39
+📅 آخرین بروزرسانی: 1405/05/24 18:39
 
 ---
+
+## tasiyanc — post 6550
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خلاصه برنامه زیاده ، البته امیدوارم قطعی پیش نیاد
+</div>
+
+## tasiyanc — post 6549
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حتی چنلمون تو اپای ایرانی ام قراره یه جور پرایوت شه اونایی ک ممبر چنلن بیان هر ۲۴ ساعت لینکو عوض میکنم
+</div>
+
+## tasiyanc — post 6548
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منتظرم قطعی بشه پرایوت کنم چنلو اونای ک لف میدن حالشون میپرسم
+</div>
 
 ## tasiyanc — post 6547
 
@@ -175,44 +193,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [23]⚡🇩🇪@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6529
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6527
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-2سرور سرعتی مناسب همه نت ها 🔥
-
-دانلود وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سیرکه رسما
-
-کاخ سفید :ما معتقدیم به نتیجه نهایی مذاکرات نزدیکیم
-@Tasiyanc ✅
 </div>
 

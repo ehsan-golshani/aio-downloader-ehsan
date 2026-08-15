@@ -1,8 +1,153 @@
 # آرشیو کانال tasiyanc - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/24 14:39
+📅 آخرین بروزرسانی: 1405/05/24 18:39
 
 ---
+
+## tasiyanc — post 5551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش‌های تایید نشده حاکی از درگیری بین نیروی دریایی سپاه و نیروی دریایی آمریکا در خلیج عمان و تنگه هرمز است.
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5544
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترکیبی وصل ✅
+
+{
+"remarks": "@Tasiyanc",
+"log": {
+"access": "",
+"error": "",
+"loglevel": "info",
+"dnsLog": false
+},
+"inbounds": [
+{
+"tag": "in_proxy",
+"port": 10808,
+"protocol": "socks",
+"listen": "127.0.0.1",
+"settings": {
+"auth": "noauth",
+"udp": true,
+"userLevel": 8
+},
+"sniffing": {
+"enabled": false
+}
+},
+{
+"tag": "http-in",
+"port": 10808,
+"listen": "::",
+"protocol": "http"
+}
+],
+"outbounds": [
+{
+"tag": "proxy",
+"protocol": "trojan",
+"settings": {
+"servers": [
+{
+"address": "104.17.72.206",
+"method": "chacha20-poly1305",
+"ota": false,
+"password": "humanity",
+"port": 443,
+"level": 8,
+"flow": ""
+}
+]
+},
+"streamSettings": {
+"network": "ws",
+"security": "tls",
+"wsSettings": {
+"path": "/assignment",
+"headers": {
+"Host": "www.ignitelimit.com"
+}
+},
+"tlsSettings": {
+"allowInsecure": true,
+"serverName": "www.ignitelimit.com",
+"alpn": [
+"http/1.1"
+],
+"fingerprint": "ios",
+"show": false
+},
+"sockopt": {
+"dialerProxy": "fragment",
+"tcpKeepAliveIdle": 100,
+"tcpNoDelay": true
+}
+},
+"mux": {
+"enabled": false,
+"concurrency": 8
+}
+},
+{
+"tag": "fragment",
+"protocol": "freedom",
+"settings": {
+"domainStrategy": "AsIs",
+"fragment": {
+"packets": "tlshello",
+"length": "100-200",
+"interval": "10-20"
+}
+},
+"streamSettings": {
+"sockopt": {
+"tcpKeepAliveIdle": 100,
+"tcpNoDelay": true
+}
+}
+},
+{
+"tag": "direct",
+"protocol": "freedom",
+"settings": {
+"domainStrategy": "UseIp"
+}
+},
+{
+"tag": "blackhole",
+"protocol": "blackhole",
+"settings": {}
+}
+],
+"dns": {
+"servers": [
+"8.8.8.8"
+]
+},
+"routing": {
+"domainStrategy": "UseIp",
+"rules": [],
+"balancers": []
+}
+}
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5543
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان  تمام اپراتورها  📶
+
+برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5540
 
@@ -319,35 +464,5 @@ WİFİ 🚀speed.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 TASIYAN INFO ✅
 t.me/TasiyanOwner
-</div>
-
-## tasiyanc — post 5514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده 📶
-
-برای اتصال پایدار زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5513
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده 📶
-
-برای اتصال پایدار زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5512
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان ۲سرور تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

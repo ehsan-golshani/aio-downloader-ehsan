@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 227
 
-📅 آخرین بروزرسانی: 1405/05/24 18:17
+📅 آخرین بروزرسانی: 1405/05/24 18:37
 
 ---
+
+## VahidOOnLine — post 249805
+
+<div align="center"><img src="files/post_249805_VahidOOnLine_249805.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️وزارت کشور بحرین با انتشار هشدار فوری در اکس اعلام کرد که آژیرهای خطر در این کشور، صبح دوشنبه، به صدا درآمده‌اند. این نهاد امنیتی با صدور این بیانیه، از تمامی مردم و ساکنان این کشور خواست تا ضمن حفظ آرامش کامل، به سرعت به نزدیک‌ترین مکان امن و پناهگاه‌ها بروند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249804
 
@@ -284,19 +295,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبرگزاری آسوشیتدپرس به نقل از یک مقام آمریکایی نوشت که نیروهای این کشور در حملات خود سامانه‌های موشکی و پدافند هوایی و شناورهای نظامی سپاه پاسداران را هدف قرار دادند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249777
-
-<div align="center"><img src="files/post_249777_VahidOOnLine_249777.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باراک راوید، خبرنگار اکسیوس، به نقل از سخنگوی سنتکام نوشت: «طی یک ساعت گذشته، نیروهای سپاه پاسداران به کشتی‌های تجاری در حال عبور از تنگه هرمز شلیک کرده‌اند.»
-
-این مقام فرماندهی مرکزی ایالات متحده گفت: «هواپیماهای آمریکایی تاکنون توانسته‌اند یک موشک کروز و یک پهپاد تهاجمی انتحاری را رهگیری کنند.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

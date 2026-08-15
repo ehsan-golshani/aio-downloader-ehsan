@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 178
 
-📅 آخرین بروزرسانی: 1405/05/24 18:17
+📅 آخرین بروزرسانی: 1405/05/24 18:37
 
 ---
+
+## VahidOOnLine — post 250992
+
+<div align="center"><video src="files/post_250992_VahidOOnLine_250992.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250992_VahidOOnLine_250992.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسالی به ایران اینترنشنال نشان می‌دهد که روز یکشنبه ۲۸ تیرماه پیش از ورودی جایگاه سوخت نارگیل بندرعباس، صف کیلومتری دریافت بنزین تشکیل شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250991
 
@@ -316,16 +329,6 @@ iranintl
 
 به نوشته وال‌استریت ژورنال، این حمله می‌تواند آزمونی برای رویکرد محتاطانه ترامپ در قبال تشدید درگیری‌ها میان آمریکا و ایران باشد. ترامپ پیش‌تر گفته بود در صورتی که ایران باعث کشته شدن نیروهای آمریکایی شود، احتمال بازگشت به جنگ تمام عیار را بررسی خواهد کرد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250972
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال، بی‌تابی و ناله‌های مادر جاویدنام داوود صفائی را بر سر مزار او نشان می‌دهد.
-صفایی، ۵۱ ساله، ۱۹ دی‌ ۱۴۰۴ در وکیل‌آباد مشهد هدف شلیک ماموران جمهوری اسلامی قرار گرفت و جان باخت.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

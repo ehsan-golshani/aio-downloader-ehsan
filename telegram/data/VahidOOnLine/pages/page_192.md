@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 192
 
-📅 آخرین بروزرسانی: 1405/05/24 18:17
+📅 آخرین بروزرسانی: 1405/05/24 18:37
 
 ---
+
+## VahidOOnLine — post 250691
+
+<div align="center"><img src="files/post_250691_VahidOOnLine_250691.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سنتکام، فرماندهی مرکزی ایالات متحده اعلام کرد که برای هفتمین شب پیاپی، دور جدیدی از حملات را از ساعت ۲۲:۳۰ شامگاه جمعه در ایران آغاز کرده است.
+
+سنتکام افزود که این حملات با هدف ادامه کاهش توانمندی‌های نظامی جمهوری اسلامی انجام می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250690
 
@@ -276,19 +289,6 @@
 
 العاطفی همچنین به «کشورهای متجاوز، به‌ویژه عربستان سعودی و حامیان آن» هشدار داد که حوثی‌ها همه گزینه‌ها را در اختیار دارند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250661
-
-<div align="center"><video src="files/post_250661_VahidOOnLine_250661.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250661_VahidOOnLine_250661.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تحقیق اسکای‌نیوز با بررسی تصاویر ماهواره‌ای، ویدئوها، بقایای مهمات و نظر کارشناسان مستقل، به این نتیجه رسیده که بمباران مدرسه شجره طیبه در میناب، حاصل یک حمله برنامه‌ریزی‌شده بوده و شواهد به مسئولیت نیروهای آمریکایی اشاره دارد. این گزارش، فاجعه میناب را نتیجه زنجیره‌ای از اطلاعات نادرست، راستی‌آزمایی ناکافی، تصمیمی مرگبار و سکوت پس از آن می‌داند؛ در حالی که پرسش درباره مسئولیت این حمله همچنان بی‌پاسخ مانده است.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

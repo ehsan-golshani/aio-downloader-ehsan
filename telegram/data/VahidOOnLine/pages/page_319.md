@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 319
 
-📅 آخرین بروزرسانی: 1405/05/24 18:17
+📅 آخرین بروزرسانی: 1405/05/24 18:37
 
 ---
+
+## VahidOOnLine — post 247764
+
+<div align="center"><video src="files/post_247764_VahidOOnLine_247764.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247764_VahidOOnLine_247764.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم بریتانیا، یکشنبه هفتم تیرماه علیه جمهوری اسلامی در شهر شفیلد تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247763
 
@@ -274,17 +287,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم استرالیا یکشنبه هفتم تیرماه در شهر پرت تجمع کردند و فریاد «مرگ بر جمهوری اسلامی» سردادند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247735
-
-<div align="center"><img src="files/post_247735_VahidOOnLine_247735.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شکست فوتبال ایران در جام‌جهانی برای بسیاری از مخاطبان فقط یک نتیجه ورزشی نبود، بلکه روایتی از فاصله‌ای بود که میان مردم و تیمی شکل گرفته که روزی «ملی» خوانده می‌شد و حالا آن را «تیم جمهوری اسلامی» نامیده‌اند. مخاطبان در پیام‌های خود این باخت را نشانه‌ای از شکافی عمیق‌تر میان مردم، بازیکنان و حاکمیت دانستند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/05/24 14:39
+📅 آخرین بروزرسانی: 1405/05/24 18:39
 
 ---
+
+## tasiyanc — post 7463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 28 June، روزِ  LGBTQ یا همون همجنسگراست
+بفرست واسه رفیق گِیت🤣
+</div>
+
+## tasiyanc — post 7460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال 
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمد حسین میساکی بدون اینکه خندش بگیره خیلی جدی : تیمهای الجزایر و اتریش تبانی کردن 🤣🤣🤣
+</div>
 
 ## tasiyanc — post 7458
 
@@ -145,36 +173,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 برنامه بازی های امروز جام جهانی 🏆
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاهم هم رو هواس الان ، امشب احتمال داره شاهد تحرکات جدید از هر دو طرف باشیم
-</div>
-
-## tasiyanc — post 7433
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطوریددد؟
-</div>
-
-## tasiyanc — post 7432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password :  @Tasiyanc
-
-🔐 کانفیگ حجم نامحدود
-
-۳ سرور سرعتی ⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 
