@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 119
 
-📅 آخرین بروزرسانی: 1405/05/24 11:40
+📅 آخرین بروزرسانی: 1405/05/24 12:23
 
 ---
+
+## ProxyMTProto — post 47776
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp8.sosproxy.space
+Port: 443
+Secret: eee9dab8aa5e5ede020088b669a17b907864726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47775
 
@@ -177,15 +186,6 @@ Secret: dd1a0658ae4bb081c4270cd674e7b5ef5b
 Server: gov.chunkycorp.shop
 Port: 443
 Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fridayvpn1.proxyprosto.sbs
-Port: 443
-Secret: ee81aebd9867cc45d05974d953706819d177622e7275
 @ProxyMTProto
 </div>
 
