@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/24 20:11
+📅 آخرین بروزرسانی: 1405/05/24 20:38
 
 ---
+
+## VahidOOnLine — post 254368
+
+<div align="center"><video src="files/post_254368_VahidOOnLine_254368.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254368_VahidOOnLine_254368.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای ارسال شده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان ساکن استرالیا یکشنبه ۱۸ مرداد در اعتراض به اعدام‌های جمهوری اسلامی در شهر پرت تجمع کردند و شعارهایی چون «این آخرین نبرده، پهلوی برمی‌گرده» سردادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254367
 
@@ -292,19 +305,6 @@ iranintl
 بر اساس اطلاعات منتشرشده، رجب‌زاده چند روز پیش ناپدید شده بود و پس از آن ویدیویی از لحظه قتل او برای خانواده‌اش ارسال شد.
 اکنون با بازداشت چند نفر، تحقیقات پلیس و دستگاه قضایی برای روشن‌شدن انگیزه قتل، نحوه ربایش و نقش دقیق هر یک از متهمان ادامه دارد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254348
-
-<div align="center"><video src="files/post_254348_VahidOOnLine_254348.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254348_VahidOOnLine_254348.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم آلمان، شنبه ۱۷ مرداد در اعتراض به جمهوری اسلامی و به یاد فریدون فرخزاد، هنرمند کشته‌شده به دست جمهوری اسلامی در شهرهای اشتوتگارت و فرانکفورت تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

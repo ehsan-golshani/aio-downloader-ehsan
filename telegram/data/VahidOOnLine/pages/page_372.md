@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 372
 
-📅 آخرین بروزرسانی: 1405/05/24 20:11
+📅 آخرین بروزرسانی: 1405/05/24 20:38
 
 ---
+
+## VahidOOnLine — post 246498
+
+<div align="center"><img src="files/post_246498_VahidOOnLine_246498.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سید محسن رضا نقوی، وزیر کشور پاکستان روز شنبه ۳۰ خرداد وارد مشهد شد.
+
+خبرگزاری ایرنا به نقل از منابع استان خراسان رضوی نوشت که آن‌ها «بدون اشاره به جزئیات بیشتر، زیارت بارگاه منور رضوی و گفتگوهای سیاسی جاری را از جمله اهداف سفر وزیر کشور پاکستان به مشهد و سپس تهران عنوان کرده‌اند.»
+
+همزمان تلویزیون العربیه، به نقل از منابع آگاه نوشت که وزیر کشور پاکستان ماموریت دارد تا «هیئت جمهوری اسلامی را متقاعد کند که مشارکت در مذاکرات را به تعویق نیندازد.»
+
+پیش از این گزارش شده بود که وزیر کشور پاکستان به تهران سفر خواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246497
 
@@ -298,19 +315,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد پرستاران و کارکنان دانشگاه علوم پزشکی قزوین در اعتراض به پایین بودن حقوق و تعطیل نبودن پنجنشنبه‌ها دست به اعتراض زدند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246478
-
-<div align="center"><video src="files/post_246478_VahidOOnLine_246478.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246478_VahidOOnLine_246478.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانیان اسپانیا روز جمعه در مادرید مقابل سفارت آمریکا تجمع کردند تا اعتراض خود به توافق دولت ترامپ با جمهوری اسلامی را نشان دهند و فریاد بزنند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

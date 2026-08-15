@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/24 20:11
+📅 آخرین بروزرسانی: 1405/05/24 20:38
 
 ---
+
+## VahidOOnLine — post 252696
+
+<div align="center"><img src="files/post_252696_VahidOOnLine_252696.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کتائب حزب‌الله عراق اعلام کرد که پاسخ به حملات آمریکا و عربستان سعودی «اجتناب‌ناپذیر» است.
+
+این گروه افزود که پاسخ آنها می‌تواند مواضع و «ابزارهای آمریکا» در عربستان سعودی را هدف قرار دهد.
+
+این گروه همچنین اعلام کرد تا ۱۵ مرداد به دولت عراق فرصت می‌دهد تا نشان دهد توانایی دفاع از حاکمیت این کشور را دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252695
 
@@ -288,10 +303,4 @@
 
 🤖 @VahidOOnLine
 </div>
-
-## VahidOOnLine — post 252645
-
-<div align="center"><video src="files/post_252645_VahidOOnLine_252645.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252645_VahidOOnLine_252645.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 

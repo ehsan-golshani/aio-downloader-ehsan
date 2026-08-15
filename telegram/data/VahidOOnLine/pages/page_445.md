@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 445
 
-📅 آخرین بروزرسانی: 1405/05/24 20:11
+📅 آخرین بروزرسانی: 1405/05/24 20:38
 
 ---
+
+## VahidOOnLine — post 244368
+
+<div align="center"><video src="files/post_244368_VahidOOnLine_244368.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244368_VahidOOnLine_244368.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️اسماعیل شکری، پدر سپهر شکری اولین «جشن» تولد را در فراغ پسر جان‌باخته‌اش و در کنار اعضای خانواده برگزار کرد.
+
+اسماعیل در زمستان سال گذشته و پس از انتشار تصاویر کشتار ۱۸ و ۱۹ دی‌ماه به یکی از نمادهای داغداری هزاران خانواده ایرانی بدل شد؛ ویدیویی از او در سردخانه پزشکی قانونی کهریزک که با فریاد «سپهر بابا کجایی؟» به دنبال پیکر جگرگوشه‌اش می‌گشت، واکنش‌های کاربران شبکه‌های اجتماعی را برانگیخت.
+سپهر شکری در یکی شب‌های ۱۸ یا ۱۹ دی‌ماه در تهران به ضرب گلوله کشته شد.
+برادر سپهر، ویدیوی جشن تولد اسماعیل سیاه‌پوش در داغ فرزند را یکشنبه ۱۷ خردادماه در اینستاگرام منتشر کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244367
 
@@ -284,20 +301,6 @@ iranintl
 
 تسنیم نوشت که آمریکایی‌ها در خصوص اقدامات اسرائیل هزینه خواهند داد.
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244321
-
-<div align="center"><video src="files/post_244321_VahidOOnLine_244321.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244321_VahidOOnLine_244321.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال، بی‌تابی و زاری مادر جاویدنام مسعود ذات‌پرور را بر سر مزار او در پنجشنبه ۱۴ خرداد نشان می‌دهد.
-ذات‌پرور، قهرمان پرورش‌اندام جهان بود که ۱۸ دی ۱۴۰۴ در جریان اعتراضات رشت بر اثر اصابت گلوله جنگی جان باخت.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
