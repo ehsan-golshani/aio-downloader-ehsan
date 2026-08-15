@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/05/24 15:13
+📅 آخرین بروزرسانی: 1405/05/24 15:35
 
 ---
+
+## ProxyMTProto — post 48523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48522
 
@@ -172,15 +181,6 @@ Secret: ee82ce1f84af4033cc7e7b021069be3d5b6164732e78352e7275
 Server: zinova.co.uk.
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48503
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ethereal2.arixo.shop
-Port: 443
-Secret: ee6217ab7cb85436e31984b28fbe64bda7657468657265616c322e617269786f2e73686f70
 @ProxyMTProto
 </div>
 
