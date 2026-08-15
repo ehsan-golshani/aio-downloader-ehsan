@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/24 11:14
+📅 آخرین بروزرسانی: 1405/05/24 11:40
 
 ---
+
+## ProxyMTProto — post 48235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: For.you.ir.gdhbvjshjrf.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48234
 
@@ -172,15 +181,6 @@ Secret: ee31d386ef7e695ee39f4f28ecfbd28a37676f2e616e7469747370752e636f6d
 Server: ghtash.co.uk
 Port: 9965
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48215
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: portal.malevich7.top
-Port: 443
-Secret: ee485df0201883028a6eb46b55fd937b4f706f7274616c2e6d616c6576696368372e746f70
 @ProxyMTProto
 </div>
 
