@@ -1,8 +1,52 @@
 # آرشیو کانال VahidOOnLine - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/05/25 01:34
+📅 آخرین بروزرسانی: 1405/05/25 02:10
 
 ---
+
+## VahidOOnLine — post 254090
+
+<div align="center"><video src="files/post_254090_VahidOOnLine_254090.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254090_VahidOOnLine_254090.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای منتشرشده در شبکه‌های اجتماعی نشان می‌دهد که زادروز جاویدنام امیرحسین حضرتی بر سر مزارش برگزار شد. او در جریان اعتراضات ۱۸ دی ۱۴۰۴ در محله خلیج فارس تهران به دست نیروهای سرکوب کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254089
+
+<div align="center"><img src="files/post_254089_VahidOOnLine_254089.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️دولت یمن: حمله پهپادی حوثی‌ها به مأرب تلفات جانی بر جا گذاشت
+
+♦️یک منبع نظامی یمن اعلام کرد حمله پهپادی شبه‌نظامیان حوثی‌ها به استان مأرب در روز جمعه ۱۶ مرداد ماه، سه کشته و چهار زخمی از نیروهای دولتی این کشور برجا گذاشته است.
+
+این منبع نظامی به خبرگزاری فرانسه گفت: «در حمله پهپادی حوثی‌ها به منطقه حریب در جنوب مأرب، بر اساس آمار اولیه سه نفر کشته و چهار نفر زخمی شدند.»
+
+تلویزیون دولتی یمن، صبح جمعه از درگیری پدافند هوایی این کشور با تعدادی از پهپادهای شلیک شده توسط حوثی‌های وابسته به جمهوری اسلامی بر فراز مأرب خبر داده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254088
+
+<div align="center"><img src="files/post_254088_VahidOOnLine_254088.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️در حالی که جیانی اینفانتینو، رئیس فیفا در روزهای اخیر با انتقاد گسترده فدراسیون‌ و کنفدراسیون‌های فوتبال در جهان مواجه است، فدراسیون‌های فوتبال مکزیک و آرژانتین از او حمایت کردند.
+فدراسیون فوتبال مکزیک، یکی از میزبانان جام جهانی اخیر، با حمایت از اینفانتینو موضعی متفاوت از کنفدراسیون منطقه‌ای خود یعنی کونکاکاف اتخاذ کرد. کونکاکاف پیش‌تر خواستار «بررسی جامع» عملکرد ریاست اینفانتینو شده بود.
+در سوی دیگر، کنفدراسیون فوتبال آفریقا روز پنجشنبه به‌طور تلویحی از رهبری اینفانتینو حمایت کرد، اما اتحادیه فوتبال اروپا (یوفا) اعلام کرد همچنان به موضع خود برای تحریم جام جهانی و دیگر رقابت‌های فیفا پایبند است. کنفدراسیون فوتبال آسیا نیز اعلام کرده بود در کنار یوفا و کونکاکاف قرار دارد.
+با این حال، کنفدراسیون فوتبال آمریکای جنوبی (کونمبول) در بیانیه‌ای مخالفت خود را با هرگونه تلاش برای برکناری اینفانتینو بدون رای‌گیری میان ۲۱۱ عضو فیفا اعلام کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254087
 
@@ -279,45 +323,6 @@ https://iranintl.
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جمهوری اسلامی و عمان به توافقی درباره مسیر کشتیرانی در تنگه هرمز نزدیک شده‌اند، توافقی که شاید فقط راه عبور کشتی‌ها را تعیین نکند، بلکه جایگاه سیاسی و امنیتی تهران در یکی از مهم‌ترین گذرگاه‌های انرژی جهان را نیز تثبیت کند.
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254060
-
-<div align="center"><video src="files/post_254060_VahidOOnLine_254060.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254060_VahidOOnLine_254060.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام ارسالی گزارشگر منوتو: «این بنر رو نوشتم و نصب کردم بخاطر پدر و مادرم و خیلی از دوستان و آشنایان خانوادگیمون و در واقع تمامی زن مردهای بازنشسته که سالیان سال تو عمرشون کار کردند، جون کندند، خون خوردند، عرق کردند و زحمت کشیدند تا یک لقمه نون حلال برای ما بچه هاشون و خانوادهاشون تهیه کنند و حالا سر پیری به ذلت افتادن و آه ندارن با ناله سودا کنن و این رژیم و دولت و حکومت باهاشون مثل سگ رفتار میکنه و اصلا رفاه اینا براشون هیچ اهمیتی نداره.»
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254059
-
-<div align="center"><video src="files/post_254059_VahidOOnLine_254059.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254059_VahidOOnLine_254059.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارشگر منوتو: آب برق زندگی، این شده شعار مردم بیچاره ایران
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254049
-
-<div align="center"><video src="files/post_254049_VahidOOnLine_254049.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254049_VahidOOnLine_254049.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مهم‌ترین خبرهای مرتبط با ایران در رسانه‌های جهان در ۲۴ ساعت گذشته، پنجشنبه ۱۵ مرداد ۱۴۰۵
 ‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,52 @@
 # آرشیو کانال VahidOOnLine - صفحه 164
 
-📅 آخرین بروزرسانی: 1405/05/25 01:34
+📅 آخرین بروزرسانی: 1405/05/25 02:10
 
 ---
+
+## VahidOOnLine — post 251336
+
+<div align="center"><video src="files/post_251336_VahidOOnLine_251336.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251336_VahidOOnLine_251336.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انتشار گزارش بازداشت و بازجویی دو تن از کارکنان سفارت فرانسه در ایران، بازتاب گسترده‌ای در رسانه‌های فرانسوی داشته است. وزیر خارجه این کشور درباره پیامدهای این اقدام به وزارت خارجه جمهوری اسلامی هشدار داده است.
+
+ساجده شریفی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251335
+
+<div align="center"><video src="files/post_251335_VahidOOnLine_251335.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251335_VahidOOnLine_251335.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی در تشریح سناریوی احتمالی «اشغال» خاک ایران از سوی آمریکا، گفت در صورت وقوع چنین شرایطی، نیروهای مسلح ایران حاضر خواهند بود برای مقابله با نیروهای مهاجم، بخش‌هایی از خاک خود را نیز هدف حملات قرار دهند.
+اکرمی‌نیا این اظهارات را در توضیح راهبرد نظامی جمهوری اسلامی در صورت وقوع یک تهاجم زمینی بیان کرد و گفت هدف از چنین اقدامی جلوگیری از تثبیت و استقرار نیروهای مهاجم در مناطق اشغالی خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251334
+
+<div align="center"><video src="files/post_251334_VahidOOnLine_251334.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251334_VahidOOnLine_251334.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌های آلمان، اظهارات اخیر عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، را اعترافی کم‌سابقه درباره ضعف‌های امنیتی در ساختار تصمیم‌گیری حکومت توصیف کرده‌اند و نوشته‌اند او رخنه امنیتی را شامل تاثیرگذاری بر فرایند تصمیم‌گیری‌های داخلی نیز دانسته است.
+
+احمد صمدی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251333
 
@@ -263,50 +307,6 @@ iranintl
 
 این کارزار با محکوم کردن اعدام‌های فزاینده در ایران اعلام کرد عارف خوشکار، محمد امینی دهاقانی، عرفان اسفندیاری و گل‌محمد محمدی، چهار زندانی سیاسی، در دادرسی‌هایی ناعادلانه محاکمه و اعدام شدند.
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251316
-
-<div align="center"><img src="files/post_251316_VahidOOnLine_251316.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علیرضا پناهیان، سخنران دفتر خامنه‌ای، در مراسمی در قم گفت: «ما جنگ‌طلب نیستیم اما هر روز و هر لحظه باید از خدا درخواست و تمنا کنیم که به ما فرصت بده تا اسرائیل را ریشه‌کن کنیم.»
-
-او ادامه داد: «ما جنگ‌طلب نیستیم اما بدانیم که حق جهاد به معنای جنگ‌طلبی نیست. اگر ذره‌ای کوتاه بیاییم، دچار فتنه‌ها خواهیم شد.»
-
-پناهیان اضافه کرد: «خوشبختانه آمریکا با بدعهدی‌ها و جنایت‌ها این فرصت را برای ما مهیا کرده که با اسرائیل و ترامپ بجنگیم و انتقام خون همه مظلومان جهان را بگیریم.»
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251315
-
-<div align="center"><video src="files/post_251315_VahidOOnLine_251315.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251315_VahidOOnLine_251315.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس گزارش‌ها اسکندر مومنی، وزیر کشور جمهوری اسلامی، در سفر به پاکستان گفت‌وگو درباره تبادلات تجاری را در دستور کار دارد و گزارش‌ها حاکی است حامل پیام مسعود پزشکیان درباره مذاکرات با آمریکا و وضعیت تنگه هرمز است.
-
-جواد همدانی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251314
-
-<div align="center"><video src="files/post_251314_VahidOOnLine_251314.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251314_VahidOOnLine_251314.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منشه امیر، کارشناس امور خاورمیانه، به ایران‌اینترنشنال گفت در صورت ورود اسرائیل به جنگ، تلاش خواهد کرد مراکز فرماندهی نیروهای سرکوبگر را نابود کند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
