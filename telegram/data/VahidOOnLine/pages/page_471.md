@@ -1,8 +1,26 @@
 # آرشیو کانال VahidOOnLine - صفحه 471
 
-📅 آخرین بروزرسانی: 1405/05/25 01:13
+📅 آخرین بروزرسانی: 1405/05/25 01:34
 
 ---
+
+## VahidOOnLine — post 243674
+
+<div align="center"><video src="files/post_243674_VahidOOnLine_243674.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243674_VahidOOnLine_243674.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️مکرون: تمام‌قد از توافق آتش‌بس میان اسرائیل و لبنان حمایت می‌کنیم
+
+♦️امانوئل مکرون، رئیس‌جمهوری فرانسه روز پنجشنبه ۱۴ خردادماه در جریان سفر به مونته‌نگرو اعلام کرد که پاریس از توافق آتش‌بس میان اسرائیل و لبنان که در واشنگتن اعلام شد، حمایت کرده و آماده است در چارچوب سازوکار هماهنگی ایجادشده با ایالات متحده برای پیشبرد این روند همکاری کند.
+
+آتش‌بس میان اسرائیل و لبنان با میانجی‌گری آمریکا و مشارکت چند کشور غربی با هدف کاهش تنش‌ها در مرز دو کشور و جلوگیری از گسترش درگیری‌ها در منطقه دنبال می‌شود.
+فرانسه به دلیل روابط تاریخی با لبنان، از بازیگران اصلی دیپلماتیک در سیاست خارجی این کشور به شمار می‌رود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243673
 
@@ -282,18 +300,6 @@ http
 رسانه‌های محلی گزارش داده‌اند که خرس همچنان در محوطه کارخانه حضور دارد و پلیس برای مقابله با آن وضعیت اضطراری اعلام کرده است تا در صورت لزوم به این حیوان شلیک شود.
 در پی این حادثه، مدارس ابتدایی و راهنمایی اطراف تعطیل شده‌اند و کارخانه محل حادثه نیز فعالیت خود را متوقف کرده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243648
-
-<div align="center"><video src="files/post_243648_VahidOOnLine_243648.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243648_VahidOOnLine_243648.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

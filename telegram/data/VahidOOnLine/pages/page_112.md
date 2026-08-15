@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/25 01:13
+📅 آخرین بروزرسانی: 1405/05/25 01:34
 
 ---
+
+## VahidOOnLine — post 252531
+
+<div align="center"><img src="files/post_252531_VahidOOnLine_252531.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری تسنیم، روز سه‌شنبه ششم مرداد، گزارش داد کیفیت هوای تهران با شاخص ۱۵۵ در وضعیت قرمز و ناسالم برای همه افراد قرار گرفته است.
+بر اساس این گزارش، در این شرایط، همه گروه‌های سنی ممکن است تحت تاثیر آلودگی هوا قرار گیرند و توصیه می‌شود شهروندان از فعالیت‌های طولانی‌مدت و سنگین در فضای باز خودداری کنند
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252530
 
@@ -284,19 +296,6 @@
 
 رییس‌جمهوری آمریکا همچنین گفت تاسیسات هسته‌ای کوه کلنگ گزلا «مشکل بزرگی نیست» و افزود: «دیگر نمی‌توانیم اجازه دهیم ایران توافق‌ها را نقض کند.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252510
-
-<div align="center"><video src="files/post_252510_VahidOOnLine_252510.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252510_VahidOOnLine_252510.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیو و پیام فرستاده‌شده برای گزارشگر من‌وتو، یک فرد در یک خیابان یک‌طرفه برخلاف جهت مسیر حرکت کرده و پس از مواجهه با یک راننده زن به‌دلیل نداشتن حجاب اجباری، به خودروی او ضربه می‌زند.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

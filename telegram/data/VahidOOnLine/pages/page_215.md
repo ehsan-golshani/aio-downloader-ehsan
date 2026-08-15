@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 215
 
-📅 آخرین بروزرسانی: 1405/05/25 01:13
+📅 آخرین بروزرسانی: 1405/05/25 01:34
 
 ---
+
+## VahidOOnLine — post 250226
+
+<div align="center"><video src="files/post_250226_VahidOOnLine_250226.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250226_VahidOOnLine_250226.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال در واکنش به اظهارات ترامپ درباره حمله زمینی و هدف قرار دادن زیرساخت‌های ایران گفت اگر هدف، خلع سلاح گسترده جمهوری اسلامی باشد، عملیات نظامی باید هفته‌ها ادامه یابد؛ در غیر این صورت، این تهدیدها با هدف وادار کردن تهران به مذاکره است
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250225
 
@@ -296,19 +309,6 @@ iranintl
 
 او افزود: «ما باید حمله زمینی را آغاز کنیم، چیزی که آمریکایی‌ها مدت‌ها تهدید کردند اما جرات اقدام نداشتند.»
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250206
-
-<div align="center"><video src="files/post_250206_VahidOOnLine_250206.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250206_VahidOOnLine_250206.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال، نشان می‌دهد که بامداد ۲۴ تیر، یک فروند موشک از تبریز پرتاب شد. جزئیات بیشتری درباره محل دقیق پرتاب یا مقصد احتمالی آن منتشر نشده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

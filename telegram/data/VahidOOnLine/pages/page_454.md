@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 454
 
-📅 آخرین بروزرسانی: 1405/05/25 01:13
+📅 آخرین بروزرسانی: 1405/05/25 01:34
 
 ---
+
+## VahidOOnLine — post 244064
+
+<div align="center"><img src="files/post_244064_VahidOOnLine_244064.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عبدالوحید فیاضی، عضو کمیسیون آموزش مجلس، درباره اعتراضات سراسری دانش‌آموزان به مصوبه تاثیر معدل در کنکور و سیاست‌های آموزشی جمهوری اسلامی، گفت که دانش‌آموزان دست از اعتراضات بردارند و بروند درس‌شان را بخوانند، چون دیگر چاره‌ای نیست و اعتراضات فایده‌ای ندارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244063
 
@@ -272,19 +283,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم نورنبرگ در آلمان شنبه ۱۶ خرداد پرفورمنسی را علیه اعدام‌های جمهوری اسلامی اجرا کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244044
-
-<div align="center"><video src="files/post_244044_VahidOOnLine_244044.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244044_VahidOOnLine_244044.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از ایرانیان مقیم کانادا شنبه ۱۶ خرداد علیه اعدام‌ها در جمهوری اسلامی در شهر هلیفکس تجمع کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
