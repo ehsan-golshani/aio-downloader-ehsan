@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/24 15:35
+📅 آخرین بروزرسانی: 1405/05/24 16:31
 
 ---
+
+## ProxyMTProto — post 49674
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: yes.nolagsproxy.space
+Port: 443
+Secret: ddf171e4eef563774e776868281d3f51ef
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49673
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 135.181.74.178
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49672
 
@@ -163,23 +181,6 @@ Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78
 Server: server.nl-arvancloud.co.uk
 Port: 443
 Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49654
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📨 For advertising inquiries, contact us or email us. @Ads_ProxyMTProto
-
-📨 По вопросам размещения рекламы свяжитесь с нами или напишите нам по электронной почте. @Ads_ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49653
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: net.antitspu.com
-Port: 443
-Secret: ee24918e3782cee00f652c0018f2867ffd6e65742e616e7469747370752e636f6d
 @ProxyMTProto
 </div>
 
