@@ -1,8 +1,48 @@
 # آرشیو کانال VahidOOnLine - صفحه 187
 
-📅 آخرین بروزرسانی: 1405/05/24 17:12
+📅 آخرین بروزرسانی: 1405/05/24 17:37
 
 ---
+
+## VahidOOnLine — post 250789
+
+<div align="center"><video src="files/post_250789_VahidOOnLine_250789.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250789_VahidOOnLine_250789.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشر شده در شبکه ‌های اجتماعی نشان می‌دهد که گروهی از همشهری‌ها و دوستان جاویدنام ماهان حقیقی، زادورز او را بر سر مزارش گرامی داشتند.
+
+ماهان حقیقی، جوان کشتی‌گیر و دارای مقام قهرمانی استانی، شامگاه پنج‌شنبه ۱۸ دی‌ماه در شهر رشت، با شلیک گلوله جنگی ماموران حکومتی کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در رسانه‌های اجتماعی نشان می‌دهد در پی حمله به جنوب ایران و تخریب تعدادی پل در استان هرمزگان، یک جاده خاکی جایگزین در محور رودان در نظر گرفته شده که خودروها مجبورند از آن تردد کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250787
+
+<div align="center"><img src="files/post_250787_VahidOOnLine_250787.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجتبی یوسفی، عضو هیات رییسه مجلس، به سایت دیده‌بان ایران گفت: «اگر انتقام و قصاص عاملان ترور رهبری را مطالبه نکنیم، دچار خطای محاسباتی و راهبردی شده‌ایم.»
+
+او ادامه داد: «اگر امروز به تهدیدها علیه رهبر جدیدمان پاسخ محکم ندهیم، نگرانی‌هایی ایجاد می‌شود.»
+
+این عضو هیات رییسه مجلس افزود: «با چه توجیهی در ان‌پی‌تی مانده‌ایم؟ باید امروز تصمیم بگیریم و ان‌پی‌تی خارج شویم.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250786
 
@@ -258,48 +298,6 @@ iranintl
 
 او ادامه داد: «ما با دشمنی مکار، حیله‌گر و فریبکار مواجهیم که زیر میز مذاکره می‌زند، اما نباید از آرمان‌های خود کوتاه بیاییم و باید دقیقا همان شروطی را که رهبری گفته، مد نظر داشته باشیم.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250769
-
-<div align="center"><video src="files/post_250769_VahidOOnLine_250769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250769_VahidOOnLine_250769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️استانداری هرمزگان اعلام کرد بامداد شنبه ۲۷ تیر، در ادامه حملات آمریکا، پل محور میناب به رودان پس از دوراهی سرزه، پل رودخانه شور در محور بندرعباس–سیرجان و همچنین تونل شهید میرزایی در مسیر رفت و برگشت هدف حمله قرار گرفته‌اند.
-در ویدیوهای منتشرشده در شبکه‌های اجتماعی از محل حادثه، دیده می‌شود دو خودرو بر اثر آسیب دیدن پل به پایین سقوط کرده‌اند. مقام‌های استانی اعلام کرده‌اند تلاش برای ایجاد مسیرهای جایگزین و راه‌های کنارگذر در حال انجام است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250768
-
-<div align="center"><video src="files/post_250768_VahidOOnLine_250768.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250768_VahidOOnLine_250768.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال وقوع انفجار بامداد شنبه در سایت موشکی لار در استان فارس را نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250767
-
-<div align="center"><img src="files/post_250767_VahidOOnLine_250767.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️وزارت برق، آب و انرژی‌های تجدیدپذیر کویت، روز شنبه ۲۷ تیرماه، اعلام کرد پس از حمله نیروهای مسلح جمهوری اسلامی به یک نیروگاه تولید برق و آب‌شیرین‌کن در این کشور، آتش‌سوزی در این تاسیسات رخ داده و چند واحد تولید برق در پی این حادثه از مدار خارج شده‌اند.
-
-وزارت برق کویت روز جمعه نیز از خسارت و از کارافتادن یکی دیگر از تاسیسات تولید برق و آب این کشور در اثر حملات جمهوری اسلامی خبر داده بود.
-
-روابط عمومی سپاه پاسداران انقلاب اسلامی، صبح شنبه اعلام کرده بود: «اسکله پشتیبانی سوخت ناوگان آمریکا در بندر الاحمدی کویت» را هدف حملات پهپادی و موشکی قرار داده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
