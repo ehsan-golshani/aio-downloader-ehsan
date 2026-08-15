@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/05/24 22:48
+📅 آخرین بروزرسانی: 1405/05/25 01:16
 
 ---
+
+## tasiyanc — post 6474
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امسال ( خرداد ماه) آب تراز دریاچه اورمیه نسبت به سال گذشته (خرداد)۲۰ برابر افزایش داشته 😂😐
+</div>
 
 ## tasiyanc — post 6473
 
@@ -208,17 +214,5 @@ new@Tasiyanc.ovpn
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 🚀⚡.txt
-</div>
-
-## tasiyanc — post 6450
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی تاسیان 🆕
-
-✅160 کانفیگ تست شده
-
-فایل Txt رو باز کنین کانفیگ رو تو آپ NPV & V2BOX & V2RAYNG زیر بزنید پینگ بگیرید وصل شید  🚀
-
-@Tasiyanc ✅
 </div>
 

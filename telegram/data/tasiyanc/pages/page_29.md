@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/24 22:48
+📅 آخرین بروزرسانی: 1405/05/25 01:16
 
 ---
+
+## tasiyanc — post 8589
+
+<div align="center"><img src="files/post_8589_tasiyanc_8589.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طبق تحقیقات روانشناسی، دخترا نسبت به پسرا تمایلات جنسی بیشتری دارن؛ فقط بیان نمیکنن و تظاهر میکنن از این داستانا خوششون نمیاد!
+
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8588
 
@@ -255,12 +266,5 @@ Location 🤯 🇫🇷
 
 @TASIYANC 
 ⭐️
-</div>
-
-## tasiyanc — post 8542
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-⭕️ انفجار در قطرررررررر
 </div>
 

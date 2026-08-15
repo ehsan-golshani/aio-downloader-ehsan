@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/24 22:48
+📅 آخرین بروزرسانی: 1405/05/25 01:16
 
 ---
+
+## tasiyanc — post 7378
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد نامحدود مخصوص گیم،وب‌گردی 👑
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7377
 
@@ -239,11 +251,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 
 
  💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۰٪ کانفیگای وایرگارد اندپوینتا اختلال دارن ، تا زمانیکه اندپوینت مناسب پیدا کنم تا اتصالتون پایدار باشه نمیزاریم
 </div>
 

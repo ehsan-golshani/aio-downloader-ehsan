@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/05/24 22:48
+📅 آخرین بروزرسانی: 1405/05/25 01:16
 
 ---
+
+## tasiyanc — post 5800
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  ۲ سرور سرعتی  اختصاصی تاسیان  📱
+
+✅ تست شده روی همه اپراتورا ✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود اپلیکیشن NPV tunnel  ⏩
+
+نحوه اتصال به سرورهای تاسیان ⏩
+
+
+🦁 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5799
 
@@ -172,11 +189,5 @@ kiwi Speed 🥝.npvt
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5779
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نگران نباشید منو دارین منم شمارو ❤️
 </div>
 

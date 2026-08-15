@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/24 22:48
+📅 آخرین بروزرسانی: 1405/05/25 01:16
 
 ---
+
+## tasiyanc — post 8323
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت همراه اول/ایرانسل تو شهر شما چطوریه؟
+</div>
 
 ## tasiyanc — post 8322
 
@@ -173,14 +179,5 @@
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دولت عراق مجوز فعالیت استارلینک تو این کشور رو رسما امضا کرد
-.
-
-@Tasiyanc✅
 </div>
 

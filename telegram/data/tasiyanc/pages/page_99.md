@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/05/24 22:48
+📅 آخرین بروزرسانی: 1405/05/25 01:16
 
 ---
+
+## tasiyanc — post 6223
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر💋🦦
+</div>
 
 ## tasiyanc — post 6222
 
@@ -176,13 +182,6 @@ NEW FAST ⚡ 🚀.npvt
 دانلود  Wg tunnel 🕹
 آموزش⏩
 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6198
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Proxy ✅ tg://proxy?server=37.27.192.211&port=8443&secret=dd104462821249bd7ac519130220c25d09 @Tasiyanproxy 
 ✅
 </div>
 

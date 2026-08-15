@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/24 22:48
+📅 آخرین بروزرسانی: 1405/05/25 01:16
 
 ---
+
+## tasiyanc — post 9278
 
 ## tasiyanc — post 9276
 
@@ -161,11 +163,5 @@ r23
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 زمستان تمام شد ، بهار تمام شد ، تابستان داره تموم میشه ، اما سوز آن دِی هرگز تمام شد
-</div>
-
-## tasiyanc — post 9254
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این همه جوان به خاطر شما رفتن کشته شدن خایه نداشتید بگید جاوید شاه؟
 </div>
 
