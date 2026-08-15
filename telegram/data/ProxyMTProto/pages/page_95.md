@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/05/24 10:41
+📅 آخرین بروزرسانی: 1405/05/24 11:14
 
 ---
+
+## ProxyMTProto — post 48254
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee1d89eb222800da9e0dca07e51883b2916c696e6b2e6672656574672e7077
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48253
 
@@ -172,15 +181,6 @@ Secret: ee6d6963726f736f66742e636f6dd95c
 Server: For.you.ir.gdhbvjshjrf.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy.subs-sosavpn.ru
-Port: 8443
-Secret: bfb77f1c4bf8a5c16eb5a3d93954ce69
 @ProxyMTProto
 </div>
 

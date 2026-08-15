@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/24 10:41
+📅 آخرین بروزرسانی: 1405/05/24 11:14
 
 ---
+
+## ProxyMTProto — post 49843
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: delbaz.wrenshire.co.uk
+Port: 9870
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49842
 
@@ -172,15 +181,6 @@ Secret: ee966bd27e82ca84e00f7dcf1eecd7237c7372762e736176656c7965762e636c69636b
 Server: Unknown
 Port: 443
 Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49823
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: siri.rhymeslive.online
-Port: 443
-Secret: ddaed7c30ad0cf4a3cd27eca1a649de5d2
 @ProxyMTProto
 </div>
 
