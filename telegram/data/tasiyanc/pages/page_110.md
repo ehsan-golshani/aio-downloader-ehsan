@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/05/24 09:21
+📅 آخرین بروزرسانی: 1405/05/24 13:12
 
 ---
+
+## tasiyanc — post 5918
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای بار هزارم کانکت شدی دنبال دان لینک نباش بیا تل یا برو یه جای دیگه جز نپستر بالا میاد تو ۱۰ ثانیه
+</div>
+
+## tasiyanc — post 5917
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی🔥🇩🇪.npvt
+</div>
 
 ## tasiyanc — post 5916
 
@@ -201,30 +213,5 @@ New⚡Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🌊fast.npvt
-</div>
-
-## tasiyanc — post 5896
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
-سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  
-🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5894
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-channel@TASIYANC.ovpn
 </div>
 

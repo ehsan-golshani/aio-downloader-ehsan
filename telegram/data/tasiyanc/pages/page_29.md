@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/24 09:21
+📅 آخرین بروزرسانی: 1405/05/24 13:12
 
 ---
+
+## tasiyanc — post 8555
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میساقی مجری صداسیما : من ۱۰۰ نفرو حریف بودم ۱۰۱ نفر اومدن مادرمو گای*یدن
+</div>
+
+## tasiyanc — post 8554
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+س*اک زدن دنیا خانوم جهانبخت برای تتلو 🤣
+
+مشاهده فیلم 👉
+</div>
 
 ## tasiyanc — post 8552
 
@@ -194,25 +208,5 @@ Location 🤯 🇫🇷
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8512
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان.
-
-مشاهده فیلم 👉
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-💪 انفجار در شیراز
-
-@Tasiyanc
 </div>
 

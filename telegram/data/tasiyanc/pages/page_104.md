@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/24 09:21
+📅 آخرین بروزرسانی: 1405/05/24 13:12
 
 ---
+
+## tasiyanc — post 6075
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FastVip⚡.npvt
+</div>
+
+## tasiyanc — post 6074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی همه اپراتورا🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6073
 
@@ -164,14 +185,4 @@ Hot Servers 🔥🌶️.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یکم صبر میکنم دیل آک بزنه
 </div>
-
-## tasiyanc — post 6045
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امین زحمت کشید شماره و آدرس و شماره بابای جاکشش درآورده
-</div>
-
-## tasiyanc — post 6044
-
-<div align="center"><img src="files/post_6044_tasiyanc_6044.jpg" alt="Photo"></div>
 

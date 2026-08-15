@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/24 09:21
+📅 آخرین بروزرسانی: 1405/05/24 13:12
 
 ---
+
+## tasiyanc — post 7237
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ های اخیر که گذاشتم همشون وصله
+( دارک - نپستر - ویندسکرایب) حمایت یادتون نره ❤️
+</div>
+
+## tasiyanc — post 7235
+
+<div align="center"><video src="files/post_7235_tasiyanc_7235.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7235_tasiyanc_7235.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی وایر Windscribe 🔐
+
+🟢حجم و کاربر نامحدود 🟢
+
+تمام اپراتورا 
+🔺
+
+مناسب گیم 🎲 دانلود
+⬇️ وب‌گردی🔍 جمینای
+
+دانلود ویندسکرایب : Android 
+📱  iOS 
+🕹
+
+آموزش اتصال به سرور ⏩
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7234
 
@@ -305,60 +340,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 ⬇️ وب‌گردی
 🔍 جمینای 
 🤖 ترید 🤑
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7205
-
-<div align="center"><video src="files/post_7205_tasiyanc_7205.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7205_tasiyanc_7205.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖 ترید
-💰
-
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7201
-
-<div align="center"><video src="files/post_7201_tasiyanc_7201.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7201_tasiyanc_7201.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  OpenVpn   📶
-
-تست شده تمام نتها 
-🚀
-
-دانلود 
-📱 Android  
-🕹 iOS
-
-آموزش اتصال
 
 
 ✔️ T.me/Tasiyanc 

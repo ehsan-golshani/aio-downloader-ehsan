@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/05/24 09:21
+📅 آخرین بروزرسانی: 1405/05/24 13:12
 
 ---
+
+## tasiyanc — post 7205
+
+<div align="center"><video src="files/post_7205_tasiyanc_7205.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7205_tasiyanc_7205.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ اختصاصی دارک تانل 🌟
+
+حجم نامحدود - سرعتی 
+🚀
+
+تست شده رو تمام نت ها ✅
+
+دانلود Dark Tunnel  
+🕹
+
+آموزش اتصال به سرور دارک ⏩
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖 ترید
+💰
+
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7201
+
+<div align="center"><video src="files/post_7201_tasiyanc_7201.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7201_tasiyanc_7201.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  OpenVpn   📶
+
+تست شده تمام نتها 
+🚀
+
+دانلود 
+📱 Android  
+🕹 iOS
+
+آموزش اتصال
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7200
 
@@ -230,37 +284,6 @@ Milano 🇮🇹🔥.npvt
 مناسب دانلود
 ⬇️ وب‌گردی🔍 جمینای 
 🤖
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7176
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-GN⚡⚡🇩🇪FST🇮🇹.npvt
-</div>
-
-## tasiyanc — post 7175
-
-<div align="center"><video src="files/post_7175_tasiyanc_7175.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7175_tasiyanc_7175.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV
-
-3سرور سرعتی متد جدید
-⚡️
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
 
 
 ✔️ T.me/Tasiyanc 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/24 09:21
+📅 آخرین بروزرسانی: 1405/05/24 13:12
 
 ---
+
+## tasiyanc — post 8206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
+</div>
+
+## tasiyanc — post 8205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 حملات موشکی سپاه آغاز شد
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8204
 
@@ -149,31 +163,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
-</div>
-
-## tasiyanc — post 8184
-
-<div align="center"><img src="files/post_8184_tasiyanc_8184.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨تصویر تخریب پل کهورستان در بندر خمیر
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8183
-
-<div align="center"><video src="files/post_8183_tasiyanc_8183.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8183_tasiyanc_8183.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو نفر از کارکنان ایستگاه راه آهن کشته شدن 
-💔
-
-@Tasiyanc
-✅
 </div>
 

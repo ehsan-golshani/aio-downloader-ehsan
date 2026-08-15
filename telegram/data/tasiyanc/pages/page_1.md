@@ -1,12 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/24 09:21
+📅 آخرین بروزرسانی: 1405/05/24 13:12
 
 ---
 
-## tasiyanc — post 9308
+## tasiyanc — post 9310
 
-<div align="center"><a href="files/post_9308_@Tasiyanc_🍃.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc_🍃.ovpn</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز August 15، روز آرامش و ریلکس کردنه.
+
+تو این روز باید استرس رو بریزین دور، و در کمال آرامش، از لحظه به لحظه زندگی، لذت ببرین.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیست افرادی که در پویش جان فدا ثبت‌نام کرده بودن توسط هکرهای اسرائیلی منتشر شد
+تا این لحظه مشخصات 4.7 میلیون نفر با اسامی کامل ، کد ملی ، شماره تلفن ، شغل ، تخصص و محدوده زندگی انتشار یافته است
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9308
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 
@@ -35,8 +50,6 @@
 </div>
 
 ## tasiyanc — post 9306
-
-<div align="center"><a href="files/post_9306_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
@@ -260,12 +273,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 
 ✔️ T.me/Tasiyanc
 </div>
-
-## tasiyanc — post 9284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اتمام چالش ، ریکشن هرکی بیشتر باشه برندس تا ساعت ۱۵😂❤️
-</div>
-
-## tasiyanc — post 9283
 
