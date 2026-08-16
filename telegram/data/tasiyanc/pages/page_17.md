@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/25 18:20
+📅 آخرین بروزرسانی: 1405/05/25 18:41
 
 ---
+
+## tasiyanc — post 8956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بی بی نتانیاهو:
+
+اکثریت قاطع ایرانیان اسرائیل را تحسین می‌کنند.
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8955
 
@@ -262,13 +272,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هیچ اختلالی در اینترنت نیست کانفیگای کانال با سرعت وصله
-</div>
-
-## tasiyanc — post 8934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 گزارش انفجار از سیریك
-
-@Tasiyanc ✅
 </div>
 

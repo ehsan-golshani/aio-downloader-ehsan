@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/25 18:20
+📅 آخرین بروزرسانی: 1405/05/25 18:41
 
 ---
+
+## tasiyanc — post 6979
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ متد اختصاصی httpCustum میزارم تست کنید
+</div>
 
 ## tasiyanc — post 6965
 
@@ -254,11 +260,5 @@ T.me/Tasiyanc ✅
 امروز June 15
 روز جهانی گل گرفتنه 💐
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتونم بخیر 🥹
 </div>
 

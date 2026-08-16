@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/05/25 18:18
+📅 آخرین بروزرسانی: 1405/05/25 18:39
 
 ---
+
+## ProxyMTProto — post 48303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: always.for.you.ir.mausjakaqd.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48302
 
@@ -172,15 +181,6 @@ Secret: ee5958726ff7014366a3b70d38ff0c8e456c6f67696e2e76656c747572612e6469676974
 Server: Unknown
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.toconvel.digital
-Port: 443
-Secret: ee40e625d3286a6e8aeab9fa83bea77e1763646e2e746f636f6e76656c2e6469676974616c
 @ProxyMTProto
 </div>
 

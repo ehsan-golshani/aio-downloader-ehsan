@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/25 18:20
+📅 آخرین بروزرسانی: 1405/05/25 18:41
 
 ---
+
+## tasiyanc — post 9027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پنالتی راحترین بازی پولساز ⚠️
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید راحتو سریع برنده شو👌🏼
+💖 مرجع بازی های روز دنیا در ‌پلتفرم جهانی بت اینجا ⭐
+</div>
 
 ## tasiyanc — post 9026
 
@@ -352,20 +360,6 @@ https://oteacher.org
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کروکودیل ( تمساح) ها بعد از خوردن طعمه ، به دلیل محبوس شدن هوا در سینوس هایشان اشک می‌ریزند ، نه پشیمانی
 بخاطر همین اصطلاح « اشک تمساح » برای کسایی بکار میرود که فقط تظاهر به ناراحتی میکنند
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9003
-
-<div align="center"><video src="files/post_9003_tasiyanc_9003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9003_tasiyanc_9003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تهران نوروز ۱۳۵۶ نزدیک به ۵۰ سال پیش
-😭 !!
 
 @TASIYANC 
 ✅
