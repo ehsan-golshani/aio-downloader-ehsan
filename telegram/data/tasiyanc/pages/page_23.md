@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/25 13:23
+📅 آخرین بروزرسانی: 1405/05/25 14:21
 
 ---
+
+## tasiyanc — post 8783
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فاکس نیوز : برد موشک های جمهوری اسلامی به اروپا هم میرسند.
+
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8782
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ :
+
+نخست وزیر بی‌بی نتانیاهو از اسرائیل، به همراه من و نمایندگان جلسه بسیار خوبی داشتیم. تو این جلسه درباره موضوعات مهم زیادی صحبت شد
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8781
 
@@ -223,19 +244,5 @@
 🇷🇺🇺🇦 یک تانک روسی T-80BVM با ارزش تقریبی ۴ میلیون دلار، توسط یک پهپاد ۵۰۰ دلاری اوکراینی منهدم شد.
 ﻿
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران جای عجیبیه جای لف دادن از چنل سام صابری حرومزاده ممبراش بالا اومده
-</div>
-
-## tasiyanc — post 8755
-
-<div align="center"><img src="files/post_8755_tasiyanc_8755.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسلیت.
 </div>
 

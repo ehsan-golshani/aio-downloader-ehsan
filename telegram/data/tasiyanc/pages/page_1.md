@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/25 13:23
+📅 آخرین بروزرسانی: 1405/05/25 14:21
 
 ---
+
+## tasiyanc — post 9354
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سردار باقرزاده : سه خلبان ایرانی زنده و در اسارت قطری ها هستند
+
+«جواد صالحی , عبدالمجید دشتیان ، عمران به‌روشیان » از ۶ ماه پیش بعد از اصابت هواپیمایشان ( سوخو۲۴) در اسارت نیروهای قطری هستند همچنین ارتش قطر اجازه مصاحبه ، ملاقات ، تماس هم بهشون نداده است.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9353
+
+<div align="center"><video src="files/post_9353_tasiyanc_9353.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9353_tasiyanc_9353.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیث لجر ستاره هالیوود ، افسانه ای که در نقش «جوکر» غرق شد و در نهایت در ۲۸ سالگی و چند ماه پس از اکران فیلم از دنیا رفت !
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9352
 
@@ -231,24 +253,5 @@ sr25
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🪐 05.conf
-</div>
-
-## tasiyanc — post 9332
-
-<div align="center"><img src="files/post_9332_tasiyanc_9332.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🇰🇵دونالد ترامپ در شبکه اجتماعی Truth Social:
-
-«با وجود چهره ناخوشایند در این تصویر خاص، عکس‌های زیادی وجود دارد که در آنها لبخند می‌زنیم؛ من و کیم جونگ اون رابطه بسیار خوبی داریم!»
-
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9331
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانال از نون شب واجب تر 👌
 </div>
 

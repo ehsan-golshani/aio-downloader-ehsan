@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/25 13:42
+📅 آخرین بروزرسانی: 1405/05/25 14:19
 
 ---
+
+## ProxyMTProto — post 49986
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: should.be.wake.up.ir.yfdhjderkig.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49985
 
@@ -172,15 +181,6 @@ Secret: dd6767547c5dd848f55281e391e0153eae
 Server: naro.guguli.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49966
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: life.whiteproxy.baby
-Port: 443
-Secret: dd775fa5684b6f92e462eb88c1307d338d
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/25 13:23
+📅 آخرین بروزرسانی: 1405/05/25 14:21
 
 ---
+
+## tasiyanc — post 7707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فارغ از هر بحثی دوس داشتیم فینال دو اسطوره رو ببینیم ک نشد
+</div>
+
+## tasiyanc — post 7706
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🐐 بعضی‌ها جام می‌برند، بعضی‌ها رکورد می‌شکنند؛
+اما فقط یک نفر معنای «GOAT» را تغییر داد...
+کریستیانو رونالدو؛
+نامی که از تاریخ فوتبال پاک نخواهد شد.
+پایان یک جام جهانی، اما نه پایان یک افسانه.
+CR7 GOAT Forever 🇵🇹❤️‍🔥
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7705
 
@@ -187,27 +206,5 @@ VIP 🎯 @Tasiyanc.nm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 𝗘𝗰𝗵𝗼 𝗩𝗶𝗽 🔥⁰⁴.ehi
-</div>
-
-## tasiyanc — post 7680
-
-<div align="center"><img src="files/post_7680_tasiyanc_7680.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎥انیمیشن داستان اسباب بازی ها (Toy Story 5) 2026
-ژانر : انیمیشن ، خانوادگی ، کمدی
-مدت زمان 🕰: 102 دقیقه 
-کشور: 🇺🇸
-وودی، باز، جسی و دیگر اعضای گروه با چالشی تازه روبه‌رو می‌شوند؛ زمانی که با وسایل الکترونیکی آشنا می‌شوند، فناوری‌های جدیدی که به تهدیدی برای بازی و سرگرمی کودکان تبدیل شده‌اند و جایگاه آن‌ها را به خطر می‌اندازند.
-💘 برای دانلود دوبله فارسی کلیک کنید 💘
-💘 دانلود زبان اصلی 💘
-با ۴ کیفیت متفاوت😍
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️ 💘 دریافت کانفیگ👈 💘
 </div>
 
