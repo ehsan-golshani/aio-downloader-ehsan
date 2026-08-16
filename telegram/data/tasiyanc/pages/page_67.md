@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/05/26 01:10
+📅 آخرین بروزرسانی: 1405/05/26 02:11
 
 ---
+
+## tasiyanc — post 7289
 
 ## tasiyanc — post 7288
 
@@ -185,11 +187,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اگه بجای طارمی سهراب سپهری بود با اختلاف گل میشد 😂
-</div>
-
-## tasiyanc — post 7255
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینجاست ک میگن بلژیک از کون ( طارمی) اورد 🤣
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/26 01:10
+📅 آخرین بروزرسانی: 1405/05/26 02:11
 
 ---
+
+## tasiyanc — post 6668
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ : حملات امشب لغو کردم
+</div>
 
 ## tasiyanc — post 6667
 
@@ -201,11 +207,5 @@ vless://931729a8-3c20-4841-89a1-f18dc9ce0a6f@cdn7-09.vk-cdnvideo.com:8443?securi
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بهرحال منتی نیست ، به عشق شما ادامه میدیم 🦦
-</div>
-
-## tasiyanc — post 6640
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فکت عجیب : مردم ایران از چنلایی که سه ماه ۲۴ ساعت آنلاین بودن وصلشون کردن هیچ حمایتی نکردن و وقتی وصل شدن خیلیاشون لف دادن🤌😂
 </div>
 

@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/05/26 01:10
+📅 آخرین بروزرسانی: 1405/05/26 02:11
 
 ---
+
+## tasiyanc — post 7189
+
+<div align="center"><img src="files/post_7189_tasiyanc_7189.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تیم ملی فوتبال الجزایر از داور بخاطر این خطای پسرشون (لیونل مسی) و حتی نگرفتن اخطار شکایت کرد.
+پی‌نوشت : فک کنم الجزایر رو محروم کنن بخاطر اینکه پسر فیفا رو شکایت کردن 😐
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7188
 
@@ -249,11 +260,5 @@ T.me/Tasiyanc ✅
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7164
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡⚡IR FAST 🚀.npvt
 </div>
 

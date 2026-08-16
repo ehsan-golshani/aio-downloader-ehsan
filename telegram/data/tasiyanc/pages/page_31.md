@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/26 01:10
+📅 آخرین بروزرسانی: 1405/05/26 02:11
 
 ---
+
+## tasiyanc — post 8577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر وقت ایرانیا فهمیدن عادل فرقی با میساقی نداره بازیو بردن
+</div>
 
 ## tasiyanc — post 8574
 
@@ -293,11 +299,5 @@ Location 🤯 🇫🇷
 اتصال امن برای همه 🇮🇷
 
 ✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر 💘
 </div>
 

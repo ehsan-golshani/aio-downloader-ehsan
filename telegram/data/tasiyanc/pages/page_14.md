@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/26 01:10
+📅 آخرین بروزرسانی: 1405/05/26 02:11
 
 ---
+
+## tasiyanc — post 9040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ویس های پخش شده منتسب به سالومه مجری منوتو ، با هوش مصنوعی ساخته شده دیدم وایرال داره میشه گفتم بگم
+
+پ‌ن : انقد سطحی و مبتدیانه ساخته شده بچه ۴ ساله هم میفهمه
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9039
 
@@ -252,11 +262,5 @@ Join As @TASIYANC ✅
 اتصال امن برای همه 🏠
 
 💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ HttpCustum بزاریم ؟
 </div>
 
