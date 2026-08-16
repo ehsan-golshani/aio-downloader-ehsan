@@ -1,8 +1,51 @@
 # آرشیو کانال VahidOOnLine - صفحه 206
 
-📅 آخرین بروزرسانی: 1405/05/25 19:15
+📅 آخرین بروزرسانی: 1405/05/25 20:13
 
 ---
+
+## VahidOOnLine — post 250504
+
+<div align="center"><video src="files/post_250504_VahidOOnLine_250504.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250504_VahidOOnLine_250504.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️روابط عمومی ارتش در نخستین ساعات بامداد جمعه در بیانیه‌ای گفت که در مرحله یازدهم عملیات صاعقه، به منافع آمریکا در پایگاه الصخیر بحرین حمله کرده است. ارتش آمریکا و دولت بحرین هنوز گزارشی درباره حمله به این پایگاه منتشر نکرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250503
+
+<div align="center"><video src="files/post_250503_VahidOOnLine_250503.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250503_VahidOOnLine_250503.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان حقوق بشری «حال‌وش» با انتشار ویدیوهایی در کانال تلگرام خود از حمله آمریکا به مواضع جمهوری اسلامی در محدوده فرودگاه ایرانشهر در شامگاه پنج‌شنبه ۲۵ تیر خبر داد.
+به گزارش حال‌وش، در پی این حمله صدای انفجارهای پیاپی در منطقه شنیده شده و شعله‌های آتش و دود غلیظ مشاهده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250502
+
+<div align="center"><video src="files/post_250502_VahidOOnLine_250502.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250502_VahidOOnLine_250502.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️کرامت ویس‌کرمی مدیرعامل شرکت ملی پخش فرآورده‌های نفتی اعلام کرد پالایشگاه لاوان در روز نخست آتش‌بس هدف حمله قرار گرفته و در نتیجه آن، حدود نیمی از ظرفیت تولید خود را از دست داده است.
+به گفته او، این پالایشگاه که پیش از این روزانه حدود ۳ میلیون لیتر بنزین تولید می‌کرد، اکنون با حدود ۵۰ درصد ظرفیت به فعالیت ادامه می‌دهد.
+ویس‌کرمی افزود برای جبران کاهش تولید، خوراک سایر پالایشگاه‌ها افزایش یافته تا حداکثر ظرفیت تولید در کشور حفظ شود، به‌ویژه در شرایطی که مصرف سوخت در حال افزایش است.
+بر اساس این اظهارات، میانگین توزیع بنزین تا ۲۴ تیرماه به حدود ۱۳۴ تا ۱۳۵ میلیون لیتر در روز رسیده و پیش‌بینی می‌شود با نزدیک شدن به ماه‌های مرداد و شهریور، میزان مصرف بیش از پیش افزایش یابد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250501
 
@@ -214,44 +257,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️بر اساس ویدیویی که پنجشنبه‌شب ۲۵ تیرماه در حساب کاربری «وحید آنلاین» منتشر شده است، یک موشک به بخش میانی یکی از پل‌های کهورستان اصابت کرده و در پی آن یک تانکر سوخت دچار انفجار شده است.
 این پل در محدوده شهر کهورستان از توابع شهرستان بندرخمیر در استان هرمزگان و در مسیر ارتباطی بندرعباس، بندرخمیر و لار قرار دارد. منابع محلی نیز از مسدود شدن محور رفت و برگشت بندرعباس به لار خبر داده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250484
-
-<div align="center"><img src="files/post_250484_VahidOOnLine_250484.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️بر اساس گزارش‌های منتشرشده در کانال «وحید آنلاین» و برخی رسانه‌های داخلی، بامداد پنج‌شنبه ۲۵ تیرماه مناطقی در استان‌های هرمزگان و سیستان و بلوچستان هدف حمله قرار گرفته‌اند.
-در این میان، گزارش شده که برق بخش‌هایی از کهورستان در پی این حملات قطع شده است. منابع داخلی همچنین از هدف قرار گرفتن پل ارتباطی بندرعباس–کهورستان–لار خبر داده‌اند؛ موضوعی که در ویدیوهای منتشرشده از سوی شهروندان نیز دیده می‌شود.
-همزمان، گزارش‌هایی از حمله به شهرستان بندرخمیر و شنیده شدن چندین انفجار در حوالی فرودگاه ایرانشهر منتشر شده است.
-کهورستان در حدود ۹۰ کیلومتری غرب بندرعباس واقع شده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250483
-
-<div align="center"><img src="files/post_250483_VahidOOnLine_250483.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علیرضا زاکانی، شهردار تهران، در سخنانی گفت مسئولان کشور باید برای سر دونالد ترامپ، رییس‌جمهوری آمریکا، و «هم‌دستانش» جایزه تعیین کنند.
-
-او این اظهارات را در حالی مطرح کرد که تنش‌ها میان جمهوری اسلامی و آمریکا همچنان ادامه دارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250482
-
-<div align="center"><img src="files/post_250482_VahidOOnLine_250482.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری مهر گزارش دادند که پنجشنبه‌شب ۲۵ تیرماه، ایستگاه انشعاب راه‌آهن بندرعباس هدف حمله ارتش آمریکا قرار گرفته است. بر اساس این گزارش‌ها، در پی این حمله دو نفرمجروح شده‌اند.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

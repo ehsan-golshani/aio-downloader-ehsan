@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/05/25 19:36
+📅 آخرین بروزرسانی: 1405/05/25 20:13
 
 ---
+
+## ProxyMTProto — post 48868
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: join.mishutkin.click
+Port: 443
+Secret: ee9d510af7b8eced7ed5eda1bfb35348f262726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48867
 
@@ -172,15 +181,6 @@ Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
 Server: zinova.co.uk.
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48848
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: web.utkanos.life
-Port: 443
-Secret: ee36fd02bb86fbc4266de3a70114c13a247765622e75746b616e6f732e6c696665
 @ProxyMTProto
 </div>
 

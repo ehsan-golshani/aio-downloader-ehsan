@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 515
 
-📅 آخرین بروزرسانی: 1405/05/25 19:15
+📅 آخرین بروزرسانی: 1405/05/25 20:13
 
 ---
+
+## VahidOOnLine — post 242596
+
+<div align="center"><video src="files/post_242596_VahidOOnLine_242596.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242596_VahidOOnLine_242596.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سخنرانی امیرعباس هویدا در جمع دانشجویان درباره نقش جوانان در توسعه و اداره کشور
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242595
+
+<div align="center"><img src="files/post_242595_VahidOOnLine_242595.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کایا کالاس، مسئول سیاست خارجی اتحادیه اروپا، در پایان نشست غیررسمی وزیران خارجه این اتحادیه در قبرس گفت که هر توافق اولیه میان آمریکا و جمهوری اسلامی، باید با مذاکرات عمیق‌تر درباره ذخایر هسته‌ای و دیگر مسائل حیاتی مرتبط با امنیت منطقه تکمیل شود.
+
+مسئول سیاست خارجی اتحادیه اروپا گفت که این اتحادیه همکاری‌های امنیتی و دفاعی خود را با کشورهای خلیج فارس افزایش می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242588
+
+<div align="center"><video src="files/post_242588_VahidOOnLine_242588.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242588_VahidOOnLine_242588.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینترنت در ایران فقط ابزار ارتباط نیست، میدان قدرت است. هر بار که قطع یا وصل می‌شود، حکومت در واقع در حال تنظیم سطح کنترل خود بر جامعه است، اینکه مردم چه ببینند، چه بگویند، چگونه وصل شوند و تا چه اندازه بتوانند با هم عمل کنند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242561
 
@@ -270,47 +309,6 @@ https://iranintl.
 دو طرف روز چهارشنبه در حاشیه چهاردهمین نشست مقام‌های ارشد امنیتی جهان در مسکو دیدار کردند.
 
 ایرنا، خبرگزاری دولت جمهوری اسلامی، نوشت باقری کنی به مجاهد گفت آمریکا و اسرائیل «دشمنان مشترک» کشورهای منطقه هستند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242544
-
-<div align="center"><video src="files/post_242544_VahidOOnLine_242544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_242544_VahidOOnLine_242544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسالی به ایران اینترنشنال نشان می‌دهد که ششم خردادماه تعدادی از ایرانیان ساکن ایالت تگزاس آمریکا برای نشان دادن خواست تغییر رژیم و اعتراض به اعدام‌ها در ایران، تجمعی در شهر هیوستون برگزار کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242543
-
-<div align="center"><img src="files/post_242543_VahidOOnLine_242543.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدباقر قالیباف، رییس مجلس، در پیامی به غلامحسین محسنی اژه‌ای، رییس قوه قضاییه جمهوری اسلامی، نوشت: «قوه قضاییه زیر بمباران و تهدید دشمنان دست از صیانت از حقوق مردم و برخورد با قاتلان داخلی و خائنین به ملت نکشید و خوش درخشید.»
-
-پیام قالیباف در حالی منتشر شده که قوه قضاییه طی ۷۰ روز گذشته، حدود ۴۰ زندانی سیاسی را اعدام کرده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242542
-
-<div align="center"><img src="files/post_242542_VahidOOnLine_242542.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، در واکنش به حملات آمریکا به اهدافی در بندرعباس در بامداد پنج‌شنبه، گفت که این اقدام «تجاوزکارانه» علیه تمامیت سرزمینی و حاکمیت ملی، نقض فاحش حقوق بین‌الملل و منشور ملل متحد به شمار می‌آید.
-
-بقائی افزود: «لفاظی‌های تهدیدآمیز مقامات آمریکایی علیه جمهوری اسلامی و کشور دوست و برادر ما عمان، محکوم است.»
-
-سخنگوی وزارت خارجه جمهوری اسلامی، اقدامات آمریکا را «نقض‌ مستمر آتش‌بس» خواند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

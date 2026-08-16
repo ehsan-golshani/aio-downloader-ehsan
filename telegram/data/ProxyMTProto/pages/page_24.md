@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/25 19:36
+📅 آخرین بروزرسانی: 1405/05/25 20:13
 
 ---
+
+## ProxyMTProto — post 49735
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49734
 
@@ -172,15 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: cloud.neoqua.pro
 Port: 443
 Secret: ee030089cc0dcc47eab9137c31a92a8ad9636c6f75642e6e656f7175612e70726f
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Empire-persia.iran.hey-gardash.info.
-Port: 1080
-Secret: 79e344818749bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 
