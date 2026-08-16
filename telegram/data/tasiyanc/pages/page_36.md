@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 8398
+
+<div align="center"><video src="files/post_8398_tasiyanc_8398.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8398_tasiyanc_8398.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔸توصیف عشق در یک جمله ...
+بفرست براش:)
+
+پروکسی | پروکسی
+
+
+@TASIYANC ✅
+#Nvd
+</div>
 
 ## tasiyanc — post 8397
 
@@ -189,14 +206,5 @@ IP
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8371
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏴󠁧󠁢󠁥󠁮󠁧󠁿 🇫🇷 کدوم می‌بره؟
-
-
-نتیجه دقیق بگید تا قبل شروع بازی کانفیگ وایرگارد هدیه بگیرید
 </div>
 

@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 8599
+
+<div align="center"><video src="files/post_8599_tasiyanc_8599.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8599_tasiyanc_8599.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ امشب فاز نصیحت برداشته:
+
+یه پلیس بهم گفت از وقتی زنم فهمیده هوش مالی بالایی دارم و خوب پول در میارم، بیشتر دوسم داره.
+شما نباید کسیو بخاطر پول دوس داشته باشین.
+
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8592
 
@@ -262,13 +278,5 @@ Join As @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 میساقی مجری صداسیما : من ۱۰۰ نفرو حریف بودم ۱۰۱ نفر اومدن مادرمو گای*یدن
-</div>
-
-## tasiyanc — post 8554
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-س*اک زدن دنیا خانوم جهانبخت برای تتلو 🤣
-
-مشاهده فیلم 👉
 </div>
 

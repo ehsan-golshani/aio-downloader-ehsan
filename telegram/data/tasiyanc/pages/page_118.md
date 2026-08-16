@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 5756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🍓 4 server 🔥.npvt
+</div>
 
 ## tasiyanc — post 5755
 
@@ -196,13 +202,5 @@ https://t.me/Tasiyanc/5733
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 RighTel - Moscow
-vless://079c1b04-7ef9-4c49-8a7a-849a18ba7b9b@83.222.20.64:17910?security=reality&encryption=none&pbk=KUhrhiJBplVCVCrAKP2KjIA_asOgkkvEEAxUJVofjgc&headerType=none&fp=chrome&spx=%2F&type=tcp&sni=yahoo.com&sid=8c09fb78b12f#%40Tasiyanc%20%E2%9C%A8%20Rightel
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 9361
+
+<div align="center"><img src="files/post_9361_tasiyanc_9361.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت پرمیوم تاسیان 🆕
+
+اسم : " Golden Hour Storyboard 🌅″
+
+آموزش استفاده 👉
+
+دریافت پرامپت👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9360
 
@@ -234,21 +250,6 @@ g25
 
 
 آموزش ویدیویی اضافه کردن ساب
-
-
-@Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9340
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای همراه اول و بقیه اوپراتور ها
-
-ساب نامحدود - ارسالی از GTXll
-
-https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
-
-آموزش ویدیویی اضافه کردن ساب 💘
 
 
 @Tasiyanc 💠 | اتصال امن

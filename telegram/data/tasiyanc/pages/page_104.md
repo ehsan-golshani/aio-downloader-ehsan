@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 6126
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هردفم باید بگیم دیگه ری اکشنو😭
+</div>
 
 ## tasiyanc — post 6124
 
@@ -178,15 +184,5 @@ https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunne
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 غیر رسمی پزشکیان استعفاء داد تایید شده نیست
-</div>
-
-## tasiyanc — post 6101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-غیر رسمی
-
-پزشکیان استعفاء داد
-
-تایید شده نیست
 </div>
 

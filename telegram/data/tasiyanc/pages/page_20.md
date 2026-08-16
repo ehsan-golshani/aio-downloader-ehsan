@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 8881
+
+<div align="center"><video src="files/post_8881_tasiyanc_8881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8881_tasiyanc_8881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این برنامه کسایی که خنده های عجیب دارنو دعوت کرده - نتیجه رو ببینید🗿😂😂
+
+
+
+✈️@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8880
 
@@ -287,21 +302,5 @@ Restore this old photograph with maximum realism. Remove scratches, dust, stains
 پروکسی متصل | پروکسی متصل
 
 ✈️@TASIYANC
-</div>
-
-## tasiyanc — post 8850
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻کد های مخفی ChatGpt - Gemini 🤖🤖
-
-کد : 10x THINK - به سوالاتت دقیق تر و عمیق تر جواب میده
-
-کد : EL10 - پاسخ سوالاتت رو ساده توضیح میده ، انگار بچه ده ساله ای
-
-کد : KILL CRITIC - گذاشتن این کد در اول سوالاتت باعث میشه باهات صادقانه و رک باشه و موافق نباشه باهات
-کد : ALT3 - با این کد به جای یک جواب سه تا گزینه بهت میده بابت سوالاتت
-
-
-✈️@TASIYANC ✅
 </div>
 

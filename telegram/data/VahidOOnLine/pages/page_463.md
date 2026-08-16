@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 463
 
-📅 آخرین بروزرسانی: 1405/05/25 17:16
+📅 آخرین بروزرسانی: 1405/05/25 17:37
 
 ---
+
+## VahidOOnLine — post 243948
+
+<div align="center"><video src="files/post_243948_VahidOOnLine_243948.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243948_VahidOOnLine_243948.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ویدیوهای منتشرشده در شبکه‌های اجتماعی نشان می‌دهد گروهی از دانش‌آموزان اصفهان روز شنبه ۱۶ خرداد در اعتراض به حضوری برگزار شدن امتحانات تجمع کرده و با سر دادن شعار «دانش‌آموز داد بزن، حقتو فریاد بزن» خواستار تغییر نحوه برگزاری آزمون‌ها شدند.
+اعتراضات دانش‌آموزی اکنون به تهران، کرمانشاه، قم، مشهد، خراسان شمالی و استان لرستان نیز گسترش یافته است.
+در مشهد، شماری از دانش‌آموزان با تجمع مقابل اداره‌کل آموزش و پرورش خراسان رضوی نسبت به تاثیر معدل پایه یازدهم در کنکور و شیوه برگزاری کلاس‌ها و امتحانات اعتراض کردند و خواستار استعفای دبیر شورای عالی انقلاب فرهنگی شدند.
+همزمان، دانش‌آموزان در استان لرستان نیز مقابل اداره‌کل آموزش و پرورش تجمع کرده و نسبت به شیوه برگزاری امتحانات و تاثیر معدل در کنکور اعتراض کردند.
+در تهران نیز گروهی از دانش‌آموزان مقابل ساختمان شورای عالی انقلاب فرهنگی تجمع کرده و با سر دادن شعارهایی از جمله «دانش‌آموز داد بزن، حقتو فریاد بزن» و «عدالت، آموزش، حق مسلم ماست» نسبت به تصمیمات این نهاد درباره کنکور و تاثیر معدل اعتراض کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243947
+
+<div align="center"><video src="files/post_243947_VahidOOnLine_243947.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243947_VahidOOnLine_243947.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان استان فارس همزمان با سایر استان‌ها مقابل اداره‌کل آموزش و پرورش در شیراز تجمع کرده و خواستار لغو امتحانات حضوری و تاثیر معدل پایه یازدهم در کنکور شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243946
 
@@ -268,32 +298,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان در تهران مقابل شورای عالی انقلاب فرهنگی تجمع کرده و علیه ناصر خسروپناه،‌ دبیر این نهاد، در ارتباط با وضعیت کنکور و حضوری شدن امتحانات اعتراض کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243928
-
-<div align="center"><img src="files/post_243928_VahidOOnLine_243928.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نزدیکان خانواده جاویدنام رضا قلی‌پور، از معترضان کشته‌شده در انقلاب دی‌ماه، گفتند که مادر این شهروند به سرطان مبتلاست و این روزها «تنها امیدش این است که صدای فرزندش خاموش نشود و عکسش دیده شود.»
-
-این فرد گفت که پدر این جاویدنام نیز بیمار است. رضا قلی‌پور در مشهد و روز ۱۸ دی از سوی پاسگاه در ناحیه گردن هدف گلوله ماموران حکومت قرار گرفت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243927
-
-<div align="center"><video src="files/post_243927_VahidOOnLine_243927.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243927_VahidOOnLine_243927.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان در استان تهران با تجمع مقابل شورای عالی انقلاب فرهنگی علیه تصمیمات کنکوری این نهاد شعار دادند: «عدالت، آموزش، حق مسلم ماست.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

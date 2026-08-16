@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 9025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ: ترجیح می‌دهم با ایران به توافق برسم تا بجنگم
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9024
 
@@ -365,31 +373,5 @@ ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@141.98.101.178:443#%F0%9F%87%AC%F0%9F%87%A7
 
 📱@TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9001
-
-<div align="center"><video src="files/post_9001_tasiyanc_9001.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9001_tasiyanc_9001.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet
-💥
-
-
-🎁بونوس ورزشی هر چهارشنبه
-🔥
-
-💸واریز و برداشت متنوع
-💵
-
-⭕️بدون نیاز به فیلتر شکن
-⭕️
-R14
-
-🎁کد هدیه ثبت نام Melbet90 ✌️
-
-✔https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

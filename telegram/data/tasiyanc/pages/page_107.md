@@ -1,8 +1,12 @@
 # آرشیو کانال tasiyanc - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 6044
+
+<div align="center"><img src="files/post_6044_tasiyanc_6044.jpg" alt="Photo"></div>
 
 ## tasiyanc — post 6043
 
@@ -127,11 +131,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اپل آیدی لاک میشه
-</div>
-
-## tasiyanc — post 6021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من سه تا اپل ایدی سرش بگا دادم
 </div>
 

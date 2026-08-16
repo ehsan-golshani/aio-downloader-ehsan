@@ -1,8 +1,39 @@
 # آرشیو کانال VahidOOnLine - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/25 17:16
+📅 آخرین بروزرسانی: 1405/05/25 17:37
 
 ---
+
+## VahidOOnLine — post 254784
+
+<div align="center"><video src="files/post_254784_VahidOOnLine_254784.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254784_VahidOOnLine_254784.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری ایرنا روز چهارشنبه ۲۴ مردادماه تصاویری از دیدار رضا امیری‌مقدم، سفیر جمهوری اسلامی در اسلام‌آباد، با محمد اسحاق دار، معاون نخست‌وزیر و وزیر امور خارجه پاکستان، منتشر کرده است.
+ بر اساس این گزارش، این دیدار امروز در اسلام‌آباد برگزار شد و دو طرف درباره همکاری‌ها و تعاملات دوجانبه گفتگو کردند.
+
+وزیر خارجه پاکستان در این دیدار بر تعهد اسلام‌آباد برای تعمیق روابط با جمهوری اسلامی در زمینه‌های کلیدی و دارای اولویت تاکید کرد. این دیدار در شرایطی انجام می‌شود که پاکستان در روزهای اخیر پیام‌ها و رایزنی‌های دیپلماتیک مهمی را با مقام‌های جمهوری اسلامی دنبال کرده است.
+
+روابط جمهوری اسلامی و پاکستان در ماه‌های اخیر بیش از گذشته تحت تاثیر تحولات منطقه‌ای، مسائل امنیت مرزی، بحران‌های خاورمیانه و رایزنی‌های دیپلماتیک درباره نقش اسلام‌آباد و تهران قرار گرفته است. پاکستان تلاش می‌کند همزمان روابط خود با جمهوری اسلامی، کشورهای عربی، آمریکا و چین را مدیریت کند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254783
+
+<div align="center"><video src="files/post_254783_VahidOOnLine_254783.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254783_VahidOOnLine_254783.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران اینترنشنال، از گرانی تخم‌مرغ و دیگر اقلام خوراکی انتقاد کرد و ضمن اشاره به حقوق پایین گروه بزرگی از شهروندان، تامین هزینه‌های روزمره زندگی را دشوار توصیف کرد و گفت: «سران جمهور اسلامی تا کجا می‌خواهند پیش بروند؟ ما مردم را نابود کردند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254782
 
@@ -300,28 +331,6 @@ Indypersian
 
 پیش‌تر هاکان فیدان، وزیر امور خارجه ترکیه، نیز در گفتگو با خبرگزاری دولتی آناتولی گفته بود «پیمان مکه» علیه ایران نیست و تاکید کرده بود هیچ کشوری تا زمانی که به یکی از اعضای این پیمان حمله نکند، هدف آن نخواهد بود.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254764
-
-<div align="center"><video src="files/post_254764_VahidOOnLine_254764.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254764_VahidOOnLine_254764.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران اینترنشنال صف بنزین در بوشهر در بامداد ۲۱ مرداد را نشان داد و در پیام خود گزارش داد عرضه سوخت در استان بوشهر تنها با کارت و به‌ شکل محدود انجام می‌شود. او همچنین گفت هیچ مسئولی درباره این محدودیت پاسخگو نیست.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254763
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران اینترنشنال صف بلند بنزین در بندرعباس در بامداد ۲۱ مرداد را نشان داد و اشاره کرد که پیشتر، مسئولان مربوط از حل مشکل بنزین در این شهر خبر داده بودند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

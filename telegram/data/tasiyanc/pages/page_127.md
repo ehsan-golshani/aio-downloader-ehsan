@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 5503
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+gül bana dünyalar benim olsun
+</div>
 
 ## tasiyanc — post 5502
 

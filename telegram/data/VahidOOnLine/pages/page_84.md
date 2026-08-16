@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/05/25 17:16
+📅 آخرین بروزرسانی: 1405/05/25 17:37
 
 ---
+
+## VahidOOnLine — post 253347
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمود نبویان، عضو کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «پس از ضربات سنگین جبهه مقاومت، افزایش قیمت انرژی، کاهش ذخایر راهبردی و فشار سیاسی داخلی در آمریکا، عده‌ای در ایران با انگیزه‌های گوناگون از جمله نجات دشمن به فکر مذاکره افتاده‌اند.»
+
+نبویان اضافه کرد: «این عده بدانند چنین مذاکراتی مورد قبول ملت ایران نخواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253346
+
+<div align="center"><video src="files/post_253346_VahidOOnLine_253346.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253346_VahidOOnLine_253346.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از ایرانیان ساکن سوئد شنبه ۱۰ مرداد برای اعتراض به سکوت در مقابل اعدام‌های جمهوری اسلامی در شهر مالمو تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253345
 
@@ -278,32 +302,6 @@
 علاءالدین بروجردی، عضوکمیسیون امنیت ملی مجلس، با اشاره به حملات آمریکا و عربستان سعودی به گروه‌های نیابتی جمهوری اسلامی در عراق، گفت: «ما به احترام مراسم اربعین صبر پیشه کرده‌ایم؛ اما این سکوت به معنای نادیده گرفتن جنایات نیست و پاسخ سخت، قطعا پس از پایان این ایام در راه است.»
 
 او ادامه داد: «هدف قرار دادن موکب‌های اربعین و نیروهای مردمی، هرگز نشانی از قدرت نظامی آمریکا و سعودی نیست، بلکه برعکس، گواه استیصال و درماندگی آن‌ها در برابر اراده محور مقاومت است.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253316
-
-<div align="center"><video src="files/post_253316_VahidOOnLine_253316.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253316_VahidOOnLine_253316.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان ساکن کانادا شنبه ۱۰ مرداد در شهر هلیفکس تجمع کردند تا به اعدام‌های جمهوری اسلامی اعتراض کنند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253315
-
-<div align="center"><video src="files/post_253315_VahidOOnLine_253315.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253315_VahidOOnLine_253315.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای ارسال شده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان ساکن آمریکا شنبه ۱۰ مرداد در سن‌خوزه کالیفرنیا، در اعتراض به اعدام‌های جمهوری اسلامی در خیابان‌های شهر کاروان خودرویی به راه انداختند و پرچم‌های شیروخورشید به دست گرفتند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

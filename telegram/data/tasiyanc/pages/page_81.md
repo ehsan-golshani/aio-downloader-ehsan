@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 6784
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی همه نت ها 🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6783
 
@@ -176,15 +193,6 @@ VİP - ⛓️OMEGA ⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هیچی سلامتی هنوز آتش بسه
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6727
-
-<div align="center"><img src="files/post_6727_tasiyanc_6727.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتی یه شیر تو ایران به دنیا میاد 😈
 @Tasiyanc ✅
 </div>
 

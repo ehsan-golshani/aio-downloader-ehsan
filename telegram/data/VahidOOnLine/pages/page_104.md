@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/25 17:16
+📅 آخرین بروزرسانی: 1405/05/25 17:37
 
 ---
+
+## VahidOOnLine — post 252880
+
+<div align="center"><video src="files/post_252880_VahidOOnLine_252880.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252880_VahidOOnLine_252880.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مخاطبان ایران‌اینترنشنال از شهرهای مختلف ایران روایت‌هایی از شنیده شدن صدای حملات در بامداد پنج‌شنبه ارسال کردند. این گزارش‌های مردمی از شدت انفجارها، زمان وقوع آن‌ها و تاثیرشان بر ساکنان شهرهای مختلف حکایت دارد.
+
+سبا حیدرخانی، عضو تحریریه ایران‌اینترنشنال، گزارش می‌دهد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252879
+
+<div align="center"><video src="files/post_252879_VahidOOnLine_252879.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252879_VahidOOnLine_252879.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بن سبطی، پژوهشگر ایران و اسرائیل، در واکنش به اظهارات بنیامین نتانیاهو درباره تردید نسبت به مذاکرات جمهوری اسلامی و آمریکا گفت اسرائیل هیچ امیدی به این مذاکرات ندارد، زیرا حکومت ایران بارها این مذاکرات را نقض کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252878
 
@@ -271,34 +299,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کتی امیری‌یونسی، وکیل مدنی، درباره اعدام معترضان در ایران از سوی جمهوری اسلامی به ایران‌اینترنشنال گفت نهادهای بین‌المللی حقوق بشری در حال ثبت جنایت‌های جمهوری اسلامی هستند و عاملان این جنایت‌ها باید در آینده پاسخ‌گو شوند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252847
-
-<div align="center"><video src="files/post_252847_VahidOOnLine_252847.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252847_VahidOOnLine_252847.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم‌زمان با دور تازه اعدام معترضان در ایران، رهبر محافظه‌کاران مجلس سنای کانادا، به دولت و متحدان این کشور هشدار داد که از مدارا با جمهوری اسلامی دست بردارند. لئو هوساکوس، در پاسخ اختصاصی به ایران‌اینترنشنال درباره اعدام معترضان ایرانی گفت که این اعدام‌ها با هدف ارعاب مردمی طراحی شده که شجاعانه برای آزادی خود می‌جنگند.
-
-مهسا مرتضوی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252846
-
-<div align="center"><img src="files/post_252846_VahidOOnLine_252846.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️سخنگوی وزارت امور خارجه پاکستان روز پنج‌شنبه هشتم مرداد ماه اعلام کرد مذاکرات میان آمریکا و ایران با هدف کاهش تنش در خاورمیانه و درباره وضعیت تنگه هرمز همچنان ادامه دارد.
-طاهر اندربی، سخنگوی وزارت امور خارجه پاکستان، در گفتگو با خبرنگاران در اسلام‌آباد گفت: «مذاکرات میان طرف‌ها در جریان است، به‌ویژه درباره تنگه هرمز و کاهش تنش.»
-پاکستان در ماه‌های اخیر تلاش کرده است در میان تنش‌های فزاینده میان ایران و آمریکا نقش میانجی را ایفا کند. این اظهارات در حالی مطرح می‌شود که درگیری‌ها در منطقه بار دیگر شدت گرفته و آمریکا و ایران حملات متقابلی انجام داده‌اند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

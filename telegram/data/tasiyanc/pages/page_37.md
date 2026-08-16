@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 8371
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏴󠁧󠁢󠁥󠁮󠁧󠁿 🇫🇷 کدوم می‌بره؟
+
+
+نتیجه دقیق بگید تا قبل شروع بازی کانفیگ وایرگارد هدیه بگیرید
+</div>
 
 ## tasiyanc — post 8369
 
@@ -222,14 +231,5 @@ Multi Location ⚡ Fast.npvt
 ▫️Incendies 2010
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 18 July، روز جهانی گوش دادن
-گوش دادن به آهنگ و چیزای دیگه مثل کسشرای رفیقته
-
-@Tasiyanc ✅| مرجع کانفیگ
 </div>
 

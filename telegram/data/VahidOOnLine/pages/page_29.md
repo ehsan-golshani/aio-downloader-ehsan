@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/25 17:16
+📅 آخرین بروزرسانی: 1405/05/25 17:37
 
 ---
+
+## VahidOOnLine — post 254724
+
+<div align="center"><video src="files/post_254724_VahidOOnLine_254724.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254724_VahidOOnLine_254724.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران اینترنشنال از گرانی شیرخشک انتقاد کرد و خطاب به مسئولان مربوط گفت: «پیش از تشویق به فرزندآوری، ابتدا باید به فکر مردم باشید.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254723
+
+<div align="center"><img src="files/post_254723_VahidOOnLine_254723.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کریستیانو رونالدو، فوق‌ستاره ۳۹ ساله فوتبال جهان، و جورجینا رودریگز، مدل ۲۷ ساله آرژانتینی-اسپانیایی، پس از نزدیک به ۱۰ سال زندگی مشترک، سرانجام در یک مراسم خصوصی در شهر کشکایش پرتغال به طور رسمی با یکدیگر ازدواج کردند. رونالدو روز سه‌شنبه، با انتشار تصویری از حلقه‌هایشان این خبر را اعلام کرد. این زوج که اولین بار در اوایل سال ۲۰۱۷، زمانی که جورجینا به عنوان فروشنده در یکی از فروشگاه‌های «گوچی» کار می‌کرد با هم آشنا شدند، این مراسم کم‌جمعیت را در حضور پنج فرزندشان برگزار کردند. داستان عشق این دو که با عبور از فراز و نشیب‌های فراوان و تولد فرزندانشان همواره مورد توجه رسانه‌ها بود، حالا وارد فصل تازه‌ای شده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254722
 
@@ -271,32 +295,6 @@ Indypersian
 
 محسن نقوی در سفر به تهران با محسن پاک‌نژاد، وزیر نفت، اسکندر مومنی، وزیر کشور و عباس عراقچی نیز دیدار کرد.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254704
-
-<div align="center"><video src="files/post_254704_VahidOOnLine_254704.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254704_VahidOOnLine_254704.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید آب شرب ماهدشت در استان البرز پر از نمک است و نمی‌توان آن را مصرف کرد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254703
-
-<div align="center"><img src="files/post_254703_VahidOOnLine_254703.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محسن رضایی، دبیر شورای عالی امنیت ملی، روز سه‌شنبه ۲۰ مرداد ماه با انتشار پیامی در شبکه اجتماعی ایکس نوشت: «پیام ایران روشن است: تنگه هرمز بازگشایی نخواهد شد مگر اینکه آمریکا جنگ و محاصره را پایان دهد، دارایی‌های بلوکه‌شده ایران را آزاد کند و با یک آتش‌بس در سراسر منطقه، از جمله در لبنان و غزه موافقت کند.»
-رضایی ساعاتی پیش از انتشار این متن،‌ در دیدار با سفیر چین در تهران نیز همین شروط را برای بازگشایی تنگه هرمز اعلام کرده بود.
-این شروط سه‌گانه در حالی مطرح می‌شود که محمدباقر ذوالقدر، دبیر پیشین شعام، در آخرین پیام مکتوبش، بازگشایی تنگه هرمز را به ۶ بند مشروط کرده بود که «پرداخت کامل خسارات جنگ‌ها»، لغو تمامی تحریم‌ها علیه ایران و خروج آمریکا از منطقه را نیز شامل می‌شد.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>

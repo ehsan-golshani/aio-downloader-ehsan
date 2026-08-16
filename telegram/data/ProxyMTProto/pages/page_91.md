@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/05/25 17:17
+📅 آخرین بروزرسانی: 1405/05/25 17:38
 
 ---
+
+## ProxyMTProto — post 48381
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: go.antitspu.com
+Port: 443
+Secret: ee8209c31793eed02f435ab753825b891f676f2e616e7469747370752e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48380
 
@@ -172,15 +181,6 @@ Secret: ee397bf98c6a764847422230903659df80656467652e726b6e77617463682e6469676974
 Server: Unknown
 Port: 8000
 Secret: 7hBEYoISSb16xRkTAiDCXQlzMy5hbWF6b25hd3MuY29t
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48361
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: portal.balalaika.click
-Port: 443
-Secret: ee6d1c554e874ffba6252e1e36768eb5a4706f7274616c2e62616c616c61696b612e636c69636b
 @ProxyMTProto
 </div>
 

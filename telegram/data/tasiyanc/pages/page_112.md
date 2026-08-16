@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 5917
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی🔥🇩🇪.npvt
+</div>
 
 ## tasiyanc — post 5916
 
@@ -220,11 +226,5 @@ New⚡Fast.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5894
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-channel@TASIYANC.ovpn
 </div>
 

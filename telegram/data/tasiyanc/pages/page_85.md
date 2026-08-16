@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 6655
+
+<div align="center"><video src="files/post_6655_tasiyanc_6655.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6655_tasiyanc_6655.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به امید قهرمانی پرتغال به عشق آقام کریس 
+😱
+🤔
+</div>
 
 ## tasiyanc — post 6654
 
@@ -176,12 +188,6 @@ Homayoun Shajarian & Sohrab Pournazeri – Irane Man
 ## tasiyanc — post 6621
 
 <div align="center"><img src="files/post_6621_tasiyanc_6621.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk
-</div>
-
-## tasiyanc — post 6620
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk

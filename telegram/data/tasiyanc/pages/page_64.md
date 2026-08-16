@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/05/25 16:35
+📅 آخرین بروزرسانی: 1405/05/25 17:40
 
 ---
+
+## tasiyanc — post 7390
+
+<div align="center"><video src="files/post_7390_tasiyanc_7390.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7390_tasiyanc_7390.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود مولتی SV
+
+4سرور سرعتی 
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+⛓
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+ 
+💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7389
 
@@ -217,12 +246,5 @@ https://www.gstatic.com/generate_204
 
 
  💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امید نخی‌است نازک اما محکم، که ما را از دلِ تاریکی به صبح می‌کشاند. وقتی همه‌چیز خاموش است، او آرام می‌گوید: ادامه بده، نور نزدیک است.
-@Tasiyanc
 </div>
 
