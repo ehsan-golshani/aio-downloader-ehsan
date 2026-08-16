@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 123
 
-📅 آخرین بروزرسانی: 1405/05/26 00:13
+📅 آخرین بروزرسانی: 1405/05/26 00:39
 
 ---
+
+## VahidOOnLine — post 252401
+
+<div align="center"><img src="files/post_252401_VahidOOnLine_252401.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جاسم محمد البدیوی، دبیرکل شورای همکاری خلیج فارس، روز دوشنبه، حملات پهپادی به عربستان سعودی از سوی گروه‌های مورد حمایت جمهوری اسلامی در عراق را محکوم کرد و گفت این حملات تشدیدی خطرناک، نقض آشکار حقوق بین‌الملل و تهدیدی مستقیم برای امنیت و ثبات منطقه است.
+
+او بار دیگر بر همبستگی کامل شورای همکاری خلیج فارس با عربستان سعودی تاکید کرد و گفت این شورا از همه اقدام‌های این کشور برای حفاظت از امنیت، حاکمیت و تمامیت ارضی خود حمایت می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252400
+
+<div align="center"><img src="files/post_252400_VahidOOnLine_252400.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ستاد فرماندهی مرکزی آمریکا، سنتکام، روز دوشنبه اعلام کرد ناوشکن «یواس‌اس فرانک ای. پیترسن جونیور» در دریای عرب در حمایت از محاصره دریایی آمریکا علیه جمهوری اسلامی گشت‌زنی می‌کند.
+
+به گفته سنتکام، مسیر ۱۷ کشتی تجاری تغییر داده شده، دو شناور متوقف و از دو کشتی دیگر نیز بازرسی شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252399
 
@@ -276,34 +302,6 @@
 غریب‌آبادی گفت: «به آنها گفتیم نتیجه این اقدام هرچه باشد، طرح‌های شما را نخواهیم پذیرفت.»
 
 غریب‌آبادی همچنین دیپلماسی جمهوری اسلامی را «عزت‌مندانه» نامید.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252380
-
-<div align="center"><video src="files/post_252380_VahidOOnLine_252380.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252380_VahidOOnLine_252380.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، دوشنبه پنجم مرداد، گروهی از بازنشستگان تامین اجتماعی در تهران تجمع کردند و در خصوص مشکلات معیشتی و برای احقاق حق خود شعار دادند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252379
-
-<div align="center"><img src="files/post_252379_VahidOOnLine_252379.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یوسف رجی، وزیر خارجه لبنان، در شبکه ایکس اعلام کرد حزب‌الله در ماهیت خود متعلق به جمهوری اسلامی است.
-
-وزیر خارجه لبنان نوشت: «حزب‌الله خود را با عنوان مقاومت اسلامی در لبنان معرفی می‌کند.»
-
-او همچنین افزود پیش از خلع‌سلاح حزب‌الله، تفکیک میان شاخه‌های نظامی و سیاسی آن ممکن نیست.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
