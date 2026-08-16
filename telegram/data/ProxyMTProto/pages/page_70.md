@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/05/25 12:14
+📅 آخرین بروزرسانی: 1405/05/25 12:44
 
 ---
+
+## ProxyMTProto — post 48793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.acientirani-uor4.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48792
 
@@ -172,15 +181,6 @@ Secret: ee5098400982be6b8f6bf938e483f64dd463646e2e736176656c7965762e636c69636b
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48773
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: path.nolags.pw
-Port: 443
-Secret: dd7f1ae1d85e061ebd20bd97a022322053
 @ProxyMTProto
 </div>
 
