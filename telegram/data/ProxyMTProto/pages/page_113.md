@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/05/25 13:21
+📅 آخرین بروزرسانی: 1405/05/25 13:42
 
 ---
+
+## ProxyMTProto — post 47933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 15
+Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47932
 
@@ -172,15 +181,6 @@ Secret: ee50179d3cf3b7e3600efe3b6001fa35c07a6f6f6d2e666c6f776163636573732e736974
 Server: Unknown
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47913
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dash.flowstreamhub.site
-Port: 443
-Secret: eee5860e3a92504e57496b5748749921d3646173682e666c6f7773747265616d6875622e73697465
 @ProxyMTProto
 </div>
 
