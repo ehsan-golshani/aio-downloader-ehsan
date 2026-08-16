@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 194
 
-📅 آخرین بروزرسانی: 1405/05/25 21:13
+📅 آخرین بروزرسانی: 1405/05/25 21:34
 
 ---
+
+## VahidOOnLine — post 250781
+
+<div align="center"><video src="files/post_250781_VahidOOnLine_250781.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250781_VahidOOnLine_250781.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس گزارش و ویدیوی رسیده به ایران اینترنشنال، شنبه ۲۷ تیرماه حدود ساعت ۴:۵۰ بامداد، صدای انفجار در جزیره هرمز شنیده شد و دود سیاهرنگی به آسمان برخاست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250780
 
@@ -297,19 +310,6 @@ iranintl
 
 به گفته این مقام استانداری: «ایستگاه پمپاژ برداشت آب خام از دریا و هم‌چنین ترانس برق مربوط به آب‌شیرین‌کن بونجی با ظرفیت تولید ۳۱۵۰ مترمکعب در شبانه‌روز به طور کامل تخریب شده است.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250761
-
-<div align="center"><img src="files/post_250761_VahidOOnLine_250761.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استانداری هرمزگان اعلام کرد در پی حملات شب گذشته آمریکا به برخی زیرساخت‌ها، چهار نقطه از محورهای ارتباطی این استان دچار خسارت شده است.
-
-بر اساس اطلاعیه استانداری، تونل میرزایی در مسیر رفت و برگشت، پل رودخانه شور در محور بندرعباس–سیرجان و دو پل در محور سه‌راه میناب به سمت رودان در این حملات آسیب دیده‌اند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

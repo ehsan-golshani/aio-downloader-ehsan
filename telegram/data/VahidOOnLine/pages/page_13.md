@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/25 21:13
+📅 آخرین بروزرسانی: 1405/05/25 21:34
 
 ---
+
+## VahidOOnLine — post 255135
+
+<div align="center"><video src="files/post_255135_VahidOOnLine_255135.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255135_VahidOOnLine_255135.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پلیس اکوادور در یک عملیات گسترده روز شنبه، ۳۷۰ کیلوگرم کوکائین را که بسته‌های آن با تصویر ارلینگ هالند، مهاجم منچسترسیتی و تیم ملی نروژ، پوشانده شده بود، در شهر تولکان کشف و ضبط کرد.
+
+به گفته پلیس، این مواد مخدر در یک محفظه کاذب در قسمت زیرین یک کامیون پنهان شده بود و ارزش آن در بازار داخلی بیش از ۸۰۰ هزار دلار براورد می‌شود. در ارتباط با این محموله، یک زن کلمبیایی-اکوادوری بدون سابقه کیفری بازداشت شد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255134
 
@@ -301,18 +316,6 @@ IranintlTV
 
 دژکام گفت: «نباید مفهوم انتقام را کوچک کنیم و تصور کنیم اگر فردی را در مقابل کشتیم، مساله تمام شده است؛ هدف خون‌هایی که در راه دین و انقلاب ریخته شده، بسیار بزرگ‌تر از این است.»
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255115
-
-<div align="center"><img src="files/post_255115_VahidOOnLine_255115.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مقام‌های امنیتی عراقی، روز جمعه ۲۳ مرداد ماه، خالد غزای عطیه، معاون وزارت برق این کشور، را در چارچوب پرونده «مبارزه با فساد» بازداشت کردند.
-خبرنگار شبکه الحدث گزارش داد بازداشت عطیه در راستای تلاش‌های دولت عراق برای مقابله با فساد انجام شده است.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 276
 
-📅 آخرین بروزرسانی: 1405/05/25 21:13
+📅 آخرین بروزرسانی: 1405/05/25 21:34
 
 ---
+
+## VahidOOnLine — post 248844
+
+<div align="center"><img src="files/post_248844_VahidOOnLine_248844.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، زندانیان سیاسی بند ۶ زندان تهران بزرگ از قطع آب، خاموش شدن کولرها و بسته شدن حمام‌ها از روز گذشته خبر داده و می‌گویند این اقدامات برای اعمال فشار بر آنان انجام شده است.
+
+به گفته این زندانیان، ملاقات‌های روز سه‌شنبه نیز لغو شده و حق ملاقات از آنان گرفته شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248843
 
@@ -269,21 +282,6 @@
 
 او افزود که «انتقام خون رهبری از قاتلان، راهبرد و استراتژی نظام است.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248822
-
-<div align="center"><video src="files/post_248822_VahidOOnLine_248822.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248822_VahidOOnLine_248822.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری رویترز ویدیویی را از لحظه وقوع یکی از چند انفجار روز سه‌شنبه ۱۶ تیرماه در سوریه منتشر کرد.
-به نظر می‌رسد این تصاویر پس از یک انفجار دیگر ضبط شده‌اند.
-رئیس جمهوری فرانسه که برای دیدار رسمی با احمد الشرع، رئیس جمهوری «موقت» سوریه به دمشق سفر کرده، در زمان وقوع این انفجارها در راه «قصر الشعب»، کاخ ریاست جمهوری سوریه بود و به گفته الیزه، صدای انفجاری نشنید.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
