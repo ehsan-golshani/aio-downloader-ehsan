@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/25 17:40
+📅 آخرین بروزرسانی: 1405/05/25 18:20
 
 ---
+
+## tasiyanc — post 8851
+
+<div align="center"><video src="files/post_8851_tasiyanc_8851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8851_tasiyanc_8851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«ویدیوی وایرال شده این روزها » صبحانه ای که برای سربازان ارتش آمریکا در میدان جنگ / بیرون مرزها دور از وطنشون « سرو » میشود
+
+پروکسی متصل | پروکسی متصل
+
+✈️@TASIYANC
+</div>
 
 ## tasiyanc — post 8850
 
@@ -264,30 +278,5 @@ vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?secu
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡𝙉𝙚𝙬 𝙎𝙥𝙚𝙚𝙙 ⚡.npvt
-</div>
-
-## tasiyanc — post 8815
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن
-🇩🇪🇮🇹🇸🇪🇯🇵🇹🇼🇹🇷
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
 </div>
 

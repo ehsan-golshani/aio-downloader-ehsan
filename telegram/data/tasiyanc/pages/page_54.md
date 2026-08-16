@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/05/25 17:40
+📅 آخرین بروزرسانی: 1405/05/25 18:20
 
 ---
+
+## tasiyanc — post 7754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واکنش اسرائیل به جنگ فعلی : خوابیما قطعش کنین
+</div>
 
 ## tasiyanc — post 7753
 
@@ -150,13 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مصر یک صفر جلوئه
-</div>
-
-## tasiyanc — post 7718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دقایقی بعد آغاز بازی , چند چند میشه؟
-
-Egypt 🇪🇬 🇦🇷 Argentina
 </div>
 
