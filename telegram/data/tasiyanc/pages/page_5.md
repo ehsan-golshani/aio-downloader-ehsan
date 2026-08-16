@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/25 15:15
+📅 آخرین بروزرسانی: 1405/05/25 15:38
 
 ---
+
+## tasiyanc — post 9254
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این همه جوان به خاطر شما رفتن کشته شدن خایه نداشتید بگید جاوید شاه؟
+</div>
 
 ## tasiyanc — post 9253
 
@@ -260,11 +266,5 @@ r22
 
 
 آموزش اتصال به سرور دارک⚡️
-</div>
-
-## tasiyanc — post 9224
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨معاون اقتصادی وزارت  این نرخ (بنزین ۸۷تومنی) بعد از ۱۰ روز در تمامی نقاط کشور اجرا خواهد شد. @Tasiyanc
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/05/25 15:15
+📅 آخرین بروزرسانی: 1405/05/25 15:38
 
 ---
+
+## tasiyanc — post 8011
+
+<div align="center"><img src="files/post_8011_tasiyanc_8011.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ارتش اسراییل تقه محکمی به کفر تبنیت جنوب لبنان زد
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8010
 
@@ -253,17 +262,5 @@ A true friend of the Iranian people, may your soul rest in peace. You will alway
 
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7976
-
-<div align="center"><img src="files/post_7976_tasiyanc_7976.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺فروش ویژه پکیج نامحدود ، بدون محدودیت کاربر ، جهت ثبت سفارش پیام بدید
-
-
-👉@StarTasiyan 
-⭐️
 </div>
 

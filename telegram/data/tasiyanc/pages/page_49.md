@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/05/25 15:15
+📅 آخرین بروزرسانی: 1405/05/25 15:38
 
 ---
+
+## tasiyanc — post 7976
+
+<div align="center"><img src="files/post_7976_tasiyanc_7976.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺فروش ویژه پکیج نامحدود ، بدون محدودیت کاربر ، جهت ثبت سفارش پیام بدید
+
+
+👉@StarTasiyan 
+⭐️
+</div>
 
 ## tasiyanc — post 7968
 
@@ -207,16 +219,6 @@ Change the background behind those two people with white curtains. With hugging 
 8. www.e-estekhdam.com
 9. www.infojob.ir
 10. www.iranestekhdam.ir
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7931
-
-<div align="center"><img src="files/post_7931_tasiyanc_7931.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو کدومی؟خودم 15
 
 @Tasiyanc✅
 </div>

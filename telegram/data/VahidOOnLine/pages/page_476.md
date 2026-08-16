@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 476
 
-📅 آخرین بروزرسانی: 1405/05/25 15:13
+📅 آخرین بروزرسانی: 1405/05/25 15:36
 
 ---
+
+## VahidOOnLine — post 243615
+
+<div align="center"><video src="files/post_243615_VahidOOnLine_243615.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243615_VahidOOnLine_243615.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️۳۷ سال پس از حضور علی خامنه‌ای، رهبر پیشین جمهوری اسلامی در مراسم سالگرد مرگ روح‌الله خمینی، اولین «رهبر انقلاب اسلامی»، برگزارکنندگان این مراسم سالانه، یک صندلی خالی به جای او گذاشتند.
+
+علی خامنه‌ای روز نهم اسفند و در اولین موج حمله آمریکا و اسرائیل به تهران، به همراه چندین نفر دیگر از مقام‌های ارشد نظامی و سیاسی نظام و چند تن از اعضای خانواده‌اش، کشته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243614
+
+<div align="center"><img src="files/post_243614_VahidOOnLine_243614.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️قیمت نفت در بازارهای جهانی روز پنجشنبه ۱۴ خرداد و همزمان با ادامه تنش‌ها میان جمهوری اسلامی ایران و آمریکا در تنگه هرمز، به مرز ۱۰۰ دلار رسید.
+
+قیمت نفت هر بشکه نفت خام برنت دریای شمال نیمه‌شب چهارشنبه و پس از انتشار خبر شلیک موشک‌های ارتش جمهوری اسلامی ایران به سوی یک ناوشکن آمریکایی از ۹۸ دلار گذشت.
+
+ با این حال پس از آنکه سنتکام اعلام کرد آسیبی به شناورهای نظامی آن وارد نشده است و پاسخی به این حمله نداد، بهای نفت کاهش یافت و همزمان با آغاز به کار بازارهای اروپایی، به ۹۷ دلار رسید.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243613
 
@@ -268,32 +298,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اداره کل هواپیمایی کشوری کویت با انتشار ویدیویی در شبکه اجتماعی ایکس، لحظه برخورد پهپاد شاهد ۱۳۶ جمهوری اسلامی به فرودگاه بین‌المللی این کشور را نشان می‌دهد. این ویدیو، که توسط دوربین مداربسته ثبت شده است، انفجار شدید ناشی از این برخورد را به تصویر می‌کشد.
 در پی حمله جمهوری اسلامی به کویت، یک شهروند هندی کشته و ۶۳ نفر زخمی شدند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243595
-
-<div align="center"><video src="files/post_243595_VahidOOnLine_243595.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243595_VahidOOnLine_243595.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه ۱۳ خردادماه در پاسخ به سوالی درباره تعریف آتش‌بس، بدون اشاره به درگیری سه‌شنبه‌شب میان جمهوری اسلامی و نیروهای آمریکا، گفت: «تقریبا به همین شکلی که اکنون وجود دارد.»
-
-او افزود: «آنجا بخش متفاوتی از جهان است. در آن قسمت از جهان، آتش‌بس یعنی طرف‌ها با شدت کمتری به تیراندازی ادامه می‌دهند.»
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243594
-
-<div align="center"><img src="files/post_243594_VahidOOnLine_243594.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در گفت‌وگو با پادکست «پاد فورس وان» در پاسخ به این پرسش که آیا مجتبی خامنه‌ای از سلامت عقل برخوردار است یا در کما به سر می‌برد، گفت: «افتخار دیدارش را نداشته‌ام، اما نشنیده‌ام حالش خوب باشد. اگر روایت‌ها را باور کنید، او بسیاری از اعضای مختلف بدنش را از دست داده است.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,37 @@
 # آرشیو کانال VahidOOnLine - صفحه 122
 
-📅 آخرین بروزرسانی: 1405/05/25 15:13
+📅 آخرین بروزرسانی: 1405/05/25 15:36
 
 ---
+
+## VahidOOnLine — post 252367
+
+<div align="center"><img src="files/post_252367_VahidOOnLine_252367.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ سرتیپ ترکی المالکی، سخنگوی رسمی وزارت دفاع عربستان سعودی، اعلام کرد که پدافند هوایی این کشور در ساعات گذشته چند پهپاد متخاصم را که قصد داشتند تاسیسات نفتی در شرق کشور و منطقه ریاض را هدف قرار دهند، رهگیری و منهدم کرده است.
+
+سخنگوی وزارت دفاع عربستان تصریح کرد این حملات از خاک عراق و توسط «شبه‌نظامیان وابسته به ایران» انجام شده است.
+
+او با تاکید بر حق مشروع عربستان سعودی برای دفاع از خود و امکاناتش، اعلام کرد که این کشور حق پاسخگویی در زمان و مکان مناسب را برای خود محفوظ می‌دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252366
+
+<div align="center"><video src="files/post_252366_VahidOOnLine_252366.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252366_VahidOOnLine_252366.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال حاکی است هتل استقلال تهران روز دوشنبه پنجم مرداد دچار آتش‌سوزی شده است.
+بر اساس گزارش‌ها کارشناسان اورژانس استان تهران برای نجات جان یک شهروند به طبقه ۱۳ هتل اعزام شده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252365
 
@@ -237,24 +266,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 «وقتی زنده بودند این هزینه‌ها رو می‌کردید»
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252346
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده نشان می‌دهد گروهی از ایرانیان در مالمو سوئد، یکشنبه چهارم مرداد مراسم گرامیداشت برای درگذشت رضاشاه و محمدرضاشاه پهلوی را برگزار کرئه و در این مراسم سرود «ای ایران» را هم‌خوانی کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم استرالیا یکشنبه چهارم مرداد به مناسبت سالروز درگذشت رضاشاه و محمدرضا شاه در ۴ و ۵ مرداد، در شهر پرت تجمع کردند و یادشان را گرامی داشتند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

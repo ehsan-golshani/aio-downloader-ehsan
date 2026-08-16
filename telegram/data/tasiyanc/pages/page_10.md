@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/25 15:15
+📅 آخرین بروزرسانی: 1405/05/25 15:38
 
 ---
+
+## tasiyanc — post 9122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated location 🇹🇷━━━╮ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.141:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage…
+</div>
 
 ## tasiyanc — post 9121
 
@@ -253,11 +259,5 @@ A person with slicked-back dark hair wearing oversized square sunglasses is show
 آموزش استفاده 👉
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9098
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از تیم اتکر تاسیان تشکر میکنم بخاطر کار خوبی ک چند روزه کردن ، خط قرمز کانال و اعضاء رد بشه تیم اتکر ورود میکنن
 </div>
 

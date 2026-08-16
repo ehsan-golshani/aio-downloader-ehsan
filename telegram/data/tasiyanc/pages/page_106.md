@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/25 15:15
+📅 آخرین بروزرسانی: 1405/05/25 15:38
 
 ---
+
+## tasiyanc — post 6069
+
+<div align="center"><img src="files/post_6069_tasiyanc_6069.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FastVip⚡.npvt
+</div>
 
 ## tasiyanc — post 6068
 
@@ -163,11 +171,5 @@ Hot Servers 🔥🌶️.npvt
 ادبش کردید ؟
 @ineedknife
 اگه ادبش کردید یه ری اکشن بزنید بره همون جایی ک میدونین 😂
-</div>
-
-## tasiyanc — post 6040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور های جدید نپستر ساعت ۱.۳۰
 </div>
 

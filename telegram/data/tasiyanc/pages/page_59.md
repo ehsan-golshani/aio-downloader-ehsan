@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/05/25 15:15
+📅 آخرین بروزرسانی: 1405/05/25 15:38
 
 ---
+
+## tasiyanc — post 7568
+
+<div align="center"><img src="files/post_7568_tasiyanc_7568.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎥 اسم فیلم: " Pleasure 2021 "
+
+‌🎭 ژانر: درام بزرگسالان ⚠️🔞
+
+❌ بدون س‍‌.انسور و ح‍‌.ذفیات
+کارگردان:  Ninja Thyberg
+با هنرنمایی : Sofia Kappel
+خلاصه داستان:
+«بلا» دختری ۱۹ ساله است که با رویای ستاره شدن، از سوئد به لس‌آنجلس می‌رود تا وارد صنعت فیلم‌های بزرگسال شود. اما این سفرِ پرزرق‌وبرق، به کابوسی از واقعیت‌های بی‌رحم تبدیل می‌شود. فیلمی درباره بهای سنگینِ شهرت، از دست رفتن هویت و سقوط در دنیایی که هیچ‌کس راه برگشتی از آن ندارد.
+💬 نسخه زیرنویس چسبیده فارسی 🔻
+
+📧 [ برای دانلود  کلیک کنید ]
+
+@Tasiyanc 💠
+</div>
 
 ## tasiyanc — post 7566
 
@@ -237,18 +258,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc ⚡ Fast ⁰³.nm
-</div>
-
-## tasiyanc — post 7530
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 6 سرور سرعتی همه نت ها
-کانفیگ حجم نامحدود نپسترنت🚀
-
-آموزش اتصال ⛓
-
-Password :  @Tasiyanc ❤️
-
- ✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 
