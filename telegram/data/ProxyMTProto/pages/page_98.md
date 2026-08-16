@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/05/25 16:34
+📅 آخرین بروزرسانی: 1405/05/25 17:17
 
 ---
+
+## ProxyMTProto — post 48240
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy64.arixo.shop
+Port: 443
+Secret: eeae4da59570293a4b2c99f935e7120cbf617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48239
 
@@ -172,15 +181,6 @@ Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 Server: go.antitspu.com
 Port: 443
 Secret: ee0d12d8f206a08b06eced9a104734a824676f2e616e7469747370752e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: football.world-pro.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
