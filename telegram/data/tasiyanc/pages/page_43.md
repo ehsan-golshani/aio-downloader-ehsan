@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/25 09:14
+📅 آخرین بروزرسانی: 1405/05/25 09:42
 
 ---
+
+## tasiyanc — post 8185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
+</div>
+
+## tasiyanc — post 8184
+
+<div align="center"><img src="files/post_8184_tasiyanc_8184.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨تصویر تخریب پل کهورستان در بندر خمیر
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8183
 
@@ -190,25 +208,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8145
-
-<div align="center"><img src="files/post_8145_tasiyanc_8145.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏔 روستای کندوان تبریز از معدود روستاهای صخره‌ای جهان است طبیعت زیبا، آب‌وهوای خنک و معماری منحصربه‌فرد، کندوان را به یکی از محبوب‌ترین جاذبه‌های گردشگری ایران تبدیل کرده است.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8142
-
-<div align="center"><img src="files/post_8142_tasiyanc_8142.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بانو Ester هستن زید مدل اسپانیایی امباپه بازیکن رئال 🦥
-
-@Tasiyanc ☑️
 </div>
 

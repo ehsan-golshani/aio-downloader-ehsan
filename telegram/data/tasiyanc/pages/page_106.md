@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/25 09:14
+📅 آخرین بروزرسانی: 1405/05/25 09:42
 
 ---
+
+## tasiyanc — post 6046
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکم صبر میکنم دیل آک بزنه
+</div>
+
+## tasiyanc — post 6045
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امین زحمت کشید شماره و آدرس و شماره بابای جاکشش درآورده
+</div>
 
 ## tasiyanc — post 6044
 
@@ -117,19 +129,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نصب نکنید دوستان
 جدی میپرونه
-</div>
-
-## tasiyanc — post 6023
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من فقط جوین شدم که جواب شمارو بدم
-آره مال من پرید
-احراز هویت کردم برگشت
-</div>
-
-## tasiyanc — post 6022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپل آیدی لاک میشه
 </div>
 

@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 117
 
-📅 آخرین بروزرسانی: 1405/05/25 09:14
+📅 آخرین بروزرسانی: 1405/05/25 09:42
 
 ---
+
+## tasiyanc — post 5758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
+
+
+
+🚀 @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 5757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز باشه
+</div>
 
 ## tasiyanc — post 5756
 
@@ -176,31 +198,4 @@ https://t.me/Tasiyanc/5733
 ## tasiyanc — post 5737
 
 <div align="center"><img src="files/post_5737_tasiyanc_5737.jpg" alt="Photo"></div>
-
-## tasiyanc — post 5736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده روی تمام اپراتورها ⛈ 
-
-
-رمز : ″ @Tasiyanc ″
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5734
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده روی رایتل و ایرانسل - بقیه اپراتورا تست کنن ⛈ 
-
-رمز : ″ @Tasiyanc ″
-
-
-🚀 @Tasiyanc ✅
-</div>
 

@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/25 09:14
+📅 آخرین بروزرسانی: 1405/05/25 09:42
 
 ---
+
+## tasiyanc — post 9287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+در صورت ارور چند بار بزنید
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اتمام چالش ، ریکشن هرکی بیشتر باشه برندس تا ساعت ۱۵😂❤️
+</div>
 
 ## tasiyanc — post 9283
 
@@ -61,28 +82,5 @@ Admin : @Tssub
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چالش میو بزاریم؟
-</div>
-
-## tasiyanc — post 9262
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر وقت از سینگلی خسته میشید یه دیت برید ، بعدش تا ۶ ماه انگیزه پیدا میکنید برا سینگلی 😞
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 9259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-در صورت ارور چند بار بزنید
-
-✔️ T.me/Tasiyanc
 </div>
 

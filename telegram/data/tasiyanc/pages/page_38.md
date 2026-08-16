@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/25 09:14
+📅 آخرین بروزرسانی: 1405/05/25 09:42
 
 ---
+
+## tasiyanc — post 8306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ شنیده شدن صدای انفجار در اهواز
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاهش پهنای باند داره گزارش میشه
+کانفیگ مخصوص نت ملی رو بگیرید
+
+دریافت کانفیگ 👉
+</div>
 
 ## tasiyanc — post 8303
 
@@ -161,17 +178,5 @@
 تو امام سجاد نیستی بگی مریضم و نمیتونم بجنگم. جانفدا ثبت نام کردی بااااید بری😹😹😹
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-JAVID SHAH 👑
-</div>
-
-## tasiyanc — post 8281
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-JAVID SHAH 👑
 </div>
 

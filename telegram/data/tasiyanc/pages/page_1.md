@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/25 09:14
+📅 آخرین بروزرسانی: 1405/05/25 09:42
 
 ---
+
+## tasiyanc — post 9342
+
+<div align="center"><a href="files/post_9342_🌶️ 𝕱𝖊𝖑𝕱𝖊𝖑 𝕾𝖊𝖗𝖛𝖊𝖗.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🌶️ 𝕱𝖊𝖑𝕱𝖊𝖑 𝕾𝖊𝖗𝖛𝖊𝖗.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9341
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب لینک اختصاصی تاسیان 🚀
+
+🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+
+پروتکل Trojan سرعتی
+( هر ۸ ساعت آپدیت خواهد شد )
+
+
+آموزش ویدیویی اضافه کردن ساب
+
+
+@Tasiyanc 💠 | اتصال امن
+</div>
 
 ## tasiyanc — post 9340
 
@@ -252,27 +280,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 
 @Tasiyanc 
 ☑️
-</div>
-
-## tasiyanc — post 9311
-
-<div align="center"><video src="files/post_9311_tasiyanc_9311.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9311_tasiyanc_9311.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حملات دیوانه وار اسرائیل به جنوب لبنان
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز August 15، روز آرامش و ریلکس کردنه.
-
-تو این روز باید استرس رو بریزین دور، و در کمال آرامش، از لحظه به لحظه زندگی، لذت ببرین.
-@Tasiyanc ⭐️
 </div>
 
