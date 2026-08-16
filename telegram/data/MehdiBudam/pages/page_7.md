@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/25 22:19
+📅 آخرین بروزرسانی: 1405/05/25 23:35
 
 ---
+
+## MehdiBudam — post 8149
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor32
+
+
+slipnet-enc://AYi9pR5KOEg9rRhcCJDfPMcK8JZXqiCljY0bMLYZggwobIsPHua5T9221F6vlxiWGFc/wC0fGx1188SRd0zkdBKWyn1823J9It4hbPJLctYLh6z7M5sbPLO3r6Fv56QNc/WZJYOe9DFVwljc3szq+T8BovVQwCcedV3dl84R8KoCkYi6bnVoDZWHQYPxPphiaKphssTNqUR92SZ2SsNMfdhSqQ7G3rj3QVLThPovT8QrgiXMD/x7nr0yF9pcFg5udar0yTk4AOdb+PbCGMNzxw5o1z8+BVrY8sFKBJw4j+guc85aAobJBGIPw0tjZGnptqHX84w/QdzGctnUTRkS9R9Zl6E96qa945B8JSolpVDZTK1rnV1zZNA9xwKmE0wYgJIXmTF9iAOKJ3QMlOjP8POmqYltf3/uSpVMDQvULhDGNdiWyOQHDqFs44OGwF1qfpC52TJwoB3vqrUUirViS8PDLxBdnxb2R+SR1753tcc559En1GpbKqQ5LF6c2ZjZVD79I30d8aQmyBdp1oIs+O2dIfRDSPP2ONJYtkfpc9zIMj3DWM4IxkYy+iwUHBufH1x6WCZqnSZsEbl9ffDgcoe7hRBXPI6vYG2hCVd2mq1K5tLpRuy4LFQ2Nsk/qah02DHwRAzMr+Fk61j0v9ZokDru0hsz/RrsMvW45WgPHup6dGQxFqCKCz5+iyfLaIzunDz2eAZCd7Cocs9R3QAb4SLj3zKJRYcCBaxnUbigJbWSxQ==
+
+
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8148
 
@@ -212,11 +224,5 @@ slipnet-enc://AcheUXnkFLB0rwA4Xn6fifrUSwIKw/eU/FOkGZyw+KomNhaQewzXoW5+zZpowN46AH
 
 
 @MehdiBudam
-</div>
-
-## MehdiBudam — post 8129
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از تورا هم 10 تا 15 وصلن بقیه رو خودتون با اپراتور های مختلف تست کنید.
 </div>
 

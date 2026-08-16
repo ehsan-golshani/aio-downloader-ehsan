@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/05/25 22:45
+📅 آخرین بروزرسانی: 1405/05/25 23:36
 
 ---
+
+## tasiyanc — post 7186
+
+<div align="center"><video src="files/post_7186_tasiyanc_7186.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7186_tasiyanc_7186.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV
+
+۳سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7185
 
@@ -236,19 +264,5 @@ Game DNS
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7147
-
-<div align="center"><video src="files/post_7147_tasiyanc_7147.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7147_tasiyanc_7147.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امضای پزشکیان زیر متن تفاهم نامه ایران و آمریکا سوژه شد 
-😂
-
-@Tasiyanc 
-✅ | تاسیان
 </div>
 

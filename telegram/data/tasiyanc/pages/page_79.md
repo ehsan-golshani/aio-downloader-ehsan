@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/25 22:45
+📅 آخرین بروزرسانی: 1405/05/25 23:36
 
 ---
+
+## tasiyanc — post 6857
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما سرور تکراری رو فایل نمیزاریم همشون تست کنین💋🚀
+</div>
 
 ## tasiyanc — post 6856
 
@@ -192,14 +198,5 @@ Qatar 🇶🇦 & Switzerland🇨🇭
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 به خاطر چس تومن پول میان نمیگن بعضی از چنلا ، راضی ام تا ۱۰۰ سال سیا اینا تبلیغ نزارن رو چنلم
-</div>
-
-## tasiyanc — post 6823
-
-<div align="center"><img src="files/post_6823_tasiyanc_6823.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این تبلیغات برای تلگرامه و ربطی به چنل من نداره ، و این فرد کلاهبرداری داره می‌کنه مراقب باشید ، بخاطر ۳ گرون پول امیدوارم بقیه چنلای ک این حرومی داره تبلیغ می‌زاره اعلام کنند تا از ممبراشون کلاهبرداری نشه
-@Tasiyanc ✅
 </div>
 

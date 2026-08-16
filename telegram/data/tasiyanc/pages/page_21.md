@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/25 22:45
+📅 آخرین بروزرسانی: 1405/05/25 23:36
 
 ---
+
+## tasiyanc — post 8859
+
+<div align="center"><img src="files/post_8859_tasiyanc_8859.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 معرفی یه بازی ساده و‌ #پولساز
+
+➡️ 🤩 🤩 🤩 🤩 🤩 👈
+
+🖱این بازی اختصاصی فقط توی‌این‌سایت هست واقعا راحت میشه ازش کلی پول دراورد.💵💰
+
+🟢 بدون ریسک و بدون پول در بازی معروف #crash پول در بیار و با هر شارژ 2️⃣1️⃣🔣 موجودی خالص بگیر بدون قیدوشرط 🔥
+
+💖تنها سایت مورد تایید
+💻آدرس سایت مورد #‌اعتماد ما:
+🌐 betinja.bet
+🌐 betinja.bet
+کانال بونوس های رایگان g9
+@betinjabet
+</div>
 
 ## tasiyanc — post 8858
 
@@ -258,17 +279,5 @@ R8
 
 مادر آیدا بعد از فوت دخترش، هر شب به بالکن میره و زار زار گریه می‌کنه.
 ⭐ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8832
-
-<div align="center"><img src="files/post_8832_tasiyanc_8832.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید مالک تلگرام پاول دروف توی چنل تلگرامش:
-
-عکس خودشو گذاشته نوشته به من میگن تروریست.
-بعد به طالبان میگن شرکای تجاری😂
-⭐ @TASIYANC ✅
 </div>
 

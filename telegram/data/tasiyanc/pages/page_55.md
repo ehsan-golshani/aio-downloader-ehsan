@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/25 22:45
+📅 آخرین بروزرسانی: 1405/05/25 23:36
 
 ---
+
+## tasiyanc — post 7731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بورنو فرناندز ، ویتینیا ناموستون گاییدم
+</div>
 
 ## tasiyanc — post 7730
 
@@ -160,11 +166,5 @@ CR7 GOAT Forever 🇵🇹❤️‍🔥
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اسطوره بچگی هامون امشب بازی حساسی داره و این آخرین جام جهانی Goat هست
-</div>
-
-## tasiyanc — post 7700
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لبیك یا رونالدو ، امیدوارم امشب خوشحال باشی ❤️ 7
 </div>
 
