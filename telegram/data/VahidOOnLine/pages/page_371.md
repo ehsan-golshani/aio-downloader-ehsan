@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 371
 
-📅 آخرین بروزرسانی: 1405/05/25 23:34
+📅 آخرین بروزرسانی: 1405/05/26 00:13
 
 ---
+
+## VahidOOnLine — post 246685
+
+<div align="center"><img src="files/post_246685_VahidOOnLine_246685.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری ایالات متحده آمریکا، یک‌شنبه ۳۱ خرداد و هم‌زمان با مذاکرات در سوئیس، در گفت‌وگو با فاکس‌نیوز درباره لبنان و اسرائیل گفت: «از ناتوانی اسرائیل در مقابله با حزب‌الله ناامید شده‌ام.» او افزود: «شاید اجازه دهیم سوری‌ها کار حزب‌الله را یکسره کنند.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246684
 
@@ -294,19 +306,6 @@ iranintl
 
 اظهارات وزیر دفاع اسرائیل تنها ساعاتی پس از آن مطرح شد که مقام‌های ایرانی تاکید کردند بدون پایان جنگ در لبنان و توقف نقض تعهدات از سوی اسرائیل، امکان حرکت به سمت توافقات گسترده‌تر با آمریکا وجود نخواهد داشت.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246665
-
-<div align="center"><video src="files/post_246665_VahidOOnLine_246665.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246665_VahidOOnLine_246665.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیلی مهدوی، مادر سیاوش محمودی، معترض کشته‌شده در خیزش زن، زندگی، آزادی، با انتشار ویدیویی نشان می‌دهد که در کنار مزار جاویدنام محمدمهدی سیف‌الله‌پور همراه با پدر و مادر او و پدر جاویدنام سپهر شکری، اعلام می‌‌کنند در کنار هم دادخواه فرزندانشان خواهند بود.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

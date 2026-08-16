@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/05/25 23:36
+📅 آخرین بروزرسانی: 1405/05/26 00:16
 
 ---
+
+## tasiyanc — post 6391
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووووورییییییی حمله کردننننننن
+</div>
 
 ## tasiyanc — post 6390
 
@@ -235,11 +241,5 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 
 ✔️ @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6360
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Speed ⚡ One.npvt
 </div>
 

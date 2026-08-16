@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/25 23:36
+📅 آخرین بروزرسانی: 1405/05/26 00:16
 
 ---
+
+## tasiyanc — post 9242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از اوپن ها راضی اید؟
+</div>
 
 ## tasiyanc — post 9241
 
@@ -238,11 +244,5 @@ a21
 🎯همین حالا عضو شو و شروع کن👇
 https://t.me/+FaoDjhEVG34wMWFk
 https://t.me/+FaoDjhEVG34wMWFk
-</div>
-
-## tasiyanc — post 9216
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودرو های ماقبل ۸۵ هیچی بهشون تعلق نمیگیره فقط میتونن بنزین ۸۷ تومنی بزنن فقط میشه شاشید تو باک
 </div>
 

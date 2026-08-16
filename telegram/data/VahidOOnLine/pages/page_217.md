@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 217
 
-📅 آخرین بروزرسانی: 1405/05/25 23:34
+📅 آخرین بروزرسانی: 1405/05/26 00:13
 
 ---
+
+## VahidOOnLine — post 250298
+
+<div align="center"><video src="files/post_250298_VahidOOnLine_250298.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250298_VahidOOnLine_250298.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسالی به ایران اینترنشنال نشان می‌دهد شامگاه چهارشنبه مواضع جمهوری اسلامی در شهر اهواز هدف حملات آمریکا قرار گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250297
 
@@ -284,19 +297,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️شبکه خبری الحدث چهارشنبه‌شب ۲۴ تیرماه ویدیویی منتشر کرد که لحظه رهگیری و انهدام یک پهپاد در آسمان اربیل، مرکز اقلیم کردستان عراق، را نشان می‌دهد. همزمان با شنیده شدن صدای چندین انفجار، سامانه‌های پدافند هوایی در اربیل فعال شدند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250278
-
-<div align="center"><img src="files/post_250278_VahidOOnLine_250278.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندهی مرکزی آمریکا، سنتکام، شامگاه چهارشنبه در گفت‌وگو با العربیه اعلام کرد به کشتی‌ها برای عبور از تنگه هرمز کمک می‌کند و جمهوری اسلامی کنترل این آبراه را در اختیار ندارد.
-
-سنتکام افزود جمهوری اسلامی در جریان محاصره دریایی تسلیم دستورات این نهاد شده است. فرماندهی مرکزی آمریکا اضافه کرد نیروهای آمریکایی برای مقابله با هرگونه تهدید از سوی جمهوری اسلامی آمادگی کامل دارند و هر هدفی را در ایران که مانع کشتیرانی در تنگه هرمز شود، هدف قرار خواهند داد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

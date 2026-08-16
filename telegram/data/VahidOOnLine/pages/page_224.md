@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 224
 
-📅 آخرین بروزرسانی: 1405/05/25 23:34
+📅 آخرین بروزرسانی: 1405/05/26 00:13
 
 ---
+
+## VahidOOnLine — post 250150
+
+<div align="center"><video src="files/post_250150_VahidOOnLine_250150.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250150_VahidOOnLine_250150.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از ساکنان شهر جدید مهستان در استان البرز با انتقاد از قطعی‌های مکرر برق گفت در یک روز برق سه بار قطع شده و این وضعیت در هفته گذشته نیز ادامه داشته است. به گفته او، در پی این قطعی‌ها موتور کولرشان سوخته و برای تعمیر آن حدود هفت میلیون تومان هزینه کرده‌اند. او همچنین به مشکلات معیشتی و کمبود منابع مالی از ابتدای ماه اشاره کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250149
 
@@ -240,19 +253,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد که روز سه‌شنبه در شهر صدرا در ۱۵ کیلومتری شمال غربی شیراز، دود ناشی از انفجار به آسمان برخاست.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250130
-
-<div align="center"><video src="files/post_250130_VahidOOnLine_250130.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250130_VahidOOnLine_250130.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گروهی از ایرانیان سه‌شنبه ۲۳ تیرماه با تجمع مقابل پارلمان بریتانیا در لندن، به اعدام‌ها در ایران اعتراض کردند. شرکت‌کنندگان در این تجمع خواستار اخراج دیپلمات‌های جمهوری اسلامی شدند و با تروریستی خواندن سپاه پاسداران، بر ضرورت مقابله با جمهوری اسلامی تاکید کردند. آنان همچنین با در دست داشتن پلاکاردها، خواستار حمایت از زندانیان محکوم به اعدام و رساندن صدای آنان به جهان شدند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

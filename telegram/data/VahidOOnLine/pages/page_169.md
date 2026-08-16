@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 169
 
-📅 آخرین بروزرسانی: 1405/05/25 23:34
+📅 آخرین بروزرسانی: 1405/05/26 00:13
 
 ---
+
+## VahidOOnLine — post 251343
+
+<div align="center"><img src="files/post_251343_VahidOOnLine_251343.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️صداوسیمای جمهوری اسلامی ایران روز سه‌شنبه ۳۰ تیرماه از حمله هوایی آمریکا به ارتفاعات خرم‌آباد خبر داد.
+
+تلویزیون دولتی ایران به نقل از یکی از مقام‌های امنیتی وزارت کشور گزارش کرد یک انبار مهمات هدف این حمله بوده است.
+
+در گزارش صداوسیما اشاره‌ای به زمان دقیق این حمله نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251342
 
@@ -303,19 +318,6 @@ iranintl
 او افزود: «اولین انتقام آن است که نظام خود را با قدرت و اقتدار حفظ کنیم.»
 iranintl
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251323
-
-<div align="center"><img src="files/post_251323_VahidOOnLine_251323.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ ارتش اردن صبح سه‌شنبه ۳۰ تیرماه اعلام کرد ۵ پهپاد شلیک شده از ایران را در آسمان این کشور رهگیری و منهدم کرده است.
-
-این خبر در حالی منتشر می‌شود که سپاه پاسداران ساعاتی پیش با انتشار بیانیه‌ای از حمله موشکی به اقامتگاه نظامیان آمریکایی در منطقه الرکبان اردن خبر داده بود.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

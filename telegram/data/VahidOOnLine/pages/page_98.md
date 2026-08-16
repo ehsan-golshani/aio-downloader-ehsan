@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/05/25 23:34
+📅 آخرین بروزرسانی: 1405/05/26 00:13
 
 ---
+
+## VahidOOnLine — post 253066
+
+<div align="center"><video src="files/post_253066_VahidOOnLine_253066.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253066_VahidOOnLine_253066.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال، دود غلیظ در شمال شرق تهران را در جمعه نهم مرداد نشان می‌دهد.
+سخنگوی آتش‌نشانی تهران اعلام کرد دود مشاهده‌شده در شرق پایتخت ناشی از آتش‌سوزی در فضای سبز و محل تجمع ضایعات در جاجرود است و عملیات اطفای آتش همچنان ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253065
 
@@ -281,17 +295,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 «آمدم صرافی، می‌گویند فقط دلار می‌خرند» ـ گزارشگر
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253026
-
-<div align="center"><img src="files/post_253026_VahidOOnLine_253026.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مروری بر مهم‌ترین اخبار و تحولات جنگ در روز جمعه ۹ مرداد، از تحرکات نظامی تا تازه‌ترین مواضع سیاسی و دیپلماتیک.
 ‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,24 @@
 # آرشیو کانال VahidOOnLine - صفحه 260
 
-📅 آخرین بروزرسانی: 1405/05/25 23:34
+📅 آخرین بروزرسانی: 1405/05/26 00:13
 
 ---
+
+## VahidOOnLine — post 249218
+
+<div align="center"><video src="files/post_249218_VahidOOnLine_249218.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249218_VahidOOnLine_249218.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تصاویر منتشر شده در خبرگزاری‌های دولتی ایران از مراسم تشییع رهبر پیشین جمهوری اسلامی حاکی از آن است، روز پنجشنبه ۱۸ تیرماه، گروه بزرگی از هواداران حکومت شعار «‌می‌کشیم می‌کشیم آنکه اماممان کشت» سرداده‌اند.
+
+این تصاویر در بحبوحه حملات آمریکا به پنج استان ایران و گشودن آتش از سوی نیروهای مسلح ایران به کشورهای منطقه منتشر می‌شود.
+پیشتر، آویختن پارچه نوشته‌ای با شعار «ما ترامپ را خواهیم کشت» در مشهد خبرساز شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249217
 
@@ -303,21 +319,6 @@
 
 همچنین فرودگاه ایرانشهر و مقر سپاه سلمان در این شهر نیز هدف چندین حمله قرار گرفتند و صدای انفجارهای متعدد در ایرانشهر شنیده شد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249196
-
-<div align="center"><video src="files/post_249196_VahidOOnLine_249196.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249196_VahidOOnLine_249196.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که پنج‌شنبه ۱۸ تیر در استان گلستان، حملات بامدادی آمریکا به وقوع انفجارهایی در روستای دوگونچی از توابع شهرستان آق‌قلا انجامید.
-
-خبرگزاری مهر به نقل از منابع محلی، از اصابت چند پرتابه به پل آق‌تکه‌خان در مسیر راه‌آهن در غرب آق‌قلا خبر داد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

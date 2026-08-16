@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/05/25 23:36
+📅 آخرین بروزرسانی: 1405/05/26 00:16
 
 ---
+
+## tasiyanc — post 6360
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Speed ⚡ One.npvt
+</div>
 
 ## tasiyanc — post 6359
 
@@ -207,15 +213,5 @@ Robot's 🤖
 @tikloadtokbot
 @PicTubeBot
 Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6337
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-🔺@Tasiyanc ✅
 </div>
 

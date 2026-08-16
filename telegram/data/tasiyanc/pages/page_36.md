@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/25 23:36
+📅 آخرین بروزرسانی: 1405/05/26 00:16
 
 ---
+
+## tasiyanc — post 8413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشاهده نود آنتونلا زن مسی ✨
+</div>
 
 ## tasiyanc — post 8412
 
@@ -200,11 +206,5 @@ IP
 🚨💪 6 انفجار شدید در قشم
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8383
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۹٪ اخبار امشب فیکن و پوشش ندادیم
 </div>
 

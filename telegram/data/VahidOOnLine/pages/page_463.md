@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 463
 
-📅 آخرین بروزرسانی: 1405/05/25 23:34
+📅 آخرین بروزرسانی: 1405/05/26 00:13
 
 ---
+
+## VahidOOnLine — post 243983
+
+<div align="center"><video src="files/post_243983_VahidOOnLine_243983.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243983_VahidOOnLine_243983.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد در جریان تجمع اعتراضی دانش‌آموزان مقابل آموزش و پرورش ساوه، یک مقام محلی این شهر در پاسخ به اعتراض و فیلم گرفتن دانش‌آموزان می‌گوید این اقدام فایده‌ای ندارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243982
 
@@ -277,22 +290,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز شنبه دانش‌آموزان معترض در مقابل شورای عالی انقلاب فرهنگی خطاب به دبیر این نهاد فریاد زدند «خسرو بیا پایین» تا به پاسخگویی به آن‌ها بپردازد. آن‌ها به مصوبه تاثیر معدل پایه یازدهم در کنکور معترض هستند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243963
-
-<div align="center"><video src="files/post_243963_VahidOOnLine_243963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243963_VahidOOnLine_243963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️پیت هگست، وزیر جنگ ایالات متحده، روز شنبه به همراه همسر و فرزندانش برای شرکت در هشتادودومین سالگرد عملیات «دی‌دی» (D-Day) وارد نورماندی فرانسه شد.
-او در این مراسم که به یاد فرود نیروهای متفقین در جنگ جهانی دوم برگزار می‌شود، ضمن ادای احترام به سربازان کشته‌شده، بر اهمیت اتحادهای نظامی تأکید کرد.
-هگست در سخنانی با اشاره به مفهوم «ناتو ۳.۰» گفت این ائتلاف نباید به رابطه‌ای وابسته تبدیل شود، بلکه باید متشکل از کشورهای قدرتمند باشد. او از کشورهای اروپایی خواست «سریع‌تر و بیشتر» در تأمین امنیت جمعی نقش‌آفرینی کنند.
-این اظهارات در حالی مطرح می‌شود که واشینگتن بارها از متحدان اروپایی خواسته سهم بیشتری در هزینه‌ها و مسئولیت‌های ناتو بر عهده بگیرند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

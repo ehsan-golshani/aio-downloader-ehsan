@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 223
 
-📅 آخرین بروزرسانی: 1405/05/25 23:34
+📅 آخرین بروزرسانی: 1405/05/26 00:13
 
 ---
+
+## VahidOOnLine — post 250170
+
+<div align="center"><video src="files/post_250170_VahidOOnLine_250170.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250170_VahidOOnLine_250170.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌های جمهوری اسلامی با انتشار ویدیویی منتسب به مرحله هفتم عملیات «صاعقه» ارتش جمهوری اسلامی، از حمله‌های پهپادی انتحاری ارتش به پایگاه الازرق اردن خبر دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250169
 
@@ -247,19 +260,6 @@
 رسانه‌های حکومتی ایران گزارش دادند حملات به مناطقی در جنوب کشور ادامه یافته است. بر اساس این گزارش‌ها، اهدافی در جزیره هنگام و بندرعباس هدف حملات آمریکا قرار گرفته‌اند، اما تاکنون جزئیاتی درباره ماهیت این اهداف یا میزان خسارت‌های احتمالی منتشر نشده است.
 همچنین گزارش‌ها حاکی است چند صدای انفجار در شهرهای بمپور و چابهار در استان سیستان و بلوچستان شنیده شده است.
 استانداری هرمزگان نیز اعلام کرد در حملات جدید آمریکا به برخی نقاط این استان، تاکنون هیچ مصدوم غیرنظامی یا خسارتی به زیرساخت‌های مسکونی و تجاری گزارش نشده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250150
-
-<div align="center"><video src="files/post_250150_VahidOOnLine_250150.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250150_VahidOOnLine_250150.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از ساکنان شهر جدید مهستان در استان البرز با انتقاد از قطعی‌های مکرر برق گفت در یک روز برق سه بار قطع شده و این وضعیت در هفته گذشته نیز ادامه داشته است. به گفته او، در پی این قطعی‌ها موتور کولرشان سوخته و برای تعمیر آن حدود هفت میلیون تومان هزینه کرده‌اند. او همچنین به مشکلات معیشتی و کمبود منابع مالی از ابتدای ماه اشاره کرد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
