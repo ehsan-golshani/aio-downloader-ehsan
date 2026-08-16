@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/26 02:11
+📅 آخرین بروزرسانی: 1405/05/26 02:45
 
 ---
+
+## tasiyanc — post 5609
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوری 🚨
+صفحه خرید و درخواست اینترنت پرو از سایت همراه اول حذف شد
+
+و همچنین جی‌میل در دسترس قرار گرفت
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5608
 
@@ -157,11 +167,5 @@
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5579
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن یادتون نره 💋
 </div>
 

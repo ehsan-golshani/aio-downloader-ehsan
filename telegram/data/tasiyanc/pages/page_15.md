@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/26 02:11
+📅 آخرین بروزرسانی: 1405/05/26 02:45
 
 ---
+
+## tasiyanc — post 9015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم🖤
+
+کانفیگ اختصاصی نامحدود HttpCustum 📱
+
+سرور سرعتی مناسب تمام نت‌ها ⚡️
+
+آموزش اتصال ✅
+
+دانلود  📱android🕹  iOS
+
+اتصال امن برای همه 🏠
+
+💙@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9014
 
@@ -428,18 +446,5 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 8992
-
-<div align="center"><video src="files/post_8992_tasiyanc_8992.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8992_tasiyanc_8992.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #بازی_پولساز 
-⚠️
-
-🔥 بلک کارت جدید ترین بازی معروف جهانی هست که فقط کافیه یکمی باهوش باشی تا حریفات رو شکست بدی 👌🏼
 </div>
 

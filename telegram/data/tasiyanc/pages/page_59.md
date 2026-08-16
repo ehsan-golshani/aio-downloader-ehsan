@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/05/26 02:11
+📅 آخرین بروزرسانی: 1405/05/26 02:45
 
 ---
+
+## tasiyanc — post 7602
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی لف بده تو چنل تاسیان نباشید
+</div>
 
 ## tasiyanc — post 7601
 
@@ -193,11 +199,5 @@
 
 
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7563
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡️🚀 Premium.npvt
 </div>
 

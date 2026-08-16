@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/26 02:11
+📅 آخرین بروزرسانی: 1405/05/26 02:45
 
 ---
+
+## tasiyanc — post 9374
+
+<div align="center"><a href="files/post_9374_@Tasiyanc 🌶️ 01.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🌶️ 01.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها ⚡️
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9373
 
@@ -237,15 +248,5 @@ g25
 هیث لجر ستاره هالیوود ، افسانه ای که در نقش «جوکر» غرق شد و در نهایت در ۲۸ سالگی و چند ماه پس از اکران فیلم از دنیا رفت !
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9352
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر آن‌هایی که
-وقتی تو را خاموش یافتند
-رهایت نکردند
-مگر بعد از آن‌که
-نور و روشنایی را به تو باز گرداندند.
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/26 02:11
+📅 آخرین بروزرسانی: 1405/05/26 02:45
 
 ---
+
+## tasiyanc — post 9118
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+r18
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9117
 
@@ -201,28 +214,5 @@ Prompt 🤖🤖
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 90% پرامپتا VIP و بیشتر کانالها بابتش پول میگیرن ، براتون رایگان میزاریم ، استفاده کنین
-</div>
-
-## tasiyanc — post 9093
-
-<div align="center"><video src="files/post_9093_tasiyanc_9093.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9093_tasiyanc_9093.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت VIP 
-🆕
-«پرتره سینمایی با نور گرم کرکره‌ای»
-
-Prompt 
-🤖
-🤖
-اگر پسر هستید جای Woman کلمه Man بزارید
-Close-up portrait of a woman illuminated by soft, warm afternoon light streaming through window blinds, creating striking shadow patterns across her face. She has a natural, glowing complexion with dewy skin and subtly highlighted cheekbones. Her expressive eyes are accented with long lashes and a hint of soft eyeshadow, while her full lips are painted in a soft peach shade. The background features muted teal walls that enhance the warmth of the scene. She wears a dark, pinstriped blazer, adding a touch of elegance. The overall aesthetic is hyperrealistic, capturing intricate details like the texture of her skin and the delicate play of light and shadow, with a color palette of warm neutrals and soft pastels.
-آموزش استفاده 
-👉
-
-@TASIYANC 
-✅
 </div>
 

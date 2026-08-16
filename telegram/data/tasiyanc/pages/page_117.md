@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 117
 
-📅 آخرین بروزرسانی: 1405/05/26 02:11
+📅 آخرین بروزرسانی: 1405/05/26 02:45
 
 ---
+
+## tasiyanc — post 5796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡.npvt
+</div>
 
 ## tasiyanc — post 5795
 
@@ -170,13 +176,5 @@ CHATGBT ✅
 ارسالی
 Chatgpt Grok
 برای ایرانسل الان باز شد
-</div>
-
-## tasiyanc — post 5771
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🔐 MCI - tst
-vless://4dc0eec9-f0e1-4755-be7e-7ba628522d1b@91.99.145.207:443?path=%2F&security=none&encryption=none&type=ws#%40Tasiyanc%20%F0%9F%A6%82
-@Tasiyanc
 </div>
 
