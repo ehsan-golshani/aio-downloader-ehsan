@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 142
 
-📅 آخرین بروزرسانی: 1405/05/25 03:06
+📅 آخرین بروزرسانی: 1405/05/25 03:28
 
 ---
+
+## VahidOOnLine — post 251835
+
+<div align="center"><img src="files/post_251835_VahidOOnLine_251835.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش فارس، معاون سیاسی، امنیتی و اجتماعی استاندار مرکزی اعلام کرد یک نقطه خارج از شهر خنداب هدف حمله موشکی قرار گرفته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251833
 
@@ -247,18 +258,6 @@
 
 جزییات بیشتری درباره علت یا محل دقیق این انفجار منتشر نشده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251811
-
-<div align="center"><img src="files/post_251811_VahidOOnLine_251811.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️صداوسیما بامداد جمعه اول مردادماه از شنیده شدن صدای چند انفجار در اهواز خبر داد.
-همچنین کانال تلگرامی وحید آنلاین براساس گزارش های مردمی ازشنیده شدن صدای چندین انفجار دراین شهر خبر داد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

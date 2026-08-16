@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 147
 
-📅 آخرین بروزرسانی: 1405/05/25 03:06
+📅 آخرین بروزرسانی: 1405/05/25 03:28
 
 ---
+
+## VahidOOnLine — post 251712
+
+<div align="center"><video src="files/post_251712_VahidOOnLine_251712.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251712_VahidOOnLine_251712.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مارکو روبیو، وزیر خارجه آمریکا در حاشیه نشست آسه‌آن در مانیل گفت جمهوری اسلامی برای اقداماتی که انجام می‌دهد، «بهای بسیار سنگینی» می‌پردازد و این هزینه همچنان ادامه خواهد داشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251711
 
@@ -277,23 +290,6 @@
 وزارت کشور بحرین ظهر پنج‌شنبه اول مرداد در شبکه اجتماعی ایکس اعلام کرد آژیر هشدار به صدا درآمده است.
 این وزارتخانه از شهروندان و ساکنان خواست آرامش خود را حفظ کنند، به نزدیک‌ترین مکان امن بروند و اخبار را از طریق کانال‌های رسمی دنبال کنند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251690
-
-<div align="center"><img src="files/post_251690_VahidOOnLine_251690.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ارتش اردن: موشک‌ها و پهپادهای جمهوری اسلامی را رهگیری کردیم
-
-♦️اردن روز پنج‌شنبه اول مهر ماه اعلام کرد چند موشک و پهپاد نیروهای مسلح جمهوری اسلامی را رهگیری کرده است.
-
-ارتش اردن در بیانیه‌ای اعلام کرد بامداد پنج‌شنبه سه موشک را رهگیری کرده و یک موشک دیگر نیز در منطقه‌ای غیرمسکونی سقوط کرده است.
-
-بر اساس این بیانیه، این حملات هیچ تلفات جانی یا خسارت مادی به دنبال نداشته است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

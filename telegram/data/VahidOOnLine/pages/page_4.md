@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/25 03:06
+📅 آخرین بروزرسانی: 1405/05/25 03:28
 
 ---
+
+## VahidOOnLine — post 255230
+
+<div align="center"><video src="files/post_255230_VahidOOnLine_255230.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255230_VahidOOnLine_255230.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد عصر جمعه ۲۳ مرداد در اطراف پالایشگاه شهر ری دود ناشی از آتش‌سوزی دیده شده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255229
 
@@ -291,21 +304,6 @@ IranintlTV
 
 رییس مجلس شورای اسلامی در ادامه این نوع رفتار را «مذاکره یعنی مبارزه» توصیف کرد؛ اظهاراتی که بار دیگر نشان می‌دهد بخشی از مقام‌های جمهوری اسلامی مذاکره را نه مسیر کاهش تنش، بلکه ابزاری برای تهدید، فشار و امتیازگیری در سایه بحران نظامی معرفی می‌کنند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255210
-
-<div align="center"><img src="files/post_255210_VahidOOnLine_255210.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرکز عملیات تجارت دریایی بریتانیا شنبه ۲۴ مرداد اعلام کرد یک کشتی فله‌بر شامگاه جمعه در تنگه هرمز با یک پرتابه ناشناس هدف قرار گرفت و این پرتابه به بدنه کشتی اصابت کرد.
-
-این مرکز گفت شامگاه جمعه گزارشی درباره وقوع یک حادثه در تنگه هرمز دریافت کرد و سپس گزارشی تاییدشده درباره اصابت پرتابه ناشناس به کشتی فله‌بر دریافت کرد.
-
-بر اساس گزارش‌ها، خدمه کشتی در سلامت هستند. تاکنون گزارشی درباره میزان خسارت منتشر نشده و پیامدهای زیست‌محیطی این حادثه نیز مشخص نیست.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

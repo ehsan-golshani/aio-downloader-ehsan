@@ -1,8 +1,27 @@
 # آرشیو کانال VahidOOnLine - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/25 03:06
+📅 آخرین بروزرسانی: 1405/05/25 03:28
 
 ---
+
+## VahidOOnLine — post 255268
+
+<div align="center"><video src="files/post_255268_VahidOOnLine_255268.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255268_VahidOOnLine_255268.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زمین‌لرزه‌ای به بزرگی ۶.۹ روز شنبه ۲۴ مرداد ماه در جزیره سوماترا در غرب اندونزی رخ داد؛ این دومین زمین‌لرزه شدید در این کشور طی یک روز بود.
+
+به گزارش سازمان زمین‌شناسی آمریکا، کانون این زمین‌لرزه در نزدیکی شهر پماتانگ‌سیانتار در استان سوماترای شمالی و در عمق حدود ۱۸۳ کیلومتری زمین قرار داشت.
+
+برای این زمین‌لرزه هشدار سونامی صادر نشده است و تاکنون گزارشی از تلفات یا خسارات قابل توجه منتشر نشده است.
+
+این زمین‌لرزه ساعاتی پس از زمین‌لرزه‌ای به بزرگی ۷.۷ در منطقه فلورس در شرق اندونزی رخ داد که دست‌کم ۳۸ کشته و ۱۳ زخمی بر جای گذاشت.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255267
 
@@ -293,19 +312,6 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک شهروند با ارسال ویدیویی به ایران اینترنشنال خطاب به مقام‌های باقی‌مانده حکومت از جمله محسنی اژه‌ای و احمد وحیدی می‌گوید که دست از جنگ‌طلبی بردارند چرا که همزمان با بحران معیشتی صبر مردم حدی دارد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255230
-
-<div align="center"><video src="files/post_255230_VahidOOnLine_255230.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255230_VahidOOnLine_255230.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد عصر جمعه ۲۳ مرداد در اطراف پالایشگاه شهر ری دود ناشی از آتش‌سوزی دیده شده است.
 IranintlTV
 
 🤖 @VahidOOnLine
