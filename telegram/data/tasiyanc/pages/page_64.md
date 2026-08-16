@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/05/25 12:16
+📅 آخرین بروزرسانی: 1405/05/25 13:23
 
 ---
+
+## tasiyanc — post 7356
+
+<div align="center"><img src="files/post_7356_tasiyanc_7356.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ Summer Vip.npvt
+</div>
 
 ## tasiyanc — post 7355
 
@@ -244,22 +252,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 
 
 ✅@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود NPV لوکیشن Nuremberg 🇩🇪
-
-4سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- ✅@Tasiyanc | تاسیان
 </div>
 

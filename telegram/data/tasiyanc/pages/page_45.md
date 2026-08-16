@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/25 12:16
+📅 آخرین بروزرسانی: 1405/05/25 13:23
 
 ---
+
+## tasiyanc — post 8125
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8124
 
@@ -191,15 +215,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 
 
 @Tasiyanc ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8100
-
-<div align="center"><img src="files/post_8100_tasiyanc_8100.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شخصیت‌های کارتونی که باهاشون خندیدیم پیر شدن....
-
-@Tasiyanc ⭐️ | بانك کانفیگ
 </div>
 

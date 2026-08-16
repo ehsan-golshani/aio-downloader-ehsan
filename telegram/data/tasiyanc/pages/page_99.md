@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/05/25 12:16
+📅 آخرین بروزرسانی: 1405/05/25 13:23
 
 ---
+
+## tasiyanc — post 6241
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به یاد آنان که جسارت بیشتری از ما داشتند. 🖤
+
+پروکسی
+پروکسی
+
+@Tasiyanproxy
+</div>
 
 ## tasiyanc — post 6240
 
@@ -188,11 +199,5 @@ FAST - MCI💥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 nuclear bomb 💥.npvt
-</div>
-
-## tasiyanc — post 6219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-NEW FAST ⚡ 🚀.npvt
 </div>
 

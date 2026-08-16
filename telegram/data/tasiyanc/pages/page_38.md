@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/25 12:16
+📅 آخرین بروزرسانی: 1405/05/25 13:23
 
 ---
+
+## tasiyanc — post 8316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از قدیم گفتن مراقب تله مرغابی های زندگیت باش
+</div>
 
 ## tasiyanc — post 8315
 
@@ -158,15 +164,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 هم اکنون آمریکا به بندرعباس،قشم،بوشهر و سیریک حمله کرد و صدای چندین انفجار تو این مناطق شنیده شد.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صداوسیما واسه حسن نصرالله و اسماعیل هنیه واسه هرکدوم پنج روز روبان مشکی گذاشت و عزا عمومی اعلام کرد ولی واسه سربازهای کشور خودمون حتی یک روز عزا عمومی و یک پرچم مشکی نزد!!
-حالا فهمیدید وطن فروش های واقعی کیان؟
 
 @Tasiyanc✅
 </div>
