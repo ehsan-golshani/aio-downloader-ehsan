@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/25 19:18
+📅 آخرین بروزرسانی: 1405/05/25 22:20
 
 ---
+
+## tasiyanc — post 8153
+
+<div align="center"><img src="files/post_8153_tasiyanc_8153.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢بوسیدن کچل ها باعث افزایش طول عمر دخترا میشه.
+
+محققای هاروارد بعد از سال‌ها تحقیق به این نتیجه رسیدن که دخترا با بوسیدن پسرای کچل عمرشون بیشتر میشه؛ تازه میگن میزان افزایش عمر هم با درجه کچلی نسبت مستقیم داره.
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 8152
+
+<div align="center"><img src="files/post_8152_tasiyanc_8152.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سایت کاربردی معرفی کنم:
+
+اگر در پروسه یادگیری زبان هستید یا یه روز تصمیم گرفتید زبان شروع کنید،
+یکی از سایت‌هایی که می‌تونه کمک بزرگی در استفاده درست از دایره واژگان انگلیسی شما کنه، همین سایت YouGlish هست.
+
+تو این سایت هر کلمه‌ای که سرچ کنید، تمام لحظاتی که در ویدئوهای یوتیوب از این کلمه استفاده شده رو نشونتون میده تا با کاربرد صحیحش در مکالمات آشنا بشید.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زندگی در میان گروهی نادان دشوار است ، اما زندگی در جایی که قدرت در دست همان نادان ها باشد ، هولناك است
+آلبر کامو
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8148
 
@@ -186,34 +221,5 @@
 🔴قرارگاه مرکزی سپاه پاسداران در راسک توسط آمریکا هدف قرار گرفت
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8118
-
-<div align="center"><video src="files/post_8118_tasiyanc_8118.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8118_tasiyanc_8118.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ جی دی ونس:
-ـ اگه مردم ایران بخوان قیام کنن و حکومتشون رو عوض کنن، این مربوط به خودشونه.
-ـ ما قرار نیست ۱۵۰ هزار نیروی زمینی بفرستیم تا برای تغییر حکومت ایران بجنگن.
-ـ ما در هر صورت نیرو اعزام نمی‌کنیم.
-چون اگه چنین کاری بکنیم، یعنی ارتش آمریکا داره کار مردم ایران رو انجام می‌ده.
-ـ دیگه وارد چنین بازی‌هایی نمی‌شیم؛ اون دوران گذشته.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اهواز عزیز طاقت بیار ...
-</div>
-
-## tasiyanc — post 8116
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اهواز زیر دود بمباران 💔
 </div>
 

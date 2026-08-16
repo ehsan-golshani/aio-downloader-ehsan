@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/25 19:18
+📅 آخرین بروزرسانی: 1405/05/25 22:20
 
 ---
+
+## tasiyanc — post 8346
+
+<div align="center"><img src="files/post_8346_tasiyanc_8346.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کوله‌ی دخترش رو انداخته بود،
+براش آواز هم می‌خوند تا خستگی مهد از تنش در بره...🫠💘
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8345
+
+<div align="center"><img src="files/post_8345_tasiyanc_8345.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 18 July؛ روز ملی خوشگلا | Attractive Day هست🥹.
+
++این پست رو به خوشگل ترین فرد تو زندگیت بفرست و روزشو تبریک بگو.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴رسمی : امتحانات نهایی لغو شد ولی باز هم فقط واسه 4 استان!
+
+■ هرمزگان
+■ بوشهر
+■ خوزستان
+■ سیستان و بلوچستان
+
+- پایه یازدهم و دوازدهم
+- روزهای یکشنبه و دوشنبه، 28 و 29 تیر
+
+پروکسی |  پروکسی | پروکسی
+پروکسی |  پروکسی | پروکسی
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8343
 
@@ -168,25 +210,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
-</div>
-
-## tasiyanc — post 8310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
-</div>
-
-## tasiyanc — post 8309
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاهش پهنای باند داره گزارش میشه کانفیگ مخصوص نت ملی رو بگیرید دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش انفجار ۱۰ مین پیش در یزد از اعضای عزیز
-
-@Tasiyanc ⭐️
 </div>
 

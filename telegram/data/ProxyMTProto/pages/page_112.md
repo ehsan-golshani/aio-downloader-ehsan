@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/25 21:35
+📅 آخرین بروزرسانی: 1405/05/25 22:18
 
 ---
+
+## ProxyMTProto — post 47970
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47969
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: june.nolags.pw
 Port: 443
 Secret: dd479dd5c298eb110a7c9cffc8d6ce500c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47950
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad.canvas-proxy.com
-Port: 443
-Secret: eeb7f10957fcefd87d5e8c336fc9851d8d61642e63616e7661732d70726f78792e636f6d
 @ProxyMTProto
 </div>
 

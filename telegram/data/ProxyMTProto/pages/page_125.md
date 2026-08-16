@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 125
 
-📅 آخرین بروزرسانی: 1405/05/25 21:35
+📅 آخرین بروزرسانی: 1405/05/25 22:18
 
 ---
+
+## ProxyMTProto — post 47710
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47709
 
@@ -173,15 +182,6 @@ Secret: eed8f9cb134573d3eff7e4e031965625177232332e70726f787974672e7370616365
 Server: perfect.nolags.pw
 Port: 443
 Secret: dd4658543dd0973d78171da4552480fd23
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47690
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hotmtpro.duckdns.org
-Port: 443
-Secret: 7u-wXMxodyqALbbZW3bovVF3d3cuYW1hem9uLmNvbQ
 @ProxyMTProto
 </div>
 
