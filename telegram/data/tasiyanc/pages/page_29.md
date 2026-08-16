@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/25 10:40
+📅 آخرین بروزرسانی: 1405/05/25 11:25
 
 ---
+
+## tasiyanc — post 8609
+
+<div align="center"><video src="files/post_8609_tasiyanc_8609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8609_tasiyanc_8609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖 ربات‌ها دارن آرام‌آرام میان تا بخشی از پازل زندگی ما بشن.
+مرز بین فیلم‌های علمی-تخیلی و زندگی واقعی داره باریک میشه
+
+
+چیزی که تا چند سال پیش فقط در فیلمهای علمی تخیلی میدیدیم، حالا کمکم در دنیای واقعی دیده میشود. در این ویدیو یک ربات انسان نما متعلق به شرکت تسلا به بازدیدکننده پاپکورن تحویل میدهد و نشان میدهد فناوری تا چه اندازه به زندگی روزمره نزدیک شده است
+
+Fact @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
+</div>
+
+## tasiyanc — post 8607
+
+<div align="center"><video src="files/post_8607_tasiyanc_8607.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8607_tasiyanc_8607.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عالیه به هر کدوم فک کنی اونو می‌شنوی 😂😂😂
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8606
 
@@ -184,71 +218,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هر وقت ایرانیا فهمیدن عادل فرقی با میساقی نداره بازیو بردن
-</div>
-
-## tasiyanc — post 8574
-
-<div align="center"><img src="files/post_8574_tasiyanc_8574.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•پرامپت اختصاصی جدید مرد - زن 🤖🤖
-
-•عکساتو زیباتر کن 💖
-
-•آموزش استفاده 👉
-
-
-🔺 دریافت پرامپت 👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8573
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود📱
-
-سرور  سرعتی پرمیوم 🇺🇸 ⚡️
-
-تست شده روی همه نت ها 
-🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید⛓
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8572
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی پرمیوم  ترکیه - استانبول⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

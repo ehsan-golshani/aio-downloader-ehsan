@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/25 10:40
+📅 آخرین بروزرسانی: 1405/05/25 11:25
 
 ---
+
+## tasiyanc — post 8314
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرچ نامحدود ۲۰۰ استارز میکنم از پسفردا چون اینا می‌خوان اطلاعات بزارن ❤️
+</div>
+
+## tasiyanc — post 8313
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
+</div>
+
+## tasiyanc — post 8312
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ ۴ انفجار در یزد شنیده شد
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8311
 
@@ -156,23 +176,5 @@
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8291
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آدرس ، کد ملی با ادرس
-</div>
-
-## tasiyanc — post 8290
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشخصات کامل بزاریم؟
-</div>
-
-## tasiyanc — post 8289
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعدیا بیان پیوی
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 169
 
-📅 آخرین بروزرسانی: 1405/05/25 10:38
+📅 آخرین بروزرسانی: 1405/05/25 11:23
 
 ---
+
+## VahidOOnLine — post 251264
+
+<div align="center"><img src="files/post_251264_VahidOOnLine_251264.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تلویزیون جمهوری اسلامی گزارش داد حوالی ساعت یک بامداد، در برخی نقاط شیراز صدای انفجار شنیده شد و بر اساس گزارش‌ها، دو منطقه در شرق و غرب این شهر هدف حمله قرار گرفت.
+
+خبرگزاری ایرنا نیز از شنیده شدن صدای انفجار در شیراز بامداد امروز خبر داد. تاکنون جزییات بیشتری درباره اهداف، خسارت‌ها یا تلفات احتمالی منتشر نشده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251263
 
@@ -234,17 +248,6 @@
 
 استاندار اصفهان افزود مقام‌های مسئول در حال بررسی علت شنیده شدن صدای انفجار در اصفهان هستند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251244
-
-<div align="center"><img src="files/post_251244_VahidOOnLine_251244.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری ایرنا، بامداد سه‌شنبه از شنیده‌شدن صدای انفجار در شیراز خبر داد. همزمان، کانال تلگرامی «وحید آنلاین» با انتشار تصاویری نوشت که «نقطه‌ای در کوه دراک شیراز» هدف قرار گرفته است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

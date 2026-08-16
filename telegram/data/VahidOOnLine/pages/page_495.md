@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 495
 
-📅 آخرین بروزرسانی: 1405/05/25 10:38
+📅 آخرین بروزرسانی: 1405/05/25 11:23
 
 ---
+
+## VahidOOnLine — post 243044
+
+<div align="center"><video src="files/post_243044_VahidOOnLine_243044.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243044_VahidOOnLine_243044.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در پی راه‌اندازی کارزار مردمی رشت از سوی ایران‌اینترنشنال، ویدیوهایی از جمعیت گسترده مردم معترض این شهر در ۱۸ دی ۱۴۰۴ به دست ما رسیده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243043
 
@@ -276,23 +289,6 @@ iranintl
 
 قالیباف اضافه کرد: «تضمین این راهبرد، جان ماست که کف دست گرفته‌ایم تا نثار مردم ایران کنیم.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243024
-
-<div align="center"><video src="files/post_243024_VahidOOnLine_243024.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243024_VahidOOnLine_243024.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️نهم اسفند و آغاز جنگ؛ تصاویر جدید از لحظه اصابت موشک به بیت رهبر جمهوری اسلامی
-
-♦️تصاویری که روز یکشنبه و پس از وصل شدن اینترنت در ایران در شبکه‌های اجتماعی منتشر شده، لحظه اصابت موشک‌های «تاماهاک» به بیت علی خامنه‌ای، رهبر پیشین جمهوری اسلامی را نشان می‌دهد.
-
-علی خامنه‌ای، به همراه جمعی از فرماندهان ارشد نظامی جمهوری اسلامی ظهر نهم اسفند ۱۴۰۴ و همزمان با آغاز جنگ توسط ارتش‌های اسرائیل و آمریکا کشته شد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

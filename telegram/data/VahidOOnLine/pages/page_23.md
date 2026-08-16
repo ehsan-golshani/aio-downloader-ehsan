@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/25 10:38
+📅 آخرین بروزرسانی: 1405/05/25 11:23
 
 ---
+
+## VahidOOnLine — post 254807
+
+<div align="center"><video src="files/post_254807_VahidOOnLine_254807.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254807_VahidOOnLine_254807.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت کشور کویت روز چهارشنبه ۲۱ مردادماه اعلام کرد نیروهای امنیتی این کشور طرحی منتسب به داعش برای حمله به یکی از تاسیسات حیاتی را پیش از اجرا خنثی و یک شهروند کویتی عضو این گروه را بازداشت کرده‌اند.
+
+بر اساس بیانیه وزارت کشور کویت، تحقیقات امنیتی نشان می‌دهد فرد بازداشت‌شده برای ساخت مواد منفجره و پهپاد آموزش دیده و یک پهپاد نیز با هدف استفاده در این حمله ساخته بود.
+
+وزارت کشور کویت افزود این فرد پس از عملیات رصد و پیگیری دستگاه امنیت کشور بازداشت و برای تکمیل تحقیقات به مراجع مربوطه تحویل داده شده است. مقام‌های کویتی نام فرد بازداشت‌شده و تاسیساتی را که قرار بود هدف حمله قرار گیرد، اعلام نکرده‌اند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254806
 
@@ -296,19 +313,6 @@ Indypersian
 
 پاکستان در هفته‌های اخیر رایزنی‌های دیپلماتیک خود را با تهران افزایش داده و تلاش می‌کند همزمان روابط خود با جمهوری اسلامی، کشورهای عربی، آمریکا و دیگر بازیگران منطقه‌ای را مدیریت کند. نقش همزمان نخست‌وزیر و فرمانده ارتش پاکستان در پیام‌رسانی به تهران نشان می‌دهد این رایزنی‌ها برای اسلام‌آباد ابعاد امنیتی و دیپلماتیک مهمی دارد.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254786
-
-<div align="center"><video src="files/post_254786_VahidOOnLine_254786.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254786_VahidOOnLine_254786.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال صف‌بستن خودروها پیش از ورودی جایگاه سوخت نارگیل در شهر بندرعباس را نشان می‌دهد.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

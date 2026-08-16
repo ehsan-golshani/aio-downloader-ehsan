@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 140
 
-📅 آخرین بروزرسانی: 1405/05/25 10:38
+📅 آخرین بروزرسانی: 1405/05/25 11:23
 
 ---
+
+## VahidOOnLine — post 251951
+
+<div align="center"><video src="files/post_251951_VahidOOnLine_251951.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251951_VahidOOnLine_251951.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مروری بر مهم‌ترین خبرهای جمعه ۲ مرداد ۱۴۰۵؛ بر اساس پوشش و گزارش رسانه‌های خبری بین‌المللی درباره ایران و منطقه.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251935
 
@@ -296,21 +309,6 @@ iranintl
 
 ساجده شریفی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251916
-
-<div align="center"><video src="files/post_251916_VahidOOnLine_251916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251916_VahidOOnLine_251916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️عباس عراقچی و سرگئی لاوروف، وزیران خارجه جمهوری اسلامی ایران و روسیه، روز جمعه دوم مرداد ماه، در حاشیه نشست شورای وزیران سازمان همکاری شانگهای در قرقیزستان با یکدیگر دیدار کردند.
-خبرگزاری‌های رسمی ایران تصاویری از این دیدار منتشر کردند، اما جزئیاتی از محتوای گفتگوها منتشر نشد.
-لاوروف یک روز پیش از این دیدار، در حاشیه نشست وزیران خارجه اتحادیه کشورهای جنوب شرق آسیا (آسه‌آن) در مانیل فیلیپین با مارکو روبیو، وزیر خارجه آمریکا دیدار کرده بود.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

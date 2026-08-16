@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 431
 
-📅 آخرین بروزرسانی: 1405/05/25 10:38
+📅 آخرین بروزرسانی: 1405/05/25 11:23
 
 ---
+
+## VahidOOnLine — post 244864
+
+<div align="center"><video src="files/post_244864_VahidOOnLine_244864.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244864_VahidOOnLine_244864.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در شبکه‌های اجتماعی، عبور یک موشک را در میان رد موشک‌های شلیک‌شده پیشین، در بامداد پنج‌شنبه ۲۱ خرداد در آسمان تبریز نشان می‌دهد.
+رسانه‌های جمهوری اسلامی نیز در پی حمله آمریکا، از حمله موشکی به پایگاه موفق‌السلطی در اردن خبر دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244863
 
@@ -248,18 +262,6 @@
 براساس این گزارش، نیروهای نظامی ایالات متحده به سامانه‌های پدافند هوایی و سایت‌های راداری در نزدیکی تنگه هرمز حمله کرده‌اند.
 
 بر اساس این گزارش، انفجارهای متعددی در امتداد تنگه هرمز از جمله در بندرعباس، جزیره قشم و سیریک و چندین نقطه جنوبی ایران شنیده شده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244824
-
-<div align="center"><img src="files/post_244824_VahidOOnLine_244824.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های داخلی گزارش دادند دو کشتی که قصد «عبور غیرقانونی» از تنگه هرمز را داشتند، هدف قرار گرفته‌اند.
-این رسانه‌ها جزئیاتی درباره هویت کشتی‌ها یا میزان خسارات احتمالی منتشر نکرده‌اند و تاکنون مقام‌های رسمی دیگر نیز توضیحی در این‌باره ارائه نداده‌اند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

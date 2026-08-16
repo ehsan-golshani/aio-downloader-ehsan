@@ -1,8 +1,105 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/25 10:40
+📅 آخرین بروزرسانی: 1405/05/25 11:25
 
 ---
+
+## tasiyanc — post 9070
+
+<div align="center"><video src="files/post_9070_tasiyanc_9070.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9070_tasiyanc_9070.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet
+💥
+
+
+🎁بونوس ورزشی هر چهارشنبه
+🔥
+
+💸واریز و برداشت متنوع
+💵
+
+⭕️بدون نیاز به فیلتر شکن
+⭕️
+r16
+
+🎁کد هدیه ثبت نام Melbet90 
+✌️
+
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9069
+
+<div align="center"><video src="files/post_9069_tasiyanc_9069.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9069_tasiyanc_9069.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 
+👍
+😁
+😊
+🙂
+
+🥇واریز و برداشت ارزی و ریالی
+‼️
+
+🔥بونوس 100% اولین واریز
+‼️
+
+⚽️بونوس ورزشی هرچهارشنبه
+‼️
+
+🆗کازینو و انفجار با ضرایب جهانی
+‼️
+
+
+🎁کد هدیه ثبت نام :Melbet90
+
+
+🇩🇪دانلود اپلیکیشن MELBET
+👉
+
+
+🔗لینک وبسایت
+👉
+
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
+🇨🇦 
+🇹🇷
+r16
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9067
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
+
+سرور سرعتی‌ لوکیشن Germany 📍
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال 🔸
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9066
 
@@ -224,42 +321,6 @@ Join @TASIYANC
 🔴 ویس های پخش شده منتسب به سالومه مجری منوتو ، با هوش مصنوعی ساخته شده دیدم وایرال داره میشه گفتم بگم
 
 پ‌ن : انقد سطحی و مبتدیانه ساخته شده بچه ۴ ساله هم میفهمه
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9039
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سازمان وظیفه عمومی فراجا شایعه معافیت سربازان فراری را تکذیب کرد
-
-اطلاعیه سازمان وظیفه عمومی:
-▫️آن دسته از کارکنان وظیفه که به هر دلیل خدمت سربازی خود را به اتمام نرسانده‌اند، می‌بایست وضعیت سربازی خود را از طریق یگان خدمتی تعیین تکلیف کنند و هیچ نوع معافیت جدیدی برای آنان در نظر گرفته نشده است.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9038
-
-<div align="center"><img src="files/post_9038_tasiyanc_9038.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کوثری ؛ از فرماندهان سپاه:
-پسر لاریجانی یه لحظه گوشیش رو روشن میکنه و یه تماسی با یه نفر میگیره که همون موقع جاشون لو میره و میزننشون.
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9036
-
-<div align="center"><video src="files/post_9036_tasiyanc_9036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9036_tasiyanc_9036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماتون بریزه جدیدا تو تهران مهدکودک زدن واسه افراد بالای ۳۰ سال 😂
-
-شما ممکنه وقتی صبح تو خیابون راه میری یه سری مرد سیبیلو و زن ببینید که با کیف باب اسفنجی و عروسکی دارن میرن مهد کودک
 
 @TASIYANC ✅
 </div>

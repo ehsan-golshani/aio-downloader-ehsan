@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/25 10:40
+📅 آخرین بروزرسانی: 1405/05/25 11:25
 
 ---
+
+## tasiyanc — post 9350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاوضه امیر با دسته بیل
+</div>
+
+## tasiyanc — post 9349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاوضه امیر با دسته بیل
+</div>
+
+## tasiyanc — post 9348
+
+<div align="center"><img src="files/post_9348_tasiyanc_9348.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جیسون استاتهام ستاره هالیوود : من فقط می‌خوام کار کنم ، پول دربیارم ، با آدمهای خوب غذا بخورم و هر روز عاشق ؛ یک زن باشم
+
+@Tasiyanc 🕒
+</div>
 
 ## tasiyanc — post 9347
 
@@ -35,8 +57,6 @@
 </div>
 
 ## tasiyanc — post 9345
-
-<div align="center"><a href="files/post_9345_🌶️ 𝕱𝖊𝖑𝕱𝖊𝖑 𝕾𝖊𝖗𝖛𝖊𝖗.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🌶️ 𝕱𝖊𝖑𝕱𝖊𝖑 𝕾𝖊𝖗𝖛𝖊𝖗.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 •کانفیگ اختصاصی نامحدود نپسترنت📱
@@ -232,48 +252,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دختر توپُر & اسکینی ؟ پسر توپُر & سیکس پک ؟ کامنت
-</div>
-
-## tasiyanc — post 9328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختر توپُر & اسکینی ؟
-
-پسر توپُر & سیکس پک ؟
-
-کامنت
-</div>
-
-## tasiyanc — post 9323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد 😎
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9321
-
-<div align="center"><img src="files/post_9321_tasiyanc_9321.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید نوید محمدزاده با پرچم پِلستین
-
-@Tasiyanc ☑️
 </div>
 

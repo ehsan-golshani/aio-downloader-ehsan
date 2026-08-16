@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 190
 
-📅 آخرین بروزرسانی: 1405/05/25 10:38
+📅 آخرین بروزرسانی: 1405/05/25 11:23
 
 ---
+
+## VahidOOnLine — post 250798
+
+<div align="center"><video src="files/post_250798_VahidOOnLine_250798.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250798_VahidOOnLine_250798.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی که در رسانه‌های اجتماعی منتشر شده، ترافیک سنگین و اختلال در تردد مردم در یک مسیر خاکی از بندرپل به بندرعباس را نشان می‌دهد. این مسیر از غرب وارد بندرعباس می‌شود و از محدوده اسکله رجایی و بندر باهنر عبور می‌کند. این وضعیت همزمان با حملات اخیر به جنوب ایران و محدودیت‌های ترددی اعمال‌شده از سوی مقام‌های حکومت گزارش شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250797
 
@@ -282,21 +295,6 @@ t.me
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال نشان‌دهنده برخاستن دود سیاه از حوالی پایگاه هوایی کنارک در استان سیستان و بلوچستان در روز شنبه ۲۷ تیرماه است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250778
-
-<div align="center"><img src="files/post_250778_VahidOOnLine_250778.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اصغر جهانگیر، سخنگوی قوه قضاییه، در نشست خبری خود گفت: «برای ترامپ و نتانیاهو پرونده قضایی تشکیل دادیم و کیفرخواست آن‌ها صادر شده است.»
-
-او ادامه داد: «کلیه خسارت‌های وارده در جنگ‌های اخیر را مستندسازی کرده‌ایم و طبق قوانین بین‌المللی، هر متجاوزی باید مورد تعقیب قرار بگیرد و غرامت‌های لازم را پرداخت کند.»
-جهانگیر افزود: «اقدامات لازم در مجامع بین‌المللی در حال انجام است و ستاد حقوق بشر ما مکاتبات فراوانی و با نهادهای مرتبط داشته است.»
-iranintl
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

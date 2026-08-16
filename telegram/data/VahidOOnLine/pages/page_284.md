@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 284
 
-📅 آخرین بروزرسانی: 1405/05/25 10:38
+📅 آخرین بروزرسانی: 1405/05/25 11:23
 
 ---
+
+## VahidOOnLine — post 248602
+
+<div align="center"><video src="files/post_248602_VahidOOnLine_248602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248602_VahidOOnLine_248602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی که به ایران‌اینترنشنال ارسال شده نشان می‌دهد گروهی از حامیان حکومت در حال پخش نوحه با بلندگو در خیابان‌های تهران و ایجاد مزاحمت شبانه برای مردم هستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248601
 
@@ -262,19 +275,6 @@
 رییس سازمان فرهنگ و ارتباطات اسلامی گفت: «بلاگرها و اینفلوئنسرهای خارجی توانسته‌اند هجمه رسانه‌ای غرب را که تلاش می‌کرد فضای دیگری از جامعه را نشان دهد، خنثی کنند.»
 
 ایمانی‌پور در ادامه گفت: «در این مراسم، از ۳۰ کشور معتبر و مهم خارجی مهمانانی در سطوح مختلف حضور داشتند، تا جایی که حتی دونالد ترامپ، رییس‌جمهوری آمریکا، هم از این حجم حضور سران و مقام‌های کشورهای خارجی تعجب کرده بود.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248582
-
-<div align="center"><video src="files/post_248582_VahidOOnLine_248582.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248582_VahidOOnLine_248582.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده، کروهی از ایرانیان مقیم یونان شنبه ۱۳ تیر با فراخوان شاهزاده رضا پهلوی مقابل سفارت آمریکا در آتن تجمع کرده و سرود «ای ایران» را در مخالفت با مماشات با جمهوری اسلامی همخوانی کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

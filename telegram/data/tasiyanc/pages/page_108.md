@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/05/25 10:40
+📅 آخرین بروزرسانی: 1405/05/25 11:25
 
 ---
+
+## tasiyanc — post 6006
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VİP 🔥.npvt
+</div>
+
+## tasiyanc — post 6005
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🇫🇷.npvt
+</div>
+
+## tasiyanc — post 6004
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کی قهرمان میشه ؟
+
+🔴 آرسنال ❤️
+🇫🇷 پاریس 🔥
+</div>
 
 ## tasiyanc — post 6003
 
@@ -146,41 +167,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فروش بازه 5 GB 170 10 GB 310 20 GB 580 30 GB 900 @StarTasiyan ثبت سفارش
-</div>
-
-## tasiyanc — post 5976
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فروش بازه
-5 GB 170
-10 GB 310
-20 GB 580
-30 GB 900
-@StarTasiyan ثبت سفارش
-</div>
-
-## tasiyanc — post 5975
-
-<div align="center"><img src="files/post_5975_tasiyanc_5975.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متد جدید 🔥.npvt
-</div>
-
-## tasiyanc — post 5973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان 
-
-۷سرور  سرعتی قدرتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 
