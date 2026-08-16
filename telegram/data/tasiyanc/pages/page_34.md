@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/05/25 09:42
+📅 آخرین بروزرسانی: 1405/05/25 10:40
 
 ---
+
+## tasiyanc — post 8435
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مقابل خدمات رایگانی ک میدم انتظار حمایت دارم ، چون منم می‌تونستم مثل خیلیا فروش بزارم
+</div>
+
+## tasiyanc — post 8434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبح یه اوپن VPN زدم هنوزم کار می‌کنه 😂 کاش همه چنلا مثل ما بودن به ناموسم قسم جوین میزدم براش
+</div>
+
+## tasiyanc — post 8433
+
+<div align="center"><img src="files/post_8433_tasiyanc_8433.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
+</div>
+
+## tasiyanc — post 8432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موقع قطعی خودتو بکشی ام رات نمیدم
+</div>
+
+## tasiyanc — post 8431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
+</div>
 
 ## tasiyanc — post 8430
 
@@ -105,64 +137,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فینال جام‌جهانی 2026 🌍 اسپانیا 🇪🇸  آرژانتین 🇦🇷 ⏰‌ ساعت 22.30 @TasiyanC ✅
-</div>
-
-## tasiyanc — post 8411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال جام‌جهانی 2026 🌍
-
-اسپانیا 🇪🇸  آرژانتین 🇦🇷
-
-⏰‌ ساعت 22.30
-
-
-@TasiyanC ✅
-</div>
-
-## tasiyanc — post 8409
-
-<div align="center"><video src="files/post_8409_tasiyanc_8409.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8409_tasiyanc_8409.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این شاهکار رو از بیرانوند ببینین
-
-بعد متن اون استوری که در مورد اسطوره فوتبال ایران علی آقا دایی ،گذاشته رو دوباره بخونین
-
-خودتون حساب کار دستتون میاد که چه آدم دوزاری هستش.
-
-
-@Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8408
-
-<div align="center"><img src="files/post_8408_tasiyanc_8408.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آبادان، پنجاه‌سال پیش، ملقب به مروارید خاورمیانه.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8406
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04]⚡@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 8405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.138:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%E2%9A%A1%F0%9F%87%A9%F0%9F%87%AA
-
-Ip 🇩🇪 🇩🇪
-
-@Tasiyanc ✅
 </div>
 

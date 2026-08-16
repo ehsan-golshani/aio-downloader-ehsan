@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/25 09:42
+📅 آخرین بروزرسانی: 1405/05/25 10:40
 
 ---
+
+## tasiyanc — post 7111
+
+<div align="center"><video src="files/post_7111_tasiyanc_7111.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7111_tasiyanc_7111.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+2سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود برنامه 
+🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود🎥 وب‌گردی🔍 جمینای 🤖 
+🚀
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7109
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازیکنای احمق پرتغال پاس نمیدن به رونالدو
+</div>
+
+## tasiyanc — post 7106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به امید قهرمانی آقام رونالدوووووووووووو
+</div>
+
+## tasiyanc — post 7105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی پرتغاااااال شروع شد
+</div>
+
+## tasiyanc — post 7104
+
+<div align="center"><img src="files/post_7104_tasiyanc_7104.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادامه برنامه تیم ملی در جام جهانی 2026
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7103
 
@@ -215,65 +265,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@admin.c1.webramz.co:44
 🇬🇧
 @Tasiyanc
 💠
-</div>
-
-## tasiyanc — post 7078
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast VIP ⚡🇳🇱″🇬🇧.npvt
-</div>
-
-## tasiyanc — post 7077
-
-<div align="center"><img src="files/post_7077_tasiyanc_7077.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دی ان اس اختصاصی تاسیان برای گیم ✅ ریج تیر & زد لگ Primary address ⚡️ 117.50.10.10 Primary address ⚡️ 117.50.22.22 Primary address ⚡️123.125.81.6 Primary address ⚡️119.29.29.29 🔑 DNS CHANGER ⬜️ برنامه مورد نیاز @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دی ان اس اختصاصی تاسیان برای گیم ✅
-ریج تیر & زد لگ
-
-Primary address ⚡️ 117.50.10.10
-
-Primary address ⚡️ 117.50.22.22
-
-Primary address ⚡️123.125.81.6
-
-Primary address ⚡️119.29.29.29
-
-🔑 DNS CHANGER ⬜️ برنامه مورد نیاز
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-2 سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-Password ': @Tasiyanc
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7061
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@series-a2.samanehha.co:443#%F0%9F%87%AC%F0%9F%87%A7%40Tasiyanc%20%F0%9F%8C%99
-Loc 🇬🇧
-@Tasiyanc ✅
 </div>
 

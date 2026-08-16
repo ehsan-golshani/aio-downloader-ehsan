@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/05/25 09:40
+📅 آخرین بروزرسانی: 1405/05/25 10:38
 
 ---
+
+## ProxyMTProto — post 49174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: webhook.what-ever.co.uk.
+Port: 443
+Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gate.klyuch1k.org
+Port: 443
+Secret: eeae941a76ec4acf04faabaf8a24571080676174652e6b6c79756368316b2e6f7267
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49172
 
@@ -163,24 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: s01.neo-trading.org
 Port: 443
 Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: AjaB_Sorati_Dare
-Port: 443
-Secret: BeZaN_RoooSh_Connect
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49153
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s4.postpulse.space
-Port: 443
-Secret: ee4ed06711abba996600b11cd356a7674c6164312e617269786f2e73686f70
 @ProxyMTProto
 </div>
 

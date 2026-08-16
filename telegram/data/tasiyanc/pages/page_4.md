@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/25 09:42
+📅 آخرین بروزرسانی: 1405/05/25 10:40
 
 ---
+
+## tasiyanc — post 9267
+
+## tasiyanc — post 9266
+
+## tasiyanc — post 9265
+
+## tasiyanc — post 9264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرایط
+
+میو میکنید ، ویسشو میدید پیوی ادمین تو کانال میزاریم اگر ریکشن زیاد بگیرید برنده میشید
+
+جایزه
+نفر اول: کانفیگ نامحدود اوپن VPN دو کاربر - وایرگارد
+
+نفر دوم وایرگارد - ویتوری
+
+نفر سوم وایرگارد
+
+Admin : @Tssub
+</div>
+
+## tasiyanc — post 9263
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چالش میو بزاریم؟
+</div>
 
 ## tasiyanc — post 9262
 
@@ -226,80 +255,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 ⭕️ در صورت برقرار نشدن اتصال دو سه بار بزنید
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9240
-
-<div align="center"><img src="files/post_9240_tasiyanc_9240.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اقدام به خودکشی چند ملوان آمریکایی!
-
-باتوجه به نهمین ماه حضور 5 هزار خدمه ناو آبراهام لینکلن روی دریا، خدمه این ناو دچار بحران روحی روانی شدن!
-هفته پیش 200 نفر از اعضای خانواده این خدمه، با مقامات نیروی دریایی آمریکا جلسه گذاشتن و نگرانی‌هاشون رو گفتن.
-همسر یکی از ملوان‌ها گفته که شوهرم چند روز پیش بهم پیام داد که "امیدوارم دیگه فردا از خواب بلند نشم!".
-همچنين Navy Times گزارش داده که چندتا ملوان قصد داشتن خودشون رو تو دریا پرت کنن و به زندگیشون پایان بدن ولی رفیق‌هاشون اجازه ندادن...
-🇺🇸مایک لوین نماینده دموکرات کنگره درباره شرایط ناو میگه :
-حمام‌ها کپک زده، توالت‌ها خراب شده، ماشین‌های لباسشویی هفته‌هاست که از کار افتادن، آب گرم نیست و غذا هم که بعضی وقت‌ها فقط نصف لیوان برنج و دو تا نونِ تورتیلاست، دیگه حتى صابون و خمیردندون هم ندارن!
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9239
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📌فقط ۲۴ ساعت عضویت رایگان باز شده از همین امشب چک کن ببین چجوری میشه پول دراورد💵💸
-🛒این فرصت محدود رو از دست ندید
-https://t.me/+MT03hkV78q9kMTc0
-</div>
-
-## tasiyanc — post 9238
-
-<div align="center"><video src="files/post_9238_tasiyanc_9238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9238_tasiyanc_9238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💯تنها کانالی که حتما باید توش عضو باشی
-
-✅چون راه پول درآوردن رو بهت نشون میده
-
-📝 حتما آمار کانالشو ببینید فعلا به مدت محدود عضویت رایگان باز شده فقط تا پایان فردا شب🚫⚠️
-
-نمونه آموزش بازی Apple of Furtuneکه سودش تضمینیه رو براتون گذاشتیم پیش بینی های معتبر فوتبالی هم دارن z22:
-📶https://t.me/+MT03hkV78q9kMTc0
-📶https://t.me/+MT03hkV78q9kMTc0
-</div>
-
-## tasiyanc — post 9237
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶 🇳🇱
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9235
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 
