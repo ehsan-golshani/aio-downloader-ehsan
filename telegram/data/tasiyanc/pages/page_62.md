@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/25 22:20
+📅 آخرین بروزرسانی: 1405/05/25 22:45
 
 ---
+
+## tasiyanc — post 7463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 28 June، روزِ  LGBTQ یا همون همجنسگراست
+بفرست واسه رفیق گِیت🤣
+</div>
 
 ## tasiyanc — post 7460
 
@@ -166,11 +173,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 برنامه بازی های امروز جام جهانی 🏆
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاهم هم رو هواس الان ، امشب احتمال داره شاهد تحرکات جدید از هر دو طرف باشیم
 </div>
 

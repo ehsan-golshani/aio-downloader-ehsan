@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/05/25 22:20
+📅 آخرین بروزرسانی: 1405/05/25 22:45
 
 ---
+
+## tasiyanc — post 6465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقت الکی نزارید قربونتون برم من
+</div>
 
 ## tasiyanc — post 6464
 
@@ -210,11 +216,5 @@ new@Tasiyanc.ovpn
 
 دریافت کانفینگ رایگان
 دریافت کانفینگ رایگان
-</div>
-
-## tasiyanc — post 6434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡🪐 متد جدید.npvt
 </div>
 

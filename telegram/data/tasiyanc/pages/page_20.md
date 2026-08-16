@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/25 22:20
+📅 آخرین بروزرسانی: 1405/05/25 22:45
 
 ---
+
+## tasiyanc — post 8891
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ لوکیشن ترکیه و اسپانیا 💥
+
+دانلود برای اندروید
+
+دانلود برای آیفون 
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه
+
+ @TASIYANC ✨
+</div>
 
 ## tasiyanc — post 8890
 
@@ -341,11 +361,5 @@ Restore this vintage film frame by removing scratches, dust, flicker, fading and
 🌐 betinja.bet
 کانال بونوس های رایگان g9
 @betinjabet
-</div>
-
-## tasiyanc — post 8858
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡𝐓𝐀𝐒𝐈𝐘𝐀𝐍_𝐕𝐈𝐏_𝐌𝐔𝐋𝐓𝐈⚡.npvt
 </div>
 

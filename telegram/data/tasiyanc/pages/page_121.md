@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 121
 
-📅 آخرین بروزرسانی: 1405/05/25 22:20
+📅 آخرین بروزرسانی: 1405/05/25 22:45
 
 ---
+
+## tasiyanc — post 5695
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈سرور vip تست شده همراه اول⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5693
 
@@ -172,17 +184,6 @@ vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اختصاصی تاسیان نامحدود📱
-
-⛈سرور vip تست شده همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5672
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان 📱
 
 ⛈سرور vip تست شده همه اپراتورا⛈ 
 

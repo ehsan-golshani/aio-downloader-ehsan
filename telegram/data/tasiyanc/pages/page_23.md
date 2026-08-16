@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/25 22:20
+📅 آخرین بروزرسانی: 1405/05/25 22:45
 
 ---
+
+## tasiyanc — post 8796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تکمیلی 
+🔴12 تن از اعضای حشدالشعبی شب گذشته در جریان حمله‌ای مشترک آمریکا و عربستان سعودی در عراق کشته شدن 
+⭐ @Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8795
 
@@ -205,11 +213,5 @@
 او در جریان فرایند انتقال به محل اعدام دچار سکته قلبی شده بود.
 
 @TasiyanProxy ⭐️| رسانه مردمی
-</div>
-
-## tasiyanc — post 8771
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 128
 
-📅 آخرین بروزرسانی: 1405/05/25 22:18
+📅 آخرین بروزرسانی: 1405/05/25 22:43
 
 ---
+
+## ProxyMTProto — post 47651
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: otklyuchi-vpn.nolags.pw
+Port: 443
+Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47650
 
@@ -175,15 +184,6 @@ Secret: ee4e28f14af6d0e7d9dc65eecb94066c717231312e70726f787974672e7370616365
 Server: 186.246.21.40
 Port: 443
 Secret: eec11798ab008831b474066c9e1ebf5c74617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47631
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fastproxy.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2706574726f766963682e7275
 @ProxyMTProto
 </div>
 

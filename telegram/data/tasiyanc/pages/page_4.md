@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/25 22:20
+📅 آخرین بروزرسانی: 1405/05/25 22:45
 
 ---
+
+## tasiyanc — post 9295
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکس هاتونو با یه ایموجی معرفی کنید
+
+کامنت بازه.
+</div>
 
 ## tasiyanc — post 9294
 
@@ -123,6 +131,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پیوی اد بفرستید ویسارو @Tssub
 </div>
-
-## tasiyanc — post 9267
 

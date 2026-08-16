@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/25 22:20
+📅 آخرین بروزرسانی: 1405/05/25 22:45
 
 ---
+
+## tasiyanc — post 5880
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+10سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5879
 
@@ -173,11 +190,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خدایی دمتون گرم هرچی بگم کم گفتم همیشه قوی پر سرعت پایدار مرسی بابت زحماتتون
-</div>
-
-## tasiyanc — post 5854
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بهرحال ما ک قطعیم
 </div>
 

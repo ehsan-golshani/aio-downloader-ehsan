@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/25 22:20
+📅 آخرین بروزرسانی: 1405/05/25 22:45
 
 ---
+
+## tasiyanc — post 9368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ناو هواپیمابر جورج بوش از ژاپن سمت خاورمیانه راه افتاده و ۱۰ روز دیگه به سواحل جنوبی ایران میرسه
+
+گفته میشه قراره جانشین ناو لینکلن بشه
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9367
 
@@ -235,18 +244,5 @@ g25
 جیسون استاتهام ستاره هالیوود : من فقط می‌خوام کار کنم ، پول دربیارم ، با آدمهای خوب غذا بخورم و هر روز عاشق ؛ یک زن باشم
 
 @Tasiyanc 🕒
-</div>
-
-## tasiyanc — post 9347
-
-<div align="center"><video src="files/post_9347_tasiyanc_9347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9347_tasiyanc_9347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کری های امیر علی اکبری بوکسور ایرانی واسه علیخان واخائف که تو ثانیه های اول ناك اوت شد 😂
-علیخان واخائف قهرمان کمربند سنگین‌وزن ACA در چند ثانیه اول امیرعلی اکبری رو در هم کوبید
-
-@Tasiyanc ✅
 </div>
 

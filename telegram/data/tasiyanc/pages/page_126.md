@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/05/25 22:20
+📅 آخرین بروزرسانی: 1405/05/25 22:45
 
 ---
+
+## tasiyanc — post 5551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش‌های تایید نشده حاکی از درگیری بین نیروی دریایی سپاه و نیروی دریایی آمریکا در خلیج عمان و تنگه هرمز است.
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5544
 
@@ -456,15 +464,5 @@ WİFİ 🚀speed.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 TASIYAN INFO ✅
 t.me/TasiyanOwner
-</div>
-
-## tasiyanc — post 5514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده 📶
-
-برای اتصال پایدار زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

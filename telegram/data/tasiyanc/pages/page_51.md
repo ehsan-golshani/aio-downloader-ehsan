@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/05/25 22:20
+📅 آخرین بروزرسانی: 1405/05/25 22:45
 
 ---
+
+## tasiyanc — post 7916
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عکس مربوط به انفجار دزفول فیکه.
+</div>
 
 ## tasiyanc — post 7915
 
@@ -221,14 +227,5 @@
 
 @Tasiyanc✅
 #Mobina
-</div>
-
-## tasiyanc — post 7877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاش دانشمندان می‌توانستند دستگاهی اختراع کنند که خاطرات را مثل عطر توی یک بطری حفظ کنند. آن‌وقت می‌شد هر زمان که آرزو کردیم بطری را برداریم و آن لحظه را دوباره زندگی کنیم.
-- ربکا | دافنه دوموریه
-✔️ @Tasiyanc 🔋
-#Petros
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 521
 
-📅 آخرین بروزرسانی: 1405/05/25 22:17
+📅 آخرین بروزرسانی: 1405/05/25 22:42
 
 ---
+
+## VahidOOnLine — post 242414
+
+<div align="center"><img src="files/post_242414_VahidOOnLine_242414.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نت‌بلاکس، نهاد ناظر بر اختلال‌های اینترنتی در جهان، چهارشنبه شش خرداد اعلام کرد که اتصال اینترنت ایران در ۲۴ ساعت گذشته در حالت بازگشت به وضعیت سابق قرار دارد، اما خدمات همچنان به‌شدت فیلتر است و محدودیت‌های جدیدی بر پیام‌رسان‌ها و فروشگاه‌های اپلیکیشن اعمال می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242404
+
+<div align="center"><video src="files/post_242404_VahidOOnLine_242404.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242404_VahidOOnLine_242404.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سخنگوی سازمان آتش‌نشانی تهران روز چهارشنبه ششم خردادماه از وقوع آتش‌سوزی در پشت‌بام یک مجتمع تجاری در خیابان شوش خبر داد.
+به گفته این سازمان، آتش‌نشانان موفق شدند حریق را پیش از سرایت به انبارهای مجتمع مهار و افراد حاضر در ساختمان را در همان دقایق اولیه تخلیه کنند.
+این حادثه بدون مصدومیت پایان یافت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242403
 
@@ -326,38 +352,6 @@
 
 🔹اینترنت‌ها وصل شد ولی به چه قیمتی؟ همه‌چی رو از دست دادیم.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242385
-
-<div align="center"><img src="files/post_242385_VahidOOnLine_242385.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احمد خاتمی، امام جمعه موقت تهران در خطبه‌های نماز «عید قربان» در تهران با تاکید بر ضرورت صرفه‌جویی، گفت صرفه‌جویی در آب، برق و دیگر عرصه‌ها در راستای «مقاومت ملی» است.
-
-او با استناد به روایتی از جعفر صادق، امام ششم شیعیان، گفت: «خداوند صرفه‌جویی را دوست دارد و اسراف را نمی‌پسندد. لذا ضرورتی به روشن نگه داشتن چراغ‌های اضافی نیست.»
-
-خاتمی افزود که می‌توان با کمترین میزان آب وضو و غسل انجام داد و بر پرهیز از اسراف در مصرف منابع تاکید کرد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242382
-
-<div align="center"><video src="files/post_242382_VahidOOnLine_242382.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_242382_VahidOOnLine_242382.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تیم ملی فوتبال ایران که برای برگزاری اردوی تدارکاتی به آنتالیا در ترکیه سفر کرده است، روز سه‌شنبه و پس از تمرین‌های اولیه بار دیگر به دو گروه تقسیم شد و بازی «درون‌تیمی» برگزار کرد.
-
-تیم ملی، از زمان جنگ ۱۲ روزه و پس از آن اعتراضات دی‌ماه و جنگ اخیر با اسرائیل و آمریکا، با چالش جدی «رقیب تدارکاتی» مواجه است و قرار است در آستانه سفر به مکزیک روز ۱۴ خرداد در آنتالیا با تیم ملی «مالی» دیدار تدارکاتی برگزار کند.
-
-شاگردان امیر قلعه‌نویی پیش از این هم با خودشان رقابت تدارکاتی برگزار کرده بودند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

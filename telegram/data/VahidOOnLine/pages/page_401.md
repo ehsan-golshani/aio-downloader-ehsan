@@ -1,8 +1,30 @@
 # آرشیو کانال VahidOOnLine - صفحه 401
 
-📅 آخرین بروزرسانی: 1405/05/25 22:17
+📅 آخرین بروزرسانی: 1405/05/25 22:42
 
 ---
+
+## VahidOOnLine — post 245799
+
+<div align="center"><img src="files/post_245799_VahidOOnLine_245799.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️رامین رضاییان در دقیقه ۳۲ بازی توانست گل اول را برای تیم فوتبال ایران مقابل نیوزلند به ثمر برساند و نتیجه بازی را یک بر یک مساوی کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245798
+
+<div align="center"><img src="files/post_245798_VahidOOnLine_245798.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تیم فوتبال نیوزلند در دقیقه ۷ بازی توانست اولین گل را مقابل ایران به ثمر برساند. بازی دو تیم ایران و نیوزلند از ساعت ۴:۳۰ بامداد سه‌شنبه (به وقت ایران) در ورزشگاه سوفای لس‌آنجلس در ایالت کالیفرنیا آغاز شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245797
 
@@ -225,28 +247,6 @@
 طبق گزارش مهر، این انفجارها در محدوده تنگه هرمز روی داده و بر اساس گزارش‌های اولیه، احتمالا به «مدیریت تردد» تنگه هرمز مرتبط است.
 
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245779
-
-<div align="center"><img src="files/post_245779_VahidOOnLine_245779.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری مهر، از وقوع سه انفجار پیاپی در محدوده تنگه هرمز خبر داد و اعلام کرد که دو انفجار نخست در ساعات پایانی دوشنبه‌شب ۲۵ خرداد و سومین انفجار در ساعات اولیه بامداد سه‌شنبه ۲۶ خرداد رخ داده است. بر اساس بررسی‌های خبرنگار این رسانه، گمانه‌زنی‌های اولیه حاکی از آن است که این انفجارها احتمالا با هدف «مدیریت تردد» در تنگه هرمز صورت گرفته است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245778
-
-<div align="center"><img src="files/post_245778_VahidOOnLine_245778.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، دوشنبه‌شب در مصابحه با شبکه خبر صداوسیما ضمن اشاره به اینکه «راه طولانی با آمریکا و اسرائیل داریم» گفت: «حماس به‌زودی بازسازی می‌شود. اجزای جبهه مقاومت در جنگ پیش‌قدم مبارزه بودند و در سخت‌ترین شرایط مقابل دشمن آمریکایی-اسرائیلی ایستادگی می‌کنند.» قاآنی در ادامه گفت «باب‌المندب فقط یکی از نقاط استراتژیک در دست مقاومت است و جاهای دیگر هم هستند که اگر لازم باشد فعال می‌شوند».
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
