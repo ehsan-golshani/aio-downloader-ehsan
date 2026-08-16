@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/25 22:43
+📅 آخرین بروزرسانی: 1405/05/25 23:13
 
 ---
+
+## ProxyMTProto — post 50024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eed9cf709eb48bb5a37471fba84864bd7e766b2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50023
 
@@ -172,15 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: love.neverspy.online
 Port: 443
 Secret: ee24b3e49b9d33101f2c34e5e893bd90d17777772e6d6963726f736f66742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: beer.crona-extra.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

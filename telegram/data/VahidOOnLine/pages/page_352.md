@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 352
 
-📅 آخرین بروزرسانی: 1405/05/25 22:42
+📅 آخرین بروزرسانی: 1405/05/25 23:13
 
 ---
+
+## VahidOOnLine — post 247164
+
+<div align="center"><video src="files/post_247164_VahidOOnLine_247164.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247164_VahidOOnLine_247164.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند ویدیویی از خیمه محرم حسینیه کربلایی‌ها در حوالی بازار تهران را برای ایران‌اینترنشنال ارسال کرده و نقش‌های شیر و خورشید روی این خیمه توجه او را جلب کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247163
 
@@ -277,19 +290,6 @@ https:/
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️ سفارت ایالات متحده آمریکا در کویت که در زمان جنگ در خاورمیانه، هدف قرار گرفته و تعطیل شده بود، فعالیت خود را از سر گرفته است. سخنگوی وزارت خارجه آمریکا، روز چهارشنبه سوم تیرماه، همزمان با سفر مارکو روبیو به این کشور، خبر بازگشایی سفارت را اعلام کرد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247140
-
-<div align="center"><img src="files/post_247140_VahidOOnLine_247140.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️قیمت نفت خام برنت دریای شمال، به عنوان شاخص بین‌المللی بازار نفت، روز چهارشنبه سوم تیرماه به روند نزولی خود ادامه داد و برای اولین بار از زمان آغاز جنگ در خاورمیانه، به زیر ۷۵ دلار در هر بشکه رسید.
-
-برنت با تجربه یک افت ۳.۱ درصدی به ۷۴.۷۳ دلار کاهش یافت؛ این کاهش قیمت در ادامه روند نزولی نفت از هفته گذشته و پس از امضای یادداشت تفاهم میان ایالات متحده و جمهوری اسلامی ایران و آغاز فرآیند بازگشایی تنگه هرمز رخ داده است.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

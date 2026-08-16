@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 188
 
-📅 آخرین بروزرسانی: 1405/05/25 22:42
+📅 آخرین بروزرسانی: 1405/05/25 23:13
 
 ---
+
+## VahidOOnLine — post 250917
+
+<div align="center"><video src="files/post_250917_VahidOOnLine_250917.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250917_VahidOOnLine_250917.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️منابع امنیتی به خبرگزاری رویترز اعلام کردند، بامداد یکشنبه، یک پهپاد مهاجم و انتحاری در نزدیکی کنسولگری ایالات متحده آمریکا در غرب شهر اربیل واقع در اقلیم کردستان عراق سرنگون شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250916
 
@@ -272,17 +285,6 @@
 
 در پیام خود تاکید کرد «دشمن» نباید هیچ علامت ضعفی از ما دریافت کند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250897
-
-<div align="center"><img src="files/post_250897_VahidOOnLine_250897.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️حسین کرمانپور، رئیس مرکز روابط عمومی وزارت بهداشت ایران روز شنبه با انتشار پیامی در اکس نوشت:‌ «در حملات هوایی ۶ تا ۲۷ تیرماه، بیش از ۵۰۰ نفر مجروح و ۵۰ نفر کشته شدند. در میان کشته‌شدگان، پنج زن و دو کودک و نوجوان زیر ۱۸ سال و در میان مصدومان ۳۲ زن و ۱۸ کودک و نوجوان دیده می‌شوند. تاکنون ۲۸ عمل جراحی انجام شده، ۴۶۰ نفر ترخیص و ۳۷ نفر همچنان بستری هستند.»
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

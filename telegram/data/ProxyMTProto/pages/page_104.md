@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/25 22:43
+📅 آخرین بروزرسانی: 1405/05/25 23:13
 
 ---
+
+## ProxyMTProto — post 48132
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 176.65.135.69
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48131
 
@@ -172,15 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: static.prxtoday.store
 Port: 443
 Secret: ee3740849efd941157c45810d974fd66097374617469632e707278746f6461792e73746f7265
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: form.quickdl.info
-Port: 22
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

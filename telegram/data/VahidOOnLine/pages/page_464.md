@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 464
 
-📅 آخرین بروزرسانی: 1405/05/25 22:42
+📅 آخرین بروزرسانی: 1405/05/25 23:13
 
 ---
+
+## VahidOOnLine — post 243959
+
+<div align="center"><video src="files/post_243959_VahidOOnLine_243959.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243959_VahidOOnLine_243959.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان معترض در مشهد روز شنبه پس از آنکه گزارش شد تعدادی از محصلان معترض مقابل آموزش و پرورش بازداشت شدند،‌ شعار اعتراضی داده و خواستار آزادی آن‌ها شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243958
 
@@ -280,19 +293,6 @@
 روابط عمومی سپاه پاسداران جمهوری اسلامی ایران، بامداد شنبه، با انتشار بیانیه‌ای اعلام کرده بود که به «پایگاه‌های دشمن در منطقه» موشک شلیک کرده است.
 پیش از کویت، بحرین نیز در بیانیه‌ای حملات موشکی ایران را «تجاوز آشکار» و نقض حاکمیت خود و کویت توصیف کرد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243939
-
-<div align="center"><video src="files/post_243939_VahidOOnLine_243939.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243939_VahidOOnLine_243939.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز شنبه دانش‌آموزان قم همزمان با سایر استان‌ها به تاثیر معدل پایه یازدهم در کنکور و شیوه برگزاری امتحانات اعتراض کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

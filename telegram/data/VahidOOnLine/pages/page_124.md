@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/25 22:42
+📅 آخرین بروزرسانی: 1405/05/25 23:13
 
 ---
+
+## VahidOOnLine — post 252370
+
+<div align="center"><img src="files/post_252370_VahidOOnLine_252370.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به مناسبت چهل‌وششمین سالگرد درگذشت محمدرضا شاه پهلوی
+
+تصاویری از خانواده پهلوی چند سال پس از درگذشت اعلیحضرت فقید، اواخر دهه ۶۰ و اوایل دهه ۷۰ خورشیدی
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252369
 
@@ -257,19 +270,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از ایرانیان ساکن آلمان یکشنبه چهارم مرداد مراسم بزرگداشت رضاشاه و محمدرضاشاه را در شهر کلن برگزار کردند و شعارهایی چون «پرچم شیروخورشید، کل جهان درخشید» سردادند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252349
-
-<div align="center"><img src="files/post_252349_VahidOOnLine_252349.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علاءالدین بروجردی، عضو کمیسیون امنیت ملی مجلس، به ایسنا گفت: «فرصتی طلایی در اختیار جمهوری اسلامی قرار گرفته که تحریم آمریکا را آغاز کنیم.»
-
-بروجردی تاکید کرد: «وقتی مدیریت تردد در تنگه هرمز را در اختیار بگیریم، یعنی افسار اقتصاد آمریکا و جهان را در دست گرفته‌ایم.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
