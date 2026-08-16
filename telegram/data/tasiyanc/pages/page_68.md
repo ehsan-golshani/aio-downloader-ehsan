@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/26 00:16
+📅 آخرین بروزرسانی: 1405/05/26 01:10
 
 ---
+
+## tasiyanc — post 7254
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طارمی اگه کون نداشت الان یک صفر بود بازی😒
+</div>
 
 ## tasiyanc — post 7253
 
@@ -248,39 +254,5 @@ https://t.me/+DhVkjFb6qhZmYTFk کانفیگ بعدی اوپن VPN تو گپ تا
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 https://t.me/+DhVkjFb6qhZmYTFk
 کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
-</div>
-
-## tasiyanc — post 7217
-
-<div align="center"><video src="files/post_7217_tasiyanc_7217.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7217_tasiyanc_7217.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 
-🌟
-
-برای گیم 
-🎲 دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖 
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها 
-✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک 
-⏩
-
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

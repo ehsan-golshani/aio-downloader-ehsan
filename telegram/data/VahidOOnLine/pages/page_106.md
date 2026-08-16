@@ -1,8 +1,80 @@
 # آرشیو کانال VahidOOnLine - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/26 00:39
+📅 آخرین بروزرسانی: 1405/05/26 01:07
 
 ---
+
+## VahidOOnLine — post 252882
+
+<div align="center"><video src="files/post_252882_VahidOOnLine_252882.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252882_VahidOOnLine_252882.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان‌دهنده برگزاری مراسم سوگواری برای ابوالفضل سپاهی است.
+
+بامداد سه‌شنبه حکم اعدام این شهروند بازداشت‌شده در اعتراضات دی‌ماه در اصفهان، با دستور قوه قضاییه جمهوری اسلامی اجرا شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252881
+
+<div align="center"><video src="files/post_252881_VahidOOnLine_252881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252881_VahidOOnLine_252881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️نیروی هوافضای سپاه پاسداران، روز پنجشنبه هشتم مرداد ماه در بیانیه‌ای اعلام کرد، در واکنش به حمله آمریکا به دو خانه مسکونی در جزیره قشم، به پایگاه هوایی الازرق در اردن حمله کرده و سه فروند جنگنده اف-۳۵ آمریکا را منهدم کرده است.
+بر اساس این بیانیه، با چند موشک بالستیک به «رمپ استقرار و سوله تعمیراتی جنگنده‌های اف-۳۵» در پایگاه الازرق آمریکا حمله شده است. به گفته سپاه، علاوه بر انهدام کامل سه جنگنده در این حملات، به سه جنگنده دیگر آمریکایی نیز خسارت سنگینی وارد شده است.
+سپاه در ادامه ادعا کرد، در این حمله همچنین چند افسر و نیروی فنی و تعمیراتی آمریکا کشته شده‌اند.
+سپاه پاسداران در این اطلاعیه همچنین خطاب به مردم اردن مدعی شد که حملات خود را با هدف کمک به «رهایی سرزمین اسلامی اردن از اشغالگران آمریکایی» ادامه خواهد داد و تاکید کرد که «مبارزه» تا خروج آخرین نیروی آمریکایی از سرزمین‌های اسلامی ادامه خواهد داشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252880
+
+<div align="center"><video src="files/post_252880_VahidOOnLine_252880.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252880_VahidOOnLine_252880.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مخاطبان ایران‌اینترنشنال از شهرهای مختلف ایران روایت‌هایی از شنیده شدن صدای حملات در بامداد پنج‌شنبه ارسال کردند. این گزارش‌های مردمی از شدت انفجارها، زمان وقوع آن‌ها و تاثیرشان بر ساکنان شهرهای مختلف حکایت دارد.
+
+سبا حیدرخانی، عضو تحریریه ایران‌اینترنشنال، گزارش می‌دهد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252879
+
+<div align="center"><video src="files/post_252879_VahidOOnLine_252879.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252879_VahidOOnLine_252879.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بن سبطی، پژوهشگر ایران و اسرائیل، در واکنش به اظهارات بنیامین نتانیاهو درباره تردید نسبت به مذاکرات جمهوری اسلامی و آمریکا گفت اسرائیل هیچ امیدی به این مذاکرات ندارد، زیرا حکومت ایران بارها این مذاکرات را نقض کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252878
+
+<div align="center"><video src="files/post_252878_VahidOOnLine_252878.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252878_VahidOOnLine_252878.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیوید دی‌روش، مدیر پیشین سیاستگذاری حوزه خلیج فارس در پنتاگون، گفت به نظر نمی‌رسد دونالد ترامپ بخواهد پرونده جمهوری اسلامی را نیمه‌تمام رها کند و ممکن است دامنه حملات را به زیرساخت‌های دومنظوره، از جمله پل‌ها، نیروگاه‌ها و حتی اهدافی در پایتخت ایران، گسترش دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252877
 
@@ -229,79 +301,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال، درباره از سرگیری حملات آمریکا به تاسیسات نظامی جمهوری اسلامی پس از وقفه‌ای چندروزه توضیح داد و از شکل‌گیری جنگی فرسایشی و بسیار پرهزینه برای مردم ایران، در نتیجه سیاست‌های ضدملی حکومت، گفت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252849
-
-<div align="center"><video src="files/post_252849_VahidOOnLine_252849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252849_VahidOOnLine_252849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت خارجه نیوزیلند در پاسخ به ایران‌اینترنشنال بر مخالفت خود با اعدام و حمایت از حق اعتراض مسالمت‌آمیز در ایران تاکید کرد و استرالیا نیز با محکوم کردن اعدام مخالفان سیاسی از سوی جمهوری اسلامی، خواستار توقف فوری اعدام‌ها شد.
-
-گفت‌وگو با علیرضا محبی، خبرنگار ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252848
-
-<div align="center"><video src="files/post_252848_VahidOOnLine_252848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252848_VahidOOnLine_252848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کتی امیری‌یونسی، وکیل مدنی، درباره اعدام معترضان در ایران از سوی جمهوری اسلامی به ایران‌اینترنشنال گفت نهادهای بین‌المللی حقوق بشری در حال ثبت جنایت‌های جمهوری اسلامی هستند و عاملان این جنایت‌ها باید در آینده پاسخ‌گو شوند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252847
-
-<div align="center"><video src="files/post_252847_VahidOOnLine_252847.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252847_VahidOOnLine_252847.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم‌زمان با دور تازه اعدام معترضان در ایران، رهبر محافظه‌کاران مجلس سنای کانادا، به دولت و متحدان این کشور هشدار داد که از مدارا با جمهوری اسلامی دست بردارند. لئو هوساکوس، در پاسخ اختصاصی به ایران‌اینترنشنال درباره اعدام معترضان ایرانی گفت که این اعدام‌ها با هدف ارعاب مردمی طراحی شده که شجاعانه برای آزادی خود می‌جنگند.
-
-مهسا مرتضوی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252846
-
-<div align="center"><img src="files/post_252846_VahidOOnLine_252846.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️سخنگوی وزارت امور خارجه پاکستان روز پنج‌شنبه هشتم مرداد ماه اعلام کرد مذاکرات میان آمریکا و ایران با هدف کاهش تنش در خاورمیانه و درباره وضعیت تنگه هرمز همچنان ادامه دارد.
-طاهر اندربی، سخنگوی وزارت امور خارجه پاکستان، در گفتگو با خبرنگاران در اسلام‌آباد گفت: «مذاکرات میان طرف‌ها در جریان است، به‌ویژه درباره تنگه هرمز و کاهش تنش.»
-پاکستان در ماه‌های اخیر تلاش کرده است در میان تنش‌های فزاینده میان ایران و آمریکا نقش میانجی را ایفا کند. این اظهارات در حالی مطرح می‌شود که درگیری‌ها در منطقه بار دیگر شدت گرفته و آمریکا و ایران حملات متقابلی انجام داده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252845
-
-<div align="center"><video src="files/post_252845_VahidOOnLine_252845.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252845_VahidOOnLine_252845.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با وجود مشارکت عربستان سعودی در حملات مشترک با آمریکا علیه شبه‌نظامیان مورد حمایت جمهوری اسلامی در عراق، ریاض همچنان بر کاهش تنش با تهران تاکید دارد.
-
-هم‌زمان، وزیر دفاع عربستان سعودی در دیدار با معاون رییس‌جمهوری آمریکا، پیام محمد بن سلمان درباره جنگ با ایران و تحولات منطقه را به کاخ سفید منتقل کرد.
-
-نیلوفر منصوری، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

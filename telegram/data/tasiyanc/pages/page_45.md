@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/26 00:16
+📅 آخرین بروزرسانی: 1405/05/26 01:10
 
 ---
+
+## tasiyanc — post 8163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بندرعباس عزیز زیر حملات شدید آمریکا 💔
+</div>
 
 ## tasiyanc — post 8161
 
@@ -231,11 +237,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کامبککککک میزنه آرژانتین
-</div>
-
-## tasiyanc — post 8123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آرژانتین زددد
 </div>
 

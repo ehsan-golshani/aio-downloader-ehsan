@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/26 00:16
+📅 آخرین بروزرسانی: 1405/05/26 01:10
 
 ---
+
+## tasiyanc — post 8990
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارش اعضا اینترنت همراه و ایرانسل ریده و اکثر فیلترشکنا از کار افتادن
+</div>
 
 ## tasiyanc — post 8989
 
@@ -276,13 +282,5 @@ vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 اتصال امن برای همه 🇮🇷
 
 📱 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پنالتی راحترین بازی پولساز ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید راحتو سریع برنده شو👌🏼
-💖 مرجع بازی های روز دنیا در ‌پلتفرم جهانی بت اینجا ⭐
 </div>
 

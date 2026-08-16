@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/26 00:16
+📅 آخرین بروزرسانی: 1405/05/26 01:10
 
 ---
+
+## tasiyanc — post 9012
+
+<div align="center"><video src="files/post_9012_tasiyanc_9012.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9012_tasiyanc_9012.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎کانفیگ اختصاصی نامحدود اینجکتور
+📶
+
+پایداری بالا ، مناسب گیم ، دانلود ، وبگردی 
+⚡️
+
+سرور سرعتی‌ لوکیشن USA 
+📍
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون  
+📱
+
+آموزش اتصال 
+🔸
+
+اتصال امن برای همه 🇮🇷
+
+
+📱 @TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9011
 
@@ -430,11 +462,5 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 
 🌐 کانال بونوس های رایگان a13
 @betinjabet
-</div>
-
-## tasiyanc — post 8990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گزارش اعضا اینترنت همراه و ایرانسل ریده و اکثر فیلترشکنا از کار افتادن
 </div>
 

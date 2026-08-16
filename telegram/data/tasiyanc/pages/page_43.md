@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/26 00:16
+📅 آخرین بروزرسانی: 1405/05/26 01:10
 
 ---
+
+## tasiyanc — post 8216
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺حمله آمریکا به بندرلنگه
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8215
 
@@ -159,13 +167,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8194
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه
-
-دریافت کانفیگ 👉
 </div>
 

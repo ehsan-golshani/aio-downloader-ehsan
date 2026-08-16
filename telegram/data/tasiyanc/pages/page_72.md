@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/26 00:16
+📅 آخرین بروزرسانی: 1405/05/26 01:10
 
 ---
+
+## tasiyanc — post 7115
+
+<div align="center"><video src="files/post_7115_tasiyanc_7115.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7115_tasiyanc_7115.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+3سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود برنامه 
+🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7114
 
@@ -224,38 +246,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@series-a2.samanehha.co
 🇬🇧
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7081
-
-<div align="center"><img src="files/post_7081_tasiyanc_7081.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️پخش زنده مسابقات جام جهانی 2026
-
-https://roxiestreams.su/soccer
-
-https://streamcorner.fyi/fifa-world-cup
-
-https://totalsportek.tips/football
-
-https://www.bintv.net
-
-https://soccerstreams.sbs
-
-https://strumyk.net
-
-سایت هایی که باز نمیشه رو باید با وی پی ان باز کنید
-
-گزارش فارسی:(نیازمند ثبت نام،
-فیک میل میتونید بزنید)
-https://persianasports.com/live.html
-
-
-🔗ربات ایمیل فیک:
-@TempMail_org_bot
-
-@Tasiyanc 
-✅ | تاسیان
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/26 00:16
+📅 آخرین بروزرسانی: 1405/05/26 01:10
 
 ---
+
+## tasiyanc — post 8801
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 🔐
+3 کانفیگ پر سرعت 😞
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%F0%9F%87%B9%F0%9F%87%B7%20%40Tasiyanc%20%E2%9A%A1
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpYRjBrbHc3ODcwdlhuM3VRSXhlMTlR@217.138.207.106:1080#FR%20%40Tasiyanc%20%E2%9A%A1%EF%B8%8F
+vless://7216b4e8-e935-4d68-b959-73d145accdee@154.222.9.240:443?security=reality&encryption=none&pbk=ISa-DZOI4LRRb9DHMFYm5oFqBXDjYzz0hVWUfWvzLmo&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=8d3293f0066e129a#DE%20%40Tasiyanc%20%E2%9A%A1
+
+Multi Location ⚡
+⭐ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8799
 
@@ -216,14 +229,5 @@
 با این حال، همه موشک‌ها رهگیری و منهدم شدن و نیروهای آمریکایی همچنان در بالاترین سطح آماده‌باش هستن
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8774
-
-<div align="center"><img src="files/post_8774_tasiyanc_8774.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرندی از افراد تیم مذاکره کننده :
-سپاه برای جنگ تمام عیار کامل آمادستِ
 </div>
 

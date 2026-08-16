@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/26 00:16
+📅 آخرین بروزرسانی: 1405/05/26 01:10
 
 ---
+
+## tasiyanc — post 6239
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد CMR  👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6238
 
@@ -184,14 +194,5 @@ NEW FAST ⚡ 🚀.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جنگ میشه یا آتش بس برقراره؟
-</div>
-
-## tasiyanc — post 6217
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پوشش اخبار جنگ در چنل پروکسی
-زیر هر خبر ادمینا و خودم پروکسی های وصل قرار میدیم
-https://t.me/TasiyanProxy
-https://t.me/TasiyanProxy
 </div>
 

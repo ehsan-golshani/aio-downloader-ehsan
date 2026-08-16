@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/26 00:16
+📅 آخرین بروزرسانی: 1405/05/26 01:10
 
 ---
+
+## tasiyanc — post 8609
+
+<div align="center"><video src="files/post_8609_tasiyanc_8609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8609_tasiyanc_8609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖 ربات‌ها دارن آرام‌آرام میان تا بخشی از پازل زندگی ما بشن.
+مرز بین فیلم‌های علمی-تخیلی و زندگی واقعی داره باریک میشه
+
+
+چیزی که تا چند سال پیش فقط در فیلمهای علمی تخیلی میدیدیم، حالا کمکم در دنیای واقعی دیده میشود. در این ویدیو یک ربات انسان نما متعلق به شرکت تسلا به بازدیدکننده پاپکورن تحویل میدهد و نشان میدهد فناوری تا چه اندازه به زندگی روزمره نزدیک شده است
+
+Fact @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8608
 
@@ -202,22 +218,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هر وقت ایرانیا فهمیدن عادل فرقی با میساقی نداره بازیو بردن
-</div>
-
-## tasiyanc — post 8574
-
-<div align="center"><img src="files/post_8574_tasiyanc_8574.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•پرامپت اختصاصی جدید مرد - زن 🤖🤖
-
-•عکساتو زیباتر کن 💖
-
-•آموزش استفاده 👉
-
-
-🔺 دریافت پرامپت 👉
-
-@TASIYANC ⭐️
 </div>
 

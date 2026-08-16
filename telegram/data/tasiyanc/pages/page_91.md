@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/05/26 00:16
+📅 آخرین بروزرسانی: 1405/05/26 01:10
 
 ---
+
+## tasiyanc — post 6468
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۲سرور   سرعتی پرمیوم متد جدید🚀
+
+300 گیگ - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6467
 
@@ -223,11 +243,5 @@ new@Tasiyanc.ovpn
 😬Password :″  @Tasiyanc  ″
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داش این‌کانفنیگی که گذاشتی بات موشکه؟؟؟؟😐😂پشمماامممممم سرعتتوووووو
 </div>
 

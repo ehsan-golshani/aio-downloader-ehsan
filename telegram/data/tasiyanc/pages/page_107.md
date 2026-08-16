@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/05/26 00:16
+📅 آخرین بروزرسانی: 1405/05/26 01:10
 
 ---
+
+## tasiyanc — post 6055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۵ مین دیگه میزارم
+</div>
 
 ## tasiyanc — post 6054
 
@@ -125,12 +131,5 @@
 اکانت منم پریده
 توروخدا میشه کاری کرد برگرده
 پیج کاریم بوده
-</div>
-
-## tasiyanc — post 6031
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جامپ جامپ برای آیفون هم اپل آیدی میپرونه و بات شناسایی میکنه
-لطفا اطلاع رسانی کنید برای دوستانی ک اپل دارن
 </div>
 

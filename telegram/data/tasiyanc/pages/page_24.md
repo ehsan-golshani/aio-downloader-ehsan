@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/26 00:16
+📅 آخرین بروزرسانی: 1405/05/26 01:10
 
 ---
+
+## tasiyanc — post 8774
+
+<div align="center"><img src="files/post_8774_tasiyanc_8774.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرندی از افراد تیم مذاکره کننده :
+سپاه برای جنگ تمام عیار کامل آمادستِ
+</div>
 
 ## tasiyanc — post 8773
 
@@ -244,13 +253,5 @@ Vip for TS ⚡🔥.npvt
 
 ✔️ @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙄 همه بت باز های حرفه ای دنبال 🔞 شکار این بونوس ها هستن
-✅لیگ‌جهانی والیبال رو میتونید از اینجا پیشبینی کنید
-👇کافیه یه سر بزنی اینجا خودت میفهمی چه خبره 💯
 </div>
 
