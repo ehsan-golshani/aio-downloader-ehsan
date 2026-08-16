@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/25 18:41
+📅 آخرین بروزرسانی: 1405/05/25 19:18
 
 ---
+
+## tasiyanc — post 9343
+
+<div align="center"><video src="files/post_9343_tasiyanc_9343.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9343_tasiyanc_9343.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟ویدئوبازی محبوب Chicky choice🌟
+
+فقط کافیه مرغ از خیابون رد کنی و پولت افزایش بدی😍💵
+
+💖توی سایت بت اینجا بازی کن و پیش بینی کن و پول در بیار😍
+⬅️امکان شارژ با کارت بانکی راحت و امن
+⬅️تسویه حساب سریع بدون احراز
+
+🎁هربار شارژ کنی 12% بیشتر شارژ میشی✅
+🎁اگ باختی هم 10% باختت سایت بهت برگشت میده✅
+🚨ادرس ورود به سایت:
+💠http://betinja.bet/affiliates/?btag=2760677
+
+⚠️فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،امریکا،ترکیه،سنگاپور،فنلاند و...
+
+⭐کانال اطلاع رسانی سایت:👇 sr25
+💠https://t.me/+K0fAOE9hCUo3OGE8
+</div>
 
 ## tasiyanc — post 9342
 
@@ -269,14 +295,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 🔴پینگ نگیرید
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9315
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡ناو هواپیمابر ابراهام لینکلن پس از بیش از 260 روز عملیات و در پی بررسی شرایط گزارش‌شده، این ناو در حال بازگشت به خانه است
-
-@Tasiyanc 
-☑️
 </div>
 

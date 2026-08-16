@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/25 18:41
+📅 آخرین بروزرسانی: 1405/05/25 19:18
 
 ---
+
+## tasiyanc — post 5921
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐 وصل رو تمام اپراتورا ✅ vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.254:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=donya-e-eqtesad.com.tasnimnews.com.alef.ir.en.mehrnews.com.ent…
+</div>
 
 ## tasiyanc — post 5920
 
@@ -194,27 +200,5 @@ New⚡Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc Fast ⚡💗.npvt
-</div>
-
-## tasiyanc — post 5898
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
-سرور  سرعتی
-🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  ⚡️
-
-نحوه اتصال به سرورها ⏩
-
-🛜
-
-
-
-
-🦁  @Tasiyanc ✅
 </div>
 

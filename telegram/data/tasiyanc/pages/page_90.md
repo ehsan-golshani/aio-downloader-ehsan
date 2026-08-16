@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/05/25 18:41
+📅 آخرین بروزرسانی: 1405/05/25 19:18
 
 ---
+
+## tasiyanc — post 6484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حواسم نبود ، ریکشن چرا نزدید؟ 😐
+</div>
 
 ## tasiyanc — post 6483
 
@@ -218,11 +224,5 @@ https://t.me/addlist/IiFVViQyys81OWM0
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کمی صحبت؟ ( گپمون)
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنارووووووووو
 </div>
 

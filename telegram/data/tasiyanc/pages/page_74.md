@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/05/25 18:41
+📅 آخرین بروزرسانی: 1405/05/25 19:18
 
 ---
+
+## tasiyanc — post 7015
+
+<div align="center"><video src="files/post_7015_tasiyanc_7015.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7015_tasiyanc_7015.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 📶
+
+تست شده تمام نتها 🚀
+
+دانلود OpenVpn  
+🕹
+
+آموزش اتصال
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7013
 
@@ -244,15 +264,5 @@ T.me/Tasiyanc
 🔺 آموزش برای اندروید و iOS یکیست
 @Tasiyanc 
 💠
-</div>
-
-## tasiyanc — post 6980
-
-<div align="center"><video src="files/post_6980_tasiyanc_6980.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6980_tasiyanc_6980.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ متد اختصاصی httpCustum میزارم تست کنید
 </div>
 

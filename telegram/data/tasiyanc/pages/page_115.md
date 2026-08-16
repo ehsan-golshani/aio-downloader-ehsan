@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/05/25 18:41
+📅 آخرین بروزرسانی: 1405/05/25 19:18
 
 ---
+
+## tasiyanc — post 5850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایول کارت حرف نداره تاسیان عشقی
+</div>
 
 ## tasiyanc — post 5849
 
@@ -191,11 +197,5 @@ Premium Fast servers 🔥🌱.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 موشك داره میاد
-</div>
-
-## tasiyanc — post 5809
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-GM TASIYAN 💝
 </div>
 

@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/25 18:41
+📅 آخرین بروزرسانی: 1405/05/25 19:18
 
 ---
+
+## tasiyanc — post 8560
+
+<div align="center"><img src="files/post_8560_tasiyanc_8560.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💻 پرامپت جدید 🤖🤖
+
+پرتره زن با پیراهن قهوه‌ای 🍂
+
+
+A highly realistic medium shot of a young woman standing outdoors, centered in the frame. Built 100% from the unaltered facial features of the reference image, preserving the original face 100% exactly, hair unchanged. Her expression is calm and slightly pensive, gaze directed downward to the side. She stands relaxed, body slightly angled. Her right hand is in her trouser pocket, left hand lightly touching her collar. She wears an elegant oversized dark chocolate-brown textured linen-like button-up blouse, partially unbuttoned and tucked into light beige trousers. Accessories include graceful aviator sunglasses with a thin metal frame, a black beaded bracelet, and a delicate metallic watch. Soft natural diffused daylight with minimal shadows. Outdoor setting with heavy background blur, green foliage, and faint structures. Warm earthy tones, soft contrast, clean modern lifestyle aesthetic, high detail, and photorealism. STRICT FEMININE LOCK: elegant feminine styling only, graceful female outfit, soft feminine proportions, refined pose, tasteful feminine accessory, no masculine tailoring, no boxy menswear, no masculine body language, no facial or hair alteration. --ar 9:16
+
+
+پرتره مرد با پیراهن قهوه‌ای 🍂
+
+
+A highly realistic medium shot of a young man standing outdoors, centered in the frame. Built 100% from the unaltered facial features of the reference image, preserving the original face 100% exactly, hair unchanged. His expression is calm and slightly pensive, gaze directed downward to the side. He stands relaxed, body slightly angled. His right hand is in his trouser pocket, left hand lightly touching his collar. He wears an oversized dark chocolate-brown textured linen-like button-up shirt, partially unbuttoned and tucked into light beige trousers. Accessories include classic aviator sunglasses with a thin metal frame, a black beaded bracelet, and a metallic watch. Soft natural diffused daylight with minimal shadows. Outdoor setting with heavy background blur, green foliage, and faint structures. Warm earthy tones, soft contrast, clean modern lifestyle aesthetic, high detail, and photorealism. STRICT MASCULINE LOCK: strictly masculine styling only, menswear tailoring, structured shoulders, straighter silhouette, boxier fit, men’s fit, masculine proportions, sharp lines, minimal masculine accessory: metal watch OR signet ring OR thick chain, no feminine elements, no makeup. --ar 9:16
+
+
+Join As @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8556
 
@@ -200,15 +222,6 @@ Location 🤯 🇫🇷
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-💪 حمله سپاه به کویت
-@Tasiyanc 
 ⭐️
 </div>
 

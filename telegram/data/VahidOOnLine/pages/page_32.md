@@ -1,8 +1,46 @@
 # آرشیو کانال VahidOOnLine - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/25 18:38
+📅 آخرین بروزرسانی: 1405/05/25 19:15
 
 ---
+
+## VahidOOnLine — post 254677
+
+<div align="center"><video src="files/post_254677_VahidOOnLine_254677.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254677_VahidOOnLine_254677.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در سه‌شنبه ۲۰ مرداد، می‌گوید: «من بچه کوچک در خانه دارم اما یخچال کاملا خالی است.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254676
+
+<div align="center"><img src="files/post_254676_VahidOOnLine_254676.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محسن نقوی، وزیر کشور پاکستان، روز سه‌شنبه ۲۰ مرداد در سفر به تهران با عباس عراقچی، وزیر خارجه جمهوری اسلامی دیدار کرد.
+بر اساس این گزارش‌ها، اسکندر مومنی، وزیر کشور، از همتای پاکستانی خود استقبال کرد.
+
+اسلام‌آباد از زمان آغاز مذاکرات تهران و واشینگتن در نقش میانجی ظاهر شده و وزیر کشور پاکستان نیز طی ماه‌های اخیر چندین بار به ایران سفر کرده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254675
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت دفاع جمهوری اسلامی گزارش داد مجید ابن‌الرضا، سرپرست این وزارتخانه، و داتو سری محمد خالد نورالدین، وزیر دفاع مالزی، در یک تماس تلفنی درباره گسترش همکاری‌های دفاعی و نظامی دو کشور گفت‌وگو کردند.
+ابن‌الرضا انتقال تجربه، همکاری‌های فناورانه و همکاری در زمینه امنیت و ایمنی دریایی را از حوزه‌های مناسب برای گسترش روابط دو کشور دانست و از آمادگی جمهوری اسلامی برای به اشتراک گذاشتن ظرفیت‌های دفاعی خود با مالزی خبر داد.
+سرپرست وزارت دفاع در این تماس اسرائیل را «عامل اصلی بی‌ثباتی و ناامنی در منطقه» خواند و گفت جمهوری اسلامی هزینه سنگینی برای استقلال ایران داده‌ و زیر بار حرف زور نمی‌رود.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254674
 
@@ -268,47 +306,6 @@ Indypersian
 
 همزمان، درگیری‌ها در چند جبهه یمن نیز ادامه داشته است. بر اساس گزارش «العربیه» و «الحدث»، نیروهای دولتی یمن مواضع و تجهیزات حوثی‌ها را در چندین جبهه هدف قرار داده‌اند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254657
-
-<div align="center"><video src="files/post_254657_VahidOOnLine_254657.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254657_VahidOOnLine_254657.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده نشان می‌دهد گروهی از کوهنوردان با صعود قله علم‌کوه یاد جاویدنامان انقلاب ملی را گرامی داشتند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254656
-
-<div align="center"><img src="files/post_254656_VahidOOnLine_254656.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پارلمان لبنان روز سه‌شنبه بیستم مرداد، طرح لغو مجازات اعدام را تصویب کرد. به این ترتیب مجازات اعدام از نظام کیفری و قوانین این کشور حذف می‌شود.
-بر اساس این مصوبه، مجازات اعدام با حبس ابد جایگزین می‌شود. با تصویب این قانون، لبنان از کشوری که سال‌ها اجرای اعدام را عملا متوقف کرده بود، به کشوری تبدیل می‌شود که این مجازات را به‌صورت قانونی نیز از نظام کیفری خود حذف کرده است.
-عادل نصار، وزیر دادگستری لبنان، تصویب این قانون را گامی تاریخی توصیف از لغو مجازات اعدام حمایت کرد.
-لبنان آخرین بار در سال ۲۰۰۴ حکم اعدام را اجرا کرد و از آن زمان، اگرچه مجازات اعدام همچنان در قوانین این کشور وجود داشت، اجرای آن عملا متوقف بود.
-حامیان لغو اعدام می‌گویند این تصمیم علاوه بر جنبه حقوق بشری، می‌تواند در روابط قضایی لبنان با کشورهایی که اجرای مجازات اعدام را ممنوع کرده‌اند نیز تاثیرگذار باشد؛ از جمله در روند استرداد متهمان و مجرمان، زیرا برخی کشورها مجرمان را به کشوری که احتمال اجرای حکم اعدام در آن وجود دارد، مسترد نمی‌کنند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254655
-
-<div align="center"><video src="files/post_254655_VahidOOnLine_254655.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254655_VahidOOnLine_254655.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، انباشت زباله در کوچه‌های شهرک نساجی کرمانشاه را نشان می‌دهد.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

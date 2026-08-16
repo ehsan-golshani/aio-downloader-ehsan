@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/25 18:41
+📅 آخرین بروزرسانی: 1405/05/25 19:18
 
 ---
+
+## tasiyanc — post 9130
+
+<div align="center"><img src="files/post_9130_tasiyanc_9130.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پول درآوردن از بت دقیقا جاییه که فرق استراتژی داشتن و ادعا داشتن رو مشخص میکنه 👌
+
+15 بازی 15 برد ✅
+
+من به پول شما نیاز ندارم و چیزیم به شما نمیخوام بفروشم
+g18
+لینک چنل
+https://t.me/+_btGj-rRAxs3NGVk
+https://t.me/+_btGj-rRAxs3NGVk
+</div>
 
 ## tasiyanc — post 9129
 
@@ -285,13 +301,5 @@ cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, str
 توجه : اسکنر نپستر باگ داره پینگ نگیرید
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9109
-
-<div align="center"><img src="files/post_9109_tasiyanc_9109.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
 </div>
 

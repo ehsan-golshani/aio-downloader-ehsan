@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/25 18:41
+📅 آخرین بروزرسانی: 1405/05/25 19:18
 
 ---
+
+## tasiyanc — post 8343
+
+<div align="center"><img src="files/post_8343_tasiyanc_8343.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه خانواده بندرعباسی بچه‌شونو داخل یه تیکه کائوچو میذارن که کنار دریا بازی کنه
+حواس خانواده پرت میشه آب بچه رو میبره و نیروی دریایی ارتش این بچه رو لب مرز دریایی امارات پیدا میکنن و برمیگردونن🤣🤣
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8342
 
@@ -177,11 +188,5 @@
 🚨گزارش انفجار ۱۰ مین پیش در یزد از اعضای عزیز
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خاورمیانه آرومه امشب انگار؟
 </div>
 
