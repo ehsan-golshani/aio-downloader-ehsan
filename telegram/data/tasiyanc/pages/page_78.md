@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/25 11:25
+📅 آخرین بروزرسانی: 1405/05/25 12:16
 
 ---
+
+## tasiyanc — post 6861
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ربات دانلودر اختصاصی کانال تاسیان بدون جوین اجباری 💬📹💬
+
+دانلود با سرعت بالا , همراه با ارسال جدای فایل موزیک ریلز ها
+
+🟢 @TasiyanAploadBot
+</div>
 
 ## tasiyanc — post 6860
 
@@ -200,12 +210,5 @@ vless://dc8eccdb-ecfa-435f-9ac1-5dc4882e7b51@162.19.228.119:80?path=%2Fhttp&secu
 آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6832
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ مخصوص روبیکا
-گیگی ۵۰۰ بدون قطعی🤣🤣🤣
 </div>
 

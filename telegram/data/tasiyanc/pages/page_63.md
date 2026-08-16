@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/25 11:25
+📅 آخرین بروزرسانی: 1405/05/25 12:16
 
 ---
+
+## tasiyanc — post 7412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گلللللللللللللللللللل مصرررررر 🇪🇬
+</div>
 
 ## tasiyanc — post 7411
 
@@ -218,25 +224,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡ Summer Vip.npvt
-</div>
-
-## tasiyanc — post 7355
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆پخش زنده مسابقات جام جهانی 2026
-
-https://roxiestreams.su/soccer
-
-https://streamcorner.fyi/fifa-world-cup
-
-https://totalsportek.tips/football
-
-https://www.bintv.net
-
-https://soccerstreams.sbs
-
-https://strumyk.net
-سایت هایی که باز نمیشه رو باید با وی پی ان باز کنید
-💘@Tasiyanc | تاسیان
 </div>
 

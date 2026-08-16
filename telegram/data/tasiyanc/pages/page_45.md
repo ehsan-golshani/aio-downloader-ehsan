@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/25 11:25
+📅 آخرین بروزرسانی: 1405/05/25 12:16
 
 ---
+
+## tasiyanc — post 8124
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کامبککککک میزنه آرژانتین
+</div>
 
 ## tasiyanc — post 8123
 
@@ -195,12 +201,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 شخصیت‌های کارتونی که باهاشون خندیدیم پیر شدن....
 
 @Tasiyanc ⭐️ | بانك کانفیگ
-</div>
-
-## tasiyanc — post 8099
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢 فوری، رمضان رحیمی عضو کمیسیون آموزش: اگر شرایط جنگ و بحرانی ادامه پیدا کنه، کنکور به تعویق خواهد خورد.
-@Tasiyanc ⭐️
 </div>
 

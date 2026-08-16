@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/25 11:25
+📅 آخرین بروزرسانی: 1405/05/25 12:16
 
 ---
+
+## tasiyanc — post 9092
+
+<div align="center"><video src="files/post_9092_tasiyanc_9092.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9092_tasiyanc_9092.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پیشنهاد_ویژه 
+⚠️
+
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
+دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید
+⭐
+</div>
 
 ## tasiyanc — post 9091
 
@@ -284,46 +299,5 @@ https://t.me/+5fvta-uF4QA3ZDY0
 
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9071
-
-<div align="center"><video src="files/post_9071_tasiyanc_9071.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9071_tasiyanc_9071.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 
-🖤 Config Unlimated Vip 
-⚡️━━━╮
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@89.116.161.84:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%E2%9A%A1%EF%B8%8F%20fast
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@216.205.52.151:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%E2%9A%A1%EF%B8%8F%20fast
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@94.247.142.167:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@89.116.161.84:2087?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%94%B1
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@104.29.111.147:2087?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%94%B1
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@45.128.76.171:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@103.116.7.174:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
-
-ANDROID 
-🕹
-V2box
-🔐 Npv tunnel 
-🔐  V2rayNG 
-🔐
-iOS  
-📱
-V2BOX 
-🔐  Npv tunnel 
-🔐
-
-Join As @TASIYANC 
-✅
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/25 11:25
+📅 آخرین بروزرسانی: 1405/05/25 12:16
 
 ---
+
+## tasiyanc — post 8922
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترور در قلب مسکو
+به گزارش چندین خبرگزاری خارجی ساعاتی پیش الکساندر چایکو « فرمانده هوا فضای ارتش روسیه » در روز تولدش ترور شد تعدادی از فرماندهان رده بالا نیز در اثر انفجار کشته یا زخمی شدند - تایید / رد نمیشود
+
+💙@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8921
 
@@ -270,15 +279,5 @@ vmess://eyJhZGQiOiI1LjE4OC4xOTAuMjUyIiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔺 کاخ سفید : خداوند سربازان ما را حفظ کند جنگ سهمگین در راهه؟ 🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8897
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 کاخ سفید : خداوند سربازان ما را حفظ کند
-
-جنگ سهمگین در راهه؟
-
-🔱 @TASIYANC
 </div>
 

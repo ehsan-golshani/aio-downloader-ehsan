@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/25 11:25
+📅 آخرین بروزرسانی: 1405/05/25 12:16
 
 ---
+
+## tasiyanc — post 8802
+
+<div align="center"><video src="files/post_8802_tasiyanc_8802.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8802_tasiyanc_8802.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢ترامپ: آمریکا به‌زودی «ضربه بسیار سختی» به ایران خواهد زد.
+ایران شب گذشته پنج موشک شلیک کرده که همگی رهگیری شدن، حالا نوبت ماست.
+باید دید در نهایت توافقی حاصل میشه یا نه.
+
+⭐ @TASIYANC ⭐️ | پروکسی متصل
+</div>
 
 ## tasiyanc — post 8801
 
@@ -217,17 +231,5 @@ Multi Location ⚡
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
-</div>
-
-## tasiyanc — post 8780
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨بیانیه سنتکام:
-
-امروز ساعت 5:45 عصر به وقت شرق آمریکا، نیروهای سپاه پاسداران چند موشک بالستیک از داخل ایران به سمت نیروهای آمریکایی مستقر در خاورمیانه شلیک کردن تا یه حمله غافلگیرکننده انجام بدن.
-
-با این حال، همه موشک‌ها رهگیری و منهدم شدن و نیروهای آمریکایی همچنان در بالاترین سطح آماده‌باش هستن
-
-@Tasiyanc ⭐️
 </div>
 

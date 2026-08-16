@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/25 11:25
+📅 آخرین بروزرسانی: 1405/05/25 12:16
 
 ---
+
+## tasiyanc — post 5908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2Vip🇩🇪.npvt
+</div>
 
 ## tasiyanc — post 5906
 
@@ -215,12 +221,5 @@ Melli shekan 🪐.npvt
 Npv ❤️
 
 Ovpn 🔥
-</div>
-
-## tasiyanc — post 5884
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید قبول کنیم نپستر سرعتش بیشتره از اوپنه ، زمان اتصالش سریعه و کلی موارد دیگه
-سرور ovpn شلوغ باشه ارور متعدد روبرو میشید و و و
 </div>
 

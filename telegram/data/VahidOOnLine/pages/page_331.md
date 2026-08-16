@@ -1,8 +1,45 @@
 # آرشیو کانال VahidOOnLine - صفحه 331
 
-📅 آخرین بروزرسانی: 1405/05/25 11:23
+📅 آخرین بروزرسانی: 1405/05/25 12:14
 
 ---
+
+## VahidOOnLine — post 247559
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️صادق خرازی با طرح ادعایی درباره نحوه مرگ برادرش، کمال خرازی، گفت یک سرویس اطلاعاتی خارجی به آنها اطلاع داده است که برادر او در حالی که دوران درمان را در بیمارستان سپری می‌کرد، ترور شده است.
+او مدعی شد که وضعیت جسمانی کمال خرازی رو به بهبود بوده، اما پس از انتقال به بخش عمومی بیمارستان، به‌صورت استنشاقی هدف عملیات ترور قرار گرفته است. صادق خرازی جزئیات بیشتری درباره عامل این اقدام یا مستندات ادعای خود ارائه نکرده است.
+کمال خرازی، وزیر امور خارجه پیشین جمهوری اسلامی و رئیس شورای راهبردی روابط خارجی، در حمله به محل سکونتش مجروح شده بود و روز ۲۰ فروردین ۱۴۰۵ بر اثر جراحات وارده جان باخت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247558
+
+<div align="center"><video src="files/post_247558_VahidOOnLine_247558.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247558_VahidOOnLine_247558.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد در مراسم چهلم عباس اکبری فیض‌آبادی، معترض در انقلاب ملی که پس از بازداشت به دست جمهوری اسلامی اعدام شد، فریاد زدند: «جاویدنام روحت شاد.» اکبری فیض‌آبادی در اعتراضات دی‌ماه بازداشت و در خردادماه اعدام شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247557
+
+<div align="center"><video src="files/post_247557_VahidOOnLine_247557.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247557_VahidOOnLine_247557.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد رانندگان استیجاری فعال در خدمات حمل و نقل در مقابل نهاد ریاست‌جمهوری تجمع اعتراضی برگزار کردند. آن‌ها خواستار رسیدگی به مطالبات خود در زمینه پرداخت و حقوق شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247556
 
@@ -237,41 +274,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️رامین رضاییان در دقیقه ۱۴ بازی توانست با باز کردن دروازه مصر، نتیجه بازی را ۱-۱ مساوی کند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247539
-
-<div align="center"><img src="files/post_247539_VahidOOnLine_247539.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حمیدرضا محمدحسینی تختی، مدیر بنادر شرق استان هرمزگان، گفت: وضعیت بندر سیریک عادی است و خسارتی به بندر و تجهیزات و اسکله‌های آن وارد نشده است.
-
-به گزارش خبرگزاری مهر، او اشاره کرد که بندر سیریک روال طبیعی و عادی دارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247538
-
-<div align="center"><img src="files/post_247538_VahidOOnLine_247538.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️محمود صابر در دقیقه ۵ بازی موفق شد گل اول را برای تیم ملی مصر مقابل ایران به ثمر برساند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247537
-
-<div align="center"><img src="files/post_247537_VahidOOnLine_247537.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️سوت آغاز دیدار «سرنوشت‌ساز» تیم‌های ملی فوتبال ایران و مصر در مرحله گروهی رقابت‌های جام جهانی ۲۰۲۶، صبح جمعه به وقت تهران، به صدا درآمد و دو تیم در ورزشگاه سیاتل ایالات متحده به مصاف یکدیگر رفتند. این مسابقه که به دلیل موقعیت دو تیم در جدول گروه G و تلاش برای صعود به مرحله یک‌سی‌ودوم نهایی از اهمیت بالایی برخوردار است، در حالی آغاز شده که تب فوتبال در میان هواداران به اوج خود رسیده و بر اساس مصوبه استانداری‌ها، ساعت آغاز به‌کار ادارات در ۱۹ استان کشور با «تاخیر ۲ ساعته» همراه شده است. شاگردان امیر قلعه‌نویی پس از تساوی برابر بلژیک و نیوزیلند، در این مسابقه تنها با هدف کسب امتیاز کامل و قطعی کردن صعود خود به مرحله حذفی گام به میدان گذاشته‌اند.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
