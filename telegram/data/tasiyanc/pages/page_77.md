@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/25 15:38
+📅 آخرین بروزرسانی: 1405/05/25 16:35
 
 ---
+
+## tasiyanc — post 6912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📊 حجم : نامحدود  |  ⏳انقضا : 30Day
+📶 وضعیت اتصال : فعال ✅
+⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید
+
+دریافت کانفیگ نامحدود رایگان
+
+🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
+</div>
+
+## tasiyanc — post 6911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بخاطر شرایط احتمالا جنگی‌امشب یه چنتا سرور اختصاصی بریم؟
+</div>
+
+## tasiyanc — post 6910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این endpoit هارو جایگزین قبلی کنین (وایرگارد)
+8.6.112.235:1070
+8.6.112.228:1843
+8.6.112.19:908
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6908
 
@@ -175,25 +203,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpvWklvQTY5UTh5aGNRVjhrYTNQYTNB@82.38.31.11:80
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6873
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال شدید رو خطوط همراه داریم دلیلش نمیدونم
-</div>
-
-## tasiyanc — post 6872
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال ۱۲ اسرائیل ⭕️⭕️ ❌
-نعیم قاسم فرمانده حزب الله ترور شد
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[46] 🪐@Tasiyanc.conf
 </div>
 

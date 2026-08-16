@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/25 15:38
+📅 آخرین بروزرسانی: 1405/05/25 16:35
 
 ---
+
+## tasiyanc — post 9308
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+
+تست شده تمام نت‌ها 
+🛜
+🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+⭕️ تمام برنامه هارو ببندید بعد وصل بشید
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر عشقا
+</div>
+
+## tasiyanc — post 9306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+✅اسپانسر لیگ انگلستان
+👑 امکان شارژ و برداشت با کارت بانکی
+⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
+😀Telegram Channel👇
+https://t.me/+c5jwC3lt9z45NTE0
+</div>
 
 ## tasiyanc — post 9305
 
@@ -225,10 +264,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 </div>
 
 ## tasiyanc — post 9283
-
-## tasiyanc — post 9281
-
-## tasiyanc — post 9280
-
-## tasiyanc — post 9279
 

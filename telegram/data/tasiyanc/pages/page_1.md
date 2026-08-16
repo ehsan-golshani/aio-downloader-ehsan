@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/25 15:38
+📅 آخرین بروزرسانی: 1405/05/25 16:35
 
 ---
+
+## tasiyanc — post 9360
+
+<div align="center"><img src="files/post_9360_tasiyanc_9360.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 🆕
+
+" Shadow Queen — Target: You ♟️🖤 "
+
+Prompt 🤖🤖
+
+
+A realistic photo of a powerful, mysterious young woman with dark, tousled hair, wearing a black blazer and several rings. She sits at a wooden table in a dimly lit, shadowy war room or study, holding a pen to her chin and looking directly at the camera with a confident, piercing gaze. In the foreground, a single black chess king piece sits on a detailed map. Behind her, a dark chalkboard reveals handwritten text: 'TARGET: YOU', with bullet points below: 'WEAKNESSES', 'ROUTINES', 'ALLIES', 'NEXT MOVE'. Surveillance photos are pinned to the wall next to the board. The atmosphere is intense, cold, and dramatic. The lighting is low and focused on her face and the text, creating depth and shadows.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9359
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قدیمی ترین سایت فعال در ایران✅
+امنیت،امکانات،تضمین پرداخت💎
+</div>
+
+## tasiyanc — post 9358
+
+<div align="center"><img src="files/post_9358_tasiyanc_9358.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅چرا سایت بین المللی ماف بت بهترین انتخاب برای پیش بینی و شرط بندی❓
+1️⃣ شارژ و برداشت اسان و سریع
+2️⃣پر اپشن ترین سایت فعال در ایران
+3️⃣دارای مجوز رسمی curacao
+4️⃣کارت به کارت همیشه فعال
+
+➖هدایا بی نظیر ماف بت:👇
+🎁 100% بونوس خوشامدگویی
+🎁 تا 20%برگشت باخت هفتگی
+🎁10% شارژ اضافی روی شارژ دلاری
+🎁و15%و20%شارژ اضافی نقدی برای 3 واریز اول هر روز
+
+👍 با فعالیت در ماف بت طعم واقعی امکانات در سایت جهانی حس میکنید👍
+g25
+🎯ادرس بدون فیلتر سایت:
+✅https://mafbet.com/fa/?btag=260368
+✔️ کانال تلگرام سایت:
+👑https://t.me/+8eCDvbzSV5JlZjlk
+</div>
 
 ## tasiyanc — post 9356
 
@@ -200,54 +252,5 @@ https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
 
 
 @Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 16 August، روز جهانی جوک گفتن و کصخل بازیه
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9338
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎲 با اولین شارژ  🤩🤩🤩درصد شارژ بیشتر بگیر
-🎲 بازگشت هفتگی 🤩🤩 درصد
-🎲 هر واریز با کریتپو 🤩🤩 درصد هدیه بگیر
-
-🎲ورود به سایت و دریافت بونوس ۳۰۰ درصد
-👇🏻👇🏻
-🎲  🌐winro.io🎲
-
-کانال اخبار و هدایا👇🏻
-🌐Telegram
-</div>
-
-## tasiyanc — post 9337
-
-<div align="center"><img src="files/post_9337_tasiyanc_9337.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆 بیمه ی 🤩🤩🤩 درصدی سوپرکاپ فرانسه
-
-🎲 در صورت شارژ حساب و پیش بینی اشتباه بازی سوپرکاپ فرانسه 100 درصد مبلغ شرط را از وینرو هدیه بگیرید‼️
-
-⚽️ لانس⚽️✖️⚽️ پاری سن ژرمن
-⏰ امشب ساعت 22:15
-🚨 ورزشگاه بولار دللیس
-
-🎲ثبت نام آسان و سریع کلیک کنید🎲
-
-✅🤩🤩🤩🤩 بونوس اولین واریز
-✅🤩🤩🤩بونوس واریز کریپتو
-✅تا🤩🤩🤩🤩 بونوس روی برگه‌های ترکیبی
-✅پخش زنده ی تمام مسابقات 🎰
-✅درگاه اختصاصی برای کاربران 💰
-🔊اپلیکیشن حرفه ای 📱
-sr25
-    🎲🎲🎲🎲🎲  معتبرترین سایت ایران
 </div>
 

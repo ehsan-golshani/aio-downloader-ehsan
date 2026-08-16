@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/25 15:38
+📅 آخرین بروزرسانی: 1405/05/25 16:35
 
 ---
+
+## tasiyanc — post 8953
+
+<div align="center"><img src="files/post_8953_tasiyanc_8953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از این منبع VIP روسی هروز براتون فرم میزاریم😍🔥
+
+برای دریافت وارد کانال زیر شوید🔽🔽🔽
+
+https://t.me/+gTClYDoqQdhkZjY8
+
+g12
+
+https://t.me/+gTClYDoqQdhkZjY8
+
+     🔼🔼🔼🔼🔼🔼🔼🔼🔼
+</div>
+
+## tasiyanc — post 8952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خط فقر برای یک خانواده ۴ نفره در تهران به ۹۰ میلیون تومن رسیده.
+یعنی اگه درآمد کل خانواده از این مبلغ کمتر باشه زیر خط فقر حساب می‌شن در حالی که حقوق پایه وزارت کار فقط حدود 17 میلیون تومنه.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated ⚡️ ━━━╮
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@ronaldo15.fordnsdirect.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40TASIYANC%20%F0%9F%92%96
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@108.162.198.5:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%F0%9F%8F%9D%EF%B8%8F%40Tasiyanc%20%F0%9F%92%A5
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca8.directdnsai.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40TASIYANC%20%F0%9F%8F%86
+
+ss://YWVzLTI1Ni1nY206UmV4bkJnVTdFVjVBRHhH@185.213.20.110:7001#%40Tasiyanc%20%F0%9F%87%AE%F0%9F%87%B9
+
+Location ⚡️🇮🇹
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8949
 
@@ -219,31 +263,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 
 
 👹@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8931
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا یک ساعت دیگه یه سایت عالی براتون معرفی میکنم ( که هیچ جایی به شما معرفی نشده) که احتمالا خیلی بکارتون بیاد
-</div>
-
-## tasiyanc — post 8930
-
-## tasiyanc — post 8929
-
-<div align="center"><img src="files/post_8929_tasiyanc_8929.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#کاربردی 🆕
-
-🔎 اگه همیشه استرس اینو داشتید که یه سایت کلاهبرداریه یا نه، این ابزار آنلاین کمکتون می‌کنه هر سایتی رو زیر و رو کنید، درصد احتمال کلاهبردار بودنشو ببینید و دلیلشم بفهمید.
-
-
-• سایت‌ها رو کامل بررسی می‌کنه و نمره اعتماد میده
-• درصد احتمال اسکم بودن رو نشون میده
-• دلیل این تحلیل‌ها رو واضح و راحت توضیح میده
-👉 https://scamminder.com/
-
-👹 @TASIYANC ✅
 </div>
 

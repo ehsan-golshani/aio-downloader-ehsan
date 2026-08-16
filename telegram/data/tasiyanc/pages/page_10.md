@@ -1,8 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/25 15:38
+📅 آخرین بروزرسانی: 1405/05/25 16:35
 
 ---
+
+## tasiyanc — post 9125
+
+<div align="center"><video src="files/post_9125_tasiyanc_9125.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9125_tasiyanc_9125.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی جدید 
+🆕
+
+Midnight Street Style → prompt 
+🤖
+🤖
+
+مرد
+
+​"A close-up moody urban portrait of a handsome young man with long wavy dark hair and a beard, wearing dark-tinted sunglasses. He is dressed in an all-dark outfit: a textured charcoal grey nylon bomber jacket, a charcoal t-shirt, and dark grey washed jeans. He is leaning back against a black industrial structure. His posture is relaxed and cool, with his hand resting near his chest, gazing slightly away. The lighting is diffused and dark, emphasizing the moody atmosphere. High-resolution, cinematic quality, natural skin, rich dark color palette."
+
+
+زن
+
+​"A moody street style portrait of a stylish woman with wavy blonde hair leaning against a concrete column. She is wearing an oversized flannel shirt with a grey and black plaid pattern, light grey relaxed-fit denim jeans, a beige baseball cap worn backward, and cat-eye sunglasses. Large intricate gold hoop earrings are visible. Her pose is confident, looking off to the side. The background features a dark wood paneled garage door. High-end streetwear editorial photography, dark and muted tones, cinematic natural lighting, realistic skin textures."
+
+
+آموزش استفاده 
+👉
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9124
+
+<div align="center"><video src="files/post_9124_tasiyanc_9124.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9124_tasiyanc_9124.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی کانال 
+🆕
+
+Oreo Hair — Night Selfie 
+🤖
+🤖
+
+Prompt - بزنید روش کپی میشه
+
+An extremely unremarkable iPhone mirror selfie photo with no clear subject or framing—just a careless snapshot. The photo has a touch of motion blur, and mildly overexposed from uneven sunlight. The angle is awkward, the composition nonexistent, and the overall effect is aggressively mediocre—like a photo taken by accident while pulling the phone out of a pocket to take the selfie. It's of an e girl in a skirt, oversized (very big) black hoodie, and has tight, white legs warmers with converse shoes, she holds her legs up, she is sitting in the sofa, her face is visible, she has oreo hair, vertical 9:16 aspect ratio, no lights, it’s night, the mirror is slightly dirty.
+
+آموزش استفاده 
+♻️
+
+Join As @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرگزاری تسنیم : حمیدرضا رجب‌زاده، مداحی که چند روزی بود گم شده بود، به قتل رسیده و فیلم لحظه قتلش به خانواده‌‌اش ارسال شده، پلیس فعلا داره پیگیری می‌کنه. « مشاهده »
+</div>
 
 ## tasiyanc — post 9122
 
@@ -230,34 +292,5 @@ fashion editorial photography, front shot, upper body, professional female model
 بازگشایی تنگه هرمز منوط به پذیرش کامل شرایط ما از سوی ایالات متحده است.
 بازگشایی تنگه هرمز تابع سازوکارها و شرایط تعیین‌شده توسط جمهوری اسلامی ایران است و ارتباطی با مذاکرات ایران و عمان ندارد.
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9103
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9102
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴قوه قضاییه : آیت‌الله خرازی به دلیل حرف های کذب و دروغش تحت تعقیب قرار گرفت و براش تشکیل پرونده دادیم.
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9099
-
-<div align="center"><img src="files/post_9099_tasiyanc_9099.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت Vip جدید 🆕
-
-Prompt 🤖🤖
-عکس دخترانه هم میشه بدید
-A person with slicked-back dark hair wearing oversized square sunglasses is shown in a dramatic, cinematic portrait. The lighting creates a strong shadow across the face, revealing only part of the skin tone and features, while the background is a vibrant gradient of deep red to orange, forming a glowing circular or sun-like halo effect behind the head. The clothing is dark, almost blending into the shadows, giving the portrait a bold, fashion-editorial, and futuristic mood.
-آموزش استفاده 👉
-
-@TASIYANC ✅
 </div>
 

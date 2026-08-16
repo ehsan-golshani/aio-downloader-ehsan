@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 122
 
-📅 آخرین بروزرسانی: 1405/05/25 15:38
+📅 آخرین بروزرسانی: 1405/05/25 16:35
 
 ---
+
+## tasiyanc — post 5664
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+WİFİ موشک.npvt
+</div>
+
+## tasiyanc — post 5663
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گوشه ای از محبت مردم عزیز وطنم ❤️ همه رو نمیشه بزارم ، سپاس از همتون
+</div>
+
+## tasiyanc — post 5662
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود به دوستان گلم
+خسته نباشید میگم بهتون
+جا داره ازتون تشکر کنم بابت زحمات زیادی که کشیدید من به شخصه یادم میمونه که تو چه شرایطی پشت مردمتون بودید
+دم معرفتتون گرم
+امیدوارم بتونیم جبران کنیم 💙💙
+</div>
 
 ## tasiyanc — post 5646
 
@@ -172,31 +194,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرورای وای‌فای ک بالا گذاشتم هنوز وصله✅
-</div>
-
-## tasiyanc — post 5627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی
-</div>
-
-## tasiyanc — post 5626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کی از همه قشنگتره؟ کامنتارو 🗿
-</div>
-
-## tasiyanc — post 5625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈1 سرور تست شده wifi⛈
-
-برای اتصال پایدار صبور باشید🚀
-
-🚀 @Tasiyanc ✅
 </div>
 

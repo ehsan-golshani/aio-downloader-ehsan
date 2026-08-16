@@ -1,8 +1,55 @@
 # آرشیو کانال VahidOOnLine - صفحه 430
 
-📅 آخرین بروزرسانی: 1405/05/25 15:36
+📅 آخرین بروزرسانی: 1405/05/25 16:33
 
 ---
+
+## VahidOOnLine — post 244985
+
+<div align="center"><img src="files/post_244985_VahidOOnLine_244985.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سی‌ان‌ان گزارش داد جمهوری اسلامی ماه‌هاست برای احتمال عملیات آمریکا جهت تصرف جزیره خارک آماده شده و با استقرار پدافند هوایی، سامانه‌های دوش‌پرتاب زمین به هوا و مین‌گذاری در ساحل، دفاع خود را تقویت کرده است.
+
+بر اساس این گزارش، تقویت تدابیر دفاعی جمهوری اسلامی شامل استقرار سامانه‌های موشکی هدایت‌شونده زمین به هوا و دوش‌پرتاب در این جزیره بوده است.
+
+سی‌ان‌ان نوشت که جمهوری اسلامی همچنین با استفاده از مین‌های ضدنفر و ضدزره، از جمله در نوار ساحلی که ممکن است محل پیاده‌سازی نیروهای آمریکایی در صورت صدور دستور عملیات زمینی از سوی ترامپ باشد، اقدام به تله‌گذاری کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244984
+
+<div align="center"><img src="files/post_244984_VahidOOnLine_244984.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مقام‌های آتش‌نشانی و امداد شهرستان آرلینگتون اعلام کردند آتش‌نشانان روز پنجشنبه، در حال بررسی یک حادثه مرتبط با مواد خطرناک در ساختمان پنتاگون هستند.
+
+سی‌ان‌ان به نقل از چند منابع گزارش داد این ساختمان در وضعیت قرنطینه قرار گرفته و چندین طبقه آن تخلیه شده است.
+
+سخنگوی پنتاگون تایید کرد سامانه‌های داخلی «مشکل کیفیت هوا» را شناسایی کرده‌اند که مستلزم اقدامات احتیاطی تا زمان روشن شدن اهمیت آن است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244983
+
+<div align="center"><img src="files/post_244983_VahidOOnLine_244983.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ مقامات آتش‌نشانی و امداد و نجات شهرستان آرلینگتون در شبکه اجتماعی ایکس اعلام کردند که ماموران آتش‌نشانی در حال بررسی حادثه‌ای مربوط به مواد خطرناک (Hazardous Materials) در ساختمان پنتاگون هستند.
+
+شبکه خبری سی‌ان‌ان نیز به نقل از منابع ناشناس گزارش داد که این ساختمان تحت قرنطینه و تدابیر شدید امنیتی قرار گرفته و کارکنان چندین طبقه از آن تخلیه شده‌اند.
+
+در همین حال، سخنگوی پنتاگون در این باره اعلام کرد: «پنتاگون متوجه مشکلی در کیفیت هوای ساختمان شده است که تا زمان تعیین میزان اهمیت و خطر آن، اتخاذ اقدامات پیشگیرانه را ضروری ساخته است.»
+
+او در ادامه افزود: «وزارت دفاع در حال اجرای پروتکل‌های حفاظتی استاندارد است؛ این اقدامات شامل صدور دستور پناه‌گیری در محل (Shelter-in-place) برای بخش‌های آسیب‌دیده ساختمان می‌شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244947
 
@@ -237,45 +284,6 @@
 
 مخبر که در مراسم اولین سالگرد کشته شدن حسین سلامی، فرمانده کل پیشین سپاه شرکت کرده بود، در پاسخ به خبرنگاران گفت: «موضع ما در مذاکرات این است که یک سر سوزن از منافع نظام کوتاه نمی‌آییم.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244930
-
-<div align="center"><video src="files/post_244930_VahidOOnLine_244930.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244930_VahidOOnLine_244930.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پس از تصویب قطعنامه شورای حکام علیه برنامه هسته‌ای جمهوری اسلامی، میخائیل اولیانوف، نماینده روسیه در آژانس در گفت‌وگویی اختصاصی با ایران‌اینترنشنال این قطعنامه را «شرم‌آور» و «ریاکارانه» توصیف کرد و آمریکا و اسرائیل را مسئول تضعیف همکاری میان جمهوری اسلامی و آژانس دانست
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244922
-
-<div align="center"><video src="files/post_244922_VahidOOnLine_244922.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244922_VahidOOnLine_244922.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شب گذشته آمریکا اهدافی را عمدتا در نزدیکی تنگه هرمز هدف قرار داد. این حملات در میانه مذاکرات با جمهوری اسلامی انجام شد و به نظر می‌رسد هدف آن افزایش فشار بر تهران باشد. حالا پرسش اصلی این است که بحران تنگه هرمز به کجا خواهد انجامید؟
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244904
-
-<div align="center"><video src="files/post_244904_VahidOOnLine_244904.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244904_VahidOOnLine_244904.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشا‌ن‌دهنده پرواز دو جنگنده در آسمان بندرعباس است. به گفته یک شهروند حدود ساعت ۴:۱۰ بامداد پنج‌شنبه، همزمان با عبور جنگنده‌ها صدای چهار تا پنج انفجار شدید در این شهر شنیده شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
