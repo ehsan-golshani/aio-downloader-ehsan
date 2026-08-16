@@ -1,12 +1,74 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/25 01:16
+📅 آخرین بروزرسانی: 1405/05/25 09:14
 
 ---
 
-## tasiyanc — post 9336
+## tasiyanc — post 9340
 
-<div align="center"><a href="files/post_9336_اختلال شکن - مولتی.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 اختلال شکن - مولتی.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای همراه اول و بقیه اوپراتور ها
+
+ساب نامحدود - ارسالی از GTXll
+
+https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
+
+آموزش ویدیویی اضافه کردن ساب 💘
+
+
+@Tasiyanc 💠 | اتصال امن
+</div>
+
+## tasiyanc — post 9339
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز 16 August، روز جهانی جوک گفتن و کصخل بازیه
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9338
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎲 با اولین شارژ  🤩🤩🤩درصد شارژ بیشتر بگیر
+🎲 بازگشت هفتگی 🤩🤩 درصد
+🎲 هر واریز با کریتپو 🤩🤩 درصد هدیه بگیر
+
+🎲ورود به سایت و دریافت بونوس ۳۰۰ درصد
+👇🏻👇🏻
+🎲  🌐winro.io🎲
+
+کانال اخبار و هدایا👇🏻
+🌐Telegram
+</div>
+
+## tasiyanc — post 9337
+
+<div align="center"><img src="files/post_9337_tasiyanc_9337.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆 بیمه ی 🤩🤩🤩 درصدی سوپرکاپ فرانسه
+
+🎲 در صورت شارژ حساب و پیش بینی اشتباه بازی سوپرکاپ فرانسه 100 درصد مبلغ شرط را از وینرو هدیه بگیرید‼️
+
+⚽️ لانس⚽️✖️⚽️ پاری سن ژرمن
+⏰ امشب ساعت 22:15
+🚨 ورزشگاه بولار دللیس
+
+🎲ثبت نام آسان و سریع کلیک کنید🎲
+
+✅🤩🤩🤩🤩 بونوس اولین واریز
+✅🤩🤩🤩بونوس واریز کریپتو
+✅تا🤩🤩🤩🤩 بونوس روی برگه‌های ترکیبی
+✅پخش زنده ی تمام مسابقات 🎰
+✅درگاه اختصاصی برای کاربران 💰
+🔊اپلیکیشن حرفه ای 📱
+sr25
+    🎲🎲🎲🎲🎲  معتبرترین سایت ایران
+</div>
+
+## tasiyanc — post 9336
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 •کانفیگ اختصاصی نامحدود نپسترنت📱
@@ -212,52 +274,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 
 تو این روز باید استرس رو بریزین دور، و در کمال آرامش، از لحظه به لحظه زندگی، لذت ببرین.
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9309
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیست افرادی که در پویش جان فدا ثبت‌نام کرده بودن توسط هکرهای اسرائیلی منتشر شد
-تا این لحظه مشخصات 4.7 میلیون نفر با اسامی کامل ، کد ملی ، شماره تلفن ، شغل ، تخصص و محدوده زندگی انتشار یافته است
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 
-📶
-
-
-تست شده تمام نت‌ها 
-🛜
-🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-⭕️ تمام برنامه هارو ببندید بعد وصل بشید
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا
-</div>
-
-## tasiyanc — post 9306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
-✅اسپانسر لیگ انگلستان
-👑 امکان شارژ و برداشت با کارت بانکی
-⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
-😀Telegram Channel👇
-https://t.me/+c5jwC3lt9z45NTE0
 </div>
 

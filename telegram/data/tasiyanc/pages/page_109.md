@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/05/25 01:16
+📅 آخرین بروزرسانی: 1405/05/25 09:14
 
 ---
+
+## tasiyanc — post 5965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی - 🇫🇷
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5963
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ npv سرعت بالا (تست)
+@Tasiyanc
+</div>
+
+## tasiyanc — post 5960
+
+<div align="center"><img src="files/post_5960_tasiyanc_5960.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Gold🥇Vip servers.npvt
+</div>
+
+## tasiyanc — post 5959
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان 
+
+8سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5958
 
@@ -129,31 +168,5 @@ TS premium Servers 🌲⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک دقیقه نیست استارت کردم ، بهترین کانال جهانی دمت گرم ، عالیی ،🙏🙏❤️❤️
-</div>
-
-## tasiyanc — post 5941
-
-<div align="center"><img src="files/post_5941_tasiyanc_5941.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی🤭
-</div>
-
-## tasiyanc — post 5940
-
-<div align="center"><img src="files/post_5940_tasiyanc_5940.jpg" alt="Photo"></div>
-
-## tasiyanc — post 5939
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بس کن تاسیان علی
-</div>
-
-## tasiyanc — post 5937
-
-<div align="center"><img src="files/post_5937_tasiyanc_5937.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
--FAST MCI & MTN & RighTel 🔥.npvt
 </div>
 

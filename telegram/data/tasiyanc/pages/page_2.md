@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/25 01:16
+📅 آخرین بروزرسانی: 1405/05/25 09:14
 
 ---
+
+## tasiyanc — post 9309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیست افرادی که در پویش جان فدا ثبت‌نام کرده بودن توسط هکرهای اسرائیلی منتشر شد
+تا این لحظه مشخصات 4.7 میلیون نفر با اسامی کامل ، کد ملی ، شماره تلفن ، شغل ، تخصص و محدوده زندگی انتشار یافته است
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9308
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+
+تست شده تمام نت‌ها 
+🛜
+🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+⭕️ تمام برنامه هارو ببندید بعد وصل بشید
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر عشقا
+</div>
+
+## tasiyanc — post 9306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+✅اسپانسر لیگ انگلستان
+👑 امکان شارژ و برداشت با کارت بانکی
+⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
+😀Telegram Channel👇
+https://t.me/+c5jwC3lt9z45NTE0
+</div>
 
 ## tasiyanc — post 9305
 
@@ -223,12 +270,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اتمام چالش ، ریکشن هرکی بیشتر باشه برندس تا ساعت ۱۵😂❤️
 </div>
-
-## tasiyanc — post 9283
-
-## tasiyanc — post 9281
-
-## tasiyanc — post 9280
-
-## tasiyanc — post 9279
 

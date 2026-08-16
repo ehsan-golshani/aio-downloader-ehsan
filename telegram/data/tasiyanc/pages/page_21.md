@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/25 01:16
+📅 آخرین بروزرسانی: 1405/05/25 09:14
 
 ---
+
+## tasiyanc — post 8814
+
+<div align="center"><img src="files/post_8814_tasiyanc_8814.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📡 اینترنت استارلینک به‌صورت رسمی در عراق فعال شد.
+
+هزینه اشتراک‌ها با نرخ هر دینار عراق = 147 تومان :
+
+💰 طرح 100 مگابیت با دانلود نامحدود: حدود 9 میلیون و 200 هزار تومان در ماه
+
+💰 طرح 400 مگابیت با دانلود نامحدود: حدود 14 میلیون و 500 هزار تومان در ماه
+
+شاید در نگاه اول گرون به نظر برسه، اما از اونجایی که هر دیش استارلینک می‌تونه اینترنت یه آپارتمان یا چند واحد رو تأمین کنه، اگه مثلاً 6 یا 7 خانواده هزینه رو با هم تقسیم کنن، مبلغی که به هر خانواده می‌رسه کاملاً منطقی و مقرون‌به‌صرفه میشه.
+﻿
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+
+⭐ @TASIYANC✅
+</div>
+
+## tasiyanc — post 8811
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری، صداوسیما خیلی جدی : امروز صبح در حملات آمریکا به ایران، 6 تا جنگنده F-35 رو زدیم! 3 تاشون کامل منهدم شدن، 3 تاشون هم خسارت دیدن! چند تا از خلبانان جنگنده هم کشته شده. 🐸🐸🐸🐸 
+⭐@Tasiyanc ⭐
+</div>
+
+## tasiyanc — post 8810
+
+<div align="center"><img src="files/post_8810_tasiyanc_8810.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری، صداوسیما خیلی جدی : امروز صبح در حملات آمریکا به ایران، 6 تا جنگنده F-35 رو زدیم!
+
+3 تاشون کامل منهدم شدن، 3 تاشون هم خسارت دیدن!
+چند تا از خلبانان جنگنده هم کشته شده.
+🐸🐸🐸🐸
+
+
+⭐@Tasiyanc ⭐
+</div>
+
+## tasiyanc — post 8809
+
+<div align="center"><video src="files/post_8809_tasiyanc_8809.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8809_tasiyanc_8809.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک موش خرما به نام چانک به مدت ۴ سال محصول یک کشاورز را می‌دزدید و آنهارا جلوی دوربین کشاورز میخورد 😂
+
+
+⭐ @TASIYANC ⭐
+</div>
 
 ## tasiyanc — post 8808
 
@@ -214,47 +272,6 @@ Multi Location ⚡
 
 گزارش شده که یک گوشی Nokia 3310 که در شهر Ellesmere Port پیدا شده، پس از حدود ۲۲ سال همچنان روشن شده و نزدیک به ۷۰ درصد شارژ باتری داشته است.
 ⭐ @Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8789
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴انتقال اجساد حشدالشعبی @Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8788
-
-<div align="center"><img src="files/post_8788_tasiyanc_8788.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیشب یه پراید هاچبک تو تهران بخاطر اینکه سیستم صوتیش رو اصولی نصب نکرده بود، به محض اینکه رانندش ولوم آهنگ رو تا آخر بالا برد منفجر شد :
-
-⭐ @Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8787
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سازمان امنیت روسیه: پاول دوروف، بنیانگذار تلگرام، در فهرست افراد تحت تعقیب بین‌المللی قرار گرفت!!
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8786
-
-<div align="center"><video src="files/post_8786_tasiyanc_8786.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8786_tasiyanc_8786.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴انتقال اجساد حشدالشعبی
-
-
-@Tasiyanc 
 ⭐️
 </div>
 
