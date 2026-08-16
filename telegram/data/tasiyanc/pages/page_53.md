@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/25 14:21
+📅 آخرین بروزرسانی: 1405/05/25 15:15
 
 ---
+
+## tasiyanc — post 7794
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ : دستور لغو توافق و مذاکرات را صادر کردم
+</div>
 
 ## tasiyanc — post 7793
 
@@ -163,15 +169,5 @@
 
 بندر عباس هم اکنون
 @Tasiyanc
-</div>
-
-## tasiyanc — post 7748
-
-<div align="center"><video src="files/post_7748_tasiyanc_7748.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7748_tasiyanc_7748.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همین الان ، حمله وحشتناک آمریکا به بندرعباس
 </div>
 

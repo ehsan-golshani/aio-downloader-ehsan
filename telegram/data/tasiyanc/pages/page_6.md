@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/25 14:21
+📅 آخرین بروزرسانی: 1405/05/25 15:15
 
 ---
+
+## tasiyanc — post 9223
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨معاون اقتصادی وزارت 
+
+این نرخ (بنزین ۸۷تومنی) بعد از ۱۰ روز در تمامی نقاط کشور اجرا خواهد شد.
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 9222
 
@@ -243,18 +253,5 @@ An ultra-realistic high-fashion editorial portrait of a person wearing an oversi
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9199
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 

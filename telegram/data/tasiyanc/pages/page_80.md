@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/25 14:21
+📅 آخرین بروزرسانی: 1405/05/25 15:15
 
 ---
+
+## tasiyanc — post 6804
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظر برخی از اعضاء پس توافق حتمیه !
+</div>
 
 ## tasiyanc — post 6803
 
@@ -194,11 +200,5 @@ VIP⚡ APEX ⛓️.npvt
 آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کدوم کانال خارجی دارید می‌بینید مسابقات جام جهانی رو؟
 </div>
 

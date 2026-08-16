@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/25 14:21
+📅 آخرین بروزرسانی: 1405/05/25 15:15
 
 ---
+
+## tasiyanc — post 5862
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 💫 4Server vip.npvt
+</div>
 
 ## tasiyanc — post 5861
 
@@ -137,24 +143,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 34k ⚡ Fast 🔥.npvt
-</div>
-
-## tasiyanc — post 5821
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑 رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- 5 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 

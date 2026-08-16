@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/25 14:21
+📅 آخرین بروزرسانی: 1405/05/25 15:15
 
 ---
+
+## tasiyanc — post 9335
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪐 05.conf
+</div>
 
 ## tasiyanc — post 9332
 
@@ -259,13 +265,5 @@ https://t.me/+c5jwC3lt9z45NTE0
 r24
 🔔کانال دربی بت :👇
 ✅https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9304
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ : تورم تو ایران ۳۵۰ درصده،۸۲ درصد از موشکاشونم نابود کردیم، ۲۲۰ تا هواپیما داشتن همه رو نابود کردیم، سه گروه اول از رهبرانشونم ترور کردیم.
-
-@tasiyanc ⭐️
 </div>
 

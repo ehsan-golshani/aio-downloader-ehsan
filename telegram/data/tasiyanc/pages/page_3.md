@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/25 14:21
+📅 آخرین بروزرسانی: 1405/05/25 15:15
 
 ---
+
+## tasiyanc — post 9304
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ : تورم تو ایران ۳۵۰ درصده،۸۲ درصد از موشکاشونم نابود کردیم، ۲۲۰ تا هواپیما داشتن همه رو نابود کردیم، سه گروه اول از رهبرانشونم ترور کردیم.
+
+@tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9303
 
@@ -199,6 +207,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9279
 
 ## tasiyanc — post 9278
-
-## tasiyanc — post 9276
 
