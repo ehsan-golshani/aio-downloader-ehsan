@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/26 21:53
+📅 آخرین بروزرسانی: 1405/05/26 22:48
 
 ---
+
+## tasiyanc — post 7924
+
+<div align="center"><img src="files/post_7924_tasiyanc_7924.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز روز جهانی کبابه😍
+
+بفرس برا رفیقت برات بخره☺️
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7922
 
@@ -207,14 +219,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 @Tasiyanc ⭐️
 #Navid
-</div>
-
-## tasiyanc — post 7883
-
-<div align="center"><img src="files/post_7883_tasiyanc_7883.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc✅
-#Mobina
 </div>
 

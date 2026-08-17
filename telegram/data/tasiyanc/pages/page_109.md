@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/05/26 21:53
+📅 آخرین بروزرسانی: 1405/05/26 22:48
 
 ---
+
+## tasiyanc — post 6033
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واسه منم ظهر پرید ولی دوباره احراز هویت کردم ازم فیلم گرفت و مدارک شناسایی فرستادم درست شد
+</div>
 
 ## tasiyanc — post 6032
 
@@ -141,11 +147,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دوستانی ک فیلتر شکن استفاده میکنن امروز شنیدم هرکی با jumpjump وصل شده رفته اینستا ، اکانتش از دسترس خارج شده و نیاز به احراز هویت ( فیلم) داره تا اکانتش برگرده ، مراقب باشید با هر فیلترشکنی وصل نشید پ ن : نمی‌دونم درسته یا نه ولی دو سه نفر بهم گفتن @Tasiyanc…
-</div>
-
-## tasiyanc — post 6008
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پاریس لوئیز انریکه قهرمان جام باشگاه های اروپا شد
 </div>
 

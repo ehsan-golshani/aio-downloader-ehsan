@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/05/26 21:53
+📅 آخرین بروزرسانی: 1405/05/26 22:48
 
 ---
+
+## tasiyanc — post 5558
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️⭕️⭕️
+</div>
 
 ## tasiyanc — post 5555
 
@@ -449,15 +455,5 @@ Join @Tasiyanc ✅
 سرعتش عاالیه و اکثرا متصله ( تست کردیم )
 
 ورود به ربات و دریافت لیست
-</div>
-
-## tasiyanc — post 5525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان سرور تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

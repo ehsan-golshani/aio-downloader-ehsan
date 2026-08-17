@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/26 21:53
+📅 آخرین بروزرسانی: 1405/05/26 22:48
 
 ---
+
+## tasiyanc — post 6265
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امن ✅
+</div>
 
 ## tasiyanc — post 6264
 
@@ -203,16 +209,5 @@ HOT 🌶️.npvt
 اتصال به سرورها ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6241
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به یاد آنان که جسارت بیشتری از ما داشتند. 🖤
-
-پروکسی
-پروکسی
-
-@Tasiyanproxy
 </div>
 

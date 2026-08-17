@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/26 21:53
+📅 آخرین بروزرسانی: 1405/05/26 22:48
 
 ---
+
+## tasiyanc — post 8359
+
+<div align="center"><video src="files/post_8359_tasiyanc_8359.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8359_tasiyanc_8359.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 وضعیت مسکو روسیه بعد از حملات امروز اوکراین
+
+انگار فیلم آخر الزمانی هست
+
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8358
 
@@ -230,11 +245,5 @@ Multi Location ⚡ Fast.npvt
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از قدیم گفتن مراقب تله مرغابی های زندگیت باش
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/26 21:53
+📅 آخرین بروزرسانی: 1405/05/26 22:48
 
 ---
+
+## tasiyanc — post 6364
+
+<div align="center"><img src="files/post_6364_tasiyanc_6364.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡All Operators ⚡.npvt
+</div>
 
 ## tasiyanc — post 6362
 
@@ -188,11 +196,5 @@ FAST @Tasiyanc servers.txt
 بریزید ویتوباکس یا ویتوری پینگ بگیرید وصل شید 💚
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب تو راهه
 </div>
 

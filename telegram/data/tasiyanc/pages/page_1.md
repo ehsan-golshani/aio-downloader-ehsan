@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/26 21:53
+📅 آخرین بروزرسانی: 1405/05/26 22:48
 
 ---
+
+## tasiyanc — post 9405
+
+<div align="center"><video src="files/post_9405_tasiyanc_9405.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9405_tasiyanc_9405.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لحظه قهوه ای کردن خبرنگار CNN همین الان در کاخ سفید 😂
+
+خبرنگار : آقای رییس جمهور :
+ترامپ: ساکت، ساکت، ساکت، خیلی بی‌احترامی می‌کنید، ساکت باشید، از رسانه دروغگوی CNN هستی با من حرف نزن
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9404
 
@@ -235,14 +250,5 @@ g26
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9374
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-تست شده تمام نت‌ها ⚡️
-@Tasiyanc ✅
 </div>
 

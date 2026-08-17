@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/26 21:53
+📅 آخرین بروزرسانی: 1405/05/26 22:48
 
 ---
+
+## tasiyanc — post 8944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 کانفیگ اختصاصی نامحدود اینجکتور📶
+
+پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
+
+سرور سرعتی‌ لوکیشن آلمان و ترکیه 📍
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال 🔸
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8943
 
@@ -225,17 +245,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 💻 betinja.bet
 🌐 کانال بونوس های رایگان g11
 @betinjabet
-</div>
-
-## tasiyanc — post 8923
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 📶 Open Vpn Config ✅ ━━━╮
-
-آموزش اتصال 
-
-در صورت برقرار نشده اتصال چند بار بزنید پشت هم
-
-⚡️ Unlimated• By @TASIYANC ✅
 </div>
 
