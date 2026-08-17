@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/26 12:52
+📅 آخرین بروزرسانی: 1405/05/26 14:25
 
 ---
+
+## tasiyanc — post 8885
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 امریکا به شهروندانش در اردن و اسراییل هشدار تخلیه فوری ارسال کرده
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8883
 
@@ -294,6 +302,4 @@ Restore this old photograph with maximum realism. Remove scratches, dust, stains
 🔴نت بلاکس : دولت ترکیه بصورت ناگهانی اینترنت کل مردم ترکیه رو قطع کرد.
 @Tasiyanc
 </div>
-
-## tasiyanc — post 8853
 

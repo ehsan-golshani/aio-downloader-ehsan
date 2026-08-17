@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/26 12:52
+📅 آخرین بروزرسانی: 1405/05/26 14:25
 
 ---
+
+## tasiyanc — post 9391
+
+<div align="center"><img src="files/post_9391_tasiyanc_9391.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری، مارجوری تیلور نماینده سابق کنگره آمریکا:
+
+آمریکا توی جلسات راهبردی خودش، درباره استفاده از بمب اتم علیه ایران صحبت میکنه! آره این موضوع کاملا واقعیه و حدس نمیزنم!
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9390
 
@@ -217,15 +229,5 @@ sa25
 ‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
 https://t.me/+F1CivZlkxrgzMTM0
 https://t.me/+F1CivZlkxrgzMTM0
-</div>
-
-## tasiyanc — post 9364
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 روزنامه نگار آلمانی: آیا شما مامور اسرائیل هستید؟
-
-شاهزاده رضا پهلوی : نه اما پدر بزرگ من به یهودیان پناه داد زمانی که شما آنها را در کوره ها می سوزاندید.
-
-@Tasiyanc ✅
 </div>
 

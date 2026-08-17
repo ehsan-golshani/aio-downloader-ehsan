@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/05/26 12:52
+📅 آخرین بروزرسانی: 1405/05/26 14:25
 
 ---
+
+## tasiyanc — post 7307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مردم خوبی داریم ، از چنلای حمایت میکنن ک تو ۳ ماه قطعی یه کانفیگم نزاشتن 😂😂
+</div>
 
 ## tasiyanc — post 7306
 
@@ -192,20 +198,4 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 </div>
 
 ## tasiyanc — post 7279
-
-## tasiyanc — post 7278
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن 🇩🇪
-
-4سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-✔️ T.me/Tasiyanc ✅
-</div>
 

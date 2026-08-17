@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/26 12:52
+📅 آخرین بروزرسانی: 1405/05/26 14:25
 
 ---
+
+## tasiyanc — post 8624
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ : در این دو جنگ ۱۸ سرباز از دست دادیم
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8623
 
@@ -238,18 +245,5 @@ Fact @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 وضعیت گذرگاه مرزی شلمچه بین ایران و عراق، بعد از حملات ارتش آمریکا : تعداد کشته‌ها به 3 نفر رسید. @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8602
-
-<div align="center"><video src="files/post_8602_tasiyanc_8602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8602_tasiyanc_8602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت گذرگاه مرزی شلمچه بین ایران و عراق، بعد از حملات ارتش آمریکا :
-
-تعداد کشته‌ها به 3 نفر رسید.
-@TASIYANC ✅
 </div>
 

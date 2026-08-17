@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/26 12:52
+📅 آخرین بروزرسانی: 1405/05/26 14:25
 
 ---
+
+## tasiyanc — post 9028
+
+<div align="center"><img src="files/post_9028_tasiyanc_9028.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو اربعین یه موکب زدن که هرکسی تنها بوده میتونسته شب بره اینجا یه نفرو به یه مبلغ خوب صیغه کنه حتی از اینجا میتونسته زن ایندشو هم انتخاب کنه 😞
+
+
+@TASIYANC 🕒
+</div>
 
 ## tasiyanc — post 9027
 
@@ -350,18 +361,6 @@ https://oteacher.org
 
 
 ⚡️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9004
-
-<div align="center"><img src="files/post_9004_tasiyanc_9004.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کروکودیل ( تمساح) ها بعد از خوردن طعمه ، به دلیل محبوس شدن هوا در سینوس هایشان اشک می‌ریزند ، نه پشیمانی
-بخاطر همین اصطلاح « اشک تمساح » برای کسایی بکار میرود که فقط تظاهر به ناراحتی میکنند
-
-@TASIYANC 
 ✅
 </div>
 

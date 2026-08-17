@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/26 12:52
+📅 آخرین بروزرسانی: 1405/05/26 14:25
 
 ---
+
+## tasiyanc — post 7140
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مال ما شد وظیفه مال بعضیا شده لطف
+</div>
 
 ## tasiyanc — post 7138
 
@@ -206,14 +212,5 @@ T.me/Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بازی پرتغاااااال شروع شد
-</div>
-
-## tasiyanc — post 7104
-
-<div align="center"><img src="files/post_7104_tasiyanc_7104.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه برنامه تیم ملی در جام جهانی 2026
-@Tasiyanc ✅
 </div>
 
