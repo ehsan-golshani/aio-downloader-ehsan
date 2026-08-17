@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 331
 
-📅 آخرین بروزرسانی: 1405/05/26 03:06
+📅 آخرین بروزرسانی: 1405/05/26 03:28
 
 ---
+
+## VahidOOnLine — post 247656
+
+<div align="center"><img src="files/post_247656_VahidOOnLine_247656.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ستاد فرماندهی مرکزی ایالات متحده، سنتکام، با انتشار ویدیویی اعلام کرد که جنگنده‌های نیروی دریایی و نیروی هوایی آمریکا بامداد یک‌شنبه در واکنش به حمله پهپادی جمهوری اسلامی به نفتکش «ام‌تی کیکو»، ۱۰ هدف نظامی جمهوری اسلامی را در چند نقطه تنگه هرمز و مناطق اطراف آن هدف حمله قرار دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247655
 
@@ -237,17 +248,6 @@
 
 ارتش ایالات متحده بامداد شنبه نیز مناطقی در محدوده سیریک را هدف قرار داده بود.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247629
-
-<div align="center"><img src="files/post_247629_VahidOOnLine_247629.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️صداوسیما، در نخستین ساعت بامداد یکشنبه، هفتم تیرماه، از شنیده شدن صدای «چند انفجار» در محدوده روستای طاهرویی سیریک خبر داد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

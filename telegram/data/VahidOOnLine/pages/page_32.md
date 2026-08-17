@@ -1,8 +1,17 @@
 # آرشیو کانال VahidOOnLine - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/26 03:06
+📅 آخرین بروزرسانی: 1405/05/26 03:28
 
 ---
+
+## VahidOOnLine — post 254716
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شهروندان ساکن استان هرمزگان با ارسال ویدیوهایی به ایران اینترنشنال صف‌های طولانی بنزین در دو شهر رودان و بندرعباس در ۱۸ مردادماه را نشان دادند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254715
 
@@ -284,19 +293,6 @@ Indypersian
 او از تصمیم دولت بریتانیا برای قرار دادن سپاه پاسداران در فهرست سازمان‌های ممنوعه استقبال کرد و خواستار قرار گرفتن موسسه مالی قرض الحسن، وابسته به حزب‌الله، در این فهرست شد.
 
 وزیر خارجه اسرائیل اضافه کرد پیشرفت در اجرای طرح دونالد ترامپ برای غزه به خلع سلاح حماس و دیگر گروه‌های تروریستی و غیرنظامی‌سازی نوار غزه بستگی دارد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254696
-
-<div align="center"><video src="files/post_254696_VahidOOnLine_254696.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254696_VahidOOnLine_254696.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به اییران‌اینترنشنال از قطعی مداوم آب در شهر گرگان می‌گوید. به گفته او قطع آب و برق هم در این شهر طبق جدول زمانی نیست.
 IranintlTV
 
 🤖 @VahidOOnLine
