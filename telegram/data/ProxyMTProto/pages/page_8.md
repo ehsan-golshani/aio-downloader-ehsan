@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/26 19:20
+📅 آخرین بروزرسانی: 1405/05/26 19:39
 
 ---
+
+## ProxyMTProto — post 50090
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: max.kimt.click
+Port: 443
+Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50089
 
@@ -172,15 +181,6 @@ Secret: EERighJJvXrFGRMCIMJdCQ
 Server: hub.neo-vpn.ink
 Port: 443
 Secret: eea29dda982c54198f00ea8d440fa6f8ce6875622e6e656f2d76706e2e696e6b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50070
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: iran.vanitydomain.co.uk.
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 

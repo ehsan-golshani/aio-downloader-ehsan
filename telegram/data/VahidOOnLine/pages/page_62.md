@@ -1,8 +1,37 @@
 # آرشیو کانال VahidOOnLine - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/26 19:19
+📅 آخرین بروزرسانی: 1405/05/26 19:39
 
 ---
+
+## VahidOOnLine — post 254147
+
+<div align="center"><video src="files/post_254147_VahidOOnLine_254147.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254147_VahidOOnLine_254147.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده نشان می‌دهند مراسم زادروز جاویدنام هانیه کاشانی بر سر مزارش برگزار شد.
+﻿﻿هانیه کاشانی، ۱۹ دی ۱۴۰۴ در وکیل‌آباد مشهد‌‌ از پشت سر هدف شلیک قرار گرفت و جان باخت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254146
+
+<div align="center"><img src="files/post_254146_VahidOOnLine_254146.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️نیروی دریایی دولت به رسمیت شناخته‌شده یمن اعلام کرد که حمله یک شناور تندروِ حامل مواد منفجره به یک نفتکش در دریای سرخ را ناکام گذاشته است.
+
+به گزارش رسانه‌های نظامی، گشت‌های دریایی غروب روز جمعه، ۱۶ مرداد این شناور بدون سرنشین را در آب‌های نزدیک به نیروگاه «المخا» شناسایی کرده و «اقدامات لازم» را انجام دادند. طبق گزارش‌ها، این شناور پیش از رسیدن به هدف منفجر شده است.
+
+نیروی دریایی یمن مسئولیت این حمله را به گروه شبه‌نظامی حوثی‌ها نسبت داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254145
 
@@ -289,31 +318,6 @@ https://i
 
 دوران همچنین افزود که این توافق نقشی اساسی در «حفظ صلح و ثبات منطقه» ایفا می‌کند و نشان‌دهنده اراده قوی این ملت‌ها برای ساخت معماری امنیتی آینده بر پایه همبستگی مشترک است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254125
-
-<div align="center"><img src="files/post_254125_VahidOOnLine_254125.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسکات بسنت، وزیر خزانه‌داری آمریکا، درباره تحولات مربوط به جمهوری اسلامی به شبکه «۱۲ نیوز» گفت: «فکر می‌کنم به‌زودی، شاید حتی امروز یا فردا، شاهد یک توافق خواهیم بود؛ یک آتش‌بس ۳۰ تا ۶۰ روزه، و تنگه هرمز باز خواهد شد.»
-
-وزیر خزانه‌داری آمریکا همچنین درباره وضعیت اقتصادی جمهوری اسلامی گفت تورم مواد غذایی در ایران به ۱۵۰ تا ۱۸۰ درصد رسیده و حکومت با مشکل پرداخت حقوق نیروهای نظامی روبه‌رو است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254124
-
-<div align="center"><video src="files/post_254124_VahidOOnLine_254124.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254124_VahidOOnLine_254124.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

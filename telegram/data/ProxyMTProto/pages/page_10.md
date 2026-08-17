@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/26 19:20
+📅 آخرین بروزرسانی: 1405/05/26 19:39
 
 ---
+
+## ProxyMTProto — post 50050
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: delbar.wrenshire.co.uk
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50049
 
@@ -172,15 +181,6 @@ Secret: ddc37865906f67acf72c1ec56241721d56
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50030
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: evening.whiteproxy.baby
-Port: 443
-Secret: ddc27a8e4e92e2ad536c3f80d7c0809ef8
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/26 19:20
+📅 آخرین بروزرسانی: 1405/05/26 19:39
 
 ---
+
+## ProxyMTProto — post 47998
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rocket.flowaccess.site
+Port: 443
+Secret: ee03d3d1b9bda832390669bc06167720d8726f636b65742e666c6f776163636573732e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47997
 
@@ -172,15 +181,6 @@ Secret: ee7930091e4348bb260a09c61562aa661a6465736b2e70726f787974672e6c697665
 Server: panel.proxytg.live
 Port: 443
 Secret: ee3963b99449e42aab75500a3caee059b870616e656c2e70726f787974672e6c697665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47978
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 

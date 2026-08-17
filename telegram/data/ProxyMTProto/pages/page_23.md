@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/26 19:20
+📅 آخرین بروزرسانی: 1405/05/26 19:39
 
 ---
+
+## ProxyMTProto — post 49787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49786
 
@@ -172,15 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: fleethop.online
 Port: 443
 Secret: eed82e9162b09c2ddfdbe3ddfe7d28d87a666c656574686f702e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: miravox.co.uk.
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 
