@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/05/27 01:41
+📅 آخرین بروزرسانی: 1405/05/27 02:24
 
 ---
+
+## tasiyanc — post 8120
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ حمله شدید آمریکا به کرمان
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴قرارگاه مرکزی سپاه پاسداران در راسک توسط آمریکا هدف قرار گرفت
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8118
 
@@ -206,28 +222,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 
 
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8093
-
-<div align="center"><video src="files/post_8093_tasiyanc_8093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8093_tasiyanc_8093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوس پسرم جوابمو نمی‌ده حتما داره بهم خیانت می‌کنه ، دوس پسرش :
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8092
-
-<div align="center"><img src="files/post_8092_tasiyanc_8092.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیس و دیس بک😂
-
-
-@Tasiyanc ⭐️
 </div>
 

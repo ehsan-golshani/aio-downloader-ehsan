@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/05/27 01:41
+📅 آخرین بروزرسانی: 1405/05/27 02:24
 
 ---
+
+## tasiyanc — post 6530
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[23]⚡🇩🇪@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6529
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6527
 
@@ -196,39 +216,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6500
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  
-😏
-
-4سرور   سرعتی پرمیوم متد جدید
-🚀
-
-نامحدود  - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6488
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوووووورییی با توییت امشب امریکا احتمال شروع دوباره جنگ هستت
-برا همین براتون توی بات  ۶۰۰‌گیگ کانفینگ اختصاصی گذاشتیم که یوقت دوباره نتو قطع کردن شماها قطع نشید❤
-
-کنارتون هستیم💝
-
-دریافت کانفینگ اختصاصی
-دریافت کانفینگ اختصاصی
 </div>
 

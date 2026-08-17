@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/27 01:41
+📅 آخرین بروزرسانی: 1405/05/27 02:24
 
 ---
+
+## tasiyanc — post 9184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸ترامپ:
+
+ایرانی‌ها با ما بازی می‌کنند، در اتاق‌های جلسات موافقت می‌کنند و در رسانه‌ها رد می‌کنند.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
 
 ## tasiyanc — post 9182
 
@@ -339,42 +357,5 @@ A high-contrast black and white studio portrait of a handsome Middle Eastern man
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙄 همه بت باز های حرفه ای دنبال 
-🔞 شکار این بونوس ها هستن
-✅لیگ های معتبر اروپایی شروع شده بهترین فرصت برای جبران ضرر های جام جهانی 
-💯
-</div>
-
-## tasiyanc — post 9159
-
-<div align="center"><video src="files/post_9159_tasiyanc_9159.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9159_tasiyanc_9159.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤔 شروع رسمی لیگ های اروپا 
-❄️
-
-🆕 بهترین فرصت برای جبران ضرر های جام جهانی با جشنواره رویایی مرداد ماه
-
-
-⚠️هر افزایش شارژ مساوی 
-2️⃣1️⃣
-🔣 شارژ بیشتر بدون محدودیت☄️
-
-به همراه 
-🤩 
-🤩🔤 کش بک باخت همه روزه:
-
-🌐 betinja.bet
-
-🌐 betinja.bet
-کانال بونوس های رایگان g19
-@betinjabet
 </div>
 

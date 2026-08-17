@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/27 01:41
+📅 آخرین بروزرسانی: 1405/05/27 02:24
 
 ---
+
+## tasiyanc — post 8572
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی پرمیوم  ترکیه - استانبول⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8571
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ وارد سیکت*یر ( ۳۱ تیر شدیم)
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8570
 
@@ -237,20 +270,6 @@ Location 🤯 🇫🇷
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨💪 انفجار در کنارك
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8519
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقا این جان فداهای ما چی شد؟
-</div>
-
-## tasiyanc — post 8518
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 چابهار چندین انفجار مهیب
 
 @Tasiyanc
 </div>
