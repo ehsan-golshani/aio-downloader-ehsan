@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 468
 
-📅 آخرین بروزرسانی: 1405/05/27 02:21
+📅 آخرین بروزرسانی: 1405/05/27 02:42
 
 ---
+
+## VahidOOnLine — post 244030
+
+<div align="center"><img src="files/post_244030_VahidOOnLine_244030.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پت فالون، عضو جمهوری‌خواه مجلس نمایندگان آمریکا، در پاسخ به پرسش فاکس‌نیوز درباره احتمال لغو مذاکرات با حکومت ایران از سوی ترامپ گفت که فکر می‌کند در نهایت حمله به جمهوری اسلامی اجتناب‌ناپذیر خواهد بود. او تاکید کرد جمهوری اسلامی هرگز با حسن نیت مذاکره نکرده است.
+فالون گفت سپاه پاسداران «منطقی نیست» و این گروه را برای مذاکره «بیش از حد رادیکال» توصیف کرد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244029
 
@@ -231,19 +244,6 @@
 همچنین قیمت تخم‌مرغ به عنوان یکی از اصلی‌ترین منابع پروتئین خانوارهای کم‌درآمد، ۳۴۲ درصد افزایش داشته است.
 
 قیمت مرغ نیز در همین بازه زمانی رشدی ۳۴۲.۹ درصدی را تجربه کرده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244002
-
-<div align="center"><video src="files/post_244002_VahidOOnLine_244002.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244002_VahidOOnLine_244002.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که به تازگی به ایران اینترنشنال رسیده بازماندن رد خون شهروندان مجروح و کشته‌شده رد جریان انقلاب ملی در سلسبیل تهران را نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

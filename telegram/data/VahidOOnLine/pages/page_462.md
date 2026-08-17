@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 462
 
-📅 آخرین بروزرسانی: 1405/05/27 02:21
+📅 آخرین بروزرسانی: 1405/05/27 02:42
 
 ---
+
+## VahidOOnLine — post 244187
+
+<div align="center"><img src="files/post_244187_VahidOOnLine_244187.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ به اکسیوس گفت: حملات جمهوری اسلامی به کسی آسیبی نزده است. امیدوارم اسرائیل تلافی نکند. اگر نتانیاهو پاسخ دهد، این درگیری مثل ۴۷ سال گذشته یا حتی ۳۰۰۰ سال گذشته ادامه پیدا می‌کند.
+او افزود: ما خیلی به یک توافق نهایی با تهران نزدیک هستیم و نمی‌خواهم به‌خاطر اتفاقاتی که الان در حال رخ دادن است، همه چیز از بین برود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244186
 
@@ -232,19 +244,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️خبرگزاری مهر، یکشنبه‌شب، ۱۷ خردادماه، تصاویری از موشک‌های شلیک شده به سمت اسرائیل را در آسمان کرمانشاه منتشر کرد. همزمان، قرارگاه خاتم‌الانبیا، با انتشار بیانیه‌ای، شلیک موشک‌های ایران به سمت مواضع اسرائیل را تحقق هشدارهای قبلی تهران خواند و اعلام کرد: «در صورت گسترش حملات اسرائیل به بیروت و یا پاسخ به اقدام ایران با ضربات کوبنده تر و پشیمان کننده روبرو و حملات ویرانگری علیه اسرائیل و حامیان آن آغاز خواهد شد».
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244167
-
-<div align="center"><video src="files/post_244167_VahidOOnLine_244167.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244167_VahidOOnLine_244167.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال از خرم‌‌آباد در شامگاه یکشنبه ۱۷ خرداد، نور موشک شلیک‌شده از سوی جمهوری اسلامی را به سمت اسرائیل در آسمان این شهر نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

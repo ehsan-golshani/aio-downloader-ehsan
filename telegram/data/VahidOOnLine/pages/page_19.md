@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/27 02:21
+📅 آخرین بروزرسانی: 1405/05/27 02:42
 
 ---
+
+## VahidOOnLine — post 255173
+
+<div align="center"><img src="files/post_255173_VahidOOnLine_255173.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، در سخنرانی خود در ناسائو کانتی نیویورک گفت: «به‌زودی تنگه هرمز را قلمرو آمریکا اعلام خواهم کرد.»
+
+ترامپ در بخش دیگری از سخنانش درباره افزایش قیمت بنزین گفت: «اگر مجبور شوید کمی بیشتر برای بنزین بپردازید، هرگز عذرخواهی نخواهم کرد. کار درست را انجام دادم. یک کشور بسیار شرور نمی‌تواند سلاح هسته‌ای داشته باشد.»
+
+او همچنین خطاب به حاضران گفت: «دو سال و نیم دیگر فردی انتخاب خواهد شد. لطفا یک چیز را به خاطر داشته باشید؛ ترامپ کسی است که این کار را انجام داد.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255172
 
@@ -306,19 +321,6 @@ Indypersian
 
 قالیباف اضافه کرد: «رهبر شهید ما را با مفاهیمی مثل شهادت، شجاعت، استکبارستیزی، مقاومت و عقلانیت آشنا کرد.»
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255144
-
-<div align="center"><video src="files/post_255144_VahidOOnLine_255144.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255144_VahidOOnLine_255144.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش تازه اورشلیم پست می‌گوید سرعت بازسازی توان موشکی جمهوری اسلامی، ارتش و موساد را غافلگیر کرده است. مسئله اصلی دیگر فقط تعداد موشک‌های باقی‌مانده نیست، بلکه سرعت تولید دوباره آن‌هاست.
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

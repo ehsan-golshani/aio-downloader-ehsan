@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/27 02:21
+📅 آخرین بروزرسانی: 1405/05/27 02:42
 
 ---
+
+## VahidOOnLine — post 255124
+
+<div align="center"><video src="files/post_255124_VahidOOnLine_255124.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255124_VahidOOnLine_255124.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تصاویری که بامداد جمعه ۲۳ مردادماه منتشر شده است، لحظه رهگیری و انهدام پهپادهای انتحاری در آسمان اربیل از سوی نیروهای ائتلاف بین‌المللی به رهبری آمریکا را نشان می‌دهد.
+
+سازمان مبارزه با تروریسم اقلیم کردستان عراق اعلام کرد نیروهای ائتلاف سه پهپاد انتحاری را رهگیری و منهدم کردند. براساس این بیانیه، این عملیات تلفات جانی یا خسارت مادی در پی نداشت و مبدا پرتاب پهپادها نیز اعلام نشده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255123
 
@@ -293,19 +308,6 @@ Indypersian
 در این بیانیه آمده است در این دیدار، همکاری‌های دوجانبه پاکستان و آمریکا و تحولات اخیر منطقه بررسی شد.
 
 کاردار آمریکا نیز از نقش سازنده پاکستان در پیشبرد صلح و ثبات منطقه قدردانی کرد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255104
-
-<div align="center"><video src="files/post_255104_VahidOOnLine_255104.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255104_VahidOOnLine_255104.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد تعدادی از شهروندان شبانه در سی‌وسه‌پل اصفهان دور همی برگزار کرده و ترانه لری بختیاری «بلال بلالم» را هم‌خوانی کردند.
 IranintlTV
 
 🤖 @VahidOOnLine
