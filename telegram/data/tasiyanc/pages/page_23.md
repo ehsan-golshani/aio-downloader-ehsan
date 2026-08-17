@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/26 12:06
+📅 آخرین بروزرسانی: 1405/05/26 12:52
 
 ---
+
+## tasiyanc — post 8816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡𝙉𝙚𝙬 𝙎𝙥𝙚𝙚𝙙 ⚡.npvt
+</div>
 
 ## tasiyanc — post 8815
 
@@ -269,21 +275,5 @@ Multi Location ⚡
 
 
 ⭐ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8791
-
-<div align="center"><video src="files/post_8791_tasiyanc_8791.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8791_tasiyanc_8791.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این مجری بعد این برنامه کلا اخراج شد 😂
-ارزش دانلود ۱۰۰۰ از ۱۰
-
-داستان از این قراره کسایی ک مشکلات حنجره داشتن و معلول بودن دعوت بودن به برنامه
-
-⭐@TASIYANC 
-⭐️
 </div>
 

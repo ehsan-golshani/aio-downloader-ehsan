@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/26 12:04
+📅 آخرین بروزرسانی: 1405/05/26 12:50
 
 ---
+
+## ProxyMTProto — post 50036
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp.webvirt.cloud
+Port: 443
+Secret: ee938dd87467bc49301de2e9765cf20f4374656c2e776562766972742e636c6f7564
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50035
 
@@ -172,15 +181,6 @@ Secret: ee87edf50215ee4bf7aa2d409b9cd71fcc676174652e323473746172736d61726b65742e
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50016
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 

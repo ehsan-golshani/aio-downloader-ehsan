@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/05/26 12:06
+📅 آخرین بروزرسانی: 1405/05/26 12:52
 
 ---
+
+## tasiyanc — post 7429
+
+<div align="center"><video src="files/post_7429_tasiyanc_7429.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7429_tasiyanc_7429.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقای رضاییان هنوز نمیدونی چرا بدشانسی میارید؟ 😒
+@Tasiyanc 💠
+</div>
 
 ## tasiyanc — post 7428
 
@@ -145,11 +156,5 @@ FAST ⚡⚡🔥.npvt
 
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ هم اکنون حملات آمریکا به سیریک
 </div>
 

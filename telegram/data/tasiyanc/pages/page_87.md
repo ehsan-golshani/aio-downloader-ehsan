@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/26 12:06
+📅 آخرین بروزرسانی: 1405/05/26 12:52
 
 ---
+
+## tasiyanc — post 6622
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعت سرویس ساب نامحدود ک براتون گذاشتیم 🚀 داخل چنل پروکسی پین شده ❤️ https://t.me/+v0wRP5SGNrg5MThk 👆
+</div>
 
 ## tasiyanc — post 6621
 
@@ -184,14 +190,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 PASSWORD 🔑 : @Tasiyanc
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6570
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 ⭕️هگست : اگر لازم باشد با بمب‌ها مذاکره کنیم، با بمب‌ها مذاکره خواهیم کرد.
-ما در این کار بسیار ماهریم
-
-@Tasiyanc ✅
 </div>
 
