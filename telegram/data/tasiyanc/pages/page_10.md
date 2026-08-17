@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/26 22:48
+📅 آخرین بروزرسانی: 1405/05/26 23:24
 
 ---
+
+## tasiyanc — post 9167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن multi📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید بزنید وصله ⭕️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+a19
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9165
+
+<div align="center"><img src="files/post_9165_tasiyanc_9165.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷 a19
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9164
 
@@ -268,41 +323,5 @@ ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.167:443#%40Tasiyanc
 •اتصال امن برای همه 🇮🇷
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9144
-
-<div align="center"><img src="files/post_9144_tasiyanc_9144.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 پرامپت اختصاصی 🤖🤖
-
-Prompt Woman
-
-A high-contrast, moody black and white portrait photograph. A young woman with dark, wavy hair, wearing sunglasses, an oversized quilted puffer jacket, wide black trousers, and heavy combat boots, is seated on a low metal stool on a rugged dirt path. She is leaning forward in a contemplative pose, looking downward at her hands, which are holding a coiled leather leash. Directly behind her stands a massive black panther, looking intensely forward with sharp eyes. The backdrop is a desolate outdoor landscape with low, scrubby brush and a stormy, dark sky above, all rendered with dramatic film grain and strong chiaroscuro lighting. Solemn, grounded, atmospheric. Medium shot, caught on a high-end film camera.
-
-Prompt Man
-
-A high-contrast, moody black and white portrait photograph. A handsome young man with short, styled dark wavy hair, a neat beard, wearing sunglasses, an oversized quilted puffer jacket, wide black trousers, and heavy combat boots, is seated on a low metal stool on a rugged dirt path. He is leaning forward in a contemplative pose, looking downward at his hands, which are holding a coiled leather leash. Directly behind him stands a massive black panther, looking intensely forward with sharp eyes. The backdrop is a desolate outdoor landscape with low, scrubby brush and a stormy, dark sky above, all rendered with dramatic film grain and strong chiaroscuro lighting. Solemn, grounded, atmospheric. Medium shot, caught on a high-end film camera.
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9143
-
-<div align="center"><img src="files/post_9143_tasiyanc_9143.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در‌تروث : 51 سال رفتار نامناسب ایران!
-حالا چرا ۵۱ سال ، ۴ سال زمان محمدرضا شاه رو هم میگه؟😐
-</div>
-
-## tasiyanc — post 9142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش وضعیت اینترنت همراه و ایرانسل
 </div>
 

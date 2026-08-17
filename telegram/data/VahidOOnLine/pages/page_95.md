@@ -1,8 +1,37 @@
 # آرشیو کانال VahidOOnLine - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/05/26 22:45
+📅 آخرین بروزرسانی: 1405/05/26 23:22
 
 ---
+
+## VahidOOnLine — post 253272
+
+<div align="center"><img src="files/post_253272_VahidOOnLine_253272.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت خارجه جمهوری اسلامی با انتشار بیانیه‌ای اعلام کرد «ضربات دفاعی نیروهای مسلح با تمام توان ادامه دارد» و بر عزم حکومت برای مقاومت تا «دفع کامل شرارت دشمنان» تاکید کرد.
+
+این وزارتخانه در ادامه با اشاره به تفاهم با آمریکا نوشت که واشینگتن با ادامه محاصره دریایی بنادر، حملات به مناطق مختلف کشور، تشدید فشارهای اقتصادی و تهدیدها، به اقدامات تجاوزکارانه علیه جمهوری اسلامی ادامه می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253271
+
+<div align="center"><video src="files/post_253271_VahidOOnLine_253271.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253271_VahidOOnLine_253271.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️پلیس روسیه اعلام کرد در پی انفجاری در نزدیکی یک کافه در مسکو، دست‌کم سه نفر کشته و ۱۵ نفر دیگر زخمی شدند.
+به گزارش خبرگزاری ریانووستی به نقل از پلیس، این انفجار شامگاه شنبه دهم مرداد ماه، در نزدیکی یک کافه تابستانی رخ داد.
+پلیس اعلام کرد سه نفر در این حادثه جان باختند و ۱۵ نفر نیز با جراحات متفاوت به مراکز درمانی منتقل شدند.
+مقام‌های روسیه تاکنون علت این انفجار را اعلام نکرده‌اند و تحقیقات درباره این حادثه ادامه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253270
 
@@ -283,33 +312,6 @@
 
 بر اساس گزارش خبرگزاری دولتی ایرنا، در همان زمان یک بالگرد آمریکایی بر فراز لنج‌های ایرانی حضور داشت و با پرتاب گلوله‌های منور اقدام به پراکنده کردن لنج‌های صیادی کرده بود. پس از آن، دیگر صدایی از حمید بلوچ و ۱۶ صیاد همراه او شنیده نشد و خبری از سرنوشت آنان به کنارک نرسید.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253251
-
-<div align="center"><video src="files/post_253251_VahidOOnLine_253251.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253251_VahidOOnLine_253251.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️مدیر کل حفاظت محیط زیست استان تهران روز شنبه دهم مرداد تصاویری از بازیگوشی دو خرس قهوه‌ای را که توسط دوستداران طبیعت در یکی از مناطق حفاظت‌شده شهرستان شمیرانات ثبت شده، منتشر کرد.
-او این رخداد را نشانه پویایی زیستگاه‌های طبیعی و اثربخشی اقدامات حفاظتی در این مناطق دانست و گفت ثبت این تصاویر نشان‌دهنده تداوم حضور گونه‌های ارزشمند حیات‌وحش در زیستگاه‌های استان تهران است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253250
-
-<div align="center"><video src="files/post_253250_VahidOOnLine_253250.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253250_VahidOOnLine_253250.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده نشان می‌دهد که ایرانیان مقیم سوئد روز شنبه ۱۰ مرداد در شهر مالمو با برگزاری تجمعی، اعدام‌های جمهوری اسلامی در میدان علیخانی اصفهان را محکوم کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

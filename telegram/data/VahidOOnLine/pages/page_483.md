@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 483
 
-📅 آخرین بروزرسانی: 1405/05/26 22:45
+📅 آخرین بروزرسانی: 1405/05/26 23:22
 
 ---
+
+## VahidOOnLine — post 243665
+
+<div align="center"><video src="files/post_243665_VahidOOnLine_243665.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243665_VahidOOnLine_243665.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران اینترشنال گفت که به دلیل درخواست فرزندش ناچار شده است یک عدد بستنی را ۲۰۰ هزار تومان بخرد و قیمت‌ها را «سرسام‌آور» توصیف کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243664
+
+<div align="center"><img src="files/post_243664_VahidOOnLine_243664.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️العربیه روز پنجشنبه ۱۴ خرداد به نقل از یک منبع آگاه اعلام کرد که توافق میان جمهوری اسلامی و ایالات متحده در مراحل پایانی خود قرار دارد و مانع اصلی باقی‌مانده، مربوط به نحوه مدیریت بخشی از دارایی‌های مسدودشده ایران است.
+
+به گفته این منبع، دونالد ترامپ به میانجی‌گران اطلاع داده است که با آزادسازی هرگونه وجهی پیش از امضای رسمی توافق مخالفت خواهد کرد. همچنین بر اساس اظهارات این منبع، در حال حاضر پیشنهاد ایجاد یک صندوق ویژه برای تودیع دارایی‌های مسدودشده ایران در دست بررسی و گفتگو قرار دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243663
 
@@ -285,37 +311,6 @@ http
 
 مجتبی خامنه‌ای خطاب به مسئولان جمهوری اسلامی نوشت: «هرگونه اقدامی که موجب بدبینی و سرخوردگی آحاد مردم شود نوعی کمک به دشمن این کشور و مردمانش محسوب می‌گردد.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243639
-
-<div align="center"><video src="files/post_243639_VahidOOnLine_243639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243639_VahidOOnLine_243639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️در جریان دیدار سامیه سولوهو حسن، رئیس‌جمهوری تانزانیا، و هیئت همراه او با ولادیمیر پوتین در کرملین، لحظه‌ای کوتاه اما جالب توجه دوربین‌ها را به خود جلب کرد.
-بر اساس ویدیوهای منتشرشده از این مراسم، پوتین متوجه شد کارت شناسایی یکی از وزیران تانزانیایی در گردن او پیچ خورده است و آن را مرتب کرد.
-این اقدام قدرتمند‌ترین فرد روسیه، مورد توجه رسانه‌ها و کاربران شبکه‌های اجتماعی قرار گرفت.
-رئیس‌جمهوری تانزانیا برای سفری سه‌روزه به روسیه رفته است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243631
-
-<div align="center"><video src="files/post_243631_VahidOOnLine_243631.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243631_VahidOOnLine_243631.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پاسخگویی فقط یک واژه سیاسی نیست؛ وجه تمایز «دولت» و «رژیم» است.
-در جلسه استماع سنای آمریکا، مارکو روبیو درباره جنگ ایران، تنگه هرمز، تحریم‌ها و هزینه‌های سیاست دولت مورد پرسش قرار گرفت.
-نکته مهم فقط پاسخ‌های او نبود؛ این بود که مجبور بود پاسخ بدهد. ورق بزنید.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

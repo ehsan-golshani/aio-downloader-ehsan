@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/05/26 22:48
+📅 آخرین بروزرسانی: 1405/05/26 23:24
 
 ---
+
+## tasiyanc — post 6804
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظر برخی از اعضاء پس توافق حتمیه !
+</div>
+
+## tasiyanc — post 6803
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظر برخی از اعضاء
+پس توافق حتمیه !
+</div>
+
+## tasiyanc — post 6802
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴جزئیات مراسم وداع، تشییع و تدفین علی خامنه ای رسما اعلام شد
+
+شنبه و یکشنبه 13 و 14 تیر (19 و 20 محرم): مراسم وداع با پیکر در مصلای امام خمینی تهران
+
+دوشنبه 15 تیر (21 محرم): مراسم تشییع در تهران.
+
+سه شنبه 16 تیر (22 محرم): مراسم تشییع در شهر قم
+
+پنجشنبه 18 تیر (24 محرم، شب شهادت امام سجاد ): تشییع در مشهد مقدس و سپس خاکسپاری در حرم امام رضا
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6801
 
@@ -171,23 +200,5 @@ VIP⚡ APEX ⛓️.npvt
 آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کدوم کانال خارجی دارید می‌بینید مسابقات جام جهانی رو؟
-</div>
-
-## tasiyanc — post 6776
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ NEXUS 🪐.npvt
-</div>
-
-## tasiyanc — post 6775
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ NEXUS 🪐.npvt
 </div>
 

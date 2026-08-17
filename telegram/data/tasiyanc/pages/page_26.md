@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/26 22:48
+📅 آخرین بروزرسانی: 1405/05/26 23:24
 
 ---
+
+## tasiyanc — post 8757
+
+<div align="center"><video src="files/post_8757_tasiyanc_8757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8757_tasiyanc_8757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صنعت پهبادی اوکراین تو یه لول دیگه اس !
+🇷🇺🇺🇦 یک تانک روسی T-80BVM با ارزش تقریبی ۴ میلیون دلار، توسط یک پهپاد ۵۰۰ دلاری اوکراینی منهدم شد.
+﻿
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران جای عجیبیه جای لف دادن از چنل سام صابری حرومزاده ممبراش بالا اومده
+</div>
+
+## tasiyanc — post 8755
+
+<div align="center"><img src="files/post_8755_tasiyanc_8755.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسلیت.
+</div>
 
 ## tasiyanc — post 8754
 
@@ -197,31 +224,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 🔺 کشورایی که سالانه بیشترین میانگین توریست رو دارن
 
 @TASIYANC 💠
-</div>
-
-## tasiyanc — post 8728
-
-<div align="center"><video src="files/post_8728_tasiyanc_8728.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8728_tasiyanc_8728.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عکس و فیلمبرداری توسط توریست‌ها تو کره شمالی ممنوعه، ولی یه توریست روسی یواشکی این ویدیو رو گرفته و بعد از خروجش از خاک کره شمالی منتشرش کرده.
-
-دوتا پنکه گذاشتن جلو عکس کیم جونگ اون و خانواده که گرمشون نشه. 😂😂😂
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8727
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺کاهش 8% درصدی قیمت نفت به ۹۱ دلار بدلیل توقف حملات جمهوری اسلامی و آمریکا
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8726
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ⚡🇹🇷.nm
 </div>
 
