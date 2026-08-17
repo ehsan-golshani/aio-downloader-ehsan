@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/05/27 00:26
+📅 آخرین بروزرسانی: 1405/05/27 01:41
 
 ---
+
+## tasiyanc — post 6108
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ وایرگارد میزارم تست کنین
+
+برنامشو دان کنین
+
+دانلود Wg tunnel
+https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunnel
+</div>
+
+## tasiyanc — post 6107
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪🚀 رایتل.npvt
+</div>
+
+## tasiyanc — post 6106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc ⚡🔥HOT.npvt
+</div>
 
 ## tasiyanc — post 6104
 
@@ -161,33 +184,5 @@ Channel@Tasiyanc.ovpn
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6082
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀🇮🇹🇳🇱 سرعتی - VIP.npvt
-</div>
-
-## tasiyanc — post 6081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-۲سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک سرویس خریداری کردید هر ۲۴ ساعت کانفیگ ها آپدیت میشن برید ساب لینکتون و کانفیگ های جدید رو بردارید
 </div>
 
