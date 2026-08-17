@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/26 02:45
+📅 آخرین بروزرسانی: 1405/05/26 10:02
 
 ---
+
+## tasiyanc — post 8930
+
+## tasiyanc — post 8929
+
+<div align="center"><img src="files/post_8929_tasiyanc_8929.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#کاربردی 🆕
+
+🔎 اگه همیشه استرس اینو داشتید که یه سایت کلاهبرداریه یا نه، این ابزار آنلاین کمکتون می‌کنه هر سایتی رو زیر و رو کنید، درصد احتمال کلاهبردار بودنشو ببینید و دلیلشم بفهمید.
+
+
+• سایت‌ها رو کامل بررسی می‌کنه و نمره اعتماد میده
+• درصد احتمال اسکم بودن رو نشون میده
+• دلیل این تحلیل‌ها رو واضح و راحت توضیح میده
+👉 https://scamminder.com/
+
+👹 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8928
+
+<div align="center"><video src="files/post_8928_tasiyanc_8928.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8928_tasiyanc_8928.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 شبی که مردم ایران با آمریکا ابراز همدردی کردند
+
+یازدهم سپتامبر 2001 بعد از فاجعه بزرگ برخورد ۲ هواپیمای ربوده شده توسط «گروهک تروریستی القائده» به برج های دوقلو تجارت جهانی که منجر به کشته شدن تعداد زیادی غیرنظامی شد مردم ایران برای ابراز همدردی به خیابان ها آمدند و شعار « آمریکا تسلیت ؛ مرگ بر القائده» سر دادند و به یاد کشته شده ها شمع روشن کردند
+﻿
+📱@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8927
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴احمدرضا رادان، فرمانده کل نیروی انتظامی:
+
+من یه مشکلی برام پیش اومد که گفتم نمیتونم در جلسه شورای دفاع در نهم اسفندماه شرکت کنم و غلامرضا رضاییان، رییس سازمان اطلاعات فراجا به جای من در جلسه شرکت کرد و کشته شد.
+
+💙@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8926
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پیشنهاد_ویژه ⚠️
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
+دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
+</div>
+
+## tasiyanc — post 8925
+
+<div align="center"><video src="files/post_8925_tasiyanc_8925.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8925_tasiyanc_8925.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🖱به راحتی کسب درامد کن 💵💰
+
+🟢 ویدیو #آموزش بازی chicky choice رو براتون گذاشتم خیلی راحت و بدون ریسک و میتونی بازی کنی و کلی پول دربیاری🔥
+
+💖 حتما ویدیو رو تا انتها ببینید
+💻لینک سایت بازی:
+💻 betinja.bet
+💻 betinja.bet
+🌐 کانال بونوس های رایگان g11
+@betinjabet
+</div>
 
 ## tasiyanc — post 8923
 
@@ -208,82 +279,5 @@ IPv6
 New Wallpapers ✨ HD
 
 🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8904
-
-<div align="center"><img src="files/post_8904_tasiyanc_8904.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#سرگرمی - #کاربردی
-
-🪐 می‌خوای منظومه شمسی رو زنده ببینی؟
-
-ناسا یک سایت فوق‌العاده ساخته که می‌تونی حرکت سیاره‌ها، فضاپیماها و مأموریت‌های فضایی رو به‌صورت سه‌بعدی و تعاملی تماشا کنی.
-
-🌐 https://eyes.nasa.gov
-
-بعد از باز کردن سایت ، رو هر کدوم از سیاره ها ، شهاب سنگ و ... بزنید با جزییات براتون میاره
-
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8903
-
-<div align="center"><img src="files/post_8903_tasiyanc_8903.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری: پست جدید اتاق جنگ اسرائیل
-
-تیک تاک⌛ دقیقا قبل از جنگ ۴۰ روزه، همچین توییتی زده بود.
-
-🔱 @TASIYANc
-</div>
-
-## tasiyanc — post 8902
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺قیمت دلار  ۱۹۶ هزار تومان  شد
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8901
-
-<div align="center"><img src="files/post_8901_tasiyanc_8901.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ:
-
-در حال نابودی کامل ارزش پول ایران هستم. در شروع دوران ریاست جمهوری من دلار ۹۰ هزار تومن بوده و الان شده ۱۹۶ هزار تومن.
-
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8900
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود نپسترنت
-
-سرور سرعتی تست شده لوکییشن ایتالیا 🇮🇹
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه
-
-✔️ @TASIYANC
-</div>
-
-## tasiyanc — post 8899
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ کانفیگ ویتوری لوکیشن 🇹🇷
-
-
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.46:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#Hi%20%C4%B0stanbul%20%F0%9F%87%B9%F0%9F%87%B7%20%40Tasiyanc
-vmess://eyJhZGQiOiI1LjE4OC4xOTAuMjUyIiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiIiLCJpZCI6IjA0NjIxYmFlLWFiMzYtMTFlYy1iOTA5LTAyNDJhYzEyMDAwMiIsImluc2VjdXJlIjoiMCIsIm5ldCI6InRjcCIsInBhdGgiOiIiLCJwY3MiOiIiLCJwb3J0IjoiMjIzMjQiLCJwcyI6IkBUYXNpeWFuYyDwn4e58J+HtyIsInNjeSI6ImF1dG8iLCJzbmkiOiIiLCJ0bHMiOiIiLCJ0eXBlIjoibm9uZSIsInYiOiIyIiwidmNuIjoiIn0=
-
-
-🔱 @TASIYANC
 </div>
 

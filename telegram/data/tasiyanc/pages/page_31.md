@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/26 02:45
+📅 آخرین بروزرسانی: 1405/05/26 10:02
 
 ---
+
+## tasiyanc — post 8591
+
+<div align="center"><video src="files/post_8591_tasiyanc_8591.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8591_tasiyanc_8591.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امیر دوست پسر قبلی نیکا فلاحی وقتی فهمید نیکا با مرسلی رفته تو رابطه از لجش اومده عکسای نود بدون سانسورشو پخش کرده ولی خودمونیم چیز خوبیه
+
+📥 مشاهده ویدیو
+</div>
+
+## tasiyanc — post 8590
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی پرمیوم  ⚡️
+
+آموزش اتصال ⛓
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8589
+
+<div align="center"><img src="files/post_8589_tasiyanc_8589.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طبق تحقیقات روانشناسی، دخترا نسبت به پسرا تمایلات جنسی بیشتری دارن؛ فقط بیان نمیکنن و تظاهر میکنن از این داستانا خوششون نمیاد!
+
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8588
+
+<div align="center"><video src="files/post_8588_tasiyanc_8588.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8588_tasiyanc_8588.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☄️ مرگ دایناسورها؛ داستان یک برخورد مرگبار
+
+شهاب‌سنگی عظیم به منطقه‌ای در مکزیک امروزی برخورد کرد و انفجاری با قدرتی باورنکردنی به وجود آورد. گردوغبار ناشی از این برخورد، آتش سوزی جنگلها و... زنجیره غذایی از هم پاشید و در نهایت حدود ۷۵ درصد از گونه‌های زنده زمین، از جمله دایناسورها، منقرض شدند.
+امروز دهانه عظیم چیکشلوب زیر خاک و آب‌های مکزیک مدفون است؛ یادگاری خاموش از یکی از سرنوشت‌سازترین لحظات تاریخ زمین🌍
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8587
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 حمله به عربستان هم اکنوننننننن
+</div>
+
+## tasiyanc — post 8580
+
+<div align="center"><img src="files/post_8580_tasiyanc_8580.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه خانوم از اروپا بلند شده بره افغانستان و مثلا نشون بده که اره افغانیا خوبن و رفتارشون عالیه روز آخر توسط یه نفر مورد تجاوز قرار میگیره
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8579
 
@@ -207,89 +275,5 @@ vless://073d1d50-8478-47bf-a828-7a1b381931d5@104.17.147.129:443?path=%2Fodiyfws&
 Location 🤯 🇫🇷
 
 @TASIYANC✅
-</div>
-
-## tasiyanc — post 8551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨تخریب ایستگاه‌های برق و تاسیسات جدید تصفیه آب در کویت
-
-@TASIYANC 
-⭐️
-</div>
-
-## tasiyanc — post 8549
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨کشتی های امریکایی در سواحل قطر مورد هدف قرار گرفتن
-
-@TASIYANC 
-⭐️
-</div>
-
-## tasiyanc — post 8542
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-⭕️ انفجار در قطرررررررر
-</div>
-
-## tasiyanc — post 8541
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇹🇷🍃 HotFast.npvt
-</div>
-
-## tasiyanc — post 8540
-
-<div align="center"><video src="files/post_8540_tasiyanc_8540.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8540_tasiyanc_8540.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم  ترکیه - استانبول
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود 
-⬇️ ترید 
-🤑
-اینستاگرام 
-📸 جمینای 
-🤖
-
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ فاکس نیوز رسانه نزدیک به ترامپ:
-اسرائیل به جنگ‌ خواهد پیوست.
-@TASIYANC ⭐️
 </div>
 
