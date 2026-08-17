@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/05/26 17:34
+📅 آخرین بروزرسانی: 1405/05/26 18:12
 
 ---
+
+## ProxyMTProto — post 48255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: get.utkanos.life
+Port: 443
+Secret: eed8c4721b5a97067cca9364b04d293afc6765742e75746b616e6f732e6c696665
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48254
 
@@ -172,15 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: 150.241.68.96
 Port: 443
 Secret: ee6d6963726f736f66742e636f6dd95c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48235
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: For.you.ir.gdhbvjshjrf.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 

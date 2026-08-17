@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/05/26 17:36
+📅 آخرین بروزرسانی: 1405/05/26 18:14
 
 ---
+
+## tasiyanc — post 5927
+
+<div align="center"><img src="files/post_5927_tasiyanc_5927.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Wifi نت خانگی⚡.npvt
+</div>
 
 ## tasiyanc — post 5926
 
@@ -184,26 +192,5 @@ New⚡Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 2Vip🇩🇪.npvt
-</div>
-
-## tasiyanc — post 5905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑 رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- 2 سرور  سرعتی
-🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-
-🦁  @Tasiyanc ✅
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/26 17:36
+📅 آخرین بروزرسانی: 1405/05/26 18:14
 
 ---
+
+## tasiyanc — post 9011
+
+<div align="center"><img src="files/post_9011_tasiyanc_9011.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺ موبایل سامسونگ A26؛ پنجشنبه 52 میلیون بود و امروز شده 87 میلیون!فقط در عرض 2 روز، 35 میلیون گرون شده!
+
+
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9010
 
@@ -423,11 +436,5 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 طبق گزارش اعضا اینترنت همراه و ایرانسل ریده و اکثر فیلترشکنا از کار افتادن
-</div>
-
-## tasiyanc — post 8989
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همراه اول و ایرانسل وضعیت اینترنت شما چطوره الان؟
 </div>
 

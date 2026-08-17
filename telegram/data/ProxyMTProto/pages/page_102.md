@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/05/26 17:34
+📅 آخرین بروزرسانی: 1405/05/26 18:12
 
 ---
+
+## ProxyMTProto — post 48195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 65.109.147.39
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48194
 
@@ -172,15 +181,6 @@ Secret: ee8e76a8074d7aa4d1b5d279e3d2eecc82617669746f2e7275
 Server: For-best-download-iran.ir.gybshdjls.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48175
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy53.arixo.shop
-Port: 443
-Secret: eee790bfa33677c32f4794a52828bc229a617669746f2e7275
 @ProxyMTProto
 </div>
 

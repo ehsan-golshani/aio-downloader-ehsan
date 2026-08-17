@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/05/26 17:36
+📅 آخرین بروزرسانی: 1405/05/26 18:14
 
 ---
+
+## tasiyanc — post 8063
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨 حمله آمریکا هم اکنون به بوشهر ۴ انفجار شدید @TasiyanProxy ☑️
+</div>
 
 ## tasiyanc — post 8059
 
@@ -264,15 +270,5 @@
 در حالی که داشتم سومین لیوان چاییم رو میخوردم اینو دیدم:
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7998
-
-<div align="center"><img src="files/post_7998_tasiyanc_7998.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هرکی گفت پول خوشبختی نمیاره اینو نشونش بده خفه شه؛ تعطیلات وینیسیوس با دوست دخترش:
-
-@Tasiyanc ⭐️
 </div>
 

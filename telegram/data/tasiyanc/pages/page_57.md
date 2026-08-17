@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/05/26 17:36
+📅 آخرین بروزرسانی: 1405/05/26 18:14
 
 ---
+
+## tasiyanc — post 7701
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسطوره بچگی هامون امشب بازی حساسی داره و این آخرین جام جهانی Goat هست
+</div>
 
 ## tasiyanc — post 7700
 
@@ -217,13 +223,5 @@ VIP 🎯 @Tasiyanc.nm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آخر اسم چنل کلمه VPN اضافه شد
-</div>
-
-## tasiyanc — post 7666
-
-<div align="center"><img src="files/post_7666_tasiyanc_7666.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast ⚡ Unlimited.npvt
 </div>
 

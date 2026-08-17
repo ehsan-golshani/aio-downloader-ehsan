@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/26 17:36
+📅 آخرین بروزرسانی: 1405/05/26 18:14
 
 ---
+
+## tasiyanc — post 8860
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️حتما این بازی رو تست کنید:
+
+➡️ 🤩 🤩 🤩 🤩 🤩 👈
+
+✅ دیگه حوصلت سر نمیره بهترین سرگرمی ممکن رو آوردم براتون 😍
+🙄 پر از بازی های سرگرم کننده آنلاین
+</div>
 
 ## tasiyanc — post 8859
 
@@ -266,18 +277,5 @@ R8
 چون برگزاری آزمون‌ها تقریبا یک ماه تاخیر داشته.
 حالا همه تلاش‌مون رو می‌کنیم که اول آبان یا تو خودِ آبان ماه مدارس رو باز کنیم.
 ✈️@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8833
-
-<div align="center"><video src="files/post_8833_tasiyanc_8833.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8833_tasiyanc_8833.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز 8 مرداد، تولد جاویدنام آیدا حیدری هست، دانشجوی پزشکی 21 ساله‌، که در اعتراضات دی ماه، به قتل رسید.
-
-مادر آیدا بعد از فوت دخترش، هر شب به بالکن میره و زار زار گریه می‌کنه.
-⭐ @TASIYANC ⭐️
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/26 17:36
+📅 آخرین بروزرسانی: 1405/05/26 18:14
 
 ---
+
+## tasiyanc — post 8236
+
+<div align="center"><video src="files/post_8236_tasiyanc_8236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8236_tasiyanc_8236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 در حملات صبح امروز آمریکا به چابهار، برج ۸۰ متری کنترل دریایی این شهر بطور کامل فرو ریخت
+
+
+
+@Tasiyanc ✅| بانك کانفیگ رایگان
+</div>
 
 ## tasiyanc — post 8235
 
@@ -174,11 +188,5 @@
 ⏺حمله آمریکا به بندرلنگه
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8215
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برق ایرانشهر انگار کاملا رفته @Tasiyanc✅
 </div>
 

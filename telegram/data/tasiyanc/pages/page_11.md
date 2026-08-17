@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/26 17:36
+📅 آخرین بروزرسانی: 1405/05/26 18:14
 
 ---
+
+## tasiyanc — post 9138
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروه تاسیان فعاله جوین بشید https://t.me/+DhVkjFb6qhZmYTFk
+</div>
 
 ## tasiyanc — post 9137
 
@@ -293,23 +299,4 @@ r18
 </div>
 
 ## tasiyanc — post 9116
-
-## tasiyanc — post 9115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن Turkey📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 
-🇮🇷
-
-✅ @TASIYANC
-</div>
 
