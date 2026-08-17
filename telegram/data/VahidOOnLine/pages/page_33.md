@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/26 06:44
+📅 آخرین بروزرسانی: 1405/05/26 07:43
 
 ---
+
+## VahidOOnLine — post 254711
+
+<div align="center"><img src="files/post_254711_VahidOOnLine_254711.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شبکه المسیره، وابسته به حوثی‌های یمن، گزارش داد این گروه نیابتی جمهوری اسلامی یک کشتی حامل «تجهیزات نظامی» عربستان سعودی را در باب‌المندب هدف قرار داده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254710
+
+<div align="center"><video src="files/post_254710_VahidOOnLine_254710.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254710_VahidOOnLine_254710.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد یکی از معترضان شعاری را روی سطل زباله نوشته است: «کجا جنگ رو بردیم؟ نه آب داریم نه برق نه پول غذا»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254709
 
@@ -267,37 +291,6 @@ IranintlTV
 رضایی اضافه کرد: «آمریکا باید جنگ را پایان دهد، پول‌های مسدود شده ایران را بپردازد و جنگ در کل منطقه از جمله لبنان و غزه پایان یابد، شروط دیگر تهران نیز از طریق واسطه‌ها به آن‌ها منتقل شده است.»
 دبیر شورای عالی امنیت ملی در این دیدار گفت: «بین جمهوری اسلامی و چین یک توافق راهبردی وجود دارد و از دیگر سو دو کشور در پیمان‌های مهم بین‌المللی همچون شانگهای و بریکس حضور دارند و این می‌تواند ظرفیت بزرگی برای توسعه روابط در آینده باشد.»
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254691
-
-<div align="center"><video src="files/post_254691_VahidOOnLine_254691.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254691_VahidOOnLine_254691.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محسن نقوی وزیر کشور پاکستان، پس از ورود به تهران در عصر سه‌شنبه ۲۰ مردادماه، با عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، دیدار کرد.
-
-پاکستان از میانجی‌گران کلیدی در مذاکرات میان تهران و واشنگتن به شمار می‌رود و نقوی نیز در ماه‌های گذشته بارها به تهران سفر کرده و با مقام‌های ایرانی، از جمله اسکندر مومنی و عباس عراقچی، دیدار کرده بود.
-
-این سفر در حالی انجام می‌شود که همزمان با گمانه‌زنی‌ها درباره ازسرگیری مذاکرات میان ایران و آمریکا، خواجه محمد آصف وزیر دفاع پاکستان، از نزدیک شدن دو طرف به تفاهم خبر داده بود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254690
-
-<div align="center"><video src="files/post_254690_VahidOOnLine_254690.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254690_VahidOOnLine_254690.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در حالی که بسیاری از نقاط ایران، به‌ویژه تهران، طی روزهای اخیر با گرمای شدید هوا روبه‌رو بوده‌اند، بارش باران و مه غلیظ روز سه‌شنبه ۱۹ مردادماه در شهرستان فیروزکوه، چهره‌ای متفاوت از آب‌وهوای تابستانی را به نمایش گذاشت.
-تصاویر منتشرشده از این منطقه، بارش باران و کاهش محسوس دما همراه با مه‌گرفتگی را نشان می‌دهد؛ شرایطی که در میانه فصل تابستان، تضادی چشمگیر با هوای گرم حاکم بر بخش‌های وسیعی از ایران ایجاد کرده است
-Indypersian
 
 🤖 @VahidOOnLine
 </div>
