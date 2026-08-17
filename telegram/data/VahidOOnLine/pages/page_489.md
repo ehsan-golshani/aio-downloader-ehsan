@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 489
 
-📅 آخرین بروزرسانی: 1405/05/26 14:23
+📅 آخرین بروزرسانی: 1405/05/26 14:48
 
 ---
+
+## VahidOOnLine — post 243421
+
+<div align="center"><video src="files/post_243421_VahidOOnLine_243421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243421_VahidOOnLine_243421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی که به تازگی به ایران اینترنشنال رسیده نشان می‌دهد که ۱۸ دی در راهپیمایی مردم معترض در گلسار رشت، شعار «این آخرین نبرده، پهلوی برمی‌گرده» سر داده شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243420
 
@@ -282,21 +295,6 @@
 او همچنین گفت مقام‌های امارات متحده عربی در واکنش به حمله به نیروگاه هسته‌ای براکه بسیار سریع عمل کردند و به دلیل از دست رفتن برق خارجی، یک راکتور را خاموش کردند. گروسی تاکید کرد این موضوع نشان می‌دهد عاملان این حمله دقیقا می‌دانسته‌اند چه می‌کنند.
 
 مدیرکل آژانس تصریح کرد دستیابی به توافق برای پایان جنگ ایران بدون راستی‌آزمایی و نظارت بسیار قوی بر مفاد آن قابل تصور نیست. او افزود آژانس علاوه بر حمایت اخلاقی، حمایت فنی نیز به امارات ارائه می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243395
-
-<div align="center"><video src="files/post_243395_VahidOOnLine_243395.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243395_VahidOOnLine_243395.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از مخاطبان ایران‌اینترنشنال گفت میان مردم ایران و جمهوری اسلامی «دریایی از خون فاصله است» و با اشاره به شرایط سخت زندگی افزود: «دوام بیاوریم تا از این شب سیاه بگذریم؛ نور بر تاریکی پیروز است.»
-
-صدای او با هوش مصنوعی تغییر داده شده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

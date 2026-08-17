@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/26 14:25
+📅 آخرین بروزرسانی: 1405/05/26 14:50
 
 ---
+
+## tasiyanc — post 7016
+
+<div align="center"><video src="files/post_7016_tasiyanc_7016.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7016_tasiyanc_7016.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn سرور 🇸🇰📶
+
+تست شده تمام نتها 🚀
+
+دانلود OpenVpn  
+🕹
+
+آموزش اتصال
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7015
 
@@ -248,21 +268,5 @@ Password: @Tasiyanc
 
 T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6981
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اتصال با HTTPCUSTUM 
-🌟
-
-
-🔺فایل را ایمپورت کنین داخل برنامه گزینه V2ray بزنید -
-
-🔺 دکمه اتصال یا Connect بزنید شما وقتی اتصالتون انجام میشه پیامی با مضمون Ready To Use دریافت میکنید ، اتصال شما برقرار شد
-
-🔺 آموزش برای اندروید و iOS یکیست
-@Tasiyanc 
-💠
 </div>
 

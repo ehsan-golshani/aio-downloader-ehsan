@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/05/26 14:25
+📅 آخرین بروزرسانی: 1405/05/26 14:50
 
 ---
+
+## tasiyanc — post 6547
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی برخط شدن میاد اینبار
+</div>
 
 ## tasiyanc — post 6546
 
@@ -208,11 +214,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 کاخ سفید :ما معتقدیم به نتیجه نهایی مذاکرات نزدیکیم
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6522
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس جان ریدی با این مذاکره کردنات
 </div>
 

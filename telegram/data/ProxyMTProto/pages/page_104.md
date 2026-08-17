@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/26 14:23
+📅 آخرین بروزرسانی: 1405/05/26 14:49
 
 ---
+
+## ProxyMTProto — post 48148
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mail.proxyz.site
+Port: 443
+Secret: ee34cce08e4b2b62d5f9b3c4d71f6bd2646d61696c2e70726f78797a2e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48147
 
@@ -172,15 +181,6 @@ Secret: ee12893ffd2044cecd31104edc02a7e5586164732e78352e7275
 Server: www2.nilmart.ir
 Port: 443
 Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48128
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: wgwg.etherealvpn.uk
-Port: 443
-Secret: ee3b7ca716f61b904f00c0f93d9419de06617669746f2e7275
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/26 14:25
+📅 آخرین بروزرسانی: 1405/05/26 14:50
 
 ---
+
+## tasiyanc — post 8150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زندگی در میان گروهی نادان دشوار است ، اما زندگی در جایی که قدرت در دست همان نادان ها باشد ، هولناك است
+آلبر کامو
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8148
 
@@ -209,11 +218,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اهواز عزیز طاقت بیار ...
-</div>
-
-## tasiyanc — post 8116
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اهواز زیر دود بمباران 💔
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 152
 
-📅 آخرین بروزرسانی: 1405/05/26 14:23
+📅 آخرین بروزرسانی: 1405/05/26 14:48
 
 ---
+
+## VahidOOnLine — post 251801
+
+<div align="center"><video src="files/post_251801_VahidOOnLine_251801.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251801_VahidOOnLine_251801.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری ایسنا با انتشار ویدیویی از استقرار یک پرتابگر موشکی در میدان آزادی تهران خبر داد.
+در این ویدیو، یک سامانه پرتاب موشک بالستک در میان جمعیت و در یکی از پرترددترین نقاط پایتخت دیده می‌شود که در وضعیت آماده‌باش قرار دارد. تصاویر نشان می‌دهد این تجهیزات نظامی بدون فاصله‌گذاری خاص از فضای عمومی، در محل مستقر شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251800
 
@@ -258,17 +272,6 @@
 
 با برقراری این محاصره دریایی، تمامی شناورهای مرتبط با ایران و شناورهایی که مبداء یا مقصدشان بنادر ایران باشد، اجازه عبور از تنگه هرمز و ورود به آب‌های آزاد را ندارند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251781
-
-<div align="center"><img src="files/post_251781_VahidOOnLine_251781.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندهی مرکزی ایالات متحده (سنتکام) پنج‌شنبه اعلام کرد از زمان ازسرگیری محاصره دریایی ایران، ۱۲ کشتی مجبور به تغییر مسیر شده‌اند و یک فروند کشتی از کار انداخته شده است تا از ورود و خروج کشتی‌ها به بنادر ایران یا مناطق ساحلی این کشور جلوگیری شود.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

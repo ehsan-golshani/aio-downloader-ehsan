@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/05/26 14:25
+📅 آخرین بروزرسانی: 1405/05/26 14:50
 
 ---
+
+## tasiyanc — post 5851
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دمت گرم داش
+</div>
 
 ## tasiyanc — post 5850
 
@@ -191,11 +197,5 @@ Premium Fast servers 🔥🌱.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5810
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موشك داره میاد
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/05/26 14:25
+📅 آخرین بروزرسانی: 1405/05/26 14:50
 
 ---
+
+## tasiyanc — post 6522
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباس جان ریدی با این مذاکره کردنات
+</div>
 
 ## tasiyanc — post 6521
 
@@ -215,11 +221,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6485
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️
 </div>
 

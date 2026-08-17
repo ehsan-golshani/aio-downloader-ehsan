@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/26 14:25
+📅 آخرین بروزرسانی: 1405/05/26 14:50
 
 ---
+
+## tasiyanc — post 8308
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش انفجار ۱۰ مین پیش در یزد از اعضای عزیز
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8307
 
@@ -167,12 +175,6 @@
 </div>
 
 ## tasiyanc — post 8286
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
-</div>
-
-## tasiyanc — post 8285
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت

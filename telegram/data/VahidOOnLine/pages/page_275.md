@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 275
 
-📅 آخرین بروزرسانی: 1405/05/26 14:23
+📅 آخرین بروزرسانی: 1405/05/26 14:48
 
 ---
+
+## VahidOOnLine — post 248940
+
+<div align="center"><video src="files/post_248940_VahidOOnLine_248940.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248940_VahidOOnLine_248940.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️در ادامه مراسم تشییع رهبر پیشین جمهوری اسلامی، بامداد چهارشنبه، کامیون یخچال‌دار حامل علی خامنه‌ای با حضور حامیان حکومت، به حرم امام اول شیعیان در نجف رسید. به گزارش مهر، پیش از این، درهای حرم «امام علی» به‌دلیل «آماده‌سازی برای استقبال» از علی خامنه‌ای بسته شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248939
 
@@ -238,17 +251,6 @@
 دن لاموت خبرنگار واشنگتن‌پست نیز گفت که حملات آمریکا احتمالا برای چندین ساعت ادامه خواهد داشت.
 همچنین وال‌استریت ژورنال به نقل از مقام‌های آمریکایی گزارش دادد: ناوهای جنگی ایالات متحده همچنان در حالت آماده‌باش باقی مانده‌اند تا اگر دونالد ترامپ تصمیم بگیرد، محاصرهٔ بنادر ایران را دوباره برقرار کنند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248920
-
-<div align="center"><img src="files/post_248920_VahidOOnLine_248920.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آکسیوس به نقل از یک مقام آمریکایی گزارش داد حملات جدید آمریکا به جمهوری اسلامی از نظر گستره و قدرت، چهار تا پنج برابر بزرگ‌تر از حملات قبلی در تنگه هرمز طی ۱۰ روز پیش بوده است.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

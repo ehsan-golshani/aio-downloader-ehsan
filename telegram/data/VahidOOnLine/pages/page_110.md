@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/05/26 14:23
+📅 آخرین بروزرسانی: 1405/05/26 14:48
 
 ---
+
+## VahidOOnLine — post 252848
+
+<div align="center"><video src="files/post_252848_VahidOOnLine_252848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252848_VahidOOnLine_252848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کتی امیری‌یونسی، وکیل مدنی، درباره اعدام معترضان در ایران از سوی جمهوری اسلامی به ایران‌اینترنشنال گفت نهادهای بین‌المللی حقوق بشری در حال ثبت جنایت‌های جمهوری اسلامی هستند و عاملان این جنایت‌ها باید در آینده پاسخ‌گو شوند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252847
 
@@ -286,19 +299,6 @@
 دانشگاه علوم پزشکی هرمزگان اعلام کرد در حمله آمریکا «به یک منزل مسکونی در محله چاه تنگو شهر قشم، پدر و مادر خانواده و یک کودک ۲ ساله به کشته شدند و ۲ فرزند ۷ و ۹ ساله بر اثر این حملات زخمی و به بیمارستان منتقل شدند.»
 به گفته مقام‌های استان هرمزگان، تلاش نیروهای امدادی برای یافتن کودک دیگر این خانواده، ادامه دارد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252806
-
-<div align="center"><video src="files/post_252806_VahidOOnLine_252806.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252806_VahidOOnLine_252806.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرخط خبرهای پنج‌شنبه ۸ مرداد
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
