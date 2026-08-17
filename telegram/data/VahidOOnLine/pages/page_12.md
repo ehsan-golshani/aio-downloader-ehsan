@@ -1,8 +1,48 @@
 # آرشیو کانال VahidOOnLine - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/26 12:50
+📅 آخرین بروزرسانی: 1405/05/26 13:39
 
 ---
+
+## VahidOOnLine — post 255232
+
+<div align="center"><video src="files/post_255232_VahidOOnLine_255232.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255232_VahidOOnLine_255232.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدجواد تاجیک، مدیرعامل سازمان بهشت‌زهرا در گفتگو با شبکه افق صداوسیمای جمهوری اسلامی مدعی شد که ۵ هزار قبر در بیابان‌های اطراف تهران برای سربازان آمریکایی آماده شده است.
+تاجیک در واکنش به تردیدها درباره صحت این خبر گفت: «برخی آن را عملیات روانی می‌دانستند، اما واقعا آماده کرده‌ایم.» او توضیح بیشتری درباره محل دقیق این قبرها، نحوه آماده‌سازی آنها یا مبنای این ادعا ارائه نکرد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255231
+
+<div align="center"><video src="files/post_255231_VahidOOnLine_255231.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255231_VahidOOnLine_255231.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران اینترنشنال خطاب به مقام‌های باقی‌مانده حکومت از جمله محسنی اژه‌ای و احمد وحیدی می‌گوید که دست از جنگ‌طلبی بردارند چرا که همزمان با بحران معیشتی صبر مردم حدی دارد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255230
+
+<div align="center"><video src="files/post_255230_VahidOOnLine_255230.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255230_VahidOOnLine_255230.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد عصر جمعه ۲۳ مرداد در اطراف پالایشگاه شهر ری دود ناشی از آتش‌سوزی دیده شده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255229
 
@@ -262,50 +302,6 @@ IranintlTV
 
 در ۲۴ مرداد ۱۴۰۵، حدود دو سال پس از وقوع قتل، سه متهم پرونده در شعبه دهم دادگاه کیفری یک استان تهران محاکمه شدند. در این جلسه، فرزندان مقتول برای متهم اصلی درخواست قصاص کردند. پس از آخرین دفاع متهمان و وکلای آنها، قضات برای بررسی پرونده و تصمیم‌گیری وارد شور شدند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255212
-
-<div align="center"><video src="files/post_255212_VahidOOnLine_255212.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255212_VahidOOnLine_255212.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که به ایران اینترنشنال رسیده نشان می‌دهد همزمان با بحران معیشتی و اقتصادی یک جوان ۲۷ ساله آگهی تبلیغ فروش کلیه خود را روی دیواری نصب کرده که در زیر این تکه کاغذ آگهی دیوارنگاره حکومتی تبلیغ «شهید خامنه‌ای» دیده می‌شود.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255211
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️قالیباف: پس از آخرین حمله اسرائیل به ضاحیه بیروت مذاکرات با آمریکا را متوقف کردم
-
-♦️محمدباقر قالیباف، رییس مجلس شورای اسلامی، صبح شنبه ۲۴ مردادماه در نشست «جمعی از نخبگان فرهنگی» مدعی شد در آخرین حمله اسرائیل به ضاحیه بیروت، مذاکرات با ایالات متحده را متوقف کرده و اعلام کرده است که همان شب اسرائیل هدف قرار خواهد گرفت و اگر اسرائیل پاسخ دهد، «کل منطقه» هدف قرار می‌گیرد.
-
-قالیباف گفت: «نتیجه این تهدید آن شد که همان شب محاصره برداشته شد؛ در حالی که به گفته او قرار بود طبق تفاهم، این روند طی ۳۰ روز انجام شود».
-او همچنین مدعی شد پس از انتشار پست ترامپ درباره باز شدن هم‌زمان محاصره و تنگه هرمز، هشدار داده که اگر «ادعای غلط» درباره تنگه هرمز اصلاح نشود، حمله انجام خواهد شد و ترامپ ۵۸ دقیقه بعد مجبور شد مطلبی که منتشر کرده را اصلاح کند.
-
-رییس مجلس شورای اسلامی در ادامه این نوع رفتار را «مذاکره یعنی مبارزه» توصیف کرد؛ اظهاراتی که بار دیگر نشان می‌دهد بخشی از مقام‌های جمهوری اسلامی مذاکره را نه مسیر کاهش تنش، بلکه ابزاری برای تهدید، فشار و امتیازگیری در سایه بحران نظامی معرفی می‌کنند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255210
-
-<div align="center"><img src="files/post_255210_VahidOOnLine_255210.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرکز عملیات تجارت دریایی بریتانیا شنبه ۲۴ مرداد اعلام کرد یک کشتی فله‌بر شامگاه جمعه در تنگه هرمز با یک پرتابه ناشناس هدف قرار گرفت و این پرتابه به بدنه کشتی اصابت کرد.
-
-این مرکز گفت شامگاه جمعه گزارشی درباره وقوع یک حادثه در تنگه هرمز دریافت کرد و سپس گزارشی تاییدشده درباره اصابت پرتابه ناشناس به کشتی فله‌بر دریافت کرد.
-
-بر اساس گزارش‌ها، خدمه کشتی در سلامت هستند. تاکنون گزارشی درباره میزان خسارت منتشر نشده و پیامدهای زیست‌محیطی این حادثه نیز مشخص نیست.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

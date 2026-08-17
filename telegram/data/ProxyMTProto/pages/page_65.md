@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/05/26 12:50
+📅 آخرین بروزرسانی: 1405/05/26 13:39
 
 ---
+
+## ProxyMTProto — post 48928
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: bo9ss.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48927
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: net.pelmeshka.top
+Port: 443
+Secret: eefe12a66db0212791c3ba09df4f6123806e65742e70656c6d6573686b612e746f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48926
 
@@ -163,24 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e
 Server: net.pelmeshka.top
 Port: 443
 Secret: eefe12a66db0212791c3ba09df4f6123806e65742e70656c6d6573686b612e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48908
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48907
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: pl.nowabst.net
-Port: 853
-Secret: ee82ce1f84af4033cc7e7b021069be3d5b766b2e636f6d
 @ProxyMTProto
 </div>
 

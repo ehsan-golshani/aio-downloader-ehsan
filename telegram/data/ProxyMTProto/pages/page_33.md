@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/26 12:50
+📅 آخرین بروزرسانی: 1405/05/26 13:39
 
 ---
+
+## ProxyMTProto — post 49575
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: app.librava.click
+Port: 443
+Secret: eea1eceac9a9088b02d582d0ca99d9365e6170702e6c6962726176612e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49574
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: server.nl-arvancloud.co.uk
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49573
 
@@ -156,24 +174,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: azamatx.ru
 Port: 443
 Secret: ee1f2a9e2f72b01e9f39aae711ed6ea7c063646e2e79616e6465782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49555
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49554
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 
