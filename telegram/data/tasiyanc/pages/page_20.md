@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/26 14:50
+📅 آخرین بروزرسانی: 1405/05/26 16:49
 
 ---
+
+## tasiyanc — post 8916
+
+<div align="center"><img src="files/post_8916_tasiyanc_8916.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 مرندی عضو تیم مذاکره : همه میدونن این یه خبر فیکه
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8915
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 تنها دلیل حمله نکردن ترامپ لو رفتن نقشه و طرح حمله از طرف رسانه ها بود
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8914
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥با این سایت به راحتی میتونی کل ضرر های جام جهانی رو جبران کنی
+بونوس هاش واقعا عالیه👌🏼
+❌با هر 1 میلیون شارژ ، 🤩🤩🤩 هزارتومان شارژ اضافی بگیر🅰️
+
+✅ اپ اختصاصی با دسترسی راحت
+</div>
 
 ## tasiyanc — post 8913
 
@@ -219,104 +254,6 @@ g10
 ترامپ : میدونید موشک‌های ج‌ا رو چطوری رهگیری میکنیم ؟
 بینگ،بینگ،بینگ بینگ ،بینگ 😂
 
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8891
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ لوکیشن ترکیه و اسپانیا 💥
-
-دانلود برای اندروید
-
-دانلود برای آیفون 
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه
-
- @TASIYANC ✨
-</div>
-
-## tasiyanc — post 8890
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ایالات متحده آمریکا از تمامی شهروندانش خواسته هرچه سریع بدون وقفه خاورمیانه رو ترک کنن
-
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8888
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ سایت‌های کاربردی در زمان قطعی اینترنت
-
-🔝 آپلود (انتقال متن، کانفیگ، فایل و برنامه)
-pastehub.ir
-m.ulni.ir
-uploadkon.ir
-picofile.com
-uupload.ir
-linklick.ir
-nixfile.com
-⬇️ دانلود فیلم و سریال (بدون سانسور)
-myf2m.info
-serialblog.blog.ir
-filmaz.ir
-movie-chi.ir (اشتراکی)
-filmjoo.xyz
-filmkio.run (اشتراکی)
-dls2.iran-gamecenter-host.com/DonyayeSerial
-simbaapp.ir (نیمه‌اشتراکی)
-movielix.ir (اشتراکی)
-kiamovie.ir (نیمه‌اشتراکی)
-📃 دانلود زیرنویس
-subkade.ir
-subzone.ir
-3fa.ir
-🎵 دانلود موسیقی
-radio.9craft.ir
-melovaz.ir
-behmelody.in
-📚 کتاب
-fidibo.com
-taaghche.com
-navaar.ir
-libra-books.com
-ebooksworld.ir
-🎮نرم‌افزار و بازی
-bazion.ir
-soft98.ir
-yasdl.com
-farsroid.com
-par30games.net
-gameq.ir
-cafebazaar.ir
-downloadha.com
-gold-team.org
-sarzamindownload.com
-dlfox.com
-🔎 جستجوگرهای داخلی
-zarebin.ir
-gerdoo.me
-shaadbin.ir
-2059.ir
-🤷‍♂️ هوش مصنوعی و Ai
-chat.boofai.com
-hooshang.ai
-chat.smartbytes.ir
-🌀مسیریابی
-neshan.org
-balad.ir
-🌐ترجمه و دیکشنری
-abadis.ir
-fastdic.com
-dic.b-amooz.com
-﻿
 🔱 @TASIYANC
 </div>
 

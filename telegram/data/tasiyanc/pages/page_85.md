@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/26 14:50
+📅 آخرین بروزرسانی: 1405/05/26 16:49
 
 ---
+
+## tasiyanc — post 6687
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 🔐
+vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%E2%9A%A1%40Tasiyanc%F0%9F%94%B7
+🌐🇩🇪
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نورالدین الدغیر خبرنگار الجزیره در تهران:
+دیگر همه چیز قطعی و تمام شده
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠⭕️⭕️ ترامپ : خودم احتمالاً نمی‌تونم تو مراسم امضای توافق حضور داشته باشم و ونس به نمایندگی از آمریکا اونجا خواهد بود
+- امضای توافق ممکنه خیلی زود انجام بشه، حتی شاید همین آخر هفته
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6683
 
@@ -144,45 +173,5 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 لیست پخش کانالهای خارجی افتتاحیه و بازیهای جام‌جهانی 🔻Persiana Sports HD 🗣 Yahsat / TurkmenAlem 🟢10762 V 27500 🟢 10803 H 27500 🟢 11420 V 27500 🟢 11383 H 27500 🔻​TRT 1 HD 🇹🇷 🗣 Turksat 42°E 🟢 11794 V 30000 🔻​ ATN HD 🗣 Yahsat1A 🟢11938 H 27500 🟢 BISS:1234569C7890ABB3…
-</div>
-
-## tasiyanc — post 6664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌎🚀World Cup ⚡.npvt
-</div>
-
-## tasiyanc — post 6663
-
-<div align="center"><video src="files/post_6663_tasiyanc_6663.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6663_tasiyanc_6663.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۴سرور سرعتی همه نت ها 
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 🕹 IOS 
-📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6660
-
-<div align="center"><img src="files/post_6660_tasiyanc_6660.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ تو مراسم افتتاحیه جام جهانی امشب راس ساعت 21:00
-شکیرا، دنی اوشن، جی بالوین، بلیندا و لیسا توش قراره اجرا داشته باشن
-@Tasiyanc 
-✅
 </div>
 

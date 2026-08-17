@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/26 14:50
+📅 آخرین بروزرسانی: 1405/05/26 16:49
 
 ---
+
+## tasiyanc — post 7877
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش دانشمندان می‌توانستند دستگاهی اختراع کنند که خاطرات را مثل عطر توی یک بطری حفظ کنند. آن‌وقت می‌شد هر زمان که آرزو کردیم بطری را برداریم و آن لحظه را دوباره زندگی کنیم.
+- ربکا | دافنه دوموریه
+✔️ @Tasiyanc 🔋
+#Petros
+</div>
+
+## tasiyanc — post 7876
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حس میکنم نه دیگه ما می‌دونیم چی میشه، نه جمهوری اسلامی نه ترامپ. سرنوشت‌مون رو دادن دست کارگردان سریال فرام.
+@Tasiyanc 
+⭐️
+#Navid
+</div>
+
+## tasiyanc — post 7874
+
+<div align="center"><img src="files/post_7874_tasiyanc_7874.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاملگی مامان باب اسفنجیو دیده بودین :)))))؟
+
+
+@Tasiyanc 
+😌
+#Tina
+</div>
 
 ## tasiyanc — post 7868
 
@@ -288,44 +319,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دریافت کانفیگ نت ملی در صورت قطعی 👉 ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
-</div>
-
-## tasiyanc — post 7823
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7822
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار و پروکسی های پرسرعتمون 👇
-https://t.me/+v0wRP5SGNrg5MThk
-
-دریافت کانفیگ مخصوص اینترنت ملی 👆
-</div>
-
-## tasiyanc — post 7821
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریافت کانفیگ نت ملی در صورت قطعی 👉
-ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
 </div>
 

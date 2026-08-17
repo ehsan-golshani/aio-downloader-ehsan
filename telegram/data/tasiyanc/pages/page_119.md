@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 119
 
-📅 آخرین بروزرسانی: 1405/05/26 14:50
+📅 آخرین بروزرسانی: 1405/05/26 16:49
 
 ---
+
+## tasiyanc — post 5764
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈4 سرور تست شده روی همه اپراتورا ⛈ 
+
+در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید 
+✅
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5763
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Box 🔐 RighTel
+
+vless://da2ab05b-6b96-4d0c-96eb-7b320b343fc0@zdas.zeabur.app:443?path=%2Fsecurity%3Dtls&security=tls&encryption=none&insecure=0&host=zdas.zeabur.app&type=ws&allowInsecure=0#%40Tasiyanc%20RighTel%20%E2%9B%93%EF%B8%8F
+
+@Tasiyanc ✔️
+</div>
+
+## tasiyanc — post 5762
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  
+📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5761
 
@@ -196,18 +234,4 @@ vless://0dc22208-cea4-4423-b3c3-a36957e23233@91.225.217.26:443?security=reality&
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حجم پیام زیاده ، عشقید لذت ببرید ❤️
 </div>
-
-## tasiyanc — post 5741
-
-<div align="center"><img src="files/post_5741_tasiyanc_5741.jpg" alt="Photo"></div>
-
-## tasiyanc — post 5740
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/Tasiyanc/5733
-</div>
-
-## tasiyanc — post 5739
-
-<div align="center"><img src="files/post_5739_tasiyanc_5739.jpg" alt="Photo"></div>
 
