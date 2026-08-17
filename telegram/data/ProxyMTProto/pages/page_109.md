@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/05/26 18:41
+📅 آخرین بروزرسانی: 1405/05/26 19:20
 
 ---
+
+## ProxyMTProto — post 48057
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ%3D%3D
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48056
 
@@ -176,14 +185,5 @@ Secret: ee3d75d4605342be40f01e37f606946e81666173742e70726f787974656c6567612e7374
 ⚡پروکسی رایگان و فعال
 
 👇Получить / دریافت پروکسی
-</div>
-
-## ProxyMTProto — post 48037
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: country.nolags.pw
-Port: 443
-Secret: ddc5a3afebedae870af378217569f6586c
-@ProxyMTProto
 </div>
 
