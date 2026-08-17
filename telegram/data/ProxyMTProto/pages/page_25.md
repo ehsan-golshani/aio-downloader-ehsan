@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/26 15:21
+📅 آخرین بروزرسانی: 1405/05/26 15:40
 
 ---
+
+## ProxyMTProto — post 49739
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: bastani.mikham.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49738
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: gate.soluqent.pro
 Port: 443
 Secret: eebdbd1f66a7c00e7bf92c6436d457861d676174652e736f6c7571656e742e70726f
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49719
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 6775
-Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

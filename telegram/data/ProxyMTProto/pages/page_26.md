@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/26 15:21
+📅 آخرین بروزرسانی: 1405/05/26 15:40
 
 ---
+
+## ProxyMTProto — post 49719
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 6775
+Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49718
 
@@ -172,15 +181,6 @@ Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 Server: OH.OH.Speed-proxy.com
 Port: 443
 Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49699
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lazeyka-3.getvelora.space
-Port: 443
-Secret: ee1dd78b7b5132effe70cb01bef69a351a6f7a6f6e2e7275
 @ProxyMTProto
 </div>
 
