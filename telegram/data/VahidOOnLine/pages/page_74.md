@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/05/26 23:46
+📅 آخرین بروزرسانی: 1405/05/27 00:23
 
 ---
+
+## VahidOOnLine — post 253818
+
+<div align="center"><video src="files/post_253818_VahidOOnLine_253818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253818_VahidOOnLine_253818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان بریتانیا روز سه‌شنبه در اعتراض به اعدام مخالفان حکومت و زندانیان در ایران در مرکز لندن برنامه‌ای برگزار کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253817
 
@@ -306,23 +319,6 @@ iranintl
 با این حال، راننده تراکتور پیش از خروج کامل از گذرگاه توقف می‌کند و تریلرها روی ریل باقی می‌مانند. لحظاتی بعد، قطار مسافربری با سرعت به تریلرها برخورد کرده و آن‌ها را در هم می‌کوبد.
 
 راه‌آهن دولتی لهستان اعلام کرد راننده تراکتور در زمان حادثه مست بوده است. در این حادثه گزارشی از زخمی شدن مسافران منتشر نشده، اما مقام‌های راه‌آهن می‌گویند این راننده جان حدود ۵۰۰ نفر را به خطر انداخته است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253789
-
-<div align="center"><video src="files/post_253789_VahidOOnLine_253789.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253789_VahidOOnLine_253789.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️کوثری: به چشم خودم دیدم که هیچ کشتی از تنگه هرمز عبور نمی‌کند
-
-♦️اسماعیل کوثری، عضو پیشین کمیسیون امنیت ملی مجلس شورای اسلامی، روز چهارشنبه ۱۴ مردادماه در گفتگو با خبرگزاری دانشجو گفت خودم به تنگه هرمز رفتم و «به‌عینه» دیدم که هیچ کشتی و نفت‌کشی از تنگه عبور نمی‌کند.
-
-این سخنان در حالی مطرح می‌شود که سنتکام تاکید می‌کند تنگه هرمز در کنترل سپاه پاسداران نیست و کشتی‌های در حال عبور مرور میان خلیج فارس و دریای عمان هستند.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 214
 
-📅 آخرین بروزرسانی: 1405/05/26 23:46
+📅 آخرین بروزرسانی: 1405/05/27 00:23
 
 ---
+
+## VahidOOnLine — post 250489
+
+<div align="center"><img src="files/post_250489_VahidOOnLine_250489.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الجزیره، به نقل از سخنگوی فرماندهی مرکزی ایالات متحده، سنتکام، نوشت آمریکا در پاکسازی مین‌های کاشته‌شده به دست سپاه پاسداران پیشرفت داشته است.
+
+او درباره حملات به اهدافی در جنوب ایران گفت: «ارتش ایالات متحده در حال انجام حملاتی برای تضعیف توانایی ایران در حمله به کشتی‌ها است. ما تجهیزات نظارتی و رادارها را در جزیره تنب بزرگ و در مجاورت بندرعباس هدف قرار دادیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250488
 
@@ -258,19 +271,6 @@
 
 🔹پنج‌شنبه شب ساعت ۲۲:۳۰ صدای یک انفجار از سمت جنوب شرق تهران شنیده شد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250469
-
-<div align="center"><video src="files/post_250469_VahidOOnLine_250469.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250469_VahidOOnLine_250469.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️شهروندان در بندرعباس ویدیوهایی را در شبکه‌های مجازی منتشر کرده‌اند که وقوع انفجار در اثر اصابت موشک به یک ساختمان را نشان می‌دهد. در این تصاویر که از فاصله دور ثبت شده، مشخص نیست نقطه‌ای که هدف قرار گرفته، چه کاربری‌ای دارد. فرماندهی مرکزی ارتش آمریکا، سنتکام، پنجشنبه‌شب ۲۵ تیر، اعلام کرد که دور جدیدی از حملات خود را از ساعت ۲۱:۳۰ به وقت ایران آغاز کرده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

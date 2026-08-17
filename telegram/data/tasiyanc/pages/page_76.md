@@ -1,8 +1,103 @@
 # آرشیو کانال tasiyanc - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/05/26 23:24
+📅 آخرین بروزرسانی: 1405/05/27 00:26
 
 ---
+
+## tasiyanc — post 7015
+
+<div align="center"><video src="files/post_7015_tasiyanc_7015.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7015_tasiyanc_7015.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  Ovpn 📶
+
+تست شده تمام نتها 🚀
+
+دانلود OpenVpn  
+🕹
+
+آموزش اتصال
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNToxa1ZyMEtBVElKSTdtd09G@admin.c1.havij.co:443#%40Tasiyanc%20%F0%9F%94%A5
+GB 🇬🇧
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7012
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+matador ⚡ Fast.npvt
+</div>
+
+## tasiyanc — post 7010
+
+<div align="center"><video src="files/post_7010_tasiyanc_7010.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7010_tasiyanc_7010.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+3 سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7004
+
+<div align="center"><img src="files/post_7004_tasiyanc_7004.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشماممم دختره وسط بازی قطر سوییس لخت شد پرید وسط زمین! 😐 پشمای بازیکنا کز خورد...
+کارگردان سریع نما رو عوض کرد ولی فیلم تماشاچیا از این صحنه اومد. کلیک کن فیلمشو ببین تا پاک نشده 👇
+
+مشاهده بدون سانسور ویدیو🔞
+</div>
+
+## tasiyanc — post 7003
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وای ببینید چی پیدا کردمه😂
+</div>
+
+## tasiyanc — post 7002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+۲ سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7001
 
 ## tasiyanc — post 6996
 
@@ -169,144 +264,5 @@ T.me/Tasiyanc
 🔺 آموزش برای اندروید و iOS یکیست
 @Tasiyanc 
 💠
-</div>
-
-## tasiyanc — post 6980
-
-<div align="center"><video src="files/post_6980_tasiyanc_6980.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6980_tasiyanc_6980.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ متد اختصاصی httpCustum میزارم تست کنید
-</div>
-
-## tasiyanc — post 6979
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ متد اختصاصی httpCustum میزارم تست کنید
-</div>
-
-## tasiyanc — post 6965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 سرور سرعتی NPV 
-🌟
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6964
-
-<div align="center"><video src="files/post_6964_tasiyanc_6964.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6964_tasiyanc_6964.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 
-🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها 
-✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک 
-⏩
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6963
-
-<div align="center"><img src="files/post_6963_tasiyanc_6963.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐@Tasiyanc.dark
-</div>
-
-## tasiyanc — post 6961
-
-<div align="center"><video src="files/post_6961_tasiyanc_6961.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6961_tasiyanc_6961.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ دارک تانل 
-🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها 
-✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک 
-⏩
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6960
-
-<div align="center"><video src="files/post_6960_tasiyanc_6960.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6960_tasiyanc_6960.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ دارک تانل 
-🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها 
-✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک 
-⏩
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6959
-
-<div align="center"><video src="files/post_6959_tasiyanc_6959.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6959_tasiyanc_6959.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-۲سرور سرعتی تست شده  
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

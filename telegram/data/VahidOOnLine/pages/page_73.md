@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/05/26 23:46
+📅 آخرین بروزرسانی: 1405/05/27 00:23
 
 ---
+
+## VahidOOnLine — post 253838
+
+<div align="center"><img src="files/post_253838_VahidOOnLine_253838.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ خبرگزاری رویترز روز چهارشنبه ۱۴ مرداد با استناد به اطلاعات منتشرشده در وب‌سایت وزارت خزانه‌داری ایالات متحده اعلام کرد که آمریکا تحریم‌های مربوط به مبارزه با تروریسم را در مورد دو هواپیما و سه شرکت هواپیمایی مرتبط با سپاه پاسداران انقلاب اسلامی لغو کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253837
 
@@ -309,19 +320,6 @@
 
 کمیسر عالی حقوق بشر سازمان ملل متحد با ابراز نگرانی شدید از افزایش بی‌سابقه مجازات اعدام اعلام کرد که بیش از ۱۰۰ نفر دیگر به‌اتهام‌های مشابه در خطر اعدام قرار دارند.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253818
-
-<div align="center"><video src="files/post_253818_VahidOOnLine_253818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253818_VahidOOnLine_253818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان بریتانیا روز سه‌شنبه در اعتراض به اعدام مخالفان حکومت و زندانیان در ایران در مرکز لندن برنامه‌ای برگزار کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

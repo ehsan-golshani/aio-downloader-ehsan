@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 190
 
-📅 آخرین بروزرسانی: 1405/05/26 23:46
+📅 آخرین بروزرسانی: 1405/05/27 00:23
 
 ---
+
+## VahidOOnLine — post 251016
+
+<div align="center"><img src="files/post_251016_VahidOOnLine_251016.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری مهر روز یکشنبه ۲۸ تیرماه از شنیده شدن صدای انفجار در آبادان خبر داد. معاون امنیتی استانداری خوزستان نیز اعلام کرد یک نقطه در اطراف شهر آبادان دقایقی پیش هدف حمله موشکی آمریکا قرار گرفته است. به گفته او، این حمله مجروحی نداشته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251015
 
@@ -256,20 +267,6 @@ https
 
 از زمان آغاز جنگ، برخی از نمایندگان و رسانه‌های نزدیک به جبهه پایداری، عراقچی را «عامل نفوذ» معرفی کرده بودند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250996
-
-<div align="center"><img src="files/post_250996_VahidOOnLine_250996.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت برق کویت اعلام کرد یک نیروگاه تولید برق و آب‌شیرین‌کن در این کشور، برای دومین بار در دو روز گذشته هدف حمله قرار گرفته است.
-
-وزارت برق کویت شنبه، ۲۷ تیرماه اعلام کرده بود که حمله جمهوری اسلامی باعث آتش‌سوزی و آسیب دیدن بخش‌هایی از یک نیروگاه برق شده است.
-iranintl
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

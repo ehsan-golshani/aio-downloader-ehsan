@@ -1,8 +1,89 @@
 # آرشیو کانال tasiyanc - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/05/26 23:24
+📅 آخرین بروزرسانی: 1405/05/27 00:26
 
 ---
+
+## tasiyanc — post 6077
+
+<div align="center"><img src="files/post_6077_tasiyanc_6077.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠آموزش اتصال با فیلترشکن امن Windscribe 🔐
+
+🔢 با جی‌میل یا ایمیل فیک یه اکانت ایجاد کنین
+
+🔢وارد setting بشین
+Connection →Anti Censorship
+حتما گزینه Protocol Tweaks رو Enable باشه و پایین دو تا گزینه به اسم Iran مشاهده خواهید کرد یکیشو انتخاب کنین
+🔢هر دو پروتکل طبق تستی ک انجام دادم کار کرد برام ، روی همراه اول روی ایرانسل هم کار میده تست شده
+UDP 53 & TCP 80 TCP 8080
+
+دانلود از طریق AppStore 📱
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+150 گیگ تو گپ تاسیان کانفیگ ویتوری
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6075
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FastVip⚡.npvt
+</div>
+
+## tasiyanc — post 6074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی همه اپراتورا🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میخواستم کانفیگ اوپن دیگه بدم ولی ری اکشن کمه
+</div>
+
+## tasiyanc — post 6072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر عشقا
+</div>
+
+## tasiyanc — post 6071
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی همه اپراتورا🚀
+
+دانلود OpenVpn 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6069
+
+<div align="center"><img src="files/post_6069_tasiyanc_6069.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FastVip⚡.npvt
+</div>
 
 ## tasiyanc — post 6068
 
@@ -118,56 +199,5 @@ Hot Servers 🔥🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6047
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نزنه رسانه ای میکنم
-</div>
-
-## tasiyanc — post 6046
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکم صبر میکنم دیل آک بزنه
-</div>
-
-## tasiyanc — post 6045
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امین زحمت کشید شماره و آدرس و شماره بابای جاکشش درآورده
-</div>
-
-## tasiyanc — post 6044
-
-<div align="center"><img src="files/post_6044_tasiyanc_6044.jpg" alt="Photo"></div>
-
-## tasiyanc — post 6043
-
-<div align="center"><img src="files/post_6043_tasiyanc_6043.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6042
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife
-آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادبش کردید ؟
-@ineedknife
-اگه ادبش کردید یه ری اکشن بزنید بره همون جایی ک میدونین 😂
-</div>
-
-## tasiyanc — post 6040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور های جدید نپستر ساعت ۱.۳۰
 </div>
 

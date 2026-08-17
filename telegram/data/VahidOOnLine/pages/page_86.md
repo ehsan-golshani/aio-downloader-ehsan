@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/05/26 23:46
+📅 آخرین بروزرسانی: 1405/05/27 00:23
 
 ---
+
+## VahidOOnLine — post 253511
+
+<div align="center"><img src="files/post_253511_VahidOOnLine_253511.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسماعیل کهرم، پیش‌کسوت و فعال محیط زیست، در مراسم بزرگداشت اسکندر فیروز گفت: «فیروز می‌گفت قرار نبود دریاچه ارومیه خشک شود، چه کسی اجازه این کار را داد؟ قرار نبود این همه تالاب که در معرض خطر هستند، چنین سرنوشتی داشته باشند.»
+
+به گزارش پیام ما، کهرم افزود: «فیروز از بی‌توجهی مسئولان امور تالاب‌ها و دریاچه‌ها گله داشت و می‌گفت ۱۵۳ تالابی را که با جان و دل و مشکلات فراوان حفظ کرده بودیم، چگونه به این وضع درآوردند و چه کسی اجازه این کار را داد؟»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253510
 
@@ -289,19 +302,6 @@
 
 براساس گزارش‌های هواشناسی، دمای هوا هفته گذشته در کره شمالی بین ۳۵ تا ۴۹ درجه سانتیگراد بود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253474
-
-<div align="center"><video src="files/post_253474_VahidOOnLine_253474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253474_VahidOOnLine_253474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده نشان می‌دهند گروهی از ایرانیان مقیم آلمان یکشنبه ۱۱ مرداد در اعتراض به اعدام‌های جمهوری اسلامی، در شهر مونیخ تجمع کرده و سرود «ای ایران» را هم‌خوانی کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

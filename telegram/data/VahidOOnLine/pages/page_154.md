@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 154
 
-📅 آخرین بروزرسانی: 1405/05/26 23:46
+📅 آخرین بروزرسانی: 1405/05/27 00:23
 
 ---
+
+## VahidOOnLine — post 251821
+
+<div align="center"><img src="files/post_251821_VahidOOnLine_251821.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صدا و سیمای جمهوری اسلامی گزارش داد منابع خبری از شنیده شدن صدای انفجار در ساحل جنوبی جزیره قشم خبر داده‌اند.
+
+بر اساس این گزارش، هنوز محل دقیق و منشا این انفجارها مشخص نیست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251820
 
@@ -247,20 +260,6 @@
 
 رسانه کان اسرائیل نیز گزارش داد علی الزیدی، پیشنهادی برای آتش‌بس میان آمریکا و جمهوری اسلامی را به تهران منتقل کرده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251801
-
-<div align="center"><video src="files/post_251801_VahidOOnLine_251801.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251801_VahidOOnLine_251801.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری ایسنا با انتشار ویدیویی از استقرار یک پرتابگر موشکی در میدان آزادی تهران خبر داد.
-در این ویدیو، یک سامانه پرتاب موشک بالستک در میان جمعیت و در یکی از پرترددترین نقاط پایتخت دیده می‌شود که در وضعیت آماده‌باش قرار دارد. تصاویر نشان می‌دهد این تجهیزات نظامی بدون فاصله‌گذاری خاص از فضای عمومی، در محل مستقر شده‌اند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
