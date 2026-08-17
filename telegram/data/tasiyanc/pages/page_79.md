@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/26 18:14
+📅 آخرین بروزرسانی: 1405/05/26 21:53
 
 ---
+
+## tasiyanc — post 6901
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی تست شده  🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6900
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[51] @Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6898
 
@@ -185,25 +207,6 @@ trojan://humanity@104.16.174.121:443?path=%2Fassignment&security=tls&insecure=0&
 
 آموزش اتصال 🔹
 
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ربات دانلودر اختصاصی کانال تاسیان بدون جوین اجباری 💬📹💬
-
-دانلود با سرعت بالا , همراه با ارسال جدای فایل موزیک ریلز ها
-
-🟢 @TasiyanAploadBot
-</div>
-
-## tasiyanc — post 6860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.218:8080#%40Tasiyanc%20%F0%9F%94%B0%F0%9F%87%B3%F0%9F%87%B1
-Loc 🇳🇱
 ✔️ T.me/Tasiyanc ✅
 </div>
 

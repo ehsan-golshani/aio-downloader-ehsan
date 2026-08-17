@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/26 18:14
+📅 آخرین بروزرسانی: 1405/05/26 21:53
 
 ---
+
+## tasiyanc — post 9373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت چطوره؟
+</div>
+
+## tasiyanc — post 9372
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نوید محمدزاده : از فلسطین حمایت کردم ، بازم خواهم کرد ، با اسراییل حال نمیکنم ، تموم تهدید های شما هم ب تخممه
+
+بعد این حرفاش ۹۰۰ هزار نفر آنفالوش کردن فعلا
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9370
 
@@ -232,21 +247,5 @@ g25
 رهایت نکردند
 مگر بعد از آن‌که
 نور و روشنایی را به تو باز گرداندند.
-</div>
-
-## tasiyanc — post 9351
-
-<div align="center"><img src="files/post_9351_tasiyanc_9351.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سرزمین های جدا شده از ایران عزیز در ۵۰۰ سال گذشته !
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9350
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معاوضه امیر با دسته بیل
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/26 18:14
+📅 آخرین بروزرسانی: 1405/05/26 21:53
 
 ---
+
+## tasiyanc — post 5908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2Vip🇩🇪.npvt
+</div>
+
+## tasiyanc — post 5906
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2Vip🇩🇪.npvt
+</div>
 
 ## tasiyanc — post 5905
 
@@ -209,22 +221,5 @@ Melli shekan 🪐.npvt
 Npv ❤️
 
 Ovpn 🔥
-</div>
-
-## tasiyanc — post 5884
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید قبول کنیم نپستر سرعتش بیشتره از اوپنه ، زمان اتصالش سریعه و کلی موارد دیگه
-سرور ovpn شلوغ باشه ارور متعدد روبرو میشید و و و
-</div>
-
-## tasiyanc — post 5883
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده روی رایتل ـ سامانتل _ ایرانسل🚀
-
-@Tasiyanc ✅
 </div>
 

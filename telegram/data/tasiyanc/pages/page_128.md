@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 128
 
-📅 آخرین بروزرسانی: 1405/05/26 18:14
+📅 آخرین بروزرسانی: 1405/05/26 21:53
 
 ---
+
+## tasiyanc — post 5524
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5518
+
+<div align="center"><img src="files/post_5518_tasiyanc_5518.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+WİFİ 🚀speed.npvt
+</div>
 
 ## tasiyanc — post 5517
 
@@ -171,17 +189,5 @@ Password @Tasiyanc
 برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5494
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دانلودی چیزی داری بزنید
-</div>
-
-## tasiyanc — post 5493
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ع کانفیگای ک گذاشتیم پینگ بگیرید 😁✅
 </div>
 

@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/26 18:14
+📅 آخرین بروزرسانی: 1405/05/26 21:53
 
 ---
+
+## tasiyanc — post 9163
+
+<div align="center"><img src="files/post_9163_tasiyanc_9163.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی کاپلی 🆕
+
+"Girl with White Bow"
+
+Prompt 🤖🤖
+
+> Ultra-realistic close-up portrait of a beautiful young woman indoors during golden hour. She is facing the camera with a slight head tilt and a soft, natural expression. Warm sunlight enters through a nearby window, casting dramatic diagonal shadows across one side of her face while illuminating the other with rich golden light. She has long dark brown hair styled half-up in a high ponytail, secured with a large sheer white organza bow. A few loose wispy strands fall naturally across her forehead. Thick, well-defined dark eyebrows, hazel-brown eyes with shimmering champagne eyeshadow, long curled eyelashes, glowing skin with subtle blush and natural highlights, soft matte pink lips, and minimal elegant makeup. She wears large silver hoop earrings and a loose chocolate-brown button-up linen shirt with the collar slightly open. Neutral light gray background, cinematic golden-hour lighting, shallow depth of field, ultra-detailed skin texture, realistic hair strands, soft shadows, editorial fashion photography, DSLR, 85mm lens, f/1.8, natural color grading, photorealistic, ultra high resolution, 8K.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9162
+
+<div align="center"><img src="files/post_9162_tasiyanc_9162.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی کاپلی 🆕
+
+"Midnight Street Romance❤️"
+
+Prompt 🤖🤖
+
+A candid, natural night photograph of a young, stylish Middle Eastern couple embracing in a deeply affectionate hug on a city street in Tehran. The man, with a short, well-kept dark beard and a modern fade haircut, wears a black casual bomber jacket and is kissing the woman gently on her forehead. The woman, with long, dark straight hair and a gentle, smiling expression with her eyes closed, is wearing a black leather moto jacket. Her hands are wrapped around his back, and his hands are wrapped around hers. They are positioned in the foreground, filling the frame in a tight embrace. The background is a typical Tehran street at night, with concrete-faced residential buildings, lit windows, a line of parked classic and modern cars (like a Peugeot 206 and older models), and some tall coniferous and plane trees under a dark night sky. The street lighting is ambient and natural, giving the image a low-light, realistic, almost phone-camera documentary feel with a slight grain, not overly polished. The depth of field is shallow, keeping the couple sharp while the background elements blur organically. High-resolution photo. (optional: add "no text" to avoid UI elements)
+
+﻿
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9161
 
@@ -257,17 +296,5 @@ A high-contrast, moody black and white portrait photograph. A handsome young man
 شعله های آتش نفتکش در سواحل عمان که مورد اصابت موشک قرار گرفته
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 یه نفت کش تو تنگه هرمز میخواست راهشو کج کنه از مسیر آمریکا (عمان) رد شه که با ۴ موشک مورد اصابت قرار گرفت
-</div>
-
-## tasiyanc — post 9139
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴متهمین قتل «حمیدرضا رجب‌زاده» دستگیر شدند طبق اعلام مقام‌های قضایی، خودرویی که او آخرین‌بار سوار شده بود شناسایی و مالک آن دستگیر شد. این فرد اعتراف کرده که به همراه ۴ نفر دیگر و با تحریک یک شبکه خارج از کشور، اقدام به ربایش و قتل رجب‌زاده کرده‌اند @TASIYANC…
 </div>
 

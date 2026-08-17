@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/26 18:14
+📅 آخرین بروزرسانی: 1405/05/26 21:53
 
 ---
+
+## tasiyanc — post 9219
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑فقط کافیه مرغ از خیابون رد کنی و‌ پولت چند برابر کنی راحت💵👌
+</div>
+
+## tasiyanc — post 9218
+
+<div align="center"><video src="files/post_9218_tasiyanc_9218.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9218_tasiyanc_9218.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙂بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+🔔کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+➕کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
+a21
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+FaoDjhEVG34wMWFk
+https://t.me/+FaoDjhEVG34wMWFk
+</div>
 
 ## tasiyanc — post 9216
 
@@ -261,33 +289,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.16:443?security=reality&
 
 
 🚨 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑فقط کافیه مرغ از خیابون رد کنی و‌ پولت چند برابر کنی راحت💵👌
-</div>
-
-## tasiyanc — post 9192
-
-<div align="center"><video src="files/post_9192_tasiyanc_9192.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9192_tasiyanc_9192.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙂بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
-
-😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
-
-توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
-
-🔔کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
-
-➕کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
-a20
-🎯همین حالا عضو شو و شروع کن👇
-https://t.me/+FaoDjhEVG34wMWFk
-https://t.me/+FaoDjhEVG34wMWFk
 </div>
 

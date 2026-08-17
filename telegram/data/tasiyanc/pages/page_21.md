@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/26 18:14
+📅 آخرین بروزرسانی: 1405/05/26 21:53
 
 ---
+
+## tasiyanc — post 8897
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 کاخ سفید : خداوند سربازان ما را حفظ کند
+
+جنگ سهمگین در راهه؟
+
+🔱 @TASIYANC
+</div>
+
+## tasiyanc — post 8896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📌 آمار دیروز کانال تراست بت :
+
+✅✅✅ 3.46⬅️
+✅✅✅ 3.94⬅️
+✅✅✅ 3.46⬅️
+✅✅✅ 4.67⬅️
+✅✅✅ 2.76⬅️
+✅✅✅ 7.43⬅️
+✅✅✅ 1.30⬅️
+👇بدو جوین شو فرم بعدی بگیر👇
+🆔 https://t.me/+umLw_34TXrEzYTQ0
+🆔 https://t.me/+umLw_34TXrEzYTQ0
+</div>
 
 ## tasiyanc — post 8894
 
@@ -328,38 +355,5 @@ Text:
 
 ✈️@TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8862
-
-<div align="center"><img src="files/post_8862_tasiyanc_8862.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 تعویض پس زمینه و بالابردن کیفیت عکس
-( حرفه ای و طبیعی)
-
-Prompt
-Replace the background with a realistic environment while preserving the original subject, lighting, shadows, reflections and perspective. Blend everything naturally for a seamless result.
-﻿
-آموزش استفاده از پرامپت 
-👉
-
-
-✈️@TASIYANC 💠
-</div>
-
-## tasiyanc — post 8861
-
-<div align="center"><img src="files/post_8861_tasiyanc_8861.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 بازسازی عکس یا فیلم های قدیمی - جدید آسیب دیده با حفظ هویت و نوستالژیک
-
-prompt
-Restore this vintage film frame by removing scratches, dust, flicker, fading and damage while preserving authentic film grain, original contrast, natural texture and historical authenticity.
-
-آموزش استفاده از پرامپت 👉
-
-✈️@TASIYANC ⭐
 </div>
 

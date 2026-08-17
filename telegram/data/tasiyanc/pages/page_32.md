@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/26 18:14
+📅 آخرین بروزرسانی: 1405/05/26 21:53
 
 ---
+
+## tasiyanc — post 8577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر وقت ایرانیا فهمیدن عادل فرقی با میساقی نداره بازیو بردن
+</div>
+
+## tasiyanc — post 8574
+
+<div align="center"><img src="files/post_8574_tasiyanc_8574.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•پرامپت اختصاصی جدید مرد - زن 🤖🤖
+
+•عکساتو زیباتر کن 💖
+
+•آموزش استفاده 👉
+
+
+🔺 دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8573
 
@@ -276,17 +299,5 @@ Location 🤯 🇫🇷
 اتصال امن برای همه 🇮🇷
 
 ✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر 💘
-</div>
-
-## tasiyanc — post 8522
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
 </div>
 

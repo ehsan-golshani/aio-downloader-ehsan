@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/26 18:14
+📅 آخرین بروزرسانی: 1405/05/26 21:53
 
 ---
+
+## tasiyanc — post 8753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی  ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙄 همه بت باز های حرفه ای دنبال 🔞 شکار این بونوس ها هستن
+✅لیگ‌جهانی والیبال رو میتونید از اینجا پیشبینی کنید
+👇کافیه یه سر بزنی اینجا خودت میفهمی چه خبره 💯
+</div>
 
 ## tasiyanc — post 8751
 
@@ -200,25 +236,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 
 ✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8724
-
-<div align="center"><img src="files/post_8724_tasiyanc_8724.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹20 ابزار کاربردی عالی برای دانشجویان 😐
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8723
-
-<div align="center"><img src="files/post_8723_tasiyanc_8723.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قبل اینترنت آدما همدیگه رو اینجوری انفالو میکردن.. 😐
-
-@TASIYANC ✅
 </div>
 
