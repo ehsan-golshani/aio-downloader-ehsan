@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 123
 
-📅 آخرین بروزرسانی: 1405/05/26 14:49
+📅 آخرین بروزرسانی: 1405/05/26 15:21
 
 ---
+
+## ProxyMTProto — post 47769
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: poll900.mtproxygram.pro
+Port: 853
+Secret: ee18ccad215fa76f14969bb6da115ed56b62726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47768
 
@@ -181,14 +190,5 @@ If Telegram starts loading slowly again, it's better to get connected in advance
 We're constantly adding new proxies and currently providing them for free 🔥
 
 👉 Start the bot and join our channel to get a working proxy right now.
-</div>
-
-## ProxyMTProto — post 47749
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: alpinavpn.hatecens.cc
-Port: 7443
-Secret: ee27a9fe4d55c1a9dabfcb2b872b00b6e6616c70696e6176706e2e6861746563656e732e6363
-@ProxyMTProto
 </div>
 
