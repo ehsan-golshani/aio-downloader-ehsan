@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 203
 
-📅 آخرین بروزرسانی: 1405/05/26 07:43
+📅 آخرین بروزرسانی: 1405/05/26 08:37
 
 ---
+
+## VahidOOnLine — post 250630
+
+<div align="center"><img src="files/post_250630_VahidOOnLine_250630.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دنی دنون، سفیر اسرائیل در سازمان ملل، با اشاره به کشته شدن انس محمود احمد حمدان، از اعضای حماس، در شبکه اجتماعی ایکس نوشت: «هیچ مصونیتی برای هیچ تروریستی وجود ندارد؛ هر کسی که در حمله هفتم اکتبر مشارکت داشته، بهای آن را خواهد پرداخت.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250629
+
+<div align="center"><img src="files/post_250629_VahidOOnLine_250629.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حسین مظفری، امام جمعه قزوین، در خطبه‌های نماز جمعه این شهر گفت: «به نظر می‌رسد باز ماندن بیشتر فضای مجازی و اینترنت در این شرایط به صلاح کشور نیست، اکنون شاهدیم دشمن در فضای مجازی آتش می‌سوزاند و مسئولین باید تدبیر کنند و نگذارند وقتی کار از کار گذشت به فکر اقدام بیفتند.»
+
+او ادامه داد: «در این موقعیت حساس که دشمن می‌خواهد با فرسایشی کردن جنگ و تضعیف نیروهای مسلح ما، ما را به سمت نابودی ببرد، انتظار ما از نیروهای مسلح و مسئولین این است که پیش‌دستی کرده و عکس‌العملی نشان دهند که دشمن را از هر گونه حرکت نظامی برای همیشه پشیمان کنند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250628
 
@@ -255,31 +279,6 @@
 بر اساس این اطلاعیه، این حادثه در جریان جنگ جاری ایران و آمریکا رخ داده است.
 این نهاد همچنین به کشتی‌های عبوری توصیه کرد آخرین اطلاعات امنیت دریایی را دنبال کنند و با توجه به شرایط عملیاتی در حال تحول منطقه، هوشیاری خود را حفظ کنند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250610
-
-<div align="center"><video src="files/post_250610_VahidOOnLine_250610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250610_VahidOOnLine_250610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250609
-
-<div align="center"><video src="files/post_250609_VahidOOnLine_250609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250609_VahidOOnLine_250609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حسین آقایی، عضو تحریریه ایران‌اینترنشنال، گفت به نظر می‌رسد عملیات‌های نظامی آمریکا مرحله اولیه شکل‌دهی به صحنه نبردی بزرگ‌تر باشد؛ برای مثال، با هدف تصرف یک یا چند جزیره در تنگه هرمز.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

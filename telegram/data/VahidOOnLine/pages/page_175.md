@@ -1,8 +1,31 @@
 # آرشیو کانال VahidOOnLine - صفحه 175
 
-📅 آخرین بروزرسانی: 1405/05/26 07:43
+📅 آخرین بروزرسانی: 1405/05/26 08:37
 
 ---
+
+## VahidOOnLine — post 251251
+
+<div align="center"><img src="files/post_251251_VahidOOnLine_251251.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سازمان عملیات تجارت دریایی بریتانیا (UKMTO)، بامداد سه‌شنبه، با انتشار یک هشدار فوری اعلام کرد گزارش‌هایی مبنی بر وقوع یک حمله در فاصله ۸ مایل دریایی (حدود۱۴.۸ کیلومتر) در شمال شرقی منطقه «لیما» واقع در عمان دریافت کرده است. بر اساس اطلاعات منتشر شده، این سازمان گزارش‌های متعددی دریافت کرده که نشان می‌دهد یک نفتکش از طریق کانال ۱۶ فرکانس بسیار بالا (VHF)، خبر از اصابت یک پرتابه ناشناس به خود در محدوده تنگه هرمز داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251250
+
+<div align="center"><img src="files/post_251250_VahidOOnLine_251250.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان عملیات تجارت دریایی بریتانیا (UKMTO) اعلام کرد گزارشی از یک حادثه در فاصله ۸ مایل دریایی شمال شرقی لیما در عمان دریافت کرده است.
+این سازمان افزود گزارش‌های متعددی دریافت کرده که بر اساس آنها، یک نفتکش از طریق کانال ۱۶ رادیویی VHF اعلام کرده در تنگه هرمز هدف یک پرتابه ناشناس قرار گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251249
 
@@ -212,30 +235,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️ایرنا، دوشنبه‌شب، ۲۹ تیرماه از شنیده‌شدن چند انفجار در سیریک، بندرعباس و قشم خبر داد. براساس این گزارش، «محل دقیق این انفجارها مشخص نیست».
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251231
-
-<div align="center"><img src="files/post_251231_VahidOOnLine_251231.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ستاد فرماندهی مرکزی آمریکا (سنتکام) در شبکه ایکس، اعلام کرد: «شامگاه دوشنبه ۲۳:۳۰ به وقت تهران، نیروهای آمریکایی دور تازه‌ای از حملات علیه جمهوری اسلامی را آغاز کردند.»
-سنتکام افزود: «این حملات با هدف تضعیف بیشتر توانمندی‌های نظامی جمهوری اسلامی که برای حمله به کشتی‌های تجاری در تنگه هرمز به کار گرفته می‌شود، انجام شده است.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251230
-
-<div align="center"><img src="files/post_251230_VahidOOnLine_251230.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری فارس، وابسته به سپاه پاسداران، شامگاه دوشنبه از شنیده شدن صدای انفجار در حوالی سیریک خبر داد و اعلام کرد هنوز محل دقیق این انفجارها مشخص نیست.
-همزمان صداوسیمای جمهوری اسلامی از شنیده شدن صدای انفجار در بندرعباس خبر داد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

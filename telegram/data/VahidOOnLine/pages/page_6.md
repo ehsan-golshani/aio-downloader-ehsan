@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/26 07:43
+📅 آخرین بروزرسانی: 1405/05/26 08:37
 
 ---
+
+## VahidOOnLine — post 255347
+
+<div align="center"><video src="files/post_255347_VahidOOnLine_255347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255347_VahidOOnLine_255347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در تهران با ارسال ویدیویی می‌گوید در اوج گرما خسته از سر کار برگشته‌ام و برق برای بار سوم در طول یک روز قطع شده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255346
+
+<div align="center"><video src="files/post_255346_VahidOOnLine_255346.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255346_VahidOOnLine_255346.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروهی از ایرانیان ساکن لندن روز شنبه ۲۴ مرداد، تصاویر جاوید‌نامان اعتراض‌های دی‌ماه را روی یک کامیون نصب کردند و با برگزاری رالی خودرویی و در دست داشتن پرچم‌های شیر و خورشید یاد کشته‌شدگان را گرامی داشتند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255345
 
@@ -264,32 +290,6 @@ Indypersian
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رحمت‌الله نوروزی، نماینده علی‌آباد کتول در مجلس گفت: «تورم مسکن بسیار بالاست و هم خرید مسکن و هم اجاره‌نشینی در کلان‌شهرها و حتی شهرهای کوچک با فشار جدی همراه شده است.»
 نوروزی ادامه داد: «بسیاری از جوانان مجرد و متاهل با شرایط سختی برای تامین رهن، اجاره و خرید مسکن مواجهند.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255327
-
-<div align="center"><img src="files/post_255327_VahidOOnLine_255327.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی نهاوندی، رییس مرکز تحقیقات اسلامی مجلس گفت: «آمریکا و اسرائیل و نیز ایادی منطقه‌ای آن‌ها باید مطمئن باشند که هیچ اقدام خصمانه‌ای بدون پاسخ نمی‌ماند و هر ضربه‌ای، هزینه سنگین‌تر و دردناک‌تری به همراه خواهد داشت.»
-
-به گزارش خبرگزاری تسنیم، نهاوندی همچنین گفت که بازدارندگی فقط تهدید به پاسخ نیست؛ ایجاد محاسبه‌ای است که در آن، انصراف از جنگ برای دشمن عقلانی‌تر از ادامه آن باشد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255326
-
-<div align="center"><img src="files/post_255326_VahidOOnLine_255326.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پس از گزارش‌ها درباره حمله هوایی اسرائیل به مناطقی در جنوب لبنان، یسرائیل کاتز، وزیر دفاع اسرائیل در شبکه ایکس نوشت: «هیچ حسابی در هیچ جبهه‌ای تسویه‌نشده باقی نخواهد ماند و به خاطر سربازان و غیرنظامیان خود به هر اقدامی با قدرت پاسخ خواهیم داد.»
-
-شنبه، ۲۴ مرداد ارتش اسرائیل اعلام کرده بود در واکنش به اقدام حزب‌الله علیه نیروهای این کشور که مطابق با توافق آتش‌بس در منطقه حائل امنیتی فعالیت می‌کنند، به اهداف این گروه در جنوب لبنان حمله کرده است.
 IranintlTV
 
 🤖 @VahidOOnLine

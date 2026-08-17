@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/05/26 00:14
+📅 آخرین بروزرسانی: 1405/05/26 08:38
 
 ---
+
+## ProxyMTProto — post 49264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Oh.Oh.AjaB_Sorati_Dare
+Port: 443
+Secret: BeZaN_RoooSh_Connect
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49263
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: best-proxy.ink
+Port: 443
+Secret: ee3646eba8c65e0e1d4804a7f9caa6531d626573742d70726f78792e696e6b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49262
 
@@ -163,24 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: Unknown
 Port: 443
 Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49243
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: medblock.fit
-Port: 443
-Secret: ee42c68d1f568a3ce918f926dd7d1283c66d6564626c6f636b2e666974
 @ProxyMTProto
 </div>
 

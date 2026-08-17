@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 461
 
-📅 آخرین بروزرسانی: 1405/05/26 07:43
+📅 آخرین بروزرسانی: 1405/05/26 08:37
 
 ---
+
+## VahidOOnLine — post 244068
+
+<div align="center"><img src="files/post_244068_VahidOOnLine_244068.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محسن زنگنه، عضو کمیسیون اقتصادی مجلس، گفت: «زمانی می‌توان درباره اصلاح قیمت‌ها صحبت کرد که نرخ تورم در سطح قابل قبولی قرار داشته باشد، اما اکنون با تورم نقطه‌به‌نقطه بالای ۷۰ درصد و تورم مواد غذایی بیش از ۱۰۰ درصد مواجه هستیم.»
+
+او ضافه کرد: «بنابراین هرگونه افزایش قیمت حامل‌های انرژی عملا فشار مضاعفی بر مردم وارد کرده و تاب‌آوری اقتصادی کشور را کاهش می‌دهد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244067
+
+<div align="center"><img src="files/post_244067_VahidOOnLine_244067.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارتش اسرائیل اعلام کرد هر دو فرد «مهاجم» که تیراندازی در منطقه کوخاو یایر را انجام دادند، به دست نیروهای امنیتی کشته شدند.
+
+به گفته ارتش، یکی از این افراد در نزدیکی تسور ییتسحاک به ضرب گلوله پلیس کشته شد و فرد دوم زخمی شد و گریخت. ارتش اسرائیل افزود پس از عملیات تعقیب، فرد دوم در نزدیکی طیبَه کشته شد.
+
+بر اساس اعلام ارتش، این افراد از خودرویی با پلاک اسرائیلی استفاده کردند که به‌صورت غیرقانونی در جاده تردد می‌کرد.
+
+ارتش اسرائیل همچنین اعلام کرد چندین روستای فلسطینی در این منطقه را محاصره کرده و گذرگاه کرانه باختری در نزدیکی محل را بسته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244066
 
@@ -266,32 +296,6 @@ iranintl
 معاون وزیر صمت همچنین خواستار بازنگری در نحوه مدیریت محدودیت‌های انرژی شد و تاکید کرد حفظ تولید و صادرات باید در تصمیم‌گیری‌های مربوط به توزیع برق مورد توجه قرار گیرد.
 وزارت نیرو پیشتر اعلام کرده بود، با افزایش مصرف برق در فصل گرما و «تشدید ناترازی میان تولید و مصرف برق در کشور» محدودیت‌هایی را برای صنایع انرژی‌بر از جمله فولادسازان در نظر گرفته است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244048
-
-<div align="center"><video src="files/post_244048_VahidOOnLine_244048.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244048_VahidOOnLine_244048.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از دانش‌اموزان در اصفهان یکشنبه ۱۷ خرداد در اعتراض به تاثیر معدل در کنکور و شیوه برگزاری امتحانات به‌صورت حضوری تجمع کرده و شعار دادند: «محصل داد بزن، حقتو فریاد بزن»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244047
-
-<div align="center"><video src="files/post_244047_VahidOOnLine_244047.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244047_VahidOOnLine_244047.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم سوئیس و آلمان شنبه ۱۶ خرداد در شهرهای برن و اشتوتگارت تجمع کرده و علیه جمهوری اسلامی شعار دادند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
