@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/26 18:12
+📅 آخرین بروزرسانی: 1405/05/26 18:41
 
 ---
+
+## ProxyMTProto — post 48998
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Fighter-Man.ir-proxy.Manege-Desktop-For.Co.Im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48997
 
@@ -172,15 +181,6 @@ Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
 Server: edge1.waycdn.ru
 Port: 443
 Secret: 8f3c7a1d4b92e6c51a7d0fb843c2e91f
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48978
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
