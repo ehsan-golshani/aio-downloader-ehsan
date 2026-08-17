@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/26 16:49
+📅 آخرین بروزرسانی: 1405/05/26 17:36
 
 ---
+
+## tasiyanc — post 9137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروه تاسیان فعاله جوین بشید
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
 
 ## tasiyanc — post 9136
 
@@ -304,11 +311,5 @@ r18
 🇮🇷
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متاسفانه توسعه دهنده های NPV TUNNEL بیشتر از ۳ ماه هست که رو آپدیت جدید و رفع باگ های این برنامه محبوب کار نکردن ، جوری شده کانفیگ ها با پینگ Real 60 رو برنامه های دیگه با سرعت وصله ولی تو نپستر پینگ Out میده و علاوه بر این سرعت مورد نظر مارو نمیدن
 </div>
 

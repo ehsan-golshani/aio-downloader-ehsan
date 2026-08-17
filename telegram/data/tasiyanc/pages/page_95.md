@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/05/26 16:49
+📅 آخرین بروزرسانی: 1405/05/26 17:36
 
 ---
+
+## tasiyanc — post 6390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدا و سیما :
+
+شهر نبطیه لبنان در حال سقوط است
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 6389
 
@@ -231,22 +241,5 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Speed ⚡ One.npvt
-</div>
-
-## tasiyanc — post 6359
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-5سرور   سرعتی تست شده با سامانتل🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
-
-دانلود  NPV tunnel  🌐
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ @Tasiyanc 
-✅
 </div>
 

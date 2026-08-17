@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/26 16:49
+📅 آخرین بروزرسانی: 1405/05/26 17:36
 
 ---
+
+## tasiyanc — post 6897
+
+<div align="center"><video src="files/post_6897_tasiyanc_6897.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6897_tasiyanc_6897.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان 🖤
+ارسالی از اعضای عزیزم💋
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 6882
 
@@ -192,11 +204,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.189:8
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6857
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما سرور تکراری رو فایل نمیزاریم همشون تست کنین💋🚀
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/05/26 16:49
+📅 آخرین بروزرسانی: 1405/05/26 17:36
 
 ---
+
+## tasiyanc — post 7551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کادو منو نمیدید روز پسره؟
+</div>
 
 ## tasiyanc — post 7550
 
@@ -251,11 +257,5 @@ Password :  @Tasiyanc ❤️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😐😐😐😐 آلمان حذف شد
-</div>
-
-## tasiyanc — post 7517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ARABICA ☕⚡️HoT.npvt
 </div>
 

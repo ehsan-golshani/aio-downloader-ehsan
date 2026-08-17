@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/26 16:49
+📅 آخرین بروزرسانی: 1405/05/26 17:36
 
 ---
+
+## tasiyanc — post 9160
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙄 همه بت باز های حرفه ای دنبال 
+🔞 شکار این بونوس ها هستن
+✅لیگ های معتبر اروپایی شروع شده بهترین فرصت برای جبران ضرر های جام جهانی 
+💯
+</div>
 
 ## tasiyanc — post 9159
 
@@ -241,12 +250,5 @@ A high-contrast, moody black and white portrait photograph. A handsome young man
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گروه تاسیان فعاله جوین بشید https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 9137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گروه تاسیان فعاله جوین بشید
-https://t.me/+DhVkjFb6qhZmYTFk
 </div>
 

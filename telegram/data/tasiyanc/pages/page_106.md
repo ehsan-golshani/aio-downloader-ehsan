@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/26 16:49
+📅 آخرین بروزرسانی: 1405/05/26 17:36
 
 ---
+
+## tasiyanc — post 6111
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانفیگا برای تست هست اگر اوکی باشه روش کار میکنیم
+</div>
 
 ## tasiyanc — post 6109
 
@@ -173,11 +179,5 @@ Channel@Tasiyanc.ovpn
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشنا بالا باشه❤️
-</div>
-
-## tasiyanc — post 6085
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعتی برای وای‌فای تا دقایقی دیگه میزارم به درخواست اعضای تاسیان
 </div>
 
