@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/05/26 11:13
+📅 آخرین بروزرسانی: 1405/05/26 12:04
 
 ---
+
+## ProxyMTProto — post 48503
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ethereal2.arixo.shop
+Port: 443
+Secret: ee6217ab7cb85436e31984b28fbe64bda7657468657265616c322e617269786f2e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48502
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.acientirani-uor4.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48501
 
@@ -163,24 +181,6 @@ Secret: eecabbd4d9fd4481bbb66bcaf9f424d7c56c6f67696e2e6b6c79756368316b2e6f7267
 Server: 34.51.227.196
 Port: 443
 Secret: dd3cec606d9be26a99756789121ce87239
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48483
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48482
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fast.garden-troll.life
-Port: 443
-Secret: ee0c3f91dda87adc073a65d989972871ec666173742e67617264656e2d74726f6c6c2e6c696665
 @ProxyMTProto
 </div>
 

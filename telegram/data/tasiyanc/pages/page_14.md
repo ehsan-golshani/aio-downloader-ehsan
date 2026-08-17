@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/26 11:15
+📅 آخرین بروزرسانی: 1405/05/26 12:06
 
 ---
+
+## tasiyanc — post 9058
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟اپلیکیشن‌های کاربردی برای ادیت :
+
+
+⚡️ Picsart
+• کلاژ، فیلترای خوب، همه کار
+⚡️ Ps Express
+•روتوش چهره
+⚡️ Snapedit
+•حذف سوژه‌ی اضافه
+⚡️ Lightroom
+•خدای رنگ و نور
+⚡️ VN
+•ادیت Cash ویدئو
+⚡️ Instories
+•ساخت استوری‌های متفاوت
+
+👹@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9057
 
@@ -229,26 +251,5 @@
 ⚠️ #پنالتی راحترین بازی پولساز ⚠️
 🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید راحتو سریع برنده شو👌🏼
 💖 مرجع بازی های روز دنیا در ‌پلتفرم جهانی بت اینجا ⭐
-</div>
-
-## tasiyanc — post 9026
-
-<div align="center"><video src="files/post_9026_tasiyanc_9026.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9026_tasiyanc_9026.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ آقاآآ این بازی #پنالتی چقدر خفنه⚽
-
-🟢 بازی خیلی حرفه ای و‌ #پولساز پنالتی فقط‌ پلتفرم جهانی و معتبر #بت_اینجا
-
-✊همین الان ویدیو #آموزش پنالتی زدن ‌رو ببین و با شارژ اضافی 🤩🤩 درصدی که سایت بهت میده.
-
-💖 حتما ویدیو #آموزش رو ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان r15
-@betinjabet
 </div>
 

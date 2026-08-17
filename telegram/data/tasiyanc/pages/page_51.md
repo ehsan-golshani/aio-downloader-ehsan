@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/05/26 11:15
+📅 آخرین بروزرسانی: 1405/05/26 12:06
 
 ---
+
+## tasiyanc — post 7937
+
+<div align="center"><img src="files/post_7937_tasiyanc_7937.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏جوری که این مدت گذشت:
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7936
 
@@ -226,11 +236,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پاکدشت - پارچین
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7897
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🦅 FALCON VIP ⚡.npvt
 </div>
 

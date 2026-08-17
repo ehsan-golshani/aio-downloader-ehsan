@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/26 11:15
+📅 آخرین بروزرسانی: 1405/05/26 12:06
 
 ---
+
+## tasiyanc — post 8305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاهش پهنای باند داره گزارش میشه
+کانفیگ مخصوص نت ملی رو بگیرید
+
+دریافت کانفیگ 👉
+</div>
 
 ## tasiyanc — post 8303
 
@@ -164,12 +173,6 @@
 </div>
 
 ## tasiyanc — post 8283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-JAVID SHAH 👑
-</div>
-
-## tasiyanc — post 8281
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 JAVID SHAH 👑

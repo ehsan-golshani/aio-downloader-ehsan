@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 122
 
-📅 آخرین بروزرسانی: 1405/05/26 11:15
+📅 آخرین بروزرسانی: 1405/05/26 12:06
 
 ---
+
+## tasiyanc — post 5688
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅V2rayNG 3 vip server 🔐 vless://bafacd98-136a-4530-838d-4e5c51838dac@188.226.180.209:443?path=%2Fshows%2Fregister%2Fjuzibaipiao&security=tls&encryption=none&insecure=0&host=juzi8186.qea.ccwu.cc&type=ws&allowInsecure=0&sni=juzi8186.qea.ccwu.cc#%40Tasiyanc…
+</div>
 
 ## tasiyanc — post 5687
 
@@ -170,19 +176,6 @@ Mci [22].npvt
 📱 اختصاصی تاسیان 📱
 
 ⛈سرور سرور تست شده همراه بقیه اپراتورا تست کنن⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5666
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 🇸🇦
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈3 سرور وی ای پی تست شده وای‌فای ⛈
 
 
 🚀 @Tasiyanc ✅

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/05/26 11:13
+📅 آخرین بروزرسانی: 1405/05/26 12:04
 
 ---
+
+## ProxyMTProto — post 47703
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 147.45.68.25
+Port: 443
+Secret: ee17352c284a418ed218cc6bbda02c0aac766b2e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r24.proxytg.space
+Port: 8443
+Secret: eeade4e42a3bee4969fcb706467380da727232342e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47701
 
@@ -167,24 +185,6 @@ We're constantly adding new proxies and currently providing them for free 🔥
 Server: live.russia.mambabot.net
 Port: 7866
 Secret: ee843223f372ef32e718c5271b5580714c6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47683
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxymtproto.tproxy.rest
-Port: 8443
-Secret: ee79e7010200010007f0030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: russia.nolags.pw
-Port: 443
-Secret: dd04dbf1f1459ffbc5e646db206794163a
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/26 11:15
+📅 آخرین بروزرسانی: 1405/05/26 12:06
 
 ---
+
+## tasiyanc — post 8184
+
+<div align="center"><img src="files/post_8184_tasiyanc_8184.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨تصویر تخریب پل کهورستان در بندر خمیر
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8183
 
@@ -200,15 +212,5 @@
 🏔 روستای کندوان تبریز از معدود روستاهای صخره‌ای جهان است طبیعت زیبا، آب‌وهوای خنک و معماری منحصربه‌فرد، کندوان را به یکی از محبوب‌ترین جاذبه‌های گردشگری ایران تبدیل کرده است.
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8142
-
-<div align="center"><img src="files/post_8142_tasiyanc_8142.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بانو Ester هستن زید مدل اسپانیایی امباپه بازیکن رئال 🦥
-
-@Tasiyanc ☑️
 </div>
 

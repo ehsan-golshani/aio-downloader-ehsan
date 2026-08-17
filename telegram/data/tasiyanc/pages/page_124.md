@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/26 11:15
+📅 آخرین بروزرسانی: 1405/05/26 12:06
 
 ---
+
+## tasiyanc — post 5629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈۲سرور تست شده همه اپراتورا⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5628
 
@@ -150,11 +164,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خیلی خوبن🥹
-</div>
-
-## tasiyanc — post 5598
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من فقط با نپستر این چنل وصلم
 </div>
 

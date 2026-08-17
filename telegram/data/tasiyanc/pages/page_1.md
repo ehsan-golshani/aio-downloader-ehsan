@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/26 11:15
+📅 آخرین بروزرسانی: 1405/05/26 12:06
 
 ---
+
+## tasiyanc — post 9388
+
+<div align="center"><video src="files/post_9388_tasiyanc_9388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9388_tasiyanc_9388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمسخر جوانان ایرانی توسط یک عراقی مادربخطا ک واسه تفریح اومدن ایران
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9386
 
@@ -224,13 +236,5 @@ Cinematic studio portrait of a young man with messy textured hair, wearing a bla
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9362
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فاکس نیوز: تفاهم‌نامه آتش بس ۶٠ روزه بین ایران ، آمریکا فردا تمام میشود
-
-@Tasiyanc ⭐️
 </div>
 

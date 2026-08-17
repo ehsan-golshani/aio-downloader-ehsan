@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/26 11:15
+📅 آخرین بروزرسانی: 1405/05/26 12:06
 
 ---
+
+## tasiyanc — post 6846
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسلیت به بت زنای محترم
+</div>
 
 ## tasiyanc — post 6845
 
@@ -167,19 +173,5 @@ Qatar 🇶🇦 & Switzerland🇨🇭
 Vahid online
 
 @Tasiyanc ✅ | تاسیـان
-</div>
-
-## tasiyanc — post 6815
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  Ovpn 📶
-
-تست شده تمام نتها 🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

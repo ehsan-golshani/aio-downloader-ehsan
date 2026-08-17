@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/26 11:15
+📅 آخرین بروزرسانی: 1405/05/26 12:06
 
 ---
+
+## tasiyanc — post 6876
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[48]🚀@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6874
 
@@ -213,11 +219,5 @@ T.me/Tasiyanc ✅
 
 T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6846
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسلیت به بت زنای محترم
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/26 11:15
+📅 آخرین بروزرسانی: 1405/05/26 12:06
 
 ---
+
+## tasiyanc — post 8910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ: رهبران قطر، عربستان سعودی و امارات متحده عربی درخواست کردند که حمله به ایران دو یا سه روز به تعویق بیفتد
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8909
 
@@ -292,11 +300,5 @@ dic.b-amooz.com
 
 ✈️@TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8882
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@TASIYANC ⚡ 04.ovpn
 </div>
 
