@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/26 10:02
+📅 آخرین بروزرسانی: 1405/05/26 11:15
 
 ---
+
+## tasiyanc — post 6351
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST @Tasiyanc servers.txt
+</div>
 
 ## tasiyanc — post 6349
 
@@ -192,30 +208,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۹۰٪ کانفیگای ک روزهای گذشته گذاشتیم وصله
-</div>
-
-## tasiyanc — post 6326
-
-<div align="center"><img src="files/post_6326_tasiyanc_6326.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-DE - Fast 🇩🇪⚡.npvt
-</div>
-
-## tasiyanc — post 6325
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور   سرعتی آلمان 🇩🇪
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  
-⏩
-
-✔️ @Tasiyanc ✅
 </div>
 

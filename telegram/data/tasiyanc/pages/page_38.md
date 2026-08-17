@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/26 10:02
+📅 آخرین بروزرسانی: 1405/05/26 11:15
 
 ---
+
+## tasiyanc — post 8371
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏴󠁧󠁢󠁥󠁮󠁧󠁿 🇫🇷 کدوم می‌بره؟
+
+
+نتیجه دقیق بگید تا قبل شروع بازی کانفیگ وایرگارد هدیه بگیرید
+</div>
+
+## tasiyanc — post 8369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرگزرای CBS به نقل از مقام نظامی: حملات امشب دقایقی دیگر آغاز میشود و گستردگی بیشتری دارد
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8367
 
@@ -214,26 +231,5 @@ Multi Location ⚡ Fast.npvt
 ▫️Incendies 2010
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 18 July، روز جهانی گوش دادن
-گوش دادن به آهنگ و چیزای دیگه مثل کسشرای رفیقته
-
-@Tasiyanc ✅| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8335
-
-<div align="center"><img src="files/post_8335_tasiyanc_8335.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زیبایي کوههای مریخيِ چابهارِ زیبا
-
-پروکسی | پروکسی | پروکسی | پروکسی
-
-@Tasiyanc ✅ | مرجع کانفیگ
 </div>
 

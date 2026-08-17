@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/26 10:02
+📅 آخرین بروزرسانی: 1405/05/26 11:15
 
 ---
+
+## tasiyanc — post 8954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️8 شب وین دادیم امشبم وینه✔️✔️
+
+✅تنها کانالی که از شرطبندی پول در میاره✅
+
+https://t.me/+gTClYDoqQdhkZjY8
+
+چنل خودمونه جوین شید استفاده کنید فرمارو همه از منبع ها خارجیه😉👍
+
+#admin
+</div>
+
+## tasiyanc — post 8953
+
+<div align="center"><img src="files/post_8953_tasiyanc_8953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از این منبع VIP روسی هروز براتون فرم میزاریم😍🔥
+
+برای دریافت وارد کانال زیر شوید🔽🔽🔽
+
+https://t.me/+gTClYDoqQdhkZjY8
+
+g12
+
+https://t.me/+gTClYDoqQdhkZjY8
+
+     🔼🔼🔼🔼🔼🔼🔼🔼🔼
+</div>
 
 ## tasiyanc — post 8952
 
@@ -225,31 +257,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 اتصال امن برای همه
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 8932
-
-<div align="center"><img src="files/post_8932_tasiyanc_8932.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#کاربردی 🆕
-
-😎 می‌خوای ببینی یه نفر با یه نام کاربری توی چه سایت‌هایی حضور داره؟
-این ابزار با کمک هوش مصنوعی صدها سایت رو می‌گرده و هرجا اون یوزرنیم پیدا بشه، برات لیست می‌کنه.
-کافیه نام کاربری رو وارد کنی؛ بعد از چند دقیقه، نتیجه و ردپای احتمالی اون توی اینترنت بهت نشون داده می‌شه.
-🔹 قابلیت‌ها: • جستجوی اکانت‌ها در شبکه‌های اجتماعی، فروم‌ها، سایت‌های گیم و سرویس‌های مختلف • جمع‌آوری همه نتایج توی یک لیست • اجرا مستقیم داخل مرورگر، بدون نیاز به نصب برنامه • استفاده رایگان از امکانات پایه
-اگه دوست داری ردپای خودت یا حتی یه یوزرنیم خاص رو توی اینترنت بررسی کنی، این ابزار می‌تونه حسابی به دردت بخوره.
-﻿
-
-👉 https://whatsmynameapp.net/
-
-
-👹@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8931
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا یک ساعت دیگه یه سایت عالی براتون معرفی میکنم ( که هیچ جایی به شما معرفی نشده) که احتمالا خیلی بکارتون بیاد
 </div>
 

@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/26 10:02
+📅 آخرین بروزرسانی: 1405/05/26 11:15
 
 ---
+
+## tasiyanc — post 9361
+
+<div align="center"><img src="files/post_9361_tasiyanc_9361.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت پرمیوم تاسیان 🆕
+
+اسم : " Golden Hour Storyboard 🌅″
+
+آموزش استفاده 👉
+
+دریافت پرامپت👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9360
+
+<div align="center"><img src="files/post_9360_tasiyanc_9360.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 🆕
+
+" Shadow Queen — Target: You ♟️🖤 "
+
+Prompt 🤖🤖
+
+
+A realistic photo of a powerful, mysterious young woman with dark, tousled hair, wearing a black blazer and several rings. She sits at a wooden table in a dimly lit, shadowy war room or study, holding a pen to her chin and looking directly at the camera with a confident, piercing gaze. In the foreground, a single black chess king piece sits on a detailed map. Behind her, a dark chalkboard reveals handwritten text: 'TARGET: YOU', with bullet points below: 'WEAKNESSES', 'ROUTINES', 'ALLIES', 'NEXT MOVE'. Surveillance photos are pinned to the wall next to the board. The atmosphere is intense, cold, and dramatic. The lighting is low and focused on her face and the text, creating depth and shadows.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9359
 
@@ -217,29 +253,5 @@ g25
 
 
 @Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9340
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای همراه اول و بقیه اوپراتور ها
-
-ساب نامحدود - ارسالی از GTXll
-
-https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
-
-آموزش ویدیویی اضافه کردن ساب 💘
-
-
-@Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 16 August، روز جهانی جوک گفتن و کصخل بازیه
-
-
-@Tasiyanc ⭐️
 </div>
 

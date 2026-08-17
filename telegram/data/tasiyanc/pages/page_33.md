@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/26 10:02
+📅 آخرین بروزرسانی: 1405/05/26 11:15
 
 ---
+
+## tasiyanc — post 8511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+💪 انفجار در شیراز
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8508
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال تاسیان متعلق به تمام کسانی هست که وطن پرستن نه حکومت پرست ❤️
+</div>
 
 ## tasiyanc — post 8507
 
@@ -240,22 +255,5 @@ Loc 🇩🇪 🇩🇪
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ اورمیه و چابهار صدای انفجارررر
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8469
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ سنتکام : حملات ما به ایران آغاز شد
-
-@TASIYANC ⭐️
 </div>
 

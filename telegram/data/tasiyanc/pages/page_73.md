@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/05/26 10:02
+📅 آخرین بروزرسانی: 1405/05/26 11:15
 
 ---
+
+## tasiyanc — post 7101
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+5 کانفیگ حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+🛡Password Zip: @Tasiyanc
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7099
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید رو به راهید؟
+</div>
 
 ## tasiyanc — post 7096
 
@@ -246,39 +268,5 @@ Loc 🇬🇧
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تمامی نپسترایی ک از دیروز صبح زدیم وصلن با سرعت فضایی وصل شید عشق کنید ⚡️
-</div>
-
-## tasiyanc — post 7057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-2 سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel  🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-T.me/Tasiyanc 
-✅
 </div>
 

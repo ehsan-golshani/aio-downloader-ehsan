@@ -1,12 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/26 10:02
+📅 آخرین بروزرسانی: 1405/05/26 11:15
 
 ---
 
-## tasiyanc — post 9383
+## tasiyanc — post 9386
 
-<div align="center"><a href="files/post_9383_@Tasiyanc 🌱.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🌱.ovpn</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اظهارات مجری صداسیما ریحانه قاسمی زاده : جنوب ایران فدای جنوب لبنان چون اینا همونایی ان که ۹ اسفند شادی کردن @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9384
+
+<div align="center"><video src="files/post_9384_tasiyanc_9384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9384_tasiyanc_9384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اظهارات مجری صداسیما ریحانه قاسمی زاده : جنوب ایران فدای جنوب لبنان چون اینا همونایی ان که ۹ اسفند شادی کردن
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9383
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 📶
@@ -216,41 +232,5 @@ Cinematic studio portrait of a young man with messy textured hair, wearing a bla
 🔴 فاکس نیوز: تفاهم‌نامه آتش بس ۶٠ روزه بین ایران ، آمریکا فردا تمام میشود
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9361
-
-<div align="center"><img src="files/post_9361_tasiyanc_9361.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت پرمیوم تاسیان 🆕
-
-اسم : " Golden Hour Storyboard 🌅″
-
-آموزش استفاده 👉
-
-دریافت پرامپت👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9360
-
-<div align="center"><img src="files/post_9360_tasiyanc_9360.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی 🆕
-
-" Shadow Queen — Target: You ♟️🖤 "
-
-Prompt 🤖🤖
-
-
-A realistic photo of a powerful, mysterious young woman with dark, tousled hair, wearing a black blazer and several rings. She sits at a wooden table in a dimly lit, shadowy war room or study, holding a pen to her chin and looking directly at the camera with a confident, piercing gaze. In the foreground, a single black chess king piece sits on a detailed map. Behind her, a dark chalkboard reveals handwritten text: 'TARGET: YOU', with bullet points below: 'WEAKNESSES', 'ROUTINES', 'ALLIES', 'NEXT MOVE'. Surveillance photos are pinned to the wall next to the board. The atmosphere is intense, cold, and dramatic. The lighting is low and focused on her face and the text, creating depth and shadows.
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
 </div>
 

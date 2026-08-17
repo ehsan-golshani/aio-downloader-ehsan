@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/05/26 10:02
+📅 آخرین بروزرسانی: 1405/05/26 11:15
 
 ---
+
+## tasiyanc — post 7576
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر گلای تو خونه
+</div>
+
+## tasiyanc — post 7574
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+۲ سرور  سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7571
 
@@ -235,26 +258,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ولی پسرامون ( دخترامونم ) ثابت کردن چقد باغیرتن
-</div>
-
-## tasiyanc — post 7536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
-</div>
-
-## tasiyanc — post 7535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-5سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- ✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 

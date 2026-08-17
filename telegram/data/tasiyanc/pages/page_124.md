@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/26 10:02
+📅 آخرین بروزرسانی: 1405/05/26 11:15
 
 ---
+
+## tasiyanc — post 5628
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرورای وای‌فای ک بالا گذاشتم هنوز وصله✅
+</div>
+
+## tasiyanc — post 5627
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب بعدی
+</div>
 
 ## tasiyanc — post 5626
 
@@ -144,17 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 من فقط با نپستر این چنل وصلم
-</div>
-
-## tasiyanc — post 5597
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
-</div>
-
-## tasiyanc — post 5596
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ممنون که کنارمون بودی این روزای سخت هم وطن🤍🕊
 </div>
 
