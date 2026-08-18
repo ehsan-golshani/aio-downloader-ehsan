@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 514
 
-📅 آخرین بروزرسانی: 1405/05/28 02:15
+📅 آخرین بروزرسانی: 1405/05/28 02:40
 
 ---
+
+## VahidOOnLine — post 243018
+
+<div align="center"><video src="files/post_243018_VahidOOnLine_243018.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243018_VahidOOnLine_243018.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال، لحظه کشته شدن جاویدنام مجید فرخزاد را در شامگاه ۱۸ دی ۱۴۰۴ در خیابان پیروزی تهران نشان می‌دهد. فرخزاد، ۳۷ ساله و پدر یک فرزند پنج ساله بود که با اصابت گلوله جان باخت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243017
 
@@ -289,21 +302,6 @@
 او افزود: «جمهوری اسلامی نه مذاکره را کنار گذاشته و نه به آن دل بسته است.»
 
 این نماینده مجلس اضافه کرد: «جمهوری اسلامی نسبت به ورود موضوعاتی همچون تنگه هرمز و غنی‌سازی به مذاکرات، ملاحظات جدی داشته است.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242991
-
-<div align="center"><img src="files/post_242991_VahidOOnLine_242991.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدرضا مسجدی، دبیرکل جمعیت مبارزه با دخانیات گفت: «اگرچه میزان مصرف دخانیات در میان زنان همچنان پایین‌تر از مردان است، اما روند افزایش مصرف در میان دختران نوجوان نگران‌کننده است.»
-
-او افزود: «میزان مصرف دخانیات در میان دختران ۱۳ تا ۱۵ ساله نسبت به سال ۱۳۹۵، حدود ۱۳۵ درصد افزایش یافته است.»
-
-مسجدی ادامه داد: «در حال حاضر حدود ۲۰ تا ۲۴ درصد جمعیت کشور به نوعی مصرف‌کننده دخانیات هستند.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 491
 
-📅 آخرین بروزرسانی: 1405/05/28 02:15
+📅 آخرین بروزرسانی: 1405/05/28 02:40
 
 ---
+
+## VahidOOnLine — post 243665
+
+<div align="center"><video src="files/post_243665_VahidOOnLine_243665.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243665_VahidOOnLine_243665.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران اینترشنال گفت که به دلیل درخواست فرزندش ناچار شده است یک عدد بستنی را ۲۰۰ هزار تومان بخرد و قیمت‌ها را «سرسام‌آور» توصیف کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243664
 
@@ -297,22 +310,6 @@ http
 این هشدار در حالی صادر می‌شود که گزارش‌های غیررسمی حاکی از بروز اختلاف در میان مقام‌ها عالی‌رتبه نظام است. گزارش‌هایی که رسما از طرف مقام‌ها تکذیب می‌شود.
 
 مجتبی خامنه‌ای خطاب به مسئولان جمهوری اسلامی نوشت: «هرگونه اقدامی که موجب بدبینی و سرخوردگی آحاد مردم شود نوعی کمک به دشمن این کشور و مردمانش محسوب می‌گردد.»
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243639
-
-<div align="center"><video src="files/post_243639_VahidOOnLine_243639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243639_VahidOOnLine_243639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️در جریان دیدار سامیه سولوهو حسن، رئیس‌جمهوری تانزانیا، و هیئت همراه او با ولادیمیر پوتین در کرملین، لحظه‌ای کوتاه اما جالب توجه دوربین‌ها را به خود جلب کرد.
-بر اساس ویدیوهای منتشرشده از این مراسم، پوتین متوجه شد کارت شناسایی یکی از وزیران تانزانیایی در گردن او پیچ خورده است و آن را مرتب کرد.
-این اقدام قدرتمند‌ترین فرد روسیه، مورد توجه رسانه‌ها و کاربران شبکه‌های اجتماعی قرار گرفت.
-رئیس‌جمهوری تانزانیا برای سفری سه‌روزه به روسیه رفته است.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/28 02:15
+📅 آخرین بروزرسانی: 1405/05/28 02:40
 
 ---
+
+## VahidOOnLine — post 255756
+
+<div align="center"><video src="files/post_255756_VahidOOnLine_255756.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255756_VahidOOnLine_255756.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مراسم چهلم علی خامنه‌ای، رهبر سابق جمهوری اسلامی ایران، درحالی روز سه‌شنبه ۲۷ مرداد در تهران برگزار شد که مجتبی خامنه‌ای باز هم غیبت داشت. در این مراسم مصطفی و مسعود خامنه‌ای، فرزندان او، به همراه حسن خمینی، محمدباقر قالیباف، مسعود پزشکیان، اسماعیل قاآنی و غلامحسین محسنی اژه‌ای حضور داشتند. مجتبی خامنه‌ای، سومین رهبر جمهوری اسلامی، از زمان انتصاب دیده نشده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255755
 
@@ -247,19 +260,6 @@ Indypersian
 
 از سوی دیگر، شبکه حقانی به رهبری سراج‌الدین حقانی در دوران جمهوریت «خونین‌ترین و مرگبارترین» حملات انفجاری و انتحاری را در افغانستان اجرا کرد، اما اکنون دانشجویان خوست برای استقبال از او تجمع می‌کنند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255736
-
-<div align="center"><video src="files/post_255736_VahidOOnLine_255736.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255736_VahidOOnLine_255736.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد اهالی مازندران و بستگان چند تن از جاویدنامان رستم‌کلا که در اعتراضات ۱۸ و ۱۹ دی کشته شدند، برای یادبود آن‌ها نامشان را روی بادکنک‌های سفید نوشته و روی خودروها در این شهر قرار دادند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

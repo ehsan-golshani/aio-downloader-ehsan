@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 263
 
-📅 آخرین بروزرسانی: 1405/05/28 02:15
+📅 آخرین بروزرسانی: 1405/05/28 02:40
 
 ---
+
+## VahidOOnLine — post 249469
+
+<div align="center"><video src="files/post_249469_VahidOOnLine_249469.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249469_VahidOOnLine_249469.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️با فرارسیدن شب جمعه (به وقت محلی)، شبکه برق سراسری کوبا برای چهارمین بار از ابتدای سال جاری میلادی از کار افتاد و شهروندان کوبایی پس از دومین خاموشی کامل سراسری در طول یک هفته، برای روشنایی به نور مشعل و چراغ‌قوه متکی شدند.
+به گزارش رویترز، مقام‌های کوبا کمبود سوخت ناشی از تحریم‌ها و محدودیت‌های نفتی آمریکا را از عوامل اصلی بحران می‌دانند. در همین حال سیستم فرسوده تولید برق این کشور نیز با مشکلات جدی روبه‌رو است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249468
 
@@ -281,19 +295,6 @@
 
 مقام‌های آمریکایی همچنین هشدار دادند در صورت ادامه اقدام‌های خصمانه جمهوری اسلامی، ایالات متحده با استفاده از اهرم‌های نظامی و اقتصادی به آن پاسخ خواهد داد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249449
-
-<div align="center"><video src="files/post_249449_VahidOOnLine_249449.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249449_VahidOOnLine_249449.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️فرماندهی مرکزی ایالات متحده (سنتکام) روز جمعه، با انتشار ویدئویی از اجرای عملیات پروازی شبانه ملوانان آمریکایی بر فراز ناو هواپیمابر «یواس‌اس جورج اچ.دبلیو. بوش» خبر داد. به گفته سنتکام، این رزمایش و گشت‌زنی شبانه در حین حرکت این ناو هواپیمابر در آب‌های منطقه صورت گرفته است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

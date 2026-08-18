@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 227
 
-📅 آخرین بروزرسانی: 1405/05/28 02:15
+📅 آخرین بروزرسانی: 1405/05/28 02:40
 
 ---
+
+## VahidOOnLine — post 250384
+
+<div align="center"><video src="files/post_250384_VahidOOnLine_250384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250384_VahidOOnLine_250384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروهی از ایرانیان ساکن کالیفرنیای آمریکا، سه‌شنبه در شهر سن‌دیگو مراسم یابودی را برای سناتور لیندزی گراهام برگزار کردند و با ادای احترام به او، بر ادامه حمایت از آزادی مردم ایران و ادامه مسیر تا پیروزی «انقلاب ملی» تاکید کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250383
 
@@ -277,17 +290,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️به گزارش اسوشیتدپرس، ارتش اردن روز پنج‌شنبه اعلام کرد هشت موشک شلیک‌شده از سوی ایران را که این کشور را هدف قرار داده بودند، رهگیری و منهدم کرده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250364
-
-<div align="center"><img src="files/post_250364_VahidOOnLine_250364.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری رسمی اردن گزارش داد که این کشور پنجشنبه هشت موشک جمهوری اسلامی را رهگیری و منهدم کرد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

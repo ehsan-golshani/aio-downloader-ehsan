@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 266
 
-📅 آخرین بروزرسانی: 1405/05/28 02:15
+📅 آخرین بروزرسانی: 1405/05/28 02:40
 
 ---
+
+## VahidOOnLine — post 249408
+
+<div align="center"><video src="files/post_249408_VahidOOnLine_249408.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249408_VahidOOnLine_249408.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️محمد عزیزی، فرماندار پلدختر، روز جمعه ۱۹ تیرماه اعلام کرد آتش‌سوزی در شرکت اکسین پالایش، مخازن فرعی این واحد صنعتی را درگیر کرده، اما مخزن اصلی تاکنون از آسیب در امان مانده است. او گفت نیروهای آتش‌نشانی پلدختر و سراب حمام در محل حضور دارند، اما به دلیل شدت آتش، امکان نزدیک شدن به کانون حریق وجود ندارد.
+
+به گفته فرماندار پلدختر، برای مهار آتش از آتش‌نشانی شهرهای معمولان، افرینه، آسار و تنگ فنی نیز درخواست کمک شده است. او افزود سوخت موجود در این کارخانه روغن خودرو است و علت آتش‌سوزی پس از مهار کامل حریق بررسی خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249407
 
@@ -256,19 +271,6 @@
 
 او در عین حال تاکید کرد آمریکا به‌طور صریح به تهران اعلام کرده که آتش‌بس پایان یافته است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249371
-
-<div align="center"><video src="files/post_249371_VahidOOnLine_249371.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249371_VahidOOnLine_249371.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️شرکت ردیابی دریایی کپلر، جمعه ۱۹ تیرماه، گزارش داد تعداد کشتی‌های عبوری از تنگه هرمز در روز پنجشنبه ۱۸ تیرماه از ۳۰ فروند در روز پیش از آن به ۲۲ فروند کاهش یافته است؛ روندی که دومین روز پیاپی کاهش تردد کشتی‌ها در این آبراه راهبردی را نشان می‌دهد. بر اساس این گزارش، بیشتر کشتی‌ها همچنان مسیر آب‌های ایران را برای عبور انتخاب کرده‌اند و تنها یک کشتی از مسیر عمان عبور کرده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

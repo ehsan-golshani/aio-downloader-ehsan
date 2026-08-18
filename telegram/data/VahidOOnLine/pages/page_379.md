@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 379
 
-📅 آخرین بروزرسانی: 1405/05/28 02:15
+📅 آخرین بروزرسانی: 1405/05/28 02:40
 
 ---
+
+## VahidOOnLine — post 246866
+
+<div align="center"><img src="files/post_246866_VahidOOnLine_246866.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مصطفی خوش‌چشم، کارشناس حکومتی، در برنامه‌ای در صداوسیما گفت آمریکا «۱۰۰ آب‌نبات چوبی الکی» جلوی تیم مذاکره‌کننده جمهوری اسلامی انداخته است تا «مروارید ایران، یعنی تنگه هرمز»، را از آن‌ها بگیرد.
+او افزود آمریکا خواستار بازگشایی تنگه هرمز پیش از مذاکرات است و اینکه انحصار آن مشترکا در اختیار ایران و عمان با تبادل نظر با کشورهای حاشیه خلیج فارس باشد، همچنین در مدت ۶۰ روز گفت‌وگوها هیچ عوارضی گرفته نشود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246865
 
@@ -302,19 +314,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از دانش‌آموزان در کرمان، دوشنبه یکم تیر برای موکول کردن امتحانات به بعد از اربعین تجمع کردند و شعار دادند: «دانش‌آموز داد بزن، حقتو فریاد بزن»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246832
-
-<div align="center"><video src="files/post_246832_VahidOOnLine_246832.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246832_VahidOOnLine_246832.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از دانش‌آموزان در کرمان، دوشنبه یکم تیر برای موکول کردن امتحانات به بعد از اربعین تجمع کردند و شعار دادند: «دانش‌آموز می‌میرد، ذلت نمی‌پذیرد»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

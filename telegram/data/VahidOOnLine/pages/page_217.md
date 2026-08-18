@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 217
 
-📅 آخرین بروزرسانی: 1405/05/28 02:15
+📅 آخرین بروزرسانی: 1405/05/28 02:40
 
 ---
+
+## VahidOOnLine — post 250597
+
+<div align="center"><video src="files/post_250597_VahidOOnLine_250597.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250597_VahidOOnLine_250597.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در شبکه‌های اجتماعی مراسم وداع با عارف خوشکار، از بازداشت‌شدگان جنبش «زن، زندگی، آزادی» را نشان می‌دهد که بامداد چهارشنبه ۲۴ تیر در کرج اعدام شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250596
 
@@ -298,21 +311,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک شهروند با ارسال ویدیویی از بازار سنتی شهر تاکستان، معروف به بازار رضا در استان قزوین، در پیام خود گفت که این بازار کساد شده است و بسیاری از فروشنده‌ها به دلیل نبود مشتری، وقت خود را با تلفن همراه سپری می‌کنند. به گفته او، کاهش توان خرید مردم باعث افت رونق بازار شده و در زمان ضبط ویدیو، از فرط خلوتی، باد خنکی در بازار می‌وزید.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250571
-
-<div align="center"><img src="files/post_250571_VahidOOnLine_250571.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت نیرو جمعه ۲۶ تیر با انتشار بیانیه‌ای حمله به تاسیسات تامین برق در جنوب ایران را تایید کرد، اما جزییاتی درباره محل آسیب‌دیده یا میزان خسارت منتشر نکرد.
-
-این وزارتخانه از شهروندان خواست برای کمک به تامین پایدار برق در مناطق جنوبی، در ساعات اوج مصرف هر خانواده دست‌کم یک ساعت کولر خود را خاموش کند.
-
-وزارت نیرو در این بیانیه توضیحی درباره زمان، محل دقیق یا عامل حمله ارائه نکرد و تنها بر ضرورت همکاری شهروندان برای مدیریت مصرف برق تاکید کرد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

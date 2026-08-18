@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 520
 
-📅 آخرین بروزرسانی: 1405/05/28 02:15
+📅 آخرین بروزرسانی: 1405/05/28 02:40
 
 ---
+
+## VahidOOnLine — post 242890
+
+<div align="center"><img src="files/post_242890_VahidOOnLine_242890.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️رسانه‌های ایران روز شنبه نهم خرداد به نقل از رئیس دادگستری استان خوزستان از محکومیت هفت نفر به جرم سرقت «هفت هزار و ۸۸۷ بشکه نفت خام» خبر دادند.
+
+به گزارش خبرگزاری قوه قضائیه (میزان) متهمان ردیف اول تا چهارم به ۱۳ سال حبس و شلاق
+و متهمان ردیف پنجم تا هفتم به تحمل حبس و مجازت‌های تکمیلی محکوم شدند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242889
 
@@ -281,20 +295,6 @@ https:
 
 نیویورک‌تایمز همچنین از تنش میان چهره‌های تندرو و اعضای تیم مذاکره‌کننده بر سر مسیر گفت‌وگوها با واشینگتن خبر داد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242868
-
-<div align="center"><video src="files/post_242868_VahidOOnLine_242868.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_242868_VahidOOnLine_242868.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ستاد فرماندهی جنوبی ارتش آمریکا (SOUTHCOM) با انتشار ویدیویی در اکس اعلام کرد نیروهای مشترک «نیزه جنوبی» روز ۸ خرداد، به دستور ژنرال فرانسیس داناون، فرمانده این ستاد، به یک قایق مرتبط با کارتل‌های مواد مخدر در شرق اقیانوس آرام حمله کردند.
-بر اساس این بیانیه، در جریان این حمله هدفمند و مرگبار، سه نفر از «تروریست‌های قاچاقچی» کشته شدند. ارتش آمریکا همچنین اعلام کرد هیچ‌یک از نیروهای این کشور در جریان این عملیات آسیب ندیدند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

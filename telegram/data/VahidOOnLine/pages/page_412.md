@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 412
 
-📅 آخرین بروزرسانی: 1405/05/28 02:15
+📅 آخرین بروزرسانی: 1405/05/28 02:40
 
 ---
+
+## VahidOOnLine — post 245937
+
+<div align="center"><video src="files/post_245937_VahidOOnLine_245937.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_245937_VahidOOnLine_245937.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروهی از ایرانیان در مالمو سوئد روز سه‌شنبه ۲۶ خرداد ۱۴۰۵، همزمان با زادروز مجیدرضا رهنورد و «روز ملی پرچم شیر و خورشید»، با تشکیل زنجیره انسانی و بازخوانی نام جان‌باختگان «انقلاب ملی»، یاد آنان را گرامی داشتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245936
 
@@ -283,19 +296,6 @@
 
 اینفانتینو در پایان از بازیکنان تیم ملی ایران قدردانی کرد و گفت آن‌ها «واقعا قابل احترام و افتخار» هستند و در دو مسابقه باقی‌مانده نیز می‌توانند بار دیگر باعث افتخار هواداران خود شوند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245917
-
-<div align="center"><img src="files/post_245917_VahidOOnLine_245917.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «توقف جنگ در لبنان و خروج سریع نیروهای اسرائیلی از جنوب لبنان از جمله مهم‌ترین بندهای تفاهم‌نامه است.»
-
-او ادامه داد: «هرگونه بدعهدی یا خروج از چارچوب اصلی تفاهم، باعث می‌شود نیروهای مسلح جمهوری اسلامی کوبنده‌تر از گذشته پاسخ دهند.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

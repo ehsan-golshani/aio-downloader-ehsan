@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/28 02:15
+📅 آخرین بروزرسانی: 1405/05/28 02:40
 
 ---
+
+## VahidOOnLine — post 254780
+
+<div align="center"><video src="files/post_254780_VahidOOnLine_254780.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254780_VahidOOnLine_254780.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشر شده در رسانه‌های اجتماعی روش پاک‌سازی آثار لکه‌ نفتی در قشم به‌وسیله پدهای جاذب ورقه‌ای را نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254779
 
@@ -305,17 +318,6 @@ Indypersian
 این اداره با اشاره به حساسیت بالای اکوسیستم‌های مانگرو، نوشت که بررسی و اقدام فوری برای جلوگیری از گسترش آلودگی و کاهش آثار احتمالی آن ضرورت دارد.
 
 اداره کل منابع طبیعی و آبخیزداری هرمزگان اعلام کرد علت و منشا دقیق ورود لکه‌های نفتی پس از بررسی‌های کارشناسی و جمع‌بندی گزارش‌های دستگاه‌های مرتبط اعلام خواهد شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254760
-
-<div align="center"><img src="files/post_254760_VahidOOnLine_254760.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنا بر اطلاعات رسیده به ایران اینترنشنال، حدیث یزدی، بلاگر اهل مشهد، به دلیل پست‌هایی که در حمایت از اعتراض‌های دی‌ماه منتشر کرده تحت فشار‌های امنیتی قرار است و سیم‌کارت تلفن او مسدود شده است. ماموران امنیتی در ماه‌های گذشته چندین بار به منزل او حمله کرده و به او گفته‌اند منتظر احضاریه دادگاه باشد.
 IranintlTV
 
 🤖 @VahidOOnLine

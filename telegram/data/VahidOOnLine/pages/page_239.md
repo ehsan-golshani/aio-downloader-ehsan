@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 239
 
-📅 آخرین بروزرسانی: 1405/05/28 02:15
+📅 آخرین بروزرسانی: 1405/05/28 02:40
 
 ---
+
+## VahidOOnLine — post 250131
+
+<div align="center"><video src="files/post_250131_VahidOOnLine_250131.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250131_VahidOOnLine_250131.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد که روز سه‌شنبه در شهر صدرا در ۱۵ کیلومتری شمال غربی شیراز، دود ناشی از انفجار به آسمان برخاست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250130
 
@@ -272,18 +285,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ای‌بی‌سی نیوز شامگاه سه‌شنبه گزارش داد مقام‌های آمریکایی تایید کرده‌اند نیروهای ایالات متحده در حال انجام حملات هوایی جدید علیه اهدافی در ایران هستند.
 به گفته یک مقام آمریکایی، این حملات از چند ساعت پیش آغاز شده و همچنان ادامه دارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250103
-
-<div align="center"><img src="files/post_250103_VahidOOnLine_250103.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکسیوس سه‌شنبه گزارش داد دونالد ترامپ در تماس با بنیامین نتانیاهو از او خواست روند خروج تدریجی نیروهای اسرائیلی از سوریه را آغاز کند و در لبنان نیز اقدام مشابهی انجام دهد.
-به گزارش اکسیوس، ترامپ حضور ارتش اسرائیل در سوریه را عامل تنش دانسته، اما نتانیاهو بر حفظ مناطق حائل امنیتی در مرزهای اسرائیل تاکید کرده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
