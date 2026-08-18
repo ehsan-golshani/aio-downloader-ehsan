@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 128
 
-📅 آخرین بروزرسانی: 1405/05/27 23:51
+📅 آخرین بروزرسانی: 1405/05/28 00:14
 
 ---
+
+## ProxyMTProto — post 47720
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: evening.nolags.pw
+Port: 443
+Secret: dd29b3afb209c4427676b4c43eecb7f556
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47719
 
@@ -167,15 +176,6 @@ Secret: eeade4e42a3bee4969fcb706467380da727232342e70726f787974672e7370616365
 </div>
 
 ## ProxyMTProto — post 47701
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r26.proxytg.space
-Port: 8443
-Secret: eec479c1a98aa5c149647459a1c098634c7232362e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47700
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: r26.proxytg.space

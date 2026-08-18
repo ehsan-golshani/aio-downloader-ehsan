@@ -1,8 +1,46 @@
 # آرشیو کانال VahidOOnLine - صفحه 165
 
-📅 آخرین بروزرسانی: 1405/05/27 23:51
+📅 آخرین بروزرسانی: 1405/05/28 00:14
 
 ---
+
+## VahidOOnLine — post 251722
+
+<div align="center"><img src="files/post_251722_VahidOOnLine_251722.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ روز پنجشنبه، اول مرداد در شبکه اجتماعی تروث‌سوشال اعلام کرد توافق هسته‌ای غیرنظامی میان وزارت انرژی ایالات متحده و عربستان سعودی به تایید خواهد رسید، اما این امر به طور کامل مشروط به پیوستن ریاض به توافق‌نامه ابراهیم است؛ توافقی که به‌معنی عادی‌سازی روابط با اسرائیل خواهد بود.
+
+ترامپ تاکید کرد این توافق صرفا به مصارف غیرنظامی مربوط می‌شود و هیچ‌گونه غنی‌سازی موادی در آن انجام نخواهد گرفت. او افزود ایالات متحده با تاسیسات هسته‌ای غیرنظامی (بدون غنی‌سازی) مخالفتی ندارد؛ مشابه برنامه‌هایی که کشورهایی نظیر ایران و امارات متحده عربی پیش‌تر از آن برخوردار بوده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251721
+
+<div align="center"><video src="files/post_251721_VahidOOnLine_251721.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251721_VahidOOnLine_251721.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تصاویر منتشرشده در شبکه‌های اجتماعی نشان می‌دهد رانندگان خودروهای سنگین، مینی‌بوس‌ها و اتوبوس‌ها روز پنجشنبه اول مردادماه در یکی از جایگاه‌های سوخت زاهدان برای دریافت گازوئیل در صف‌های کیلومتری منتظر مانده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251720
+
+<div align="center"><img src="files/post_251720_VahidOOnLine_251720.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت‌خانه‌های خارجه اردن و بحرین حمله حوثی‌ها به یک کشتی متعلق به یک شرکت عربستان سعودی در دریای سرخ را محکوم کردند. وزارت خارجه اردن این حمله را نقض آشکار حقوق بین‌الملل، کنوانسیون حقوق دریاها و تهدیدی برای امنیت و ایمنی کشتیرانی دریایی دانست.
+وزارت خارجه بحرین نیز این حمله را تهدیدی برای امنیت کشتیرانی، تجارت بین‌المللی و تامین انرژی دانست و از شورای امنیت خواست برای توقف این حملات و پاسخگو کردن عاملان آن اقدام کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251719
 
@@ -231,51 +269,6 @@
 حسین مظفری، امام جمعه قزوین، گفت «قرارگاه مشترک عفاف و حجاب» در این استان تشکیل می‌شود.
 مظفری پنجشنبه اول مرداد در نشست «هم‌اندیشی با جمعی از فعالان حوزه عفاف و حجاب» گفت این قرارگاه با هدف همکاری نهادهای حاکمیتی و فعالان مردمی برای «ارتقای فرهنگ عفاف و حجاب» در استان تشکیل خواهد شد. او همچنین بر ضرورت حمایت نهادهای حکومتی از فعالیت‌های فرهنگی تاکید کرد.
 امام جمعه قزوین گفت فعالان عرصه فرهنگ و دین نیز از «امداد الهی» برخوردار خواهند بود و نباید در برابر آسیب‌های فرهنگی احساس ناامیدی کنند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251700
-
-<div align="center"><video src="files/post_251700_VahidOOnLine_251700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251700_VahidOOnLine_251700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-الی کوهن، وزیر انرژی و زیرساخت‌های اسرائیل در گفت‌وگو با رادیو ۱۰۳ اف‌ام گفت اسرائیل برای هر سناریوی احتمالی آماده است و هشدار داد در صورت حمله جمهوری اسلامی به اسرائیل، با پاسخی قاطع و قدرتمند روبه‌رو خواهد شد.
-
-گفت‌وگو با بابک اسحاقی، خبرنگار ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251699
-
-<div align="center"><video src="files/post_251699_VahidOOnLine_251699.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251699_VahidOOnLine_251699.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در یک برنامه زنده تلویزیونی، امیرحسین ثابتی، نماینده جبهه پایداری در مجلس شورای اسلامی، و محمدمهدی شهریاری، عضو کمیسیون امنیت ملی مجلس، درباره وضعیت تنگه هرمز به‌شدت با یکدیگر بحث کردند. در این برنامه، شهریاری از نمایندگان تندرو مجلس خواست دست از سر تنگه هرمز بردارند.
-
-گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251698
-
-<div align="center"><video src="files/post_251698_VahidOOnLine_251698.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251698_VahidOOnLine_251698.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسعود فرهیخته، معلم زندانی و فعال صنفی، برای هفتمین بار از زندان مرکزی کرج به مکانی نامعلوم منتقل شده است. شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران گزارش داد این انتقال در حالی انجام شده که او سه روز پیش، پس از ۲۰ روز حبس در سلول انفرادی، به بند عمومی بازگشته بود.
-
-گفت‌‌وگو با اسماعیل عبدی، فعال صنفی معلمان
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

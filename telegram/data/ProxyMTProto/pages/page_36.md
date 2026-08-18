@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/27 23:51
+📅 آخرین بروزرسانی: 1405/05/28 00:14
 
 ---
+
+## ProxyMTProto — post 49569
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.workingproxy.xyz
+Port: 443
+Secret: dddb688a36cd7c7b24fa0604392645bd82
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49568
 
@@ -165,15 +174,6 @@ Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 Server: secure.gorbushkin.click
 Port: 443
 Secret: ee2566052eb7f98d9601ca0b656f9032177365637572652e676f72627573686b696e2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49549
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ops2ops.co.uk.
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 
