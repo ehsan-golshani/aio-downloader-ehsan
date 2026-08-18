@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 125
 
-📅 آخرین بروزرسانی: 1405/05/27 09:26
+📅 آخرین بروزرسانی: 1405/05/27 09:43
 
 ---
+
+## tasiyanc — post 5642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5641
 
@@ -187,16 +200,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ وزیر ارتباطات:
 با دستور رئیس‌جمهوری و پس از برگزاری ۳ جلسه فشرده کارشناسی، فرایند بازگرداندن اینترنت کشور به وضعیت قبل از دی‌ماه ۱۴۰۴ آغاز شده است.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5609
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوری 🚨
-صفحه خرید و درخواست اینترنت پرو از سایت همراه اول حذف شد
-
-و همچنین جی‌میل در دسترس قرار گرفت
 @Tasiyanc ✅
 </div>
 

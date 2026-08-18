@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/27 09:26
+📅 آخرین بروزرسانی: 1405/05/27 09:43
 
 ---
+
+## tasiyanc — post 9072
+
+<div align="center"><img src="files/post_9072_tasiyanc_9072.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ در تروث سوشیال :
+"دونالد ترامپ در جنگ با ایران پیروز شد."
+
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9071
 
@@ -344,15 +356,6 @@ Join @TASIYANC
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 ایران عوارض ۷٪ را بر تمام کشتی‌های تجاری عبوری از تنگه هرمز اعلام کرده است , این امر برای ایران ۳۸۵ میلیون دلار خالص روزانه یا بیش از ۱۰۰ میلیارد دلار خالص سالانه با حجم ترافیک پیش از جنگ ایجاد می‌کند
 
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووری 🔴 در پی حمله موشکی حوثی های یمن
-
-تعدادی از نیروهای عربستان سعودی کشته و زخمی شدند، پس از آنکه یک موشک شلیک شده از یمن مستقیماً به پایگاه‌های نیروهای تیپ واکنش سریع اصابت کرد.
 @TASIYANC ✅
 </div>
 

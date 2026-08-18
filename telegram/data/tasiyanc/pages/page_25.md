@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/27 09:26
+📅 آخرین بروزرسانی: 1405/05/27 09:43
 
 ---
+
+## tasiyanc — post 8803
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ لوکیشن آلمان و اسپانیا 💥
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC 💠
+</div>
 
 ## tasiyanc — post 8802
 
@@ -225,11 +245,5 @@ Multi Location ⚡
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8781
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
 </div>
 

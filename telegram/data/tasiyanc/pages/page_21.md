@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/27 09:26
+📅 آخرین بروزرسانی: 1405/05/27 09:43
 
 ---
+
+## tasiyanc — post 8923
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 📶 Open Vpn Config ✅ ━━━╮
+
+آموزش اتصال 
+
+در صورت برقرار نشده اتصال چند بار بزنید پشت هم
+
+⚡️ Unlimated• By @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8922
 
@@ -273,11 +285,5 @@ vmess://eyJhZGQiOiI1LjE4OC4xOTAuMjUyIiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 
 
 🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8898
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 کاخ سفید : خداوند سربازان ما را حفظ کند جنگ سهمگین در راهه؟ 🔱 @TASIYANC
 </div>
 

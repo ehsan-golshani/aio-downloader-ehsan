@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/05/27 09:26
+📅 آخرین بروزرسانی: 1405/05/27 09:43
 
 ---
+
+## tasiyanc — post 8067
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار 185
+</div>
 
 ## tasiyanc — post 8066
 
@@ -274,11 +280,5 @@
 🔻امشب ما مهمانی بسیار ویژه خواهیم داشت که در حملات ما به ایران شرکت خواهد داشت.
 فیکه خبر
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن فاک باز شد
 </div>
 

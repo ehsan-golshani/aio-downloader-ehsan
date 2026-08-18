@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/05/27 09:26
+📅 آخرین بروزرسانی: 1405/05/27 09:43
 
 ---
+
+## tasiyanc — post 5885
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیشتر با ovpn تا حالا وصل شدید یا با npv ؟ زمان قطعی کدوم به دادتون رسیده یادتون رفت؟
+
+Npv ❤️
+
+Ovpn 🔥
+</div>
 
 ## tasiyanc — post 5884
 
@@ -188,11 +198,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عجب سرعتی داره داداش کیرتو بخورم دمت گرم❤️
-</div>
-
-## tasiyanc — post 5859
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کالافو اپدیت کردم دمت گرم
 </div>
 

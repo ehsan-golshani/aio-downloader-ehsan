@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/27 09:26
+📅 آخرین بروزرسانی: 1405/05/27 09:43
 
 ---
+
+## tasiyanc — post 7834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگ رسما و شرعا آغاز شد
+</div>
 
 ## tasiyanc — post 7832
 
@@ -215,11 +221,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اوه
-</div>
-
-## tasiyanc — post 7791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️رسما توافق با آمریکا سرش گرد شد
 </div>
 
