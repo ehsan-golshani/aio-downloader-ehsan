@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/05/27 15:41
+📅 آخرین بروزرسانی: 1405/05/27 16:49
 
 ---
+
+## ProxyMTProto — post 47725
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 77.73.131.117
+Port: 443
+Secret: ee97500cee8fa3bf21435e27cf09de8b72766b2e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47724
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sexy.arixo.shop
+Port: 443
+Secret: eec11798ab008831b474066c9e1ebf5c59617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47723
 
@@ -163,24 +181,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: 95.182.86.60
 Port: 443
 Secret: ee82dd957be0c6899a82879d05fecfc73a617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47705
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: r29.proxytg.space
-Port: 8443
-Secret: ee5b741234768d8dda7d1c17e7e7cff98a7232392e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dns.vdl.lat
-Port: 853
-Secret: ee9963ec50cf89d852bb1e084a44b196e4646e732e76646c2e6c6174
 @ProxyMTProto
 </div>
 
