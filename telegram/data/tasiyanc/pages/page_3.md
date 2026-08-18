@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/27 23:18
+📅 آخرین بروزرسانی: 1405/05/28 02:17
 
 ---
+
+## tasiyanc — post 9403
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش اعضا وضعیت اینترنت داغون شده ، تایید یا ن؟
+</div>
 
 ## tasiyanc — post 9402
 
@@ -236,14 +242,5 @@ g26
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وضعیت اینترنت چطوره؟
-</div>
-
-## tasiyanc — post 9372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نوید محمدزاده : از فلسطین حمایت کردم ، بازم خواهم کرد ، با اسراییل حال نمیکنم ، تموم تهدید های شما هم ب تخممه
-
-بعد این حرفاش ۹۰۰ هزار نفر آنفالوش کردن فعلا
-@Tasiyanc ⭐️
 </div>
 

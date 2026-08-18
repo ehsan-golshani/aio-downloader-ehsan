@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/05/27 23:18
+📅 آخرین بروزرسانی: 1405/05/28 02:17
 
 ---
+
+## tasiyanc — post 7288
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امیدوارم مافیای بورنو هرناندز و برناردو سیلوای احمق فقط یه ذره از بازیکنای آرژانتین یاد بگیرن و به کاپیتانشون (Cr7) اندازه بازیکنای آرژانتین اهمیت بدن
+</div>
 
 ## tasiyanc — post 7287
 
@@ -185,11 +191,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اینجاست ک میگن بلژیک از کون ( طارمی) اورد 🤣
-</div>
-
-## tasiyanc — post 7254
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طارمی اگه کون نداشت الان یک صفر بود بازی😒
 </div>
 

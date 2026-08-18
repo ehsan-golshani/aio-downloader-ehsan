@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/05/27 23:18
+📅 آخرین بروزرسانی: 1405/05/28 02:17
 
 ---
+
+## tasiyanc — post 6263
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐
+
+trojan://bb45f73f-795b-4a05-a8e0-ba717bce87e3@104.19.229.21:443?path=%2Fid-tksi&security=tls&insecure=0&host=api24-normal.tiktokv.com.cyylr.eu.cc&type=ws&allowInsecure=0&sni=api24-normal.tiktokv.com.cyylr.eu.cc#%F0%9F%AA%90%20%40Tasiyanc vless://47422044-85e3-426b-b6c4-3588cb24a3e5@45.130.125.160:443?path=%2Fae-bo&security=tls&encryption=none&insecure=0&host=s.blibli.com.cyylr.eu.cc&type=ws&allowInsecure=0&sni=s.blibli.com.cyylr.eu.cc#%E2%9A%A1%20%40Tasiyanc
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6262
 
@@ -190,15 +200,5 @@ HOT 🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [12]⚡@Tasiyanc 🚀.conf
-</div>
-
-## tasiyanc — post 6239
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد CMR  👑
-دانلود  Wg tunnel 🕹
-آموزش⏩
-
-@Tasiyanc ✅
 </div>
 

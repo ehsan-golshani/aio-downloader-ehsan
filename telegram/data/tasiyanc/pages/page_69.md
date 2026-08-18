@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/05/27 23:18
+📅 آخرین بروزرسانی: 1405/05/28 02:17
 
 ---
+
+## tasiyanc — post 7321
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دبل کرد حضرت عشق
+</div>
 
 ## tasiyanc — post 7319
 
@@ -186,10 +192,4 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 </div>
 
 ## tasiyanc — post 7289
-
-## tasiyanc — post 7288
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امیدوارم مافیای بورنو هرناندز و برناردو سیلوای احمق فقط یه ذره از بازیکنای آرژانتین یاد بگیرن و به کاپیتانشون (Cr7) اندازه بازیکنای آرژانتین اهمیت بدن
-</div>
 

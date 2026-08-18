@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/27 23:18
+📅 آخرین بروزرسانی: 1405/05/28 02:17
 
 ---
+
+## tasiyanc — post 9446
+
+<div align="center"><video src="files/post_9446_tasiyanc_9446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9446_tasiyanc_9446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🖤امروز ۲۸ مرداد ، تولد فرزند ایران جاویدنام مهرداد مشتاقی ۲۷ ساله هست ، مهرداد ۱۹ دی در اراک با گلوله کشته شد او هوادار استقلال بود و عاشق زندگی ...
+
+
+@Tasiyanc 🏛
+</div>
 
 ## tasiyanc — post 9445
 
@@ -22,8 +35,6 @@
 </div>
 
 ## tasiyanc — post 9444
-
-<div align="center"><a href="files/post_9444_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
@@ -272,18 +283,5 @@ Roast me , no filter , no mercy
 
 #R
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9426
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
 </div>
 
