@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/05/27 12:25
+📅 آخرین بروزرسانی: 1405/05/27 13:19
 
 ---
+
+## ProxyMTProto — post 47858
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 51.250.82.46
+Port: 443
+Secret: ee2147d08d35506c24aad6bd92df99e44e617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47857
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47856
 
@@ -164,25 +182,5 @@ Server: boost.flowstreamhub.site
 Port: 8443
 Secret: ee7ee0a641b78ecc8d210e47981904a50a626f6f73742e666c6f7773747265616d6875622e73697465
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47838
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 9965
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47837
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ Telegram access is becoming less stable due to new restrictions.
-
-🔥 We're constantly adding new working proxies for free.
-
-🌎 Get your dedicated proxy now!
-👇 پروکسی اختصاصی خودتو بگیر
 </div>
 

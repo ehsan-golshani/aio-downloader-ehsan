@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/27 11:35
+📅 آخرین بروزرسانی: 1405/05/27 13:20
 
 ---
+
+## tasiyanc — post 8997
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دست کم ۷ انفجار در دوبی منطقه جبل علی
+
+مشخص نیست حمله شده یا چی
+</div>
+
+## tasiyanc — post 8996
+
+<div align="center"><video src="files/post_8996_tasiyanc_8996.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8996_tasiyanc_8996.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 یک سایت اما دسترسی به ده‌ها هوش مصنوعی!
+
+
+🟠اگر نمی‌خواهی برای هر مدل هوش مصنوعی یک سایت جدا باز کنی، Poe.com دقیقاً همان چیزی است که دنبالش هستی.
+
+در Poe می‌توانی با مدل‌هایی مثل ChatGPT، Claude، Gemini، DeepSeek، Grok، Llama و ده‌ها مدل دیگر، همه در یک پلتفرم، گفتگو کنی و بهترین پاسخ را بگیری.
+
+🪩 https://Poe.com
+
+
+
+⚡️@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8995
 
@@ -295,21 +325,5 @@ vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 🌐 betinja.bet
 کانال بونوس های رایگان g13
 @betinjabet
-</div>
-
-## tasiyanc — post 8974
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم…
-</div>
-
-## tasiyanc — post 8973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد
-
-زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم 😂
-
-@Tasiyanc ⭐️
 </div>
 

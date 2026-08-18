@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/05/27 11:35
+📅 آخرین بروزرسانی: 1405/05/27 13:20
 
 ---
+
+## tasiyanc — post 8013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جام جهانی اگه ایران برگزار می‌شد این ویدیو ده میلیون بازدید خورده :
+
+
+ثانیه به ثانیه‌اش عالیه😂
+
+@Tasiyanc ⭐️ | بانك کانفیگ
+</div>
+
+## tasiyanc — post 8011
+
+<div align="center"><img src="files/post_8011_tasiyanc_8011.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ارتش اسراییل تقه محکمی به کفر تبنیت جنوب لبنان زد
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8010
 
@@ -210,60 +230,6 @@ A true friend of the Iranian people, may your soul rest in peace. You will alway
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨ساعاتی پیش میچ مک‌کانل نزدیک به ترامپ و مخالف ج ا، یکی دیگه از سناتورهای جمهوری‌خواه آمریکایی بر اثر عارضه قلبی راهی بیمارستان شد. @TasiyanProxy
-⭐️
-</div>
-
-## tasiyanc — post 7977
-
-<div align="center"><video src="files/post_7977_tasiyanc_7977.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7977_tasiyanc_7977.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 
-📱
-
-3سرور  سرعتی پرمیوم 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال روی اندروید 
-⛓
-آموزش اتصال روی ویندوز  
-⛓
-
-دانلود برنامه اندروید 
-🕹
-
-دانلود برنامه برای ویندوز 
-💻
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7976
-
-<div align="center"><img src="files/post_7976_tasiyanc_7976.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺فروش ویژه پکیج نامحدود ، بدون محدودیت کاربر ، جهت ثبت سفارش پیام بدید
-
-
-👉@StarTasiyan 
 ⭐️
 </div>
 

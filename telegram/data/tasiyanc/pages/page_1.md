@@ -1,12 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/27 11:35
+📅 آخرین بروزرسانی: 1405/05/27 13:20
 
 ---
 
-## tasiyanc — post 9431
+## tasiyanc — post 9433
 
-<div align="center"><a href="files/post_9431_@Tasiyanc 🐍.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🐍.ovpn</a></div>
+<div align="center"><video src="files/post_9433_tasiyanc_9433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9433_tasiyanc_9433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز تولد جاویدنام و بچه قهرمان ایران ملینا اسدی ؛
+
+دختر بچه ی ۳ ساله ای که به ضرب گلوله در ۱۸ دیماه غرق در خون شد و برای همیشه چشمان زیبایش را بست
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 9432
+
+<div align="center"><img src="files/post_9432_tasiyanc_9432.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سود های میلیارد دلاری شرکت های نفتی آمریکا بعد جنگ:
+
+پ ن : حالا شما هی تو صداسیما بگو پیروز شدیم
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9431
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 
@@ -186,24 +212,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
-</div>
-
-## tasiyanc — post 9410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
-</div>
-
-## tasiyanc — post 9409
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇
-@wWwWwWwWwWwWwWwWwWwWwW26
-
-من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه
-
-هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این شخص بدست بیارید سریع بفرستید پیوی ادمین هزینشو ... هم میدیم
-
-@TSSUB
 </div>
 

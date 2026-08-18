@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/05/27 11:35
+📅 آخرین بروزرسانی: 1405/05/27 13:20
 
 ---
+
+## tasiyanc — post 5594
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ممنون از همه زحماتتون تیم تاسیان مرسی من با npv تونستم وصل شم
+</div>
+
+## tasiyanc — post 5585
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان 📱
+
+⛈ سرور تست شده همه اپراتورها⛈
+
+برای اتصال پایدار صبور باشید
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5584
 
@@ -165,23 +183,5 @@ WAR 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 باز تاسیان پخت پز شروع کرد
-</div>
-
-## tasiyanc — post 5564
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅Password @Tasiyanc
-
-📶اختصاصی تاسیان ۴ سرور تست شده  تمام اپراتورها  📶
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5563
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی در راه
 </div>
 
