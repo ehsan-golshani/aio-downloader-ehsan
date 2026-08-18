@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/27 18:53
+📅 آخرین بروزرسانی: 1405/05/27 22:31
 
 ---
+
+## tasiyanc — post 8408
+
+<div align="center"><img src="files/post_8408_tasiyanc_8408.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آبادان، پنجاه‌سال پیش، ملقب به مروارید خاورمیانه.
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[04]⚡@Tasiyanc.ovpn
+</div>
 
 ## tasiyanc — post 8405
 
@@ -186,17 +202,5 @@ IP
 🖌 #CC
 
 @Tasiyanc ✅ | بانك کانفیگ
-</div>
-
-## tasiyanc — post 8379
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تماممم انگلیس ۶ ، ۴ فرانسه رو کرد
-</div>
-
-## tasiyanc — post 8375
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی انگلیس فرانسه شده پور*هاب ۴ تا انگلیس زده
 </div>
 

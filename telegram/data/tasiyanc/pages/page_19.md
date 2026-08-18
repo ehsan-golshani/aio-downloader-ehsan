@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/27 18:53
+📅 آخرین بروزرسانی: 1405/05/27 22:31
 
 ---
+
+## tasiyanc — post 8985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast - HCustum 🇮🇹B.hc
+</div>
+
+## tasiyanc — post 8984
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر بد
+متاسفانه پورت های مهم من جمله 22 که برای پروتکل های SSHبکار میره مسدود شده کار نمیکنه ، امیدوارم اوکی شه چون این نشانه از چیزیه ک دوس ندارم عنوان کنم.
+</div>
 
 ## tasiyanc — post 8982
 
@@ -294,38 +307,5 @@ vless://29ca503d-e6b8-4509-b666-48133f450857@one-for-all.levikogjgfdd.ir:443?pat
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 8960
-
-<div align="center"><img src="files/post_8960_tasiyanc_8960.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو ۹۰٪ عکسهاش دستهاشو قایم کرده تا معلولیتش مشخص نباشه
-جاوید نام امیرحسین صفری که چند روز پیش اعدام شد
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8958
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم 
-🖤
-🇮🇷
-
-کانفیگ اختصاصی نامحدود نپسترنت
-📱
-
-۵ سرور سرعتی تست شده  لوکیشن ایتالیا 
-📍
-
-آموزش اتصال 
-⚡️
-
-اتصال امن برای همه
-
-
-✅ @TASIYANC
 </div>
 

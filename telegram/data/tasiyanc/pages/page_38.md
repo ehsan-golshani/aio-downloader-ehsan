@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/27 18:53
+📅 آخرین بروزرسانی: 1405/05/27 22:31
 
 ---
+
+## tasiyanc — post 8433
+
+<div align="center"><img src="files/post_8433_tasiyanc_8433.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
+</div>
+
+## tasiyanc — post 8432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موقع قطعی خودتو بکشی ام رات نمیدم
+</div>
 
 ## tasiyanc — post 8431
 
@@ -141,21 +155,5 @@
 
 
 @Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8408
-
-<div align="center"><img src="files/post_8408_tasiyanc_8408.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آبادان، پنجاه‌سال پیش، ملقب به مروارید خاورمیانه.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8406
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04]⚡@Tasiyanc.ovpn
 </div>
 

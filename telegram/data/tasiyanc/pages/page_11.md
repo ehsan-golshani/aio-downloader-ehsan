@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/27 18:53
+📅 آخرین بروزرسانی: 1405/05/27 22:31
 
 ---
+
+## tasiyanc — post 9181
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قانون جدید
+اگر مدل ماشینتون 1385به قبله، جزو خودروهای فرسوده حساب میشه و
+به این ماشین‌ها دیگه بنزین سهمیه‌ای نمیدن، حق تو اسنپ و تاکسی های اینترنتی هم ندارن!
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9180
+
+<div align="center"><img src="files/post_9180_tasiyanc_9180.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕
+
+اسم : Ethereal Lake Muse 🤍
+
+آموزش استفاده 👉
+
+دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9178
 
@@ -334,27 +360,5 @@ A high-contrast black and white studio portrait of a handsome Middle Eastern man
 •اتصال امن برای همه 🇮🇷
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱 ممنون ک هستید❤️
-</div>
-
-## tasiyanc — post 9155
-
-<div align="center"><img src="files/post_9155_tasiyanc_9155.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Cozy Cat Cuddle 😒
-
-آموزش استفاده 👉
-
-دریافت پرامپت👉
-
-@TASIYANC ⭐️
 </div>
 

@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/27 18:53
+📅 آخرین بروزرسانی: 1405/05/27 22:31
 
 ---
+
+## tasiyanc — post 8475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
+</div>
+
+## tasiyanc — post 8474
+
+<div align="center"><video src="files/post_8474_tasiyanc_8474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8474_tasiyanc_8474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨از کویت به سمت ایران موشک شلیک شده
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8473
 
@@ -154,22 +173,5 @@
 حضور پرزیدنت ترامپ با اینفانتینو برای اهدای جام
 
 @TASIYANC⭐️
-</div>
-
-## tasiyanc — post 8455
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-الان ک ترامپ ممنوع تصویره نمی‌خواین تقدیم جام رو نشون بدید کسخلا؟
-</div>
-
-## tasiyanc — post 8454
-
-<div align="center"><img src="files/post_8454_tasiyanc_8454.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقا دیگه خیلی خیلی تنگ تر بشینید که مسی هم اومد 😐
-
-
-@TASIYANC ⭐️
 </div>
 

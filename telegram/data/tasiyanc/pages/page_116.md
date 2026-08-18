@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/05/27 18:53
+📅 آخرین بروزرسانی: 1405/05/27 22:31
 
 ---
+
+## tasiyanc — post 5900
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+سرور  سرعتی
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  ⚡️
+
+نحوه اتصال به سرورها ⏩
+
+🛜🛜
+
+
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5899
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Fast ⚡💗.npvt
+</div>
 
 ## tasiyanc — post 5898
 
@@ -196,28 +224,5 @@ GANG 🌙 10 SERVER FAST.npvt
 کانفیگ جدید OpenVPN  ♻️
 تست کنین بگین
 @Tasiyanc
-</div>
-
-## tasiyanc — post 5878
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد اتصال بدون گرفتن پینگ سریع به تلگرام بیاید خودش را میوفته
-</div>
-
-## tasiyanc — post 5877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
- سه سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 
