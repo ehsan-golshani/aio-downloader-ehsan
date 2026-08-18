@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 426
 
-📅 آخرین بروزرسانی: 1405/05/28 00:48
+📅 آخرین بروزرسانی: 1405/05/28 01:18
 
 ---
+
+## VahidOOnLine — post 245466
+
+<div align="center"><img src="files/post_245466_VahidOOnLine_245466.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وب‌سایت اکسیوس گزارش داد ارتش اسرائیل اندکی پیش از حمله به منطقه ضاحیه بیروت، فرماندهی مرکزی آمریکا (سنتکام) را از این عملیات مطلع کرده بود.
+
+ارتش اسرائیل پیش‌تر در بیانیه‌ای اعلام کرد در واکنش به شلیک پرتابه از سوی حزب‌الله به شمال اسرائیل و نقض آتش‌بس از سوی این گروه تحت حمایت جمهوری اسلامی، یکی از مقرهای حزب‌الله را در ضاحیه بیروت به طور دقیق هدف قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245465
+
+<div align="center"><img src="files/post_245465_VahidOOnLine_245465.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وب‌سایت اکسیوس گزارش داد ارتش اسرائیل اندکی پیش از حمله به منطقه ضاحیه بیروت، فرماندهی مرکزی آمریکا (سنتکام) را از این عملیات مطلع کرده بود.
+
+ارتش اسرائیل پیش‌تر در بیانیه‌ای اعلام کرد در واکنش به شلیک پرتابه از سوی حزب‌الله به شمال اسرائیل و نقض آتش‌بس از سوی این گروه تحت حمایت جمهوری اسلامی، یکی از مقرهای حزب‌الله را در ضاحیه بیروت به طور دقیق هدف قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245464
 
@@ -287,32 +313,6 @@ iranintl
 رویترز گزارش داد این موضوع یکی از محورهای مورد مذاکره در چارچوب تفاهم احتمالی میان جمهوری اسلامی و آمریکا است.
 iranintl
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245446
-
-<div align="center"><video src="files/post_245446_VahidOOnLine_245446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_245446_VahidOOnLine_245446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌
-محمدرضا شاه پهلوی در سال ۱۳۵۶ از مرکز آموزش افسری ژاندارمری کل کشور بازدید می‌کند و در جمع افسران و فرماندهان درباره آموزش نظامی، آمادگی دفاعی و مسئولیت نیروهای مسلح سخن می‌گوید.
-نسخه کامل این ویدیو و صدها آرشیو نایاب دیگر را در کانال یوتیوب Manoto تماشا کنید.
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245445
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازدید محمدرضا شاه پهلوی از ژاندارمری کل کشور در سال ۱۳۵۶ و سخنرانی ایشان در جمع افسران و فرماندهان، درباره آمادگی، آموزش و مسئولیت نیروهای نظامی.
-این ویدیو بخشی از آرشیو تاریخی منوتو است.
-نسخه کامل این ویدیو و صدها آرشیو نایاب دیگر را در کانال یوتیوب Manoto تماشا کنید.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>
