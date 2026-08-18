@@ -1,8 +1,30 @@
 # آرشیو کانال VahidOOnLine - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/27 11:33
+📅 آخرین بروزرسانی: 1405/05/27 12:25
 
 ---
+
+## VahidOOnLine — post 254730
+
+<div align="center"><video src="files/post_254730_VahidOOnLine_254730.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254730_VahidOOnLine_254730.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به به ایران اینترنشنال نشان می‌دهد که ایرانیان ساکن بریتانیا روز سه‌شنبه ۲۰ مرداد مقابل دفتر نخست‌وزیری این کشور در لندن تجمع کردند و در اعتراض به اعدام‌ها و احکام صادرشده علیه زندانیان و بازداشت‌شدگان «انقلاب ملی»، خواستار توقف اجرای احکام اعدام شدند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش رویترز، مردم در شهر ادلب، روز سه‌شنبه، ۲۰ مردادماه، در پی صدور حکم اعدام برای بشار اسد و شمار دیگری از مقامات حکومت او، به خیابان‌ها آمدند و با اهتزاز پرچم سوریه و پخش شیرینی به شادمانی پرداختند. یک دادگاه در سوریه پس از محاکمه‌ای غیابی، اسد را به اتهام جنایت علیه بشریت، قتل عمد، شکنجه و بازداشت‌های خودسرانه در طول جنگ ۱۴ ساله این کشور به اعدام محکوم کرد. این نخستین محکومیت قضایی علیه اسد پس از سقوط حکومتش در دسامبر ۲۰۲۴ به شمار می‌رود. دادگاه همچنین احکام مشابهی برای ماهر اسد، برادر بشار اسد و فرمانده لشکر چهارم زرهی، و عاطف نجیب، از مقامات امنیتی سابق حکومت در درعا، صادر کرده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254728
 
@@ -251,36 +273,6 @@ IranintlTV
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شبکه المسیره، وابسته به حوثی‌های یمن، گزارش داد این گروه نیابتی جمهوری اسلامی یک کشتی حامل «تجهیزات نظامی» عربستان سعودی را در باب‌المندب هدف قرار داده است.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254710
-
-<div align="center"><video src="files/post_254710_VahidOOnLine_254710.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254710_VahidOOnLine_254710.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد یکی از معترضان شعاری را روی سطل زباله نوشته است: «کجا جنگ رو بردیم؟ نه آب داریم نه برق نه پول غذا»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254709
-
-<div align="center"><video src="files/post_254709_VahidOOnLine_254709.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254709_VahidOOnLine_254709.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در پی انتشار تصاویر و اخباری از یک گروگانگیری در خیابان ولیعصر تهران، خبرگزاری تسنیم، شامگاه سه‌شنبه ۲۰ مرداد ماه، ویدیویی از لحظه خلع سلاح و بازداشت گروگان‌گیر را منتشر کرد.
-
-پیش‌تر پلیس تهران با انتشار تصاویری، از بازداشت مرد مسلحی که یک پرستار زن را در یک خانه در محدوده پارک ساعی گروگان گرفته بود، خبر داد.
-پلیس تهران در گزارش اولیه اعلام کرده بود: «نیروهای تخصصی رهایی گروگان» پس از حضور در محل، حدود دو ساعت با فرد گروگانگیر مذاکره کردند. در نهایت، زمانی که او قصد استفاده از سلاح خود را داشت، نیروهای نوپو وارد عمل شدند، او را خلع سلاح و گروگان را سالم آزاد کردند. »
-به گزارش عصر ایران، گروگانگیر ۴۳ ساله، زن جوانی را که از قبل می‌شناخت، در خانه‌ای حبس کرده بود. این زن سرانجام از طریق یکی از آشنایان خود پلیس را در جریان ماجرا قرار داد.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>
