@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/05/27 13:43
+📅 آخرین بروزرسانی: 1405/05/27 14:26
 
 ---
+
+## VahidOOnLine — post 253034
+
+<div align="center"><video src="files/post_253034_VahidOOnLine_253034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253034_VahidOOnLine_253034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اصفهان؛ «با دوشکا آمدند وسط میدان علیخانی» ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253033
+
+<div align="center"><video src="files/post_253033_VahidOOnLine_253033.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253033_VahidOOnLine_253033.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کرمانشاه؛ برگزاری مراسم زادروز جاویدنام معین رنجبر بر مزارش ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253032
+
+<div align="center"><video src="files/post_253032_VahidOOnLine_253032.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253032_VahidOOnLine_253032.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«آمدم صرافی، می‌گویند فقط دلار می‌خرند» ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253026
 
@@ -269,47 +308,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای منتشرشده در رسانه‌های اجتماعی نشان می‌دهد در روزهای اخیر بر اثر بارش باران، در مناطقی از نوکنده در استان گلستان و هزارجریب مازندران سیلاب جاری شده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253004
-
-<div align="center"><img src="files/post_253004_VahidOOnLine_253004.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های ایران با انتشار تصاویری گزارش دادند تابوت‌های پنج عضو سپاه پاسداران که در حملات آمریکا و عربستان سعودی به مواضع گروه‌های شبه‌نظامی مورد حمایت جمهوری اسلامی در عراق کشته شده بودند، از طریق مرز مهران وارد ایران شد.
-
-رسانه‌ها نوشتند این تابوت‌ها از مرز مهران به ایران منتقل شدند.
-
-ساعاتی پس از حملات آمریکا و عربستان سعودی به عراق، برخی رسانه‌های ایران و کانال‌های تلگرامی وابسته به حکومت از کشته شدن چهار عضو سپاه پاسداران خبر داده بودند.
-
-با این حال، جعفر صفری، سرپرست کنسولگری جمهوری اسلامی در کربلا، در یک مصاحبه ویدیویی این گزارش‌ها را تکذیب کرد و گفت ساختمانی که هدف حمله قرار گرفت، «متروکه و خالی از سکنه» بود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد پیکر امیرحسین صفری، یکی از دو معترض اعدام شده در بامداد سه‌شنبه ششم مرداد، در شهرستان خور و بیابانک از توابع استان اصفهان به خاک سپرده شد. این محل فاصله‌ای ۵ ساعته تا شهر اصفهان دارد.
-ابوالفضل سپاهی و امیرحسین صفری، دو تن از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ در میدان علیخانی اصفهان در ملاءعام اعدام شدند. چندی پیش نیز عرفان اسفندیاری و گل‌محمد محمدی، دو تن دیگر از متهمان این پرونده اعدام شده بودند.
-پیش از اعدام این دو زندانی سیاسی، خانواده‌های زندانیان سیاسی محکوم به اعدام و شهروندان در میدان علیخانی اصفهان تجمع کرده‌ بودند و درگیری نیز میان یگان ویژه جمهوری اسلامی با معترضان در گرفت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قاچاق انسان؛ صنعتی که از بدن، کار و ترس آدم‌ها پول می‌سازد
-
-قاچاق انسان یکی از پرسودترین و پنهان‌ترین اشکال استثمار در جهان است. میلیون‌ها نفر، از کودکان و مهاجران تا زنان و کارگران، در چرخه‌ای از فریب، خشونت و اجبار گرفتارند؛ چرخه‌ای که حتی پس از آزادی نیز آثار جسمی، روانی و اجتماعی آن ادامه پیدا می‌کند.
-پیشنهاد کاری جذابی به نظر می‌رسد: حقوق مناسب، بلیت هواپیما، محل اقامت و شغلی در حوزه بازاریابی، خدمات مشتریان یا فناوری. اما فرد پس از رسیدن به مقصد با واقعیت دیگری روبه‌رو می‌شود؛ گذرنامه‌اش را می‌گیرند، تلفن همراهش را ضبط می‌کنند، درها قفل می‌شود و او باید روزانه ده‌ها غریبه را در شبکه‌های اجتماعی فریب دهد. نرسیدن به سهمیه تعیین شده، کتک، شوک الکتریکی، گرسنگی، حبس یا فروخته‌شدن به گروهی دیگر را در پی دارد.
-
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
