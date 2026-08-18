@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/05/27 14:26
+📅 آخرین بروزرسانی: 1405/05/27 15:11
 
 ---
+
+## ProxyMTProto — post 49330
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49329
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: one1.mtproxygram.lol
+Port: 443
+Secret: ee563dc88ae5d1c70b18d01472f77a969962726f777365722e79616e6465782e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49328
 
@@ -163,24 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e63
 Server: mtp1.hlebushek.com
 Port: 443
 Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49309
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: stars.tg-proxy.fun
-Port: 6443
-Secret: a545c35eb2bdfa1a93df5ebe69957120
 @ProxyMTProto
 </div>
 
