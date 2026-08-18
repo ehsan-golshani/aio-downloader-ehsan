@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/27 20:14
+📅 آخرین بروزرسانی: 1405/05/27 21:35
 
 ---
+
+## ProxyMTProto — post 48857
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48856
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s01.neo-trading.org
+Port: 443
+Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48855
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48854
 
@@ -154,33 +181,6 @@ Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
 Server: Unknown
 Port: 443
 Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48837
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: web.utkanos.life
-Port: 443
-Secret: ee36fd02bb86fbc4266de3a70114c13a247765622e75746b616e6f732e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48836
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: veloxnetworks.co.uk.
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48835
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad1.arixo.shop
-Port: 443
-Secret: eee09f46368021f91b92ad3dea14c7ac896164312e617269786f2e73686f70
 @ProxyMTProto
 </div>
 
