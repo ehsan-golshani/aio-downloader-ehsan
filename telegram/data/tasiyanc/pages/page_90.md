@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/05/27 10:56
+📅 آخرین بروزرسانی: 1405/05/27 11:35
 
 ---
+
+## tasiyanc — post 6560
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وزیر دفاع اسراییل کاتز:ارتش اسرائیل آماده حمله‌ای بسیار قوی به ایران است
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6559
 
@@ -213,21 +220,5 @@ https://t.me/TasiyanProxy
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴پرزیدنت ترامپ: من نزدیک به دستور دادن حملات جدید به نیروگاه‌ها و پل‌های ایرانی هستم
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-3سرور سرعتی مناسب همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

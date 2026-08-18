@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/05/27 10:56
+📅 آخرین بروزرسانی: 1405/05/27 11:35
 
 ---
+
+## tasiyanc — post 6068
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+6سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
+✅
+
+دانلود  NPV tunnel  
+🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6064
 
@@ -150,11 +169,5 @@ Hot Servers 🔥🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرور های جدید نپستر ساعت ۱.۳۰
-</div>
-
-## tasiyanc — post 6036
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام مردم بالا ببینید راجب این فیلترشکن
 </div>
 

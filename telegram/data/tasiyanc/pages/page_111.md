@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 111
 
-📅 آخرین بروزرسانی: 1405/05/27 10:56
+📅 آخرین بروزرسانی: 1405/05/27 11:35
 
 ---
+
+## tasiyanc — post 6016
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🇬🇧.npvt
+</div>
 
 ## tasiyanc — post 6015
 
@@ -179,12 +185,5 @@ VİP 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عشقید به مولا
-</div>
-
-## tasiyanc — post 5981
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنها کسی ک مارو ب نت جهانی وصل کرد در سخت ترین شرایط شما بودی و خدا خیر بده اون کسی ک فقط ی دونه از کانف شمارو فرستاد تو روبیکا و من تونستم حداقل ۲۰نفرو با شما ب نت وصل کنم اونا دعاگوی من و منم دعاگوی شما
-دمتگرم ادم حسابی🙏🏻❤️
 </div>
 

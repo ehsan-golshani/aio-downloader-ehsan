@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/27 10:54
+📅 آخرین بروزرسانی: 1405/05/27 11:33
 
 ---
+
+## ProxyMTProto — post 50247
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eeddff05e65a69a6a7fd1a28a28a121fff7765622e62616c652e6169
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50246
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: edge.catsproxy.shop
+Port: 443
+Secret: ee77e833a4cf612b12af5c86614cc5291a656467652e6361747370726f78792e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50245
 
@@ -163,24 +181,6 @@ Secret: ddae7a078698a9289137599c9762db5d65
 Server: runserver.co.uk
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50227
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: api.nowabst.net
-Port: 853
-Secret: ee4b0955a40972e28dc3e76df92e9a3f1e766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50226
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

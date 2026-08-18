@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/05/27 10:56
+📅 آخرین بروزرسانی: 1405/05/27 11:35
 
 ---
+
+## tasiyanc — post 6777
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کدوم کانال خارجی دارید می‌بینید مسابقات جام جهانی رو؟
+</div>
 
 ## tasiyanc — post 6776
 
@@ -164,18 +170,5 @@ INFERNO ⚡ vip.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترامپ تو تجمعات ببینم تعجب نمیکنم
-</div>
-
-## tasiyanc — post 6722
-
-<div align="center"><img src="files/post_6722_tasiyanc_6722.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐😐
-ترامپ پست عباس عراقچی رو گذاشته X
-توافق اسلام‌آباد تا حالا هیچ‌وقت این‌قدر به نهایی شدن نزدیک نشده بود!
-  
-فعلاً رسانه‌ها درباره جزئیاتش حدس و گمان نزنن، وقتی کار نهایی شد، همه جزئیات رو به‌صورت رسمی به مردم اعلام می‌کنیم.
-@Tasiyanc ✅
 </div>
 

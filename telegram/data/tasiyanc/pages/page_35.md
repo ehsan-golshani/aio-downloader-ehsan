@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/27 10:56
+📅 آخرین بروزرسانی: 1405/05/27 11:35
 
 ---
+
+## tasiyanc — post 8491
+
+<div align="center"><video src="files/post_8491_tasiyanc_8491.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8491_tasiyanc_8491.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 
+🔐
+
+سرور سرعتی پرمیوم فرانسه
+⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8489
 
@@ -197,15 +233,5 @@ Loc 🇩🇪 🇩🇪
 🚨💪 گزارش اعضا : انفجار در گردنه ی بانه
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8465
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ گزارش انفجار در تبریز
-
-تایید یا تکذیب نمیشه
-
-@TASIYANC ⭐️
 </div>
 

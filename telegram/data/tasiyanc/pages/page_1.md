@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/27 10:56
+📅 آخرین بروزرسانی: 1405/05/27 11:35
 
 ---
+
+## tasiyanc — post 9431
+
+<div align="center"><a href="files/post_9431_@Tasiyanc 🐍.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🐍.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9430
 
@@ -188,29 +205,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این شخص بدست بیارید سریع بفرستید پیوی ادمین هزینشو ... هم میدیم
 
 @TSSUB
-</div>
-
-## tasiyanc — post 9408
-
-<div align="center"><img src="files/post_9408_tasiyanc_9408.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اینترنت گوشی رو به ساده ترین راه ممکن بفرست روی لپ تاپ!
-
-📰اگه روی گوشیت VPN روشنه و میخوای همون اینترنت و VPN رو روی ویندوز داشته باشی، Relay کار رو خیلی ساده میکنه. این پروژه متن بازه و گوشی و لپ تاپ مستقیما به هم وصل میشن و ترافیک از طریق یک تونل WireGuard منتقل میشه.
-
-❓ چطوری ازش استفاده کنیم ؟!
-
-1️⃣اپ Relay رو روی گوشی و ویندوز نصب کن ؛ هات اسپات گوشی رو روشن کن و Relay رو اجرا کن.
-
-2️⃣روی گوشی Start Sharing رو بزن تا QR Code نمایش داده بشه ؛ Relay رو روی ویندوز باز کن و Scan QR رو بزن.
-
-3️⃣در نهایت QR رو با دوربین لپ تاپ اسکن کن و اتصال رو روی گوشی تایید کن. تمام!
-
-📥 دانلود و کد پروژه : لینک گیت‌هاب
-
-🔐 طبق توضیحات پروژه، اکانت، سرور واسطه، تله متری یا اشتراک نداره و لاگ ها هم به صورت خودکار آپلود نمیشن.
-
-@Tasiyanc ✅
 </div>
 
