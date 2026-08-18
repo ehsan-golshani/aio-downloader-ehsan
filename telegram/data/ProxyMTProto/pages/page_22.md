@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/27 23:16
+📅 آخرین بروزرسانی: 1405/05/27 23:51
 
 ---
+
+## ProxyMTProto — post 49848
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad2.arixo.shop
+Port: 443
+Secret: eed09b88cbbd4e744865b890e5a0bd26876164322e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49847
 
@@ -172,15 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e63
 Server: Unknown
 Port: 25565
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49828
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

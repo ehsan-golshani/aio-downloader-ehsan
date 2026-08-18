@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/27 23:16
+📅 آخرین بروزرسانی: 1405/05/27 23:51
 
 ---
+
+## ProxyMTProto — post 50191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50190
 
@@ -172,15 +181,6 @@ Secret: eeb2a0e3b5fba31d961cba1437805cf950617069322e6b76616b7a6f6e2e746f70
 Server: Strait-of-Hormuz.ir.jursdheks.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50171
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: love.neverspy.online
-Port: 443
-Secret: ee24b3e49b9d33101f2c34e5e893bd90d17777772e6d6963726f736f66742e636f6d
 @ProxyMTProto
 </div>
 
