@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/05/27 17:40
+📅 آخرین بروزرسانی: 1405/05/27 18:53
 
 ---
+
+## tasiyanc — post 7655
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی 🍑 🤬🍆
+</div>
+
+## tasiyanc — post 7654
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زجه بزن عرزشی ، زجه زدنای شما منو ارضا میکنه
+</div>
 
 ## tasiyanc — post 7653
 
@@ -146,17 +158,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تیم انور سادات فقید 2 , استرالیا 1
-</div>
-
-## tasiyanc — post 7622
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید برد تیم بزرگ مصر میراث انور سادات فقید رفیق واقعی ایرانیان
-</div>
-
-## tasiyanc — post 7621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تیم انور سادات بزرگ شاهنشاه فقید مصر و استرالیا رفت پنالتی
 </div>
 

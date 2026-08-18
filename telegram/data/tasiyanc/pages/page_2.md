@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/27 17:40
+📅 آخرین بروزرسانی: 1405/05/27 18:53
 
 ---
+
+## tasiyanc — post 9416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ، همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام پستها پاک میشه
+</div>
+
+## tasiyanc — post 9415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ،
+همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام
+پستها پاک میشه
+</div>
 
 ## tasiyanc — post 9414
 
@@ -207,29 +221,5 @@ g26
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 9391
-
-<div align="center"><img src="files/post_9391_tasiyanc_9391.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، مارجوری تیلور نماینده سابق کنگره آمریکا:
-
-آمریکا توی جلسات راهبردی خودش، درباره استفاده از بمب اتم علیه ایران صحبت میکنه! آره این موضوع کاملا واقعیه و حدس نمیزنم!
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ اسم کانال با فونت معمولی تنظیم شد
-
-𝐓 𝐀 𝐒 𝐈 𝐘 𝐀 𝐍 👉 Tasiyan | تاسیان
-
-بخاطر برخی الگوریتم های موجود تلگرام فونت معمولی گذاشتیم
-
-« همراه ما باشید ❤️ »
 </div>
 

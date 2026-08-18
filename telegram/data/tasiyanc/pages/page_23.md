@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/27 17:40
+📅 آخرین بروزرسانی: 1405/05/27 18:53
 
 ---
+
+## tasiyanc — post 8885
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 امریکا به شهروندانش در اردن و اسراییل هشدار تخلیه فوری ارسال کرده
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8883
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز August 1، روز دوست دختره 
+😞
+
+پروکسی متصل | پروکسی متصل
+
+
+
+✈️@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8882
 
@@ -279,20 +301,5 @@ Restore this old photograph with maximum realism. Remove scratches, dust, stains
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴نت بلاکس : دولت ترکیه بصورت ناگهانی اینترنت کل مردم ترکیه رو قطع کرد.
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8853
-
-## tasiyanc — post 8852
-
-<div align="center"><img src="files/post_8852_tasiyanc_8852.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معتبر ترین دانشگاه ها در سال 2026 🌐
-
-پروکسی متصل | پروکسی متصل
-
-
-✈️@TASIYANC ✅
 </div>
 

@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/27 17:40
+📅 آخرین بروزرسانی: 1405/05/27 18:53
 
 ---
+
+## tasiyanc — post 9028
+
+<div align="center"><img src="files/post_9028_tasiyanc_9028.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو اربعین یه موکب زدن که هرکسی تنها بوده میتونسته شب بره اینجا یه نفرو به یه مبلغ خوب صیغه کنه حتی از اینجا میتونسته زن ایندشو هم انتخاب کنه 😞
+
+
+@TASIYANC 🕒
+</div>
+
+## tasiyanc — post 9027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پنالتی راحترین بازی پولساز ⚠️
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید راحتو سریع برنده شو👌🏼
+💖 مرجع بازی های روز دنیا در ‌پلتفرم جهانی بت اینجا ⭐
+</div>
 
 ## tasiyanc — post 9026
 
@@ -342,32 +361,6 @@ https://oteacher.org
 
 
 ⚡️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9004
-
-<div align="center"><img src="files/post_9004_tasiyanc_9004.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کروکودیل ( تمساح) ها بعد از خوردن طعمه ، به دلیل محبوس شدن هوا در سینوس هایشان اشک می‌ریزند ، نه پشیمانی
-بخاطر همین اصطلاح « اشک تمساح » برای کسایی بکار میرود که فقط تظاهر به ناراحتی میکنند
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9003
-
-<div align="center"><video src="files/post_9003_tasiyanc_9003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9003_tasiyanc_9003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تهران نوروز ۱۳۵۶ نزدیک به ۵۰ سال پیش
-😭 !!
-
-@TASIYANC 
 ✅
 </div>
 

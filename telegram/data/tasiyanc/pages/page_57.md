@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/05/27 17:40
+📅 آخرین بروزرسانی: 1405/05/27 18:53
 
 ---
+
+## tasiyanc — post 7756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ آکسیوس : حملات آمریکا ممکنه چند ساعت یا چند روز ادامه پیدا کنه
+</div>
+
+## tasiyanc — post 7755
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری حملات آمریکا به اسکله حقانی در سیریك
+</div>
 
 ## tasiyanc — post 7754
 
@@ -144,17 +156,5 @@
 
 اتصال امن برای همه 🇮🇷
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7720
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دروازه بان مصرو 😐😂
-</div>
-
-## tasiyanc — post 7719
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مصر یک صفر جلوئه
 </div>
 

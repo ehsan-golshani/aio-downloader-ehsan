@@ -1,8 +1,30 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/27 17:38
+📅 آخرین بروزرسانی: 1405/05/27 18:52
 
 ---
+
+## ProxyMTProto — post 50161
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖 Got a working proxy? Share it 🚀
+Есть рабочий прокси? Поделись 🚀
+
+Start @SProxyRobot, send it in — we’ll test & post it for everyone.
+Запусти @SProxyRobot, отправь — проверим и выложим для всех.
+
+⚡ New time slots are now open for the next days, grab yours before they fill up!
+⚡ Новые слоты на ближайшие дни уже открыты, успей занять, пока не разобрали!
+</div>
+
+## ProxyMTProto — post 50160
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8880
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50159
 
@@ -163,24 +185,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: freeinternet.skin
 Port: 443
 Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50141
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: edge.catsproxy.shop
-Port: 443
-Secret: ee77e833a4cf612b12af5c86614cc5291a656467652e6361747370726f78792e73686f70
 @ProxyMTProto
 </div>
 

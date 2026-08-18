@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/05/27 17:40
+📅 آخرین بروزرسانی: 1405/05/27 18:53
 
 ---
+
+## tasiyanc — post 6047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نزنه رسانه ای میکنم
+</div>
+
+## tasiyanc — post 6046
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکم صبر میکنم دیل آک بزنه
+</div>
 
 ## tasiyanc — post 6045
 
@@ -116,20 +128,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دقیقا رفیقم اینجوری شد
-</div>
-
-## tasiyanc — post 6024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نصب نکنید دوستان
-جدی میپرونه
-</div>
-
-## tasiyanc — post 6023
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من فقط جوین شدم که جواب شمارو بدم
-آره مال من پرید
-احراز هویت کردم برگشت
 </div>
 

@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/05/27 17:40
+📅 آخرین بروزرسانی: 1405/05/27 18:53
 
 ---
+
+## tasiyanc — post 7181
+
+<div align="center"><img src="files/post_7181_tasiyanc_7181.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Milano 🇮🇹🔥.npvt
+</div>
+
+## tasiyanc — post 7179
+
+<div align="center"><video src="files/post_7179_tasiyanc_7179.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7179_tasiyanc_7179.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV
+
+2سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود
+⬇️ وب‌گردی🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7176
 
@@ -237,20 +272,5 @@ Game DNS
 میدونی چیه ؟ لطف بیش از حد انجام بدی میشه وظیفه
 و همه بعد یه مدت میگن طرف کسخله ولت میکنن بدون اینکه به یاد بیارن چیکارا کردی
 با پوست استخون دارم تجربه میکنم همین الان ، فقط میشه تاسف خورد
-</div>
-
-## tasiyanc — post 7140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مال ما شد وظیفه مال بعضیا شده لطف
-</div>
-
-## tasiyanc — post 7138
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️ تحریم‌های نفتی ایران لغو شد ( طی توافق نامه)
-@Tasiyanc 
-✅
 </div>
 

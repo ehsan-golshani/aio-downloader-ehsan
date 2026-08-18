@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/27 17:40
+📅 آخرین بروزرسانی: 1405/05/27 18:53
 
 ---
+
+## tasiyanc — post 9004
+
+<div align="center"><img src="files/post_9004_tasiyanc_9004.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کروکودیل ( تمساح) ها بعد از خوردن طعمه ، به دلیل محبوس شدن هوا در سینوس هایشان اشک می‌ریزند ، نه پشیمانی
+بخاطر همین اصطلاح « اشک تمساح » برای کسایی بکار میرود که فقط تظاهر به ناراحتی میکنند
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9003
+
+<div align="center"><video src="files/post_9003_tasiyanc_9003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9003_tasiyanc_9003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تهران نوروز ۱۳۵۶ نزدیک به ۵۰ سال پیش
+😭 !!
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9002
 
@@ -307,51 +333,5 @@ Fast - HCustum 🇮🇹B.hc
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبر بد
 متاسفانه پورت های مهم من جمله 22 که برای پروتکل های SSHبکار میره مسدود شده کار نمیکنه ، امیدوارم اوکی شه چون این نشانه از چیزیه ک دوس ندارم عنوان کنم.
-</div>
-
-## tasiyanc — post 8982
-
-<div align="center"><video src="files/post_8982_tasiyanc_8982.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8982_tasiyanc_8982.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم
-🖤
-
-کانفیگ اختصاصی نامحدود HttpCustum 
-📱
-
-سرور سرعتی مناسب تمام نت‌ها 
-⚡️
-
-آموزش اتصال 
-✅
-
-دانلود 
-📱 android
-🕹 iOS
-
-اتصال امن برای همه 
-🏠
-
-
-💙@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8980
-
-<div align="center"><video src="files/post_8980_tasiyanc_8980.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8980_tasiyanc_8980.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی مراسم اربعین امسال، آهوهای ایرانیو کباب کردن میدن به زائرین!!!
-
-⚠️ حاوی تصاویر دلخراش.
-
-@Tasiyanc 
-⭐️
 </div>
 

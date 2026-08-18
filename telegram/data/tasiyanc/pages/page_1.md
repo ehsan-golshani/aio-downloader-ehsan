@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/27 17:40
+📅 آخرین بروزرسانی: 1405/05/27 18:53
 
 ---
+
+## tasiyanc — post 9439
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیرم و گاهی دلم یاد جوانی می‌کند
+بلبل شوقم هوای نغمه‌خوانی می‌کند 😞
+
+نفری یه بیت بگید تو کامنت
+</div>
+
+## tasiyanc — post 9438
+
+<div align="center"><a href="files/post_9438_Decarys 🔥.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Decarys 🔥.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال 
+⛓
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9437
 
@@ -28,8 +53,6 @@
 </div>
 
 ## tasiyanc — post 9435
-
-<div align="center"><a href="files/post_9435_RitzoBet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 RitzoBet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
@@ -236,19 +259,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سیو کنین ساعت ۲ پاک میشه
 دخترایی ک عکسشون پخش شده اسکرین ویدیو بگیرن از چنلش و اکانتش ، میتونن در اولین ساعات فردا با مراجعه به دفتر خدمات قضایی شهرشون شکایتشون طرح کنن کلا ۱۰ مین زمان می‌بره ، پروسه خاص ای هم ندارع و زود پیگیری میشه ، قبلا هم از این موردها داشتیم ک نسلش منقرض شد
-</div>
-
-## tasiyanc — post 9416
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ، همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام پستها پاک میشه
-</div>
-
-## tasiyanc — post 9415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ،
-همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام
-پستها پاک میشه
 </div>
 

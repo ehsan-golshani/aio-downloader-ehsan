@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/27 17:40
+📅 آخرین بروزرسانی: 1405/05/27 18:53
 
 ---
+
+## tasiyanc — post 6407
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شخص خودم فعالیتی تو روبیکا نخواهم داشت با توجه به اینکه ۳ تا اکانتم مسدوده ولی ادمینای تلگرام تو چنل و گروه روبیکا میگم کانفیگارو بفرستن در صورت قطعی
+https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
+</div>
+
+## tasiyanc — post 6406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی تاسیان 🆕
+
+✅77 کانفیگ پروتکل Trojan تست شده 🔄
+
+فایل Txt رو باز کنین کانفیگارو کپی کنین بریزید V2Box 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6405
 
@@ -192,19 +211,5 @@
 😬Password :″  @Tasiyanc  ″
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6383
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[Fast] ⚡ @Tasiyanc.npvt
-</div>
-
-## tasiyanc — post 6382
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در صورت قطعی ، چنل تاسیان پرایوت میشه ، و دوستانی که به ما وفادار بودن و پیشمون موندن قرارع نزارم یه دقیقه قطعی بکشن
-عشق منین شما ک همیشه حمایت کردید ازم ❤️
-قطعی ایشالا تو کار نباشه ولی اگر باشه قوی تر از قبل برنامه داریم
 </div>
 

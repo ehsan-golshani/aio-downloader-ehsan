@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/05/27 17:40
+📅 آخرین بروزرسانی: 1405/05/27 18:53
 
 ---
+
+## tasiyanc — post 8115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش جنوب ایران هم اندازه جنوب لبنان براتون مهم بود
+</div>
+
+## tasiyanc — post 8114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴حملات شدید آمریکا به اهواز عزیز
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8113
 
@@ -208,21 +222,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تتر 190 - ریدید تو زندگی ما
-</div>
-
-## tasiyanc — post 8088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ یک مقام ارشد آمریکایی : جمهوری اسلامی از توافق با آمریکا رسما خارج شد
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💢 فوری صنایع الکترونیک شیراز زدن
-
-@Tasiyanc ⭐️
 </div>
 

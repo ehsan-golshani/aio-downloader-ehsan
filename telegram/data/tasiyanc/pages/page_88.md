@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/05/27 17:40
+📅 آخرین بروزرسانی: 1405/05/27 18:53
 
 ---
+
+## tasiyanc — post 6658
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطورید رو به راهید؟
+</div>
+
+## tasiyanc — post 6657
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطورید رو به راهید؟
+</div>
 
 ## tasiyanc — post 6656
 
@@ -199,17 +211,5 @@ Homayoun Shajarian & Sohrab Pournazeri – Irane Man
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Homayoun Shajarian & Sohrab Pournazeri – Irane Man
-</div>
-
-## tasiyanc — post 6629
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به یاد فرزندان ایران 🖤 ۱۸ & ۱۹
-</div>
-
-## tasiyanc — post 6622
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرعت سرویس ساب نامحدود ک براتون گذاشتیم 🚀 داخل چنل پروکسی پین شده ❤️ https://t.me/+v0wRP5SGNrg5MThk 👆
 </div>
 
