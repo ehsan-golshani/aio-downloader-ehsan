@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/27 00:24
+📅 آخرین بروزرسانی: 1405/05/27 08:24
 
 ---
+
+## ProxyMTProto — post 50220
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50219
 
@@ -172,15 +181,6 @@ Secret: dd7571474542ef491179322488d73d1ffc
 Server: runserver.co.uk
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50200
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: api.gorbushkin.click
-Port: 443
-Secret: eebeda39dcb3b3bea0da3843853002fe5a6170692e676f72627573686b696e2e636c69636b
 @ProxyMTProto
 </div>
 

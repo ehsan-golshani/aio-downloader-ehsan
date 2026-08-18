@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/27 00:24
+📅 آخرین بروزرسانی: 1405/05/27 08:24
 
 ---
+
+## ProxyMTProto — post 49597
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49596
 
@@ -172,15 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: go.antitspu.com
 Port: 443
 Secret: ee7e32ec95420179a00a86424a4a971b5a676f2e616e7469747370752e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cloud.neoqua.pro
-Port: 443
-Secret: ee3fa2666ad08eb559375e0772a379be32636c6f75642e6e656f7175612e70726f
 @ProxyMTProto
 </div>
 

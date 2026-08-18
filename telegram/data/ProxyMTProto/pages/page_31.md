@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/27 00:24
+📅 آخرین بروزرسانی: 1405/05/27 08:24
 
 ---
+
+## ProxyMTProto — post 49637
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: love.workingproxy.xyz
+Port: 443
+Secret: dd275f670cdf5716dcbcf9d920645a03eb
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49636
 
@@ -165,15 +174,6 @@ Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e63
 Server: portal.balalaika.click
 Port: 443
 Secret: ee3c7b046d6a7b00b2c910cd755314eb2e706f7274616c2e62616c616c61696b612e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49617
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 
