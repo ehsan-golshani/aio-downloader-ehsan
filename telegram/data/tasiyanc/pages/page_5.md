@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/27 09:43
+📅 آخرین بروزرسانی: 1405/05/27 10:56
 
 ---
+
+## tasiyanc — post 9332
+
+<div align="center"><img src="files/post_9332_tasiyanc_9332.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸🇰🇵دونالد ترامپ در شبکه اجتماعی Truth Social:
+
+«با وجود چهره ناخوشایند در این تصویر خاص، عکس‌های زیادی وجود دارد که در آنها لبخند می‌زنیم؛ من و کیم جونگ اون رابطه بسیار خوبی داریم!»
+
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 9331
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر 👌
+</div>
 
 ## tasiyanc — post 9330
 
@@ -248,22 +267,5 @@ r24
 🔴 ترامپ : تورم تو ایران ۳۵۰ درصده،۸۲ درصد از موشکاشونم نابود کردیم، ۲۲۰ تا هواپیما داشتن همه رو نابود کردیم، سه گروه اول از رهبرانشونم ترور کردیم.
 
 @tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9303
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از فوبیاتون بگید .... از چی میترسید؟
-</div>
-
-## tasiyanc — post 9302
-
-<div align="center"><img src="files/post_9302_tasiyanc_9302.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کد های مخفی ChatGpt که بکارتون میاد🤖
-
-
-@TASIYANC ✅
 </div>
 

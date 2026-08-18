@@ -1,8 +1,12 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/27 09:43
+📅 آخرین بروزرسانی: 1405/05/27 10:56
 
 ---
+
+## tasiyanc — post 9275
+
+## tasiyanc — post 9274
 
 ## tasiyanc — post 9273
 
@@ -167,32 +171,5 @@ r23
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تا ابد و یک روز؟؟؟؟
-</div>
-
-## tasiyanc — post 9252
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا ابد و یک روز؟؟؟؟
-</div>
-
-## tasiyanc — post 9249
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱Android🕹  iOS
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
 </div>
 

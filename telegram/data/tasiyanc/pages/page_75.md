@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/27 09:43
+📅 آخرین بروزرسانی: 1405/05/27 10:56
 
 ---
+
+## tasiyanc — post 7088
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+تک سرور سرعتی 🇳🇱⚡️
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7086
+
+<div align="center"><video src="files/post_7086_tasiyanc_7086.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7086_tasiyanc_7086.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+3سرور سرعتی مناسب تمام نت‌ها
+⚡️
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 
+🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7083
 
@@ -225,21 +262,5 @@ T.me/Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بازی با نتیجه مساوی پایان یافت
-</div>
-
-## tasiyanc — post 7047
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاج صفی از بازیکنان آینده دار اومد زمین 🤣🤣
-</div>
-
-## tasiyanc — post 7042
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟🌟 New Method (Hysteria2) ⚡️🔥
-
-hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@185.228.139.247:4433?security=tls&insecure=1&sni=de2.xiaoliyu.cyou#%F0%9F%87%A9%F0%9F%87%AA%F0%9F%AA%90%40Tasiyanc%F0%9F%AA%90
-Location 🇩🇪
-✔️ T.me/Tasiyanc ✅
 </div>
 

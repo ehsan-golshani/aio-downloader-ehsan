@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/27 09:43
+📅 آخرین بروزرسانی: 1405/05/27 10:56
 
 ---
+
+## tasiyanc — post 9407
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر 👌
+</div>
+
+## tasiyanc — post 9406
+
+<div align="center"><img src="files/post_9406_tasiyanc_9406.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
+
+💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
+sa26
+📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥💵
+
+‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
+https://t.me/+F1CivZlkxrgzMTM0
+https://t.me/+F1CivZlkxrgzMTM0
+</div>
 
 ## tasiyanc — post 9405
 
@@ -213,42 +235,5 @@ g26
 🙂این بازی خیلی این روزا ترند💥
 راحت میتونی پولت چند برابر کنی💖
 فرصت از دست ندین فیلم بازی نگاه کنید و شروع کنید😁💵
-</div>
-
-## tasiyanc — post 9379
-
-<div align="center"><video src="files/post_9379_tasiyanc_9379.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9379_tasiyanc_9379.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟ویدئوبازی محبوب Chicky choice🌟
-
-فقط کافیه مرغ از خیابون رد کنی و پولت افزایش بدی😍💵
-
-💖توی سایت بت اینجا بازی کن و پیش بینی کن و پول در بیار😍
-⬅️امکان شارژ با کارت بانکی راحت و امن
-⬅️تسویه حساب سریع بدون احراز
-
-🎁هربار شارژ کنی 12% بیشتر شارژ میشی✅
-🎁اگ باختی هم 10% باختت سایت بهت برگشت میده✅
-🚨ادرس ورود به سایت:
-💠http://betinja.bet/affiliates/?btag=2760677
-
-⚠️فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،امریکا،ترکیه،سنگاپور،فنلاند و...
-
-⭐کانال اطلاع رسانی سایت:👇 sr26
-💠https://t.me/+K0fAOE9hCUo3OGE8
-</div>
-
-## tasiyanc — post 9378
-
-<div align="center"><img src="files/post_9378_tasiyanc_9378.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏قیمت آیفون ۱۷ پرومکس حافظه ۱ ترابایت؛ از ۷۰۰ میلیون تومن هم عبور کرد
-
-@Tasiyanc 
-⭐️
 </div>
 

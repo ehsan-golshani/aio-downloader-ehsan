@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/27 09:43
+📅 آخرین بروزرسانی: 1405/05/27 10:56
 
 ---
+
+## tasiyanc — post 6721
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[30] 🪐@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6720
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6719
 
@@ -176,20 +196,5 @@ vless://d39664df-5bc0-4f49-9894-8f03b4150082@germany-vip.soft26.ir:8443?mode=aut
 
 vless://da48859d-edf9-4a8c-a026-80910591f284@151.101.1.164:80?mode=auto&path=%2FTignal&security=none&encryption=none&host=tignaltofansv8.global.ssl.fastly.net&type=xhttp#T.me%2FTasiyanc%20%E2%9A%A1
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جام جهانی - 5.30 صبح 🏆
-
-بازی کره🇰🇷 - چک 🇨🇿
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توافق داره تو جنوب امضا میشه
 </div>
 

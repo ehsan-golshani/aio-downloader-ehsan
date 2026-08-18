@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/27 09:43
+📅 آخرین بروزرسانی: 1405/05/27 10:56
 
 ---
+
+## tasiyanc — post 7928
+
+<div align="center"><img src="files/post_7928_tasiyanc_7928.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام داداش به رفقا بگو استرس نکشن، دینی رو میشه تو یک ساعت
+جمع کرد😹
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7925
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ &  گیم 🎮
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe ⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7924
 
@@ -200,24 +232,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جای خالیشان قدر یک وطن درد میکند ؛ نه فقط در خانه هایشان که در دل تمام ایران
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7890
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای فرزندانی که سهمشان از وطن یک گلوله بود 🖤
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 7884
-
-<div align="center"><img src="files/post_7884_tasiyanc_7884.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 جدیدا دخترای ایرانی توی توییتر، با انتشار این تصاویر دارن پسرا رو به کتابخوانی دعوت میکنن😂
-
-@Tasiyanc ⭐️
-#Navid
 </div>
 

@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/27 09:43
+📅 آخرین بروزرسانی: 1405/05/27 10:56
 
 ---
+
+## tasiyanc — post 9430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برید به ChatGpt بگید ...
+
+Roast me , no filter , no mercy
+
+اون روی سگشو می‌بینید ، جوری زخماتون باز می‌کنه گریه کنید
+
+#N
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بلومبرگ میگه با رد ترامپ واسه تمدید دوباره آتش بس دیگه امیدی واسه صلح ایران و آمریکا نیست.
+
+#N
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9428
 
@@ -190,27 +212,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 🔐 طبق توضیحات پروژه، اکانت، سرور واسطه، تله متری یا اشتراک نداره و لاگ ها هم به صورت خودکار آپلود نمیشن.
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9407
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانال از نون شب واجب تر 👌
-</div>
-
-## tasiyanc — post 9406
-
-<div align="center"><img src="files/post_9406_tasiyanc_9406.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
-
-💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
-sa26
-📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥💵
-
-‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
-https://t.me/+F1CivZlkxrgzMTM0
-https://t.me/+F1CivZlkxrgzMTM0
 </div>
 
