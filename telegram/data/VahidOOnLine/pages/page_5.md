@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/28 02:40
+📅 آخرین بروزرسانی: 1405/05/28 03:17
 
 ---
+
+## VahidOOnLine — post 255667
+
+<div align="center"><img src="files/post_255667_VahidOOnLine_255667.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوزی دایان، معاون پیشین رئیس ستاد ارتش اسرائیل، گفت اسرائیل در موضوع ایران نمی‌تواند به آمریکا تکیه کند و باید به خود متکی باشد.
+دایان گفت: «ما برای تنگه هرمز یا قیمت جهانی نفت نمی‌جنگیم، بلکه برای نیاز حیاتی و موجودیتی خود می‌جنگیم.»
+او با تاکید بر لزوم آمادگی اسرائیل برای تحولات احتمالی افزود این کشور باید از نظر دفاعی و تهاجمی کاملا آماده باشد، زیرا «شرایط ممکن است هر لحظه تغییر کند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255666
+
+<div align="center"><video src="files/post_255666_VahidOOnLine_255666.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255666_VahidOOnLine_255666.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مانور بزرگ نیروی هوایی شاهنشاهی ایران در حضور محمدرضا شاه پهلوی؛ تصاویری تاریخی از اجرای پروازهای گروهی تیم آکروجت و نمایش مهارت نیروی هوایی شاهنشاهی ایران.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255665
 
@@ -281,36 +307,6 @@ Indypersian
 
 🔹۶ گیگ بسته اینترنتی طی سه روز تموم شد، در صورتی که میزان مصرف اینترنت گوشی می‌گه کلاً ۲/۲ گیگ مصرف کردم.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255638
-
-<div align="center"><video src="files/post_255638_VahidOOnLine_255638.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255638_VahidOOnLine_255638.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مهم‌ترین تحولات ایران در رسانه‌های جهان در روز سه‌شنبه ۲۷ مرداد.
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255637
-
-<div align="center"><video src="files/post_255637_VahidOOnLine_255637.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255637_VahidOOnLine_255637.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دادگاه کیفری دمشق روز سه‌شنبه ۲۷ مردادماه وسیم اسد، پسرعموی بشار اسد را به جرم ارتکاب جنایت علیه بشریت و جنایات جنگی به اعدام محکوم کرد.
-
-هفته گذشته همین دادگاه بشار اسد، رئیس جمهوری مخلوع سوریه، ماهر اسد برادر او و همچنین ۱۰ نفر دیگر از مقام‌های امنیتی و عالی‌رتبه نظامی حکومت پیشین سوریه را به اعدام محکوم کرده بود.
-
-بشار اسد در اواخر آذرماه ۱۴۰۳ و در پی حمله برق‌آسای شورشیان به دمشق،  به مسکو گریخت.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>
