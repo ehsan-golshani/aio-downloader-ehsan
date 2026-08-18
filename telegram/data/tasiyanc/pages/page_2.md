@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/27 02:24
+📅 آخرین بروزرسانی: 1405/05/27 09:26
 
 ---
+
+## tasiyanc — post 9404
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووری
+
+ترامپ: توافق با ایران را لغو خواهیم کرد
+</div>
+
+## tasiyanc — post 9403
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش اعضا وضعیت اینترنت داغون شده ، تایید یا ن؟
+</div>
+
+## tasiyanc — post 9402
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ العربیه :
+
+ایران و آمریکا بر سر تمدید مجدد ۶۰ روزه ی آتش بس موافقت کردن.
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9397
 
@@ -221,33 +244,5 @@ g26
 
 تست شده تمام نت‌ها ⚡️
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9373
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اینترنت چطوره؟
-</div>
-
-## tasiyanc — post 9372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نوید محمدزاده : از فلسطین حمایت کردم ، بازم خواهم کرد ، با اسراییل حال نمیکنم ، تموم تهدید های شما هم ب تخممه
-
-بعد این حرفاش ۹۰۰ هزار نفر آنفالوش کردن فعلا
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9370
-
-<div align="center"><video src="files/post_9370_tasiyanc_9370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9370_tasiyanc_9370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آخرین ویدیویی که مادر جاویدنام عسل شفیعی، با دخترش ضبط کرده بود رو منتشر کرد.
-
-عسل دانشجوی ۲۱ ساله مهندسی کامپیوتر بود که ۱۸ دی ماه به ضرب گلوله به قتل رسید.
-@Tasiyanc ⭐️
 </div>
 

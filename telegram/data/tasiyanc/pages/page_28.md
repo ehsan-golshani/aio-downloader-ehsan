@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/27 02:24
+📅 آخرین بروزرسانی: 1405/05/27 09:26
 
 ---
+
+## tasiyanc — post 8724
+
+<div align="center"><img src="files/post_8724_tasiyanc_8724.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹20 ابزار کاربردی عالی برای دانشجویان 😐
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8723
+
+<div align="center"><img src="files/post_8723_tasiyanc_8723.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قبل اینترنت آدما همدیگه رو اینجوری انفالو میکردن.. 😐
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8720
+
+<div align="center"><img src="files/post_8720_tasiyanc_8720.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹می‌دونستین همه دندونای دلفینایی که در مکان‌هایی به اسم "پارک دلفینها" برای سرگرمی مردم زندونی میشن، یکی‌یکی کشیده میشه و بعدش توی پارکا به مردم نمایش داده میشن.
+
+به این پارک ها نرید و تو آزار و شکنجشون شریک نشین!!!
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8719
 
@@ -223,32 +254,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 @TasiyanInfo
 
 امیدوارم روز های خوبی همواره شاد و خوب در انتظار تمام هموطنان عزیزم باشد 💖 عاشقتونم 💋
-</div>
-
-## tasiyanc — post 8695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب هم خاورمیانه آرومه
-</div>
-
-## tasiyanc — post 8694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال ۱۴ اسرائیل:
-
-ترامپ دستور داد که تمام حملات علیه مواضع جمهوری اسلامی بطور موقت لغو شود
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8693
-
-<div align="center"><video src="files/post_8693_tasiyanc_8693.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8693_tasiyanc_8693.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ویدیویی دیده نشده از ورود محمدرضا شاه و ملکه فرح پهلوی به آمریکا و استقبال از او در زمان ریاست جمهوری جان اف کندی
-
-@TASIYANC 💠
 </div>
 

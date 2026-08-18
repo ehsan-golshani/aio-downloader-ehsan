@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/05/27 08:24
+📅 آخرین بروزرسانی: 1405/05/27 09:24
 
 ---
+
+## ProxyMTProto — post 48410
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: secure.gorbushkin.click
+Port: 443
+Secret: ee085e93f8b1609516932d35ace0fe35da7365637572652e676f72627573686b696e2e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48409
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 85
+Secret: FgMBAgABAAH8AxOG4kw63Q
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48408
 
@@ -163,24 +181,6 @@ Secret: eee81764f80830981a15981cf5deae33476c6f67696e2e6b6c79756368316b2e6f7267
 Server: www2.acientirani-uor4.ir
 Port: 443
 Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.savelyev.click
-Port: 443
-Secret: eeb3109e4d758b0eb45731a6ff4d2c12b163646e2e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48389
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 194.120.230.26
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

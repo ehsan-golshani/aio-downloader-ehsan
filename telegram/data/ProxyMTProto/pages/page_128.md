@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 128
 
-📅 آخرین بروزرسانی: 1405/05/27 08:24
+📅 آخرین بروزرسانی: 1405/05/27 09:24
 
 ---
+
+## ProxyMTProto — post 47690
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hotmtpro.duckdns.org
+Port: 443
+Secret: 7u-wXMxodyqALbbZW3bovVF3d3cuYW1hem9uLmNvbQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47689
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r22.proxytg.space
+Port: 8443
+Secret: eeace5ab7ab128f81a0b16ada143ec10807232322e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47688
 
@@ -166,24 +184,6 @@ Secret: aa1234567890abcdef1234567890abcd
 Server: otklyuchi-vpn.nolags.pw
 Port: 443
 Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47670
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hotmtpro.duckdns.org
-Port: 443
-Secret: 7u-wXMxodyqALbbZW3bovVF3d3cuYW1hem9uLmNvbQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47669
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: free.proproxies.top
-Port: 443
-Secret: ee4fb60224ec3ba77691889623ffd44dc8667265652e70726f70726f786965732e746f70
 @ProxyMTProto
 </div>
 

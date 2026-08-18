@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/05/27 02:24
+📅 آخرین بروزرسانی: 1405/05/27 09:26
 
 ---
+
+## tasiyanc — post 6115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی کانفیگ وایرگارد ✅
+
+تست شده 🎚
+
+دانلود برنامه Wg tunnel 🕹
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظرتون رو داخل کامنت بگید
+</div>
+
+## tasiyanc — post 6112
+
+<div align="center"><img src="files/post_6112_tasiyanc_6112.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc(01).conf
+</div>
 
 ## tasiyanc — post 6111
 
@@ -161,23 +186,5 @@ vless://1b9e301d-cecd-4eb1-8b36-eef811c2696d@de1.vitok.cc:443?security=reality&e
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دوستان کانفیگ اوپن ورداشتم یه تغییراتی میدم بعدش میفرستم ❤️
-</div>
-
-## tasiyanc — post 6088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرمیوم سرعتی ⚡.npvt
-</div>
-
-## tasiyanc — post 6087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Channel@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 6086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنا بالا باشه❤️
 </div>
 

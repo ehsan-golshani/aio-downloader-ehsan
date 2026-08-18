@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/05/27 02:24
+📅 آخرین بروزرسانی: 1405/05/27 09:26
 
 ---
+
+## tasiyanc — post 7117
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آماده باشید بریم‌چنتا سرور خفن بزاریم
+</div>
+
+## tasiyanc — post 7115
+
+<div align="center"><video src="files/post_7115_tasiyanc_7115.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7115_tasiyanc_7115.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+3سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود برنامه 
+🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرتغال رید ، مساوی کردیم
+</div>
 
 ## tasiyanc — post 7112
 
@@ -202,62 +236,5 @@ T.me/Tasiyanc
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🦦 تمام متد هامون با سرعت وصلن پستهای بالا وصل شید 
 👍
-</div>
-
-## tasiyanc — post 7082
-
-<div align="center"><video src="files/post_7082_tasiyanc_7082.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7082_tasiyanc_7082.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐
-🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@series-a2.samanehha.co:443#%F0%9F%87%AC%F0%9F%87%A7%20%40Tasiyanc%20%E2%9A%A1%EF%B8%8F%E2%9A%A1%EF%B8%8F
-نامحدود سرعتی - لندن 
-🇬🇧
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7081
-
-<div align="center"><img src="files/post_7081_tasiyanc_7081.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️پخش زنده مسابقات جام جهانی 2026
-
-https://roxiestreams.su/soccer
-
-https://streamcorner.fyi/fifa-world-cup
-
-https://totalsportek.tips/football
-
-https://www.bintv.net
-
-https://soccerstreams.sbs
-
-https://strumyk.net
-
-سایت هایی که باز نمیشه رو باید با وی پی ان باز کنید
-
-گزارش فارسی:(نیازمند ثبت نام،
-فیک میل میتونید بزنید)
-https://persianasports.com/live.html
-
-
-🔗ربات ایمیل فیک:
-@TempMail_org_bot
-
-@Tasiyanc 
-✅ | تاسیان
-</div>
-
-## tasiyanc — post 7080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شب نشینی با تاسیان😁
-🦦
-https://t.me/+DhVkjFb6qhZmYTFk
 </div>
 

@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/05/27 02:24
+📅 آخرین بروزرسانی: 1405/05/27 09:26
 
 ---
+
+## tasiyanc — post 6799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز فروش به احتمال زیاد باز شه ، آیپی ثابتن سرورا 🦦
+</div>
+
+## tasiyanc — post 6798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بخاطر نمک ریختنتون امروز کلا npv نمیزارم 😍
+فقط در صورتی میزارم ک ریکشن قلب بالای ۲۰۰ تا باشه رو پست
+</div>
+
+## tasiyanc — post 6793
+
+<div align="center"><video src="files/post_6793_tasiyanc_6793.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6793_tasiyanc_6793.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واقعاً تأسف می‌خورم به‌حال کسانی که هنوز با تاسیان آشنا نشدند! 😌
+#تست_سرعت
+</div>
 
 ## tasiyanc — post 6792
 
@@ -174,28 +198,5 @@ VIP⚡ APEX ⛓️.npvt
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6773
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VİP - ⛓️OMEGA ⚡.npvt
-</div>
-
-## tasiyanc — post 6770
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داداش بقران بهترین‌چنلی هستی دمت‌‌گرم که بفکری سرعتتتش‌موشکهه🥲😭😭😭
-</div>
-
-## tasiyanc — post 6769
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با این شرایطی که هرشب داریم صدای بلند توافق رو میشنویم احتمال قطعی نت بشدت زیاده
-برای‌همین براتون کانفینگ‌اختصاصی شارژ کردیم داخل بات  که هر فرد  کانفینگ‌ خودشک اختصاصی بگیره❤️
-
-دیگه پیشگیری بهتر از درمانه بوس
-
-دریافت کانفنینگ‌اختصاصی〽️
 </div>
 
