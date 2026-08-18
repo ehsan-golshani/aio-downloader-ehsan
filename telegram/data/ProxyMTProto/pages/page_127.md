@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/05/27 13:19
+📅 آخرین بروزرسانی: 1405/05/27 13:44
 
 ---
+
+## ProxyMTProto — post 47719
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad.canvas-proxy.com
+Port: 443
+Secret: eeb7f10957fcefd87d5e8c336fc9851d8d61642e63616e7661732d70726f78792e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47718
 
@@ -173,15 +182,5 @@ Server: r26.proxytg.space
 Port: 8443
 Secret: eec479c1a98aa5c149647459a1c098634c7232362e70726f787974672e7370616365
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47699
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ به‌دلیل محدودیت‌های جدید، پروکسی‌ها سریع مسدود می‌شن.
-
-برای اینکه ارتباطت با تلگرام قطع نشه، همین الان یه پروکسی فعال بگیر 👀
-
-🔥 پروکسی‌های جدید به‌صورت مداوم و رایگان منتشر می‌شن.
 </div>
 

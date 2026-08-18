@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/05/27 13:19
+📅 آخرین بروزرسانی: 1405/05/27 13:44
 
 ---
+
+## ProxyMTProto — post 48399
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 103.161.35.23
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48398
 
@@ -172,15 +181,6 @@ Secret: ee8209c31793eed02f435ab753825b891f676f2e616e7469747370752e636f6d
 Server: iloveto.bein-norway.co.uk
 Port: 25565
 Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48379
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: login.veltura.digital
-Port: 443
-Secret: ee4c8a0558e2816595cb5fa0718be51a316c6f67696e2e76656c747572612e6469676974616c
 @ProxyMTProto
 </div>
 

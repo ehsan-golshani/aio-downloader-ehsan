@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 198
 
-📅 آخرین بروزرسانی: 1405/05/27 13:18
+📅 آخرین بروزرسانی: 1405/05/27 13:43
 
 ---
+
+## VahidOOnLine — post 250901
+
+<div align="center"><img src="files/post_250901_VahidOOnLine_250901.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش خبرگزاری مهر، بامداد یکشنبه، ۲۸ تیرماه، زمین‌لرزه‌ای به بزرگی ۳.۷ حوالی سرگز در هرمزگان را لرزاند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250900
+
+<div align="center"><img src="files/post_250900_VahidOOnLine_250900.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت خارجه ایالات متحده شنبه در اطلاعیه‌ای به شهروندان آمریکایی‌ در سراسر جهان توصیه کرد که احتیاط بیشتری به خرج دهند، زیرا «به دلیل افزایش تنش‌ها در خاورمیانه، محیط امنیتی همچنان پیچیده است و احتمال تشدید پیش‌بینی نشده تنش‌ها وجود دارد.»
+
+وزارت خارجه ایالات متحده به شهروندان آمریکایی در منطقه خاورمیانه گفت که «همچنان نیاز به احتیاط دارند» و آن‌ها را تشویق کرد که اخبار مربوط به تحولات فوری را دنبال کنند.
+
+در این اطلاعیه گفته شد: «گروه‌های حامی ایران ممکن است سایر منافع ایالات متحده در خارج از کشور یا مکان‌های مرتبط با ایالات متحده و/یا آمریکایی‌ها در سراسر جهان را هدف قرار دهند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250899
 
@@ -263,38 +289,6 @@
 
 شرکت‌کنندگان با در دست داشتن پرچم‌های شیروخورشید، شعار «پاینده ایران» سر دادند و یاد جاویدنامان انقلاب دی‌ماه را گرامی داشتند
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250881
-
-<div align="center"><video src="files/post_250881_VahidOOnLine_250881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250881_VahidOOnLine_250881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چشم‌انداز با مهدی مهدوی‌آزاد
-
-آیا آمریکا دنبال حمله زمینی به ایران و تصرف بندرعباس است؟
-
-نسخه کامل این برنامه در یوتیوب:
-
-youtu.be
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250880
-
-<div align="center"><img src="files/post_250880_VahidOOnLine_250880.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیت هگست، وزیر جنگ آمریکا، در واکنش به کشته شدن دو نظامی آمریکایی در حملات جمهوری اسلامی در اردن در شبکه ایکس نوشت: «خدا نگهدارتان، قهرمانان. فداکاری شما فقط عزم ما را راسخ‌تر می‌کند.»
-پیش‌تر سنتکام خبر داد دو نظامی آمریکایی روز جمعه ۲۶ تیر در جریان مقابله با حملات موشکی و پهپادی جمهوری اسلامی در اردن کشته شدند و یک نظامی دیگر همچنان مفقود است.
-سنتکام افزود چهار نظامی مجروح پس از درمان از بیمارستان مرخص شدند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
