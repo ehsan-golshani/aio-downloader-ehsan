@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/27 13:20
+📅 آخرین بروزرسانی: 1405/05/27 17:40
 
 ---
+
+## tasiyanc — post 9310
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز August 15، روز آرامش و ریلکس کردنه.
+
+تو این روز باید استرس رو بریزین دور، و در کمال آرامش، از لحظه به لحظه زندگی، لذت ببرین.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیست افرادی که در پویش جان فدا ثبت‌نام کرده بودن توسط هکرهای اسرائیلی منتشر شد
+تا این لحظه مشخصات 4.7 میلیون نفر با اسامی کامل ، کد ملی ، شماره تلفن ، شغل ، تخصص و محدوده زندگی انتشار یافته است
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9308
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+
+تست شده تمام نت‌ها 
+🛜
+🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+⭕️ تمام برنامه هارو ببندید بعد وصل بشید
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر عشقا
+</div>
 
 ## tasiyanc — post 9306
 
@@ -228,16 +273,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 
 ✔️ T.me/Tasiyanc
 </div>
-
-## tasiyanc — post 9284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اتمام چالش ، ریکشن هرکی بیشتر باشه برندس تا ساعت ۱۵😂❤️
-</div>
-
-## tasiyanc — post 9283
-
-## tasiyanc — post 9281
-
-## tasiyanc — post 9280
 

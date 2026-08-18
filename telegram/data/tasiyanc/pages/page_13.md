@@ -1,8 +1,90 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/27 13:20
+📅 آخرین بروزرسانی: 1405/05/27 17:40
 
 ---
+
+## tasiyanc — post 9127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همراه اول داغونه ضعیفه
+</div>
+
+## tasiyanc — post 9126
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated Multi ━━━╮
+
+vless://6f436a44-f703-93da-7e45-615824a39d3b@teain.org:1000?security=reality&encryption=none&pbk=ECxm-BdHYhxYK9MtN33NkkrFSdFZXp-OB-yhN8AleRY&headerType=none&fp=ios&type=tcp&sni=knox.cdn-apple.com&sid=a62d513cd709744a#%40TASIYANC%20%F0%9F%94%B1%2001
+
+ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.169:443#%40TASIYANC%20%F0%9F%94%B1%2002
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpiSU9vaTVUdUltRzJLY2N4VjctamNBN0Nleit2dW4tY19F@104.156.233.234:27116#%40TASIYANC%20%F0%9F%94%B1%2003
+
+vless://9f0285ee-20ca-4953-bcdb-86a920652923@204.216.216.23:10086?security=none&encryption=none&headerType=none&type=tcp#%40TASIYANC%20%F0%9F%94%B1%2004
+
+vless://b052df40-d51c-456c-9bd6-57af01a87e4e@cdn.pinecloud.net:443?security=reality&encryption=none&pbk=vWSgdMDirb9aDZLWijSXXXl-NCTrtBgEe9MQqcgV6h8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=cdn.pinecloud.net&sid=6a2e3af684799b19#GB%20LONDON%20%F0%9F%87%AC%F0%9F%87%A7%20%40Tasiyanc
+
+
+📍Multi location
+@TASIYANC 🔋
+</div>
+
+## tasiyanc — post 9125
+
+<div align="center"><video src="files/post_9125_tasiyanc_9125.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9125_tasiyanc_9125.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی جدید 
+🆕
+
+Midnight Street Style → prompt 
+🤖
+🤖
+
+مرد
+
+​"A close-up moody urban portrait of a handsome young man with long wavy dark hair and a beard, wearing dark-tinted sunglasses. He is dressed in an all-dark outfit: a textured charcoal grey nylon bomber jacket, a charcoal t-shirt, and dark grey washed jeans. He is leaning back against a black industrial structure. His posture is relaxed and cool, with his hand resting near his chest, gazing slightly away. The lighting is diffused and dark, emphasizing the moody atmosphere. High-resolution, cinematic quality, natural skin, rich dark color palette."
+
+
+زن
+
+​"A moody street style portrait of a stylish woman with wavy blonde hair leaning against a concrete column. She is wearing an oversized flannel shirt with a grey and black plaid pattern, light grey relaxed-fit denim jeans, a beige baseball cap worn backward, and cat-eye sunglasses. Large intricate gold hoop earrings are visible. Her pose is confident, looking off to the side. The background features a dark wood paneled garage door. High-end streetwear editorial photography, dark and muted tones, cinematic natural lighting, realistic skin textures."
+
+
+آموزش استفاده 
+👉
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9124
+
+<div align="center"><video src="files/post_9124_tasiyanc_9124.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9124_tasiyanc_9124.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی کانال 
+🆕
+
+Oreo Hair — Night Selfie 
+🤖
+🤖
+
+Prompt - بزنید روش کپی میشه
+
+An extremely unremarkable iPhone mirror selfie photo with no clear subject or framing—just a careless snapshot. The photo has a touch of motion blur, and mildly overexposed from uneven sunlight. The angle is awkward, the composition nonexistent, and the overall effect is aggressively mediocre—like a photo taken by accident while pulling the phone out of a pocket to take the selfie. It's of an e girl in a skirt, oversized (very big) black hoodie, and has tight, white legs warmers with converse shoes, she holds her legs up, she is sitting in the sofa, her face is visible, she has oreo hair, vertical 9:16 aspect ratio, no lights, it’s night, the mirror is slightly dirty.
+
+آموزش استفاده 
+♻️
+
+Join As @TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9123
 
@@ -217,38 +299,5 @@ fashion editorial photography, front shot, upper body, professional female model
 آموزش استفاده 👉
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9105
-
-<div align="center"><img src="files/post_9105_tasiyanc_9105.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خورخه مسی، پدر لیونل مسی درگذشت
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9104
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری سپاه پاسداران:
-بازگشایی تنگه هرمز منوط به پذیرش کامل شرایط ما از سوی ایالات متحده است.
-بازگشایی تنگه هرمز تابع سازوکارها و شرایط تعیین‌شده توسط جمهوری اسلامی ایران است و ارتباطی با مذاکرات ایران و عمان ندارد.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9103
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9102
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴قوه قضاییه : آیت‌الله خرازی به دلیل حرف های کذب و دروغش تحت تعقیب قرار گرفت و براش تشکیل پرونده دادیم.
-
-@TASIYANC ⭐️
 </div>
 

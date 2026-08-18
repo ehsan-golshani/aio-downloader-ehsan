@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/27 13:20
+📅 آخرین بروزرسانی: 1405/05/27 17:40
 
 ---
+
+## tasiyanc — post 7577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال رو همه اپراتورا هم اکنون ( وصل اما قط وصل)
+</div>
+
+## tasiyanc — post 7576
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر گلای تو خونه
+</div>
+
+## tasiyanc — post 7574
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+۲ سرور  سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7571
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+حجم و کاربر نامحدود ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال به اینجکتور ✨
+
+@Tasiyanc 💠 | اتصال امن
+</div>
 
 ## tasiyanc — post 7569
 
@@ -211,52 +258,5 @@ Fast ⚡️🚀 Premium.npvt
 اطلاع رسانی بشه
 
 @Tasiyanc 💠 | اتصال امن با مجموعه تاسیان
-</div>
-
-## tasiyanc — post 7537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ولی پسرامون ( دخترامونم ) ثابت کردن چقد باغیرتن
-</div>
-
-## tasiyanc — post 7536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
-</div>
-
-## tasiyanc — post 7535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-5سرور سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7534
-
-<div align="center"><img src="files/post_7534_tasiyanc_7534.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔤 فیلم کوتاه « گرمای خانه »
-
-📃 زیرنویس چسبیده فارسی
-⚠️ ژانر : #بزرگسال 🔞 
-
-محصول کشور Taiwan
-کارگردان: Xavier Villaverde
-بازیگران:   Cervantes,  Llorenç
-خلاصه داستان : الیسا بعد از کلی دردسر به دانشگاه پایتخت قبول میشه در این بین با دختری آشنا میشه که زندگیشو تغییر
-میده . ...
-💘دانلود بدون سانسور فیلم 💘
-
-@Tasiyanc
 </div>
 

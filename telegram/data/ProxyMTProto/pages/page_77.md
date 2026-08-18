@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/27 16:49
+📅 آخرین بروزرسانی: 1405/05/27 17:38
 
 ---
+
+## ProxyMTProto — post 48729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: one.gram.blog
+Port: 443
+Secret: ee1e500c27b5ca23c07c56738e9309344e62726f777365722e79616e6465782e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48728
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48727
 
@@ -163,24 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e63
 Server: i-love.ascel.la
 Port: 443
 Secret: eef1a12a129e596c84f0d0edad1ad331c6692d6c6f76652e617363656c2e6c61
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48709
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48708
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 34.6.107.226
-Port: 443
-Secret: dd576db7cb0acd36cefd91a4d8aad84ab3
 @ProxyMTProto
 </div>
 
