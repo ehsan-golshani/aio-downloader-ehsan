@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/27 22:31
+📅 آخرین بروزرسانی: 1405/05/27 23:18
 
 ---
+
+## tasiyanc — post 8693
+
+<div align="center"><video src="files/post_8693_tasiyanc_8693.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8693_tasiyanc_8693.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺ویدیویی دیده نشده از ورود محمدرضا شاه و ملکه فرح پهلوی به آمریکا و استقبال از او در زمان ریاست جمهوری جان اف کندی
+
+@TASIYANC 💠
+</div>
+
+## tasiyanc — post 8692
+
+<div align="center"><video src="files/post_8692_tasiyanc_8692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8692_tasiyanc_8692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺صحبت های شگفت‌انگیز پدر بمب اتم «رابرت اوپنهایمر» ...
+اکنون من خود مرگ شده ام .... نابودگر جهان!
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8691
+
+<div align="center"><img src="files/post_8691_tasiyanc_8691.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه عکسیه که چند روزه از اعتراضات دی ماه وایرال شده، پیکر بی جان یه پسر جوون افتاده وسط خیابون و خون ازش سرازیر شده.
+
+این عکس مربوط به جاویدنام علی احمدیه که فقط ۱۴ سال سن داشت و خرج خواهر معلولش رو میداد.
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8690
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چخبرا ، امتحانات چطور دادید؟
+</div>
 
 ## tasiyanc — post 8689
 
@@ -172,51 +215,5 @@
 ایرانیا ممکنه تسلیم بشن یا هم بخوان برن تو تاسیسات عمیق زیر زمینی پنهان بشن
 این ایرانیا غار های خیلی عمیقی دارن برای پنهان شدن.
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بی بی :
-
-چند هفته پیش، یکی از همکاران ما با یک متخصص روسی ملاقات کرد. آیا می‌دانید او ما را چگونه توصیف کرد؟ او گفت: «اسرائیل یک قدرت جهانی کوچک است.» این درست است.
-
-ما به اندازه چین نیستیم. ما به اندازه ایالات متحده نیستیم. ما به اندازه روسیه نیستیم.
-
-اما او ما را یک قدرت منطقه‌ای نخواند، بلکه ما را یک قدرت جهانی نامید. در برخی از زمینه‌ها، این درست است.
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 مقر حوثی ها در جزیره کمران توسط عربستان بمباران شد
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8662
-
-<div align="center"><img src="files/post_8662_tasiyanc_8662.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تکمیلی
-نیروی هوایی عربستان بندر الحدید مواضع حوثی هارو بمبارون کرد
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8661
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت دونالد ترامپ :
-
-ایران، باورنکردنیه، شروع کرد به شلیک کردن به همه‌جای خاورمیانه.
-اگه سلاح هسته‌ای داشت، حتما ازش استفاده میکرد.
-
-
-@Tasiyanc ☑️
 </div>
 

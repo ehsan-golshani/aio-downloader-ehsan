@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/27 22:31
+📅 آخرین بروزرسانی: 1405/05/27 23:18
 
 ---
+
+## tasiyanc — post 8751
+
+<div align="center"><img src="files/post_8751_tasiyanc_8751.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیش بینی اختصاصی لیگ جهانی #والیبال رو از دست ندید.
+
+اسلوونی Vs ترکیه
+ژاپن Vs چین
+
+🤔 یک سایت کامل برا حرفه ای ها
+
+⚠️هر افزایش شارژ مساوی 2️⃣1️⃣🔣 شارژ بیشتر بدون محدودیت☄️
+
+به همراه 🤩 🤩🔤 کش بک باخت همه روزه
+
+🆕 هر رشته ورزشی که بخوای اینجا هست:
+🌐 betinja.bet
+🌐 betinja.bet
+کانال بونوس های رایگان r6
+@betinjabet
+</div>
+
+## tasiyanc — post 8750
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Multi Loc ⚡ @Tasiyanc.npvt
+</div>
+
+## tasiyanc — post 8747
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به وقت اذان صبح 💔
+</div>
+
+## tasiyanc — post 8745
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر هارو دنبال کنید از اینجا
+@TasiyanProxy
+</div>
 
 ## tasiyanc — post 8744
 
@@ -178,46 +220,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 قبل اینترنت آدما همدیگه رو اینجوری انفالو میکردن.. 😐
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8720
-
-<div align="center"><img src="files/post_8720_tasiyanc_8720.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹می‌دونستین همه دندونای دلفینایی که در مکان‌هایی به اسم "پارک دلفینها" برای سرگرمی مردم زندونی میشن، یکی‌یکی کشیده میشه و بعدش توی پارکا به مردم نمایش داده میشن.
-
-به این پارک ها نرید و تو آزار و شکنجشون شریک نشین!!!
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8719
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنظرم زیباترین هدیه 5/5/5 به من شمایید ک دارمتون 💘
-</div>
-
-## tasiyanc — post 8718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وارد 5/5/5 شدیم ، برنامتون چیه؟
-</div>
-
-## tasiyanc — post 8717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ آخرین نسخه ی V2rayNG اندروید
-
-نسخه 2.2.6
-
-● تغییرات مهم:
-• جایگزینی allowInsecure منسوخ با PinnedPeerCertSha256
-• حذف Tcping ping و بهبود تست پینگ
-• آپدیت هسته ایکس ری
-• رفع برخی باگ ها
-
-🔗 لینک دانلود از گیتهاب
-
-@TASIYANC ⭐️
 </div>
 

@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/27 22:31
+📅 آخرین بروزرسانی: 1405/05/27 23:18
 
 ---
+
+## tasiyanc — post 9402
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ العربیه :
+
+ایران و آمریکا بر سر تمدید مجدد ۶۰ روزه ی آتش بس موافقت کردن.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9397
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی وایرگارد  😎
+
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9396
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢مدیرعامل آسیاتک: مردم بی‌رویه اینترنت مصرف می‌کنند چون قیمت هر گیگ اینترنت ناچیز است!
+
+زمینه سازی میکنید گرون کنید جا*شا؟
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9395
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قدیمی ترین سایت فعال در ایران✅
+امنیت،امکانات،تضمین پرداخت💎
+</div>
 
 ## tasiyanc — post 9394
 
@@ -194,53 +245,5 @@ g26
 
 بعد این حرفاش ۹۰۰ هزار نفر آنفالوش کردن فعلا
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9370
-
-<div align="center"><video src="files/post_9370_tasiyanc_9370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9370_tasiyanc_9370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آخرین ویدیویی که مادر جاویدنام عسل شفیعی، با دخترش ضبط کرده بود رو منتشر کرد.
-
-عسل دانشجوی ۲۱ ساله مهندسی کامپیوتر بود که ۱۸ دی ماه به ضرب گلوله به قتل رسید.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 قالیباف: ۹۰ میلیون ایرانی حامی نظام جمهوری اسلامی هستن
-@Tasiyanc 🏛
-</div>
-
-## tasiyanc — post 9368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ناو هواپیمابر جورج بوش از ژاپن سمت خاورمیانه راه افتاده و ۱۰ روز دیگه به سواحل جنوبی ایران میرسه
-
-گفته میشه قراره جانشین ناو لینکلن بشه
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9367
-
-<div align="center"><img src="files/post_9367_tasiyanc_9367.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت پرمیوم جدید 🆕
-
-" Cinematic Wild Glance "
-
-Prompt 🤖🤖
-
-сохранить внешность 1:1 — лицо, черты, пропорции, текстура кожи. Кинематографический эффект. Прямые длинные волосы по пояс, макияж: сияющая кожа, легкий контуринг, пухлые губы в оттенке пыльная роза . Очень близкий cinematic кадр. Камера почти вплотную к лицу, 85mm, малая глубина резкости. Девушка резко поворачивается к объективу после движения, волосы хаотично летят по лицу и частично закрывают один глаз. Руки скрыла голубой рубашкой в клетку, прижатый к плечу и подбородку,рубашку спущена с плеча Взгляд нежный, живой, не позирующий. Милая полуулыбка (зубов не видно). Фокус только на глазах и линии губ, остальное растворяется в мягком зерне. Кадрирование сломанное: часть головы и плеча обрезаны. Свет солнечный, яркий, как пленочный стоп-кадр из артхаусного фильма. Атмосфера странная, интимная и кинематографичная. Формат 9:16
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
 </div>
 

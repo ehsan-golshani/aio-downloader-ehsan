@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/05/27 22:31
+📅 آخرین بروزرسانی: 1405/05/27 23:18
 
 ---
+
+## tasiyanc — post 6769
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با این شرایطی که هرشب داریم صدای بلند توافق رو میشنویم احتمال قطعی نت بشدت زیاده
+برای‌همین براتون کانفینگ‌اختصاصی شارژ کردیم داخل بات  که هر فرد  کانفینگ‌ خودشک اختصاصی بگیره❤️
+
+دیگه پیشگیری بهتر از درمانه بوس
+
+دریافت کانفنینگ‌اختصاصی〽️
+</div>
+
+## tasiyanc — post 6768
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6767
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرمنده ادمین تبادل پستهارو اشتباهی زده ❤️
+</div>
+
+## tasiyanc — post 6762
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان ( خانواده بزرگ من) ❤️
+</div>
 
 ## tasiyanc — post 6732
 
@@ -159,42 +196,5 @@ INFERNO ⚡ vip.npvt
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6716
-
-<div align="center"><img src="files/post_6716_tasiyanc_6716.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴شکیرا در جام جهانی 2006 & 2010 & 2014 & 2026
-
-‏شکیرا حتی از پیکه هم تو فوتبال موفق تره 🤣
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6715
-
-<div align="center"><img src="files/post_6715_tasiyanc_6715.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز جهانی دوس داشتنو بهتون تبریک میگیم
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6714
-
-<div align="center"><img src="files/post_6714_tasiyanc_6714.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسی و رونالدو اگه ایران بدنیا میومدن :
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 12 June ، روز جهانی تشکر از آدمیه که زندگی رو برات قشنگتر کرده.
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/27 22:31
+📅 آخرین بروزرسانی: 1405/05/27 23:18
 
 ---
+
+## tasiyanc — post 8860
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️حتما این بازی رو تست کنید:
+
+➡️ 🤩 🤩 🤩 🤩 🤩 👈
+
+✅ دیگه حوصلت سر نمیره بهترین سرگرمی ممکن رو آوردم براتون 😍
+🙄 پر از بازی های سرگرم کننده آنلاین
+</div>
+
+## tasiyanc — post 8859
+
+<div align="center"><img src="files/post_8859_tasiyanc_8859.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 معرفی یه بازی ساده و‌ #پولساز
+
+➡️ 🤩 🤩 🤩 🤩 🤩 👈
+
+🖱این بازی اختصاصی فقط توی‌این‌سایت هست واقعا راحت میشه ازش کلی پول دراورد.💵💰
+
+🟢 بدون ریسک و بدون پول در بازی معروف #crash پول در بیار و با هر شارژ 2️⃣1️⃣🔣 موجودی خالص بگیر بدون قیدوشرط 🔥
+
+💖تنها سایت مورد تایید
+💻آدرس سایت مورد #‌اعتماد ما:
+🌐 betinja.bet
+🌐 betinja.bet
+کانال بونوس های رایگان g9
+@betinjabet
+</div>
+
+## tasiyanc — post 8858
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡𝐓𝐀𝐒𝐈𝐘𝐀𝐍_𝐕𝐈𝐏_𝐌𝐔𝐋𝐓𝐈⚡.npvt
+</div>
+
+## tasiyanc — post 8857
+
+<div align="center"><img src="files/post_8857_tasiyanc_8857.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 با این پرامپت هرچی عکس قدیمی و داغون دارید میتونید با کیفیت و زیبا کنید بدون تغییر چهره ها 🤖🤖
+
+Prompt
+
+Restore this old photograph with maximum realism. Remove scratches, dust, stains, tears, blur, and noise while preserving the person's exact facial features, identity, expression, hairstyle, clothing, and original composition. Increase sharpness and resolution, recover fine skin and fabric details, correct fading, and balance lighting naturally. If the image is black and white, colorize it with historically accurate, natural colors. Produce a clean, ultra-realistic, high-resolution 8K restoration that looks like a modern professional photograph while keeping the original memory and authenticity intact.
+
+
+آموزش استفاده از پرامپت 👉
+
+✈️ @TASIYANC
+</div>
 
 ## tasiyanc — post 8856
 
@@ -222,58 +277,5 @@ R8
 چون برگزاری آزمون‌ها تقریبا یک ماه تاخیر داشته.
 حالا همه تلاش‌مون رو می‌کنیم که اول آبان یا تو خودِ آبان ماه مدارس رو باز کنیم.
 ✈️@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8833
-
-<div align="center"><video src="files/post_8833_tasiyanc_8833.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8833_tasiyanc_8833.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز 8 مرداد، تولد جاویدنام آیدا حیدری هست، دانشجوی پزشکی 21 ساله‌، که در اعتراضات دی ماه، به قتل رسید.
-
-مادر آیدا بعد از فوت دخترش، هر شب به بالکن میره و زار زار گریه می‌کنه.
-⭐ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8832
-
-<div align="center"><img src="files/post_8832_tasiyanc_8832.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید مالک تلگرام پاول دروف توی چنل تلگرامش:
-
-عکس خودشو گذاشته نوشته به من میگن تروریست.
-بعد به طالبان میگن شرکای تجاری😂
-⭐ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8826
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ لوکیشن ترکیه و ایتالیا 💥
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC 💠
-</div>
-
-## tasiyanc — post 8823
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ورود خودروهای آفرود به جنگل، کویر و ساحل‌های کشور ممنوع شد😞
-
-@Tasiyanc 🕒
 </div>
 

@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/05/27 22:31
+📅 آخرین بروزرسانی: 1405/05/27 23:18
 
 ---
+
+## tasiyanc — post 7035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گلللللللل نیوزلند
+</div>
+
+## tasiyanc — post 7025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک از ماهواره نتونستن بگیرن میتونن از این سایت بدون نیاز به VPN از این شبکه ببینن
+TRT 1
+https://ritsatv.ru/mobile-version/movie-id901190-trt1
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بخاطر اون ۶۴۰۰۰ نفر بیدارم بازیو ببینیم
+</div>
+
+## tasiyanc — post 7022
+
+<div align="center"><video src="files/post_7022_tasiyanc_7022.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7022_tasiyanc_7022.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 
+📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7017
 
@@ -195,60 +235,5 @@ matador ⚡ Fast.npvt
 
 T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6986
-
-<div align="center"><video src="files/post_6986_tasiyanc_6986.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6986_tasiyanc_6986.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟
-🌟اختصاصی تاسیان 
-🌟
-🌟
-
-سه کانفیگ نپسترنت و یک کانفیگ Http 🚀
-
-تست شده - حجم نامحدود 
-🤩
-
-HttpCustum 
-📱 android 
-🕹 iOS
-
-NPV Tunnel 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال با HttpCustum 
-🔻
-
-آموزش اتصال با NPV TUNNEL 
-🔻
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از این به بعد ۲ فایل یه جا میزاریم
-یکی NPV TUNNEL یکی HTTPCUSTUM
-هر کی هر کدوم دوست داره وصل شه
-</div>
-
-## tasiyanc — post 6984
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡⚡@Taisyanc.hc
-</div>
-
-## tasiyanc — post 6983
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡⚡@Taisyanc.hc
 </div>
 
