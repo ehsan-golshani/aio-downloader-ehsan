@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 293
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 248939
+
+<div align="center"><img src="files/post_248939_VahidOOnLine_248939.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرس تی‌وی، شبکه خبری انگلیسی جمهوری اسلامی، از شنیده شدن انفجارهای دوباره در جزیره قشم و نیز چندین انفجار در جزیره خارک خبر داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248938
 
@@ -238,21 +249,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آکسیوس به نقل از یک مقام آمریکایی گزارش داد حملات جدید آمریکا به جمهوری اسلامی از نظر گستره و قدرت، چهار تا پنج برابر بزرگ‌تر از حملات قبلی در تنگه هرمز طی ۱۰ روز پیش بوده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248919
-
-<div align="center"><video src="files/post_248919_VahidOOnLine_248919.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248919_VahidOOnLine_248919.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تصاویر رسیده به ایندیپندنت فارسی حملات هوایی ارتش آمریکا به حوالی اسکله نظامی و خط ساحلی بندرعباس را نشان می‌دهد.
-همزمان با انتشار این تصاویر، فرماندهی مرکزی ایالات متحده، سنتکام، از آغاز «حملات قدرتمند» علیه اهدافی در ایران خبر داد. صداوسیما نیز در نخستین ساعت بامداد چهارشنبه ۱۷ تیرماه، از شنیده‌شدن صدای چندین انفجار در سیریک، بندرعباس و جزیره قشم گزارش داد.
-سنتکام اعلام کرد این حملات در پاسخ به حملات ایران به سه کشتی تجاری در حال عبور از تنگه هرمز انجام شده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

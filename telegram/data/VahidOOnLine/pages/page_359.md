@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 359
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 247487
+
+<div align="center"><video src="files/post_247487_VahidOOnLine_247487.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247487_VahidOOnLine_247487.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده نشان می‌دهد گروهی از ایرانیان جمعه پنجم تیرماه مقابل محل اقامت اعضای تیم فوتبال ایران در سیاتل آمریکا تجمع کرده و علیه جمهوری اسلامی شعار می‌دهند.
+بازی فوتبال میان ایران و مصر بامداد شنبه ساعت ۶:۳۰ به وقت تهران در جام‌جهانی انجام خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247486
 
@@ -269,16 +283,6 @@ iranintl.co
 
 روبیو در مراسم امضای این توافق‌نامه گفت: «این آغازِ آغاز است. کارهای زیادی در پیش داریم. امروز اولین قدم است و گاهی اوقات، اولین قدم سخت‌ترین قدم است.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247467
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برنامه «جغرافیای انقلاب ملی ایرانیان» از سوی ایران‌اینترنشنال برای بررسی روایت‌های انقلاب ملی در استان‌های ایران راه‌اندازی شده است. در سومین قسمت به تجمعات اعتراضی و سرکوب‌ها در استان اردبیل پرداخته‌ایم.
-﻿پویا جهاندار و فرزاد فتاحی، اعضای تحریریه ایران‌اینترنشنال گزارش می‌دهند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

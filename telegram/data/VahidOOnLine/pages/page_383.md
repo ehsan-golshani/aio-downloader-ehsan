@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 383
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 246933
+
+<div align="center"><img src="files/post_246933_VahidOOnLine_246933.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارولین لویت، سخنگوی کاخ سفید، به شبکه خبری فاکس گفت دونالد ترامپ، رییس‌جمهوری ایالات متحده، هرگز توافقی را که به سود امنیت ملی آمریکا نباشد، امضا نخواهد کرد.
+
+او تاکید کرد که ترامپ «همیشه اولویت را به آمریکا می‌دهد» و جمهوری اسلامی هرگز به سلاح هسته‌ای دست نخواهد یافت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246932
 
@@ -261,17 +274,6 @@
 در این بیانیه آمده است که این سه مقام «به‌روشنی اعلام کردند که امنیت شهروندان اسرائیلی و نیروهای ارتش اسرائیل، بدون هیچ‌گونه مصالحه‌ای، همچنان اصل راهنمای آنها باقی خواهد ماند.»
 
 
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246913
-
-<div align="center"><img src="files/post_246913_VahidOOnLine_246913.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر خارجه عمان در ایکس نوشت که در گفت‌وگو با مذاکره‌کنندگان ایرانی، بر پایبندی به حقوق بین‌الملل و تضمین عبور امن و بدون عوارض از تنگه هرمز تاکید شده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,26 @@
 # آرشیو کانال VahidOOnLine - صفحه 191
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 251328
+
+<div align="center"><video src="files/post_251328_VahidOOnLine_251328.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251328_VahidOOnLine_251328.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ گزارش صداوسیما از «میران»، نوزاد مجروحی که مادرش را در حملات آمریکا از دست داد
+
+♦️ صداوسیمای جمهوری اسلامی با انتشار گزارشی تصویری، از «میران حیدری‌پور»، کودک یک‌ساله بندرعباسی، به‌عنوان یکی از مجروحان حملات آمریکا در روزهای گذشته یاد کرد.
+براساس این گزارش صداوسیما مریم پورحیدری، مادر میران بر اثر اصابت ترکش جان باخته و میران نیز به‌شدت مجروح شده و تحت درمان قرار دارد.
+صداوسیما در این گزارش، میران را «جانباز یک‌ساله» جنگ با آمریکا توصیف کرده است.
+روند درمان این کودک یک ساله همچنان ادامه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251327
 
@@ -279,21 +297,6 @@ iranintl
 
 هاشمی گفت که با وجود شرایط پیچیده و حجم حملات، تلاش شده ارتباط جزایر با سرزمین اصلی قطع نشود و افزود استفاده از ارتباطات رادیویی و ماهواره‌ای راهکاری موقت است و بسترهای فیبر نوری باید ترمیم شوند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251307
-
-<div align="center"><video src="files/post_251307_VahidOOnLine_251307.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251307_VahidOOnLine_251307.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ویدیویی از تقسیم تور دروازه فینال جام جهانی میان هواداران در شبکه‌های اجتماعی پربازدید شده است.
-در این ویدیو دیده می‌شود که ماموران پلیس نیویورک پس از مراسم و قهرمانی اسپانیا، به تماشاگران برای بریدن و بردن تکه‌های تور دروازه فینال کمک می‌کنند.
-اسپانیا با شکست آرژانتین در فینال، برای دومین بار قهرمان جام جهانی فوتبال شد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

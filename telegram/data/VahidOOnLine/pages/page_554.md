@@ -1,8 +1,24 @@
 # آرشیو کانال VahidOOnLine - صفحه 554
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 242108
+
+<div align="center"><video src="files/post_242108_VahidOOnLine_242108.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242108_VahidOOnLine_242108.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماسی از هلند:
+«می‌گفت هر روز با برنامه‌های منوتو زندگی می‌کردیم…
+و حالا نمی‌دانیم بعد از آن باید چه کنیم.»
+او همچنین از جاویدنام سینا حق‌شناس یاد کرد؛ دوستی که خبر جان‌باختنش زندگی او را زیر و رو کرده بو
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242107
 

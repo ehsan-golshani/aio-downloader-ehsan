@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 255826
+
+<div align="center"><video src="files/post_255826_VahidOOnLine_255826.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255826_VahidOOnLine_255826.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل، با اشاره به تصمیم فرانسه برای اخراج دو دیپلمات جمهوری‌اسلامی در واکنش به بازداشت و بدرفتاری با دو دیپلمات فرانسوی در تهران، گفت جمهوری‌اسلامی رژیمی «متجاوز، طغیانگر و تروریست‌پرور» است و سابقه‌ای طولانی در نقض مصونیت دیپلماتیک دارد.
+
+او گفت جمهوری‌اسلامی با این اقدامات حتی کشورهایی را که حاضر به میانجی‌گری با تهران بوده‌اند، از خود دور می‌کند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255816
 
@@ -290,16 +305,5 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [پست از کانال منبع حذف شد.]
-</div>
-
-## VahidOOnLine — post 255780
-
-<div align="center"><img src="files/post_255780_VahidOOnLine_255780.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چو هیون، وزیر خارجه کره جنوبی، چهارشنبه گفت به نظر می‌رسد پیام دونالد ترامپ، رییس‌جمهوری آمریکا، درباره کاهش رزمایش‌های مشترک نظامی، حاوی فشاری بر سئول برای مشارکت در جنگ با ایران نیز بوده است.
-IranintlTV
-
-🤖 @VahidOOnLine
 </div>
 

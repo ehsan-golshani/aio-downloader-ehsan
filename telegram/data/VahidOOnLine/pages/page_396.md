@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 396
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 246591
+
+<div align="center"><video src="files/post_246591_VahidOOnLine_246591.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246591_VahidOOnLine_246591.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، روز شنبه واشینگتن را به مقصد سوئیس ترک کرد تا روز یکشنبه در مذاکرات با جمهوری اسلامی شرکت کند. او به خبرنگاران گفت امیدوار است در «موضوع هسته‌ای» و «مسئله آتش‌بس لبنان» پیشرفت حاصل شود.
+ونس پیش از سوار شدن به هواپیمای خود به مقصد ژنو گفت: «با وجود تیترهای خبری، اوضاع در لبنان در واقع بهتر شده و تا حدی آرام‌تر شده است.»
+او افزود این مسئله باید به‌طور مداوم مدیریت شود تا «اسرائیل و لبنان هر دو امن و باثبات باشند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246590
 
@@ -235,19 +250,6 @@
 دفتر نخست‌وزیر پاکستان اعلام کرد که شهباز شریف و عاصم منیر، نخست‌وزیر و فرمانده ارتش این کشور یکشنبه در سوئیس در مذاکرات فنی آمریکا و جمهوری اسلامی شرکت خواهند کرد.
 
 پیش‌تر الجزیره از حضور شریف و منیر در مذاکرات یکشنبه خبر داده بود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246571
-
-<div align="center"><video src="files/post_246571_VahidOOnLine_246571.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246571_VahidOOnLine_246571.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند در ویدیویی که به ایران اینترنشنال ارسال کرده خطاب به علی خامنه‌ای، دیکتاتور سابق ایران، می‌گوید که «این همه آدم کشتی و حالا خودت در یخچال داری کپک می‌زنی.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

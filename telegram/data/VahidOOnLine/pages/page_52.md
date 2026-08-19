@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 254724
+
+<div align="center"><video src="files/post_254724_VahidOOnLine_254724.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254724_VahidOOnLine_254724.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران اینترنشنال از گرانی شیرخشک انتقاد کرد و خطاب به مسئولان مربوط گفت: «پیش از تشویق به فرزندآوری، ابتدا باید به فکر مردم باشید.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254723
 
@@ -281,19 +294,6 @@ Indypersian
 پزشکیان به وزیر کشور پاکستان گفت: «تعمیق همکاری‌ها می‌تواند به تامین منافع متقابل و تقویت ثبات و امنیت منطقه کمک کند.»
 
 محسن نقوی در سفر به تهران با محسن پاک‌نژاد، وزیر نفت، اسکندر مومنی، وزیر کشور و عباس عراقچی نیز دیدار کرد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254704
-
-<div align="center"><video src="files/post_254704_VahidOOnLine_254704.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254704_VahidOOnLine_254704.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید آب شرب ماهدشت در استان البرز پر از نمک است و نمی‌توان آن را مصرف کرد.
 IranintlTV
 
 🤖 @VahidOOnLine

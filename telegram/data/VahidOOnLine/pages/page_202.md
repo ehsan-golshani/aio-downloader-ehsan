@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 202
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 251075
+
+<div align="center"><img src="files/post_251075_VahidOOnLine_251075.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️همزمان با آغاز نهمین شب حملات متوالی آمریکا به مواضع نظامی در ایران، بامداد یکشنبه، فارس از اثابت چند موشک و شنیده‌شدن صدای انفجارها در شهرهای تبریز، چابهار، کنارک، بندر ماهشهر و بندر خمینی در خوزستان خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251074
 
@@ -255,17 +266,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️وزارت کشور بحرین، بامداد دوشنبه، با اعلام به صدا درآمدن آژیرهای هشدار، از مردم و ساکنان خواست ضمن حفظ آرامش، به نزدیک‌ترین پناهگاه امن بروند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251055
-
-<div align="center"><img src="files/post_251055_VahidOOnLine_251055.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️به‌دنبال انتشار گزارش‌ها از شنیده‌شدن صدای انفجار در اراک، فرماندار این شهر اعلام کرد این صداها متعلق به «اقدامات آفندی» در یکی از استان‌های مجاور بوده و جای نگرانی نیست.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 510
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 243343
+
+<div align="center"><video src="files/post_243343_VahidOOnLine_243343.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243343_VahidOOnLine_243343.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از دانش‌آموزان همدان سه‌شنبه ۱۲ خرداد در اعتراض به تاثیر معدل نهایی بر کنکور و امتحانات حضوری تجمع کردند و شعار دادند: «دانش‌آموز داد بزن، حقتو فریاد بزن»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243342
 
@@ -322,17 +335,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دنی دانون، سفیر اسرائیل در سازمان ملل، در نشست شورای امنیت درباره تحولات لبنان گفت: حزب‌الله به تنش‌ها دامن می‌زند. حزب‌الله لبنان را گروگان گرفته و همچنان به سوی اسرائیل موشک شلیک می‌کند. اگر در شمال اسرائیل آرامش برقرار نباشد، برای حزب‌الله هم آرامشی وجود نخواهد داشت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243307
-
-<div align="center"><img src="files/post_243307_VahidOOnLine_243307.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هما میر افشار، شاعر و ترانه‌سرای نامدار ایرانی در ۸۹ سالگی پس از سالها مبارزه با بیماری آلزایمر، در لس‌انجلس درگذشت. هما میرافشار از پُرکارترین ترانه‌سرایان پیش و پس از انقلاب ۱۳۵۷ بود که با بسیاری از چهره‌های هنری همکاری داشته ‌است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

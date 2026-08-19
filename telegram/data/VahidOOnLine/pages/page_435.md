@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 435
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 245438
+
+<div align="center"><video src="files/post_245438_VahidOOnLine_245438.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_245438_VahidOOnLine_245438.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان شنبه ۲۳ خرداد در حمایت از شاهزاده رضا پهلوی و علیه جمهوری اسلامی، در شهرهای هامبورگ، کاسل، نورنبرگ و اشتوتگارت تجمع کرده و فریاد «ایران» سردادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245436
 
@@ -281,21 +294,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم ژاپن یکشنبه ۲۴ خرداد با فراخوان شاهزاده رضا پهلوی، علیه جمهوری اسلامی در توکیو تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245417
-
-<div align="center"><img src="files/post_245417_VahidOOnLine_245417.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت آموزش و پرورش جمهوری اسلامی اعلام کرد زمان برگزاری امتحانات نهایی پایه‌های یازدهم و دوازدهم مدارس به دلیل تشییع جنازه رهبر کشته‌شده جمهوری اسلامی یک هفته به تعویق افتاده است.
-
-بر این اساس، امتحانات پایه یازدهم از ۲۰ تیر ۱۴۰۵ و پایه دوازدهم از ۲۱ تیر ۱۴۰۵ برگزار می‌شود.
-
-پیش‌تر اعلام شده بود که امتحانات دانشگاه‌ها نیز با تاخیر برگزار می‌شود.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

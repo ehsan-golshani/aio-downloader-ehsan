@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 290
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 249004
+
+<div align="center"><video src="files/post_249004_VahidOOnLine_249004.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249004_VahidOOnLine_249004.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال وقوع انفجارهای متعدد در شهر خورموج استان بوشهر را نشان می‌دهد که در جریان حملات آمریکا هدف گرفته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249003
 
@@ -271,21 +284,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال، آتش‌سوزی و برخاستن دود در اسکله بندر کوهستک شهرستان سیریک را نشان می‌دهد که هدف حمله بامدادی آمریکا قرار گرفت.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248984
-
-<div align="center"><img src="files/post_248984_VahidOOnLine_248984.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️یک نیروی سپاه در حمله آمریکا به بندر ماهشهر کشته شد
-
-♦️سپاه روز چهارشنبه ۱۷ تیرماه اعلام کرد «یکی از پاسداران منطقه سوم نیروی دریایی سپاه» در این روز و همزمان با  حملات آمریکا به بندر ماهشهر کشته شد.
-
-در بیانیه روابط عمومی منطقه سوم نیروی دریایی سپاه آمده است که این نظامی در جریان مقابله با پهپادهای دشمن کشته شد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

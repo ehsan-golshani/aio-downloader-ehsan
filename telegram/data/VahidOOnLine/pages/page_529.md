@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 529
 
-📅 آخرین بروزرسانی: 1405/05/29 02:23
+📅 آخرین بروزرسانی: 1405/05/29 02:49
 
 ---
+
+## VahidOOnLine — post 242844
+
+<div align="center"><img src="files/post_242844_VahidOOnLine_242844.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️نیکی هیلی، سفیر پیشین آمریکا در سازمان ملل، با انتشار پیامی در اکس نوشت: «رژیم ایران هرگز با حسن نیت عمل نکرده است. همیشه همان بازی را ادامه می‌دهد؛ وقت‌کشی، خرید زمان و تغییر موضع.»
+هیلی افزود تا زمانی که دسترسی کامل و کنترل بر مواد هسته‌ای ایران به دست نیامده، نباید دارایی‌ها آزاد یا تحریم‌ها کاهش داده شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242843
 
@@ -223,19 +235,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اسکات بسنت، وزیر خزانه‌داری آمریکا، ضمن اعلام توقیف یک میلیارد دلار رمزارز مرتبط با جمهوری اسلامی، گفت: «ما در حال همکاری با متحدانمان در سراسر اروپا هستیم تا ویلاها، خانه‌ها و املاک مقامات جمهوری اسلامی را توقیف کنیم.»
 او افزود: «این پولی است که از مردم ایران دزدیده شده است.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242824
-
-<div align="center"><video src="files/post_242824_VahidOOnLine_242824.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_242824_VahidOOnLine_242824.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند در پیامی به ایران اینترنشنال می‌گوید سرعت اینترنت جهانی در ایران بسیار پایین است. پیام او با هوش مصنوعی خوانده شده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
