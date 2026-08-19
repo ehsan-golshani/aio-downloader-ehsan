@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/05/28 16:50
+📅 آخرین بروزرسانی: 1405/05/28 17:40
 
 ---
+
+## ProxyMTProto — post 48260
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: b8rta.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48259
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn.savelyev.click
+Port: 443
+Secret: eedd1174aeeba154742b9b2d722fab283763646e2e736176656c7965762e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48258
 
@@ -163,24 +181,6 @@ Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 Server: br.kingproxynewdomailasiatech.ink
 Port: 22
 Secret: dd79e7010200010007f0030386e24c3add
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48240
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy64.arixo.shop
-Port: 443
-Secret: eeae4da59570293a4b2c99f935e7120cbf617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48239
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Just-iraninan.com.the-nice-mtproto.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 
