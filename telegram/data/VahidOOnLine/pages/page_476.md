@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 476
 
-📅 آخرین بروزرسانی: 1405/05/28 23:52
+📅 آخرین بروزرسانی: 1405/05/29 00:31
 
 ---
+
+## VahidOOnLine — post 244184
+
+<div align="center"><img src="files/post_244184_VahidOOnLine_244184.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سخنگوی ارتش اسرائیل گفت حکومت ایران اشتباه بزرگی مرتکب شد. اسرائیل موازنه‌ای را که تهران در پی ایجاد آن است نخواهد پذیرفت.
+
+او افزود ارتش در حالت آماده‌باش قرار دارد و برای حملات دیگر جمهوری اسلامی آماده‌ است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244183
+
+<div align="center"><video src="files/post_244183_VahidOOnLine_244183.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244183_VahidOOnLine_244183.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ابراهیم ذوالفقاری، سخنگوی قرارگاه خاتم الانبیا، یکشنبه‌شب، اعلام کرد:‌ «ارتش اسرائیل باید حملات خود به جنوب لبنان و ضاحیه را متوقف نماید و در صورت گسترش حملات خود به آن منطقه و یا پاسخ به اقدام ایران با ضربات کوبنده‌تر و پشیمان‌کننده روبه‌رو و حملات ویرانگری علیه اسرائیل و حامیان آن آغاز خواهد شد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244182
+
+<div align="center"><img src="files/post_244182_VahidOOnLine_244182.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سخنگوی قرارگاه مرکزی خاتم‌الانبیا گفت: «قبلا اخطار داده بودیم در صورت گسترش حملات در ضاحیه بیروت، اهدافی را در اسرائیل مورد هجوم قرار می دهیم.»
+
+او افزود: «ارتش اسرائیل باید حملات خود به جنوب لبنان و ضاحیه را متوقف نماید و در صورت گسترش حملات خود به آن منطقه و یا پاسخ به اقدام جمهوری اسلامی با ضربات کوبنده‌تر و پشیمان‌کننده روبرو و حملات ویرانگری علیه اسرائیل و حامیان آن آغاز خواهد شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244181
 
@@ -206,41 +245,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران‌اینترنشنال از تبریز در شامگاه یکشنبه ۱۷ خرداد، نور موشک شلیک‌شده از سوی جمهوری اسلامی را به سمت اسرائیل در آسمان تبریز نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244164
-
-<div align="center"><img src="files/post_244164_VahidOOnLine_244164.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️محسن رضایی، فرمانده سابق سپاه و مشاور نظامی مجتبی خامنه‌ای، یکشنبه‌شب، همزمان با حملاتی موشکی ایران به اسرائیل در واکنش به حملات به ضاحیه بیروت، با انتشار پیامی در اکس نوشت: «جمهوری اسلامی بارها اعلام کرده بود که نقض آتش‌بس و تجاوز به لبنان را برنمی‌تابد. امشب متجاوزان پاسخ خود را دریافت کردند». رضایی نوشت: «این پاسخ هشداری است تا دست از شرارت بردارند. هر اقدام جدید با پاسخی کوبنده‌تر و هزینه‌هایی سنگین‌تر مواجه خواهد شد».
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244163
-
-<div align="center"><video src="files/post_244163_VahidOOnLine_244163.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244163_VahidOOnLine_244163.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال پرتاب موشک از سوی جمهوری اسلامی را از کرمانشاه به سمت اسرائیل در شامگاه یکشنبه ۱۷ خرداد نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244162
-
-<div align="center"><img src="files/post_244162_VahidOOnLine_244162.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️به گزارش فارس، خبرگزاری وابسته به سپاه، فرمانده قرارگاه خاتم‌الانبیا، یکشنبه‌شب، ۱۷ خردادماه، با انتشار بیانیه‌ای، شلیک موشک‌های ایران به سمت مواضع اسرائیل را تحقق هشدارهای قبلی تهران خواند و اعلام کرد: «پیش از این صراحتا اخطار داده بودیم که در صورت گسترش جنایات اسرائیل در ضاحیه بیروت، اهدافی را در سرزمین‌های اشغالی مورد هجوم قرار می‌دهیم.» او با متهم کردن ارتش اسرائیل به نقض مکرر آتش‌بس و عبور از تمامی خطوط قرمز تحت حمایت‌های آمریکا، تاکید کرد که تل‌آویو باید فورا حملات خود به لبنان را متوقف کند اعلام کرد:‌ «در صورت گسترش حملات اسرائیل به بیروت و یا پاسخ به اقدام ایران با ضربات کوبنده تر و پشیمان کننده روبرو و حملات ویرانگری علیه رژیم و حامیان آن آغاز خواهد شد».
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

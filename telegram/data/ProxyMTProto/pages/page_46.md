@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/28 23:52
+📅 آخرین بروزرسانی: 1405/05/29 00:32
 
 ---
+
+## ProxyMTProto — post 49402
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: logs.jinxandjack.co.uk.
+Port: 443
+Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49401
 
@@ -158,15 +167,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: mirror.balalaika.click
 Port: 443
 Secret: ee82514fa3e992fa79f3fd3bff4db750116d6972726f722e62616c616c61696b612e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49382
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Speed-proxy.com
-Port: 443
-Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
 @ProxyMTProto
 </div>
 
