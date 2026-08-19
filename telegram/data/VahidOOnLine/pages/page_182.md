@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 182
 
-📅 آخرین بروزرسانی: 1405/05/29 01:12
+📅 آخرین بروزرسانی: 1405/05/29 01:40
 
 ---
+
+## VahidOOnLine — post 251515
+
+<div align="center"><video src="files/post_251515_VahidOOnLine_251515.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251515_VahidOOnLine_251515.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنی گانتس، رهبر حزب وحدت ملی و وزیر دفاع پیشین اسرائیل، نسبت به توافق ۳۰ ساله هسته‌ای آمریکا و عربستان سعودی هشدار داد و گفت برنامه هسته‌ای غیرنظامی عربستان، بدون ائتلاف منطقه‌ای، امنیت اسرائیل را تهدید می‌کند.
+
+گفت‌وگو با مهدی بیگی، خبرنگار ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251514
 
@@ -271,19 +286,6 @@ iranintl
 
 مقام‌ها و رسانه‌های جمهوری اسلامی هنوز گزارشی درباره رابطه احتمالی این آتش‌سوزی‌ها با حملات آمریکا منتشر نکرده‌اند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251486
-
-<div align="center"><video src="files/post_251486_VahidOOnLine_251486.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251486_VahidOOnLine_251486.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوی رسیده به ایران اینترنشنال از جنوب استان آذربایجان غربی، بامداد چهارشنبه صدای پدافند در آسمان مهاباد شنیده شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

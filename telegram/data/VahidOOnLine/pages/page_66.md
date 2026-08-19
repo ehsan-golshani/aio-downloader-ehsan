@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/29 01:12
+📅 آخرین بروزرسانی: 1405/05/29 01:40
 
 ---
+
+## VahidOOnLine — post 254402
+
+<div align="center"><video src="files/post_254402_VahidOOnLine_254402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254402_VahidOOnLine_254402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای ارسال شده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان ساکن بریتانیا یکشنبه ۱۸ مرداد در اعتراض به اعدام‌های جمهوری اسلامی در شهر شفیلد تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254401
 
@@ -292,21 +305,6 @@
 
 انتشار و حذف این خبر در شرایطی صورت گرفت که در روزهای اخیر اختلاف‌ها در ساختار جمهوری اسلامی بر سر روند گفت‌وگوها با آمریکا، از جمله پرونده هسته‌ای و چشم‌انداز تنگه هرمز، افزایش یافته است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254382
-
-<div align="center"><video src="files/post_254382_VahidOOnLine_254382.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254382_VahidOOnLine_254382.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصاویری که می‌بینید، پیام ویدئویی محمدرضا شاه پهلوی به ملک حسین، پادشاه اردن، به مناسبت چهل‌ودومین سالروز تولد او و بیست‌وپنجمین سالگرد آغاز سلطنتش است.
-
-شاه در این پیام، از نقش ملک حسین در تحولات و پیشرفت اردن سخن می‌گوید و با اشاره به روابط نزدیک ایران و پادشاهی هاشمی اردن، روابط میان رهبران دو کشور را «برادرانه و صمیمانه» توصیف می‌کند.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 421
 
-📅 آخرین بروزرسانی: 1405/05/29 01:12
+📅 آخرین بروزرسانی: 1405/05/29 01:40
 
 ---
+
+## VahidOOnLine — post 245874
+
+<div align="center"><img src="files/post_245874_VahidOOnLine_245874.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کامالا هریس، نامزد پیشین حزب دموکرات در انتخابات ریاست‌جمهوری آمریکا، گفت تفاهم‌نامه دونالد ترامپ با جمهوری اسلامی فقط «طرحی از یک توافق» است.
+
+کامالا هریس گفت اگر رییس‌جمهور بود «قطعا» جنگ با ایران را آغاز نمی‌کرد.
+
+او اضافه کرد: «هر توافقی که در حال مذاکره باشد، ترامپ آن را پیروزی اعلام خواهد کرد و در نهایت به همان جایی خواهیم رسید که پس از برجام بودیم و آن را پیروزی خواهند نامید؛ همان توافقی که خودش از آن خارج شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245855
 
@@ -263,17 +278,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️تیم فوتبال ایران با ضربه محمد محبی روی پاس رامین رضاییان در دقیقه ۶۴ توانست دومین گل ایران مقابل نیوزلند را زده و نتیجه بازی را ۲ بر ۲ مساوی کند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245804
-
-<div align="center"><img src="files/post_245804_VahidOOnLine_245804.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️در ابتدای نیمه دوم، دقیقه ۵۴، تیم فوتبال نیوزلند توانست گل دوم را وارد دروازه تیم فوتبال ایران کرده و نتیجه بازی را ۲ بر ۱ کند.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

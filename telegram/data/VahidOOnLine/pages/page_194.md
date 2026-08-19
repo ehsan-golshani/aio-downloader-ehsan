@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 194
 
-📅 آخرین بروزرسانی: 1405/05/29 01:12
+📅 آخرین بروزرسانی: 1405/05/29 01:40
 
 ---
+
+## VahidOOnLine — post 251257
+
+<div align="center"><video src="files/post_251257_VahidOOnLine_251257.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251257_VahidOOnLine_251257.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️روابط عمومی ارتش جمهوری اسلامی ایران اعلام کرد نیروی زمینی ارتش در مرحله هجدهم عملیات «صاعقه»، با موشک‌های زمین‌به‌زمین، سامانه‌های موشکی هیمارس ارتش آمریکا مستقر در پایگاه عریفجان کویت را هدف قرار داده است.
+پیش از این، سنتکام از آغاز دور جدید حملات ارتش آمریکا علیه اهدافی در ایران با هدف کاهش توانمندی‌های نظامی مورد استفاده برای حمله به کشتیرانی تجاری در تنگه هرمز خبر داده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251256
 
@@ -227,17 +241,6 @@
 
 این خبرگزاری جزئیات بیشتری درباره علت یا محل دقیق انفجار منتشر نکرده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251237
-
-<div align="center"><img src="files/post_251237_VahidOOnLine_251237.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️همزمان با آغاز حملات آمریکا علیه اهدافی در ایران، ایرنا، بامداد سه‌شنبه از اصابت موشک در کنارک واقع در سیستان و بلوچستان خبر داد و نوشت که صدای انفجار در چابهار نیز شنیده شد. ایرنا پیش از این از انفجار در سیریک، بندرعباس و قشم خبر داده بود.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

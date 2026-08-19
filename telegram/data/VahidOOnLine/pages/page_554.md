@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 554
 
-📅 آخرین بروزرسانی: 1405/05/29 01:12
+📅 آخرین بروزرسانی: 1405/05/29 01:40
 
 ---
+
+## VahidOOnLine — post 242103
+
+<div align="center"><img src="files/post_242103_VahidOOnLine_242103.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نت‌بلاکس صبح دوشنبه اعلام کرد خاموشی اینترنت در ایران وارد هشتادوهفتمین روز متوالی شده و بیش از ۲۰۶۴ ساعت ادامه داشته است. نت‌بلاکس نوشت قطع اینترنت «هرگونه شفافیت درباره اعدام‌ها» را از بین برده و به شرایط «غیرانسانی» و بلاتکلیفی منتقدان زندانی، مخالفان و گردشگران افزوده است.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242102
 

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/29 01:12
+📅 آخرین بروزرسانی: 1405/05/29 01:40
 
 ---
+
+## VahidOOnLine — post 254494
+
+<div align="center"><video src="files/post_254494_VahidOOnLine_254494.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254494_VahidOOnLine_254494.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم آستین در ایالت تگزاس آمریکا یکشنبه ۱۸ مرداد در اعتراض به اعدام‌های جمهوری اسلامی تجمع کرده و سرود «ای ایران» را همخوانی کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254493
 
@@ -299,21 +312,6 @@
 ## VahidOOnLine — post 254474
 
 <div align="center"><img src="files/post_254474_VahidOOnLine_254474.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نصرالله پژمانفر، رییس کمیسیون اصل ۹۰ مجلس جمهوری اسلامی، از تشکیل کمیته مشترک دولت و مجلس برای حل اختلاف بر سر واگذاری سهام سایپا خبر داد.
-
-او گفت وزارت اقتصاد به دنبال واگذاری ۱۶.۸ درصد سهام دولتی باقی‌مانده سایپا، همراه با ۴۲ درصد از سهام این شرکت در اختیار شرکت‌های وابسته به سایپا است.
-
-پژمانفر افزود کمیسیون اصل ۹۰، کمیسیون صنایع، شورای نگهبان و معاونت حقوقی رییس‌جمهوری با واگذاری سهم باقی‌مانده دولت و خصوصی‌سازی کامل سایپا مخالف‌اند. او همچنین از «اختلافات عمیق‌تر» بر سر سهام عدالت خبر داد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254473
-
-<div align="center"><img src="files/post_254473_VahidOOnLine_254473.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نصرالله پژمانفر، رییس کمیسیون اصل ۹۰ مجلس جمهوری اسلامی، از تشکیل کمیته مشترک دولت و مجلس برای حل اختلاف بر سر واگذاری سهام سایپا خبر داد.

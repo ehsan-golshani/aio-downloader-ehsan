@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/29 01:12
+📅 آخرین بروزرسانی: 1405/05/29 01:40
 
 ---
+
+## VahidOOnLine — post 254146
+
+<div align="center"><img src="files/post_254146_VahidOOnLine_254146.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️نیروی دریایی دولت به رسمیت شناخته‌شده یمن اعلام کرد که حمله یک شناور تندروِ حامل مواد منفجره به یک نفتکش در دریای سرخ را ناکام گذاشته است.
+
+به گزارش رسانه‌های نظامی، گشت‌های دریایی غروب روز جمعه، ۱۶ مرداد این شناور بدون سرنشین را در آب‌های نزدیک به نیروگاه «المخا» شناسایی کرده و «اقدامات لازم» را انجام دادند. طبق گزارش‌ها، این شناور پیش از رسیدن به هدف منفجر شده است.
+
+نیروی دریایی یمن مسئولیت این حمله را به گروه شبه‌نظامی حوثی‌ها نسبت داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254145
 
@@ -302,18 +317,6 @@ https://i
 
 وزیر خزانه‌داری آمریکا همچنین درباره وضعیت اقتصادی جمهوری اسلامی گفت تورم مواد غذایی در ایران به ۱۵۰ تا ۱۸۰ درصد رسیده و حکومت با مشکل پرداخت حقوق نیروهای نظامی روبه‌رو است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254124
-
-<div align="center"><video src="files/post_254124_VahidOOnLine_254124.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254124_VahidOOnLine_254124.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

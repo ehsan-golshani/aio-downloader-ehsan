@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 381
 
-📅 آخرین بروزرسانی: 1405/05/29 01:12
+📅 آخرین بروزرسانی: 1405/05/29 01:40
 
 ---
+
+## VahidOOnLine — post 246981
+
+<div align="center"><video src="files/post_246981_VahidOOnLine_246981.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246981_VahidOOnLine_246981.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از دانشجویان در تهران سه‌شنبه دوم تیر مقابل دانشگاه علوم و تحقیقات تجمع کردند و خواستار مجازی شدن امتحان‌ها شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246980
 
@@ -307,17 +320,4 @@
 ## VahidOOnLine — post 246961
 
 <div align="center"><img src="files/post_246961_VahidOOnLine_246961.jpg" alt="Photo"></div>
-
-## VahidOOnLine — post 246953
-
-<div align="center"><video src="files/post_246953_VahidOOnLine_246953.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246953_VahidOOnLine_246953.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طرح تازه آمریکا برای دارایی‌های ایران، بحثی فراتر از غلات به راه انداخته است. مسئله مردم ایران فقط گندم و سویا نیست، بلکه بحران ساختاری اقتصادی، سرکوب و حکومتی غیرپاسخگو است.
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
 
