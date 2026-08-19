@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/28 09:16
+📅 آخرین بروزرسانی: 1405/05/28 10:00
 
 ---
+
+## ProxyMTProto — post 49916
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: iran-download.goaphrodite.co.uk.
+Port: 443
+Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49915
 
@@ -172,15 +181,6 @@ Secret: ee35e031f41ae8bb68b6d517e706ccdfb06c6976652e67617264656e2d74726f6c6c2e6c
 Server: bastani.mikham.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49896
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: api.nowabst.net
-Port: 853
-Secret: ee4b0955a40972e28dc3e76df92e9a3f1e766b2e636f6d
 @ProxyMTProto
 </div>
 

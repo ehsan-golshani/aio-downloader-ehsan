@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/05/28 09:16
+📅 آخرین بروزرسانی: 1405/05/28 10:00
 
 ---
+
+## ProxyMTProto — post 48806
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: swag.caxero.ru
+Port: 443
+Secret: 8f3c7a1d4b92e6c51a7d0fb843c2e91f
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48805
 
@@ -172,15 +181,6 @@ Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
 Server: Unknown
 Port: 443
 Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 87.120.108.165
-Port: 443
-Secret: cbea07affc92833d14e5df783496a82a
 @ProxyMTProto
 </div>
 

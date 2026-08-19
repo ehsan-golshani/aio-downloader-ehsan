@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/05/28 09:16
+📅 آخرین بروزرسانی: 1405/05/28 10:00
 
 ---
+
+## ProxyMTProto — post 48604
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rus1.gram.blog
+Port: 443
+Secret: ee2e5429b41ddb6a22a04da68caeee74cc62726f777365722e79616e6465782e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48603
 
@@ -172,15 +181,6 @@ Secret: ee229d823c9edddf43de43f240ce98e75c657468657265616c382e617269786f2e73686f
 Server: vagon.belotfelipo.co.uk
 Port: 443
 Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eee8633ba82795b727c7af91f5c3f5923b6c696e6b2e6672656574672e7077
 @ProxyMTProto
 </div>
 

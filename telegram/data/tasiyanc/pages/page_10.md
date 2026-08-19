@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/28 02:17
+📅 آخرین بروزرسانی: 1405/05/28 10:02
 
 ---
+
+## tasiyanc — post 9219
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑فقط کافیه مرغ از خیابون رد کنی و‌ پولت چند برابر کنی راحت💵👌
+</div>
 
 ## tasiyanc — post 9218
 
@@ -283,11 +289,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.16:443?security=reality&
 
 
 🚨 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑فقط کافیه مرغ از خیابون رد کنی و‌ پولت چند برابر کنی راحت💵👌
 </div>
 

@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/05/28 02:17
+📅 آخرین بروزرسانی: 1405/05/28 10:02
 
 ---
+
+## tasiyanc — post 6554
+
+<div align="center"><img src="files/post_6554_tasiyanc_6554.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون ورود B-52 به خاور میانه
+@Tasiyanproxy 
+✅
+</div>
 
 ## tasiyanc — post 6553
 
@@ -188,11 +198,5 @@ https://t.me/TasiyanProxy
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 لینک گپ تاسیان ❤️‍🔥
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6533
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[24]🚀♂️@Tasiyanc.conf
 </div>
 

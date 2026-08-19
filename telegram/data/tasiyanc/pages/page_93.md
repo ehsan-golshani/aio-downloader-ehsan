@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/05/28 02:17
+📅 آخرین بروزرسانی: 1405/05/28 10:02
 
 ---
+
+## tasiyanc — post 6503
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار رو از اینجا دنبال کنین + پروکسی
+@Tasiyanproxy 
+✅
+@Tasiyanproxy 
+✅
+@Tasiyanproxy 
+✅
+</div>
 
 ## tasiyanc — post 6502
 
@@ -219,12 +231,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تا یکم اوضاع اوکی میشه مارو فراموش میکنین؟ 🤣
-</div>
-
-## tasiyanc — post 6469
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت ارتباط با ادمین ها و تبادلات گپمون :
-https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 

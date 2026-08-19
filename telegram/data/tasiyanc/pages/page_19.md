@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/28 02:17
+📅 آخرین بروزرسانی: 1405/05/28 10:02
 
 ---
+
+## tasiyanc — post 8991
+
+<div align="center"><video src="files/post_8991_tasiyanc_8991.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8991_tasiyanc_8991.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😯 اگر هوشت بالاست 
+🗼 :
+
+
+❌ 
+👍 این ‌ویدیو‌ آموزشی رو‌ ببین و با ‌استفاده از هوش بالایی که داری پول در بیار.
+
+
+🟢 بازی خیلی حرفه ای و‌ #پولساز رو‌ از این ویدیو یاد بگیر
+
+💻لینک سایت بازی:
+
+💻 betinja.bet
+
+💻 betinja.bet
+
+🌐 کانال بونوس های رایگان a13
+@betinjabet
+</div>
 
 ## tasiyanc — post 8990
 
@@ -260,27 +287,5 @@ vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر 🖤
-</div>
-
-## tasiyanc — post 8966
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
-سرور  سرعتی پرمیوم ⚡️
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید⛓
-
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-📱 @TASIYANC ✅
 </div>
 

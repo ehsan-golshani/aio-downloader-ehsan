@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/28 02:17
+📅 آخرین بروزرسانی: 1405/05/28 10:02
 
 ---
+
+## tasiyanc — post 8439
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نود زن مسی 😂
+</div>
 
 ## tasiyanc — post 8438
 
@@ -141,15 +147,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 شبکه 13 اسرائیل: ترامپ پیامی به کشورهای خلیج ارسال کرد: «اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.» @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8416
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شبکه 13 اسرائیل: ترامپ پیامی به کشورهای خلیج ارسال کرد:
-
-«اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.»
-
-@TASIYANC ✅
 </div>
 

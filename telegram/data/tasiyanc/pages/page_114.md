@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/28 02:17
+📅 آخرین بروزرسانی: 1405/05/28 10:02
 
 ---
+
+## tasiyanc — post 5953
+
+<div align="center"><img src="files/post_5953_tasiyanc_5953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد ۷ ثانیه 😮‍💨
+</div>
 
 ## tasiyanc — post 5952
 
@@ -167,11 +175,5 @@ Proxy 3
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 زاپاس تاسیان ✅ حتما جوین شوید
 https://t.me/TasiyanOwner
-</div>
-
-## tasiyanc — post 5929
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Wifi نت خانگی⚡.npvt
 </div>
 

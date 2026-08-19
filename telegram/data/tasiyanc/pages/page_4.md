@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/28 02:17
+📅 آخرین بروزرسانی: 1405/05/28 10:02
 
 ---
+
+## tasiyanc — post 9373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت چطوره؟
+</div>
 
 ## tasiyanc — post 9372
 
@@ -241,15 +247,5 @@ g25
 رهایت نکردند
 مگر بعد از آن‌که
 نور و روشنایی را به تو باز گرداندند.
-</div>
-
-## tasiyanc — post 9351
-
-<div align="center"><img src="files/post_9351_tasiyanc_9351.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سرزمین های جدا شده از ایران عزیز در ۵۰۰ سال گذشته !
-
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/28 02:17
+📅 آخرین بروزرسانی: 1405/05/28 10:02
 
 ---
+
+## tasiyanc — post 9163
+
+<div align="center"><img src="files/post_9163_tasiyanc_9163.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی کاپلی 🆕
+
+"Girl with White Bow"
+
+Prompt 🤖🤖
+
+> Ultra-realistic close-up portrait of a beautiful young woman indoors during golden hour. She is facing the camera with a slight head tilt and a soft, natural expression. Warm sunlight enters through a nearby window, casting dramatic diagonal shadows across one side of her face while illuminating the other with rich golden light. She has long dark brown hair styled half-up in a high ponytail, secured with a large sheer white organza bow. A few loose wispy strands fall naturally across her forehead. Thick, well-defined dark eyebrows, hazel-brown eyes with shimmering champagne eyeshadow, long curled eyelashes, glowing skin with subtle blush and natural highlights, soft matte pink lips, and minimal elegant makeup. She wears large silver hoop earrings and a loose chocolate-brown button-up linen shirt with the collar slightly open. Neutral light gray background, cinematic golden-hour lighting, shallow depth of field, ultra-detailed skin texture, realistic hair strands, soft shadows, editorial fashion photography, DSLR, 85mm lens, f/1.8, natural color grading, photorealistic, ultra high resolution, 8K.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9162
 
@@ -277,11 +296,5 @@ A high-contrast, moody black and white portrait photograph. A handsome young man
 شعله های آتش نفتکش در سواحل عمان که مورد اصابت موشک قرار گرفته
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 یه نفت کش تو تنگه هرمز میخواست راهشو کج کنه از مسیر آمریکا (عمان) رد شه که با ۴ موشک مورد اصابت قرار گرفت
 </div>
 

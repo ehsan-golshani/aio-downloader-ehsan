@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/28 02:17
+📅 آخرین بروزرسانی: 1405/05/28 10:02
 
 ---
+
+## tasiyanc — post 9247
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
 
 ## tasiyanc — post 9246
 
@@ -250,11 +258,5 @@ Prompt 🤖🤖
 Create a premium cinematic infographic poster using the uploaded photo as the exact reference. Preserve facial identity, face shape, eyes, expression, hairstyle, skin tone and overall likeness. Analyze ONLY visible features (face, posture, style, presence). Compare all historically documented Achaemenid court roles and select the best visual match with historical accuracy. Transform the same person into that Achaemenid figure with authentic clothing, jewelry, symbols and objects in a matching setting (Persepolis, Apadana, Susa, Pasargadae, palace, treasury, royal garden). Style: ultra-realistic, museum-quality, Persian imperial aesthetic, dramatic lighting, 8K. Create a luxury infographic layout with Persian typography. Add: "اگر در دربار هخامنشی بودی، جایگاهت این بود..." + role + title + historical fact + 3 visual analysis bullets + why this role (2–4 lines) + 4 fictional court ratings (%) + 2 original Ferdowsi-inspired epic Persian verses (not quoted). Premium movie-poster design.
 
 @TASIYANC 🔋
-</div>
-
-## tasiyanc — post 9219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑فقط کافیه مرغ از خیابون رد کنی و‌ پولت چند برابر کنی راحت💵👌
 </div>
 

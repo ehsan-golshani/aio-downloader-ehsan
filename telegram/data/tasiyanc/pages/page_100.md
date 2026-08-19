@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/28 02:17
+📅 آخرین بروزرسانی: 1405/05/28 10:02
 
 ---
+
+## tasiyanc — post 6314
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6311
 
@@ -200,12 +211,5 @@ WireGuard • OpenVPN • Xray (VLESS / Reality) • V2Ray • Npv
 🔹دانلود DefyxVpn  iOS  🌐
 
 Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6288
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا دقایقی دیگر VPN معرفی میکنم
-از امروز مرتب تحقیق میکنم درباره پروژه ها و تیم توسعه دهنده فیلترشکنها ، مناسب هاشو تست میکنم براتون معرفی میکنم
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/28 02:17
+📅 آخرین بروزرسانی: 1405/05/28 10:02
 
 ---
+
+## tasiyanc — post 8315
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این ربات بصورت ناشناس ساخته بودم مجبور کردن اطلاع رسانی کنیم پست ها پاک میشه خواستم بگم جریانو فقط ❤️
+</div>
 
 ## tasiyanc — post 8314
 
@@ -163,18 +169,5 @@
 حالا فهمیدید وطن فروش های واقعی کیان؟
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8293
-
-<div align="center"><img src="files/post_8293_tasiyanc_8293.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری
-
-سنتکام از آغاز موج جدید حملات به ایران برای هفتمین شب متوالی خبر داد
-
-
-@Tasiyanc ✅
 </div>
 
