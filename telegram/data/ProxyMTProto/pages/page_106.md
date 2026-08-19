@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/28 12:36
+📅 آخرین بروزرسانی: 1405/05/28 13:19
 
 ---
+
+## ProxyMTProto — post 48171
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: portal.balalaika.click
+Port: 443
+Secret: ee538213df0d0186a4a676dea4ed2ee1d6706f7274616c2e62616c616c61696b612e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48170
 
@@ -172,15 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: assets.prx.today
 Port: 443
 Secret: ee595ef26a3a0072f97dadb2be7007dbac6173736574732e7072782e746f646179
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48151
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: iran.protocolsix.info
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
