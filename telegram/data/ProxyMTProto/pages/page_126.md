@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/05/28 18:25
+📅 آخرین بروزرسانی: 1405/05/28 19:36
 
 ---
+
+## ProxyMTProto — post 47785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7980
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47784
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 186.246.21.131
+Port: 443
+Secret: ee112a55bdf58d4ffd21bc53f7947e5769617669746f2e727
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47783
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: trump.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47782
 
@@ -159,33 +186,6 @@ Secret: ee53e5dc51c0bc1af6f2e26c8462f60f2f7234332e70726f787974672e7370616365
 Server: ether.nolags.pw
 Port: 443
 Secret: dd86e17c6a253f59eac4b4909095ba3019
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47765
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: FgMBAgABAAH8AxOG4kw63Q
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy.dreamerlook.ru
-Port: 444
-Secret: ee00000000000000000000000000000000766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47763
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 45.150.110.32
-Port: 443
-Secret: ee1c88677acf461e09e68f4ff0cef5724a617669746f2e7275
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/28 18:25
+📅 آخرین بروزرسانی: 1405/05/28 19:36
 
 ---
+
+## ProxyMTProto — post 49754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee0c002a9452cc7922f86bf4bfaa6b1a8d6164342e666c757876706e67756172642e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 65.21.205.29
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sync.savelyev.click
+Port: 443
+Secret: ee6b56378bbf49f5bd8552fa1e9d63bab773796e632e736176656c7965762e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49751
 
@@ -154,33 +181,6 @@ Secret: eeee525b778775d1c3b1e2beb8af08e2017777772e636c6f7564666c6172652e636f6d
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49734
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lazeyka-4.getvelora.space
-Port: 443
-Secret: ee8cb9b7ded45502a4f153299a621a9d3d6f7a6f6e2e7275
 @ProxyMTProto
 </div>
 
