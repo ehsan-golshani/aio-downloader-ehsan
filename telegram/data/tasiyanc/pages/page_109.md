@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/05/28 10:02
+📅 آخرین بروزرسانی: 1405/05/28 12:38
 
 ---
+
+## tasiyanc — post 6096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+2سرور  سرعتی تست شده رو سامانتل بقیه هم تست کنین🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#تب
+
+⚡️ همونجوری که میدونید کانفیگ فریا بسیار ضعیفن، من خودم جهت مصرف شخصی از اینجا کانفیگ تهیه میکنم با قیمت ارزون و کیفیت بالا گفتم برا شماهم بذارم نیازتون میشه
+
+چنلشون : @nacconfig ⭐️
+ایدی فروش:@nac_config ⭐️
+</div>
+
+## tasiyanc — post 6093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Ray سامانتل
+vless://1b9e301d-cecd-4eb1-8b36-eef811c2696d@de1.vitok.cc:443?security=reality&encryption=none&pbk=zxzgWvYs4pMN3fEduth1soI1yMZDkynb1bBM4tj85EE&headerType=none&type=tcp&sni=max.ru&sid=5e841fab#%F0%9F%87%A9%F0%9F%87%AA%F0%9F%9A%80%20%40Tasiyanc%20%D8%B3%D8%A7%D9%85%D8%A7%D9%86%D8%AA%D9%84
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6092
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان کانفیگ اوپن ورداشتم یه تغییراتی میدم بعدش میفرستم ❤️
+</div>
 
 ## tasiyanc — post 6088
 
@@ -151,66 +192,5 @@ FastVip⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FastVip⚡.npvt
-</div>
-
-## tasiyanc — post 6068
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-6سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
-✅
-
-دانلود  NPV tunnel  
-🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Hot Servers 🔥🌶️.npvt
-</div>
-
-## tasiyanc — post 6062
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-4سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6061
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند خط دلی:
-دوستان راجب اتفاقی که افتاد یه توضیح واجب شد به شما اعضای عزیزدلم بدم
-
-ببینید عزیزان من
-من هرگز هرگز نه اهل توهین هستم نه اهل بی ادبی نه حتی اینکه خدایی نکرده بخوام آبروی کسی رو ببرم یا دل کسی رو آزرده بکنم
-
-این شخصی که دیدید آی دیش رو گذاشتیم حدود یک ساعت تموم اومد به اعضای چنل و گروه مون فحاشی کرد و همه رو ناراحت کرد
-بچه های گروه شاهد بودن چه حرفای زشتی به خانمای گروه زد و بعدش اومد دایرکت چنل شروع به فحاشی کرد بعد اینکه بن شد از گپ
-
-اگه به من میگفت هیچوقت هیچوقت شاید جوابش رو نمیدادم و فقط از چنل و گروه بن میکردمش
-ولی وقتی به اعضای من توهین میکنه باید جلوش وایسم
-چون شما مثل خانواده من هستید و من اجازه نمیدم هیچکس هیچکس به خانواده عزیز من توهین بکنه
-
-دوستتون دارم❤️
 </div>
 

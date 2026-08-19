@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/28 10:02
+📅 آخرین بروزرسانی: 1405/05/28 12:38
 
 ---
+
+## tasiyanc — post 7968
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+سه سرور سرعتی‌ تست شده💥
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال ⛓
+
+مناسب دانلود ⬇️ وب‌گردی 🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7967
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 بیانیه صفحه رسمی لیندسی گراهام: او بر اثر یه بیماری ناگهانی و کوتاه مدت درگذشت! تسلیت میگیم به خونوادش. @Tasiyanproxy ✅
+</div>
+
+## tasiyanc — post 7966
+
+<div align="center"><img src="files/post_7966_tasiyanc_7966.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤 در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره…
+</div>
+
+## tasiyanc — post 7965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤
+
+در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره بسیار سخت را دارند.
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 7960
 
@@ -173,69 +217,6 @@ Change the background behind those two people with white curtains. With hugging 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تو کدومی؟خودم 15
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7930
-
-<div align="center"><img src="files/post_7930_tasiyanc_7930.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه سایت کاربردی بهتون معرفی کنم:
-
-اگر یه خونه خالی یا حتی یه اتاق خالی دارید
-و نمیدونی چجوری دیزاینش کنید
-وارد این وبسایت خارجی بشید:
-home.by.me
-یه فضایی در اختیارتون میذاره که تصور می‌کنید
-الان وارد نرم‌افزارهای تخصصی دیزاین شدید.
-
-اول از همه ابعاد اتاق، دیوارهاش و به‌صورت کلی متراژ رو مشخص کنید، بعدش شروع کن به دیزاینش با محصولاتی که سایت در اختیارت می‌ذاره؛ مثل مبلمان، میز و
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7928
-
-<div align="center"><img src="files/post_7928_tasiyanc_7928.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام داداش به رفقا بگو استرس نکشن، دینی رو میشه تو یک ساعت
-جمع کرد😹
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد
-
-مناسب دانلود⬇️ &  گیم 🎮
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe ⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7924
-
-<div align="center"><img src="files/post_7924_tasiyanc_7924.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز روز جهانی کبابه😍
-
-بفرس برا رفیقت برات بخره☺️
 
 @Tasiyanc✅
 </div>

@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/28 10:02
+📅 آخرین بروزرسانی: 1405/05/28 12:38
 
 ---
+
+## tasiyanc — post 5705
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنارو 😐
+</div>
+
+## tasiyanc — post 5704
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 [40 ].npvt
+</div>
+
+## tasiyanc — post 5703
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈ تمام اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5701
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈ سرور 🇫🇮 vip تست شده روی همراه بقیه اپراتورا تست کنن⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5700
 
@@ -154,44 +190,6 @@ vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=
 📱 اختصاصی تاسیان  نامحدود📱
 
 ⛈سرور vip اتریش گاد همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5680
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان برای همراه اول 📶
-
-🔑تست شده و متصل ✅
-
-💙 @Tasiyanc 😎
-</div>
-
-## tasiyanc — post 5679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان برا دوستانی ک مشکل ورود به گیم دارن📱
-
-⛈سرور vip آلمان - مونیخ همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5678
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور بعدی مخصوص گیمرا
-</div>
-
-## tasiyanc — post 5677
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود📱
-
-⛈سرور vip هلند و آمریکا همه اپراتورا⛈ 
 
 
 🚀 @Tasiyanc ✅

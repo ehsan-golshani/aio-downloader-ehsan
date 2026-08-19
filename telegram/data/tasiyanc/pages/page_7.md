@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/28 10:02
+📅 آخرین بروزرسانی: 1405/05/28 12:38
 
 ---
+
+## tasiyanc — post 9304
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ : تورم تو ایران ۳۵۰ درصده،۸۲ درصد از موشکاشونم نابود کردیم، ۲۲۰ تا هواپیما داشتن همه رو نابود کردیم، سه گروه اول از رهبرانشونم ترور کردیم.
+
+@tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از فوبیاتون بگید .... از چی میترسید؟
+</div>
+
+## tasiyanc — post 9302
+
+<div align="center"><img src="files/post_9302_tasiyanc_9302.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کد های مخفی ChatGpt که بکارتون میاد🤖
+
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9301
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+
+آموزش اتصال روی اندروید⚡️
+
+آموزش اتصال روی ویندوز  ⚡️
+
+دانلود برنامه برای ویندوز 💻
+
+@TASIYANC ☑️
+</div>
 
 ## tasiyanc — post 9300
 
@@ -168,12 +207,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9279
 
 ## tasiyanc — post 9278
-
-## tasiyanc — post 9276
-
-## tasiyanc — post 9275
-
-## tasiyanc — post 9274
-
-## tasiyanc — post 9273
 
