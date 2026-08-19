@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/28 15:02
+📅 آخرین بروزرسانی: 1405/05/28 15:48
 
 ---
+
+## tasiyanc — post 5708
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجموعه تاسیان تلاش خواهد کرد بصورت رایگان بهترین سرور ها و بهترین کانفیگارو براتون ارائه بده تا بصورت امن در این فضا فعالیت خوبی داشته باشید نه اپ های مخرب و vpn های نا امنی ک اطلاعات شمارو تو خطر میندازه
+</div>
 
 ## tasiyanc — post 5707
 
@@ -182,12 +188,5 @@ vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ ویتوری یکی دوتا بزارم بعدش بریم سمت نپستر
-</div>
-
-## tasiyanc — post 5685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-27 k 🥹🫂
-ممنون که با تاسیان همراهید
 </div>
 

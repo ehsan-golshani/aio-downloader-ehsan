@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/28 15:02
+📅 آخرین بروزرسانی: 1405/05/28 15:48
 
 ---
+
+## tasiyanc — post 6019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+راجب jumjump اینو بگم کی کلی از دوستان میگن حسابشون از دسترس خارج شده ، ربطی به آیپی نداره، من هرروز با ۱۰ تا آیپی میرم اینستا و بقیه ، چرا فقط هرکی این vpn استفاده کرده زده اکانتشو بگا داده؟ بقیه VPN ها چنین چیزی نشده گزارشی نیست بهرحال به حرف هرچنلی گوش…
+</div>
 
 ## tasiyanc — post 6018
 
@@ -176,12 +182,5 @@ VİP 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرور جدید با متد جدید ساعت ۸
-</div>
-
-## tasiyanc — post 5988
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حتی ماه هم داخل خرداد مودی شده 😂
-خودمم خردادی ام ❤️❤️
 </div>
 

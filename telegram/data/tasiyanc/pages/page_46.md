@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/28 15:02
+📅 آخرین بروزرسانی: 1405/05/28 15:48
 
 ---
+
+## tasiyanc — post 8225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 پیت هگست: کنترل تنگه هرمز دست ایران نیست
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8224
 
@@ -162,17 +170,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 سازمان ملل دیگه خیلییییییی نگران شدیم
-</div>
-
-## tasiyanc — post 8203
-
-<div align="center"><img src="files/post_8203_tasiyanc_8203.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨وضعیت آسمان ایران هم اکنون
-
-@Tasiyanc 
-⭐️
 </div>
 

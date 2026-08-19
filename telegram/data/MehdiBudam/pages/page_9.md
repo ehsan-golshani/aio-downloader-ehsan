@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/28 15:01
+📅 آخرین بروزرسانی: 1405/05/28 15:47
 
 ---
+
+## MehdiBudam — post 8112
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor4
+
+
+slipnet-enc://AYknjJISbu5ZqLWiq2RNE+G+gbxtV75kKeAJTgfzWUyOMCdZiVanSICtP3YDVEr0yoDDb7ztSuVeLbSdb2RXGWfFS3nMRaHltnQi8BwWJQyYDCOniRwIaKvtXOhz7DX9yYYKLUlOxjUN9TANDJxLo4ZvpyZKLRiv22Ye8+6n6gEkOuXi8OWj7+gBx1OnlvWzoKU91ANpw8nWou6AXULwXUQ19O02tI2qhFYo+CcHcPODvscmkaT39CU66FxYLc2nlDm6rs8tB6bExCPRyF7BkzmrfeNk5FfghPDemGbv8TmupEuLElMt7DZHwozMAjtDrz+yfUZdhNtxHIXwNcSFeQJFWtQEkgoI4g57xyYWWPBA5alZra/VDjZV/UDWRXKry+u3dul96Lpy0IZBbnaz3w00Lja9ExpCSVzb1fK4b6QXe9E4JfuALd6dEgu5W2++FfSW5L0omuUrl21TVGyquh63sVwFy7CDlRrgHK9wATUpDkFStH16bNqruALilGxYdDMa3s3NRz9elKGuKykkslBZRfKcsHGelJ1zOmZEioo59yB9JTKQnUKmz1kFqN3jRB9DTNzyLu93/qPWIssik/IOqJtMt0uX5TfXvK762j1gsQJcxPOFGdKyWiGbIZNbKUDQDfxn7rLH+5Tl8Kur0XWXEBxmRlHKH2U/+e/5krH74ZcHuuLXBKLrcU69mUKmdkc/6KCY98Amnl/79jwDldirI0yr2IH9VBQAZUcqS95s
+
+﻿
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8111
 
@@ -140,11 +152,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 در مورد متد Tor بعضیا که میگید وصل نمیشه یا تا ۱۴ درصد میره وقتی از رباتش میخواید Bridge بگیرید هم Web Tunnel بگیرید و هم obfs4 و وقتی از تنظیمات بصورت دستی وارد میکنید با یه فاصله بینشون هر دو رو وارد کنید در این حالت هرکدوم کار کنه وصل میشه.
-</div>
-
-## MehdiBudam — post 8090
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود و تشکر از همراهان همیشگی SlipNet که در دوره قطع و اختلال اینترنت همراهی کردند با توجه به وضعیت فعلی شبکه، می‌تونید از روش‌های زیر برای برقراری اتصال پایدار استفاده کنید: 🟢 ۱. اتصال از طریق Tor (نسخه Full - رایگان) (ویژه کاربران دارای دسترسی به اینترنت)…
 </div>
 

@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/28 15:02
+📅 آخرین بروزرسانی: 1405/05/28 15:48
 
 ---
+
+## tasiyanc — post 8367
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌انفجار در سنندج
+
+۴انفجار در بندر عباس
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8366
 
@@ -225,11 +235,5 @@ Multi Location ⚡ Fast.npvt
 پروکسی | پروکسی | پروکسی | پروکسی
 
 @Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
 </div>
 

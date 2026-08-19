@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/28 15:02
+📅 آخرین بروزرسانی: 1405/05/28 15:48
 
 ---
+
+## tasiyanc — post 9307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر عشقا
+</div>
 
 ## tasiyanc — post 9306
 
@@ -238,6 +244,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9283
 
 ## tasiyanc — post 9281
-
-## tasiyanc — post 9280
 

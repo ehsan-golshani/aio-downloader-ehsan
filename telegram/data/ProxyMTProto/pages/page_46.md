@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/28 15:00
+📅 آخرین بروزرسانی: 1405/05/28 15:46
 
 ---
+
+## ProxyMTProto — post 49384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49383
 
@@ -172,15 +181,6 @@ Secret: ee42c68d1f568a3ce918f926dd7d1283c66d6564626c6f636b2e666974
 Server: webhook.vingardium.co.uk.
 Port: 443
 Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49364
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: update.femboylover.org
-Port: 443
-Secret: ee7f302883cf187bb6f9e1906f5fe5f3a57777772e6d6963726f736f66742e636f6d
 @ProxyMTProto
 </div>
 

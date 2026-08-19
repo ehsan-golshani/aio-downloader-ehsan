@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/28 15:00
+📅 آخرین بروزرسانی: 1405/05/28 15:46
 
 ---
+
+## ProxyMTProto — post 48878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gate.klyuch1k.org
+Port: 443
+Secret: eeae941a76ec4acf04faabaf8a24571080676174652e6b6c79756368316b2e6f7267
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48877
 
@@ -172,15 +181,6 @@ Secret: eee2c4f26e0246dea5eb84f95c325ea46062343233353730312e657468657265616c7670
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48858
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: swag.caxero.ru
-Port: 443
-Secret: 8f3c7a1d4b92e6c51a7d0fb843c2e91f
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/28 15:02
+📅 آخرین بروزرسانی: 1405/05/28 15:48
 
 ---
+
+## tasiyanc — post 9055
+
+<div align="center"><img src="files/post_9055_tasiyanc_9055.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔱 @Tasiyanc - R²all.hc
+</div>
 
 ## tasiyanc — post 9054
 
@@ -229,21 +237,5 @@
 🔴کاهش پهنای باند هم اکنون در سراسر کشور
 
 پی‌نوشت : اختلاله و درست میشه نرید پول بدید یه وقت
-</div>
-
-## tasiyanc — post 9022
-
-<div align="center"><img src="files/post_9022_tasiyanc_9022.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔠هشدار
-
-به همین راحتی از همین عکس‌هایی که می‌ذارید توی سوشال می‌تونن هویتتون رو جعل کنن.
-تازه ویدیو هم ازش می‌تونن بسازن که چالش سایت‌هایی که با ویدیو تایید هویت می‌کنن رو هم حل کنن!
-
-حالا هی سلفی بذارید، هی برید تو این اپ‌هایی که ترند می‌شن عکس آپلود کنید سرتون رو بذاره جای فلان بازیگر.
-
-
-⚡️ @TASIYANC ⭐️
 </div>
 
