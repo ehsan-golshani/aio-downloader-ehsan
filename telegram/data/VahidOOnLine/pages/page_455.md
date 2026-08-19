@@ -1,8 +1,43 @@
 # آرشیو کانال VahidOOnLine - صفحه 455
 
-📅 آخرین بروزرسانی: 1405/05/28 21:24
+📅 آخرین بروزرسانی: 1405/05/28 21:46
 
 ---
+
+## VahidOOnLine — post 244831
+
+<div align="center"><img src="files/post_244831_VahidOOnLine_244831.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صدا و سیما به نقل از یک مقام ارشد جمهوری اسلامی اعلام کرد اظهارات ترامپ درباره تماس او با مقامات ایرانی دروغ است.
+این مقام افزود: این اظهارات پوششی برای فرار از جنگ علیه جمهوری اسلامی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244830
+
+<div align="center"><img src="files/post_244830_VahidOOnLine_244830.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ صداوسیما بامداد پنجشنبه ۲۱ خردادماه به نقل از یک مقام ارشد گزارش فاکس‌نیوز مبنی بر اینکه مقامات تهران با دونالد ترامپ تماس گرفته و از او خواسته‌اند حمله‌ها متوقف شود را تکذیب کرد و آن را «کذب محض» خواند.
+این واکنش پس از آن مطرح شد که فاکس‌نیوز به نقل از دونالد ترامپ، رئیس‌جمهوری آمریکا، گزارش داد او به‌طور مستقیم با مقام‌های جمهوری اسلامی گفت‌وگو کرده و آنها از ترامپ خواسته‌اند حملات آمریکا متوقف شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244829
+
+<div align="center"><img src="files/post_244829_VahidOOnLine_244829.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️فاکس‌نیوز به نقل از ترامپ گزارش داد که از ایران با او تماس گرفته‌اند و خواستار توقف حمله‌ها شده‌اند. خبرنگار فاکس گفت که رئیس‌جموری آمریکا به او گفته است که حمله‌ها به زودی متوقف خواهد شد. پیش‌تر اکسیوس گزارش داده بود که احتمالا حمله‌ها شدید اما کوتاه‌مدت خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244828
 
@@ -215,41 +250,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فشار بر صادرات نفت، شکاف‌های درونی جمهوری اسلامی را آشکارتر کرده است. رژیمی که برای حفظ نیروهای سرکوب، شبکه‌های نیابتی و نظام وفاداری به درآمد نفتی نیاز دارد، اکنون میان مذاکره برای تنفس اقتصادی و تسلیم گرفتار شده است.
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244797
-
-<div align="center"><img src="files/post_244797_VahidOOnLine_244797.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری دانشجو اعلام کرد منابع خبری از هدف قرار گرفتن یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه خبر دادند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244796
-
-<div align="center"><img src="files/post_244796_VahidOOnLine_244796.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌علاء‌الدین بروجردی، عضو کمسیون امنیت ملی مجلس در مصاحبه با شبکه سه تلویزیون جمهوری اسلامی گفت: برای آمریکا قبول این حقیقت سخت است که امروز در دنیا ۴ قدرت دیگر، از جمله جمهوری اسلامی، روسیه و چین، وجود دارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244795
-
-<div align="center"><img src="files/post_244795_VahidOOnLine_244795.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️بامداد پنجشنبه ۲۱ خردادماه و در پی اعلام فرماندهی مرکزی ایالات متحده (سنتکام) مبنی بر آغاز دور جدیدی از حملات علیه چندین هدف در ایران، قیمت نفت در بازارهای جهانی افزایش یافت.
-
-بهای نفت خام برنت با رشد ۳.۸۸ درصدی به ۹۵ دلار در هر بشکه رسید. افزایش قیمت نفت در حالی رخ داده است که تشدید تنش‌های نظامی میان آمریکا و جمهوری اسلامی نگرانی‌ها درباره امنیت عرضه انرژی در منطقه را افزایش داده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
