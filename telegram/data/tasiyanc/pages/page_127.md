@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/05/28 16:52
+📅 آخرین بروزرسانی: 1405/05/28 18:27
 
 ---
+
+## tasiyanc — post 5632
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور تست شده همه اپراتورا⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5631
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمام سرورا با همراه اول & وای‌فای تست میشن
+</div>
+
+## tasiyanc — post 5629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈۲سرور تست شده همه اپراتورا⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5628
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرورای وای‌فای ک بالا گذاشتم هنوز وصله✅
+</div>
 
 ## tasiyanc — post 5627
 
@@ -129,30 +168,6 @@
 </div>
 
 ## tasiyanc — post 5601
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
-</div>
-
-## tasiyanc — post 5600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥹💋 fadatooooooooooooonnn
-</div>
-
-## tasiyanc — post 5599
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خیلی خوبن🥹
-</div>
-
-## tasiyanc — post 5598
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من فقط با نپستر این چنل وصلم
-</div>
-
-## tasiyanc — post 5597
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فقط ترکیبی بزار من با ترکیب هات همیشه وصلم

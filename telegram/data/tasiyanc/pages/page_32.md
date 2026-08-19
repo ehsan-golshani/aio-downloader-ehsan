@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/28 16:52
+📅 آخرین بروزرسانی: 1405/05/28 18:27
 
 ---
+
+## tasiyanc — post 8658
+
+<div align="center"><video src="files/post_8658_tasiyanc_8658.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8658_tasiyanc_8658.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹ویدیو دیده نشده از شخم زدن بغداد توسط عباس دوران خلبان ایرانی
+وقتی صدام اعلام کرد که هر کلاغ ایرانی بتونه به بغداد حمله کنه بودجه یک سال
+نیروی هوایی را پاداش می دهم... ساعتی از این خبر نگذشته بود که دلیر مردان ایران اهداف مهمی را در عمق خاک عراق مورد هدف قرار دادند در این عملیات خلبانان ایرانی موفق شدند پالایشگاه الدوره را با بمب 82
+بمباران کنند
+@TASIYANC 💠
+</div>
+
+## tasiyanc — post 8657
+
+## tasiyanc — post 8656
+
+<div align="center"><video src="files/post_8656_tasiyanc_8656.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8656_tasiyanc_8656.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یاد کنیم از رقص F35 ارتش اسرائیل در آسمان کرج مربوط به جنگ ۳۹ روزه
+
+@TASIYANC 💠
+</div>
+
+## tasiyanc — post 8655
+
+<div align="center"><video src="files/post_8655_tasiyanc_8655.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8655_tasiyanc_8655.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قابل توجه ؛ ناوگان هفتم دریایی نیروهای ایالات متحده آمریکا به تنها ارتش چین را می‌بلعد ! ناوگان هفتم نیروی دریایی آمریکا بزرگترین ناوگان نظامی تهاجمی جهان است که
+بخونید 👇
+
+از حداقل ۷۰ کشتی و زیردریایی، ۱۵۰ هواپیما و ۲۰ هزار نیرو برای حضور و واکنش سریع مقابل چین در شرق آسیا مستقر شده است. منطقه عملیاتی آن یعنی آسیا و اقیانوسیه، ۱۲۴ میلیون کیلومتر مربع، ۳۶ کشور و نیمی از جمعیت جهان را پوشش میدهد. رهبری این واحد دریایی را ناو هواپیمابر رونالد ریگان برعهده دارد. مقر این ناوگان یوکوسوکای ژاپن است. ناوگان هفتم آمریکا یک نیروی پیشرو است که از نظر تجربه رزمی، مهارت خدمه، و ادغام فناوریهای پیشرفته در کشتیها و زیردریاییهایش، برتری کیفیتی قابل توجهی دارد که میتواند خسارات سهمگینی به نیروی دریایی چین وارد کند ایران جای خود داره 🤣
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8654
 
@@ -177,57 +220,5 @@ Fact @TASIYANC ✅
 🚨 شلیك موشك به کویت
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ : در این دو جنگ ۱۸ سرباز از دست دادیم
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8623
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ترامپ:
-ما روابط بسیار خوبی با ایران داریم. آنها به دنبال یک توافق هستند، اما من می‌گویم که آنها هنوز آماده نیستند. آنها باید بیشتر مجازات شوند. آنها هنوز هم اهداف شومی در مورد برنامه هسته‌ای خود دارند، و آنها هرگز نباید به سلاح هسته‌ای دست یابند.
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8622
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ درباره جنگ ایران:
-
-ما می‌خواهیم به این جنگ پایان دهیم، اما می‌خواهیم به شیوه درست آن را تمام کنیم
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت
-🔐
-
-سرور سرعتی 
-⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
 </div>
 

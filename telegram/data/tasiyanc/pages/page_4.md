@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/28 16:52
+📅 آخرین بروزرسانی: 1405/05/28 18:27
 
 ---
+
+## tasiyanc — post 9391
+
+<div align="center"><img src="files/post_9391_tasiyanc_9391.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری، مارجوری تیلور نماینده سابق کنگره آمریکا:
+
+آمریکا توی جلسات راهبردی خودش، درباره استفاده از بمب اتم علیه ایران صحبت میکنه! آره این موضوع کاملا واقعیه و حدس نمیزنم!
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ اسم کانال با فونت معمولی تنظیم شد
+
+𝐓 𝐀 𝐒 𝐈 𝐘 𝐀 𝐍 👉 Tasiyan | تاسیان
+
+بخاطر برخی الگوریتم های موجود تلگرام فونت معمولی گذاشتیم
+
+« همراه ما باشید ❤️ »
+</div>
+
+## tasiyanc — post 9388
+
+<div align="center"><video src="files/post_9388_tasiyanc_9388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9388_tasiyanc_9388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمسخر جوانان ایرانی توسط یک عراقی مادربخطا ک واسه تفریح اومدن ایران
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اظهارات مجری صداسیما ریحانه قاسمی زاده : جنوب ایران فدای جنوب لبنان چون اینا همونایی ان که ۹ اسفند شادی کردن @Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9384
 
@@ -187,60 +229,5 @@ sa25
 ‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
 https://t.me/+F1CivZlkxrgzMTM0
 https://t.me/+F1CivZlkxrgzMTM0
-</div>
-
-## tasiyanc — post 9364
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 روزنامه نگار آلمانی: آیا شما مامور اسرائیل هستید؟
-
-شاهزاده رضا پهلوی : نه اما پدر بزرگ من به یهودیان پناه داد زمانی که شما آنها را در کوره ها می سوزاندید.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9363
-
-<div align="center"><img src="files/post_9363_tasiyanc_9363.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت پرمیوم جدید 🆕
-
-" Cyberpunk Redline Portrait "
-
-تبدیل به پرامپت دخترانه کافیه woman رو جایگزین man کنید
-
-Prompt 🤖🤖
-
-Cinematic studio portrait of a young man with messy textured hair, wearing a black turtleneck, centered composition, dark minimal background, dramatic low-key lighting, a horizontal red neon light strip cutting across his eyes, strong contrast shadows covering lower face, intense gaze, moody atmosphere, cyberpunk aesthetic, ultra-realistic, sharp focus, 85mm lens, shallow depth of field, high detail, editorial photography style.
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9362
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فاکس نیوز: تفاهم‌نامه آتش بس ۶٠ روزه بین ایران ، آمریکا فردا تمام میشود
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9361
-
-<div align="center"><img src="files/post_9361_tasiyanc_9361.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت پرمیوم تاسیان 🆕
-
-اسم : " Golden Hour Storyboard 🌅″
-
-آموزش استفاده 👉
-
-دریافت پرامپت👉
-
-@TASIYANC ⭐️
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 121
 
-📅 آخرین بروزرسانی: 1405/05/28 17:40
+📅 آخرین بروزرسانی: 1405/05/28 18:25
 
 ---
+
+## ProxyMTProto — post 47882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47881
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s01.neo-trading.org
+Port: 443
+Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47880
 
@@ -163,24 +181,6 @@ Secret: eebd8b54149182b64d403ef9c5141fc3ee736f6e69632e717569636b726f757465617070
 Server: rocket.flowaccess.site
 Port: 443
 Secret: ee03d3d1b9bda832390669bc06167720d8726f636b65742e666c6f776163636573732e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47862
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: second.nolags.pw
-Port: 443
-Secret: ddf4fa8f92de56cde758429546586eaac8
 @ProxyMTProto
 </div>
 
