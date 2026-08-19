@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 479
 
-📅 آخرین بروزرسانی: 1405/05/28 03:17
+📅 آخرین بروزرسانی: 1405/05/28 03:38
 
 ---
+
+## VahidOOnLine — post 243947
+
+<div align="center"><video src="files/post_243947_VahidOOnLine_243947.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243947_VahidOOnLine_243947.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان استان فارس همزمان با سایر استان‌ها مقابل اداره‌کل آموزش و پرورش در شیراز تجمع کرده و خواستار لغو امتحانات حضوری و تاثیر معدل پایه یازدهم در کنکور شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243946
 
@@ -281,19 +294,6 @@
 نزدیکان خانواده جاویدنام رضا قلی‌پور، از معترضان کشته‌شده در انقلاب دی‌ماه، گفتند که مادر این شهروند به سرطان مبتلاست و این روزها «تنها امیدش این است که صدای فرزندش خاموش نشود و عکسش دیده شود.»
 
 این فرد گفت که پدر این جاویدنام نیز بیمار است. رضا قلی‌پور در مشهد و روز ۱۸ دی از سوی پاسگاه در ناحیه گردن هدف گلوله ماموران حکومت قرار گرفت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243927
-
-<div align="center"><video src="files/post_243927_VahidOOnLine_243927.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243927_VahidOOnLine_243927.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان در استان تهران با تجمع مقابل شورای عالی انقلاب فرهنگی علیه تصمیمات کنکوری این نهاد شعار دادند: «عدالت، آموزش، حق مسلم ماست.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

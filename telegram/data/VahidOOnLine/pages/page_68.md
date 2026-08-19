@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/28 03:17
+📅 آخرین بروزرسانی: 1405/05/28 03:38
 
 ---
+
+## VahidOOnLine — post 254211
+
+<div align="center"><img src="files/post_254211_VahidOOnLine_254211.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ولایتی: نیروهای خارجی باید منطقه را ترک کنند
+
+♦️علی‌اکبر ولایتی، مشاور رهبر جمهوری اسلامی در امور بین‌الملل با انتشار پیامی در اکس گفت «پایداری نیروهای مسلح، ایستادگی مردم ایران و شجاعت محور مقاومت» در شکل‌گیری تحولات جاری در منطقه نقش داشته است.
+
+ولایتی همچنین مدعی شد شکست آمریکا و اسرائیل این باور را تقویت کرده است که «نیروهای خارجی، عامل اصلی ناامنی» در منطقه هستند و باید منطقه را ترک کنند.
+
+او افزود کشورهای منطقه با افزایش همکاری میان خود می‌توانند امنیت منطقه را تامین کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254210
 
@@ -297,19 +314,6 @@
 یک مقام آمریکایی دیگر گفت اگر تهران تنگه هرمز را بدون هیچ مانعی باز کند، آمریکا محاصره بنادر ایران را لغو خواهد کرد.
 
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254191
-
-<div align="center"><video src="files/post_254191_VahidOOnLine_254191.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254191_VahidOOnLine_254191.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«تاکسی‌اینترنتی به بهانه خلوت بودن خیابان‌ها ۷۰٪ قیمت کرایه‌ها را کم کرده» ـ گزارشگر
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

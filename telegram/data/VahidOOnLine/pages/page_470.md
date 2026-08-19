@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 470
 
-📅 آخرین بروزرسانی: 1405/05/28 03:17
+📅 آخرین بروزرسانی: 1405/05/28 03:38
 
 ---
+
+## VahidOOnLine — post 244172
+
+<div align="center"><video src="files/post_244172_VahidOOnLine_244172.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244172_VahidOOnLine_244172.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی که شامگاه یکشنبه ۱۷ خرداد به دست ایران‌اینترنشنال رسیده پرواز موشک‌های جمهوری اسلامی را از کرمانشاه به سمت اسرائیل نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244171
 
@@ -248,19 +261,6 @@
 به گفته او، این مجموعه شامل مراکز فرماندهی، محل استقرار نیروها، انبارهای تسلیحات و همچنین زیرساخت‌های لجستیکی و درمانی بوده است.
 
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244145
-
-<div align="center"><img src="files/post_244145_VahidOOnLine_244145.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️غلامحسین محسنی اژه‌ای، رئیس قوه قضائیه جمهوری اسلامی شامگاه یکشنبه ۱۶ خردادماه و ساعتی پس از حمله اسرائیل به ضاحیه بیروت، با انتشار پیامی اسرائیل را به تلاش به «نسل‌کشی شیعیان لبنان» و «تغییر بافت جمعیتی» بیروت متهم کرد و نوشت: «مقاومت لبنان جان ایران است».
-
-این پیام دقایقی پس از پیام محمدباقر قالیباف، رئیس مجلس و مذاکره‌کننده ارشد جمهوری اسلامی ایران در گفتگوها با آمریکا منتشر شد که اسرائیل و آمریکا را به نقض آتش‌بس متهم و به «پاسخ نظامی» تهدید کرد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

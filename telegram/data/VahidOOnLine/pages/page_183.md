@@ -1,8 +1,17 @@
 # آرشیو کانال VahidOOnLine - صفحه 183
 
-📅 آخرین بروزرسانی: 1405/05/28 03:17
+📅 آخرین بروزرسانی: 1405/05/28 03:38
 
 ---
+
+## VahidOOnLine — post 251347
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرفان اسفندیاری، ۱۹ ساله و یکی از متهمان پرونده «میدان علیخانی» اصفهان، ۲۸ تیر اعدام شد. مراسم او قرار بود سه‌شنبه ۳۰ تیر‌ماه در مسجد بقیه‌الله اصفهان برگزار شود اما با فشار نهاد‌های امنیتی این مراسم لغو شد. پیکر عرفان اسفندیاری بدون حضور خانواده در بوئین‌ میاندشت به خاک سپرده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251346
 
@@ -296,21 +305,6 @@ iranintl
 صداوسیما در این گزارش، میران را «جانباز یک‌ساله» جنگ با آمریکا توصیف کرده است.
 روند درمان این کودک یک ساله همچنان ادامه دارد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251327
-
-<div align="center"><video src="files/post_251327_VahidOOnLine_251327.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251327_VahidOOnLine_251327.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شکست دانش پیشرفته؛ ایران در «سند چشم‌انداز ۱۴۰۴»، ناکامی رویاهای خامنه‌ای
-
-علی خامنه‌ای ۲۲ سال پیش سند چشم‌انداز بیست ساله جمهوری اسلامی در افق ۱۴۰۴ را ابلاغ کرد که سندی شد بر ناتوانی سیاست‌هایش. امروز تاریخ این سند منقضی‌شده و علی خامنه‌ای کشته شده است. اما سرنوشت رویاهای خامنه‌ای چه شد؟
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
