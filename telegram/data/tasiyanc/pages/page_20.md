@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/28 20:49
+📅 آخرین بروزرسانی: 1405/05/28 22:40
 
 ---
+
+## tasiyanc — post 8989
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همراه اول و ایرانسل وضعیت اینترنت شما چطوره الان؟
+</div>
+
+## tasiyanc — post 8988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز تولد جاوید نام پهلوان مسعود ذات پرور قهرمان ایران هستش روحش شاد🖤
+</div>
+
+## tasiyanc — post 8987
+
+<div align="center"><video src="files/post_8987_tasiyanc_8987.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8987_tasiyanc_8987.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ساغر غلامی طی یک ویدیویی خبر اعدام و داستان عقد شدنش با سپاهی را تکذیب کرد
+
++من چند ماهه با قید وثیقه بیرونم، به شایعات توجه نکنید
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8986
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴نتانیاهو:
+اگه گوشی موبایل دارید یعنی بخشی از اسرائیل رو دارید با خودتون حمل میکنید. ما اونجاییم
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast - HCustum 🇮🇹B.hc
+</div>
 
 ## tasiyanc — post 8984
 
@@ -241,76 +284,5 @@ vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 ⚠️ #پنالتی راحترین بازی پولساز ⚠️
 🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید راحتو سریع برنده شو👌🏼
 💖 مرجع بازی های روز دنیا در ‌پلتفرم جهانی بت اینجا ⭐
-</div>
-
-## tasiyanc — post 8964
-
-<div align="center"><video src="files/post_8964_tasiyanc_8964.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8964_tasiyanc_8964.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ آقاآآ این بازی #پنالتی چقدر خفنه⚽
-
-🟢 بازی خیلی حرفه ای و‌ #پولساز پنالتی فقط‌ پلتفرم جهانی و معتبر #بت_اینجا
-
-✊همین الان ویدیو #آموزش پنالتی زدن ‌رو ببین و با شارژ اضافی 🤩🤩 درصدی که سایت بهت میده.
-
-💖 حتما ویدیو #آموزش رو ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان r13
-@betinjabet
-</div>
-
-## tasiyanc — post 8963
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated Vip 👑 ━━━╮
-
-vless://a34b5e88-cf0d-4c01-8199-2d1002d3c787@95.85.229.112:443?security=reality&encryption=none&pbk=HKpd1sbrhBds8SJSL0d22MAq_QyTR6EP6y5b5DYol3U&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=www.wikihow.com#%F0%9F%87%B8%F0%9F%87%AA%40TASIYANC%F0%9F%94%A5
-
-ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@141.98.101.178:443#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%94%A5
-
-vless://52b71b75-4b77-4cec-990b-046ec1938e1f@67.159.56.57:443?security=reality&encryption=none&pbk=j5qmR8E9er-0n5zZbK6s_SdvYm-tYlraXVYm49ArWS8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=uk.bvps.cloud&sid=60debb3ab744d8ce#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%92%A5
-
-vless://29ca503d-e6b8-4509-b666-48133f450857@one-for-all.levikogjgfdd.ir:443?path=%2Ffdip&security=tls&encryption=none&insecure=0&host=learn00.evany.de5.net&type=ws&allowInsecure=0&sni=learn00.evany.de5.net#%F0%9F%87%AF%F0%9F%87%B5%40TASIYANC%F0%9F%94%A5
-
-⚡️Location 🇬🇧 🇸🇪 🇯🇵
-
-📱@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8962
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴مرندی از تیم مذاکره کننده:ایران هیچ قصدی برای مذاکره با رژیم ترامپ ندارد. هرگونه اقدام تجاوزکارانه با پاسخ کوبنده و قاطع جمهوری اسلامی مواجه خواهد شد
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8961
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دردناک است ، زندگی در مملکتی که مردمش ؛ تاوان نفهمیِ عده ای را میدهند که حاضر نیستند حقیقت را ببینند
-
-پروکسی | پروکسی | پروکسی
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8960
-
-<div align="center"><img src="files/post_8960_tasiyanc_8960.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو ۹۰٪ عکسهاش دستهاشو قایم کرده تا معلولیتش مشخص نباشه
-جاوید نام امیرحسین صفری که چند روز پیش اعدام شد
-@Tasiyanc 
-✅
 </div>
 

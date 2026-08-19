@@ -1,8 +1,80 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/05/28 20:49
+📅 آخرین بروزرسانی: 1405/05/28 22:40
 
 ---
+
+## tasiyanc — post 6501
+
+<div align="center"><video src="files/post_6501_tasiyanc_6501.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6501_tasiyanc_6501.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود  Wg tunnel 
+🕹
+
+دانلود iOS 📱
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6500
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  
+😏
+
+4سرور   سرعتی پرمیوم متد جدید
+🚀
+
+نامحدود  - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6488
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوووووورییی با توییت امشب امریکا احتمال شروع دوباره جنگ هستت
+برا همین براتون توی بات  ۶۰۰‌گیگ کانفینگ اختصاصی گذاشتیم که یوقت دوباره نتو قطع کردن شماها قطع نشید❤
+
+کنارتون هستیم💝
+
+دریافت کانفینگ اختصاصی
+دریافت کانفینگ اختصاصی
+</div>
+
+## tasiyanc — post 6487
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست جدید ترامپ: به من همین الان توسط ارتش بزرگ‌مون اطلاع داده شده که دیشب ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما رو هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردن. دو خلبان در این حادثه حضور داشتن و هر دو سالم و بدون جراحت هستن. با این حال، آمریکا…
+</div>
+
+## tasiyanc — post 6486
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست جدید ترامپ:
+به من همین الان توسط ارتش بزرگ‌مون اطلاع داده شده که دیشب ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما رو هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردن. دو خلبان در این حادثه حضور داشتن و هر دو سالم و بدون جراحت هستن. با این حال، آمریکا ناگزیر است به این حمله پاسخ بده.
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6485
 
@@ -166,62 +238,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 😬Password :″  @Tasiyanc  ″
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6467
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6466
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  Ovpn ♻️
-
-تست شده 
-🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6465
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقت الکی نزارید قربونتون برم من
-</div>
-
-## tasiyanc — post 6464
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رباتی ک تون الکی میده اسکمه پرداختی نداره
-</div>
-
-## tasiyanc — post 6460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این ربات تون میده و برداشت شده ازش تایید شده ، میتونید با چند ثانیه وقت گذاشتن به درآمد برسید , برداشت بزنم می‌زارم شاتو خودمم
-https://t.me/gramevents_bot
-
-ارزششو داره برید تست کنین
-
-ادد لیست جهت جوین تو چنلا
-https://t.me/addlist/IiFVViQyys81OWM0
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/05/28 21:46
+📅 آخرین بروزرسانی: 1405/05/28 22:38
 
 ---
+
+## ProxyMTProto — post 47771
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r44.proxytg.space
+Port: 8443
+Secret: eebf7b9e22c9202130923254db55f17ed07234342e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47770
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47769
 
@@ -169,26 +187,5 @@ Server: 186.246.21.89
 Port: 443
 Secret: 7sEXmKsAiDG0dAZsnh6_XHBhdml0by5ydQ
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47751
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: yandex.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47750
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ Working proxies are getting blocked quickly due to new restrictions.
-
-If Telegram starts loading slowly again, it's better to get connected in advance 👀
-
-We're constantly adding new proxies and currently providing them for free 🔥
-
-👉 Start the bot and join our channel to get a working proxy right now.
 </div>
 

@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/28 20:49
+📅 آخرین بروزرسانی: 1405/05/28 22:40
 
 ---
+
+## tasiyanc — post 6190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Proxy 1 ✅ proxy 2
+Proxy 3 ✅ proxy 3
+@TasiyanProxy ✅
+</div>
+
+## tasiyanc — post 6185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+
+دانلود اندروید  Wg tunnel 🕹
+
+دانلود iOS 📱
+آموزش⏩
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GANG 🇳🇱🇬🇧🚀 (1).npvt
+</div>
+
+## tasiyanc — post 6183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال رو خطوط همراه ادامه داره
+ولی سرورهای ما وصله 💋
+</div>
+
+## tasiyanc — post 6182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+3سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6180
 
@@ -152,56 +201,5 @@ Premium GOD SV 🚀🔥.npvt
 ⏩
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-
-2سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنا اگه زیاد باشه یه وایرم میزارم
-</div>
-
-## tasiyanc — post 6159
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP تاسیان 🪙 GOLD.npvt
-</div>
-
-## tasiyanc — post 6158
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-
-3سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-3 تا سرور فول سرعتی تو راهه
 </div>
 
