@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/05/28 15:48
+📅 آخرین بروزرسانی: 1405/05/28 16:52
 
 ---
+
+## tasiyanc — post 7859
+
+<div align="center"><video src="files/post_7859_tasiyanc_7859.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7859_tasiyanc_7859.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   
+📶
+
+تست شده تمام نتها 
+🛜
+🛜
+🛜
+
+دانلود 
+📱 Android  
+🕹  iOS
+
+آموزش اتصال 
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7854
 
@@ -245,12 +274,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گزارشات تایید نشده ترامپ با ناتو به توافق رسیده در ازای کمك آمریکا به اوکراین ، ناتو نیز کنار آمریکا به ایران حمله خواهد کرد
-@Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 125
 
-📅 آخرین بروزرسانی: 1405/05/28 15:46
+📅 آخرین بروزرسانی: 1405/05/28 16:50
 
 ---
+
+## ProxyMTProto — post 47798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ytrw134-1.mtproxygram.lol
+Port: 853
+Secret: ee44d2e25cbb26272ed5fd03eaf805c5f262726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: comet.quickrouteapp.xyz
+Port: 8443
+Secret: ee6af7e9e830f53cc4f18a0b2cff3475a6636f6d65742e717569636b726f7574656170702e78797a
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47796
 
@@ -163,24 +181,6 @@ Secret: dd3e7613f9676439cd5f056828ef716da6
 Server: 50.114.102.134
 Port: 443
 Secret: dd723f44bd19ff50a431878c6b2d0b46a0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: eboybey.flowaccess.site
-Port: 8443
-Secret: ee1a3341522f265448a11cbb608f42166f65626f796265792e666c6f776163636573732e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 

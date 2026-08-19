@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/28 15:48
+📅 آخرین بروزرسانی: 1405/05/28 16:52
 
 ---
+
+## tasiyanc — post 7449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️حملات مجدد آمریکا به قشم
+</div>
 
 ## tasiyanc — post 7448
 
@@ -191,11 +197,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آفسایدددددددددد
-</div>
-
-## tasiyanc — post 7420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم بره وار
 </div>
 

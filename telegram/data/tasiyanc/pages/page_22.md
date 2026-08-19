@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/28 15:48
+📅 آخرین بروزرسانی: 1405/05/28 16:52
 
 ---
+
+## tasiyanc — post 8931
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا یک ساعت دیگه یه سایت عالی براتون معرفی میکنم ( که هیچ جایی به شما معرفی نشده) که احتمالا خیلی بکارتون بیاد
+</div>
 
 ## tasiyanc — post 8930
 
@@ -269,14 +275,6 @@ IPv6
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 پیت هگست وزیر جنگ آمریکا این ویدئو رو منتشر کرد :
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New Wallpapers ✨ HD
 
 🔱 @Tasiyanc
 </div>

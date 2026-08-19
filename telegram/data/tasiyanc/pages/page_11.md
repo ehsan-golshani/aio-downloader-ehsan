@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/28 15:48
+📅 آخرین بروزرسانی: 1405/05/28 16:52
 
 ---
+
+## tasiyanc — post 9204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9203
 
@@ -325,31 +346,5 @@ Ultra realistic beauty portrait using the reference image as identity anchor, pr
 ⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
 😀Telegram Channel👇
 https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9173
-
-<div align="center"><img src="files/post_9173_tasiyanc_9173.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤میخوای مسابقات فوتبال پیش بینی کنی؟!
-🥇پس نیاز داری به یه سایت بین المللی و معتبر🥇
-
-⛔دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-⭐دارای لایسنس و مجوز anjuan
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-r20
-🔔کانال دربی بت :👇
-✅https://t.me/+c5jwC3lt9z45NTE0
 </div>
 

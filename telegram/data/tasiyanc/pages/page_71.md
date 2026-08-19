@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/28 15:48
+📅 آخرین بروزرسانی: 1405/05/28 16:52
 
 ---
+
+## tasiyanc — post 7269
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ربات کاربردی اختصاصی چنلمون بدون عضویت اجباری
+
+دانلودر اینستاگرام ، ایکس(توئیتر) ، تیک تاک
+( + دانلود جداگانه موزیک ریلز ها)
+📹💬💬
+
+@TasiyanAploadBot
+</div>
 
 ## tasiyanc — post 7268
 
@@ -202,11 +214,5 @@
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐
 </div>
 

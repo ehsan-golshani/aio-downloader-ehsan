@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/28 15:48
+📅 آخرین بروزرسانی: 1405/05/28 16:52
 
 ---
+
+## tasiyanc — post 9103
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
+</div>
 
 ## tasiyanc — post 9102
 
@@ -273,23 +279,5 @@ Prompt
 
 @TASIYANC 
 ⭐️
-</div>
-
-## tasiyanc — post 9079
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود با استراتژی بدست میاد نه ادعا 
-👌
-
-
-امروز پاریس
-⚡️ و منچستر یونایتد 
-⚡️بازی دارن بیا استراتژی مو ببین و یاد بگیر
-
-
-⚠️مخصوص کسایی که بالا ۵۰میلیون سرمایه دارن
-g16
-https://t.me/+5fvta-uF4QA3ZDY0
-https://t.me/+5fvta-uF4QA3ZDY0
 </div>
 

@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/28 15:48
+📅 آخرین بروزرسانی: 1405/05/28 16:52
 
 ---
+
+## tasiyanc — post 8811
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری، صداوسیما خیلی جدی : امروز صبح در حملات آمریکا به ایران، 6 تا جنگنده F-35 رو زدیم! 3 تاشون کامل منهدم شدن، 3 تاشون هم خسارت دیدن! چند تا از خلبانان جنگنده هم کشته شده. 🐸🐸🐸🐸 
+⭐@Tasiyanc ⭐
+</div>
 
 ## tasiyanc — post 8810
 
@@ -249,17 +256,6 @@ Multi Location ⚡
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴انتقال اجساد حشدالشعبی @Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8788
-
-<div align="center"><img src="files/post_8788_tasiyanc_8788.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیشب یه پراید هاچبک تو تهران بخاطر اینکه سیستم صوتیش رو اصولی نصب نکرده بود، به محض اینکه رانندش ولوم آهنگ رو تا آخر بالا برد منفجر شد :
-
-⭐ @Tasiyanc 
 ⭐️
 </div>
 

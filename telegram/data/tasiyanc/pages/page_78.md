@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/28 15:48
+📅 آخرین بروزرسانی: 1405/05/28 16:52
 
 ---
+
+## tasiyanc — post 7004
+
+<div align="center"><img src="files/post_7004_tasiyanc_7004.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشماممم دختره وسط بازی قطر سوییس لخت شد پرید وسط زمین! 😐 پشمای بازیکنا کز خورد...
+کارگردان سریع نما رو عوض کرد ولی فیلم تماشاچیا از این صحنه اومد. کلیک کن فیلمشو ببین تا پاک نشده 👇
+
+مشاهده بدون سانسور ویدیو🔞
+</div>
 
 ## tasiyanc — post 7003
 
@@ -245,13 +256,5 @@ T.me/Tasiyanc
 
 T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6963
-
-<div align="center"><img src="files/post_6963_tasiyanc_6963.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐@Tasiyanc.dark
 </div>
 

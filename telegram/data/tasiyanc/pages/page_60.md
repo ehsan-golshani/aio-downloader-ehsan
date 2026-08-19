@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/05/28 15:48
+📅 آخرین بروزرسانی: 1405/05/28 16:52
 
 ---
+
+## tasiyanc — post 7688
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ های وایرگارد آپدیت شد ، با سرعت مناسب گیم و اینستاگرام 🔥🚀
+
+فول سرعتی مناسب تمام اپراتورها
+
+
+👇 دریافت کانفیگ های وایرگارد 🔥
+</div>
 
 ## tasiyanc — post 7686
 
@@ -174,13 +185,5 @@ Fast ⚡ Unlimited.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ☕⚡Mocha Fast.npvt
-</div>
-
-## tasiyanc — post 7651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Canada 🇨🇦 & Morocco 🇲🇦 🏆
-
-کی میبره
 </div>
 

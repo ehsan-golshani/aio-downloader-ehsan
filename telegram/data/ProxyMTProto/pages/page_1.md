@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/28 15:46
+📅 آخرین بروزرسانی: 1405/05/28 16:50
 
 ---
+
+## ProxyMTProto — post 50290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 65.21.205.41
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50289
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: media6.happtg.org
+Port: 443
+Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50288
 
@@ -163,24 +181,6 @@ Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50270
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 853
-Secret: eeceaec97c86b6332adc48b3c081954e60766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50269
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: admin.valmira.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 

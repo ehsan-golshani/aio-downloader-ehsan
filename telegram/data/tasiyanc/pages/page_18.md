@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/28 15:48
+📅 آخرین بروزرسانی: 1405/05/28 16:52
 
 ---
+
+## tasiyanc — post 9024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کاهش پهنای باند هم اکنون در سراسر کشور
+
+پی‌نوشت : اختلاله و درست میشه نرید پول بدید یه وقت
+</div>
 
 ## tasiyanc — post 9022
 
@@ -383,54 +391,5 @@ R14
 🎁کد هدیه ثبت نام Melbet90 ✌️
 
 ✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9000
-
-<div align="center"><video src="files/post_9000_tasiyanc_9000.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9000_tasiyanc_9000.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 
-👍
-😁
-😊
-🙂
-
-🥇واریز و برداشت ارزی و ریالی
-‼️
-
-🔥بونوس 100% اولین واریز
-‼️
-
-⚽️بونوس ورزشی هرچهارشنبه
-‼️
-
-🆗کازینو و انفجار با ضرایب جهانی
-‼️
-
-
-🎁کد هدیه ثبت نام :Melbet90
-
-
-🇩🇪دانلود اپلیکیشن MELBET
-👉
-
-
-🔗لینک وبسایت
-👉
-
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
-🇨🇦 
-🇹🇷 r14
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

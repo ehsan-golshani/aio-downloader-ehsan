@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/28 15:46
+📅 آخرین بروزرسانی: 1405/05/28 16:50
 
 ---
+
+## ProxyMTProto — post 49587
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Speed-proxy.com
+Port: 443
+Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49586
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49585
 
@@ -158,24 +176,6 @@ Secret: dddb688a36cd7c7b24fa0604392645bd82
 </div>
 
 ## ProxyMTProto — post 49568
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49567
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: julyy.nolags.pw
-Port: 443
-Secret: dddb2f3df5d8f4fb7aa8e2192eff0aae98
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49566
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown

@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/28 15:48
+📅 آخرین بروزرسانی: 1405/05/28 16:52
 
 ---
+
+## tasiyanc — post 9257
+
+<div align="center"><video src="files/post_9257_tasiyanc_9257.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9257_tasiyanc_9257.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+
+✅اسپانسر لیگ انگلستان
+
+👑 امکان شارژ و برداشت با کارت بانکی
+
+⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....
+📢
+
+😀Telegram Channel
+👇
+https://t.me/+c5jwC3lt9z45NTE0
+</div>
 
 ## tasiyanc — post 9256
 
@@ -270,31 +291,5 @@ https://t.me/+MT03hkV78q9kMTc0
 ⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
 😀Telegram Channel👇
 https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9230
-
-<div align="center"><img src="files/post_9230_tasiyanc_9230.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤میخوای مسابقات فوتبال پیش بینی کنی؟!
-🥇پس نیاز داری به یه سایت بین المللی و معتبر🥇
-
-⛔دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-⭐دارای لایسنس و مجوز anjuan
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-r22
-🔔کانال دربی بت :👇
-✅https://t.me/+c5jwC3lt9z45NTE0
 </div>
 
