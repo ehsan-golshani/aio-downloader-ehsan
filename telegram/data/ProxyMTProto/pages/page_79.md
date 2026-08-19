@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/28 22:38
+📅 آخرین بروزرسانی: 1405/05/28 23:16
 
 ---
+
+## ProxyMTProto — post 48734
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.acientirani-uor4.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48733
 
@@ -172,15 +181,6 @@ Secret: eec085c2738cef200b39ee8f29d23095f063646e2e6b76616b7a6f6e2e746f70
 Server: Unknown
 Port: 443
 Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48714
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gate.soluqent.pro
-Port: 443
-Secret: ee204d0b60a6b41370c66a64551f06b233676174652e736f6c7571656e742e70726f
 @ProxyMTProto
 </div>
 

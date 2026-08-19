@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/28 22:38
+📅 آخرین بروزرسانی: 1405/05/28 23:16
 
 ---
+
+## ProxyMTProto — post 49501
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: edge.librava.click
+Port: 443
+Secret: eea12fcf17bd87579f5063dfb4c28e4761656467652e6c6962726176612e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49500
 
@@ -165,15 +174,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: secure.gorbushkin.click
 Port: 443
 Secret: ee2566052eb7f98d9601ca0b656f9032177365637572652e676f72627573686b696e2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49480
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 
