@@ -1,8 +1,54 @@
 # آرشیو کانال VahidOOnLine - صفحه 476
 
-📅 آخرین بروزرسانی: 1405/05/29 02:49
+📅 آخرین بروزرسانی: 1405/05/29 03:19
 
 ---
+
+## VahidOOnLine — post 244197
+
+<div align="center"><img src="files/post_244197_VahidOOnLine_244197.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دفتر ارتباطات شرکت شهر فرودگاهی «امام خمینی» اعلام کرد که طبق اطلاعیه صادره از سوی سازمان هواپیمایی کشوری، از بامداد ۱۸ خرداد ماه ۱۴۰۵ و تا اطلاع ثانوی، کلیه پروازهای این فرودگاه متوقف شده است.
+
+سازمان هواپیمایی نیز اعلام کرده بود بخش غربی فضای پروازی کشور تا اطلاع بعدی بسته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️براساس تصاویر منتشر شده در شبکه‌های اجتماعی، یکشنبه‌شب، طرفداران حزب‌الله در لبنان از حملات موشکی سپاه به اسرائیل ابراز خوشحالی کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244195
+
+<div align="center"><img src="files/post_244195_VahidOOnLine_244195.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسنیم، خبرگزاری وابسته به سپاه، به نقل از یک منبع نظامی نوشت که حجم مناسبی از موشک‌های جمهوری اسلامی هم‌اکنون آماده‌اند تا در صورتی که اسرائیل به حملات پاسخ دهد، بلافاصله به سمت فهرست‌ اهداف گستر‌ده‌تر در اسرائیل شلیک شوند: «نوبت بعدی شلیک‌های جمهوری اسلامی، پرحجم‌تر خواهد بود.»
+
+رسانه سپاه به نقل از این منبع نظامی نوشت که جمهوری اسلامی برای آغاز نبرد گسترده در صورت پاسخ اسرائیل آماده است و این کشور باید این هشدار را به گوش بسپارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244194
+
+<div align="center"><img src="files/post_244194_VahidOOnLine_244194.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️حساب عبری‌زبان ارتش دفاعی اسرائیل، بامداد دوشنبه، با انتشار پیامی در اکس نوشت که رئیس ستاد کل ارتش در حال حاضر در جلسه ارزیابی وضعیت با مجمع ستاد مشترک است. در ادامه این پیام به نقل از رئیس ستاد کل ارتش اسرائیل آمده است: «ارتش به محض دریافت چراغ سبز، با قدرت به دشمن ضربه خواهد زد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244193
 
@@ -200,51 +246,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران‌اینترنشنال از جوانرود در شامگاه یکشنبه ۱۷ خرداد، نور موشک شلیک‌شده از سوی جمهوری اسلامی را به سمت اسرائیل در آسمان این شهر نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244177
-
-<div align="center"><img src="files/post_244177_VahidOOnLine_244177.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرنگار «آکسیوس» یکشنبه‌شب، به نقل از رئیس جمهوری آمریکا اعلام کرد که ترامپ از نتانیاهو خواهد خواست تا به ایران حمله متقابل نکند. خبرنگار آکسیوس نوشت:‌ «دونالد ترامپ به من می‌گوید همین الان با نتانیاهو تماس خواهم گرفت و به او خواهم گفت که حمله متقابل انجام ندهد».
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244176
-
-<div align="center"><img src="files/post_244176_VahidOOnLine_244176.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجید اخوان، سخنگوی سازمان هواپیمایی کشوری، گفت: با توجه به ارزیابی‌های ایمنی و امنیتی صورت گرفته و با صدور اطلاعیه هوانوردی (نوتام) بخش غربی فضای پروازی کشور تا اطلاع ثانوی بسته اعلام شد.
-او افزود: «هموطنان از مراجعه به فرودگاه‌ها خودداری نموده و آخرین وضعیت پروازی را از طریق رسانه‌ها دنبال کنند.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244175
-
-<div align="center"><img src="files/post_244175_VahidOOnLine_244175.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️عباس عراقچی یکشنبه‌شب، همزمان با آغاز حملات موشکی ایران به اسرائیل تصویری از پرچم جمهوری اسلامی در کنار لبنان منتشر کرد. ایران در پاسخ به حملات اسرائیل به ضاحیه بیروت، به سمت این کشور موشک شلیک کرد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244174
-
-<div align="center"><img src="files/post_244174_VahidOOnLine_244174.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️روابط عمومی سازمان هواپیمایی کشوری، یکشنبه‌شب، همزمان با آغاز حملات جمهوری اسلامی ایران به اسرائیل، از بسته شدن آسمان غرب ایران خبر داد. مجید اخوان، سخنگوی سازمان هواپیمایی کشوری، گفت: «با توجه به ارزیابی‌های ایمنی و امنیتی صورت گرفته و با صدور اطلاعیه هوانوردی (نوتام) بخش غربی فضای پروازی کشور تا اطلاع ثانوی بسته اعلام شد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
