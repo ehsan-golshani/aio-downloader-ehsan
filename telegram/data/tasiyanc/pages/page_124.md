@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/28 13:52
+📅 آخرین بروزرسانی: 1405/05/28 15:02
 
 ---
+
+## tasiyanc — post 5707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc - FULL VASL 🍃.npvt
+</div>
 
 ## tasiyanc — post 5706
 
@@ -183,16 +189,5 @@ vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 27 k 🥹🫂
 ممنون که با تاسیان همراهید
-</div>
-
-## tasiyanc — post 5684
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود📱
-
-⛈سرور vip هلند ، فرانسه  همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
 </div>
 

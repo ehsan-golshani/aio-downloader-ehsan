@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/28 13:52
+📅 آخرین بروزرسانی: 1405/05/28 15:02
 
 ---
+
+## tasiyanc — post 9255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زمستان تمام شد ، بهار تمام شد ، تابستان داره تموم میشه ، اما سوز آن دِی هرگز تمام شد
+</div>
 
 ## tasiyanc — post 9254
 
@@ -256,15 +262,5 @@ r22
 امروز 13 آگوست روز جهانی سگ های خیابونیه 😁
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
-دانلود Dark Tunnel  🕹
-
-
-آموزش اتصال به سرور دارک⚡️
 </div>
 

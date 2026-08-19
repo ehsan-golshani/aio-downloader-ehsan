@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/28 13:50
+📅 آخرین بروزرسانی: 1405/05/28 15:00
 
 ---
+
+## ProxyMTProto — post 48015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy8.arixo.shop
+Port: 443
+Secret: eeb244bd047b4e9e68340bf827ab7bd9b1617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48014
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy7.arixo.shop
+Port: 443
+Secret: ee120e6efb5454d0945c4997bf6ea493c4617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48012
 
@@ -154,33 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: rocket.flowaccess.site
 Port: 443
 Secret: ee03d3d1b9bda832390669bc06167720d8726f636b65742e666c6f776163636573732e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47994
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: memory.nolags.pw
-Port: 443
-Secret: ddb50d67677180b7c552ffe1ec0579ed76
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47993
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

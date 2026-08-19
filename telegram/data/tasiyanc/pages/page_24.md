@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/28 13:52
+📅 آخرین بروزرسانی: 1405/05/28 15:02
 
 ---
+
+## tasiyanc — post 8878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 به تمام دیتاسنترها آماده باش داده شده تا در صورت وقوع جنگ٫ اینترنت سراسری قطع شود ( تایید / رد نمیشود)
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8877
 
@@ -271,29 +278,5 @@ Restore this old photograph with maximum realism. Remove scratches, dust, stains
 R8
 🎁کد هدیه ثبت نام Melbet90 ✌️
 ✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 8847
-
-<div align="center"><img src="files/post_8847_tasiyanc_8847.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-✔ https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

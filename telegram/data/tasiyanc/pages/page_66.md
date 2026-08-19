@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/28 13:52
+📅 آخرین بروزرسانی: 1405/05/28 15:02
 
 ---
+
+## tasiyanc — post 7447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیما: دقایقی پیش چندین انفجار در شهرستان سیریک، جنوب ایران رخ داده است.
+</div>
 
 ## tasiyanc — post 7446
 
@@ -191,11 +197,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گگگگگگگگگگگگگللللللللل ایران
-</div>
-
-## tasiyanc — post 7418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صلاح تعویض شد 😐
 </div>
 

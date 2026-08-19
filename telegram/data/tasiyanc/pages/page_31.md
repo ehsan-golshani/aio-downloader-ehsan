@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/28 13:52
+📅 آخرین بروزرسانی: 1405/05/28 15:02
 
 ---
+
+## tasiyanc — post 8675
+
+<div align="center"><video src="files/post_8675_tasiyanc_8675.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8675_tasiyanc_8675.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴صلاح یکتا ؛ چهره مشهور «شکستن قلنج» به دستور بازپرس ویژه پزشکی بازداشت شد
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8674
 
@@ -175,19 +187,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 «چشم‌های تمساح ؛ یکی از پیشرفته ترین چشم‌ها در قلمرو جانوران ک طی بیش از ۲۰۰ میلیون سال تکامل یافته اند » 🐊👁
 
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8652
-
-<div align="center"><video src="files/post_8652_tasiyanc_8652.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8652_tasiyanc_8652.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹تنها جنگنده ای که آمریکا به متحدانش نمیفرشه 🗽
-
-جنگنده ی F22Raptor مرموزترین ، پیشرفته ترین ، گرانترین جنگنده آمریکا که فقط 187 فروند ازش هست و همشون در اختیار ارتش آمریکاست
 @TASIYANC ✅
 </div>
 

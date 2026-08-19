@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/28 13:52
+📅 آخرین بروزرسانی: 1405/05/28 15:02
 
 ---
+
+## tasiyanc — post 8324
+
+<div align="center"><img src="files/post_8324_tasiyanc_8324.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تفاوت‌های جنسی در دنیای جانوران 🦋
+
+پروکسی | پروکسی | پروکسی | پروکسی
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8323
 
@@ -168,15 +180,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 کویت اعلام کرد که موشک‌های بالستیک و پهپادهای ایرانی را که وارد فضای هوایی این کشور شده بودند، رهگیری کرده است.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8300
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺ صداوسیما : ۳ انفجار در سیریک شنیده شد.
-
 
 @Tasiyanc ✅
 </div>
