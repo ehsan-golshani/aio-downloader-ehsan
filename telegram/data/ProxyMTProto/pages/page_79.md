@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/28 00:14
+📅 آخرین بروزرسانی: 1405/05/28 09:16
 
 ---
+
+## ProxyMTProto — post 48705
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: FgMBAgABAAH8AxOG4kw63Q
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48704
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad3.arixo.shop
+Port: 443
+Secret: ee722fba8d97b9027b5fc4deb041b290cb6164332e617269786f2e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48703
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48702
 
@@ -154,33 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: net.freetg.pw
 Port: 443
 Secret: ee5149538ef4476db6e76d74a7a7c8a48b6e65742e6672656574672e7077
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: basic.here-funnycloud.co.uk
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48684
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: alpha_fk35xklksl_sfklsomega_chjarl_qwinukkus.proproxies.top
-Port: 443
-Secret: ee66c007a679e4bac563190b5525d9a528616c7068615f666b3335786b6c6b736c5f73666b6c736f6d6567615f63686a61726c5f7177696e756b6b75732e70726f70726f786965732e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48683
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: link.mishkalapy.life
-Port: 443
-Secret: eebf409b0c0013edc77b19fd55f79a22fc6c696e6b2e6d6973686b616c6170792e6c696665
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/05/28 00:14
+📅 آخرین بروزرسانی: 1405/05/28 09:16
 
 ---
+
+## ProxyMTProto — post 47883
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s01.neo-trading.org
+Port: 443
+Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47881
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s01.neo-trading.org
+Port: 443
+Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47880
 
@@ -154,33 +181,6 @@ Secret: eec7b876f355b93b6b786cb4b6c9daee79666c6173682e717569636b726f757465617070
 Server: sonic.quickrouteapp.xyz
 Port: 443
 Secret: eebd8b54149182b64d403ef9c5141fc3ee736f6e69632e717569636b726f7574656170702e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47863
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rocket.flowaccess.site
-Port: 443
-Secret: ee03d3d1b9bda832390669bc06167720d8726f636b65742e666c6f776163636573732e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47862
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: second.nolags.pw
-Port: 443
-Secret: ddf4fa8f92de56cde758429546586eaac8
 @ProxyMTProto
 </div>
 
