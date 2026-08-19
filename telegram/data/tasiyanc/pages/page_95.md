@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/05/28 12:38
+📅 آخرین بروزرسانی: 1405/05/28 13:52
 
 ---
+
+## tasiyanc — post 6450
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی تاسیان 🆕
+
+✅160 کانفیگ تست شده
+
+فایل Txt رو باز کنین کانفیگ رو تو آپ NPV & V2BOX & V2RAYNG زیر بزنید پینگ بگیرید وصل شید  🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6449
 
@@ -191,14 +203,5 @@ FAST⚡TASIYAN🚀.npvt
 خبر فوری
 هم اکنون حمله اسرائیل به چند سایت راداری در تهران
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6423
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨کانال ۱۲ اسرائیل:
-طی چندساعت اخیر به ۲۰ هدف تو ایران حمله کردیم
-
-@TasiyanProxy
 </div>
 

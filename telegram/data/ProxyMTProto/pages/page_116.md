@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/05/28 13:19
+📅 آخرین بروزرسانی: 1405/05/28 13:50
 
 ---
+
+## ProxyMTProto — post 47972
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: durov.chunkycorp.shop
+Port: 443
+Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47971
 
@@ -172,15 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: wave.proxytelega.store
 Port: 443
 Secret: eee12b7ef9718c53b06c8a416387c8d4a6776176652e70726f787974656c6567612e73746f7265
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47952
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 9965
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/28 12:38
+📅 آخرین بروزرسانی: 1405/05/28 13:52
 
 ---
+
+## tasiyanc — post 8928
+
+<div align="center"><video src="files/post_8928_tasiyanc_8928.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8928_tasiyanc_8928.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 شبی که مردم ایران با آمریکا ابراز همدردی کردند
+
+یازدهم سپتامبر 2001 بعد از فاجعه بزرگ برخورد ۲ هواپیمای ربوده شده توسط «گروهک تروریستی القائده» به برج های دوقلو تجارت جهانی که منجر به کشته شدن تعداد زیادی غیرنظامی شد مردم ایران برای ابراز همدردی به خیابان ها آمدند و شعار « آمریکا تسلیت ؛ مرگ بر القائده» سر دادند و به یاد کشته شده ها شمع روشن کردند
+﻿
+📱@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8927
 
@@ -275,13 +289,5 @@ New Wallpapers ✨ HD
 تیک تاک⌛ دقیقا قبل از جنگ ۴۰ روزه، همچین توییتی زده بود.
 
 🔱 @TASIYANc
-</div>
-
-## tasiyanc — post 8902
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺قیمت دلار  ۱۹۶ هزار تومان  شد
-
-@Tasiyanc
 </div>
 

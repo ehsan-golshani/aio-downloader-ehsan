@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/28 12:38
+📅 آخرین بروزرسانی: 1405/05/28 13:52
 
 ---
+
+## tasiyanc — post 8758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود لوک ترکیه📱
+
+تست شده روی همه نت ها
+
+آموزش اتصال روی اندروید⛓
+آموزش اتصال روی ویندوز  ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8757
 
@@ -214,15 +229,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 پی‌نوشت : کافیه به خدماتی ک برای لیبی انجام داده بود نگاه کنید
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8729
-
-<div align="center"><img src="files/post_8729_tasiyanc_8729.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 کشورایی که سالانه بیشترین میانگین توریست رو دارن
-
-@TASIYANC 💠
 </div>
 

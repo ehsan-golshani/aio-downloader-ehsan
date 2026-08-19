@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/28 12:38
+📅 آخرین بروزرسانی: 1405/05/28 13:52
 
 ---
+
+## tasiyanc — post 8973
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد
+
+زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم 😂
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8972
 
@@ -287,11 +297,5 @@ ss://YWVzLTI1Ni1nY206UmV4bkJnVTdFVjVBRHhH@185.213.20.110:7001#%40Tasiyanc%20%F0%
 Location ⚡️🇮🇹
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏴🇮🇷
 </div>
 

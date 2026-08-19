@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/28 12:38
+📅 آخرین بروزرسانی: 1405/05/28 13:52
 
 ---
+
+## tasiyanc — post 8245
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلاااااااااار 195 😐
+</div>
 
 ## tasiyanc — post 8244
 
@@ -176,15 +182,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨جمهوری اسلامی یکی از رادار های آمریکا در کویت را مورد هدف قرار داد
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8223
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وطن عشق من🇮🇷
-هموطن جان من💔
 
 @Tasiyanc✅
 </div>

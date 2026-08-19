@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/28 12:38
+📅 آخرین بروزرسانی: 1405/05/28 13:52
 
 ---
+
+## tasiyanc — post 5958
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرسی از تبریک های قشنگتون 🥹❤️‍🔥
+بهترین ها نصیبتون شه ایشالا مرسی که هستید ❤️
+</div>
 
 ## tasiyanc — post 5957
 
@@ -145,12 +152,6 @@ TS premium Servers 🌲⚡.npvt
 ## tasiyanc — post 5937
 
 <div align="center"><img src="files/post_5937_tasiyanc_5937.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
--FAST MCI & MTN & RighTel 🔥.npvt
-</div>
-
-## tasiyanc — post 5936
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 -FAST MCI & MTN & RighTel 🔥.npvt

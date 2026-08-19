@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/28 12:38
+📅 آخرین بروزرسانی: 1405/05/28 13:52
 
 ---
+
+## tasiyanc — post 7261
+
+<div align="center"><video src="files/post_7261_tasiyanc_7261.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7261_tasiyanc_7261.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV
+
+2سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7260
 
@@ -213,11 +241,5 @@
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7228
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Wnd🍓 @Tasiyanc.conf
 </div>
 

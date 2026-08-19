@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/28 13:19
+📅 آخرین بروزرسانی: 1405/05/28 13:50
 
 ---
+
+## ProxyMTProto — post 48694
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdncloud.mowork.ru
+Port: 443
+Secret: eececef6563bce080cccda8dcc61cedbf6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48693
 
@@ -172,15 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e
 Server: login.veltura.digital
 Port: 443
 Secret: ee381874396c547235c4be1e40cb6132976c6f67696e2e76656c747572612e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48674
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/28 12:38
+📅 آخرین بروزرسانی: 1405/05/28 13:52
 
 ---
+
+## tasiyanc — post 9454
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨معاونت پلیس فتا:
+
+متاسفانه یه پلتفرم فروش آنلاین طلا با ۲۰۰ هزار کاربر، ورشکسته شد و علتش هم خالی فروشی بود.
+
++ مراقب باشید به هیچ وجه تو هیچ برنامه و سایتی طلا و نقره فیزیکی نخرید
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9451
 
@@ -63,8 +74,6 @@ DNS 2 ⚡️
 </div>
 
 ## tasiyanc — post 9449
-
-<div align="center"><a href="files/post_9449_linebet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 linebet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🪙اپلیشیکن اندروید سایت جهانی لاین بت
@@ -322,18 +331,5 @@ Decarys 🔥.ovpn
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 9432
-
-<div align="center"><img src="files/post_9432_tasiyanc_9432.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سود های میلیارد دلاری شرکت های نفتی آمریکا بعد جنگ:
-
-پ ن : حالا شما هی تو صداسیما بگو پیروز شدیم
-
-@Tasiyanc 
-⭐️
 </div>
 

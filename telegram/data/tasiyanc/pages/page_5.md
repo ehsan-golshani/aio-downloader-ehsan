@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/28 12:38
+📅 آخرین بروزرسانی: 1405/05/28 13:52
 
 ---
+
+## tasiyanc — post 9356
+
+<div align="center"><img src="files/post_9356_tasiyanc_9356.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری های جدید جول فرشاد: رامین رضائیان من رو به تریسام دعوت کرد!
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9355
 
@@ -239,23 +249,5 @@ https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
 🔊اپلیکیشن حرفه ای 📱
 sr25
     🎲🎲🎲🎲🎲  معتبرترین سایت ایران
-</div>
-
-## tasiyanc — post 9336
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن multi📍
-
-•آموزش اتصال ⚡️
-
-توجه :  اسکنر نپستر متاسفانه باگش برطرف نشده ⭕️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 
