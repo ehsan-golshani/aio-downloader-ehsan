@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 125
 
-📅 آخرین بروزرسانی: 1405/05/28 23:16
+📅 آخرین بروزرسانی: 1405/05/28 23:52
 
 ---
+
+## ProxyMTProto — post 47813
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47812
 
@@ -172,15 +181,6 @@ Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
 Server: 84.252.139.115
 Port: 443
 Secret: eefea62269225a14fac3c9e8c7ba6205fe617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47793
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: byebyerkn.flowstreamhub.site
-Port: 8443
-Secret: ee3fc2d76c0ccce856e812748d56c458dd627965627965726b6e2e666c6f7773747265616d6875622e73697465
 @ProxyMTProto
 </div>
 
