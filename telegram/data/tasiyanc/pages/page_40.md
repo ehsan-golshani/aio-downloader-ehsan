@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/05/28 18:27
+📅 آخرین بروزرسانی: 1405/05/28 20:49
 
 ---
+
+## tasiyanc — post 8406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[04]⚡@Tasiyanc.ovpn
+</div>
 
 ## tasiyanc — post 8405
 
@@ -192,11 +198,5 @@ IP
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تماممم انگلیس ۶ ، ۴ فرانسه رو کرد
-</div>
-
-## tasiyanc — post 8375
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی انگلیس فرانسه شده پور*هاب ۴ تا انگلیس زده
 </div>
 

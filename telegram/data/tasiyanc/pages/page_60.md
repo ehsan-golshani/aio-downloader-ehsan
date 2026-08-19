@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/05/28 18:27
+📅 آخرین بروزرسانی: 1405/05/28 20:49
 
 ---
+
+## tasiyanc — post 7696
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ SuperFast⚡.npvt
+</div>
 
 ## tasiyanc — post 7693
 
@@ -191,11 +197,5 @@ Fast ⚡ Unlimited.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خودتون خوبین قربونتون برم؟
-</div>
-
-## tasiyanc — post 7658
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مدیتیشن تموم شد 😂
 </div>
 

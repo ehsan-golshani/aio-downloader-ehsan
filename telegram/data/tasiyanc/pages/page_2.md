@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/28 18:27
+📅 آخرین بروزرسانی: 1405/05/28 20:49
 
 ---
+
+## tasiyanc — post 9440
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Decarys 🔥.ovpn
+</div>
 
 ## tasiyanc — post 9439
 
@@ -250,12 +256,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 آیدی عددی
 8973915004
-</div>
-
-## tasiyanc — post 9418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سیو کنین ساعت ۲ پاک میشه
-دخترایی ک عکسشون پخش شده اسکرین ویدیو بگیرن از چنلش و اکانتش ، میتونن در اولین ساعات فردا با مراجعه به دفتر خدمات قضایی شهرشون شکایتشون طرح کنن کلا ۱۰ مین زمان می‌بره ، پروسه خاص ای هم ندارع و زود پیگیری میشه ، قبلا هم از این موردها داشتیم ک نسلش منقرض شد
 </div>
 

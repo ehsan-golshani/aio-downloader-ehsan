@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/28 18:27
+📅 آخرین بروزرسانی: 1405/05/28 20:49
 
 ---
+
+## tasiyanc — post 9031
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود پزشکیان درباره 18 و 19 دی : هنوز که هنوزه من اون حادثه رو نمی‌تونم فراموش کنم، نباید کارمون به اينجا می‌رسید!
+
+البته خود ترامپ نامرد هم گفت که ما اینا رو مسلح کردیم.
+یه عده بی‌گناه هم با اینا قاطی شده بودن. وقتی شورش میشه، آدم نمی‌تونه دوست و دشمن رو تشخیص بده.
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9028
 
@@ -321,46 +332,5 @@ http://deepbrain.io
 http://embodyme.com
 
 Join 👹 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 معرفی سایت های کاریابی و استخدامی (فریلنسری) ایران 
-⚡️
-
-
-🟠جابینجا
-https://jobinja.ir
-
-
-🟠پونیشا
-https://ponisha.ir
-
-
-🟠ایران تلنت
-https://www.irantalent.com
-
-
-🟠جاب ویژن
-https://jobvision.ir
-
-
-🟠کارلنسر
-https://www.karlancer.com
-
-
-🟠برای استخدام
-https://www.e-estekhdam.com
-
-
-🟠برای معلم زبان
-https://oteacher.org
-
-بفرستید برای کسایی که دنبال کار هستن خیلی خوبن سایتهای که گفتم .
-
-
-⚡️@TASIYANC 
-✅
 </div>
 

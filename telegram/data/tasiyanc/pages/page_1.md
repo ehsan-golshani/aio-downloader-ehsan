@@ -1,12 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/28 18:27
+📅 آخرین بروزرسانی: 1405/05/28 20:49
 
 ---
 
-## tasiyanc — post 9461
+## tasiyanc — post 9462
 
-<div align="center"><a href="files/post_9461_Melli Shekan ⚡ Fast.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Melli Shekan ⚡ Fast.npvt</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عضوی از تیم اتکر ما شوید تا باهم کسانی که به حریم خصوصی مردم تجاوز می‌کنند را محو کنیم
+
+https://t.me/+Mcyp10mcfFA2MTM0
+جوین بدید
+</div>
+
+## tasiyanc — post 9461
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت🔐
@@ -322,11 +329,5 @@ til.ac/0L4vyJf
 🟠 بدترین سرنوشت برای یک حاکم( رهبر) اینه که مردمش از دستش بنالند و دائما نفرینش کنند .... آه دل داغ دیدگان یقه کوچیک و بزرگتان را خواهد گرفت ( استاد کاکاوند)
 
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Decarys 🔥.ovpn
 </div>
 

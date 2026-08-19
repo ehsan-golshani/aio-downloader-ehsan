@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/28 18:27
+📅 آخرین بروزرسانی: 1405/05/28 20:49
 
 ---
+
+## tasiyanc — post 8958
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم 
+🖤
+🇮🇷
+
+کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+۵ سرور سرعتی تست شده  لوکیشن ایتالیا 
+📍
+
+آموزش اتصال 
+⚡️
+
+اتصال امن برای همه
+
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 8957
 
@@ -267,18 +289,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 📍Location 🇹🇷 🇬🇧 🇩🇪
 
 ⚡️ By  @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8936
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گزارش درگیری در تنگه هرمز - تایید یا رد نمیشه
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-
-👹@Tasiyanc ✅
 </div>
 

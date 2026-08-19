@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/05/28 18:27
+📅 آخرین بروزرسانی: 1405/05/28 20:49
 
 ---
+
+## tasiyanc — post 7941
+
+<div align="center"><img src="files/post_7941_tasiyanc_7941.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺یه زمانی توماج صالحی نیش پشه‌ها رو به عنوان ساچمه میکرد تو چشم مردم.
+
+
+
+@Tasiyanc ⭐️ | مرجع کانفیگ وصل
+</div>
 
 ## tasiyanc — post 7939
 
@@ -234,12 +246,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ 🌟 : در صورتی ک جمهوری اسلامی منو ترور کنه بلافاصله هزاران موشک تا یکسال آماده شلیک هستند
-@Tasiyanc ⭐️
 </div>
 
