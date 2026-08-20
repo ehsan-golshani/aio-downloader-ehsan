@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/29 15:46
+📅 آخرین بروزرسانی: 1405/05/29 17:44
 
 ---
+
+## tasiyanc — post 5994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور جدید با متد جدید ساعت ۸
+</div>
+
+## tasiyanc — post 5988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حتی ماه هم داخل خرداد مودی شده 😂
+خودمم خردادی ام ❤️❤️
+</div>
 
 ## tasiyanc — post 5987
 
@@ -152,20 +165,5 @@ Gold🥇Vip servers.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرعتی - 🇫🇷
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5963
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ npv سرعت بالا (تست)
-@Tasiyanc
-</div>
-
-## tasiyanc — post 5960
-
-<div align="center"><img src="files/post_5960_tasiyanc_5960.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Gold🥇Vip servers.npvt
 </div>
 

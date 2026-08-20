@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/29 15:46
+📅 آخرین بروزرسانی: 1405/05/29 17:44
 
 ---
+
+## tasiyanc — post 8953
+
+<div align="center"><img src="files/post_8953_tasiyanc_8953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از این منبع VIP روسی هروز براتون فرم میزاریم😍🔥
+
+برای دریافت وارد کانال زیر شوید🔽🔽🔽
+
+https://t.me/+gTClYDoqQdhkZjY8
+
+g12
+
+https://t.me/+gTClYDoqQdhkZjY8
+
+     🔼🔼🔼🔼🔼🔼🔼🔼🔼
+</div>
+
+## tasiyanc — post 8952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خط فقر برای یک خانواده ۴ نفره در تهران به ۹۰ میلیون تومن رسیده.
+یعنی اگه درآمد کل خانواده از این مبلغ کمتر باشه زیر خط فقر حساب می‌شن در حالی که حقوق پایه وزارت کار فقط حدود 17 میلیون تومنه.
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8951
 
@@ -238,12 +264,4 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 
 👹@TASIYANC ✅
 </div>
-
-## tasiyanc — post 8931
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا یک ساعت دیگه یه سایت عالی براتون معرفی میکنم ( که هیچ جایی به شما معرفی نشده) که احتمالا خیلی بکارتون بیاد
-</div>
-
-## tasiyanc — post 8930
 

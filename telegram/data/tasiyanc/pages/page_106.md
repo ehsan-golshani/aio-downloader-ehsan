@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/29 15:46
+📅 آخرین بروزرسانی: 1405/05/29 17:44
 
 ---
+
+## tasiyanc — post 6201
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن هم نمی‌زنیم دیگه ؟
+</div>
+
+## tasiyanc — post 6200
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  
+👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6199
 
@@ -163,21 +180,6 @@ NewMethod🌶️@Tasiyanc.conf
 </div>
 
 ## tasiyanc — post 6174
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  👑
-دانلود  Wg tunnel 🕹
-آموزش⏩
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6173
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🦦 سرورامون با قدرت میتازن
-</div>
-
-## tasiyanc — post 6172
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختصاصی وایرگارد  👑

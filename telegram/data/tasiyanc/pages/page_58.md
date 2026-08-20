@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/05/29 15:46
+📅 آخرین بروزرسانی: 1405/05/29 17:44
 
 ---
+
+## tasiyanc — post 7798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارشات تایید نشده ترامپ با ناتو به توافق رسیده در ازای کمك آمریکا به اوکراین ، ناتو نیز کنار آمریکا به ایران حمله خواهد کرد
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نسخه شیر و خورشید قدیمی 👑
+آموزش اتصال
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7796
 
@@ -168,17 +184,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تنگه هرمز بسته شد💪
-</div>
-
-## tasiyanc — post 7752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری فرودگاه بندرعباس زدن
-</div>
-
-## tasiyanc — post 7751
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنظرتون جنگ تمام عیار میشه اسراییل ورود می‌کنه؟ یا آتش بس میشه تا صبح
 </div>
 

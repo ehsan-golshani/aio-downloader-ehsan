@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 103
 
-📅 آخرین بروزرسانی: 1405/05/29 15:46
+📅 آخرین بروزرسانی: 1405/05/29 17:44
 
 ---
+
+## tasiyanc — post 6273
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ON TARGET ⚡✅.npvt
+</div>
+
+## tasiyanc — post 6272
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور پرمیوم  آلمان 🇩🇪
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6270
 
@@ -209,22 +227,5 @@ vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca20.myfymain.com:8880?mode=gun&se
 ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpDSm1UQ0N4N0x0dWQ%3D@108.181.58.239:8388#%F0%9F%87%B3%F0%9F%87%B1NL%20-%20%40Tasiyanc%202%20MCI
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6249
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌
-‌ واسه هیچ‌کس نامحدود نباشید ،
-آدما گیگی دوست دارن!!!
-
-‌پروکسی
-@TasiyanProxy ✅
-</div>
-
-## tasiyanc — post 6248
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-BabyGirl 🪐.npvt
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/29 15:46
+📅 آخرین بروزرسانی: 1405/05/29 17:44
 
 ---
+
+## tasiyanc — post 8931
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا یک ساعت دیگه یه سایت عالی براتون معرفی میکنم ( که هیچ جایی به شما معرفی نشده) که احتمالا خیلی بکارتون بیاد
+</div>
+
+## tasiyanc — post 8930
 
 ## tasiyanc — post 8929
 
@@ -269,31 +277,5 @@ IPv6
 🔴 پیت هگست وزیر جنگ آمریکا این ویدئو رو منتشر کرد :
 
 🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New Wallpapers ✨ HD
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8904
-
-<div align="center"><img src="files/post_8904_tasiyanc_8904.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#سرگرمی - #کاربردی
-
-🪐 می‌خوای منظومه شمسی رو زنده ببینی؟
-
-ناسا یک سایت فوق‌العاده ساخته که می‌تونی حرکت سیاره‌ها، فضاپیماها و مأموریت‌های فضایی رو به‌صورت سه‌بعدی و تعاملی تماشا کنی.
-
-🌐 https://eyes.nasa.gov
-
-بعد از باز کردن سایت ، رو هر کدوم از سیاره ها ، شهاب سنگ و ... بزنید با جزییات براتون میاره
-
-🔱 @TASIYANC
 </div>
 

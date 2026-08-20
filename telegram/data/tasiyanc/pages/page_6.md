@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/29 15:46
+📅 آخرین بروزرسانی: 1405/05/29 17:44
 
 ---
+
+## tasiyanc — post 9360
+
+<div align="center"><img src="files/post_9360_tasiyanc_9360.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 🆕
+
+" Shadow Queen — Target: You ♟️🖤 "
+
+Prompt 🤖🤖
+
+
+A realistic photo of a powerful, mysterious young woman with dark, tousled hair, wearing a black blazer and several rings. She sits at a wooden table in a dimly lit, shadowy war room or study, holding a pen to her chin and looking directly at the camera with a confident, piercing gaze. In the foreground, a single black chess king piece sits on a detailed map. Behind her, a dark chalkboard reveals handwritten text: 'TARGET: YOU', with bullet points below: 'WEAKNESSES', 'ROUTINES', 'ALLIES', 'NEXT MOVE'. Surveillance photos are pinned to the wall next to the board. The atmosphere is intense, cold, and dramatic. The lighting is low and focused on her face and the text, creating depth and shadows.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9359
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قدیمی ترین سایت فعال در ایران✅
+امنیت،امکانات،تضمین پرداخت💎
+</div>
 
 ## tasiyanc — post 9358
 
@@ -225,29 +252,5 @@ https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
 
 
 @Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 16 August، روز جهانی جوک گفتن و کصخل بازیه
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9338
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎲 با اولین شارژ  🤩🤩🤩درصد شارژ بیشتر بگیر
-🎲 بازگشت هفتگی 🤩🤩 درصد
-🎲 هر واریز با کریتپو 🤩🤩 درصد هدیه بگیر
-
-🎲ورود به سایت و دریافت بونوس ۳۰۰ درصد
-👇🏻👇🏻
-🎲  🌐winro.io🎲
-
-کانال اخبار و هدایا👇🏻
-🌐Telegram
 </div>
 

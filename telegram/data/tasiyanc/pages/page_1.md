@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/29 15:46
+📅 آخرین بروزرسانی: 1405/05/29 17:44
 
 ---
+
+## tasiyanc — post 9481
+
+<div align="center"><video src="files/post_9481_tasiyanc_9481.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9481_tasiyanc_9481.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توی استان زنجان اطراف ترمینال شهرستان ابهر دو تا دختر ۱۷ ساله به این شکل رفتن تو تریلی و الان حالشون وخیم و در کما هستن
+
++ تصادف با موتورسیکلت کمترین بهاش اینه که دست پای ادم می‌شکنه به خانواده هاتون رحم کنید لاقل کلاه ایمنی بزارید
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 9480
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوررری
+🚨سنتکام:
+گروه ضربت ناو هواپیمابر جورج واشنگتن به منطقه عملیاتی ما در خاورمیانه رسید
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9479
 
@@ -385,23 +409,5 @@ https://t.me/+J_q7c-COftQzOGM0
 🔗 آدرس عضویت کانال vip:
 https://t.me/+J_q7c-COftQzOGM0
 https://t.me/+J_q7c-COftQzOGM0
-</div>
-
-## tasiyanc — post 9457
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گروه اتکر شروع بکار کرد کمپین جمع آوری نخاله هایی که عکس دختر مردمو پخش میکنن عضو بشید به پیام پین شده توجه کنید میگم چیکار میکنیم https://t.me/+Iayni3h0j24yYzE0
-</div>
-
-## tasiyanc — post 9456
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گروه اتکر شروع بکار کرد
-
-کمپین جمع آوری نخاله هایی که عکس دختر مردمو پخش میکنن
-عضو بشید به پیام پین شده توجه کنید
-میگم چیکار میکنیم
-
-https://t.me/+Iayni3h0j24yYzE0
 </div>
 

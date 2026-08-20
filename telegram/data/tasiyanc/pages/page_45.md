@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/29 15:46
+📅 آخرین بروزرسانی: 1405/05/29 17:44
 
 ---
+
+## tasiyanc — post 8279
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگل داشت نابود میشد ،
+ولی درختان هنوز به تبر رای میدادن
+چون اون قانعشون کرده بود
+دستش چوبیه پس از خودشونه :)
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8278
+
+<div align="center"><video src="files/post_8278_tasiyanc_8278.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8278_tasiyanc_8278.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از کتاب تاریخ نسل ما خونهای بسیاری میچکه....😞💔
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8277
 
@@ -164,28 +187,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8252
-
-<div align="center"><img src="files/post_8252_tasiyanc_8252.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل
-فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️
-
-مدیریت مجموعه تاسیان
-</div>
-
-## tasiyanc — post 8249
-
-<div align="center"><img src="files/post_8249_tasiyanc_8249.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چی میشه گفت واقن به اینا :)
-
-کامنت آزاد ☺️
-
-@Tasiyanc ⭐️
 </div>
 
