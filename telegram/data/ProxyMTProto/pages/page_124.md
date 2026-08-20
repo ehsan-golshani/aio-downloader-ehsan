@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/29 18:43
+📅 آخرین بروزرسانی: 1405/05/29 19:23
 
 ---
+
+## ProxyMTProto — post 47857
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47856
 
@@ -173,16 +182,5 @@ Server: Unknown
 Port: 9965
 Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47837
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ Telegram access is becoming less stable due to new restrictions.
-
-🔥 We're constantly adding new working proxies for free.
-
-🌎 Get your dedicated proxy now!
-👇 پروکسی اختصاصی خودتو بگیر
 </div>
 
