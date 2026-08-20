@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 9341
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب لینک اختصاصی تاسیان 🚀
+
+🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+
+پروتکل Trojan سرعتی
+( هر ۸ ساعت آپدیت خواهد شد )
+
+
+آموزش ویدیویی اضافه کردن ساب
+
+
+@Tasiyanc 💠 | اتصال امن
+</div>
 
 ## tasiyanc — post 9340
 
@@ -265,14 +282,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز August 15، روز آرامش و ریلکس کردنه.
-
-تو این روز باید استرس رو بریزین دور، و در کمال آرامش، از لحظه به لحظه زندگی، لذت ببرین.
-@Tasiyanc ⭐️
 </div>
 

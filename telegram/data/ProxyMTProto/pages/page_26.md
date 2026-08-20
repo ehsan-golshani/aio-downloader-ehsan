@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/29 22:45
+📅 آخرین بروزرسانی: 1405/05/29 23:31
 
 ---
+
+## ProxyMTProto — post 49835
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee32ee4962951c5b2bb70bc767751761a36f7a6f6e2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49833
 
@@ -163,24 +181,6 @@ Secret: ee16309abd572d284b309ef26bd7a3f685d0b7d0ba70726f78792e6c6f646b69726d6d2e
 Server: Damege-in.Travel-esf.manege-desktop-for.co.im.
 Port: 4443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49815
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eed09b88cbbd4e744865b890e5a0bd26876164322e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49814
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fresh.t-proxy.info.
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

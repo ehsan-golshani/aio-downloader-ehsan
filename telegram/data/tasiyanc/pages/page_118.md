@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 5896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  
+🌐
+
+نحوه اتصال به سرورها 
+⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5894
 
@@ -190,15 +209,5 @@ GANG 🌙 10 SERVER FAST.npvt
 فقط برای 500 نفر اولی که سریعترن در دسترسه! ⚠️
 
 دریافت رایگان کانفیگ اختصاصی
-</div>
-
-## tasiyanc — post 5871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN ♻️
-
-تست شده روی همه اپراتورا🚀
-
-@Tasiyanc ✅
 </div>
 

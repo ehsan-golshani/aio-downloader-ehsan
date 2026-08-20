@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 8882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@TASIYANC ⚡ 04.ovpn
+</div>
 
 ## tasiyanc — post 8881
 
@@ -288,19 +294,5 @@ Restore this old photograph with maximum realism. Remove scratches, dust, stains
 
 
 ✈️@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8851
-
-<div align="center"><video src="files/post_8851_tasiyanc_8851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8851_tasiyanc_8851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«ویدیوی وایرال شده این روزها » صبحانه ای که برای سربازان ارتش آمریکا در میدان جنگ / بیرون مرزها دور از وطنشون « سرو » میشود
-
-پروکسی متصل | پروکسی متصل
-
-✈️@TASIYANC
 </div>
 

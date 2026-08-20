@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 6175
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+NewMethod🌶️@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6174
 
@@ -195,11 +201,5 @@ Premium 💙BLUE.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Vip⚡💚fast.npvt
-</div>
-
-## tasiyanc — post 6151
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium 💙BLUE.npvt
 </div>
 

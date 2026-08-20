@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 9206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
 
 ## tasiyanc — post 9205
 
@@ -345,26 +353,6 @@ vless://06d44c57-8e1a-41f4-b9c4-65d35869e078@78.17.125.201:13868?security=realit
 vless://e4514801-0d5a-42ba-869f-39bd605aef9e@18.153.84.121:22222?security=&encryption=none&headerType=none&type=tcp#%F0%9F%A1%A0%20%40Tasiyanc
 
 vless://e4514801-0d5a-42ba-869f-39bd605aef9e@63.178.105.116:22224?security=&encryption=none&headerType=none&type=tcp#%F0%AA%9A%82%20%40Tasiyanc
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9175
-
-<div align="center"><img src="files/post_9175_tasiyanc_9175.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی 
-🆕
-
-" Golden Sunflower Gaze "
-
-Prompt 🤖🤖
-
-Ultra realistic beauty portrait using the reference image as identity anchor, preserve exact facial features, bone structure, eye shape, lips, skin tone, natural asymmetry and overall likeness. Extreme close-up, direct eye contact, sunflower covering half the face, petals softly touching cheek, nose and lips, delicate floral shadows on skin. Luxury skincare campaign, Vogue Beauty cover style, intimate editorial photography, shallow depth of field, ultra detailed flower texture, crisp iris details, warm cinematic highlights, soft shadows, natural window light, Canon EOS R5, RF 85mm f/1.2L, subtle film grain, fine art floral portrait, luxury beauty advertisement, elegant feminine mood, Pinterest-worthy composition.Photorealistic 8K, realistic anatomy, no Al look, no beauty filter, no skin smoothing, visible pores, authentic skin texture, vertical 5:7.
-
-آموزش استفاده 👉
-
 
 @TASIYANC ⭐️
 </div>

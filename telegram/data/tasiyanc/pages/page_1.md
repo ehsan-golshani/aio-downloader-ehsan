@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 9483
+
+<div align="center"><video src="files/post_9483_tasiyanc_9483.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9483_tasiyanc_9483.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_9483_⚡ 𝐍𝐩𝐯 𝐌𝐞𝐥𝐥 𝐍𝐞𝐭.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡ 𝐍𝐩𝐯 𝐌𝐞𝐥𝐥 𝐍𝐞𝐭.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت
+🔐
+سرور سرعتی مولتی لوکیشن⚡️
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9482
 
@@ -446,12 +482,5 @@ https://t.me/+Mcyp10mcfFA2MTM0
 تو صداسیما جایزه جمع کردن برای کسی که ترامپ بکشه، ۱۸۱ میلیون جمع شده، بعد بلیط هواپیما تا امریکا ۴۰۰ میلیونه 😂
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همگی عمو خسرو رو حمایت کنید عشقا ✅
-https://t.me/+J_q7c-COftQzOGM0
 </div>
 

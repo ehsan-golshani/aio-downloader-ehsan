@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 7305
 
 ## tasiyanc — post 7303
 
@@ -180,12 +182,4 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 </div>
 
 ## tasiyanc — post 7277
-
-## tasiyanc — post 7276
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 22 June ، روز جهانی بوسیدنه 💋
-
-@Tasiyanc ✅
-</div>
 

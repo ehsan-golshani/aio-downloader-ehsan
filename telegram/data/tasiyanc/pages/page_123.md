@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 123
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 5757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز باشه
+</div>
 
 ## tasiyanc — post 5756
 
@@ -184,19 +190,6 @@ https://t.me/Tasiyanc/5733
 
 ⛈ تست شده روی تمام اپراتورها ⛈ 
 
-
-رمز : ″ @Tasiyanc ″
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5734
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده روی رایتل و ایرانسل - بقیه اپراتورا تست کنن ⛈ 
 
 رمز : ″ @Tasiyanc ″
 

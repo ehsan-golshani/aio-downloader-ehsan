@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 8256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت تون چطوره؟
+</div>
 
 ## tasiyanc — post 8255
 
@@ -209,14 +215,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هواپیمای عراقچی در حال خروج از ایران
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8228
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨لحظاتی پیش حمله به پایگاه هوایی و دریایی بوشهر
 
 @Tasiyanc✅
 </div>

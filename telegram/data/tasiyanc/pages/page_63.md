@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 7620
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ربات دانلودر اختصاصی تاسیان آپدیت شد ، پست ها و ریلز های اینستاگرام و بقیه شبکه های اجتماعی بفرستید مشخصات فیلم یا سریال و ... هم براتون نشون داده خواهد شد @TasiyanAploadBot
+</div>
 
 ## tasiyanc — post 7619
 
@@ -166,11 +172,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال رو همه اپراتورا هم اکنون ( وصل اما قط وصل)
 </div>
 

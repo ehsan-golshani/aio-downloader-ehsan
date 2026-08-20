@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 9362
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فاکس نیوز: تفاهم‌نامه آتش بس ۶٠ روزه بین ایران ، آمریکا فردا تمام میشود
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9361
 
@@ -236,22 +244,5 @@ g25
 •سرور سرعتی تست شده تمام اپراتور ها ⚡️
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب لینک اختصاصی تاسیان 🚀
-
-🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-
-پروتکل Trojan سرعتی
-( هر ۸ ساعت آپدیت خواهد شد )
-
-
-آموزش ویدیویی اضافه کردن ساب
-
-
-@Tasiyanc 💠 | اتصال امن
 </div>
 

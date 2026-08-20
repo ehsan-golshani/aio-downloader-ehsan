@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 9232
+
+<div align="center"><img src="files/post_9232_tasiyanc_9232.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ رفته تماشای بازی‌های پاتریوتس؛ بازیکنا هم دخترای نوجوان بودند.
+جالبه ترامپی که همه‌جا چرت می‌زنه، این بار چند ساعت کامل بیدار و متمرکز مونده!🤣
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9231
 
@@ -203,13 +215,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 ⚡️ کافیه فقط یه پروکسی MTPROTO خوب و پایدار وصل باشید و تماس بگیرید. فقط یه نکته مهم: حتماً طرف مقابل باید آنلاین باشه و شماره شما توی لیست مخاطبانشون ذخیره شده باشه.
 
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+fxq9NcirUag3N2Zk
 </div>
 

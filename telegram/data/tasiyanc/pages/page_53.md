@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/29 22:09
+📅 آخرین بروزرسانی: 1405/05/29 23:33
 
 ---
+
+## tasiyanc — post 8017
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺نیروی دریایی آمریکا اعلام کرد از فردا ساعت ٨ شب به وقت گرینویچ (٢٣:٣٠ به وقت ایران) محاصره دریایی دوباره آغاز میشه. @TasiyanProxy✅
+</div>
 
 ## tasiyanc — post 8016
 
@@ -231,11 +237,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨هم اکنون حملات آمریکا پایان یافت ، حملات سپاه به سمت کویت ، بحرین آغاز شد
 @TasiyanC ⭐️
-</div>
-
-## tasiyanc — post 7987
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر شب جنگ خلیج فارس داریم همو میزنن روزا آروم میشن😐
 </div>
 

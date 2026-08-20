@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/29 22:45
+📅 آخرین بروزرسانی: 1405/05/29 23:31
 
 ---
+
+## ProxyMTProto — post 48988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48987
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad6.arixo.shop
+Port: 443
+Secret: ee0655739ff0a111810d8529120d2071a66164332e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48986
 
@@ -163,24 +181,6 @@ Secret: dd3fca63b4b1816dc78d7d5d66ad6ea177
 Server: 194.120.230.120
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: web.utkanos.life
-Port: 443
-Secret: ee36fd02bb86fbc4266de3a70114c13a247765622e75746b616e6f732e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48967
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
