@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/29 20:35
+📅 آخرین بروزرسانی: 1405/05/29 21:19
 
 ---
+
+## ProxyMTProto — post 48101
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp.nowabst.net
+Port: 853
+Secret: ee82ce1f84af4033cc7e7b021069be3d5b6164732e78352e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48100
 
@@ -172,15 +181,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: lumen.proxytop.space
 Port: 443
 Secret: ee77a9c0a7c576db75ddb379ffc1ea49786c756d656e2e70726f7879746f702e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: flux.proxyux.site
-Port: 443
-Secret: ee0a7ecff0ebda97b34dc84157b8cbfad3666c75782e70726f787975782e73697465
 @ProxyMTProto
 </div>
 
