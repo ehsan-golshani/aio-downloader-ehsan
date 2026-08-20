@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/29 09:17
+📅 آخرین بروزرسانی: 1405/05/29 10:04
 
 ---
+
+## ProxyMTProto — post 50271
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50270
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 853
+Secret: eeceaec97c86b6332adc48b3c081954e60766b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50269
 
@@ -163,24 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: wave.savelyev.click
 Port: 443
 Secret: eeba2e1341a08483c2cede6818498348ff776176652e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50251
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50250
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee6be95a795ee766da019cd30044b837c16e6f64652e6561737970726f78792e636664
 @ProxyMTProto
 </div>
 

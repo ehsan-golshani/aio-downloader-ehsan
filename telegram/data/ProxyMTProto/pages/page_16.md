@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/05/29 09:17
+📅 آخرین بروزرسانی: 1405/05/29 10:04
 
 ---
+
+## ProxyMTProto — post 50011
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50010
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp1.hlebushek.com
+Port: 443
+Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50009
 
@@ -163,24 +181,6 @@ Secret: eed6962c6820fac66c942ad857b7072ae265646765322e6b76616b7a6f6e2e746f70
 Server: Unknown
 Port: 443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49991
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dev.nowabst.net
-Port: 853
-Secret: ee54079943a5db4dc9163650c09dfc806d766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 80
-Secret: 7hbZ3hNtxAbJ6L5BQipx2_std3d3LnlhaG9vLmNvbQ==
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/05/28 22:40
+📅 آخرین بروزرسانی: 1405/05/29 10:06
 
 ---
+
+## tasiyanc — post 6505
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی تاسیان 🆕
+
+✅87 کانفیگ تست شده
+
+فایل Txt رو باز کنین کانفیگ رو تو آپ NPV & V2BOX & V2RAYNG زیر بزنید پینگ بگیرید وصل شید  🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از عصر دارم بمب براتون آماده میکنم عشق کنین الان آماده شده
+</div>
+
+## tasiyanc — post 6503
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار رو از اینجا دنبال کنین + پروکسی
+@Tasiyanproxy 
+✅
+@Tasiyanproxy 
+✅
+@Tasiyanproxy 
+✅
+</div>
+
+## tasiyanc — post 6502
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه های عبری:
+نتانیاهو بی صبرانه منتظر دستور حمله گسترده به ایران از سوی ترامپ است
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6501
 
@@ -199,44 +237,5 @@
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6471
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت ارتباط با ادمین ها و تبادلات گپمون : https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا یکم اوضاع اوکی میشه مارو فراموش میکنین؟ 🤣
-</div>
-
-## tasiyanc — post 6469
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت ارتباط با ادمین ها و تبادلات گپمون :
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6468
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۲سرور   سرعتی پرمیوم متد جدید🚀
-
-300 گیگ - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

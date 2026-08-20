@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/28 22:40
+📅 آخرین بروزرسانی: 1405/05/29 10:06
 
 ---
+
+## tasiyanc — post 8782
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ :
+
+نخست وزیر بی‌بی نتانیاهو از اسرائیل، به همراه من و نمایندگان جلسه بسیار خوبی داشتیم. تو این جلسه درباره موضوعات مهم زیادی صحبت شد
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8781
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
+</div>
+
+## tasiyanc — post 8780
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بیانیه سنتکام:
+
+امروز ساعت 5:45 عصر به وقت شرق آمریکا، نیروهای سپاه پاسداران چند موشک بالستیک از داخل ایران به سمت نیروهای آمریکایی مستقر در خاورمیانه شلیک کردن تا یه حمله غافلگیرکننده انجام بدن.
+
+با این حال، همه موشک‌ها رهگیری و منهدم شدن و نیروهای آمریکایی همچنان در بالاترین سطح آماده‌باش هستن
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8774
+
+<div align="center"><img src="files/post_8774_tasiyanc_8774.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرندی از افراد تیم مذاکره کننده :
+سپاه برای جنگ تمام عیار کامل آمادستِ
+</div>
 
 ## tasiyanc — post 8773
 
@@ -202,55 +240,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ایران جای عجیبیه جای لف دادن از چنل سام صابری حرومزاده ممبراش بالا اومده
-</div>
-
-## tasiyanc — post 8755
-
-<div align="center"><img src="files/post_8755_tasiyanc_8755.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسلیت.
-</div>
-
-## tasiyanc — post 8754
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Vip for TS ⚡🔥.npvt
-</div>
-
-## tasiyanc — post 8753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی  ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙄 همه بت باز های حرفه ای دنبال 🔞 شکار این بونوس ها هستن
-✅لیگ‌جهانی والیبال رو میتونید از اینجا پیشبینی کنید
-👇کافیه یه سر بزنی اینجا خودت میفهمی چه خبره 💯
 </div>
 
