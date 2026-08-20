@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/29 19:23
+📅 آخرین بروزرسانی: 1405/05/29 19:54
 
 ---
+
+## ProxyMTProto — post 48418
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn.toconvel.digital
+Port: 443
+Secret: eeefd9942127c0d394cb6c83aa9aea57b863646e2e746f636f6e76656c2e6469676974616c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48417
 
@@ -172,15 +181,6 @@ Secret: 5a4137b07851fc43bd39a6955f56a79b
 Server: 103.161.35.23
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48398
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: active.freetg.shop
-Port: 37443
-Secret: 139fa759df13542a416f1ee5af8d75f1
 @ProxyMTProto
 </div>
 

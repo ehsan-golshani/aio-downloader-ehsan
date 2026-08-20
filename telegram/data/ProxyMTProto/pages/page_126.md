@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/05/29 19:23
+📅 آخرین بروزرسانی: 1405/05/29 19:54
 
 ---
+
+## ProxyMTProto — post 47818
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: turbo2proxy.vpnproxy.cc
+Port: 8443
+Secret: ee56af68a36d94c4d47d100196d6a59f1d747572626f3270726f78792e76706e70726f78792e6363
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47817
 
@@ -172,15 +181,6 @@ Secret: ee10a576008fd642b6e0427f9b2b22447f72617069642e666c6f7773747265616d687562
 Server: some.nolags.pw
 Port: 443
 Secret: ddc63eab2c309e7915a09622cedc7c9a7d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47798
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ytrw134-1.mtproxygram.lol
-Port: 853
-Secret: ee44d2e25cbb26272ed5fd03eaf805c5f262726f777365722e79616e6465782e636f6d
 @ProxyMTProto
 </div>
 
