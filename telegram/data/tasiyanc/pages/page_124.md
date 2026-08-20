@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/29 12:40
+📅 آخرین بروزرسانی: 1405/05/29 15:46
 
 ---
+
+## tasiyanc — post 5730
+
+<div align="center"><img src="files/post_5730_tasiyanc_5730.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🌱2 server.npvt
+</div>
 
 ## tasiyanc — post 5729
 
@@ -190,11 +198,5 @@ sv Country 🇬🇧
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مجموعه تاسیان تلاش خواهد کرد بصورت رایگان بهترین سرور ها و بهترین کانفیگارو براتون ارائه بده تا بصورت امن در این فضا فعالیت خوبی داشته باشید نه اپ های مخرب و vpn های نا امنی ک اطلاعات شمارو تو خطر میندازه
-</div>
-
-## tasiyanc — post 5707
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc - FULL VASL 🍃.npvt
 </div>
 

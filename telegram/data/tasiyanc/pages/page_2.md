@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/29 12:40
+📅 آخرین بروزرسانی: 1405/05/29 15:46
 
 ---
+
+## tasiyanc — post 9455
+
+<div align="center"><img src="files/post_9455_tasiyanc_9455.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴اینترنشنال : آمریکا برای پنج هکر جمهوری اسلامی ۱۰ میلیون دلار جایزه گذاشت
+برنامه «پاداش برای عدالت» وزارت خارجه آمریکا اعلام کرد برای ارائه اطلاعات درباره پنج مرد متهم به هک و سرقت دادههای مرتبط با آمریکا و متحدانش از سوی جمهوری اسلامی، تا سقف ۱۰ میلیون دلار جایزه تعیین کرده است.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9454
 
@@ -316,20 +327,5 @@ Decarys 🔥.ovpn
 پشتیبان فارسی سایت ریتزوبت 👇g27
 
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 9433
-
-<div align="center"><video src="files/post_9433_tasiyanc_9433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9433_tasiyanc_9433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز تولد جاویدنام و بچه قهرمان ایران ملینا اسدی ؛
-
-دختر بچه ی ۳ ساله ای که به ضرب گلوله در ۱۸ دیماه غرق در خون شد و برای همیشه چشمان زیبایش را بست
-
-@Tasiyanc 
-✅
 </div>
 

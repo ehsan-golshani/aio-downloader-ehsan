@@ -1,8 +1,43 @@
 # آرشیو کانال VahidOOnLine - صفحه 144
 
-📅 آخرین بروزرسانی: 1405/05/29 15:13
+📅 آخرین بروزرسانی: 1405/05/29 15:43
 
 ---
+
+## VahidOOnLine — post 252475
+
+<div align="center"><video src="files/post_252475_VahidOOnLine_252475.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252475_VahidOOnLine_252475.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌اینترنشنال در سه‌شنبه ششم مرداد، گریه خانواده یکی از معترضان بازداشتی در دی‌ماه را هنگام اجرای حکم اعدام نشان می دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252474
+
+<div align="center"><video src="files/post_252474_VahidOOnLine_252474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252474_VahidOOnLine_252474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌اینترنشنال در سه‌شنبه ششم مرداد، لحظه اعدام یکی از بازداشتی‌های دی‌ماه ۱۴۰۴ را در میدان علیخانی اصفهان همزمان با پخش اذان صبح نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم آلمان دوشنبه پنجم مرداد به مناسبت سالروز درگذشت رضاشاه و محمدرضا شاه در ۴ و ۵ مرداد، در هامبورگ تجمع کردند و یادشان را گرامی داشتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252472
 
@@ -254,42 +289,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️میزان، خبرگزاری قوه قضاییه جمهوری اسلامی ایران، بامداد سه‌شنبه، ششم مردادماه، از اعدام ابوالفضل سپاهی بادجانی و امیرحسین صفری حسین‌آبادی، دو معترض بازداشت‌شده در اعتراضات دی‌ماه ۱۴۰۴ در اصفهان خبر داد. این درحالی است که پیشتر فارس خبر اعدام سه معترض را منتشر کرده بود که دقایقی بعد، خبر خود را ویرایش و تعداد اعدام شدگان را دو نفر اعلام کرد. پیش از این، در پرونده «میدان علیخانی» اصفهان، عرفان اسفندیاری و گل‌محمد محمدی نیز اعدام شده بودند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252448
-
-<div align="center"><img src="files/post_252448_VahidOOnLine_252448.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم‌زمان با اعدام چند معترض بازداشت شده اعتراضات دی‌ماه در اصفهان در بامداد سه‌شنبه، ویدیوهای منتشر شده در فضای مجازی تجمعات اعتراضی و شعارهای ضدحکومتی شهروندان را در اطراف میدان علیخانی اصفهان نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252447
-
-<div align="center"><video src="files/post_252447_VahidOOnLine_252447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252447_VahidOOnLine_252447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️به گزارش رویترز، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، برای دیدار با دونالد ترامپ، رئیس‌جمهوری آمریکا، وارد این کشور شد. این نخستین دیدار حضوری دو رهبر از زمان آغاز حملات هوایی و موشکی مشترک به ایران به شمار می‌رود.
-این هشتمین دیدار نتانیاهو و ترامپ از زمان بازگشت ترامپ به کاخ سفید است. نتانیاهو همچنین قرار است روز سه‌شنبه در مراسم تشییع جنازه لیندزی گراهام، سناتور جمهوری‌خواه آمریکا شرکت کند
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252446
-
-<div align="center"><img src="files/post_252446_VahidOOnLine_252446.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قوه قضاییه جمهوری اسلامی اعلام کرد بامداد سه‌شنبه حکم اعدام ابوالفضل سپاهی بادجانی و امیرحسین صفری حسین‌آبادی، دو معترض بازداشت شده در اعتراضات دی‌ماه در اصفهان، اجرا شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

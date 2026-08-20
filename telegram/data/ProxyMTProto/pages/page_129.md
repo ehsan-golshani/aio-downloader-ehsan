@@ -1,8 +1,20 @@
 # آرشیو کانال ProxyMTProto - صفحه 129
 
-📅 آخرین بروزرسانی: 1405/05/29 15:13
+📅 آخرین بروزرسانی: 1405/05/29 15:44
 
 ---
+
+## ProxyMTProto — post 47750
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ Working proxies are getting blocked quickly due to new restrictions.
+
+If Telegram starts loading slowly again, it's better to get connected in advance 👀
+
+We're constantly adding new proxies and currently providing them for free 🔥
+
+👉 Start the bot and join our channel to get a working proxy right now.
+</div>
 
 ## ProxyMTProto — post 47749
 
@@ -172,15 +184,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: topproxy.fml-subs.ru
 Port: 443
 Secret: dde71c854efc71f477856bd59728888359
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47730
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 15
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

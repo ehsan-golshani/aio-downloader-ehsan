@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/05/29 12:40
+📅 آخرین بروزرسانی: 1405/05/29 15:46
 
 ---
+
+## tasiyanc — post 6476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امسال ( خرداد ماه) آب تراز دریاچه اورمیه نسبت به سال گذشته (خرداد)۲۰ برابر افزایش داشته 😂😐
+</div>
 
 ## tasiyanc — post 6474
 
@@ -208,11 +214,5 @@ new@Tasiyanc.ovpn
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 300 GB ⚡ VİP.npvt
-</div>
-
-## tasiyanc — post 6451
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🚀⚡.txt
 </div>
 

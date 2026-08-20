@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/05/29 12:40
+📅 آخرین بروزرسانی: 1405/05/29 15:46
 
 ---
+
+## tasiyanc — post 8847
+
+<div align="center"><img src="files/post_8847_tasiyanc_8847.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 8845
 
@@ -269,18 +293,5 @@ vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?secu
 
 
 ⭐@Tasiyanc ⭐
-</div>
-
-## tasiyanc — post 8809
-
-<div align="center"><video src="files/post_8809_tasiyanc_8809.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8809_tasiyanc_8809.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک موش خرما به نام چانک به مدت ۴ سال محصول یک کشاورز را می‌دزدید و آنهارا جلوی دوربین کشاورز میخورد 😂
-
-
-⭐ @TASIYANC ⭐
 </div>
 
