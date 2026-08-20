@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 244
 
-📅 آخرین بروزرسانی: 1405/05/29 05:34
+📅 آخرین بروزرسانی: 1405/05/29 06:42
 
 ---
+
+## VahidOOnLine — post 250197
+
+<div align="center"><video src="files/post_250197_VahidOOnLine_250197.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250197_VahidOOnLine_250197.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تصاویر منتشر شده، صدای ممتد انفجار و ستون دود در چابهار در سیستان و بلوچستان را نشان می‌دهد. براساس توضیحاتی که همراه این ویدیو در حساب «وحید آنلاین» منتشر شده، انفجارها مربوط به حدود ساعت ۵:۳۰ صبح چهارشنبه است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250196
+
+<div align="center"><img src="files/post_250196_VahidOOnLine_250196.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سپاه پاسداران صبح چهارشنبه در بیانیه‌‌های جداگانه از مردم در ادن و کویت خواست که به موسسه‌های آمریکایی حمله کنند و آنها را تخریب کنند. در این بیانیه آمده است: «انتظار از شما ملت مسلمان و کریم این است که این کودک کشان اشغالگر را از خاک خود بیرون بریزید.» این بیانیه خطاب به مردم کویت می‌افزاید: «انتظار داریم هیچ فرصتی را برای تخریب موسسات آمریکایی متجاوز و رهایی سرزمین های اسلامی از پایگاه اشغالگران آمریکایی از دست ندهید.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250195
 
@@ -239,32 +263,6 @@
 بسنت گفت وزارت خزانه‌داری آمریکا به مختل کردن و تضعیف فعالیت‌های مالی غیرقانونی جمهوری اسلامی، از جمله آنچه «سوءاستفاده از دارایی‌های دیجیتال» خواند، متعهد است. او افزود این اقدام بخشی از تلاش‌های واشینگتن برای محدود کردن منابع مالی حکومت ایران است.
 
 وزیر خزانه‌داری آمریکا همچنین تاکید کرد ایالات متحده همچنان با جدیت جریان منابع مالی جمهوری اسلامی را رصد خواهد کرد و دسترسی حکومت ایران به درآمدهای حاصل از آنچه «طرح‌های غیرقانونی درآمدزایی» خواند، قطع خواهد شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250171
-
-<div align="center"><img src="files/post_250171_VahidOOnLine_250171.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت کشور بحرین اعلام کرد آژیر خطر در این کشور به صدا درآمده است. این وزارتخانه تاکنون درباره علت فعال شدن آژیر یا جزئیات تهدید احتمالی توضیح بیشتری ارائه نکرده است.
-
-این اعلام در حالی منتشر می‌شود که در روزهای اخیر هم‌زمان با افزایش تنش‌های نظامی در منطقه، چندین بار آژیر خطر در بحرین به صدا درآمده و مقام‌های این کشور از شهروندان خواسته‌اند دستورالعمل‌های ایمنی را رعایت کنند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250170
-
-<div align="center"><video src="files/post_250170_VahidOOnLine_250170.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250170_VahidOOnLine_250170.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های جمهوری اسلامی با انتشار ویدیویی منتسب به مرحله هفتم عملیات «صاعقه» ارتش جمهوری اسلامی، از حمله‌های پهپادی انتحاری ارتش به پایگاه الازرق اردن خبر دادند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 423
 
-📅 آخرین بروزرسانی: 1405/05/29 05:34
+📅 آخرین بروزرسانی: 1405/05/29 06:42
 
 ---
+
+## VahidOOnLine — post 245805
+
+<div align="center"><video src="files/post_245805_VahidOOnLine_245805.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_245805_VahidOOnLine_245805.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تیم فوتبال ایران با ضربه محمد محبی روی پاس رامین رضاییان در دقیقه ۶۴ توانست دومین گل ایران مقابل نیوزلند را زده و نتیجه بازی را ۲ بر ۲ مساوی کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245804
+
+<div align="center"><img src="files/post_245804_VahidOOnLine_245804.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️در ابتدای نیمه دوم، دقیقه ۵۴، تیم فوتبال نیوزلند توانست گل دوم را وارد دروازه تیم فوتبال ایران کرده و نتیجه بازی را ۲ بر ۱ کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245803
 
@@ -229,28 +253,6 @@
 
 نتانیاهو در بخش دیگری از سخنانش گفت: «فرماندهان سپاه را که مردم ایران را قتل‌عام کرده بودند، از میان برداشتیم» و تاکید کرد مهم‌ترین نتیجه این عملیات، جلوگیری از آن چیزی بوده که او «فاجعه هسته‌ای» توصیف کرد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️جورجیا ملونی، نخست‌وزیر ایتالیا، روز دوشنبه برای شرکت در نشست سران گروه ۷ وارد فرودگاه ژنو در سوئیس شد. تصاویر منتشر شده نشان می‌دهند که ملونی در این سفر، دختر ۹ ساله‌اش، جینورا را نیز به همراه دارد و هر دو پس از خروج از هواپیما مورد استقبال میزبان قرار گرفتند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245784
-
-<div align="center"><img src="files/post_245784_VahidOOnLine_245784.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جی‌دی ونس به سی‌ان‌ان گفت یادداشت تفاهم آمریکا با جمهوری اسلامی «سندی بسیار کلی» و حدود یک‌ونیم صفحه است. او گفت جزییات توافق در جریان مذاکرات بیشتر مشخص خواهد شد.
-ونس گفت: «این یادداشت تفاهم حدود یک صفحه و نیم است، بنابراین سندی بسیار کلی محسوب می‌شود. شماری از مسائل را باید در مرحله مذاکرات فنی مشخص کنیم.»
-
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

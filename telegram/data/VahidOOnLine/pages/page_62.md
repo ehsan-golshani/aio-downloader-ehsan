@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/29 05:34
+📅 آخرین بروزرسانی: 1405/05/29 06:42
 
 ---
+
+## VahidOOnLine — post 254529
+
+<div align="center"><video src="files/post_254529_VahidOOnLine_254529.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254529_VahidOOnLine_254529.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از ایرانیان مقیم آمریکا یکشنبه ۱۸ مرداد نمایشگاهی از جنایت‌های جمهوری اسلامی را در سانفرانسیسکو برگزار کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254528
+
+<div align="center"><video src="files/post_254528_VahidOOnLine_254528.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254528_VahidOOnLine_254528.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی ایران روز دوشنبه ۱۹ مردادماه و در پاسخ به پرسش‌های خبرنگاران درباره گزارش‌ها از شروط جدید تهران برای بازگشایی تنگه هرمز گفت این آبراه از زمان خلقت حضرت آدم تا ۹ اسفند ۱۴۰۴ باز بود و ایران امنیت دریانوردی در آن را تضمین می‌کرد.
+
+بقایی جنگ آمریکا و اسرائیل علیه ایران را عامل تغییر شرایط در تنگه هرمز توصیف کرد و گفت محاصره دریایی آمریکا علیه بنادر جنوب، دیپلماتیک نیست که راه حل دیپلماتیک داشته باشد و باید با اقتدار با این مساله برخورد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254527
 
@@ -286,30 +314,6 @@
 🔹چرا معوقات فروردین و اردیبهشت‌ماه مستمری‌بگیران تأمین اجتماعی پرداخت نمی‌شود؟ مگر ما زندگی نداریم؟
 
 🔹ما کارگران چه گناهی کردیم که تامین اجتماعی با این اوضاع بد اقتصادی حقوق‌ها را دیر می‌دهد. به‌خدا دیگه رومون نمی‌شه تو روی صاحب‌خونه‌ نگاه کنیم.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254495
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️وزارت کشور اکوادور ویدیویی از عملیات کشف و ضبط یک محموله بزرگ مواد مخدر را منتشر کرد.‌
-
-در این عملیات ۵۶ کیلوگرم کوکائین به ارزش تقریبی ۲.۲ میلیون دلار کشف شد. این محموله به شکلی ماهرانه در یک کانتینر حمل میوه جاسازی شده بود و با هوشیاری تیم‌های بازرسی و به کمک سگ‌های ردیاب پلیس شناسایی شد. در جریان این عملیات، عوامل مرتبط با این محموله نیز بازداشت شدند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254494
-
-<div align="center"><video src="files/post_254494_VahidOOnLine_254494.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254494_VahidOOnLine_254494.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم آستین در ایالت تگزاس آمریکا یکشنبه ۱۸ مرداد در اعتراض به اعدام‌های جمهوری اسلامی تجمع کرده و سرود «ای ایران» را همخوانی کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
