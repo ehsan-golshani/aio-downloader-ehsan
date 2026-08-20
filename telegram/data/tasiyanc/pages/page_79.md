@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/29 23:33
+📅 آخرین بروزرسانی: 1405/05/30 00:22
 
 ---
+
+## tasiyanc — post 7013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNToxa1ZyMEtBVElKSTdtd09G@admin.c1.havij.co:443#%40Tasiyanc%20%F0%9F%94%A5
+GB 🇬🇧
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7012
 
@@ -241,12 +251,6 @@ T.me/Tasiyanc
 <div align="center"><video src="files/post_6980_tasiyanc_6980.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_6980_tasiyanc_6980.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ متد اختصاصی httpCustum میزارم تست کنید
-</div>
-
-## tasiyanc — post 6979
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ متد اختصاصی httpCustum میزارم تست کنید

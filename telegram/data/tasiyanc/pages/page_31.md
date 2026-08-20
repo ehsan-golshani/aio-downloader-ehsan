@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/29 23:33
+📅 آخرین بروزرسانی: 1405/05/30 00:22
 
 ---
+
+## tasiyanc — post 8712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@TASIYANC 💥 سرعتی.npvt
+</div>
 
 ## tasiyanc — post 8708
 
@@ -271,22 +277,6 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 رد پای هواپیمای Dragon Lady در آسمان ایران ⚠️
 
 «دراگون لیدی» کابوس آسمونه؛ اسم مستعار Lockheed U-2 که بالای ۲۰ کیلومتر پرواز میکنه و با دوربین‌های فوق دقیق هر تحرکی رو ثبت میکنه. کنارش معمولاً Boeing RC-135 Rivet Joint میاد؛ یکی تصویر میگیره، یکی شنود میکنه. خلبانش لباس شبیه فضانوردها میپوشه و هر وقت این دوتا کنار هم دیده میشن یعنی مأموریت اطلاعاتی جدیه.
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8682
-
-<div align="center"><img src="files/post_8682_tasiyanc_8682.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•پرامپت اختصاصی تاسیان 👑
-
-•عکساتو زیباتر کن 💖
-•آموزش استفاده 🤖🤖
-
-
-🔺دریافت پرامپت 👉
-
 @TASIYANC ⭐️
 </div>
 

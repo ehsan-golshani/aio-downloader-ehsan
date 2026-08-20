@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/29 23:33
+📅 آخرین بروزرسانی: 1405/05/30 00:22
 
 ---
+
+## tasiyanc — post 8513
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+⭕️ انفجار در بندرعباس
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8512
 
@@ -248,14 +258,5 @@ Loc 🇩🇪 🇩🇪
 🚨⭕️ گزارش انفجار در زنجان ، تابیده؟
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8472
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ صدای انفجار در خرم آباد
-
-@TASIYANC 
-✅
 </div>
 

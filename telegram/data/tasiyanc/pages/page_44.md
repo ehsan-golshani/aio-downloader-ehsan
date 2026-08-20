@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/05/29 23:33
+📅 آخرین بروزرسانی: 1405/05/30 00:22
 
 ---
+
+## tasiyanc — post 8306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ شنیده شدن صدای انفجار در اهواز
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8305
 
@@ -170,11 +178,5 @@
 تو امام سجاد نیستی بگی مریضم و نمیتونم بجنگم. جانفدا ثبت نام کردی بااااید بری😹😹😹
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-JAVID SHAH 👑
 </div>
 

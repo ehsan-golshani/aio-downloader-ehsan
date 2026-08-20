@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/29 23:33
+📅 آخرین بروزرسانی: 1405/05/30 00:22
 
 ---
+
+## tasiyanc — post 8373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب زیادی ساکته اوضاع و این موضوع بیشتر ترسناک و دلهره آوره
+</div>
 
 ## tasiyanc — post 8372
 
@@ -222,17 +228,6 @@ Multi Location ⚡ Fast.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه خانواده بندرعباسی بچه‌شونو داخل یه تیکه کائوچو میذارن که کنار دریا بازی کنه
 حواس خانواده پرت میشه آب بچه رو میبره و نیروی دریایی ارتش این بچه رو لب مرز دریایی امارات پیدا میکنن و برمیگردونن🤣🤣
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8342
-
-<div align="center"><img src="files/post_8342_tasiyanc_8342.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معلم جلوی پروژکتور معلم کنار پروژکتور
-
 
 @Tasiyanc✅
 </div>

@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 103
 
-📅 آخرین بروزرسانی: 1405/05/29 23:33
+📅 آخرین بروزرسانی: 1405/05/30 00:22
 
 ---
+
+## tasiyanc — post 6277
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده با سامانتل و ایرانسل🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6276
 
@@ -209,12 +224,6 @@ BabyGirl 🪐.npvt
 </div>
 
 ## tasiyanc — post 6253
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐🇩🇪 @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6252
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🪐🇩🇪 @Tasiyanc.conf

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/29 23:31
+📅 آخرین بروزرسانی: 1405/05/30 00:20
 
 ---
+
+## ProxyMTProto — post 50339
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: api2.medhata.org
+Port: 2443
+Secret: ee9d072ce3c5b43f6b422bb1e7fe983cc4617069322e6d6564686174612e6f7267
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50338
 
@@ -172,15 +181,6 @@ Secret: ee6be95a795ee766da019cd30044b837c16e6f64652e6561737970726f78792e636664
 Server: SaLam.BaCheha.com
 Port: 443
 Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50319
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eeb8f5ea85920054511cbb1c19f1baf3553265383964642e73776966742d63646e2e6e6574
 @ProxyMTProto
 </div>
 

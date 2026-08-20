@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/29 23:33
+📅 آخرین بروزرسانی: 1405/05/30 00:22
 
 ---
+
+## tasiyanc — post 9129
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️دادسرای جنایی تهران :
+
+ساعاتی پیش جنازه حمیدرضا رجب‌زاده(مداح) اطراف تهران کشف شد،جنازه رجب‌‌زاده توسط قاتلین تکه تکه شده و سپس سوخته.
+
+🌎 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9127
 
@@ -283,21 +293,5 @@ cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, str
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9106
-
-<div align="center"><img src="files/post_9106_tasiyanc_9106.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید 🆕
-
-Prompt 🤖🤖
-
-fashion editorial photography, front shot, upper body, professional female model, shot with hasselblad x2d 100c, xcd 90mm f/2.5 lens, cinematic sepia color grading with golden hour warmth, dramatic black silhouette against burnt umber to honey amber gradient backdrop, avant-garde composition with tilted head pose, staring to camera, profound gaze, elongated body stance, flowing black turtleneck, professional main fresnel light at 60 degree angle with silk diffusion, rim light with cto gel at 75 degree angle, haze machine for ethereal atmosphere, feathered shadows, contrast curve manipulation, selective dodge and burn, grain texture overlay, color temperature adjustment at 5500k to 3200k gradient, ultra sharp details, raw format, inspired by paolo roversi lighting technique, hyper realistic, 16K, rich detail --ar 9:16 --quality 2 --style raw --personalize nq7rq2j --stylize 500 --v 6.1
-
-آموزش استفاده 👉
-
-@TASIYANC ✅
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/29 23:33
+📅 آخرین بروزرسانی: 1405/05/30 00:22
 
 ---
+
+## tasiyanc — post 9390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ اسم کانال با فونت معمولی تنظیم شد
+
+𝐓 𝐀 𝐒 𝐈 𝐘 𝐀 𝐍 👉 Tasiyan | تاسیان
+
+بخاطر برخی الگوریتم های موجود تلگرام فونت معمولی گذاشتیم
+
+« همراه ما باشید ❤️ »
+</div>
 
 ## tasiyanc — post 9388
 
@@ -215,26 +227,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 شاهزاده رضا پهلوی : نه اما پدر بزرگ من به یهودیان پناه داد زمانی که شما آنها را در کوره ها می سوزاندید.
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9363
-
-<div align="center"><img src="files/post_9363_tasiyanc_9363.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت پرمیوم جدید 🆕
-
-" Cyberpunk Redline Portrait "
-
-تبدیل به پرامپت دخترانه کافیه woman رو جایگزین man کنید
-
-Prompt 🤖🤖
-
-Cinematic studio portrait of a young man with messy textured hair, wearing a black turtleneck, centered composition, dark minimal background, dramatic low-key lighting, a horizontal red neon light strip cutting across his eyes, strong contrast shadows covering lower face, intense gaze, moody atmosphere, cyberpunk aesthetic, ultra-realistic, sharp focus, 85mm lens, shallow depth of field, high detail, editorial photography style.
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
 </div>
 

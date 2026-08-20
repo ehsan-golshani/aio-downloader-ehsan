@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/29 23:33
+📅 آخرین بروزرسانی: 1405/05/30 00:22
 
 ---
+
+## tasiyanc — post 9460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو صداسیما جایزه جمع کردن برای کسی که ترامپ بکشه، ۱۸۱ میلیون جمع شده، بعد بلیط هواپیما تا امریکا ۴۰۰ میلیونه 😂
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9459
 
@@ -294,19 +302,5 @@ Decarys 🔥.ovpn
 بلبل شوقم هوای نغمه‌خوانی می‌کند 😞
 
 نفری یه بیت بگید تو کامنت
-</div>
-
-## tasiyanc — post 9438
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال 
-⛓
-
-
-@Tasiyanc ⭐️
 </div>
 

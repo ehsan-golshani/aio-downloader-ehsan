@@ -1,8 +1,53 @@
 # آرشیو کانال VahidOOnLine - صفحه 461
 
-📅 آخرین بروزرسانی: 1405/05/29 23:30
+📅 آخرین بروزرسانی: 1405/05/30 00:19
 
 ---
+
+## VahidOOnLine — post 244899
+
+<div align="center"><video src="files/post_244899_VahidOOnLine_244899.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244899_VahidOOnLine_244899.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️پرواز نمایشی نیروی هوایی فرانسه بر فراز «مجسمه آزادی» در نیویورک
+
+♦️تیم آکروباتیک نیروی هوایی فرانسه با اجرای یک پرواز نمایشی بر فراز مجسمه آزادی در نیویورک، در مراسم‌های مرتبط با دویست‌وپنجاهمین سالگرد اعلامیه استقلال آمریکا شرکت کرد.
+
+این نمایش هوایی بخشی از برنامه‌های بزرگداشت سالگرد استقلال ایالات متحده بود و با حضور شماری از شهروندان و گردشگران در اطراف بندر نیویورک برگزار شد.
+
+مجسمه آزادی که در سال ۱۸۸۶ از سوی فرانسه به ایالات متحده اهدا شد، یکی از نمادهای تاریخی دوستی میان دو کشور به شمار می‌رود. آمریکا در سال ۲۰۲۶ دویست‌وپنجاهمین سالگرد تصویب اعلامیه استقلال خود را گرامی می‌دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244898
+
+<div align="center"><video src="files/post_244898_VahidOOnLine_244898.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244898_VahidOOnLine_244898.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوی رسیده به ایران اینترنشنال، حدود ساعت ۴ بامداد ۲۱ خردادماه محدوده پایگاه نظامی حصارک در کمالشهر کرج، پیاپی هدف گرفته شد. بنا بر گزارش‌ها این نقطه دست‌کم ۵ بار مورد اصابت قرار گرفت و در زمان وقوع حمله، نشانه‌ای از حضور جنگنده‌ها مشاهده نشد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244897
+
+<div align="center"><img src="files/post_244897_VahidOOnLine_244897.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری ایرنا، صبح پنجشنبه ۲۱ خرداد به نقل از رئیس اورژانس تهران گزارش کرد که در پی حملات بامداد پنجشنبه آمریکا، سه نفر در استان تهران مصدوم و به بیمارستان منتقل شدند.
+
+ایالات متحده بامداد پنجشنبه و برای نخستین بار پس از آتش‌بس ۱۹ فروردین، علاوه بر جنوب ایران، مناطقی در مرکز و استان تهران را هم بمباران کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244896
 
@@ -229,50 +274,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مشاور رسانه‌ای پادشاه بحرین اعلام کرد سامانه‌های پدافند هوایی این کشور پرتابه‌های شلیک‌شده از سوی جمهوری اسلامی را رهگیری و منهدم کرده‌اند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244866
-
-<div align="center"><video src="files/post_244866_VahidOOnLine_244866.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244866_VahidOOnLine_244866.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️کانال تلگرامی «وحیدآنلاین» بامداد پنجشنبه ۲۱ خردادماه تصاویری از انفجارها و ستون‌های دود در مناطقی از غرب استان البرز و شهر کرج منتشر کرد.
-
-بر اساس این گزارش، تصاویر ارسالی از حوالی حصارک، کمال‌شهر و مسیر کرج به قزوین دود ناشی از انفجارها را نشان می‌دهد.
-
-این گزارش همزمان با آن منتشر شد که فرماندهی مرکزی ایالات متحده (سنتکام) که هدایت عملیات نظامی آمریکا در خاورمیانه را بر عهده دارد، اعلام کرد در تازه‌ترین دور حملات به ایران، سایت‌های راداری، ارتباطی و سامانه‌های پدافند هوایی را هدف قرار داده است. به گفته سنتکام، نیروی هوایی و دریایی آمریکا با استفاده از مهمات هدایت‌شونده دقیق در این عملیات مشارکت داشته‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244865
-
-<div align="center"><video src="files/post_244865_VahidOOnLine_244865.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244865_VahidOOnLine_244865.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای منتشرشده در حساب کاربری «وحید آنلاین»، دود ناشی از انفجارها را در بامداد پنج‌شنبه ۲۱ خرداد، در پی حملات آمریکا به حوالی حصارک و کمال‌شهرِ استان البرز، نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244864
-
-<div align="center"><video src="files/post_244864_VahidOOnLine_244864.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244864_VahidOOnLine_244864.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در شبکه‌های اجتماعی، عبور یک موشک را در میان رد موشک‌های شلیک‌شده پیشین، در بامداد پنج‌شنبه ۲۱ خرداد در آسمان تبریز نشان می‌دهد.
-رسانه‌های جمهوری اسلامی نیز در پی حمله آمریکا، از حمله موشکی به پایگاه موفق‌السلطی در اردن خبر دادند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

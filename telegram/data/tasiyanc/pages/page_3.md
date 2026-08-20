@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/29 23:33
+📅 آخرین بروزرسانی: 1405/05/30 00:22
 
 ---
+
+## tasiyanc — post 9438
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال 
+⛓
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9437
 
@@ -240,13 +254,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ، همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام پستها پاک میشه
-</div>
-
-## tasiyanc — post 9415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ،
-همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام
-پستها پاک میشه
 </div>
 

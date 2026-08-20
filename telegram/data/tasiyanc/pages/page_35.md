@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/05/29 23:33
+📅 آخرین بروزرسانی: 1405/05/30 00:22
 
 ---
+
+## tasiyanc — post 8601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبلیغات و همکاری با مجموعه ما
+👉 Admin @TsSub
+</div>
 
 ## tasiyanc — post 8600
 
@@ -272,17 +279,5 @@ A highly realistic medium shot of a young man standing outdoors, centered in the
 
 
 Join As @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8556
-
-<div align="center"><img src="files/post_8556_tasiyanc_8556.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پست‌های جدید ترامپ در تروث:
-
-جدیدترین مورد از بیش از 52 هزار معترض بی‌گناه. وحشی‌ها!!! دموکرات‌ها کِی میخوان بیدار بشن؟؟؟
-
-@TASIYANC ⭐️
 </div>
 
