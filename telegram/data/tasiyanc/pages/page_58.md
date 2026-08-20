@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/05/29 11:49
+📅 آخرین بروزرسانی: 1405/05/29 12:40
 
 ---
+
+## tasiyanc — post 7795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری
+پیت هگست وزیر جنگ آمریکا بخاطر جنگ با ایران سفرش به اسرائیل را لغو کرد
+</div>
 
 ## tasiyanc — post 7794
 
@@ -158,16 +165,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وضعیت کارمندای نت‌بلاکس الان:
-</div>
-
-## tasiyanc — post 7749
-
-<div align="center"><img src="files/post_7749_tasiyanc_7749.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی از ممبرا
-
-بندر عباس هم اکنون
-@Tasiyanc
 </div>
 

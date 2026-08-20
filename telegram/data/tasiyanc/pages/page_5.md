@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/29 11:49
+📅 آخرین بروزرسانی: 1405/05/29 12:40
 
 ---
+
+## tasiyanc — post 9381
+
+<div align="center"><img src="files/post_9381_tasiyanc_9381.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺بورس در آستانه ۵.۹ میلیونی شدن
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9380
 
@@ -249,15 +260,5 @@ g25
 ✅https://mafbet.com/fa/?btag=260368
 ✔️ کانال تلگرام سایت:
 👑https://t.me/+8eCDvbzSV5JlZjlk
-</div>
-
-## tasiyanc — post 9356
-
-<div align="center"><img src="files/post_9356_tasiyanc_9356.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استوری های جدید جول فرشاد: رامین رضائیان من رو به تریسام دعوت کرد!
-
-@Tasiyanc ✅
 </div>
 

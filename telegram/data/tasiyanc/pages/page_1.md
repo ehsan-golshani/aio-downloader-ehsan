@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/29 11:49
+📅 آخرین بروزرسانی: 1405/05/29 12:40
 
 ---
+
+## tasiyanc — post 9478
+
+<div align="center"><video src="files/post_9478_tasiyanc_9478.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9478_tasiyanc_9478.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_9478_⚡ 𝑽𝑰𝑷 - ضد اختلال.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡ 𝑽𝑰𝑷 - ضد اختلال.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+سرور سرعتی مولتی لوکیشن
+⚡️
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود 
+⬇️ ترید 
+🤑 اینستاگرام 
+📸 جمینای 
+🤖
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+
+✔️ @TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9477
 
@@ -350,17 +393,6 @@ https://t.me/+Iayni3h0j24yYzE0
 🔴اینترنشنال : آمریکا برای پنج هکر جمهوری اسلامی ۱۰ میلیون دلار جایزه گذاشت
 برنامه «پاداش برای عدالت» وزارت خارجه آمریکا اعلام کرد برای ارائه اطلاعات درباره پنج مرد متهم به هک و سرقت دادههای مرتبط با آمریکا و متحدانش از سوی جمهوری اسلامی، تا سقف ۱۰ میلیون دلار جایزه تعیین کرده است.
 
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9454
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨معاونت پلیس فتا:
-
-متاسفانه یه پلتفرم فروش آنلاین طلا با ۲۰۰ هزار کاربر، ورشکسته شد و علتش هم خالی فروشی بود.
-
-+ مراقب باشید به هیچ وجه تو هیچ برنامه و سایتی طلا و نقره فیزیکی نخرید
 @Tasiyanc ⭐️
 </div>
 

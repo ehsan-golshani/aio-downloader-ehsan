@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 129
 
-📅 آخرین بروزرسانی: 1405/05/29 11:49
+📅 آخرین بروزرسانی: 1405/05/29 12:40
 
 ---
+
+## tasiyanc — post 5585
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان 📱
+
+⛈ سرور تست شده همه اپراتورها⛈
+
+برای اتصال پایدار صبور باشید
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5584
 
@@ -177,11 +189,5 @@ WAR 🔥.npvt
 برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5563
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی در راه
 </div>
 

@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/29 11:49
+📅 آخرین بروزرسانی: 1405/05/29 12:40
 
 ---
+
+## tasiyanc — post 9200
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 🆕
+
+" 🤩 Chocolate Leather Elegance "
+
+Prompt 
+🤖🤖
+
+
+An ultra-realistic high-fashion editorial portrait of a person wearing an oversized dark chocolate brown glossy leather blazer over a luxurious ivory silk button-up shirt with a deep burgundy satin tie. The person has short softly tousled hair, natural glowing skin, minimal elegant makeup, and a calm, sophisticated expression while looking sideways in perfect side profile. Both hands are casually tucked into the trouser pockets, creating a relaxed yet powerful pose. Warm neutral studio background with a large soft shadow cast on the wall, cinematic Rembrandt lighting, subtle golden tones, premium editorial fashion photography, luxury magazine aesthetic, rich leather texture, realistic silk fabric reflections, minimalist styling, timeless elegance, shallow depth of field, ultra photorealistic skin, 85mm lens, f/2.0, masterpiece, 8K, Vogue-inspired fashion campaign, soft cinematic color grading, extremely detailed, no text, no watermark.Three-quarter body composition, oversized structured leather blazer with broad shoulders, silky white shirt slightly gathered at the waist, deep burgundy tie hanging naturally, dark pleated trousers, side-profile pose with closed relaxed lips, dramatic wall shadow, muted earth-tone palette, quiet luxury aesthetic, luxury editorial styling, clean studio setup, elegant minimalism, highly realistic textures
+
+
+آموزش استفاده 
+👉
+
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9199
 
@@ -330,17 +351,5 @@ r20
 
 @Tasiyanc 
 ☑️
-</div>
-
-## tasiyanc — post 9168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸اظهارات ترامپ درباره ایران برای بار انم:
-
-همانطور که احتمالاً شنیده‌اید، ما تمام تنگه را پاکسازی مین کرده‌ایم. شاید شما این را نشنیده باشید.
-
-ما کنترل ۱۰۰ درصدی این تنگه را در اختیار داریم.
-
-@Tasiyanc ⭐️
 </div>
 

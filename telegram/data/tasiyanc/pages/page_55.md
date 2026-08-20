@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/29 11:49
+📅 آخرین بروزرسانی: 1405/05/29 12:40
 
 ---
+
+## tasiyanc — post 7931
+
+<div align="center"><img src="files/post_7931_tasiyanc_7931.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو کدومی؟خودم 15
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7930
 
@@ -229,20 +239,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 روح تمام پدر های آسمانی شاد🖤
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7892
-
-<div align="center"><video src="files/post_7892_tasiyanc_7892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7892_tasiyanc_7892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعتان چووونه رفته نوکِ چرخ و فلک داره تبلیغ بالشت و پتو میکنه😐
-
-بالشتش هم اون وسط پرت شد پایین، میگه عیبی نداره یکم ترسو بود...
-
-@Tasiyanc ⭐️
-#Navid
 </div>
 
