@@ -1,8 +1,56 @@
 # آرشیو کانال VahidOOnLine - صفحه 200
 
-📅 آخرین بروزرسانی: 1405/05/29 22:06
+📅 آخرین بروزرسانی: 1405/05/29 22:45
 
 ---
+
+## VahidOOnLine — post 251253
+
+<div align="center"><img src="files/post_251253_VahidOOnLine_251253.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری تسنیم به نقل از خبرنگار خود گزارش داد موج جدیدی از حملات آغاز شده و صدای چند انفجار در بندر چابهار و کنارک شنیده شده است.
+
+تاکنون جزییات بیشتری درباره علت این انفجارها یا خسارت و تلفات احتمالی منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251252
+
+<div align="center"><img src="files/post_251252_VahidOOnLine_251252.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش‌های دریافتی کانال خبری وحید آنلاین از مخاطبان، حاکی از شنیده شدن چند صدای انفجار در بندرعباس و قشم، از حدود ساعت ۱:۴۶ تا ۱:۴۸ بامداد است. شماری از مخاطبان اعلام کرده‌اند این صداها از محدوده پایگاه هوایی یا اطراف فرودگاه بندرعباس شنیده شده است.
+برخی گزارش‌ها از دو تا چهار انفجار پیاپی و لرزش شیشه‌ها خبر می‌دهند. تاکنون هیچ مقام رسمی درباره علت این صداها یا خسارت و تلفات احتمالی اظهار نظر نکرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251251
+
+<div align="center"><img src="files/post_251251_VahidOOnLine_251251.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سازمان عملیات تجارت دریایی بریتانیا (UKMTO)، بامداد سه‌شنبه، با انتشار یک هشدار فوری اعلام کرد گزارش‌هایی مبنی بر وقوع یک حمله در فاصله ۸ مایل دریایی (حدود۱۴.۸ کیلومتر) در شمال شرقی منطقه «لیما» واقع در عمان دریافت کرده است. بر اساس اطلاعات منتشر شده، این سازمان گزارش‌های متعددی دریافت کرده که نشان می‌دهد یک نفتکش از طریق کانال ۱۶ فرکانس بسیار بالا (VHF)، خبر از اصابت یک پرتابه ناشناس به خود در محدوده تنگه هرمز داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251250
+
+<div align="center"><img src="files/post_251250_VahidOOnLine_251250.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان عملیات تجارت دریایی بریتانیا (UKMTO) اعلام کرد گزارشی از یک حادثه در فاصله ۸ مایل دریایی شمال شرقی لیما در عمان دریافت کرده است.
+این سازمان افزود گزارش‌های متعددی دریافت کرده که بر اساس آنها، یک نفتکش از طریق کانال ۱۶ رادیویی VHF اعلام کرده در تنگه هرمز هدف یک پرتابه ناشناس قرار گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251249
 
@@ -189,52 +237,6 @@
 خبرگزاری مهر بامداد سه‌شنبه از شنیده شدن صدای فعالیت سامانه‌های پدافندی در اطراف نیروگاه اتمی بوشهر گزارش داد.
 
 همزمان با اعلام سنتکام مبنی آغاز دور تازه حملات علیه جمهوری اسلامی، رسانه‌های ایران از شنیده شدن صدای انفجار در بندرعباس، سیریک و قشم خبر دادند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251233
-
-<div align="center"><img src="files/post_251233_VahidOOnLine_251233.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری مهر، دوشنبه‌شب از فعالیت سامانه‌های پدافندی در اطراف نیروگاه اتمی بوشهر خبر داد. همزمان، ایرنا گزارش داد که چند انفجار در سیریک، بندرعباس و قشم شنیده شده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251232
-
-<div align="center"><img src="files/post_251232_VahidOOnLine_251232.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ایرنا، دوشنبه‌شب، ۲۹ تیرماه از شنیده‌شدن چند انفجار در سیریک، بندرعباس و قشم خبر داد. براساس این گزارش، «محل دقیق این انفجارها مشخص نیست».
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251231
-
-<div align="center"><img src="files/post_251231_VahidOOnLine_251231.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ستاد فرماندهی مرکزی آمریکا (سنتکام) در شبکه ایکس، اعلام کرد: «شامگاه دوشنبه ۲۳:۳۰ به وقت تهران، نیروهای آمریکایی دور تازه‌ای از حملات علیه جمهوری اسلامی را آغاز کردند.»
-سنتکام افزود: «این حملات با هدف تضعیف بیشتر توانمندی‌های نظامی جمهوری اسلامی که برای حمله به کشتی‌های تجاری در تنگه هرمز به کار گرفته می‌شود، انجام شده است.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251230
-
-<div align="center"><img src="files/post_251230_VahidOOnLine_251230.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری فارس، وابسته به سپاه پاسداران، شامگاه دوشنبه از شنیده شدن صدای انفجار در حوالی سیریک خبر داد و اعلام کرد هنوز محل دقیق این انفجارها مشخص نیست.
-همزمان صداوسیمای جمهوری اسلامی از شنیده شدن صدای انفجار در بندرعباس خبر داد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
