@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/30 00:22
+📅 آخرین بروزرسانی: 1405/05/30 00:55
 
 ---
+
+## tasiyanc — post 9463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت چطوره؟
+</div>
+
+## tasiyanc — post 9462
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عضوی از تیم اتکر ما شوید تا باهم کسانی که به حریم خصوصی مردم تجاوز می‌کنند را محو کنیم
+
+https://t.me/+Mcyp10mcfFA2MTM0
+جوین بدید
+</div>
+
+## tasiyanc — post 9461
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی مولتی لوکیشن⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+
+دانلود اندروید 🕹
+
+
+دانلود آیفون 📱
+
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9460
 
@@ -275,32 +323,5 @@ til.ac/0L4vyJf
 ‌
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 9441
-
-<div align="center"><video src="files/post_9441_tasiyanc_9441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9441_tasiyanc_9441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 بدترین سرنوشت برای یک حاکم( رهبر) اینه که مردمش از دستش بنالند و دائما نفرینش کنند .... آه دل داغ دیدگان یقه کوچیک و بزرگتان را خواهد گرفت ( استاد کاکاوند)
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Decarys 🔥.ovpn
-</div>
-
-## tasiyanc — post 9439
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیرم و گاهی دلم یاد جوانی می‌کند
-بلبل شوقم هوای نغمه‌خوانی می‌کند 😞
-
-نفری یه بیت بگید تو کامنت
 </div>
 

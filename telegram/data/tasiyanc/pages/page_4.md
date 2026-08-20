@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/30 00:22
+📅 آخرین بروزرسانی: 1405/05/30 00:55
 
 ---
+
+## tasiyanc — post 9419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان عزیز توجه کنید جهت طرح شکایت چون اطلاعات تایید ۱۰۰٪ نمیشه ، فقط کانال و شماره اکانت تلگرام و شماره عددی اکانت طرف کافیه تا طرح شکایت کنید پلیس فتا درجا پیگیری می‌کنه
+@wWwWwWwWwWwWwWwWwWwWwW26
+
+آیدی عددی
+8973915004
+</div>
+
+## tasiyanc — post 9418
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سیو کنین ساعت ۲ پاک میشه
+دخترایی ک عکسشون پخش شده اسکرین ویدیو بگیرن از چنلش و اکانتش ، میتونن در اولین ساعات فردا با مراجعه به دفتر خدمات قضایی شهرشون شکایتشون طرح کنن کلا ۱۰ مین زمان می‌بره ، پروسه خاص ای هم ندارع و زود پیگیری میشه ، قبلا هم از این موردها داشتیم ک نسلش منقرض شد
+</div>
+
+## tasiyanc — post 9416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ، همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام پستها پاک میشه
+</div>
 
 ## tasiyanc — post 9415
 
@@ -179,53 +202,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قدیمی ترین سایت فعال در ایران✅
 امنیت،امکانات،تضمین پرداخت💎
-</div>
-
-## tasiyanc — post 9394
-
-<div align="center"><img src="files/post_9394_tasiyanc_9394.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅چرا سایت بین المللی ماف بت بهترین انتخاب برای پیش بینی و شرط بندی❓
-1️⃣ شارژ و برداشت اسان و سریع
-2️⃣پر اپشن ترین سایت فعال در ایران
-3️⃣دارای مجوز رسمی curacao
-4️⃣کارت به کارت همیشه فعال
-
-➖هدایا بی نظیر ماف بت:👇
-🎁 100% بونوس خوشامدگویی
-🎁 تا 20%برگشت باخت هفتگی
-🎁10% شارژ اضافی روی شارژ دلاری
-🎁و15%و20%شارژ اضافی نقدی برای 3 واریز اول هر روز
-
-👍 با فعالیت در ماف بت طعم واقعی امکانات در سایت جهانی حس میکنید👍
-g26
-🎯ادرس بدون فیلتر سایت:
-✅https://mafbet.com/fa/?btag=260368
-✔️ کانال تلگرام سایت:
-👑https://t.me/+8eCDvbzSV5JlZjlk
-</div>
-
-## tasiyanc — post 9392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز August 17، روز دوست داشتن پاهاست.
-
-+ این روز رو به رفیقای فوت فتیشت تبریک بگو
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 9391
-
-<div align="center"><img src="files/post_9391_tasiyanc_9391.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، مارجوری تیلور نماینده سابق کنگره آمریکا:
-
-آمریکا توی جلسات راهبردی خودش، درباره استفاده از بمب اتم علیه ایران صحبت میکنه! آره این موضوع کاملا واقعیه و حدس نمیزنم!
-
-@Tasiyanc ⭐️
 </div>
 

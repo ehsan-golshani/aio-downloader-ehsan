@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 315
 
-📅 آخرین بروزرسانی: 1405/05/30 00:19
+📅 آخرین بروزرسانی: 1405/05/30 00:52
 
 ---
+
+## VahidOOnLine — post 248606
+
+<div align="center"><img src="files/post_248606_VahidOOnLine_248606.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ناصر مکارم‌شیرازی، مرجع تقلید حامی حکومت، در پیامی به مناسبت مراسم حکومتی دفن علی خامنه‌ای گفت که نباید تصور شود جنگ پایان یافته است و مقابله با «جبهه استکبار» همچنان ادامه دارد.
+
+مکارم‌شیرازی در بخش دیگری از پیام خود گفت عاملان کشتن علی خامنه‌ای و دیگر کشته‌شدگان جنگ، از «کیفر الهی و مجازات عادلانه» مصون نخواهند ماند.
+
+او از مسئولان، نیروهای مسلح و تصمیم‌گیران جمهوری اسلامی خواست در عرصه‌های نظامی، دیپلماسی و دیگر حوزه‌ها در برابر دشمن ایستادگی کنند.
+
+مکارم‌شیرازی، ولایت فقیه را «محور وحدت» و «رکن استواری نظام» خواند و گفت حفظ وحدت و همبستگی ملی بیش از هر زمان ضروری است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248605
+
+<div align="center"><video src="files/post_248605_VahidOOnLine_248605.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248605_VahidOOnLine_248605.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده نشان می‌دهند گروهی از ایرانیان مقیم آلمان شنبه ۱۳ تیر با راهپیمایی در خیابان‌های هامبورگ علیه جمهوری اسلامی، برای مراسم دفن علی خامنه‌ای شادی می‌کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248604
 
@@ -257,36 +287,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده نشان می‌دهند گروهی از ایرانیان مقیم ایسلند شنبه ۱۳ تیر مقابل سفارت آمریکا در شهر ریکاویک تجمع کرده و خواستار پایان مماشات با جمهوری اسلامی شدند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248586
-
-<div align="center"><img src="files/post_248586_VahidOOnLine_248586.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به گزارش خبرگزاری ایسنا، یک «فعال فرهنگی و عکاس اسپانیایی» به نام پدرو جی. ساآودرا با حضور در تهران، در حال پوشش مراسم حکومتی تشییع و دفن علی خامنه‌ای است.
-
-در یکی از عکس‌های منتشرشده در بخش روایتگر اینستاگرام این فرد، تصویری از دونالد ترامپ، رییس‌جمهوری آمریکا، در دست یکی از شرکت‌کنندگان در مراسم خامنه‌ای دیده می‌شود که روی آن عبارت «فقط انتقام» نوشته شده است.
-
-بر روی این پلاکارد، تصویر سر بریده و خون‌آلود ترامپ دیده می‌شود.
-
-در روزهای گذشته و در جریان برگزاری مراسم «وداع» با تابوت‌های علی خامنه‌ای و اعضای خانواده او، سرداران سپاه، نمایندگان مجلس و امامان جمعه، از «انتقام سخت و قطعی» و مجازات عاملان مرگ خامنه‌ای سخن گفته‌اند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248585
-
-<div align="center"><video src="files/post_248585_VahidOOnLine_248585.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248585_VahidOOnLine_248585.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده، گروهی از ایرانیان مقیم مجارستان شنبه ۱۳ تیر با فراخوان شاهزاده رضا پهلوی مقابل سفارت آمریکا در بوداپست تجمع کرده و خواستار بسته شدن «سفارت رژیم تروریستی جمهوری اسلامی» شدند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

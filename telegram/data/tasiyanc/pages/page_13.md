@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/30 00:22
+📅 آخرین بروزرسانی: 1405/05/30 00:55
 
 ---
+
+## tasiyanc — post 9181
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قانون جدید
+اگر مدل ماشینتون 1385به قبله، جزو خودروهای فرسوده حساب میشه و
+به این ماشین‌ها دیگه بنزین سهمیه‌ای نمیدن، حق تو اسنپ و تاکسی های اینترنتی هم ندارن!
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9180
+
+<div align="center"><img src="files/post_9180_tasiyanc_9180.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕
+
+اسم : Ethereal Lake Muse 🤍
+
+آموزش استفاده 👉
+
+دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9178
+
+<div align="center"><img src="files/post_9178_tasiyanc_9178.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 
+🆕
+
+" 🖤 Silent Noir Portrait "
+
+Prompt 🤖🤖
+
+
+Use uploaded images as face reference. Absolute face lock. Black-and-white minimalist portrait of an adult man sitting in a chair, waist-up, right profile/three-quarter profile, head slightly lowered, looking down. Wearing a black baseball cap (visor casting shadow over eyes), oversized black T-shirt, light shorts/pants, and a metal wristwatch. Calm, thoughtful mood. Plain light-gray textured wall background with negative space above and on the right; edge of a leather chair visible on the left. Soft diffused light from upper left, moderate contrast, deep facial shadows, realistic fabric/skin texture, subtle film grain. Studio/interior photography, 50mm, f/2.8, ISO 200, high detail, natural proportions, clean composition, 1:1 aspect ratio. Negative: color, bright tones, smile, eye contact, text/logos, extra people, heavy retouching, glossy look, overexposure, blur, artifacts, face/hand distortions, extra fingers, watermark.
+
+
+آموزش استفاده 
+👉
+
+
+@TASIYANC 
+⭐️
+</div>
 
 ## tasiyanc — post 9177
 
@@ -310,34 +360,5 @@ A high-contrast black and white studio portrait of a handsome Middle Eastern man
 •اتصال امن برای همه 🇮🇷
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱 ممنون ک هستید❤️
-</div>
-
-## tasiyanc — post 9155
-
-<div align="center"><img src="files/post_9155_tasiyanc_9155.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Cozy Cat Cuddle 😒
-
-آموزش استفاده 👉
-
-دریافت پرامپت👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱
-ممنون ک هستید❤️
 </div>
 

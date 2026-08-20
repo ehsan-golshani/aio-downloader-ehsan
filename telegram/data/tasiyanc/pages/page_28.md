@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/05/30 00:22
+📅 آخرین بروزرسانی: 1405/05/30 00:55
 
 ---
+
+## tasiyanc — post 8794
+
+<div align="center"><img src="files/post_8794_tasiyanc_8794.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجا نه نیویورکه نه دوبی نه ژاپن
+این نمای نزدیک از مادربرد یک کامپیوتره !
+
+⭐ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8793
+
+<div align="center"><img src="files/post_8793_tasiyanc_8793.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مقایسه بلند ترین قله کره زمین با بلند ترین قله کره مریخ !🙂
+قله اورست زمین با 8848 متر
+قله المپوس مریخ با 21222 متر
+
+⭐ @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8792
+
+<div align="center"><video src="files/post_8792_tasiyanc_8792.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8792_tasiyanc_8792.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید کاخ سفید با تصاویری از ترامپ و متن:
+
+« کار این جنگ رو یه‌سره کن »
+
+
+⭐ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8791
 
@@ -182,54 +220,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8769
-
-<div align="center"><video src="files/post_8769_tasiyanc_8769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8769_tasiyanc_8769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سام صابری که دیشب اون گندش بالا اومد، امروز با این الفاظ مردم رو خطاب کرد و به همه ناموسی داد:
-
-@TASIYANC
-</div>
-
-## tasiyanc — post 8766
-
-<div align="center"><img src="files/post_8766_tasiyanc_8766.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠  نسخه اختصاصی مود GitiVPN
-✅️سیستم عامل: اندروید
-
-تست شده با همه اینترنت ها📶📶📶🛜🛜
-
-🟢توضیحات مهم:
-وارد لیست سرور ها بشید، یکی را انتخاب کنید و متصل بشید. سرعت خوبی داره.
-
-نسخه: 111
-
-ویژگی های نسخه مود:
-• باز بودن سرور های پریمیوم
-• حذف تبلیغات اضافی
-• نامحدود شدن تایم
-
-برای دانلود روی لینک زیر کلیک کنید
-
-🔗《لینک دانلود》👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8765
-
-<div align="center"><img src="files/post_8765_tasiyanc_8765.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نخست‌وزیر نتانیاهو و رئیس‌جمهور ترامپ در کاخ سفید.
-
-@TASIYANc ⭐️
 </div>
 

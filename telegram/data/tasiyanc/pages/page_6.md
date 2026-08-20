@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/30 00:22
+📅 آخرین بروزرسانی: 1405/05/30 00:55
 
 ---
+
+## tasiyanc — post 9366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر 👌
+</div>
+
+## tasiyanc — post 9365
+
+<div align="center"><img src="files/post_9365_tasiyanc_9365.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
+
+💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
+sa25
+📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥
+💵
+
+‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
+https://t.me/+F1CivZlkxrgzMTM0
+https://t.me/+F1CivZlkxrgzMTM0
+</div>
+
+## tasiyanc — post 9364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 روزنامه نگار آلمانی: آیا شما مامور اسرائیل هستید؟
+
+شاهزاده رضا پهلوی : نه اما پدر بزرگ من به یهودیان پناه داد زمانی که شما آنها را در کوره ها می سوزاندید.
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9363
 
@@ -213,48 +246,5 @@ g25
 
 
 @Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9344
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙂این بازی خیلی این روزا ترند💥
-راحت میتونی پولت چند برابر کنی💖
-فرصت از دست ندین فیلم بازی نگاه کنید و شروع کنید😁💵
-</div>
-
-## tasiyanc — post 9343
-
-<div align="center"><video src="files/post_9343_tasiyanc_9343.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9343_tasiyanc_9343.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟ویدئوبازی محبوب Chicky choice🌟
-
-فقط کافیه مرغ از خیابون رد کنی و پولت افزایش بدی😍💵
-
-💖توی سایت بت اینجا بازی کن و پیش بینی کن و پول در بیار😍
-⬅️امکان شارژ با کارت بانکی راحت و امن
-⬅️تسویه حساب سریع بدون احراز
-
-🎁هربار شارژ کنی 12% بیشتر شارژ میشی✅
-🎁اگ باختی هم 10% باختت سایت بهت برگشت میده✅
-🚨ادرس ورود به سایت:
-💠http://betinja.bet/affiliates/?btag=2760677
-
-⚠️فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،امریکا،ترکیه،سنگاپور،فنلاند و...
-
-⭐کانال اطلاع رسانی سایت:👇 sr25
-💠https://t.me/+K0fAOE9hCUo3OGE8
 </div>
 

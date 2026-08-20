@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/30 00:22
+📅 آخرین بروزرسانی: 1405/05/30 00:55
 
 ---
+
+## tasiyanc — post 9156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱 ممنون ک هستید❤️
+</div>
+
+## tasiyanc — post 9155
+
+<div align="center"><img src="files/post_9155_tasiyanc_9155.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕
+
+اسم : Cozy Cat Cuddle 😒
+
+آموزش استفاده 👉
+
+دریافت پرامپت👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱
+ممنون ک هستید❤️
+</div>
 
 ## tasiyanc — post 9153
 
@@ -195,47 +224,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 👉 دریافت پرامپت 
 👉 @TASIYANC 
 ⭐️
-</div>
-
-## tasiyanc — post 9132
-
-<div align="center"><img src="files/post_9132_tasiyanc_9132.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Mountain Embrace ❤️
-
-
-آموزش استفاده 👉
-
-دریافت پرامپت 👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زمانی به این درجه از سود توی بت میرسی که بدونی کی و کجا وارد شی🚀
-
-https://t.me/+_btGj-rRAxs3NGVk
-https://t.me/+_btGj-rRAxs3NGVk
-</div>
-
-## tasiyanc — post 9130
-
-<div align="center"><img src="files/post_9130_tasiyanc_9130.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پول درآوردن از بت دقیقا جاییه که فرق استراتژی داشتن و ادعا داشتن رو مشخص میکنه 👌
-
-15 بازی 15 برد ✅
-
-من به پول شما نیاز ندارم و چیزیم به شما نمیخوام بفروشم
-g18
-لینک چنل
-https://t.me/+_btGj-rRAxs3NGVk
-https://t.me/+_btGj-rRAxs3NGVk
 </div>
 
