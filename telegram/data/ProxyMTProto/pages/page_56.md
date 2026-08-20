@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/05/29 12:38
+📅 آخرین بروزرسانی: 1405/05/29 13:24
 
 ---
+
+## ProxyMTProto — post 49213
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 0a9b43ea17eff45e518fa360979998e7
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49212
 
@@ -172,15 +181,6 @@ Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 Server: tg4e94dd95.koshkaproxy.shop
 Port: 443
 Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: AjaB_Sorati_Dare
-Port: 443
-Secret: BeZaN_RoooSh_Connect
 @ProxyMTProto
 </div>
 
