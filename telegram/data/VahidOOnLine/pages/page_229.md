@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 229
 
-📅 آخرین بروزرسانی: 1405/05/30 01:28
+📅 آخرین بروزرسانی: 1405/05/30 02:15
 
 ---
+
+## VahidOOnLine — post 250630
+
+<div align="center"><img src="files/post_250630_VahidOOnLine_250630.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دنی دنون، سفیر اسرائیل در سازمان ملل، با اشاره به کشته شدن انس محمود احمد حمدان، از اعضای حماس، در شبکه اجتماعی ایکس نوشت: «هیچ مصونیتی برای هیچ تروریستی وجود ندارد؛ هر کسی که در حمله هفتم اکتبر مشارکت داشته، بهای آن را خواهد پرداخت.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250629
 
@@ -268,18 +279,6 @@
 بر اساس این اطلاعیه، این حادثه در جریان جنگ جاری ایران و آمریکا رخ داده است.
 این نهاد همچنین به کشتی‌های عبوری توصیه کرد آخرین اطلاعات امنیت دریایی را دنبال کنند و با توجه به شرایط عملیاتی در حال تحول منطقه، هوشیاری خود را حفظ کنند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250610
-
-<div align="center"><video src="files/post_250610_VahidOOnLine_250610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250610_VahidOOnLine_250610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

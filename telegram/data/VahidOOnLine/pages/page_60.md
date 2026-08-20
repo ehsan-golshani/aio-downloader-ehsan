@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/05/30 01:28
+📅 آخرین بروزرسانی: 1405/05/30 02:15
 
 ---
+
+## VahidOOnLine — post 254693
+
+<div align="center"><video src="files/post_254693_VahidOOnLine_254693.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254693_VahidOOnLine_254693.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک کشتی تجاری کوچک سه‌شنبه ۲۰ مرداد در تنگه باب‌المندب هدف حمله موشکی حوثی‌های یمن وابسته به حکومت جمهوری اسلامی قرار گرفت. مقام‌های دولتی یمن از کشته شدن سه خدمه پاکستانی و یک ملوان اندونزیایی و زخمی شدن چهار نفر دیگر در این رابطه خبر دادند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254692
 
@@ -273,17 +286,6 @@ IranintlTV
 
 محسن رضایی روز دوشنبه ۱۹ مرداد ماه با حکم رسمی مجتبی خامنه‌ای، به دبیری شورای عالی امنیت ملی منصوب شد. پیش از او، محمدباقر ذوالقدر دبیر شعام بود که پس از انتشار شایعه استعفایش، روز دوشنبه با حکم رهبر سوم جمهوری اسلامی به عنوان «مشاور سیاسی» او انتخاب شد.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254673
-
-<div align="center"><img src="files/post_254673_VahidOOnLine_254673.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محسن دهنوی، سخنگوی مجمع تشخیص مصلحت نظام، سه‌شنبه ۲۰ مرداد، در شبکه ایکس نوشت اعضای این مجمع در جلسه اخیر خود، محمد مخبر و محمد فروزنده را به عنوان جایگزین علی لاریجانی و عبدالرحیم موسوی در هیات عالی نظارت بر حسن اجرای سیاست‌های کلی نظام انتخاب کردند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

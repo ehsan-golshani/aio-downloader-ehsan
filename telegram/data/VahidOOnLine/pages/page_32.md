@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/05/30 01:28
+📅 آخرین بروزرسانی: 1405/05/30 02:15
 
 ---
+
+## VahidOOnLine — post 255347
+
+<div align="center"><video src="files/post_255347_VahidOOnLine_255347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255347_VahidOOnLine_255347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در تهران با ارسال ویدیویی می‌گوید در اوج گرما خسته از سر کار برگشته‌ام و برق برای بار سوم در طول یک روز قطع شده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255346
 
@@ -277,19 +290,6 @@ Indypersian
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رحمت‌الله نوروزی، نماینده علی‌آباد کتول در مجلس گفت: «تورم مسکن بسیار بالاست و هم خرید مسکن و هم اجاره‌نشینی در کلان‌شهرها و حتی شهرهای کوچک با فشار جدی همراه شده است.»
 نوروزی ادامه داد: «بسیاری از جوانان مجرد و متاهل با شرایط سختی برای تامین رهن، اجاره و خرید مسکن مواجهند.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255327
-
-<div align="center"><img src="files/post_255327_VahidOOnLine_255327.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی نهاوندی، رییس مرکز تحقیقات اسلامی مجلس گفت: «آمریکا و اسرائیل و نیز ایادی منطقه‌ای آن‌ها باید مطمئن باشند که هیچ اقدام خصمانه‌ای بدون پاسخ نمی‌ماند و هر ضربه‌ای، هزینه سنگین‌تر و دردناک‌تری به همراه خواهد داشت.»
-
-به گزارش خبرگزاری تسنیم، نهاوندی همچنین گفت که بازدارندگی فقط تهدید به پاسخ نیست؛ ایجاد محاسبه‌ای است که در آن، انصراف از جنگ برای دشمن عقلانی‌تر از ادامه آن باشد.
 IranintlTV
 
 🤖 @VahidOOnLine
