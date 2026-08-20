@@ -1,8 +1,52 @@
 # آرشیو کانال VahidOOnLine - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/30 02:15
+📅 آخرین بروزرسانی: 1405/05/30 02:46
 
 ---
+
+## VahidOOnLine — post 256019
+
+<div align="center"><img src="files/post_256019_VahidOOnLine_256019.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرکز عملیات تجارت دریایی بریتانیا (UKMTO) روز پنج‌شنبه ۲۹ مرداد گزارش داد که یک نفتکش در ۲۵۰ کیلومتری شرق بندر مکلا در یمن، توسط شش فرد مسلح توقیف شده و هم‌اکنون به سمت سومالی در حال هدایت است.
+
+اگرچه این مرکز نامی از شناور یا هویت مهاجمان نبرده است، اما گروه هوشمندی دریایی Marisks اعلام کرد که تغییر مسیر این نفتکش، ربایش توسط دزدان دریایی را قاطعانه تایید می‌کند و نشان‌دهنده «بازگشت چشمگیر دزدی دریایی و فعالیت‌های مسلحانه در خليج عدن و حوضه سومالی» است.
+
+این حادثه در حالی رخ می‌دهد که با تغییر مسیر کشتی‌های تجاری به دلیل جنگ ایران و عبور آن‌ها از مناطق تحت فعالیت دزدان دریایی سومالی، خطرات امنیتی افزایش یافته است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256018
+
+<div align="center"><video src="files/post_256018_VahidOOnLine_256018.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256018_VahidOOnLine_256018.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در شبکه‌های اجتماعی، اتاق جاویدنام ایلیا دهقانی را در نبود او به تصویر می‌کشد.
+
+این جاویدنام شامگاه جمعه ۱۹ دی در تهرانپارس تهران با گلوله جنگی هدف قرار گرفت که به قطع نخاع او انجامید و پس از حدود یک هفته بستری جان خود را از دست داد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256017
+
+<div align="center"><video src="files/post_256017_VahidOOnLine_256017.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256017_VahidOOnLine_256017.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تصاویری تاریخی از جشن خرمن با حضور کشاورزان، روستاییان و مهندسان ایرانی و آمریکایی؛ همراه با رقص‌های محلی ایران و اجرای Square Dance آمریکایی.
+گوشه‌ای از همکاری و ارتباط فرهنگی ایران و آمریکا در قدیم.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256016
 
@@ -242,46 +286,6 @@ Indypersian
 به گفته این منابع، دو نفر از کشته‌شدگان عضو سپاه پاسداران ایران بودند و یک تبعه عراقی مرتبط با سپاه نیز در درگیری با نیروهای دولتی یمن کشته شده است.
 منابع یمنی همچنین به العربیه انگلیسی گفتند فرمانده «تیپ سوم» موسوم به «تیپ‌های فتح» وابسته به حوثی‌ها در حمله یک پهپاد زخمی شده است.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255999
-
-<div align="center"><img src="files/post_255999_VahidOOnLine_255999.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
-</div>
-
-## VahidOOnLine — post 255998
-
-<div align="center"><img src="files/post_255998_VahidOOnLine_255998.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️قیمت دلار در بازار تهران از ۱۹۰ هزار تومان رد شد
-
-♦️قیمت دلار در بازار آزاد تهران ظهر پنجشنبه ۲۹ مردادماه و یک روز پس از آنکه دونالد ترامپ از تشدید تحریم اقتصادی سخن گفت، با افزایش چشمگیری همراه و وارد کانال ۱۹۱ هزار تومان شد.
-
-فروشندگان ارزهای خارجی در شبکه‌های اجتماعی، تا ظهر روز پنجشنبه قیمت دلار را ۱۹۰ هزار و ۱۰۰ تومان اعلام کرده‌اند.
-
-همزمان، هر یورو در بازار تهران به قیمت ۲۲۲ هزار و ۴۰۰ تومان رسید.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255997
-
-<div align="center"><video src="files/post_255997_VahidOOnLine_255997.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255997_VahidOOnLine_255997.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مخاطبان با ارسال ویدیوهایی یاد فرحناز اسپد، روزنامه‌نگار و مجری ایران‌اینترنشنال را گرامی داشتند. یکی از آنها گفت: «رفتن او در شرایطی که مردم ایران هر روز با رنجی تازه مواجه می‌شوند، زخمی بر پیکر ملت بود.»
-
-فرحناز اسپد پس از تحمل یک دوره بیماری سخت چشم از جهان فروبست.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

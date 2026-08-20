@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 224
 
-📅 آخرین بروزرسانی: 1405/05/30 02:15
+📅 آخرین بروزرسانی: 1405/05/30 02:46
 
 ---
+
+## VahidOOnLine — post 250748
+
+<div align="center"><img src="files/post_250748_VahidOOnLine_250748.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیروهای مسلح اردن اعلام کردند سامانه‌های دفاعی این کشور ۱۰ موشک شلیک‌شده از ایران را رهگیری کرده‌اند.
+
+به گزارش خبرگزاری رسمی اردن، این رویداد تلفات جانی یا خسارت مالی بر جای نگذاشته است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250747
+
+<div align="center"><img src="files/post_250747_VahidOOnLine_250747.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت کشور بحرین اعلام کرد آژیرهای هشدار برای سومین بار در این کشور به صدا درآمده‌اند.
+
+تاکنون جزئیاتی درباره علت فعال شدن آژیرها یا تهدید احتمالی منتشر نشده است، اما پیش از این، نیروهای مسلح جمهوری اسلامی از حمله به کویت و بحرین خبر داده بودند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250746
+
+<div align="center"><img src="files/post_250746_VahidOOnLine_250746.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ارتش کویت صبح شنبه با انتشار بیانیه‌ای اعلام کرد که سامانه‌های پدافند هوایی این کشور در حال مقابله با پهپادهای «متخاصم» هستند. همزمان، صدای آژیر هشدار در بحرین به صدا درآمد و وزارت کشور بحرین از ساکنان این کشور خواست به مکان امن بروند و از توصیه‌های ایمنی پیروی کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250745
 
@@ -241,44 +280,6 @@
 
 این مقام استانی افزود نیروهای راهداری در حال بازگشایی مسیرهای مسدودشده هستند. استانداری هرمزگان نیز با اشاره به احتمال حملات دوباره، از شهروندان خواست تا اطلاع بعدی از تردد غیرضروری در جاده‌ها و محورهای ارتباطی استان خودداری کنند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250727
-
-<div align="center"><img src="files/post_250727_VahidOOnLine_250727.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️بنابر اعلام معاونت سیاسی، امنیتی و اجتماعی استانداری هرمزگان، در پی حملات موشکی و هوایی به برخی مناطق این استان، تاکنون «سه نفر جان خود را از دست داده و هشت نفر دیگر مجروح شده‌اند».
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250726
-
-<div align="center"><img src="files/post_250726_VahidOOnLine_250726.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باراک راوید، خبرنگار اکسیوس، به نقل از یک مقام ارشد آمریکایی گزارش داد [حکومت] ایران یک موشک بالستیک به‌سوی یک پایگاه آمریکا در عربستان سعودی شلیک کرده است.
-
-به گفته راوید، این نخستین حمله مستقیم [حکومت] ایران به عربستان سعودی در حدود چهار ماه گذشته است.
-
-تاکنون جزئیاتی درباره پایگاه هدف قرارگرفته، سرنوشت موشک و خسارات یا تلفات احتمالی منتشر نشده است.
-
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250725
-
-<div align="center"><img src="files/post_250725_VahidOOnLine_250725.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️حساب رسمی سازمان دفاع مدنی عربستان سعودی در اکس، پس از صدور هشدارهای اضطراری اولیه مبنی بر وقوع خطر در استان‌های الخرج و ینبع، در بیانیه‌های جدیدی از رفع کامل خطر در این مناطق خبر داد. این سازمان با انتشار هشدارهای تلفنی بر روی شبکه تلفن‌های همراه، ضمن اعلام پایان وضعیت اضطراری تاکید کرد که ساکنان برای حفظ سلامت خود باید همچنان به پیروی از دستورالعمل‌های دفاع مدنی ادامه دهند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
