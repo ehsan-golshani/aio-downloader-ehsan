@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/29 17:42
+📅 آخرین بروزرسانی: 1405/05/29 18:43
 
 ---
+
+## ProxyMTProto — post 49948
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: petrichor.slarkfat.icu
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: download.lv426.co.uk.
+Port: 443
+Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49946
 
@@ -163,24 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: dev.nowabst.net
 Port: 853
 Secret: ee54079943a5db4dc9163650c09dfc806d766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49928
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: relaywise.co.uk.
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49927
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: wisp.slarkfat.icu
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 

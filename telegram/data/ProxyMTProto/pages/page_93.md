@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/05/29 17:42
+📅 آخرین بروزرسانی: 1405/05/29 18:43
 
 ---
+
+## ProxyMTProto — post 48476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 34.51.222.239
+Port: 443
+Secret: ddfb1c51c0125d6c82066dd588f5201849
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 103.161.35.23
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48474
 
@@ -163,24 +181,6 @@ Secret: ee50bc25d9708e2abc9d39ff7c654de9a26765742e75746b616e6f732e6c696665
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48456
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: portal.balalaika.click
-Port: 443
-Secret: eed9b57dfbf5b124dd877540301c89c774706f7274616c2e62616c616c61696b612e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48455
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: www2.nilmart.ir
-Port: 443
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
