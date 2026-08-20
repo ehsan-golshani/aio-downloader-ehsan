@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/05/29 19:54
+📅 آخرین بروزرسانی: 1405/05/29 20:35
 
 ---
+
+## ProxyMTProto — post 48080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 13.chunkycorp.shop
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48079
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48078
 
@@ -163,24 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: apex.proxytop.space
 Port: 443
 Secret: ee05d3d7463edfb7a674cc1d89ba24eeba617065782e70726f7879746f702e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48060
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48059
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: office.proxytg.live
-Port: 443
-Secret: eed604acbe90be65ddf34629f1e2234f7d6f66666963652e70726f787974672e6c697665
 @ProxyMTProto
 </div>
 

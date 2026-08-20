@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/29 19:54
+📅 آخرین بروزرسانی: 1405/05/29 20:35
 
 ---
+
+## ProxyMTProto — post 48100
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48099
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy19.arixo.shop
+Port: 443
+Secret: ee6563f5614f0abb0d62d219083ab9f658617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48098
 
@@ -163,24 +181,6 @@ Secret: ee77a9c0a7c576db75ddb379ffc1ea49786c756d656e2e70726f7879746f702e73706163
 Server: flux.proxyux.site
 Port: 443
 Secret: ee0a7ecff0ebda97b34dc84157b8cbfad3666c75782e70726f787975782e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 13.chunkycorp.shop
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48079
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 
