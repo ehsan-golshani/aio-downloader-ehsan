@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 507
 
-📅 آخرین بروزرسانی: 1405/05/30 00:52
+📅 آخرین بروزرسانی: 1405/05/30 01:28
 
 ---
+
+## VahidOOnLine — post 243595
+
+<div align="center"><video src="files/post_243595_VahidOOnLine_243595.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243595_VahidOOnLine_243595.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه ۱۳ خردادماه در پاسخ به سوالی درباره تعریف آتش‌بس، بدون اشاره به درگیری سه‌شنبه‌شب میان جمهوری اسلامی و نیروهای آمریکا، گفت: «تقریبا به همین شکلی که اکنون وجود دارد.»
+
+او افزود: «آنجا بخش متفاوتی از جهان است. در آن قسمت از جهان، آتش‌بس یعنی طرف‌ها با شدت کمتری به تیراندازی ادامه می‌دهند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243594
+
+<div align="center"><img src="files/post_243594_VahidOOnLine_243594.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ در گفت‌وگو با پادکست «پاد فورس وان» در پاسخ به این پرسش که آیا مجتبی خامنه‌ای از سلامت عقل برخوردار است یا در کما به سر می‌برد، گفت: «افتخار دیدارش را نداشته‌ام، اما نشنیده‌ام حالش خوب باشد. اگر روایت‌ها را باور کنید، او بسیاری از اعضای مختلف بدنش را از دست داده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243593
 
@@ -241,36 +267,6 @@
 
 ترامپ گفت: «ممکن است این اتفاق بیفتد. اگر رخ دهد، هرچند ممکن است هم رخ ندهد، چه کسی می‌داند، اما اگر اتفاق بیفتد، احتمال دارد همین آخر هفته به نتیجه برسد.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243575
-
-<div align="center"><video src="files/post_243575_VahidOOnLine_243575.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243575_VahidOOnLine_243575.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد با ادامه اختفای مجتبی خامنه‌ای، شهروندان در گلشهر کرج، اطلاعیه‌ای با عنوان «مفقودی» برای رهبر جمهوری اسلامی نصب کرده‌اند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243574
-
-<div align="center"><img src="files/post_243574_VahidOOnLine_243574.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ گفت ممکن است به‌زودی و حتی همین آخر هفته پیشرفتی در مذاکرات با ایران حاصل شود و تهران به امضای اسناد نزدیک است.
-
-او در کاخ سفید به خبرنگاران گفت: «ممکن است اتفاق نیفتد، اما ممکن است همین آخر هفته رخ دهد.»
-
-ترامپ درباره اورانیوم غنی‌شده ایران گفت: «می‌خواهم آن را به دست بیاوریم و در آینده‌ای نه‌چندان دور به دست خواهیم آورد.»
-
-ترامپ همچنین گفت در تلاش است موضوع بازگشایی تنگه هرمز را از درگیری‌ها در لبنان جدا کند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
