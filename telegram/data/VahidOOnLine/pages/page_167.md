@@ -1,8 +1,17 @@
 # آرشیو کانال VahidOOnLine - صفحه 167
 
-📅 آخرین بروزرسانی: 1405/05/29 08:33
+📅 آخرین بروزرسانی: 1405/05/29 09:17
 
 ---
+
+## VahidOOnLine — post 251895
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اعتصاب غذا و تحصن زندانیان قزلحصار در اعتراض به اعدام‌ها پنج‌شنبه یکم مرداد، برای یازدهمین روز ادامه یافت. این اعتصاب پس از انتقال شش زندانی محکوم به اعدام به سلول انفرادی آغاز شد و معترضان خواستار توقف اعدام‌ها شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251894
 
@@ -296,17 +305,6 @@ iranintl
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبرگزاری رویترز گزارش داد که صبح جمعه دوم مرداد، آژیرهای هشدار در بحرین به صدا درآمد. این خبر جزئیات بیشتری درباره علت به صدا درآمدن آژیرها منتشر نکرد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251874
-
-<div align="center"><img src="files/post_251874_VahidOOnLine_251874.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️اکبر صالحی، معاون امنیتی و انتظامی استاندار اصفهان، اعلام کرد بامداد جمعه دوم مرداد، منطقه‌ای در شهرستان نایین هدف حمله آمریکا قرار گرفت. به گفته او، این حمله هیچ تلفات جانی در پی نداشت و میزان خسارات احتمالی در دست بررسی است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

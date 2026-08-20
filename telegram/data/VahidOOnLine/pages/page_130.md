@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 130
 
-📅 آخرین بروزرسانی: 1405/05/29 08:33
+📅 آخرین بروزرسانی: 1405/05/29 09:17
 
 ---
+
+## VahidOOnLine — post 252806
+
+<div align="center"><video src="files/post_252806_VahidOOnLine_252806.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252806_VahidOOnLine_252806.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرخط خبرهای پنج‌شنبه ۸ مرداد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252805
 
@@ -270,19 +283,6 @@
 معاون امنیتی و انتظامی استانداری خوزستان اعلام کرد نقاطی در اطراف شهر اهواز بامداد پنجشنبه هدف حمله موشکی آمریکا قرار گرفته است.
 
 این اظهارات پس از گزارش‌های متعدد شهروندان درباره شنیده شدن چندین انفجار در اهواز منتشر شد. این مقام استانی تاکنون جزییات بیشتری درباره محل دقیق اصابت، میزان خسارت یا تلفات احتمالی ارائه نکرده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252786
-
-<div align="center"><img src="files/post_252786_VahidOOnLine_252786.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معاون امنیتی و انتظامی استانداری خوزستان اعلام کرد نقاطی در اطراف شهرهای شادگان و اروندکنار هدف حمله موشکی آمریکا قرار گرفته‌اند.
-
-حیاتی به ایرنا گفت جزییات بیشتر، از جمله میزان خسارت‌های احتمالی و سایر اطلاعات مربوط، پس از بررسی‌های اولیه از طریق مراجع رسمی اعلام خواهد شد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

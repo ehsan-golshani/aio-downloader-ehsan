@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/29 08:33
+📅 آخرین بروزرسانی: 1405/05/29 09:17
 
 ---
+
+## VahidOOnLine — post 255650
+
+<div align="center"><img src="files/post_255650_VahidOOnLine_255650.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، تصویری در شبکه اجتماعی تروث سوشال منتشر کرد که نقشه تنگه هرمز و بخش‌هایی از ایران، خلیج فارس و دریای عمان را نشان می‌دهد.
+
+در بالای این تصویر عبارت «قلمرو جدید آمریکا» نوشته شده و محدوده تنگه هرمز با یک دایره مشخص شده است. در بخش پایینی تصویر نیز عبارت «تنگه هرمز» با حروف درشت دیده می‌شود.
+
+ترامپ همراه این تصویر توضیح دیگری منتشر نکرده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255649
 
@@ -323,19 +338,6 @@ Indypersian
 
 ترامپ که در جریان ملاقات با یک نجات غریق نوجوان، به پرسش‌های خبرنگاران پاسخ می‌داد، از سوال‌های خبرنگار سی‌ان‌ان عصبانی شد و به او گفت «تو آدم پرسرو صدایی هستی. ساکت باش. ساکت باش.»
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255612
-
-<div align="center"><video src="files/post_255612_VahidOOnLine_255612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255612_VahidOOnLine_255612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وال‌استریت ژورنال گزارش داده است که جمهوری اسلامی هم‌زمان با ادامه مذاکرات، ساختار فرماندهی، زرادخانه موشکی و پهپادی و شبکه نیروهای نیابتی خود را برای جنگی گسترده‌تر آماده می‌کند.
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

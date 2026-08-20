@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/29 08:33
+📅 آخرین بروزرسانی: 1405/05/29 09:17
 
 ---
+
+## VahidOOnLine — post 255521
+
+<div align="center"><img src="files/post_255521_VahidOOnLine_255521.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی خضریان، عضو کمیسیون امنیت ملی و سیاست خارجی مجلس، به خانه ملت، گفت: «هیچ زمانی به اندازه امروز جبهه مقاومت قوی نبوده و با وجود کشته شدن افرادی چون حسن نصرالله، مقاومت قوی‌تر از هر زمان دیگری است و تعداد عملیات حزب‌الله علیه اسرائیل قابل قیاس با گذشته نیست.»
+
+خضریان تاکید کرد: «ما حتما باید تضعیف مقاومت در جبهه سوریه را جبران کنیم اما مابقی جریان مقاومت در قوی‌ترین دوران خود در تاریخ به سر می‌برد و ما باید با این باور، به فکر ارتقا نیز باشیم.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255520
 
@@ -301,19 +314,6 @@ IranintlTV
 
 این سه خلبان در جریان ماموریت دو فروند جنگنده سوخو-۲۴ نیروی هوایی ارتش در ۱۱ اسفند ۱۴۰۴ مفقود شدند. در این ماموریت چهار خلبان حضور داشتند که پیکر خلبان مجید کاظمی پس از ماه‌ها به ایران بازگردانده شد، اما تاکنون اطلاعاتی درباره سرنوشت سه خلبان دیگر منتشر نشده است.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255494
-
-<div align="center"><video src="files/post_255494_VahidOOnLine_255494.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255494_VahidOOnLine_255494.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران از نگاه جهان: مهم‌ترین اخبار و تحلیل‌های دوشنبه ۲۶ مرداد ۱۴۰۵
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

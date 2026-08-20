@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 133
 
-📅 آخرین بروزرسانی: 1405/05/29 08:33
+📅 آخرین بروزرسانی: 1405/05/29 09:17
 
 ---
+
+## ProxyMTProto — post 47657
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r20.proxytg.space
+Port: 8443
+Secret: ee882e7f1447939817016bb33afc4fe86c7232302e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47656
 
@@ -173,17 +182,5 @@ Server: 194.154.25.238
 Port: 443
 Secret: 886ace76f7a9a1e3219537fe5dfd04d5
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47637
-
-<div align="center"><img src="files/post_47637_ProxyMTProto_47637.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🫶 Welcome back #Iran! Metrics show a further rise in connectivity as mobile networks and other segments are reconnected to the global internet:
-
-• Filternet remains in place but can be worked around
-• WhatsApp now restricted, requiring circumvention
-• Some users still offline
 </div>
 

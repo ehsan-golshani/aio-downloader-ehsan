@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/05/29 08:33
+📅 آخرین بروزرسانی: 1405/05/29 09:17
 
 ---
+
+## VahidOOnLine — post 254360
+
+<div align="center"><video src="files/post_254360_VahidOOnLine_254360.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254360_VahidOOnLine_254360.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌‌اینترنشنال، پلمب نمایندگی کرمان‌خودرو را در زرند استان کرمان در شنبه ۱۷ مرداد نشان می‌دهد. به گفته یکی از شاهدان، این مرکز خودروهای پیش‌فروش را به مردم تحویل نداده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254359
 
@@ -316,21 +329,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم سوئد، شنبه ۱۷ مرداد در اعتراض به جمهوری اسلامی و برای حمایت از شاهزاده رضا پهلوی در شهر گوتنبرگ تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254340
-
-<div align="center"><img src="files/post_254340_VahidOOnLine_254340.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس عراقچی، وزیر خارجه جمهوری اسلامی، در حاشیه مراسمی در وزارت خارجه، گفت: «در حال حاضر هیچ مذاکره‌ای با آمریکا نداریم اما تبادل پیام از طریق واسطه‌ها ادامه دارد.»
-
-او ادامه داد: «تا موارد نقض یادداشت تفاهم از سوی آمریکا به پایان نرسد و آمریکا آنچه را که نقض کرده جبران نکند، از نظر ما امکان شروع مجدد مذاکره وجود ندارد.»
-
-عراقچی اضافه کرد: «واسطه‌ها همچنان تلاش می‌کنند تا راه‌های مذاکره مجدد را پیدا کنند.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

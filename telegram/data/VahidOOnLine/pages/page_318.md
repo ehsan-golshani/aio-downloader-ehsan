@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 318
 
-📅 آخرین بروزرسانی: 1405/05/29 08:33
+📅 آخرین بروزرسانی: 1405/05/29 09:17
 
 ---
+
+## VahidOOnLine — post 248428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️پس از مراسم ادای احترام به تابوت علی خامنه‌ای در مصلی تهران با حضور مقامات و فرستاده‌های ویژه کشورهای مختلف، این مقامات با محمدباقر قالیباف رئیس مجلس ایران دیدار کردند.
+
+از محتوای این دیدارها تا کنون جزییاتی منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248427
 
@@ -260,19 +271,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حوثی‌های تحت حمایت جمهوری اسلامی اعلام کردند در جریان تلاش برای جلوگیری از ممانعت از فرود یک هواپیمای غیرنظامی ایرانی در فرودگاه صنعا، با جنگنده‌های عربستان سعودی در حریم هوایی یمن درگیر شدند.
 این گروه همچنین هشدار داد هرگونه حمله بیشتر عربستان سعودی با حمله به فرودگاه‌ها و دیگر منافع حیاتی این کشور پاسخ داده خواهد شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248394
-
-<div align="center"><video src="files/post_248394_VahidOOnLine_248394.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248394_VahidOOnLine_248394.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دوستان جاویدنام علی میرزایی به وصیت او قبل از کشته‌شدنش در اعتراضات انقلاب ملی دی‌ماه، بر مزارش حاضر شده و شادنوشی کردند. او در اعتراضات نارمک تهران با گلوله ماموران کشته شد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

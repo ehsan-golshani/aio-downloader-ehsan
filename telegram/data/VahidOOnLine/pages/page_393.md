@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 393
 
-📅 آخرین بروزرسانی: 1405/05/29 08:33
+📅 آخرین بروزرسانی: 1405/05/29 09:17
 
 ---
+
+## VahidOOnLine — post 246691
+
+<div align="center"><img src="files/post_246691_VahidOOnLine_246691.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری‌های فارس و تسنیم وابسته به سپاه پاسداران اندکی پیش از ساعت ۱۸.۳۰ روز یکشنبه به وقت تهران از پایان دور نخست مذاکرات چهارجانبه میان نمایندگان جمهوری اسلامی ایران، قطر، پاکستان و واشنگتن خبر دادند.
+
+دولت قطر نزدیک به سه ساعت پیش اعلام کرده بود مذاکرات میان‌های هیئت‌های عالی‌رتبه چهار کشور آغاز شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246690
 
@@ -278,21 +291,6 @@
 
 وزیر خارجه پاکستان افزود سه تیم فنی در مذاکرات بورگن‌اشتوک سوئیس حضور دارند و درباره پرونده هسته‌ای، دارایی‌های مسدودشده ایران و لبنان گفت‌وگو می‌کنند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246671
-
-<div align="center"><video src="files/post_246671_VahidOOnLine_246671.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246671_VahidOOnLine_246671.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌
-در این فیلم آرشیوی، شهبانو با حضور در مراسم فارغ‌التحصیلی دانشگاه ملی ایران، گواهینامه‌ها و جوایز دانشجویان ممتاز را اهدا می‌کند و با استادان و دانشجویان درباره وضعیت علمی و آموزشی دانشگاه گفت‌وگو می‌کند. این ویدیو بخشی از یک گزارش آرشیوی از دهه ۱۳۵۰ خورشیدی است.
-برای تماشای نسخه کامل این گزارش و صدها فیلم آرشیوی نایاب دیگر، کانال یوتیوب Manoto را دنبال کنید.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

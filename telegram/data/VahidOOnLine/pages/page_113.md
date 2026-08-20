@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/05/29 08:33
+📅 آخرین بروزرسانی: 1405/05/29 09:17
 
 ---
+
+## VahidOOnLine — post 253236
+
+<div align="center"><img src="files/post_253236_VahidOOnLine_253236.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️حسن قشقایی، سخنگوی کمیسیون امنیت ملی و سیاست خارجی مجلس، روز شنبه ۱۰ مرداد با انتشار پیامی در شبکه اجتماعی ایکس، با اشاره ضمنی به آمریکا، اعلام کرد این کشور از طریق کانال‌های موجود، خواهان مذاکره است.
+
+قشقایی در این پیام نوشت: «آن‌ها در رسانه‌ها از تشدید تنش سخن می‌گویند در حالی که از طریق کانال‌های موجود، خواهان مذاکره هستند. آن‌ها نمی‌توانند جمهوری اسلامی ایران را فریب دهند.»
+او افزود: «چه با تشدید تنش و چه با مذاکره، ترتیبات ایرانی برای عبور از تنگه هرمز، تنها گزینه روی میز است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253235
 
@@ -297,19 +311,6 @@ iranintl
 
 بیشتر بخوانید...
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253216
-
-<div align="center"><video src="files/post_253216_VahidOOnLine_253216.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253216_VahidOOnLine_253216.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند در ویدیوی ارسالی به ایران‌اینترنشنال با انتقاد از افزایش شدید قیمت‌ها گفت فشارهای اقتصادی موجب خشم و ناامیدی عمیق مردم از جمهوری اسلامی شده است. او افزود: «وقتی گرسنه باشم چیزی برای باختن ندارم. از دین و خدا برگشتم و فقط به نابودی حکومت فکر می‌کنم.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

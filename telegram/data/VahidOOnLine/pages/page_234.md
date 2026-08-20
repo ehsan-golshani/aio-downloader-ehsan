@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 234
 
-📅 آخرین بروزرسانی: 1405/05/29 08:33
+📅 آخرین بروزرسانی: 1405/05/29 09:17
 
 ---
+
+## VahidOOnLine — post 250409
+
+<div align="center"><img src="files/post_250409_VahidOOnLine_250409.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سخنگوی شرکت «دانا گاز» (DANA.AD) روز پنج‌شنبه ۲۵ تیر اعلام کرد که این شرکت به دلیل «تهدیدهای امنیتی معتبر» و افزایش تنش‌های منطقه‌ای، فعالیت اصلی تاسیسات تولیدی خود در میدان گازی «خور مور» در عراق را متوقف کرده است. او افزود که این شرکت در حال نظارت بر شرایط موجود است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250408
 
@@ -281,20 +292,6 @@
 
 هوشمندی افزود این آتش‌سوزی هیچ‌گونه تلفات جانی یا خسارتی به تاسیسات و مجموعه در حال احداث وارد نکرده و در حال حاضر آرامش برقرار است و فعالیت روزمره در این کارگاه و حرم ادامه دارد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250389
-
-<div align="center"><video src="files/post_250389_VahidOOnLine_250389.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250389_VahidOOnLine_250389.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری‌های دولتی در ایران، تصاویری از آتش‌سوزی در «کارگاه قیر» در مشهد و کنار حرم امام هشتم شیعیان  را در روز پنجشنبه ۲۵ تیرماه منتشر کردند.
-به گزارش خبرگزاری تسنیم این آتش‌سوزی موجب انتشار گسترده دود در فضای حرم و مناطق اطراف شد. با این‌حال، تسنیم از مهار این آتش‌سوزی خبر داد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
