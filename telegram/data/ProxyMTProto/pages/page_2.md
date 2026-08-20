@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/29 21:19
+📅 آخرین بروزرسانی: 1405/05/29 22:07
 
 ---
+
+## ProxyMTProto — post 50315
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 14443
+Secret: ee9e28cf588967add684c5e759fea036d47777772e636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50314
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 80
+Secret: 7hbZ3hNtxAbJ6L5BQipx2_std3d3LnlhaG9vLmNvbQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50313
 
@@ -164,24 +182,5 @@ Server: ljox44lz.helper.website
 Port: 443
 Secret: eeb4f9b88528d51bd43c20e7d400020711636c6f7564666c6172652e636f6d
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50295
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Хочешь разместить свой прокси здесь? 😏 @SProxyRobot
-Забронируй слот через бота за пару секунд.
-
-Want to post your proxy here? 😏 @SProxyRobot
-Reserve your slot through the bot in seconds.
 </div>
 

@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/29 17:44
+📅 آخرین بروزرسانی: 1405/05/29 22:09
 
 ---
+
+## tasiyanc — post 9283
 
 ## tasiyanc — post 9281
 
@@ -82,23 +84,5 @@ Admin : @Tssub
 در صورت ارور چند بار بزنید
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9258
-
-<div align="center"><video src="files/post_9258_tasiyanc_9258.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9258_tasiyanc_9258.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز تلگرام وارد ۱۳ سالگیش شد 
-📱
-
-
-تولدت مبارک بهترین پیام‌رسان جهان 
-💖
-
-@Tasiyanc 
-⭐️
 </div>
 

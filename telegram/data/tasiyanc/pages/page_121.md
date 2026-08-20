@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 121
 
-📅 آخرین بروزرسانی: 1405/05/29 17:44
+📅 آخرین بروزرسانی: 1405/05/29 22:09
 
 ---
+
+## tasiyanc — post 5805
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  ۲ سرور آلمان سرعتی  اختصاصی تاسیان  
+📱
+
+
+✅ تست شده روی همه اپراتورا 
+✅ 
+
+🚀 مناسب دانلود  وب‌گردی  اینستاگرام 🚀
+
+دانلود NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5804
 
@@ -178,13 +198,5 @@ Panda 🐼.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💘💘💘
 wlc to TASIYAN family ❤️‍🔥
-</div>
-
-## tasiyanc — post 5784
-
-<div align="center"><img src="files/post_5784_tasiyanc_5784.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-kiwi Speed 🥝.npvt
 </div>
 

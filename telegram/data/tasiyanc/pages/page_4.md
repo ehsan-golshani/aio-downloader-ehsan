@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/29 17:44
+📅 آخرین بروزرسانی: 1405/05/29 22:09
 
 ---
+
+## tasiyanc — post 9413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+603799746347**** شماره کارت دوم
+</div>
 
 ## tasiyanc — post 9412
 
@@ -231,11 +237,5 @@ g26
 تمسخر جوانان ایرانی توسط یک عراقی مادربخطا ک واسه تفریح اومدن ایران
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9386
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اظهارات مجری صداسیما ریحانه قاسمی زاده : جنوب ایران فدای جنوب لبنان چون اینا همونایی ان که ۹ اسفند شادی کردن @Tasiyanc ⭐️
 </div>
 

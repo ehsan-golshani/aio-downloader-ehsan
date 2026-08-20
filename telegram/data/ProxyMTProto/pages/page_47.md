@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/05/29 21:19
+📅 آخرین بروزرسانی: 1405/05/29 22:07
 
 ---
+
+## ProxyMTProto — post 49411
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: super.sub-ploter.co.uk
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49410
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fleethop.online
+Port: 443
+Secret: eed82e9162b09c2ddfdbe3ddfe7d28d87a666c656574686f702e6f6e6c696e65
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49409
 
@@ -165,8 +183,4 @@ Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
-
-## ProxyMTProto — post 49391
-
-## ProxyMTProto — post 49390
 

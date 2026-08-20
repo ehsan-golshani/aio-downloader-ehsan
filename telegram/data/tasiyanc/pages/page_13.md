@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/29 17:44
+📅 آخرین بروزرسانی: 1405/05/29 22:09
 
 ---
+
+## tasiyanc — post 9174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+✅اسپانسر لیگ انگلستان
+👑 امکان شارژ و برداشت با کارت بانکی
+⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
+😀Telegram Channel👇
+https://t.me/+c5jwC3lt9z45NTE0
+</div>
 
 ## tasiyanc — post 9173
 
@@ -319,25 +330,5 @@ A high-contrast black and white studio portrait of a handsome Middle Eastern man
 دریافت پرامپت👉
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9151
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated Multi⚡️━━━╮
-
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpiSU9vaTVUdUltRzJLY2N4VjctamNBN0Nleit2dW4tY19F@104.156.233.234:27116#%40Tasiyanc
-
-vless://c28ee61d-0d43-4e69-8e6a-6397ed0ffc03@109.69.218.168:443?security=reality&encryption=none&pbk=cv_KJnMzQUZruACPbH-BCgLWrYqPm2dbUymg-gW_sVc&headerType=none&fp=random&type=tcp&flow=xtls-rprx-vision&sni=agile-raptor.cdn.cachefleet.com#%40Tasiyanc
-
-vless://52b71b75-4b77-4cec-990b-046ec1938e1f@67.159.56.57:443?security=reality&encryption=none&pbk=j5qmR8E9er-0n5zZbK6s_SdvYm-tYlraXVYm49ArWS8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=uk.bvps.cloud&sid=60debb3ab744d8ce#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%92%A5
-
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.64:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20Speed%2001
-
-vless://52b71b75-4b77-4cec-990b-046ec1938e1f@67.159.56.57:443?security=reality&encryption=none&pbk=j5qmR8E9er-0n5zZbK6s_SdvYm-tYlraXVYm49ArWS8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=uk.bvps.cloud&sid=60debb3ab744d8ce#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%92%A5
-
-ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.167:443#%40Tasiyanc
-
-@TASIYANC ✅
 </div>
 

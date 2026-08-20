@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/29 21:19
+📅 آخرین بروزرسانی: 1405/05/29 22:07
 
 ---
+
+## ProxyMTProto — post 50155
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: relay.rknsosi.shop
+Port: 443
+Secret: ee93e8816b5fd5c054bc95442701329e0072656c61792e726b6e736f73692e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50153
 
@@ -163,24 +181,6 @@ Secret: ee6a1dd0bd4f3bfd9536133cbed1465908676174652e6b6c79756368316b2e6f7267
 Server: king-of-the-world.ir.bishdhaep.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50135
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowabst.net
-Port: 853
-Secret: ee4e9fcd5caf6e9be2f8ec43e370e902d6766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

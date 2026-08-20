@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/05/29 17:44
+📅 آخرین بروزرسانی: 1405/05/29 22:09
 
 ---
+
+## tasiyanc — post 7576
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر گلای تو خونه
+</div>
 
 ## tasiyanc — post 7574
 
@@ -252,11 +258,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ولی پسرامون ( دخترامونم ) ثابت کردن چقد باغیرتن
-</div>
-
-## tasiyanc — post 7536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
 </div>
 

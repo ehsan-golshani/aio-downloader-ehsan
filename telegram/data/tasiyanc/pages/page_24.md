@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/29 17:44
+📅 آخرین بروزرسانی: 1405/05/29 22:09
 
 ---
+
+## tasiyanc — post 8909
+
+<div align="center"><video src="files/post_8909_tasiyanc_8909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8909_tasiyanc_8909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پیت هگست وزیر جنگ آمریکا این ویدئو رو منتشر کرد :
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8905
 
@@ -286,20 +298,5 @@ dic.b-amooz.com
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @TASIYANC ⚡ 04.ovpn
-</div>
-
-## tasiyanc — post 8881
-
-<div align="center"><video src="files/post_8881_tasiyanc_8881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8881_tasiyanc_8881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این برنامه کسایی که خنده های عجیب دارنو دعوت کرده - نتیجه رو ببینید🗿😂😂
-
-
-
-✈️@TASIYANC 
-✅
 </div>
 

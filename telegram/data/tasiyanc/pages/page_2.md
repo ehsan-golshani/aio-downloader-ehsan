@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/29 17:44
+📅 آخرین بروزرسانی: 1405/05/29 22:09
 
 ---
+
+## tasiyanc — post 9458
+
+<div align="center"><img src="files/post_9458_tasiyanc_9458.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥃 خسرو خان هستم و با همکاری مافیای روس، از شرط‌بندی و پیش‌بینی درآمد دارم
+
+⭕️با من همراه باش تا بتونی روزانه بالای ۵۰ دلار درآمد ثابت داشته باشی 🔥
+
+💵با عمو خسرو، آروم آروم به آرزوهات برس
+
+🔗 آدرس عضویت کانال vip:
+https://t.me/+J_q7c-COftQzOGM0
+https://t.me/+J_q7c-COftQzOGM0
+</div>
 
 ## tasiyanc — post 9457
 
@@ -297,16 +313,5 @@ Decarys 🔥.ovpn
 محاصره دریایی همچنان با تمام قدرت ادامه داره و همچنین تنگه هرمز بازه و همه مین‌های دریایی  یا جمع‌آوری شدن یا منفجرشون کردیم.
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9436
-
-<div align="center"><img src="files/post_9436_tasiyanc_9436.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 پست جدید ترامپ: تنگه هرمز؛ منطقه‌ی جدید ایالات متحده
-
-
-@Tasiyanc ✅
 </div>
 

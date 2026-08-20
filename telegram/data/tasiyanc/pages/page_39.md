@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/29 17:44
+📅 آخرین بروزرسانی: 1405/05/29 22:09
 
 ---
+
+## tasiyanc — post 8450
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه گل صحیح اسپانیا هم آفساید گرفته شد
+</div>
 
 ## tasiyanc — post 8449
 
@@ -138,11 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بانوووووو شکیرا اومد
-</div>
-
-## tasiyanc — post 8428
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این بیژن مرتضوی ما چی شد
 </div>
 

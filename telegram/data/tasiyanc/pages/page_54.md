@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/05/29 17:44
+📅 آخرین بروزرسانی: 1405/05/29 22:09
 
 ---
+
+## tasiyanc — post 7986
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7985
 
@@ -228,15 +252,5 @@ Change the background behind those two people with white curtains. With hugging 
 ‏جوری که این مدت گذشت:
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7936
-
-<div align="center"><img src="files/post_7936_tasiyanc_7936.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همین گنده گوزیا بگاتون داد
-
-@Tasiyanc ⭐️
 </div>
 
