@@ -1,8 +1,46 @@
 # آرشیو کانال VahidOOnLine - صفحه 288
 
-📅 آخرین بروزرسانی: 1405/05/29 13:23
+📅 آخرین بروزرسانی: 1405/05/29 13:56
 
 ---
+
+## VahidOOnLine — post 249118
+
+<div align="center"><video src="files/post_249118_VahidOOnLine_249118.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249118_VahidOOnLine_249118.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوی رسیده به ایران‌اینترنشنال، اسکله بندر جاسک هدف حملات هوایی آمریکا قرار گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249117
+
+<div align="center"><img src="files/post_249117_VahidOOnLine_249117.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️رسانه‌های ایران در نخستین ساعات بامداد پنجشنبه ۱۸ تیرماه از وقوع دست‌کم ۱۰ انفجار در جزیره ابوموسی در جنوب ایران خبر دادند.
+پیش از این روزنامه وال‌استریت ژورنال در اوایل خردادماه گزارش داده بود که پیش از برقراری آتش‌بس، امارات متحده عربی در هماهنگی با آمریکا و اسرائیل، جزیره ابوموسی را بمباران کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249116
+
+<div align="center"><video src="files/post_249116_VahidOOnLine_249116.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249116_VahidOOnLine_249116.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوی رسیده به یاران‌اینترنشنال، پایگاه منطقه دوم نیروی دریایی سپاه در بوشهر بامداد پنجشنبه ۱۸ تیر هدف حملات آمریکا قرار گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249115
 
@@ -244,49 +282,6 @@
 
 جی‌دی ونس خطاب به جمهوری اسلامی گفت: «اگر به کشتی‌ها شلیک کنید، پاسخ سختی خواهید گرفت.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249098
-
-<div align="center"><img src="files/post_249098_VahidOOnLine_249098.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️فرماندهی مرکزی ایالات متحده، سنتکام، چهارشنبه‌شب ۱۷ تیرماه اعلام کرد به دستور فرمانده کل قوا، نیروهای این فرماندهی حملات بیشتری را علیه جمهوری اسلامی آغاز کرده‌اند تا توانایی این کشور برای تهدید آزادی کشتیرانی در تنگه هرمز را بیش از پیش تضعیف کنند.
-
-سنتکام افزود ایالات متحده جمهوری اسلامی را بابت حملات اخیر به کشتی‌های تجاری و خدمه غیرنظامی در این آبراه حیاتی بین‌المللی مسئول می‌داند.
-
-پیش‌تر، اکسیوس چهارشنبه‌شب ۱۷ تیرماه به نقل از یک مقام ارشد آمریکایی گزارش داده بود که ارتش ایالات متحده حملاتی را علیه اهداف نظامی جمهوری اسلامی در منطقه تنگه هرمز آغاز کرده است. همزمان، خبرگزاری‌های فارس و مهر از شنیده‌شدن صدای چند انفجار در بندرعباس و سیریک خبر دادند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249097
-
-<div align="center"><img src="files/post_249097_VahidOOnLine_249097.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️اکسیوس، چهارشنبه‌شب ۱۷ تیرماه، به نقل از یک مقام ارشد آمریکایی گزارش داد که ارتش ایالات متحده در حال انجام حملاتی علیه اهداف نظامی جمهوری اسلامی در محدوده تنگه هرمز است.
-
-این مقام آمریکایی به اکسیوس گفت نیروهای آمریکا اهداف نظامی جمهوری اسلامی را در منطقه تنگه هرمز هدف قرار داده‌اند.
-
-همزمان، خبرگزاری‌های فارس و مهر از شنیده‌شدن صدای چند انفجار در بندرعباس و سیریک خبر دادند. فارس نوشت برخی انفجارها از سمت دریا و محدوده ساحل غربی سیریک به گوش رسیده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249096
-
-<div align="center"><img src="files/post_249096_VahidOOnLine_249096.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری فارس، وابسته به سپاه پاسداران، چهارشنبه‌شب۱۷ تیرماه، از شنیده‌شدن صدای چند انفجار در بندرعباس و شهرستان سیریک در استان هرمزگان خبر داد. این خبرگزاری نوشت: «صدای برخی انفجارها از سمت دریا در محدوده ساحل غربی سیریک به گوش رسیده است.»
-
-همزمان، خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، نیز از شنیده‌شدن صدای چند انفجار در بندرعباس و سیریک خبر داد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,51 @@
 # آرشیو کانال VahidOOnLine - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/29 13:23
+📅 آخرین بروزرسانی: 1405/05/29 13:56
 
 ---
+
+## VahidOOnLine — post 254986
+
+<div align="center"><img src="files/post_254986_VahidOOnLine_254986.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فایننشال تایمز می‌گوید ایران و عمان می‌توانند به‌جای دریافت «عوارض عبور»، بابت خدمات دریایی از کشتی‌های عبوری از تنگه هرمز هزینه بگیرند.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254985
+
+<div align="center"><img src="files/post_254985_VahidOOnLine_254985.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری لبنانی «یونیوز» در گزارشی اختصاصی نوشت جمهوری اسلامی به دولت سوریه هشدار داده است هرگونه اقدام نظامی علیه حزب‌الله لبنان با پاسخ گسترده تهران روبه‌رو خواهد شد.
+
+بر اساس این گزارش، پیام جمهوری اسلامی از طریق ترکیه به دمشق منتقل شده و در آن آمده است در صورت اقدام نظامی سوریه علیه حزب‌الله، بیش از ۱۰۰ نقطه راهبردی در سوریه، از جمله کاخ ریاست‌جمهوری، ممکن است هدف قرار گیرند.
+
+یونیوز همچنین گزارش داد تهران این پیام را به شماری از پایتخت‌های منطقه، از جمله آنکارا، بغداد، دوحه و ریاض، منتقل کرده و هشدار داده است هرگونه اقدام سوریه علیه حزب‌الله می‌تواند به گسترش درگیری‌ها در منطقه منجر شود.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254984
+
+<div align="center"><video src="files/post_254984_VahidOOnLine_254984.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254984_VahidOOnLine_254984.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در گفتگویی با رادیو ارتش اسرائیل (گلی تساهال) اسلام‌گرایی در اروپا را رو به افزایش ارزیابی کرد.
+
+نتانیاهو در این مصاحبه با اشاره به تغییرات ساختاری در اروپا ادعا کرد که امروزه می‌توان بریتانیا را «جمهوری اسلامی بریتانیا» نامید. او افزود: «یک نفر می‌گفت اولین جمهوری اسلامی که به سلاح هسته‌ای دست خواهد یافت، جمهوری اسلامی بریتانیا خواهد بود.»
+
+نخست‌وزیر اسرائیل در ادامه این مصاحبه با تاکید بر رویکرد تهاجمی کشورش علیه تهران اظهار داشت که تل‌آویو تمام تلاش خود را به کار خواهد بست تا از شکل‌گیری یک قدرت هسته‌ای جدید در خاورمیانه و دستیابی جمهوری اسلامی ایران به سلاح هسته‌ای جلوگیری کند. این اظهارات نتانیاهو در حالی مطرح شد که کشور پاکستان با نام رسمی «جمهوری اسلامی پاکستان» یکی از قدرت‌های دارای سلاح هسته‌ای است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254983
 
@@ -268,38 +311,5 @@ IranintlTV
 Indypersian
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254941
-
-<div align="center"><video src="files/post_254941_VahidOOnLine_254941.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254941_VahidOOnLine_254941.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیت هگست، وزیر جنگ آمریکا، در جریان بازدید از «مرکز آموزش عملیات جنگلی» در پاناما، بر رویکرد متفاوت ایالات متحده در همکاری‌های منطقه‌ای در مقایسه با کشورهایی چون چین، روسیه و ایران تاکید کرد.
-
-هگست با انتقاد از عملکرد این کشورها گفت: «آنچه در رفتار کشورهایی نظیر چین، روسیه یا ایران دیده می‌شود، سوءاستفاده و منفعت‌طلبی فراوان است.»
-
-وزیر جنگ آمریکا افزود: «اما ایالات متحده آمریکا با ورود خود، به دنبال احترام به حاکمیت شما و یافتن راه‌هایی برای همکاری‌های متقابل و سودمند است؛ همکاری‌هایی که به توانمندسازی مردم و رونق کشورتان منجر شود.»
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254940
-
-<div align="center"><img src="files/post_254940_VahidOOnLine_254940.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
-</div>
-
-## VahidOOnLine — post 254939
-
-<div align="center"><img src="files/post_254939_VahidOOnLine_254939.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
 </div>
 
