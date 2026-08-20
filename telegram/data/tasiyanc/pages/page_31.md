@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/29 11:07
+📅 آخرین بروزرسانی: 1405/05/29 11:49
 
 ---
+
+## tasiyanc — post 8701
+
+<div align="center"><video src="files/post_8701_tasiyanc_8701.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8701_tasiyanc_8701.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاربردی
+
+خودروی رویایی‌ات رو از صفر تا صد خودت بساز! 😊
+
+​اگر به ماشین و تیونینگ علاقه داری، سری به این سایت بزن 
+  https://www.modsnation.com 👈
+
+ویژگی‌های سایت:
+​دسترسی به لیست جذابی از انواع خودروهای مدرن و کلاسیک مختلف.
+​نمایش مدل‌های سه‌بعدی بسیار باکیفیت و جذاب از ماشین‌ها.
+​امکان کاستومایز و شخصی‌سازی صفر تا صد ماشین (از سپر و گلگیر گرفته تا رینگ و جزئیات بدنه) برای ساخت ماشین رویایی خودت
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8699
 
@@ -233,12 +254,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨حمله آمریکا به سیریک
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هم اکنون حمله سپاه به بحرین
-@Tasiyanc ⭐️
 </div>
 

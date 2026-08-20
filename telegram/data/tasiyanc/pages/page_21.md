@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/29 11:07
+📅 آخرین بروزرسانی: 1405/05/29 11:49
 
 ---
+
+## tasiyanc — post 8972
+
+<div align="center"><video src="files/post_8972_tasiyanc_8972.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8972_tasiyanc_8972.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Fast Tekno💥.npvt
+</div>
 
 ## tasiyanc — post 8970
 
@@ -283,19 +293,5 @@ Location ⚡️🇮🇹
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🏴🇮🇷
-</div>
-
-## tasiyanc — post 8948
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود نپسترنت📱
-
-۶ سرور سرعتی تست شده  لوکیشن ایتالیا 📍
-
-آموزش اتصال ⚡️
-
-اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 

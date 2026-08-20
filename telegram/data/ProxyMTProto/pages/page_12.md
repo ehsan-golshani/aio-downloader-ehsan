@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/29 11:05
+📅 آخرین بروزرسانی: 1405/05/29 11:47
 
 ---
+
+## ProxyMTProto — post 50094
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8880
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50093
 
@@ -172,15 +181,6 @@ Secret: ee63fccdeb9951e5f99d66d274148278b97777772e636c6f7564666c6172652e636f6d
 Server: bia.guguli.co.uk
 Port: 443
 Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s010.neo-trading.org
-Port: 8443
-Secret: ee2c46ee89b4f2c79c1d8325d13091e580647a656e2e7275
 @ProxyMTProto
 </div>
 
