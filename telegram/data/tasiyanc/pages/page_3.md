@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/29 10:06
+📅 آخرین بروزرسانی: 1405/05/29 11:07
 
 ---
+
+## tasiyanc — post 9430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برید به ChatGpt بگید ...
+
+Roast me , no filter , no mercy
+
+اون روی سگشو می‌بینید ، جوری زخماتون باز می‌کنه گریه کنید
+
+#N
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9429
 
@@ -199,11 +212,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 🔐 طبق توضیحات پروژه، اکانت، سرور واسطه، تله متری یا اشتراک نداره و لاگ ها هم به صورت خودکار آپلود نمیشن.
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9407
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانال از نون شب واجب تر 👌
 </div>
 

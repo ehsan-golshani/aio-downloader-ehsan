@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/29 10:06
+📅 آخرین بروزرسانی: 1405/05/29 11:07
 
 ---
+
+## tasiyanc — post 8464
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 بازی ایران آمریکا آغاز شد
+</div>
 
 ## tasiyanc — post 8463
 
@@ -144,11 +150,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فرررررررررررررررران تووووووووووورس
-</div>
-
-## tasiyanc — post 8444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گگگگگگگگگگگگگگگگگگگگل
 </div>
 

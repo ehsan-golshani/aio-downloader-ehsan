@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/05/29 10:06
+📅 آخرین بروزرسانی: 1405/05/29 11:07
 
 ---
+
+## tasiyanc — post 6721
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[30] 🪐@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6720
 
@@ -189,15 +195,6 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.194.219:80?path=%2F&securit
 vless://d39664df-5bc0-4f49-9894-8f03b4150082@germany-vip.soft26.ir:8443?mode=auto&path=%2F&security=reality&encryption=none&pbk=QLamtir13xwzyWVlPRN3C7lw_fhSBU7X4H3A8zAl5Fg&fp=chrome&type=xhttp&sni=www.yahoo.com&sid=6f3192#T.me%2FTasiyanc%20%E2%9A%A1
 
 vless://da48859d-edf9-4a8c-a026-80910591f284@151.101.1.164:80?mode=auto&path=%2FTignal&security=none&encryption=none&host=tignaltofansv8.global.ssl.fastly.net&type=xhttp#T.me%2FTasiyanc%20%E2%9A%A1
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جام جهانی - 5.30 صبح 🏆
-
-بازی کره🇰🇷 - چک 🇨🇿
 @Tasiyanc ✅
 </div>
 

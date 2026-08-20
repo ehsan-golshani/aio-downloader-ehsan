@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/29 10:06
+📅 آخرین بروزرسانی: 1405/05/29 11:07
 
 ---
+
+## tasiyanc — post 8243
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش اعضا : اصفهان و استان های جنوبی اینترنت بشدت ضعیفه ،
+
+کامنت بزارید وضعیت نتتون چطوره
+</div>
 
 ## tasiyanc — post 8242
 
@@ -181,15 +189,5 @@
 ⁉️پل ارتباطی جم سیراف رو هم زدن
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استانداری بوشهر :
-
-در حملۀ دقایقی پیش به بوشهر چند موشک به پایگاه‌های هوایی و پایگاه دریایی بوشهر اصابت کرد.
-
-@Tasiyanc ⭐️
 </div>
 

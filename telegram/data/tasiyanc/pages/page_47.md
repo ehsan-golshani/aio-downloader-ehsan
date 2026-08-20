@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/05/29 10:06
+📅 آخرین بروزرسانی: 1405/05/29 11:07
 
 ---
+
+## tasiyanc — post 8221
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استانداری بوشهر :
+
+در حملۀ دقایقی پیش به بوشهر چند موشک به پایگاه‌های هوایی و پایگاه دریایی بوشهر اصابت کرد.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8220
 
@@ -161,15 +171,6 @@ Ohhh
 🚨
 🚨
 🚨 تمامی پرواز های ایران هم اکنون کنسل شد
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8199
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پرواز جنگنده های اسرائیلی به مقصد نامعلوم
 
 @Tasiyanc 
 ⭐️

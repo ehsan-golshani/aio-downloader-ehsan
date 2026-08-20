@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/29 10:06
+📅 آخرین بروزرسانی: 1405/05/29 11:07
 
 ---
+
+## tasiyanc — post 8388
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 گزارش انفجار شدید در بوشهر
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8387
 
@@ -168,13 +176,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8363
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند
-
-@Tasiyanc ✅
 </div>
 

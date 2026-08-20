@@ -1,12 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/29 10:06
+📅 آخرین بروزرسانی: 1405/05/29 11:07
 
 ---
 
-## tasiyanc — post 9475
+## tasiyanc — post 9476
 
-<div align="center"><a href="files/post_9475_Blue Man💙 (1).ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Blue Man💙 (1).ovpn</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Blue Man💙 (1).ovpn
+</div>
+
+## tasiyanc — post 9475
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 📶
@@ -57,8 +61,6 @@ DNS 3⚡️
 </div>
 
 ## tasiyanc — post 9473
-
-<div align="center"><a href="files/post_9473_linebet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 linebet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🪙اپلیشیکن اندروید سایت جهانی لاین بت
@@ -388,16 +390,6 @@ DNS 2 ⚡️
 
 لینک DNS Changer اندروید
 
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9450
-
-<div align="center"><img src="files/post_9450_tasiyanc_9450.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨امروز 19 August، روز جهانی عکاسیه📸
-یه روز واسه ثبت کردن لحظه‌ها و منظره‌هایی که حالتو خوب می‌کنن امروز وقتشه انجام بدی .
 @Tasiyanc ⭐️
 </div>
 
