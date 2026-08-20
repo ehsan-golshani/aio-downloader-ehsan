@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/05/29 13:57
+📅 آخرین بروزرسانی: 1405/05/29 14:32
 
 ---
+
+## ProxyMTProto — post 49050
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49049
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.120.230.120
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49048
 
@@ -163,24 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: mirror.balalaika.click
 Port: 443
 Secret: ee204fd0f2f4584c289c6aa284e46ed6406d6972726f722e62616c616c61696b612e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49030
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49029
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s3.postpulse.space
-Port: 443
-Secret: eede09f27f5ed0877907c31d53a7aca5526164332e617269786f2e73686f70
 @ProxyMTProto
 </div>
 

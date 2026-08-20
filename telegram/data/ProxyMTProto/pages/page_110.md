@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/05/29 13:57
+📅 آخرین بروزرسانی: 1405/05/29 14:32
 
 ---
+
+## ProxyMTProto — post 48128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wgwg.etherealvpn.uk
+Port: 443
+Secret: ee3b7ca716f61b904f00c0f93d9419de06617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Ehsgh.kon.khoshgele.ir.biobarmesh.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48126
 
@@ -163,24 +181,6 @@ Secret: ee76166fbf55209edbcfbe009bcc16f4646d782e70726f78797a2e73697465
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48108
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cloud.prx.today
-Port: 443
-Secret: eeda2d39fb15ca8ddb6582b915b149465c636c6f75642e7072782e746f646179
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: go.vingardium.co.uk.
-Port: 8443
-Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
 @ProxyMTProto
 </div>
 

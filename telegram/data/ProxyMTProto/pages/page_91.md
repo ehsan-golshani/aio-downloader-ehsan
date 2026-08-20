@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/05/29 13:57
+📅 آخرین بروزرسانی: 1405/05/29 14:32
 
 ---
+
+## ProxyMTProto — post 48508
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48507
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: portal.balalaika.click
+Port: 443
+Secret: eed9b57dfbf5b124dd877540301c89c774706f7274616c2e62616c616c61696b612e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48506
 
@@ -163,24 +181,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: edge.rknwatch.digital
 Port: 443
 Secret: ee7af7548a786b6603566172b91f413637656467652e726b6e77617463682e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48488
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 6775
-Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48487
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef334baa1cb1e7ca5cf1a48e461b5dbfa62726f777365722e79616e6465782e636f6d
 @ProxyMTProto
 </div>
 

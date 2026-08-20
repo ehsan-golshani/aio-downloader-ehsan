@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/29 13:57
+📅 آخرین بروزرسانی: 1405/05/29 14:32
 
 ---
+
+## ProxyMTProto — post 48830
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48829
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: be60e38d.etherealvpn.uk
+Port: 443
+Secret: eee2c4f26e0246dea5eb84f95c325ea46062343233353730312e657468657265616c76706e2e756b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48828
 
@@ -163,24 +181,6 @@ Secret: ee5098400982be6b8f6bf938e483f64dd463646e2e736176656c7965762e636c69636b
 Server: Unknown
 Port: 25565
 Secret: FgMBAgABAAH8AxOG4kw63Q
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48810
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: power.nolags.pw
-Port: 443
-Secret: ddc44116b4d7fbd81392e8978089eec7f4
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48809
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: brivora.co.uk.
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 

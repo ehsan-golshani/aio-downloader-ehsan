@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/05/29 13:57
+📅 آخرین بروزرسانی: 1405/05/29 14:32
 
 ---
+
+## ProxyMTProto — post 48890
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ethereal.arixo.shop
+Port: 443
+Secret: ee5f8b31d631d413f83f1f6e8da233f69c657468657265616c2e617269786f2e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48889
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: veloxnetworks.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48888
 
@@ -163,24 +181,6 @@ Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48870
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: net.pelmeshka.top
-Port: 443
-Secret: eefe12a66db0212791c3ba09df4f6123806e65742e70656c6d6573686b612e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48869
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
