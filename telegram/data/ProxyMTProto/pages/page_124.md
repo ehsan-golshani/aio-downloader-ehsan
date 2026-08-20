@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/05/29 15:44
+📅 آخرین بروزرسانی: 1405/05/29 16:53
 
 ---
+
+## ProxyMTProto — post 47852
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: whiltelist-prx1.getvelora.space
+Port: 443
+Secret: ee6f8c5619eef69de325d0c3ff8a9b7a336d61782e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47851
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7980
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47850
 
@@ -165,24 +183,6 @@ Secret: ee6aa3b7302162fefaffdcfafa34ab94ba7477656e7475722e636f6d
 Server: Unknown
 Port: 8443
 Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47832
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: pulse.flowstreamhub.site
-Port: 8443
-Secret: ee993b027bf939e8b65e48c633930c8b6770756c73652e666c6f7773747265616d6875622e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47831
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 
