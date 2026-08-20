@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 465
 
-📅 آخرین بروزرسانی: 1405/05/29 07:39
+📅 آخرین بروزرسانی: 1405/05/29 08:33
 
 ---
+
+## VahidOOnLine — post 244597
+
+<div align="center"><img src="files/post_244597_VahidOOnLine_244597.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری مهر به نقل از منابع محلی و ساکنان روستاهای اطراف، از شنیده شدن مجدد صدای چندین انفجار در محدوده شهرستان جاسک خبر داد. پیش‌تر حملات نظامی به بندر جاسک و کوه مبارک توسط منابع آگاه تایید شده بود و این حادثه، دومین موج از صداهای انفجار در این منطقه از آغازین ساعات بامداد چهارشنبه به شمار می‌رود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244596
 
@@ -214,19 +225,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️العربیه، سه‌شنبه‌شب، ۱۹ خردادماه، به نقل از «منابع اسرائیلی» گزارش داد که دونالد ترامپ، رئیس جمهوری آمریکا و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، درباره ایران و لبنان به صورت تلفنی گفتگو کردند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244575
-
-<div align="center"><video src="files/post_244575_VahidOOnLine_244575.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244575_VahidOOnLine_244575.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ورود یک سامانه ناپایدار جوی به آذربایجان شرقی، سبب وقوع بارش‌های سنگین باران، ریزش تگرگ و رعدوبرق‌های پیاپی در ارتفاعات سونگون ورزقان شد. بر اساس گزارش‌های محلی، شدت فعالیت این سامانه و ریزش تگرگ در برخی ارتفاعات این منطقه به حدی بوده است که سطح زمین در مدت زمانی کوتاه کاملا سفیدپوش شد.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

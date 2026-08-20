@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 175
 
-📅 آخرین بروزرسانی: 1405/05/29 07:39
+📅 آخرین بروزرسانی: 1405/05/29 08:33
 
 ---
+
+## VahidOOnLine — post 251699
+
+<div align="center"><video src="files/post_251699_VahidOOnLine_251699.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251699_VahidOOnLine_251699.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در یک برنامه زنده تلویزیونی، امیرحسین ثابتی، نماینده جبهه پایداری در مجلس شورای اسلامی، و محمدمهدی شهریاری، عضو کمیسیون امنیت ملی مجلس، درباره وضعیت تنگه هرمز به‌شدت با یکدیگر بحث کردند. در این برنامه، شهریاری از نمایندگان تندرو مجلس خواست دست از سر تنگه هرمز بردارند.
+
+گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251698
 
@@ -274,21 +289,6 @@
 ♦️صدا و سیما و خبرگزاری تسنیم، روز پنجشنبه یکم مرداد ماه از شنیده شدن صدای چند انفجار در شهرستان کنارک در استان سیستان و بلوچستان خبر داده‌اند.
 خبرنگار صدا و سیما در گزارش زنده اعلام کرد، صدای پرواز جنگنده‌ها نیز در این منطقه شنیده شده است. به گفته این منبع خبری،َ انفجارهای روز پنجشنبه، اولین حملات آمریکا در طی ۲۴ ساعت گذشته به این شهرستان بوده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251679
-
-<div align="center"><video src="files/post_251679_VahidOOnLine_251679.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251679_VahidOOnLine_251679.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارکو روبیو، وزیر خارجه آمریکا، در حاشیه نشست آسه‌آن در مانیل گفت تفاهم‌نامه با جمهوری اسلامی بر پایه پایبندی به تعهدات شکل گرفته بود، اما تهران آن را نقض کرد و در نتیجه، این توافق دیگر معتبر نیست.
-
-گزارش علیرضا محبی، خبرنگار ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

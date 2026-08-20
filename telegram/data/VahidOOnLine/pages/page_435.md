@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 435
 
-📅 آخرین بروزرسانی: 1405/05/29 07:39
+📅 آخرین بروزرسانی: 1405/05/29 08:33
 
 ---
+
+## VahidOOnLine — post 245458
+
+<div align="center"><video src="files/post_245458_VahidOOnLine_245458.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_245458_VahidOOnLine_245458.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️گزارش‌ها و ویدیوهای منتشر شده در شبکه‌های اجتماعی نشان می‌ده که گروهی از رانندگان پیک‌های موتوری شیراز روز یکشنبه ۲۴ خرداد در اعتراضات به مالیات بالا، کافی نبودن کرایه‌ها، نداشتن بیمه و حذف کارت سوخت، اعتصاب کردند.
+رکود تورمی اقتصاد ایران همزمان با ادامه جنگ، محاصره دریایی و پس از سال‌ها تحریم، زندگی را برای ده‌ها میلیون نفر بیش از پیش دشوار کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245457
 
@@ -299,19 +313,6 @@ iranintl
 این تجمع درحالی برگزار شد که محتسبان امر به معروف و نهی از منکر طالبان در ده روز اخیر بازداشت زنان و دختران به‌دلیل نپوشیدن برقع یا چادرنماز همراه با ماسک را افزایش داده‌اند. بیش‌ترین اعمال فشار و سختگیری در ولایت هرات در غرب افغانستان گزارش شده است. 
 هفته گذشته طالبان اعتراض و راهپیمایی ساکنان شهرک جبرئیل هرات را که در مخالفت با بازداشت زنان و دختران برگزار شده بود، با شلیک گلوله سرکوب کردند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245438
-
-<div align="center"><video src="files/post_245438_VahidOOnLine_245438.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_245438_VahidOOnLine_245438.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان شنبه ۲۳ خرداد در حمایت از شاهزاده رضا پهلوی و علیه جمهوری اسلامی، در شهرهای هامبورگ، کاسل، نورنبرگ و اشتوتگارت تجمع کرده و فریاد «ایران» سردادند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

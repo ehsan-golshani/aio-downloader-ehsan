@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 147
 
-📅 آخرین بروزرسانی: 1405/05/29 07:39
+📅 آخرین بروزرسانی: 1405/05/29 08:33
 
 ---
+
+## VahidOOnLine — post 252358
+
+<div align="center"><video src="files/post_252358_VahidOOnLine_252358.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252358_VahidOOnLine_252358.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️آتش‌سوزی در هتل پارسیان استقلال تهران ظهر دوشنبه ۵ مردادماه، در تقاطع بزرگراه چمران و خیابان ولیعصر رخ داد و شعله‌های آتش بخش‌هایی از این مجتمع اقامتی را فرا گرفت.
+
+به گفته سخنگوی آتش‌نشانی تهران، همزمان با عملیات اطفای حریق، چند گروه از آتش‌نشانان برای نجات افراد محبوس وارد ساختمان شده‌اند.
+
+اورژانس تهران نیز اعلام کرد ۷ دستگاه آمبولانس، ۲ دستگاه اتوبوس آمبولانس، سه خودروی فرماندهی و یک دستگاه موتورلانس به محل حادثه اعزام شده‌اند. بر اساس گزارش اولیه اورژانس، تاکنون مصدومی گزارش نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252357
 
@@ -242,19 +259,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صف گازوییل در عسلویه
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252330
-
-<div align="center"><img src="files/post_252330_VahidOOnLine_252330.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به مناسبت چهل‌وششمین سالگرد درگذشت محمدرضاشاه پهلوی
-
-تصاویری از اعلیحضرت فقید محمدرضاشاه پهلوی در کنار علیاحضرت شهبانو فرح پهلوی
 ‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine

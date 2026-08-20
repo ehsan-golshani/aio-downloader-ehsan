@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 539
 
-📅 آخرین بروزرسانی: 1405/05/29 07:39
+📅 آخرین بروزرسانی: 1405/05/29 08:33
 
 ---
+
+## VahidOOnLine — post 242548
+
+<div align="center"><video src="files/post_242548_VahidOOnLine_242548.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242548_VahidOOnLine_242548.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سپاه پاسداران روز پنجشنبه هفتم خرداد ویدیویی را از شلیک موشک به سوی «اهداف آمریکایی» در منطقه تنگه هرمز و خلیج فارس منتشر کرد.
+
+به نظر می‌رسد این ویدیوها مربوط به حمله به «کویت» باشد؛ سپاه پیش ازاین اعلام کرده بود «مبدا حمله به نزدیکی فرودگاه بندرعباس در منطقه را هدف قرار داده است.» همزمان با این حمله، وزارت دفاع کویت اعلام کرد سامانه‌های پدافندی این کشور مشغول مقابله با موشک‌ها و پهپادهای متخاصم هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242547
 
@@ -280,17 +295,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️اسوشیتدپرس در توضیح حمله اوایل بامداد پنجشنبه ارتش آمریکا در بندرعباس به نقل از مقامات آمریکایی گزارش داد که نیروهای فرماندهی مرکزی آمریکا چهار پهپاد تهاجمی یک‌طرفه ایران را که در نزدیکی تنگه هرمز تهدیدی ایجاد کرده بودند سرنگون کردند و یک ایستگاه کنترل زمینی را در بندر عباس هدف گرفتند که در آستانه پرتاب پنجمین پهپاد بود.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242514
-
-<div align="center"><img src="files/post_242514_VahidOOnLine_242514.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️در نخستین ساعات بامداد پنجشنبه، رسانه‌های کویت از شنیده شدن صدای آژیر در این کشور خبر دادند. همزمان گزارش شد که سیستم دفاع هوایی کویت در مقابله با یک حمله موشکی و پهپادی متخاصم فعال شده است.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

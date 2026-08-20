@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/05/29 07:39
+📅 آخرین بروزرسانی: 1405/05/29 08:33
 
 ---
+
+## VahidOOnLine — post 254438
+
+<div align="center"><video src="files/post_254438_VahidOOnLine_254438.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254438_VahidOOnLine_254438.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنیامین نتانیاهو، نخست‌ وزیر اسرائیل گفت: جمهوری اسلامی به اسرائیل حمله نمی‌کند چون می‌داند چه ضربه سختی می‌خورد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254437
 
@@ -281,19 +294,6 @@ youtu.be
 او درباره واکنش دولت یمن به این حملات گفت: «اقدامات ما برای پاسخ به حوثی‌ها، براساس مصلحت کشور خواهد بود.»
 
 پیش‌تر رشاد العلیمی، رییس شورای رهبری یمن، گفت حوثی‌ها شریان‌های حیاتی مردم یمن را هدف قرار می‌دهند. او حمله به بندر مخا را بخشی از «جنگ سازمان‌یافته حوثی‌ها علیه منابع و دارایی‌های مردم یمن» خواند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254407
-
-<div align="center"><video src="files/post_254407_VahidOOnLine_254407.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254407_VahidOOnLine_254407.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد بنری در یکی از خیابان‌های تهران نصب شده که روی آن در اعتراض به قطعی و گرانی آب و برق، نوشته‌اند: «آب، برق، زندگی»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

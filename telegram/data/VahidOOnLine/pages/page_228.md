@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 228
 
-📅 آخرین بروزرسانی: 1405/05/29 07:39
+📅 آخرین بروزرسانی: 1405/05/29 08:33
 
 ---
+
+## VahidOOnLine — post 250531
+
+<div align="center"><img src="files/post_250531_VahidOOnLine_250531.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️جلال رشیدی کوچی، نماینده سابق مجلس شورای اسلامی که به عنوان تحلیلگر در رسانه‌های داخلی حضور دارد در پیامی در اکس نوشت که حمله زمینی آمریکا قطعی است و دلیل احتمالی تاخیر، گرمای هواست. او گفت که تمرکز حمله‌ها بر جنوب نیز در راستاس آماده‌سازی این حمله است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250530
 
@@ -268,19 +279,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️در ساعات اولیه بامداد پنجشنبه، صدای آژیر هشدار دربحرین به صدا درآمد و وزارت کشور بحرین از ساکنان این کشور خواست به مکان امن برون دو از توصیه‌های ایمنی پیروی کنند. همزمان کویت نیز اعلام کرد که در حال رصد و رهگیری حمله‌های موشکی و پهپادی حکومت ایران است. ارتش جمهوری اسلامی ایران پیش‌تر در بیانیه‌ای از حمله به بحرین خبر داده بود.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250508
-
-<div align="center"><video src="files/post_250508_VahidOOnLine_250508.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250508_VahidOOnLine_250508.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️روابط عمومی ارتش در نخستین ساعات بامداد جمعه در بیانیه‌ای گفت که در مرحله یازدهم عملیات صاعقه، به منافع آمریکا در پایگاه الصخیر بحرین حمله کرده است. ارتش آمریکا و دولت بحرین هنوز گزارشی درباره حمله به این پایگاه منتشر نکرده‌اند.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

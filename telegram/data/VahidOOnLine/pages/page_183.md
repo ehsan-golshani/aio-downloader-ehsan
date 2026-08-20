@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 183
 
-📅 آخرین بروزرسانی: 1405/05/29 07:39
+📅 آخرین بروزرسانی: 1405/05/29 08:33
 
 ---
+
+## VahidOOnLine — post 251520
+
+<div align="center"><img src="files/post_251520_VahidOOnLine_251520.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سازمان دفاع مدنی عربستان سعودی چهارشنبه ۳۱ تیرماه اعلام کرد سامانه هشدار زودهنگام وضعیت اضطراری در شهر دمام فعال شده است.
+
+این سازمان اعلام کرد پس از فعال شدن سامانه هشدار در شهر دمام، خطر برطرف شده است، اما به جزئیات بیشتری درباره علت فعال شدن این سامانه اشاره نکرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251519
 
@@ -282,19 +295,6 @@ iranintl
 
 دقایقی پیش از انتشار این بیانیه، گزارش‌هایی از شنیده شدن صدای انفجار در نزدیکی بندر عقبه اردن منتشر شده بود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251491
-
-<div align="center"><video src="files/post_251491_VahidOOnLine_251491.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251491_VahidOOnLine_251491.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارکو روبیو، وزیر خارجه آمریکا، اعلام کرد ایالات متحده آماده مذاکره است و در صورت شکست مذاکرات، در دفاع از منافع و امنیت متحدان خود تردید نمی‌کند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

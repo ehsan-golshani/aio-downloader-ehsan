@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 193
 
-📅 آخرین بروزرسانی: 1405/05/29 07:39
+📅 آخرین بروزرسانی: 1405/05/29 08:33
 
 ---
+
+## VahidOOnLine — post 251307
+
+<div align="center"><video src="files/post_251307_VahidOOnLine_251307.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251307_VahidOOnLine_251307.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ویدیویی از تقسیم تور دروازه فینال جام جهانی میان هواداران در شبکه‌های اجتماعی پربازدید شده است.
+در این ویدیو دیده می‌شود که ماموران پلیس نیویورک پس از مراسم و قهرمانی اسپانیا، به تماشاگران برای بریدن و بردن تکه‌های تور دروازه فینال کمک می‌کنند.
+اسپانیا با شکست آرژانتین در فینال، برای دومین بار قهرمان جام جهانی فوتبال شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251306
 
@@ -260,19 +275,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ارتش جمهوری اسلامی اعلام کرد در مرحله نوزدهم عملیات «صاعقه»، پایگاه‌های عریفجان، العدیری و احمد الجابر آمریکا در کویت را با پهپادهای انهدامی هدف قرار داده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251284
-
-<div align="center"><img src="files/post_251284_VahidOOnLine_251284.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندار آبدانان در استان ایلام اعلام کرد یک موشک به منطقه‌ای غیرنظامی در کوه‌های آبدانان اصابت کرده است.
-
-او افزود این حمله تلفات جانی نداشته است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
