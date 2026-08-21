@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 179
 
-📅 آخرین بروزرسانی: 1405/05/30 05:38
+📅 آخرین بروزرسانی: 1405/05/30 06:51
 
 ---
+
+## VahidOOnLine — post 251765
+
+<div align="center"><img src="files/post_251765_VahidOOnLine_251765.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محسن رضایی، مشاور نظامی مجتبی خامنه‌ای با انتشار پستی در ایکس نوشت: «حمله به شلمچه و تهدید به حملات زیرساختی چیزی جز استیصال و درماندگی نیست. پاسخ جمهوری اسلامی به حملات زیرساختی تصاعدی و شدید خواهد بود.»
+
+رضایی همچنین نوشت که رییس‌جمهوری آمریکا با اشتباهات مهلک از «بازی مرد دیوانه» به «بازی مرد مستاصل» رسیده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251764
+
+<div align="center"><img src="files/post_251764_VahidOOnLine_251764.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، با انتشار پیامی در شبکه اجتماعی اکس نوشت که دونالد ترامپ، رئیس‌جمهوری آمریکا، با «اشتباهات مهلک» از «بازی مرد دیوانه» به «بازی مرد مستاصل» رسیده است.
+
+رضایی همچنین حمله به زائران در شلمچه و تهدید به حمله به زیرساخت‌ها را نشانه «استیصال و درماندگی» دانست و نوشت که در صورت حملات زیرساختی، پاسخ جمهوری اسلامی «تصاعدی و شدید» خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251763
+
+<div align="center"><video src="files/post_251763_VahidOOnLine_251763.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251763_VahidOOnLine_251763.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«قیمت این دستمال از همه این اسکناس‌ها بیشتره»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251762
 
@@ -256,47 +295,6 @@
 
 کالاس تاکید کرد که این تهدیدات ثبات منطقه را به طور مستقیم به خطر می‌اندازد و کشتیرانی باید هم در تنگه هرمز و هم در دریای سرخ بدون مانع جریان داشته باشد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251731
-
-<div align="center"><video src="files/post_251731_VahidOOnLine_251731.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251731_VahidOOnLine_251731.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️پدرو پورو، مدافع تاتنهام و تیم ملی اسپانیا، که پیش از آغاز جام جهانی ۲۰۲۶ به پدربزرگش قول داده بود جام قهرمانی را به خانه بیاورد، پس از قهرمانی اسپانیا به کشورش بازگشت و مدال طلای خود را به پدربزرگش تقدیم کرد.
-
-این بازیکن با انتشار ویدیویی از دیدار با پدربزرگش در شبکه اجتماعی اکس نوشت: «ماموریت انجام شد.» پورو پیش‌تر گفته بود پدربزرگش که او را در کودکی به تمرین‌ها می‌برد و در مسابقاتش حضور داشت، مهم‌ترین دلیل فوتبالیست شدن او بوده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251730
-
-<div align="center"><img src="files/post_251730_VahidOOnLine_251730.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل پنج‌شنبه اعلام کرد پیوستن عربستان سعودی به توافق‌های ابراهیم، تحولی تاریخی در مسیر صلح در خاورمیانه خواهد بود.
-
-دفتر نخست‌وزیر اسرائیل افزود اقدام نظامی مشترک آمریکا و اسرائیل علیه جمهوری اسلامی و تضعیف محور «تروریستی» تهران، زمینه را برای گسترش دایره صلح فراهم کرده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251729
-
-<div align="center"><img src="files/post_251729_VahidOOnLine_251729.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد مخبر، دستیار مجتبی خامنه‌ای، در ایکس نوشت: «آتشی که آمریکا در حال روشن کردن آن در میادین نفت و گاز منطقه است شعله‌هایش دامن همه جهان را خواهد گرفت. نیروهای مسلح ما قطعا با ابتکار عمل و هوشمندی، میدان و سطح بازی را یک پله بالاتر از دشمن تعریف می‌کنند.»
-
-او افزود: «نفت ۱۰۰ دلاری تا این لحظه صرفا نتیجه اختلال در روند حمل و نقل آن است نه تولید.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
