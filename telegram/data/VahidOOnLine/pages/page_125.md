@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 125
 
-📅 آخرین بروزرسانی: 1405/05/30 23:18
+📅 آخرین بروزرسانی: 1405/05/30 23:39
 
 ---
+
+## VahidOOnLine — post 253216
+
+<div align="center"><video src="files/post_253216_VahidOOnLine_253216.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253216_VahidOOnLine_253216.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در ویدیوی ارسالی به ایران‌اینترنشنال با انتقاد از افزایش شدید قیمت‌ها گفت فشارهای اقتصادی موجب خشم و ناامیدی عمیق مردم از جمهوری اسلامی شده است. او افزود: «وقتی گرسنه باشم چیزی برای باختن ندارم. از دین و خدا برگشتم و فقط به نابودی حکومت فکر می‌کنم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253215
 
@@ -272,20 +285,6 @@ iranintl
 
 سپاه پاسداران و سازمان مدیریت تنگه هرمز جمهوری اسلامی اعلام کرده‌اند که این آبراه استراتژیک مسدود است. سنتکام این گزارش‌ها را تکذیب می‌کند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253183
-
-<div align="center"><img src="files/post_253183_VahidOOnLine_253183.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سازمان عملیات تجارت دریایی بریتانیا از وقوع یک حادثه دریایی در شمال شرق خصب عمان، در نزدیکی یک نفتکش گزارش داد.
-
-ساعاتی پیش نیز گزارش شد یک نفتکش در ۱۱ مایل دریایی شمال شرقی لیما، در مسندم عمان، هدف اصابت یک پرتابه ناشناس قرار گرفت و پس از آسیب دیدن موتورخانه، از کنترل خارج شد.
-iranintl
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

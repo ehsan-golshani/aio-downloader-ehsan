@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/30 22:42
+📅 آخرین بروزرسانی: 1405/05/30 23:41
 
 ---
+
+## tasiyanc — post 8975
+
+<div align="center"><video src="files/post_8975_tasiyanc_8975.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8975_tasiyanc_8975.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛍 #میلان Vs #اینتر💰
+
+🛍 #چلسی Vs #یوونتوس💰
+
+زمان: چهارشنبه ساعت ۱۴
+
+
+🚨 تجربه پیشبینی مطمئن با
+
+🤩 
+🤩 
+🅰️ شارژ اضافی و ریسک خیلی پایین در #بت_اینجا رو از دست نده
+❌
+
+
+🤩 
+🤩 درصد برگشت وجه در صورت باخت:
+
+🌐 betinja.bet
+
+🌐 betinja.bet
+کانال بونوس های رایگان g13
+@betinjabet
+</div>
 
 ## tasiyanc — post 8974
 
@@ -277,13 +309,5 @@ g12
 https://t.me/+gTClYDoqQdhkZjY8
 
      🔼🔼🔼🔼🔼🔼🔼🔼🔼
-</div>
-
-## tasiyanc — post 8952
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خط فقر برای یک خانواده ۴ نفره در تهران به ۹۰ میلیون تومن رسیده.
-یعنی اگه درآمد کل خانواده از این مبلغ کمتر باشه زیر خط فقر حساب می‌شن در حالی که حقوق پایه وزارت کار فقط حدود 17 میلیون تومنه.
-@Tasiyanc ⭐️
 </div>
 

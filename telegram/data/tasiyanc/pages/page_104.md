@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/30 22:42
+📅 آخرین بروزرسانی: 1405/05/30 23:41
 
 ---
+
+## tasiyanc — post 6272
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور پرمیوم  آلمان 🇩🇪
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6270
 
@@ -220,11 +232,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpDSm1UQ0N4N0x0dWQ%3D@108.181.58.239:8388#%F0%
 
 ‌پروکسی
 @TasiyanProxy ✅
-</div>
-
-## tasiyanc — post 6248
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-BabyGirl 🪐.npvt
 </div>
 

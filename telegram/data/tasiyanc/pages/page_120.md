@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/05/30 22:42
+📅 آخرین بروزرسانی: 1405/05/30 23:41
 
 ---
+
+## tasiyanc — post 5865
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد اتصال ۲۰ تا ۳۰ ثانیه زمان بدید . و بیاید تلگرام یا برید اینستاگرام
+</div>
 
 ## tasiyanc — post 5864
 
@@ -146,13 +152,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تاسیان خدایی دمت گرم تنها کانال که کانفینگاش پرسرعته تویی دمت گرم خدایی
-</div>
-
-## tasiyanc — post 5845
-
-<div align="center"><img src="files/post_5845_tasiyanc_5845.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ناموسا وحشی طور وصله تازه هم استارت زدم
 </div>
 

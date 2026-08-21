@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/05/30 22:42
+📅 آخرین بروزرسانی: 1405/05/30 23:41
 
 ---
+
+## tasiyanc — post 8848
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+R8
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 8847
 
@@ -277,21 +290,6 @@ vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?secu
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 فوری، صداوسیما خیلی جدی : امروز صبح در حملات آمریکا به ایران، 6 تا جنگنده F-35 رو زدیم! 3 تاشون کامل منهدم شدن، 3 تاشون هم خسارت دیدن! چند تا از خلبانان جنگنده هم کشته شده. 🐸🐸🐸🐸 
-⭐@Tasiyanc ⭐
-</div>
-
-## tasiyanc — post 8810
-
-<div align="center"><img src="files/post_8810_tasiyanc_8810.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، صداوسیما خیلی جدی : امروز صبح در حملات آمریکا به ایران، 6 تا جنگنده F-35 رو زدیم!
-
-3 تاشون کامل منهدم شدن، 3 تاشون هم خسارت دیدن!
-چند تا از خلبانان جنگنده هم کشته شده.
-🐸🐸🐸🐸
-
-
 ⭐@Tasiyanc ⭐
 </div>
 

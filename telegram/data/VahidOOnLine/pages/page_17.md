@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/30 23:18
+📅 آخرین بروزرسانی: 1405/05/30 23:39
 
 ---
+
+## VahidOOnLine — post 255853
+
+<div align="center"><video src="files/post_255853_VahidOOnLine_255853.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255853_VahidOOnLine_255853.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدباقر قالیباف، رئیس مجلس و عضو ارشد هیات مذاکره‌کننده جمهوری اسلامی، روز چهارشنبه ۲۸ مردادماه در بغداد با نزار آمیدی، رئیس جمهوری عراق دیدار و گفتگو کرد.
+
+این سفر همزمان با ادامه تنش‌ها در خاورمیانه و یک روز پس از پایان مهلت ۶۰ روزه توافق میان تهران و واشنگتن براساس تفاهم‌نامه اسلام‌آباد انجام می‌شود.
+
+دولت عراق اعلام کرده که گروه‌های شبه‌نظامی باید تا ماه آینده سلاح خود را تحویل دهند. شبه‌نظامیان حشد شعبی که در دوران حملات داعش و با حمایت جمهوری اسلامی تشکیل شدند، در برابر این تصمیم مقاومت می‌کنند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255852
 
@@ -295,19 +312,6 @@ Indypersian
 
 همین دو مقام که نام آن‌ها اعلام نشده می‌گویند نیروهای مسلح جمهوری اسلامی به‌طور جداگانه حمله به کابل‌های فیبر نوری زیر دریایی در تنگه هرمز را در صورت تشدید تنش‌ها، بررسی کرده‌اند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255827
-
-<div align="center"><video src="files/post_255827_VahidOOnLine_255827.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255827_VahidOOnLine_255827.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیلگر سیاسی، با اشاره به گزارش سی‌ان‌ان درباره توقف گفت‌وگوهای آمریکا با جمهوری‌اسلامی گفت این تحول را می‌توان یک «تغییر راهبردی» دانست، زیرا نه‌تنها ابزار فشار، بلکه منطق واشینگتن برای رسیدن به هدف سیاسی نیز در حال تغییر است.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

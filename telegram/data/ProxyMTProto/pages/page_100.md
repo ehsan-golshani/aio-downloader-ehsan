@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/30 23:19
+📅 آخرین بروزرسانی: 1405/05/30 23:39
 
 ---
+
+## ProxyMTProto — post 48378
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48377
 
@@ -172,15 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: fast.garden-troll.life
 Port: 443
 Secret: eea3dc3cf5e6fb44c1e2f2cdd3e9bf9acb666173742e67617264656e2d74726f6c6c2e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48358
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Strait-of-Hormuz.ir.jursdheks.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

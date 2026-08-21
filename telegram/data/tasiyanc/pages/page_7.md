@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/30 22:42
+📅 آخرین بروزرسانی: 1405/05/30 23:41
 
 ---
+
+## tasiyanc — post 9359
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قدیمی ترین سایت فعال در ایران✅
+امنیت،امکانات،تضمین پرداخت💎
+</div>
 
 ## tasiyanc — post 9358
 
@@ -234,20 +241,5 @@ https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9338
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎲 با اولین شارژ  🤩🤩🤩درصد شارژ بیشتر بگیر
-🎲 بازگشت هفتگی 🤩🤩 درصد
-🎲 هر واریز با کریتپو 🤩🤩 درصد هدیه بگیر
-
-🎲ورود به سایت و دریافت بونوس ۳۰۰ درصد
-👇🏻👇🏻
-🎲  🌐winro.io🎲
-
-کانال اخبار و هدایا👇🏻
-🌐Telegram
 </div>
 

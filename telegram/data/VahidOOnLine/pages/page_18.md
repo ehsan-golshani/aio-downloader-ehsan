@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/30 23:18
+📅 آخرین بروزرسانی: 1405/05/30 23:39
 
 ---
+
+## VahidOOnLine — post 255827
+
+<div align="center"><video src="files/post_255827_VahidOOnLine_255827.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255827_VahidOOnLine_255827.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیلگر سیاسی، با اشاره به گزارش سی‌ان‌ان درباره توقف گفت‌وگوهای آمریکا با جمهوری‌اسلامی گفت این تحول را می‌توان یک «تغییر راهبردی» دانست، زیرا نه‌تنها ابزار فشار، بلکه منطق واشینگتن برای رسیدن به هدف سیاسی نیز در حال تغییر است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255826
 
@@ -297,13 +310,5 @@ Indypersian
 Indypersian
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255781
-
-<div align="center"><img src="files/post_255781_VahidOOnLine_255781.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
 </div>
 

@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 467
 
-📅 آخرین بروزرسانی: 1405/05/30 23:18
+📅 آخرین بروزرسانی: 1405/05/30 23:39
 
 ---
+
+## VahidOOnLine — post 244896
+
+<div align="center"><video src="files/post_244896_VahidOOnLine_244896.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244896_VahidOOnLine_244896.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استرالیا و بریتانیا در بیانیه‌ای مشترک حمله‌های جمهوری اسلامی را در منطقه محکوم کردند و گفتند که نباید به سلاح هسته‌ای دست یابد. همزمان ۲۲ کشور اعلام کردند نهادهای امنیتی جمهوری اسلامی در طرح‌های ترور و آدم‌ربایی در غرب دست دارند
+
+گفت‌وگو با علیرضا محبی، خبرنگار ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244895
 
@@ -258,22 +273,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی منتشرشده در شبکه‌های اجتماعی، عبور یک موشک را در میان رد موشک‌های شلیک‌شده پیشین، در بامداد پنج‌شنبه ۲۱ خرداد در آسمان تبریز نشان می‌دهد.
 رسانه‌های جمهوری اسلامی نیز در پی حمله آمریکا، از حمله موشکی به پایگاه موفق‌السلطی در اردن خبر دادند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244863
-
-<div align="center"><video src="files/post_244863_VahidOOnLine_244863.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244863_VahidOOnLine_244863.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ستاد فرماندهی مرکزی آمریکا، سنتکام، با انتشار ویدیویی از عملیات خود علیه جمهوری اسلامی، از پایان آن خبر داد.
-سنتکام اعلام کرد نیروهای این فرماندهی در ۲۰ خرداد، حملات دفاعی تازه‌ای را علیه چندین هدف در ایران به پایان رساندند.
-به گفته سنتکام، این حملات سامانه‌های نظارتی، ارتباطی و پدافند هوایی جمهوری اسلامی را هدف گرفت و در پاسخ به آنچه «اقدامات تهاجمی بی‌دلیل و مداوم ایران» خوانده شد، انجام شده است.
-سنتکام افزود نیروهای آمریکایی همچنان هوشیار، قدرتمند و آماده اقدام هستند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

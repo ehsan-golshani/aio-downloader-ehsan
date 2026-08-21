@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 101
 
-📅 آخرین بروزرسانی: 1405/05/30 23:19
+📅 آخرین بروزرسانی: 1405/05/30 23:39
 
 ---
+
+## ProxyMTProto — post 48358
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Strait-of-Hormuz.ir.jursdheks.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48357
 
@@ -172,15 +181,6 @@ Secret: ee6538b62fe47dff3c068ed861df1f0465676174652e736f6c7571656e742e70726f
 Server: norm.quickdl.info
 Port: 25565
 Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48338
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.kvakzon.top
-Port: 443
-Secret: ee774ecb55b96b5c3302852e6861ada11563646e2e6b76616b7a6f6e2e746f70
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 111
 
-📅 آخرین بروزرسانی: 1405/05/30 22:42
+📅 آخرین بروزرسانی: 1405/05/30 23:41
 
 ---
+
+## tasiyanc — post 6099
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازم باید بگیم ؟
+</div>
 
 ## tasiyanc — post 6098
 
@@ -187,11 +193,5 @@ FastVip⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 میخواستم کانفیگ اوپن دیگه بدم ولی ری اکشن کمه
-</div>
-
-## tasiyanc — post 6072
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا
 </div>
 

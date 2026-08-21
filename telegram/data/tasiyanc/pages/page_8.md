@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/30 22:42
+📅 آخرین بروزرسانی: 1405/05/30 23:41
 
 ---
+
+## tasiyanc — post 9338
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎲 با اولین شارژ  🤩🤩🤩درصد شارژ بیشتر بگیر
+🎲 بازگشت هفتگی 🤩🤩 درصد
+🎲 هر واریز با کریتپو 🤩🤩 درصد هدیه بگیر
+
+🎲ورود به سایت و دریافت بونوس ۳۰۰ درصد
+👇🏻👇🏻
+🎲  🌐winro.io🎲
+
+کانال اخبار و هدایا👇🏻
+🌐Telegram
+</div>
 
 ## tasiyanc — post 9337
 
@@ -265,11 +280,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 ⭕️ تمام برنامه هارو ببندید بعد وصل بشید
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا
 </div>
 

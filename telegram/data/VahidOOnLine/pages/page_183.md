@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 183
 
-📅 آخرین بروزرسانی: 1405/05/30 23:18
+📅 آخرین بروزرسانی: 1405/05/30 23:39
 
 ---
+
+## VahidOOnLine — post 251781
+
+<div align="center"><img src="files/post_251781_VahidOOnLine_251781.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی ایالات متحده (سنتکام) پنج‌شنبه اعلام کرد از زمان ازسرگیری محاصره دریایی ایران، ۱۲ کشتی مجبور به تغییر مسیر شده‌اند و یک فروند کشتی از کار انداخته شده است تا از ورود و خروج کشتی‌ها به بنادر ایران یا مناطق ساحلی این کشور جلوگیری شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251780
 
@@ -263,19 +274,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مروری بر مهم‌ترین خبرهای پنجشنبه ۱ مرداد ۱۴۰۵؛ بر اساس پوشش و گزارش رسانه‌های خبری بین‌المللی درباره ایران و منطقه.
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251749
-
-<div align="center"><img src="files/post_251749_VahidOOnLine_251749.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکسیوس به نقل از دو منبع منطقه‌ای آگاه از تلاش‌های میانجی‌گری گزارش داد که رهبران حکومت ایران، آخرین پیشنهاد ارائه‌شده میانجی‌ها را نپذیرفت.
-
-یکی از آنها به اکسیوس گفت: «ما در حال تلاش هستیم، اما ایرانی‌ها همکاری نمی‌کنند.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/30 23:19
+📅 آخرین بروزرسانی: 1405/05/30 23:39
 
 ---
+
+## ProxyMTProto — post 50190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tg3.uniq.care
+Port: 8443
+Secret: 7swcOHh7aWFN6hqGnDPq5RF0ZzMudW5pcS5jYXJl
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50189
 
@@ -172,15 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e63
 Server: love.neverspy.online
 Port: 443
 Secret: ee24b3e49b9d33101f2c34e5e893bd90d17777772e6d6963726f736f66742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50170
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 135.181.74.154
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

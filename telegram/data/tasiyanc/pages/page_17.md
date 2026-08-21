@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/30 22:42
+📅 آخرین بروزرسانی: 1405/05/30 23:41
 
 ---
+
+## tasiyanc — post 9102
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴قوه قضاییه : آیت‌الله خرازی به دلیل حرف های کذب و دروغش تحت تعقیب قرار گرفت و براش تشکیل پرونده دادیم.
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9099
 
@@ -280,23 +288,6 @@ Prompt
 
 
 ⚠️مخصوص کسایی که بالا ۵۰میلیون سرمایه دارن
-g16
-https://t.me/+5fvta-uF4QA3ZDY0
-https://t.me/+5fvta-uF4QA3ZDY0
-</div>
-
-## tasiyanc — post 9078
-
-<div align="center"><img src="files/post_9078_tasiyanc_9078.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 شب و 6 برد پشت هم 
-✅
-
-من به پول هیچکدومتون نیاز ندارم و قرار نیست چیزی بهتون بفروشم
-
-آماری رو رقم زدم که حتی تازه وارد هم میفهمه این آمار کار هرکس نیست
-🚀
 g16
 https://t.me/+5fvta-uF4QA3ZDY0
 https://t.me/+5fvta-uF4QA3ZDY0

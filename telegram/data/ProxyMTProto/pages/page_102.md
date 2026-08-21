@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/05/30 23:19
+📅 آخرین بروزرسانی: 1405/05/30 23:39
 
 ---
+
+## ProxyMTProto — post 48338
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn.kvakzon.top
+Port: 443
+Secret: ee774ecb55b96b5c3302852e6861ada11563646e2e6b76616b7a6f6e2e746f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48337
 
@@ -172,15 +181,6 @@ Secret: eeb6b2b376ea60c64410542c640dc2765e6c696e6b2e6d6973686b616c6170792e6c6966
 Server: persian.gulf.ir.olsjddhf.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e6963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: go.antitspu.com
-Port: 443
-Secret: ee0d12d8f206a08b06eced9a104734a824676f2e616e7469747370752e636f6d
 @ProxyMTProto
 </div>
 
