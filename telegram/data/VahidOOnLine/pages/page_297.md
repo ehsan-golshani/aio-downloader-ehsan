@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 297
 
-📅 آخرین بروزرسانی: 1405/05/30 03:21
+📅 آخرین بروزرسانی: 1405/05/30 03:41
 
 ---
+
+## VahidOOnLine — post 249004
+
+<div align="center"><video src="files/post_249004_VahidOOnLine_249004.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249004_VahidOOnLine_249004.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال وقوع انفجارهای متعدد در شهر خورموج استان بوشهر را نشان می‌دهد که در جریان حملات آمریکا هدف گرفته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249003
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ویدیوها و گزارش‌های منتشر شده در شبکه‌های اجتماعی در روز چهارشنبه ۱۷ تیرماه حاکی از آن است که چند نفر از شرکت‌کنندگان در مراسم تشییع علی خامنه‌ای، رهبر پیشین جمهوری اسلامی در شهر نجف عراق، بر اثر ازدحام جمعیت، آسیب دیده‌اند.
+
+تابوت‌های علی خامنه‌ای و چند عضو خانواده‌ او شامگاه سه‌شنبه به نجف منتقل شد و پس از تشییع در اماکن مقدس شیعه، آیت‌الله سید محمد تقی حکیم در حرم امام علی در نجف بر آن‌ها نماز میت خواهد خواند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249002
 
@@ -259,36 +283,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال، آتش‌سوزی و برخاستن دود در اسکله بندر کوهستک شهرستان سیریک را نشان می‌دهد که هدف حمله بامدادی آمریکا قرار گرفت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248984
-
-<div align="center"><img src="files/post_248984_VahidOOnLine_248984.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️یک نیروی سپاه در حمله آمریکا به بندر ماهشهر کشته شد
-
-♦️سپاه روز چهارشنبه ۱۷ تیرماه اعلام کرد «یکی از پاسداران منطقه سوم نیروی دریایی سپاه» در این روز و همزمان با  حملات آمریکا به بندر ماهشهر کشته شد.
-
-در بیانیه روابط عمومی منطقه سوم نیروی دریایی سپاه آمده است که این نظامی در جریان مقابله با پهپادهای دشمن کشته شد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248983
-
-<div align="center"><img src="files/post_248983_VahidOOnLine_248983.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روابط عمومی منطقه سوم دریایی سپاه پاسداران در بندر ماهشهر اعلام کرد یکی از نیروهای این نهاد در حملات بامداد چهارشنبه آمریکا کشته شده است.
-
-سپاه پاسداران هویت این نیرو را محمدرضا خزیمی اعلام کرد و گفت او در حین «مقابله با پهپادهای دشمن» و بر اثر اصابت ترکش پرتابه کشته شده است.
-
-این روابط عمومی جزئیات بیشتری درباره محل دقیق حمله یا شرایط وقوع آن منتشر نکرد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/30 03:21
+📅 آخرین بروزرسانی: 1405/05/30 03:41
 
 ---
+
+## VahidOOnLine — post 255826
+
+<div align="center"><video src="files/post_255826_VahidOOnLine_255826.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255826_VahidOOnLine_255826.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل، با اشاره به تصمیم فرانسه برای اخراج دو دیپلمات جمهوری‌اسلامی در واکنش به بازداشت و بدرفتاری با دو دیپلمات فرانسوی در تهران، گفت جمهوری‌اسلامی رژیمی «متجاوز، طغیانگر و تروریست‌پرور» است و سابقه‌ای طولانی در نقض مصونیت دیپلماتیک دارد.
+
+او گفت جمهوری‌اسلامی با این اقدامات حتی کشورهایی را که حاضر به میانجی‌گری با تهران بوده‌اند، از خود دور می‌کند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255816
+
+<div align="center"><img src="files/post_255816_VahidOOnLine_255816.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مهم‌ترین خبرها و تحلیل‌های رسانه‌های جهان درباره ایران در ۲۴ ساعت گذشته
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255811
 
@@ -279,31 +305,5 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [پست از کانال منبع حذف شد.]
-</div>
-
-## VahidOOnLine — post 255780
-
-<div align="center"><img src="files/post_255780_VahidOOnLine_255780.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چو هیون، وزیر خارجه کره جنوبی، چهارشنبه گفت به نظر می‌رسد پیام دونالد ترامپ، رییس‌جمهوری آمریکا، درباره کاهش رزمایش‌های مشترک نظامی، حاوی فشاری بر سئول برای مشارکت در جنگ با ایران نیز بوده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255779
-
-<div align="center"><img src="files/post_255779_VahidOOnLine_255779.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روزنامه وال‌استریت ژورنال به نقل از مقام‌های کشورهای خلیج فارس نوشت متحدان عرب آمریکا احساس می‌کنند در میانه تنش میان تهران و واشینگتن گرفتار شده‌اند.
-
-به گفته این مقام‌ها، متحدان عرب آمریکا از یک سو خواهان ازسرگیری درگیری‌های شدیدتر نیستند، اما از سوی دیگر معتقدند نبود واکنش واشینگتن، جمهوری اسلامی را به افزایش حملات خود تشویق می‌کند.
-
-وال‌استریت ژورنال به نقل از این مقام‌ها نوشت کشورهای عربی خلیج فارس بر این باورند که حکومت ایران در نهایت به افزایش فشارهای اقتصادی با واکنش نظامی پاسخ خواهد داد و در نتیجه، صرف‌نظر از شرایط، درگیری‌ها بار دیگر تشدید خواهد شد.
-IranintlTV
-
-🤖 @VahidOOnLine
 </div>
 

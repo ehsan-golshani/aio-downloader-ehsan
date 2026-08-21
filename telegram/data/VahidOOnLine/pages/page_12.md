@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/30 03:21
+📅 آخرین بروزرسانی: 1405/05/30 03:41
 
 ---
+
+## VahidOOnLine — post 255852
+
+<div align="center"><img src="files/post_255852_VahidOOnLine_255852.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش وای‌نت، نفتالی بنت، نخست‌وزیر پیشین اسرائیل، گفت که در صورت بازگشت به قدرت، معادله بازدارندگی را تغییر خواهد داد و هر حمله حزب‌الله باعث خواهد شد ما ایران را هدف قرار دهیم.
+
+نفتالی بنت همچنین وعده داد قطر را «کشور دشمن» اعلام کند.
+
+نخست‌وزیر پیشین اسرائیل ادامه داد: «ترکیه و قطر را از غزه خارج خواهیم کرد و به جای آن‌ها مصر را وارد می‌کنیم و در عین حال آزادی عمل اسرائیل در غزه را حفظ خواهیم کرد.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255845
+
+<div align="center"><img src="files/post_255845_VahidOOnLine_255845.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری ایسنا روز چهارشنبه ۲۸ مردادماه با انتشار گزارشی اعلام کرد با وجود تلاش‌های گسترده سازمان‌های دولتی و مردمی برای پاکسازی لکه‌های نفتی، سواحل جزیره قشم همچنان با آلودگی ناشی از این اثر جنگ مواجه‌اند.
+
+در پی حملات سنتکام و نیروهای مسلح جمهوری اسلامی ایران به نفتکش‌ها در تنگه هرمز، هم سواحل ایران و هم سواحل عمان درگیر آلودگی ناشی از نشت نفت‌کش‌های آسیب‌دیده در این منطقه هستند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255844
 
@@ -280,32 +308,6 @@ Indypersian
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیلگر سیاسی، با اشاره به گزارش سی‌ان‌ان درباره توقف گفت‌وگوهای آمریکا با جمهوری‌اسلامی گفت این تحول را می‌توان یک «تغییر راهبردی» دانست، زیرا نه‌تنها ابزار فشار، بلکه منطق واشینگتن برای رسیدن به هدف سیاسی نیز در حال تغییر است.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255826
-
-<div align="center"><video src="files/post_255826_VahidOOnLine_255826.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255826_VahidOOnLine_255826.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل، با اشاره به تصمیم فرانسه برای اخراج دو دیپلمات جمهوری‌اسلامی در واکنش به بازداشت و بدرفتاری با دو دیپلمات فرانسوی در تهران، گفت جمهوری‌اسلامی رژیمی «متجاوز، طغیانگر و تروریست‌پرور» است و سابقه‌ای طولانی در نقض مصونیت دیپلماتیک دارد.
-
-او گفت جمهوری‌اسلامی با این اقدامات حتی کشورهایی را که حاضر به میانجی‌گری با تهران بوده‌اند، از خود دور می‌کند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255816
-
-<div align="center"><img src="files/post_255816_VahidOOnLine_255816.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مهم‌ترین خبرها و تحلیل‌های رسانه‌های جهان درباره ایران در ۲۴ ساعت گذشته
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

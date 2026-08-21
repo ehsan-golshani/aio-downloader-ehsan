@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 221
 
-📅 آخرین بروزرسانی: 1405/05/30 03:21
+📅 آخرین بروزرسانی: 1405/05/30 03:41
 
 ---
+
+## VahidOOnLine — post 250816
+
+<div align="center"><video src="files/post_250816_VahidOOnLine_250816.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250816_VahidOOnLine_250816.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند ویدیویی برای ایران اینترنشنال فرستاد که در آن دمای ظهر اهواز را به حرارت سونا تشبیه کرد و گفت گرمای حدود ۵۰ درجه سانتیگراد گرمازدگی به دنبال دارد و حکومت هم در تامین برق این شهر ناتوان است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250815
+
+<div align="center"><img src="files/post_250815_VahidOOnLine_250815.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، شماری از زندانیان زندان دستگرد اصفهان در اعتراض به انتقال متهمان پرونده «میدان علیخانی» به سلول انفرادی و نگرانی از اجرای احکام اعدام، دست به اعتصاب غذا زده‌اند.
+
+بنا بر این گزارش، ۱۴ زندانی روز شنبه ۲۷ تیرماه از بند عمومی زندان دستگرد اصفهان به سلول انفرادی منتقل شده‌اند. ۱۲ نفر از این افراد از محکومان پرونده «میدان علیخانی» هستند و دو زندانی دیگر نیز همراه آنان به انفرادی منتقل شده‌اند.
+
+این انتقال، نگرانی‌ها درباره اجرای قریب‌الوقوع احکام اعدام این زندانیان را افزایش داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250814
 
@@ -269,33 +297,6 @@ iranintl
 
 وزارت خارجه کویت همچنین اعلام کرد این کشور حق کامل خود را برای اتخاذ تمام اقدامات لازم برای حفظ امنیت و دفاع از خاک و تاسیسات حیاتی خود، محفوظ می‌دارد.
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250796
-
-<div align="center"><img src="files/post_250796_VahidOOnLine_250796.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وای‌نت گزارش داد ارتش اسرائیل تایید کرده که آمریکا برای تقویت حضور نظامی خود در اسرائیل، هواپیماهای سوخت‌رسان بیشتری را در پایگاه‌های نیروی هوایی این کشور مستقر می‌کند و این هواپیماها در فرودگاه بن‌گوریون مستقر نخواهند شد.
-
-بنا بر این گزارش، ۱۰ هواپیمای سوخت‌رسان دیگر آمریکا تا ۲۴ ساعت آینده وارد اسرائیل می‌شوند.
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250795
-
-<div align="center"><video src="files/post_250795_VahidOOnLine_250795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250795_VahidOOnLine_250795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در رسانه‌های اجتماعی وضعیت تونل «شهید میرزایی»‌ بندرعباس پس از حملات تازه آمریکا را نشان می‌دهد. این تونل در استان هرمزگان و در محور مواصلاتی بندرعباس به حاجی‌آباد (در امتداد جاده استراتژیک بندرعباس - سیرجان) قرار دارد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

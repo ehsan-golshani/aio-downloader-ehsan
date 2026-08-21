@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 462
 
-📅 آخرین بروزرسانی: 1405/05/30 03:21
+📅 آخرین بروزرسانی: 1405/05/30 03:41
 
 ---
+
+## VahidOOnLine — post 244895
+
+<div align="center"><video src="files/post_244895_VahidOOnLine_244895.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244895_VahidOOnLine_244895.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنیامین نتانیاهو گفت اسرائیل به اقدام قاطع علیه جمهوری اسلامی و نیروهای نیابتی‌‌اش ادامه می‌دهد و اگر لازم بداند به تنهایی و بدون پشتیبانی ایالات متحده با جمهوری اسلامی مقابله خواهد کرد
+
+بابک اسحاقی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244894
+
+<div align="center"><video src="files/post_244894_VahidOOnLine_244894.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244894_VahidOOnLine_244894.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روایت زنان بازداشت‌شده در هرات از برخوردهای خشن و تحقیرآمیز نیروهای طالبان حکایت دارد. این زنان می‌گویند با آن‌ها با خشونت رفتار شده و شماری نیز در زندان طالبان مورد تعرض و شکنجه قرار گرفته‌اند. الهام کریمی در گزارشی به این روایت‌ها پرداخته است
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244893
 
@@ -246,30 +274,6 @@
 سنتکام اعلام کرد نیروهای این فرماندهی در ۲۰ خرداد، حملات دفاعی تازه‌ای را علیه چندین هدف در ایران به پایان رساندند.
 به گفته سنتکام، این حملات سامانه‌های نظارتی، ارتباطی و پدافند هوایی جمهوری اسلامی را هدف گرفت و در پاسخ به آنچه «اقدامات تهاجمی بی‌دلیل و مداوم ایران» خوانده شد، انجام شده است.
 سنتکام افزود نیروهای آمریکایی همچنان هوشیار، قدرتمند و آماده اقدام هستند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244862
-
-<div align="center"><img src="files/post_244862_VahidOOnLine_244862.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اداره امور کنسولی وزارت خارجه آمریکا در حساب رسمی اعلام کرد گزارش‌ها نشان می‌دهد موشک‌ها، پهپادها یا راکت‌ها در حریم هوایی اردن مشاهده شده‌اند. در این هشدار از افراد خواسته شده فورا به پناهگاه یا مکان دارای پوشش مناسب بروند و در محل امن باقی بمانند.
-
-سفارت آمریکا در اردن نیز اعلام کرده وضعیت را به طور مستمر بررسی می‌کند و در صورت لزوم اطلاعات بیشتری منتشر خواهد کرد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244861
-
-<div align="center"><img src="files/post_244861_VahidOOnLine_244861.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیات هواپیمایی کشوری کویت اعلام کرد در پی آنچه حملات حکومت ایران عنوان شده، حریم هوایی این کشور به طور موقت بسته شده است. iranintl
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

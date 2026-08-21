@@ -1,8 +1,30 @@
 # آرشیو کانال VahidOOnLine - صفحه 320
 
-📅 آخرین بروزرسانی: 1405/05/30 03:21
+📅 آخرین بروزرسانی: 1405/05/30 03:41
 
 ---
+
+## VahidOOnLine — post 248517
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانیان دانمارک روز شنبه با تشکیل تجمعی مقابل سفارت آمریکا در کپنهاگ، در پاسخ به فراخوان شاهزاده رضا پهلوی، نسبت به توافق واشینگتن و تهران اعتراض کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248516
+
+<div align="center"><video src="files/post_248516_VahidOOnLine_248516.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248516_VahidOOnLine_248516.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در پی فراخوان شاهزاده رضا پهلوی برای تجمع مقابل سفارت‌های آمریکا و در اعتراض به توافق با جمهوری اسلامی، ایرانیان قبرس جنوبی در نیکوزیا تجمع برگزار کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248515
 
@@ -240,30 +262,6 @@
 
 او افزود آمریکا اسرائیل با کشتن علی خامنه‌ای، خود را در برابر «خشم توفنده و انتقام سخت» قرار دادند.
 
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248497
-
-<div align="center"><img src="files/post_248497_VahidOOnLine_248497.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️وزارت اطلاعات جمهوری اسلامی، روز شنبه ۱۳ تیر ماه، در بیانیه‌ای به مناسبت مراسم حکومتی تشییع و خاکسپاری علی خامنه‌ای اعلام کرد از آمریکا و اسرائیل به دلیل کشته شدن رهبر پیشین جمهوری اسلامی «انتقام» خواهد گرفت.
-در این بیانیه، آمریکا و اسرائیل به انجام «بزرگ‌ترین جنایت و توطئه تروریستی تاریخ معاصر» متهم شده و آمده است «دل‌های آزرده مردم» تنها با «خونخواهی از مجرمان این جنایت» آرام خواهد گرفت.
-وزارت اطلاعات همچنین از مردم خواست در مراسم تشییع علی خامنه‌ای شرکت کنند و بار دیگر بر «انتقام خون» او و دیگر کشته‌شدگان جنگ از آمریکا، اسرائیل و «مزدوران و سرسپردگان» آنها تاکید کرد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248488
-
-<div align="center"><img src="files/post_248488_VahidOOnLine_248488.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصمیم‌های علی خامنه‌ای بر زندگی و مرگ میلیون‌ها ایرانی سایه انداخت. از ماشین اعدام و فرمان سرکوب اعتراضات تا ممنوعیت واردات واکسن، حمایت از خودروسازی ناایمن، بی‌اعتنایی به آلودگی هوا، سانسور، قطع اینترنت و سیاست‌های پرهزینه منطقه‌ای؛ بسیاری از بحران‌هایی که جان ایرانیان را گرفتند، زیر نظر او شکل گرفتند یا ادامه یافتند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

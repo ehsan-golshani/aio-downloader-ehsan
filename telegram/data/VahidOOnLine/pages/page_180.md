@@ -1,8 +1,33 @@
 # آرشیو کانال VahidOOnLine - صفحه 180
 
-📅 آخرین بروزرسانی: 1405/05/30 03:21
+📅 آخرین بروزرسانی: 1405/05/30 03:41
 
 ---
+
+## VahidOOnLine — post 251721
+
+<div align="center"><video src="files/post_251721_VahidOOnLine_251721.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251721_VahidOOnLine_251721.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تصاویر منتشرشده در شبکه‌های اجتماعی نشان می‌دهد رانندگان خودروهای سنگین، مینی‌بوس‌ها و اتوبوس‌ها روز پنجشنبه اول مردادماه در یکی از جایگاه‌های سوخت زاهدان برای دریافت گازوئیل در صف‌های کیلومتری منتظر مانده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251720
+
+<div align="center"><img src="files/post_251720_VahidOOnLine_251720.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت‌خانه‌های خارجه اردن و بحرین حمله حوثی‌ها به یک کشتی متعلق به یک شرکت عربستان سعودی در دریای سرخ را محکوم کردند. وزارت خارجه اردن این حمله را نقض آشکار حقوق بین‌الملل، کنوانسیون حقوق دریاها و تهدیدی برای امنیت و ایمنی کشتیرانی دریایی دانست.
+وزارت خارجه بحرین نیز این حمله را تهدیدی برای امنیت کشتیرانی، تجارت بین‌المللی و تامین انرژی دانست و از شورای امنیت خواست برای توقف این حملات و پاسخگو کردن عاملان آن اقدام کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251719
 
@@ -246,36 +271,6 @@
 الی کوهن، وزیر انرژی و زیرساخت‌های اسرائیل در گفت‌وگو با رادیو ۱۰۳ اف‌ام گفت اسرائیل برای هر سناریوی احتمالی آماده است و هشدار داد در صورت حمله جمهوری اسلامی به اسرائیل، با پاسخی قاطع و قدرتمند روبه‌رو خواهد شد.
 
 گفت‌وگو با بابک اسحاقی، خبرنگار ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251699
-
-<div align="center"><video src="files/post_251699_VahidOOnLine_251699.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251699_VahidOOnLine_251699.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در یک برنامه زنده تلویزیونی، امیرحسین ثابتی، نماینده جبهه پایداری در مجلس شورای اسلامی، و محمدمهدی شهریاری، عضو کمیسیون امنیت ملی مجلس، درباره وضعیت تنگه هرمز به‌شدت با یکدیگر بحث کردند. در این برنامه، شهریاری از نمایندگان تندرو مجلس خواست دست از سر تنگه هرمز بردارند.
-
-گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251698
-
-<div align="center"><video src="files/post_251698_VahidOOnLine_251698.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251698_VahidOOnLine_251698.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسعود فرهیخته، معلم زندانی و فعال صنفی، برای هفتمین بار از زندان مرکزی کرج به مکانی نامعلوم منتقل شده است. شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران گزارش داد این انتقال در حالی انجام شده که او سه روز پیش، پس از ۲۰ روز حبس در سلول انفرادی، به بند عمومی بازگشته بود.
-
-گفت‌‌وگو با اسماعیل عبدی، فعال صنفی معلمان
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
