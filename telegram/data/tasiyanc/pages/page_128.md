@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 128
 
-📅 آخرین بروزرسانی: 1405/05/30 19:55
+📅 آخرین بروزرسانی: 1405/05/30 22:42
 
 ---
+
+## tasiyanc — post 5662
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود به دوستان گلم
+خسته نباشید میگم بهتون
+جا داره ازتون تشکر کنم بابت زحمات زیادی که کشیدید من به شخصه یادم میمونه که تو چه شرایطی پشت مردمتون بودید
+دم معرفتتون گرم
+امیدوارم بتونیم جبران کنیم 💙💙
+</div>
 
 ## tasiyanc — post 5646
 
@@ -184,19 +194,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کی از همه قشنگتره؟ کامنتارو 🗿
-</div>
-
-## tasiyanc — post 5625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈1 سرور تست شده wifi⛈
-
-برای اتصال پایدار صبور باشید🚀
-
-🚀 @Tasiyanc ✅
 </div>
 

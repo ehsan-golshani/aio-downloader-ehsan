@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/05/30 19:55
+📅 آخرین بروزرسانی: 1405/05/30 22:42
 
 ---
+
+## tasiyanc — post 8424
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه آرژانتین از کون اورد
+</div>
 
 ## tasiyanc — post 8423
 
@@ -179,26 +185,5 @@ Ip 🇩🇪 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [04]⚡@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 8392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون 📱
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

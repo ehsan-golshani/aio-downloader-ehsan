@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/30 19:55
+📅 آخرین بروزرسانی: 1405/05/30 22:42
 
 ---
+
+## tasiyanc — post 8974
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم…
+</div>
 
 ## tasiyanc — post 8973
 
@@ -279,23 +285,5 @@ https://t.me/+gTClYDoqQdhkZjY8
 🔴خط فقر برای یک خانواده ۴ نفره در تهران به ۹۰ میلیون تومن رسیده.
 یعنی اگه درآمد کل خانواده از این مبلغ کمتر باشه زیر خط فقر حساب می‌شن در حالی که حقوق پایه وزارت کار فقط حدود 17 میلیون تومنه.
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8951
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated ⚡️ ━━━╮
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@ronaldo15.fordnsdirect.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40TASIYANC%20%F0%9F%92%96
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@108.162.198.5:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%F0%9F%8F%9D%EF%B8%8F%40Tasiyanc%20%F0%9F%92%A5
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca8.directdnsai.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40TASIYANC%20%F0%9F%8F%86
-
-ss://YWVzLTI1Ni1nY206UmV4bkJnVTdFVjVBRHhH@185.213.20.110:7001#%40Tasiyanc%20%F0%9F%87%AE%F0%9F%87%B9
-
-Location ⚡️🇮🇹
-
-@TASIYANC ✅
 </div>
 

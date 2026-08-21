@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/30 19:55
+📅 آخرین بروزرسانی: 1405/05/30 22:42
 
 ---
+
+## tasiyanc — post 7977
+
+<div align="center"><video src="files/post_7977_tasiyanc_7977.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7977_tasiyanc_7977.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 
+📱
+
+3سرور  سرعتی پرمیوم 
+⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال روی اندروید 
+⛓
+آموزش اتصال روی ویندوز  
+⛓
+
+دانلود برنامه اندروید 
+🕹
+
+دانلود برنامه برای ویندوز 
+💻
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7976
 
@@ -199,26 +241,6 @@ Change the background behind those two people with white curtains. With hugging 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حس میکنم خیلی زود اسرائیل ترامپ رو ترور میکنه 😟
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی_سایت
-🔄✅بهترین سایت های کاریابی ایرانی⬇️
-
-1. www.karlancer.com
-2. www.iranjob.ir
-3. www.jobvision.io
-4. www.karlib.com
-5. www.jobinja.ir
-6. www.banikar.com
-7. www.karboom.io
-8. www.e-estekhdam.com
-9. www.infojob.ir
-10. www.iranestekhdam.ir
 
 @Tasiyanc✅
 </div>

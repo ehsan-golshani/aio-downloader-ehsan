@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/30 19:55
+📅 آخرین بروزرسانی: 1405/05/30 22:42
 
 ---
+
+## tasiyanc — post 9279
 
 ## tasiyanc — post 9278
 
@@ -157,11 +159,5 @@ r23
 👇
 
 ✅https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9255
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زمستان تمام شد ، بهار تمام شد ، تابستان داره تموم میشه ، اما سوز آن دِی هرگز تمام شد
 </div>
 

@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/05/30 21:54
+📅 آخرین بروزرسانی: 1405/05/30 22:40
 
 ---
+
+## VahidOOnLine — post 255124
+
+<div align="center"><video src="files/post_255124_VahidOOnLine_255124.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255124_VahidOOnLine_255124.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تصاویری که بامداد جمعه ۲۳ مردادماه منتشر شده است، لحظه رهگیری و انهدام پهپادهای انتحاری در آسمان اربیل از سوی نیروهای ائتلاف بین‌المللی به رهبری آمریکا را نشان می‌دهد.
+
+سازمان مبارزه با تروریسم اقلیم کردستان عراق اعلام کرد نیروهای ائتلاف سه پهپاد انتحاری را رهگیری و منهدم کردند. براساس این بیانیه، این عملیات تلفات جانی یا خسارت مادی در پی نداشت و مبدا پرتاب پهپادها نیز اعلام نشده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255123
+
+<div align="center"><img src="files/post_255123_VahidOOnLine_255123.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، با بازنشر گفت‌وگوی اسکات بسنت، وزیر خزانه‌داری آمریکا، با شبکه نیوزمکس در تروت سوشال، بر برنامه دولتش برای تشدید فشار اقتصادی بر جمهوری اسلامی و رساندن «انزوای اقتصادی ایران به سطحی بی‌سابقه» تاکید کرد.
+
+بسنت در این مصاحبه از اعلام اقدامات جدید علیه جمهوری اسلامی در هفته آینده خبر داد. او افزود واشینگتن قصد دارد سیاستی شامل انزوای شدید اقتصادی جمهوری اسلامی و ادامه محاصره در تنگه هرمز اجرا کند.
+
+به گفته اسکات بسنت، این محاصره مانع ورود هرگونه کالا به بنادر ایران یا خروج کالا از این بنادر می‌شود.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255122
 
@@ -279,32 +309,6 @@ Indypersian
 
 کاردار آمریکا نیز از نقش سازنده پاکستان در پیشبرد صلح و ثبات منطقه قدردانی کرد.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255104
-
-<div align="center"><video src="files/post_255104_VahidOOnLine_255104.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255104_VahidOOnLine_255104.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد تعدادی از شهروندان شبانه در سی‌وسه‌پل اصفهان دور همی برگزار کرده و ترانه لری بختیاری «بلال بلالم» را هم‌خوانی کردند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255095
-
-<div align="center"><video src="files/post_255095_VahidOOnLine_255095.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255095_VahidOOnLine_255095.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مهمترین رویدادهای ایران در رسانه‌های جهان: جمعه ۲۳ مرداد ۱۴۰۵
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>
