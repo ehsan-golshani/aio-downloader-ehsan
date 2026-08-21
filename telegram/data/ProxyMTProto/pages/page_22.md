@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/30 11:05
+📅 آخرین بروزرسانی: 1405/05/30 11:47
 
 ---
+
+## ProxyMTProto — post 49927
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wisp.slarkfat.icu
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49926
 
@@ -172,15 +181,6 @@ Secret: ee938dd87467bc49301de2e9765cf20f4374656c2e776562766972742e636c6f7564
 Server: Unknown
 Port: 443
 Secret: eea990d0794c43c68cdd51caea31e4e957706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49907
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 
