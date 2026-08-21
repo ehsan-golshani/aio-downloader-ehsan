@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/05/30 00:55
+📅 آخرین بروزرسانی: 1405/05/30 09:21
 
 ---
+
+## tasiyanc — post 7434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تفاهم هم رو هواس الان ، امشب احتمال داره شاهد تحرکات جدید از هر دو طرف باشیم
+</div>
+
+## tasiyanc — post 7433
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطوریددد؟
+</div>
 
 ## tasiyanc — post 7432
 
@@ -169,28 +181,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 https://t.me/TasiyanProxy/1840
 نتیجه بازی رو پیش بینی دقیق کنید کانفیگ بگیرید ، باید عضو چنل پروکسی باشید تا جایزه رو بگیرید
-</div>
-
-## tasiyanc — post 7403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه وضع ریکشن به این پخت پز😐😐😐
-</div>
-
-## tasiyanc — post 7402
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب لینک اختصاصی نامحدود 🚀
-
-🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-
-130 کانفیگ پروتکل Trojan سرعتی
-( هر دوازده ساعت آپدیت خواهد شد )
-
-
-آموزش ویدیویی اضافه کردن ساب 💘
-
-
-@Tasiyanc 💠 | اتصال امن
 </div>
 

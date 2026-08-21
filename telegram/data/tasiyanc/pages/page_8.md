@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/30 00:55
+📅 آخرین بروزرسانی: 1405/05/30 09:21
 
 ---
+
+## tasiyanc — post 9319
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برا دوستانی ک همراه اول (اختلال) دارن
+
+ساب ۵۰ گیگی - ارسالی از Parisa
+
+https://sub.connecti24.info/roKRodKdpbqkdXXk
+
+
+ساب رو تو هاپ ، ویتوباکس ، ویتوری بزنید
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9318
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
 
 ## tasiyanc — post 9317
 
@@ -248,19 +271,5 @@ a23
 🎯همین حالا عضو شو و شروع کن👇
 https://t.me/+FaoDjhEVG34wMWFk
 https://t.me/+FaoDjhEVG34wMWFk
-</div>
-
-## tasiyanc — post 9295
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکس هاتونو با یه ایموجی معرفی کنید
-
-کامنت بازه.
-</div>
-
-## tasiyanc — post 9294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبید چخبرا؟
 </div>
 

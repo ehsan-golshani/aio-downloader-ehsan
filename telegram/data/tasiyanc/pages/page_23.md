@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/30 00:55
+📅 آخرین بروزرسانی: 1405/05/30 09:21
 
 ---
+
+## tasiyanc — post 8939
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 3 August, روز جهانیِ عشق اوله 
+😞
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8938
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت نتتون بگید؟
+</div>
 
 ## tasiyanc — post 8937
 
@@ -251,30 +267,5 @@ IPv6
 ╰━━━━━━━━━━━━━━━━━━╯
 
 💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8916
-
-<div align="center"><img src="files/post_8916_tasiyanc_8916.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 مرندی عضو تیم مذاکره : همه میدونن این یه خبر فیکه
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8915
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 تنها دلیل حمله نکردن ترامپ لو رفتن نقشه و طرح حمله از طرف رسانه ها بود
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-🔱 @Tasiyanc
 </div>
 

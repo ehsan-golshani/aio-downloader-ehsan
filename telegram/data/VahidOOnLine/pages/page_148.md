@@ -1,8 +1,30 @@
 # آرشیو کانال VahidOOnLine - صفحه 148
 
-📅 آخرین بروزرسانی: 1405/05/30 07:43
+📅 آخرین بروزرسانی: 1405/05/30 09:18
 
 ---
+
+## VahidOOnLine — post 252484
+
+<div align="center"><video src="files/post_252484_VahidOOnLine_252484.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252484_VahidOOnLine_252484.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مروری بر مهم‌ترین اخبار و تحولات جنگ در روز سه‌شنبه ۶ مرداد، از تحرکات نظامی تا تازه‌ترین مواضع سیاسی و دیپلماتیک.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم فرانسه دوشنبه پنجم مرداد به مناسبت سالروز درگذشت رضاشاه و محمدرضا شاه در ۴ و ۵ مرداد، در پاریس تجمع کردند و یادشان را گرامی داشتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252482
 
@@ -265,28 +287,6 @@
 🔹 جمهوری اسلامی با اعمالش و اعدام‌ها باعث شد مردم از دینی بگذرند که زمانی حاضر بودند زیر سایه همان دین یک زندگی معمولی داشته باشند. مردم فهمیدند باید بگذرند از دینی که مجازات‌هایش انداختن طناب به گردن، زدن سنگ به سر و شلاق به تن است.
 
 🔹 از تهران: چوبه‌های دار را برپا می‌کنند تا به خیال خودشان ترس را به خیابان بیاورند، اما نمی‌دانند ایران پس از دی‌ماه می‌خواهد بسوزد تا از خاکسترش، زندگی بیرون بیاید. بترسید از خشم ما.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252464
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم لندن سه‌شنبه ششم مرداد در اعتراض به اجرای احکام اعدام بازداشتی‌های دی‌ماه در میدان علیخانی اصفهان، مقابل سفارت جمهوری اسلامی تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252463
-
-<div align="center"><video src="files/post_252463_VahidOOnLine_252463.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252463_VahidOOnLine_252463.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد بامداد سه‌شنبه ششم مرداد ماموران جمهوری اسلامی به معترضان حکم اعدام در میدان علیخانی حمله کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

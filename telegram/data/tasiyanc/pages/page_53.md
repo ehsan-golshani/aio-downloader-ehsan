@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/30 00:55
+📅 آخرین بروزرسانی: 1405/05/30 09:21
 
 ---
+
+## tasiyanc — post 8058
+
+<div align="center"><video src="files/post_8058_tasiyanc_8058.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8058_tasiyanc_8058.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚫️مادر عمو پورنگ ( داریوش فرضیایی) فوت کرد
+ویدیو نشون میده از امروز شاهد پیر شدن عمو پورنگ خواهیم بود 🥹
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8055
+
+<div align="center"><img src="files/post_8055_tasiyanc_8055.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پول خوشبختی نمیاره :
+
+بانو برونا روتا هستن دوس دختر (اکس) رودریگو بازیکن کصمشنگ رئال مادرید 😐
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8052
 
@@ -248,33 +272,5 @@
 ‏نسل جدید چه میدونه "بقیه پول" چیه
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7996
-
-<div align="center"><video src="files/post_7996_tasiyanc_7996.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7996_tasiyanc_7996.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادیتی از محمدرضا شاه فقید که تو چند ساعت، میلیونی بازدید خورده
-🇮🇷
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 7995
-
-<div align="center"><video src="files/post_7995_tasiyanc_7995.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7995_tasiyanc_7995.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختره نوشته: دوس پسرم برای چند ساعت رفت بیرون و منم تصمیم گرفتم سورپرایزش کنم.
-🚬
-
-@Tasiyanc
-✅
 </div>
 

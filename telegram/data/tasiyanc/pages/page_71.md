@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/05/30 00:55
+📅 آخرین بروزرسانی: 1405/05/30 09:21
 
 ---
+
+## tasiyanc — post 7317
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡@Tasiyanc⚡️.ovpn
+</div>
+
+## tasiyanc — post 7316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی پرتغال شروع شروع شد
+به امید گلزنی و درخشش ستاره بی بدیل جهان حضرت رونالدو کبیر🤩❤️‍🔥
+</div>
 
 ## tasiyanc — post 7309
 
@@ -186,13 +199,5 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 آموزش اتصال به سرور دارک ⏩
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7284
-
-## tasiyanc — post 7283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪⚡ Fast 🚀.npvt
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 121
 
-📅 آخرین بروزرسانی: 1405/05/30 08:37
+📅 آخرین بروزرسانی: 1405/05/30 09:19
 
 ---
+
+## ProxyMTProto — post 47930
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: vibe.proxyonline.online
+Port: 443
+Secret: ee658ee8ba38b14db544ee2954023446d0766962652e70726f78796f6e6c696e652e6f6e6c696e65
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47929
 
@@ -172,15 +181,6 @@ Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
 Server: waves.nolags.pw
 Port: 443
 Secret: dd0208abd7e65df801ec0550d8ba07c1b3
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 

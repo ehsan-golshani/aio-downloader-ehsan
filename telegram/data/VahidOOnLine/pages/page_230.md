@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 230
 
-📅 آخرین بروزرسانی: 1405/05/30 07:43
+📅 آخرین بروزرسانی: 1405/05/30 09:18
 
 ---
+
+## VahidOOnLine — post 250634
+
+<div align="center"><img src="files/post_250634_VahidOOnLine_250634.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی ایالات متحده اعلام کرد اظهارات جمهوری اسلامی درباره حمله به پایگاه التنف در سوریه و کشته یا اسیر شدن نیروهای آمریکایی نادرست است.
+
+سنتکام تاکید کرد هیچ‌یک از نیروهای آمریکایی مستقر در منطقه اخیرا کشته یا اسیر نشده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250633
+
+<div align="center"><img src="files/post_250633_VahidOOnLine_250633.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ فرماندهی مرکزی ارتش آمریکا، سنتکام، روز جمعه ۲۶ تیر با انتشار پیامی در شبکه اجتماعی ایکس، ادعای جمهوری اسلامی مبنی بر «کشته یا اسیر شدن» نیروهای این کشور در حمله به پایگاه نظامی التنف در سوریه را تکذیب کرد.
+
+پیش از این یک منبع نظامی سوریه نیز که نخواسته بود نامش فاش شود، در گفتگو با خبرگزاری فرانسه، اخبار مربوط به حمله به این پایگاه را تکذیب کرده بود.
+
+سپاه پاسداران صبح جمعه اعلام کرده بود که «حمله‌ای غافلگیرانه» به این پایگاه انجام داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250632
 
@@ -250,34 +278,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک شهروند پیامی ویدیویی فرستاد و گفت که بابت خرید چند پیمانه قهوه، نیم میلیون هزینه کرده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250614
-
-<div align="center"><video src="files/post_250614_VahidOOnLine_250614.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250614_VahidOOnLine_250614.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش‌های رسیده به مدیابات ایران‌اینترنشنال از ادامه کمبود و گرانی دارو و قطع پوشش بیمه‌ای برخی داروها در ایران حکایت دارد
-
-گفت‌وگو با لیلا سعادتی، عضو تحریریه ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250613
-
-<div align="center"><img src="files/post_250613_VahidOOnLine_250613.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی‌اکبر ولایتی، مشاور رهبر کشته‌شده جمهوری اسلامی، در یادداشتی سفر نخست‌وزیر عراق به آمریکا را «سفری تاسف‌بار، بی‌موقع و تخریب‌کننده مجاهدتهای ملت عراق در تاریخ چند هزارساله این کشور» دانست و علی الزیدی را فردی «جوان و کم تجربه» خواند.
-
-ولایتی اضافه کرد نخست‌وزیر عراق در حالی که هنوز مراسمات سوگواری رهبر جمهوری اسلامی به اتمام نرسیده، به کاخ سفید سفر کرده و هیچ نشانه‌ای از اندوه و تاثر در آن دیدار نداشت.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

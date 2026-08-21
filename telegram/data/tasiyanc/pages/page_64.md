@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/05/30 00:55
+📅 آخرین بروزرسانی: 1405/05/30 09:21
 
 ---
+
+## tasiyanc — post 7588
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حالتون چطوره؟
+</div>
+
+## tasiyanc — post 7586
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🍊⚡ Fast Orange.npvt
+</div>
 
 ## tasiyanc — post 7585
 
@@ -195,17 +207,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کادو منو نمیدید روز پسره؟
-</div>
-
-## tasiyanc — post 7550
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
-</div>
-
-## tasiyanc — post 7546
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☕Türk Kahvesi⚡️.npvt
 </div>
 

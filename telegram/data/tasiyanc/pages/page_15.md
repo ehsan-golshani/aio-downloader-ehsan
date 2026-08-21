@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/30 00:55
+📅 آخرین بروزرسانی: 1405/05/30 09:21
 
 ---
+
+## tasiyanc — post 9136
+
+<div align="center"><video src="files/post_9136_tasiyanc_9136.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9136_tasiyanc_9136.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کودک خردسال جاویدنام فاطمه سلطانی بجای در آغوش گرفتن مادر قهرمانش سنگ سرد ارامگاهش را میبوسد.
+
+@TASIYANC 🏛
+</div>
+
+## tasiyanc — post 9133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕 اسم : Mountain Embrace 
+❤️ آموزش استفاده 
+👉 دریافت پرامپت 
+👉 @TASIYANC 
+⭐️
+</div>
 
 ## tasiyanc — post 9132
 
@@ -288,29 +310,5 @@ r18
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 متاسفانه توسعه دهنده های NPV TUNNEL بیشتر از ۳ ماه هست که رو آپدیت جدید و رفع باگ های این برنامه محبوب کار نکردن ، جوری شده کانفیگ ها با پینگ Real 60 رو برنامه های دیگه با سرعت وصله ولی تو نپستر پینگ Out میده و علاوه بر این سرعت مورد نظر مارو نمیدن
-</div>
-
-## tasiyanc — post 9113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کارما چیزیه ک سراغ همه میاد عزیزم حتی شما دوست عزیز چه اعتقاد داشته باشی چه نه کارای خوبت و بدت پیش کسی که می‌پرستی چرتکه میندازن تعادل باید برقرار باشه😞
-</div>
-
-## tasiyanc — post 9112
-
-<div align="center"><video src="files/post_9112_tasiyanc_9112.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9112_tasiyanc_9112.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید 
-🆕
-
-prompt Cinematic Winter Fashion Portrait 
-🤖
-🤖
-cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, street, symmetrical face, look at camera, detailed face, photo studio, awesome light, muted colors :: Fashion Photographer
-@TASIYANC 
-✅
 </div>
 

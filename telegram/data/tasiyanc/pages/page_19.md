@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/30 00:55
+📅 آخرین بروزرسانی: 1405/05/30 09:21
 
 ---
+
+## tasiyanc — post 9035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 6 آگوست روز جهانی فوت فتیش هاست 🐸
+
+بفرست برا کسی که میخوای عکس پاشو برات بده 😂
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9034
+
+<div align="center"><video src="files/post_9034_tasiyanc_9034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9034_tasiyanc_9034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این سکانس GOT برای دنیا معمولیه برای ما ایرانیا نه
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9032
 
@@ -267,45 +288,5 @@ g14
 
 https://t.me/+cBQ8n7zLQiUzN2U0
 https://t.me/+cBQ8n7zLQiUzN2U0
-</div>
-
-## tasiyanc — post 9009
-
-<div align="center"><img src="files/post_9009_tasiyanc_9009.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-40 میلیون تومن برداشت روزانه ی کانال تراست بت 
-🎁
-پول دراوردن از بت تجربه و استراتژی میخواد نه ادعا
-
-برایند ماه تیر توی کانال تراست بت: 78 درصد رشد سرمایه بود
-✅
-
-40 بازی اخیر 34 برد 
-📊
-
-
-💠https://t.me/+cBQ8n7zLQiUzN2U0
-g14
-
-💠 https://t.me/+cBQ8n7zLQiUzN2U0
-</div>
-
-## tasiyanc — post 9008
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•تقدیم به مردم سرزمینم 🖤
-
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 📍
-
-•آموزش اتصال ⚡️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 

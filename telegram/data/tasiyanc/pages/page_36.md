@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/30 00:55
+📅 آخرین بروزرسانی: 1405/05/30 09:21
 
 ---
+
+## tasiyanc — post 8571
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ وارد سیکت*یر ( ۳۱ تیر شدیم)
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8570
+
+<div align="center"><img src="files/post_8570_tasiyanc_8570.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید ✨
+
+تحلیل زیبایی شما 💖
+
+آموزش استفاده 👉
+
+دانلود Gemini 🤖
+
+دانلود ChatGpt 🤖
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8569
 
@@ -227,19 +253,5 @@ Location 🤯 🇫🇷
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آقا این جان فداهای ما چی شد؟
-</div>
-
-## tasiyanc — post 8518
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 چابهار چندین انفجار مهیب
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انفجار در شیراز ، تایید میکنید شیرازیا؟
 </div>
 
