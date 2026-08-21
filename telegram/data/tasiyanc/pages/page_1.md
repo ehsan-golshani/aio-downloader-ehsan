@@ -1,12 +1,69 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/30 15:27
+📅 آخرین بروزرسانی: 1405/05/30 18:39
 
 ---
 
-## tasiyanc — post 9498
+## tasiyanc — post 9501
 
-<div align="center"><a href="files/post_9498_🌶️ Hot .ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🌶️ Hot .ovpn</a></div>
+<div align="center"><img src="files/post_9501_tasiyanc_9501.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گرانترین شهر های ایران برای زندگی
+( بر اساس قدرت خرید ملک و ... ) !
+
+آخرین آپدیت خرداد ماه ۱۴۰۵ - قیمت ها میانگین گرفته شدن.
+منبع: مرکز آمار ایران و سامانه های املاک معتبر
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9500
+
+<div align="center"><a href="files/post_9500_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9499
+
+<div align="center"><img src="files/post_9499_tasiyanc_9499.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9498
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 📶
@@ -378,43 +435,5 @@ IPv6
 
 ✔️ @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9477
-
-<div align="center"><video src="files/post_9477_tasiyanc_9477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9477_tasiyanc_9477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست موقت
-
-🪙 کاربردی - کسب درامد
-
-⚡️معرفی ربات کسب درامد ماینر (استخراج) تون کوین (گرام) - برداشت داره تایید شدست میتونید با انجام تسک ها به درآمد برسید
-
-👉https://t.me/GramHashes72Bot
-
-
-@Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Blue Man💙 (1).ovpn
-</div>
-
-## tasiyanc — post 9475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-
-@Tasiyanc ⭐️
 </div>
 

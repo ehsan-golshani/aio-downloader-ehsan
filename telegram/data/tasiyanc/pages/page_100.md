@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/05/30 15:27
+📅 آخرین بروزرسانی: 1405/05/30 18:39
 
 ---
+
+## tasiyanc — post 6367
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🔝
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 🍏
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ❤️
+</div>
+
+## tasiyanc — post 6365
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🔝
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 🍏
+
+آموزش اتصال ⛓
+
+🔺@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6364
 
@@ -170,31 +208,5 @@ Password : @Tasiyanc  ⏩
 🔺 مناسب برای استفاده از کانفیگ‌های مختلف در اندروید
 پروژه OLCNG یکی از محصولات OpenLibre Community است که با هدف ارائه ابزاری سریع و ساده برای مدیریت اتصال‌های مبتنی بر پروکسی توسعه داده شده است.
 Join As @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST @Tasiyanc servers.txt
-</div>
-
-## tasiyanc — post 6344
-
-<div align="center"><img src="files/post_6344_tasiyanc_6344.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST @Tasiyanc servers.txt
-</div>
-
-## tasiyanc — post 6343
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪼 اختصاصی تاسیان 👑
-
-85 کانفیگ Fast پروتکل Trojan ⚡
-
-بریزید ویتوباکس یا ویتوری پینگ بگیرید وصل شید 💚
-
-@Tasiyanc ✅
 </div>
 

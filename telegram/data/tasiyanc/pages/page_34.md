@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/05/30 15:27
+📅 آخرین بروزرسانی: 1405/05/30 18:39
 
 ---
+
+## tasiyanc — post 8650
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در صورت تداوم عدم حمایت و نداشتن جذب ، چنل بزودی بفروش خواهد رسید و اتمام فعالیت تاسیان بزودی اعلام خواهد شد ❤️
+</div>
+
+## tasiyanc — post 8647
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8646
+
+<div align="center"><video src="files/post_8646_tasiyanc_8646.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8646_tasiyanc_8646.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹وقتی یه عالمه اسباب‌بازی داری ولی هیشکی باهات بازی نمیکنه :)
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8643
 
@@ -204,35 +247,5 @@ Fact @TASIYANC ✅
 
 یکی از معتبرترین تصاویر تهران قدیم است که توسط فردریک گادامر، فیلمبردار فرانسوی در تهران ضبط شده است. در این ویدیو، تصاویری از کوچه‌ها و بازار تهران را میبینید. ویدیو را تا پایان تماشا کنید و بنویسید که تصویر آخر در کدام خیابان تهران ضبط شده است؟
 FACT @TASIYANC 💠
-</div>
-
-## tasiyanc — post 8615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-پینگ نگیرید
-vless://4bde007a-f683-4a43-83ad-e11eff35e6b4@tasiyanc.nova-5e611f.workers.dev:443?path=%2F&security=tls&encryption=none&insecure=0&host=tasiyanc.nova-5e611f.workers.dev&fp=chrome&type=ws&allowInsecure=0&sni=tasiyanc.nova-5e611f.workers.dev#%40TASIYANC%20%F0%9F%9A%80
-Location 🇺🇸
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8614
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
-</div>
-
-## tasiyanc — post 8612
-
-<div align="center"><video src="files/post_8612_tasiyanc_8612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8612_tasiyanc_8612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺والنتینا واسیلیوا زنی بود که طبق اسناد تاریخی، در روسیه قرن هجدهم ۲۷ بار زایمان کرد و صاحب ۶۹ فرزند شد؛ ۱۶ بار دوقلو، ۷ بار سه قلو و ۴ بار چهارقلو 😐
-
-شگفت انگیزتر اینکه ۶۷ نفر از این کودکان از دوران نوزادی جان سالم به در بردند؛ اتفاقی بسیار نادر در آن زمان.
-
-Fact @TASIYANC ✅
 </div>
 

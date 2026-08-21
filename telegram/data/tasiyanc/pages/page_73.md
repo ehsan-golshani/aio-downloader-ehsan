@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/05/30 15:27
+📅 آخرین بروزرسانی: 1405/05/30 18:39
 
 ---
+
+## tasiyanc — post 7260
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی هجومی تیم ملی با مساوی به پایان رسید
+</div>
+
+## tasiyanc — post 7259
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخرااااااااج بازیکن بلژیک 🔹
+</div>
+
+## tasiyanc — post 7257
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشمای بلژیک ریخته ۱۱ نفری دفاع میکنن
+</div>
 
 ## tasiyanc — post 7256
 
@@ -201,57 +219,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Wnd🍓 @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 7223
-
-<div align="center"><video src="files/post_7223_tasiyanc_7223.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7223_tasiyanc_7223.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایر Windscribe 
-🔐
-
-
-🟢حجم و کاربر نامحدود 
-🟢
-
-تمام اپراتورا 
-🔺
-
-مناسب گیم 
-🎲 دانلود
-⬇️ وب‌گردی
-🔍 جمینای
-
-دانلود ویندسکرایب : Android 
-📱  iOS 
-🕹
-
-آموزش اتصال به سرور 
-⏩
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7222
-
-<div align="center"><img src="files/post_7222_tasiyanc_7222.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ Windscribe 
-🔐 می‌خوام بزارم ، همونطوری ک میدونید بهترین کلاینت VPN حال حاضره از هر لحاظ ، دانلودش داشته باشید بریم تو کارش ، این کانفیگ ها مناسب گیم و وبگردی هستن
-</div>
-
-## tasiyanc — post 7221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جرمی دوکو ستاره بلژیک در آستانه بازی با ایران بخاطر زایمان همسرش از اردوی بلژیک جدا شد
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

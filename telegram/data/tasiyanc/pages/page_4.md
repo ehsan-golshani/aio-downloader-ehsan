@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/30 15:27
+📅 آخرین بروزرسانی: 1405/05/30 18:39
 
 ---
+
+## tasiyanc — post 9431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برید به ChatGpt بگید ...
+
+Roast me , no filter , no mercy
+
+اون روی سگشو می‌بینید ، جوری زخماتون باز می‌کنه گریه کنید
+
+#N
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بلومبرگ میگه با رد ترامپ واسه تمدید دوباره آتش بس دیگه امیدی واسه صلح ایران و آمریکا نیست.
+
+#N
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9428
 
@@ -166,51 +203,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این شخص بدست بیارید سریع بفرستید پیوی ادمین هزینشو ... هم میدیم
 
 @TSSUB
-</div>
-
-## tasiyanc — post 9408
-
-<div align="center"><img src="files/post_9408_tasiyanc_9408.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اینترنت گوشی رو به ساده ترین راه ممکن بفرست روی لپ تاپ!
-
-📰اگه روی گوشیت VPN روشنه و میخوای همون اینترنت و VPN رو روی ویندوز داشته باشی، Relay کار رو خیلی ساده میکنه. این پروژه متن بازه و گوشی و لپ تاپ مستقیما به هم وصل میشن و ترافیک از طریق یک تونل WireGuard منتقل میشه.
-
-❓ چطوری ازش استفاده کنیم ؟!
-
-1️⃣اپ Relay رو روی گوشی و ویندوز نصب کن ؛ هات اسپات گوشی رو روشن کن و Relay رو اجرا کن.
-
-2️⃣روی گوشی Start Sharing رو بزن تا QR Code نمایش داده بشه ؛ Relay رو روی ویندوز باز کن و Scan QR رو بزن.
-
-3️⃣در نهایت QR رو با دوربین لپ تاپ اسکن کن و اتصال رو روی گوشی تایید کن. تمام!
-
-📥 دانلود و کد پروژه : لینک گیت‌هاب
-
-🔐 طبق توضیحات پروژه، اکانت، سرور واسطه، تله متری یا اشتراک نداره و لاگ ها هم به صورت خودکار آپلود نمیشن.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9407
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانال از نون شب واجب تر 👌
-</div>
-
-## tasiyanc — post 9406
-
-<div align="center"><img src="files/post_9406_tasiyanc_9406.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
-
-💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
-sa26
-📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥💵
-
-‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
-https://t.me/+F1CivZlkxrgzMTM0
-https://t.me/+F1CivZlkxrgzMTM0
 </div>
 
