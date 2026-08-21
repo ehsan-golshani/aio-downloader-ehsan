@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/05/31 01:25
+📅 آخرین بروزرسانی: 1405/05/31 01:42
 
 ---
+
+## VahidOOnLine — post 253336
+
+<div align="center"><img src="files/post_253336_VahidOOnLine_253336.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجید ابن‌الرضا، سرپرست وزارت دفاع جمهوری اسلامی، در ایکس نوشت: «اظهارات اخیر دشمن، هرچند در بستر عملیات روانی و جنگ محاسباتی مطرح می‌شود، اما از نگاه ما هر تهدیدی، یک تهدید واقعی و قابل اعتناست.»
+
+او نوشت: «نه غافلگیر می‌شویم و نه منفعل؛ تهدید را مبنای افزایش آمادگی، تقویت بازدارندگی و ارتقای قدرت خود قرار می‌دهیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253335
 
@@ -292,19 +305,6 @@
 
 میدل‌ایست ۲۴ مدعی شد در صورت ازسرگیری عملیات، این فهرست شامل مقام‌های ارشد جمهوری اسلامی و دیگر اهداف راهبردی خواهد بود.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253305
-
-<div align="center"><video src="files/post_253305_VahidOOnLine_253305.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253305_VahidOOnLine_253305.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ احمدرضا عابدزاده، دروازه‌بان پیشین تیم ملی فوتبال ایران و باشگاه پرسپولیس، با انتشار تصاویری در اینستاگرام آمادگی بدنی خود را به نمایش گذاشت. او که متولد خرداد ۱۳۴۵ است و بیش از ۶۰ سال سن دارد، در توضیح این تصاویر نوشت: «(تمرین) شکم ساده در باشگاه».
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 321
 
-📅 آخرین بروزرسانی: 1405/05/31 01:25
+📅 آخرین بروزرسانی: 1405/05/31 01:42
 
 ---
+
+## VahidOOnLine — post 248609
+
+<div align="center"><video src="files/post_248609_VahidOOnLine_248609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248609_VahidOOnLine_248609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده نشان می‌دهند گروهی از ایرانیان مقیم آلمان شنبه ۱۳ تیر در شهر مونیخ تجمع کرده و خواستار پایان مماشات با جمهوری اسلامی شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248608
 
@@ -276,19 +289,6 @@
 مدیریت مجموعه اعلام کرده برای مقابله با گرمای شدید، تجهیزات خنک‌کننده در فضاهای روباز، سایه‌بان، مرکز استراحت مجهز به تهویه مطبوع و داروهای رایگان پیشگیری از گرمازدگی را در اختیار بازدیدکنندگان قرار داده است.
 نکته قابل توجه اینکه دمای ۸۴ درجه سانتی‌گراد مربوط به سطح زمین و شن‌های منطقه است، نه دمای هوای محیط.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248589
-
-<div align="center"><video src="files/post_248589_VahidOOnLine_248589.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248589_VahidOOnLine_248589.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که به ایران‌اینترنشنال ارسال شده، صف طولانی اتوبوس‌ها را در بزرگراه بابایی تهران برای آوردن حامیان حکومت به مراسم دفن علی خامنه‌ای نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

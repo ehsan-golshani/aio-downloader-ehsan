@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 516
 
-📅 آخرین بروزرسانی: 1405/05/31 01:25
+📅 آخرین بروزرسانی: 1405/05/31 01:42
 
 ---
+
+## VahidOOnLine — post 243514
+
+<div align="center"><video src="files/post_243514_VahidOOnLine_243514.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243514_VahidOOnLine_243514.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شهروندان در پیام‌هایی به ایران اینترنشنال به ناتوانی حکومت در دفن جسد علی خامنه‌ای اشاره می‌کنند. خامنه‌ای ۹ اسفندماه،‌ حدود سه ماه قبل، در حمله آمریکا و اسرائیل کشته شده بود. پیام‌های شهروندان با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243513
 
@@ -282,20 +295,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی ارسالی به ایران اینترنشنال نشان می‌دهد که گروهی از ایرانیان ساکن ایالت تگزاس آمریکا در حمایت از شاهزاده رضا پهلوی، تجمعی در شهر هیوستون برگزار کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243483
-
-<div align="center"><img src="files/post_243483_VahidOOnLine_243483.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری میزان، وابسته به قوه قضاییه جمهوری اسلامی اعلام کرد حکم اعدام فتح‌الله آوری، از معترضان انقلاب ملی در دی‌ماه ۱۴۰۴، اجرا شد.
-
-قوه قضاییه، فتح‌الله آوری را متهم به «قتل یک مامور انتظامی» کرده بود. جزییاتی از زمان بازداشت و نحوه برگزاری دادگاه فتح‌الله آوری در دست نیست.
-iranintl
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

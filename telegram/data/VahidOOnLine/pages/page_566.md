@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 566
 
-📅 آخرین بروزرسانی: 1405/05/31 01:25
+📅 آخرین بروزرسانی: 1405/05/31 01:42
 
 ---
+
+## VahidOOnLine — post 242118
+
+<div align="center"><img src="files/post_242118_VahidOOnLine_242118.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ در تروث سوشال نوشت مذاکرات با جمهوری اسلامی به‌خوبی در حال پیشرفت است. یا توافقی بزرگ برای همه خواهد بود، یا اصلا توافقی در کار نخواهد بود؛ در غیر این صورت بازگشت به میدان نبرد و تیراندازی در ابعادی بزرگ‌تر و قدرتمندتر از قبل رخ خواهد داد، و هیچ‌کس این را نمی‌خواهد.»
+
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242117
 
@@ -281,20 +294,6 @@ iranintl
 
 او ادامه داد: «قوه قضاییه آماده است بیش از گذشته با مجلس و نمایندگان آن، همکاری و مساعدت داشته باشد.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242097
-
-<div align="center"><video src="files/post_242097_VahidOOnLine_242097.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_242097_VahidOOnLine_242097.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گفت‌وگو درباره اعتراضات خارج از کشور:
-« چه رفتارهایی به همبستگی و رساندن پیام مردم ایران کمک می‌کند؟»
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>
