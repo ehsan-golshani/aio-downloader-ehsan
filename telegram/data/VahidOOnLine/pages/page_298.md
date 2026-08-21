@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 298
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 249116
+
+<div align="center"><video src="files/post_249116_VahidOOnLine_249116.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249116_VahidOOnLine_249116.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوی رسیده به یاران‌اینترنشنال، پایگاه منطقه دوم نیروی دریایی سپاه در بوشهر بامداد پنجشنبه ۱۸ تیر هدف حملات آمریکا قرار گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249115
 
@@ -273,19 +286,6 @@
 این مقام آمریکایی به اکسیوس گفت نیروهای آمریکا اهداف نظامی جمهوری اسلامی را در منطقه تنگه هرمز هدف قرار داده‌اند.
 
 همزمان، خبرگزاری‌های فارس و مهر از شنیده‌شدن صدای چند انفجار در بندرعباس و سیریک خبر دادند. فارس نوشت برخی انفجارها از سمت دریا و محدوده ساحل غربی سیریک به گوش رسیده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249096
-
-<div align="center"><img src="files/post_249096_VahidOOnLine_249096.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری فارس، وابسته به سپاه پاسداران، چهارشنبه‌شب۱۷ تیرماه، از شنیده‌شدن صدای چند انفجار در بندرعباس و شهرستان سیریک در استان هرمزگان خبر داد. این خبرگزاری نوشت: «صدای برخی انفجارها از سمت دریا در محدوده ساحل غربی سیریک به گوش رسیده است.»
-
-همزمان، خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، نیز از شنیده‌شدن صدای چند انفجار در بندرعباس و سیریک خبر داد.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

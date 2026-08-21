@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 362
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 247699
+
+<div align="center"><img src="files/post_247699_VahidOOnLine_247699.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در نشست خبری مشترک با وزیر خارجه عراق در بغداد، گفت که هدف سفر من به عراق، هماهنگی‌های لازم برای تشییع جنازه خامنه‌ای در بغداد، کاظمین، کربلا و نجف است.
+
+او افزود: «میلیون‌ها عراقی برای شرکت در این تشییع اعلام آمادگی کرده بودند و نهایتا با تدبیر و همکاری دولت عراق، مقرر شد که تشییع در شهرهای عراق، به ویژه در عتبات مقدسه برگزار شود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247698
 
@@ -258,19 +271,6 @@
 
 محبی افزود جمهوری اسلامی در برابر هر اقدام طرف مقابل پاسخ داده و خواهد داد و تاکید کرد اگر آتش‌بس بار دیگر نقض شود، پاسخ جمهوری اسلامی «شدیدتر از قبل» خواهد بود. او همچنین گفت تهران تحرکات احتمالی طرف مقابل را با توجه به آنچه «ماهیت دشمن» خواند، دور از انتظار نمی‌داند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247679
-
-<div align="center"><video src="files/post_247679_VahidOOnLine_247679.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247679_VahidOOnLine_247679.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از ایرانیان در مونترال کانادا، شنبه ششم تیرماه تجمع برگزار کردند و فریاد «مرگ بر جمهوری اسلامی» سردادند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 317
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 248699
+
+<div align="center"><video src="files/post_248699_VahidOOnLine_248699.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248699_VahidOOnLine_248699.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان یکشنبه ۱۴ تیر در هیوستون تگزاس علیه جمهوری اسلامی راهپیمایی کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248698
 
@@ -307,19 +320,6 @@
 
 در نیمه دوم، برزیل با ورود اندریک، نیمار و رافینیا فشار بیشتری روی دروازه نروژ وارد کرد، اما نیلند با چند واکنش تعیین‌کننده مانع گلزنی سلسائو شد تا نروژ با این پیروزی تاریخی، صعودی بی‌سابقه به جمع هشت تیم برتر جهان را جشن بگیرد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248679
-
-<div align="center"><img src="files/post_248679_VahidOOnLine_248679.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رویترز به نقل از وزارت اطلاع‌رسانی ونزوئلا گزارش داد شمار جان‌باختگان زمین‌لرزه‌های این کشور به ۳ هزار و ۳۴۲ نفر افزایش یافته است.
-
-پیش‌تر دولت ونزوئلا اعلام کرده بود صندوق بین‌المللی پول و بانک جهانی برای کمک به بازسازی مناطق زلزله‌زده، کمک مالی و اعتباری در اختیار این کشور قرار می‌دهند. مقام‌های ونزوئلا همچنین از ایجاد صندوق ۲۰۰ میلیون دلاری بازسازی با همکاری صندوق بین‌المللی پول خبر داده و گفته‌اند عملیات جست‌وجو و نجات همچنان ادامه دارد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

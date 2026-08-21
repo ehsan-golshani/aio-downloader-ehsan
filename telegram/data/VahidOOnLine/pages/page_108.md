@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 253660
+
+<div align="center"><video src="files/post_253660_VahidOOnLine_253660.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253660_VahidOOnLine_253660.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد دوستان و نزدیکان جاویدنام مسعود ذات‌پرور سه‌شنبه ۱۳ مرداد در مراسم تولد او بر سر مزارش رفتند و آن را گلباران کردند.
+مسعود ذات‌پرور، ۳۹ ساله و قهرمان و مربی بدنسازی، ۱۸ دی ۱۴۰۴ با شلیک مستقیم نیروهای جمهوری اسلامی در رشت کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253659
 
@@ -264,20 +278,6 @@ iranintl
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی ارسال‌شده به ایران‌اینترنشنال، نصب شعارهای اعتراضی را روی دیوارهای یکی از شهرهای ایران نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253633
-
-<div align="center"><video src="files/post_253633_VahidOOnLine_253633.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253633_VahidOOnLine_253633.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ پلیس آمریکا شماری از فعالان معترض را در جریان تجمعی داخل ساختمان کنگره در واشنگتن دی‌سی بازداشت کرد.
-به گزارش رویترز، شماری از فعالان مدنی و رهبران مذهبی به رهبری اسقف ویلیام باربر دوم در جمع بازداشت‌ شدگان‌ هستند. این گروه در اعتراض به جنگ ایران و همچنین آنچه «سرکوب حق رای» خواندند، در ساختمان تجمع کرده بودند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

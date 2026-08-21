@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 476
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 244607
+
+<div align="center"><img src="files/post_244607_VahidOOnLine_244607.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️فارس گزارش داد که سپاه پاسداران یک پهپاد ام‌کیو۹ را در شمال خلیج فارس و در آسمان شهرستان جم در استان بوشهر، سرنگون کرده است. هنوز ارتش آمریکا در این زمینه اظهارنظر نکرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244606
 
@@ -229,17 +240,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رسانه‌های ایران از ادامه صداهای انفجار در نقاط مختلف هرمزگان خبر دادند. طبق این گزارش‌ها، نقاطی در جاسک و کوه مبارکه هدف پرتابه‌های متخاصم قرار گرفته است. فارس نیز گزارش داد صدای چند انفجار در مناطق شرقی هرمزگان، از جمله کوهستک، سیریک و میناب شنیده شده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244585
-
-<div align="center"><img src="files/post_244585_VahidOOnLine_244585.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️همزمان با آغاز حملات ارتش ایالات متحده علیه ایران در پاسخ به سرنگونی هلیکوپتر آپاچی آمریکا، خبرگزاری مهر گزارش داد: «نقاطی در جاسک و کوه مبارکه مورد اصابت پرتابه دشمن قرار گرفته است». پیش از این نیز صداهای انفجار در نقاط مختلف هرمزگان و قشم نیز گزارش شده بود.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

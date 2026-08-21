@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 500
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 243918
+
+<div align="center"><video src="files/post_243918_VahidOOnLine_243918.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243918_VahidOOnLine_243918.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال ادامه محاصره تنگه هرمز و توقف شناورها در آب‌های ایران را نشان می‌دهد. از زمان محاصره از سوی آمریکا بسیاری از شناورها متوقف یا مجبور به تغییر مسیر شده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243917
 
@@ -288,17 +301,6 @@ h
 بن‌طالب‌لو با اشاره به اینکه محاصره دریایی همچنان ابزار اصلی فشار اقتصادی آمریکا به شمار می‌رود، هشدار داد کنار گذاشتن این ابزار فشار اقتصاد کلان صرفا برای بازگرداندن تردد در خلیج فارس می‌تواند اشتباه راهبردی باشد.
 او افزود اگر این اهرم اقتصادی زودتر از موعد کنار گذاشته شود، سیاست‌گذاران نباید انتظار امتیازهای عمده در مسائل گسترده‌تر امنیتی را داشته باشد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243898
-
-<div align="center"><img src="files/post_243898_VahidOOnLine_243898.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️روابط عمومی سپاه، بامداد شنبه، با انتشار بیانیه‌ای اعلام کرد: «به دنبال حملات ارتش آمریکا به سیریک و جزیره قشم، پایگاه‌های دشمن در منطقه مورد اصابت موشک‌های هوافضا قرار گرفتند».
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

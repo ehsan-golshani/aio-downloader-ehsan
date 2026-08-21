@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 173
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 252048
+
+<div align="center"><img src="files/post_252048_VahidOOnLine_252048.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارتش بحرین اعلام کرد سامانه‌ پدافند هوایی این کشور چند حمله هوایی جمهوری اسلامی را رهگیری و منهدم کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252047
 
@@ -279,19 +290,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️رویترز، تصاویری جدید از انفجارهای مربوط به بامداد جمعه، دوم مردادماه، در اهواز را منتشر کرد. براساس این ویدیو، نورهای شدیدی در افق شهر اهواز رویت شده و صدای انفجارهای مهیب به گوش می‌رسد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252028
-
-<div align="center"><img src="files/post_252028_VahidOOnLine_252028.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک مقام آمریکایی اعلام کرد که ارتش ایالات متحده به یک نفتکش که درصدد عبور از خط محاصره بنادر ایران بود، شلیک کرد و آن را از کار انداخت.
-
-به گزارش خبرگزاری رویترز، این مقام که خواست نامش فاش نشود، گفت که نیروهای آمریکایی روز جمعه پس از تلاش کشتی «ام‌تی لاوین» برای عبور از محاصره، آن را در خلیج عمان از کار انداختند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 311
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 248827
+
+<div align="center"><img src="files/post_248827_VahidOOnLine_248827.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران در بیانیه‌ای نوشت که تشییع جنازه علی خامنه‌ای در عراق خط سرخ خونخواهی را پررنگ‌تر خواهد کرد.
+
+او تاکید کرد تشییع جنازه خامنه‌ای، مشت‌های درهم‌گره‌شده دو ملت بزرگ عراق و ایران را در برابر «فتنه‌های آمریکایی» محکم‌تر می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248826
 
@@ -309,22 +322,6 @@
 
 او افزود: «بند ۱۳ یادداشت تفاهم کاملا روشن و صریح است: تا زمانی که تهدیدها علیه جمهوری اسلامی ادامه داشته باشد، مذاکرات برای دستیابی به توافق نهایی آغاز نخواهد شد. به امضای خود پایبند باشید.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248807
-
-<div align="center"><video src="files/post_248807_VahidOOnLine_248807.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248807_VahidOOnLine_248807.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ صداوسیما تصاویر هوایی از نماز میت علی خامنه‌ای در جمکران را منتشر کرد
-
-♦️صداوسیما جمهوری اسلامی صبح سه‌شنبه ۱۶ تیرماه تصاویر هوایی از مراسم نماز میت علی خامنه‌ای، رهبر پیشین جمهوری اسلامی در مسجد جمکران قم را منتشر کرد.
-تابوت علی خامنه‌ای پس از قم، برای تشییع دوباره به عراق منتقل می‌شود و روز پنجشنبه ۱۸ تیر در مشهد دفن خواهد شد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

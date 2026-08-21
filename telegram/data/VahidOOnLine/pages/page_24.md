@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 255679
+
+<div align="center"><img src="files/post_255679_VahidOOnLine_255679.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده روز سه‌شنبه ۲۷ مرداد تصویری از لیندزی گراهام، سناتور درگذشته آمریکایی را در حساب تروث‌سوشال خود منتشر کرد که در آن، سناتور فقید، کلاهی با نوشته «ایران را دوباره باشکوه کنیم» روی سر دارد. گراهام هم‌چنین تصویری از صفحه دونالد ترامپ در وبسایت ویکیپدیا را در دست دارد که در آن، ترامپ به‌عنوان «رئیس‌جمهوری موقت ونزوئلا» معرفی شده است.
+
+ترامپ در توضیح این تصویر نوشت: «تصویری از لیندزی در حال تفریح کردن که همین چند هفته پیش گرفته شده! به کلاه دقت کنید!»
+
+سناتور گراهام از منتقدان جدی جمهوری اسلامی ایران بود و بارها در موقعیت‌های مختلف، از جمله با شرکت در تجمع ایرانیان مخالف حکومت، بر ضرورت تغییر حکومت در ایران تاکید کرده بود.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255678
 
@@ -292,19 +307,6 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نصب تراکت‌های «آب ـ برق ـ زندگی» در فضای شهری ـ گزارشگر
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255659
-
-<div align="center"><video src="files/post_255659_VahidOOnLine_255659.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255659_VahidOOnLine_255659.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«نصف حقوق روزانه‌ام را دادم برای این ۳ قلم جنس» ـ گزارشگر
 ManotoTV
 
 🤖 @VahidOOnLine

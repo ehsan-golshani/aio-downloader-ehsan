@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 254984
+
+<div align="center"><video src="files/post_254984_VahidOOnLine_254984.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254984_VahidOOnLine_254984.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در گفتگویی با رادیو ارتش اسرائیل (گلی تساهال) اسلام‌گرایی در اروپا را رو به افزایش ارزیابی کرد.
+
+نتانیاهو در این مصاحبه با اشاره به تغییرات ساختاری در اروپا ادعا کرد که امروزه می‌توان بریتانیا را «جمهوری اسلامی بریتانیا» نامید. او افزود: «یک نفر می‌گفت اولین جمهوری اسلامی که به سلاح هسته‌ای دست خواهد یافت، جمهوری اسلامی بریتانیا خواهد بود.»
+
+نخست‌وزیر اسرائیل در ادامه این مصاحبه با تاکید بر رویکرد تهاجمی کشورش علیه تهران اظهار داشت که تل‌آویو تمام تلاش خود را به کار خواهد بست تا از شکل‌گیری یک قدرت هسته‌ای جدید در خاورمیانه و دستیابی جمهوری اسلامی ایران به سلاح هسته‌ای جلوگیری کند. این اظهارات نتانیاهو در حالی مطرح شد که کشور پاکستان با نام رسمی «جمهوری اسلامی پاکستان» یکی از قدرت‌های دارای سلاح هسته‌ای است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254983
 
@@ -290,14 +307,6 @@ Indypersian
 ## VahidOOnLine — post 254940
 
 <div align="center"><img src="files/post_254940_VahidOOnLine_254940.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
-</div>
-
-## VahidOOnLine — post 254939
-
-<div align="center"><img src="files/post_254939_VahidOOnLine_254939.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [پست از کانال منبع حذف شد.]

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 229
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 250766
+
+<div align="center"><video src="files/post_250766_VahidOOnLine_250766.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250766_VahidOOnLine_250766.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که یک معترض در اصفهان، پرچم جمهوری اسلامی را به آتش کشید.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250765
 
@@ -285,17 +298,6 @@ iranintl
 تاکنون جزئیاتی درباره علت فعال شدن آژیرها یا تهدید احتمالی منتشر نشده است، اما پیش از این، نیروهای مسلح جمهوری اسلامی از حمله به کویت و بحرین خبر داده بودند.
 
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250746
-
-<div align="center"><img src="files/post_250746_VahidOOnLine_250746.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ارتش کویت صبح شنبه با انتشار بیانیه‌ای اعلام کرد که سامانه‌های پدافند هوایی این کشور در حال مقابله با پهپادهای «متخاصم» هستند. همزمان، صدای آژیر هشدار در بحرین به صدا درآمد و وزارت کشور بحرین از ساکنان این کشور خواست به مکان امن بروند و از توصیه‌های ایمنی پیروی کنند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

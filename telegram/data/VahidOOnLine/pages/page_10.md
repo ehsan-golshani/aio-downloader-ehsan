@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 256017
+
+<div align="center"><video src="files/post_256017_VahidOOnLine_256017.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256017_VahidOOnLine_256017.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تصاویری تاریخی از جشن خرمن با حضور کشاورزان، روستاییان و مهندسان ایرانی و آمریکایی؛ همراه با رقص‌های محلی ایران و اجرای Square Dance آمریکایی.
+گوشه‌ای از همکاری و ارتباط فرهنگی ایران و آمریکا در قدیم.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256016
 
@@ -267,21 +281,6 @@ Indypersian
 
 همزمان، هر یورو در بازار تهران به قیمت ۲۲۲ هزار و ۴۰۰ تومان رسید.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255997
-
-<div align="center"><video src="files/post_255997_VahidOOnLine_255997.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255997_VahidOOnLine_255997.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مخاطبان با ارسال ویدیوهایی یاد فرحناز اسپد، روزنامه‌نگار و مجری ایران‌اینترنشنال را گرامی داشتند. یکی از آنها گفت: «رفتن او در شرایطی که مردم ایران هر روز با رنجی تازه مواجه می‌شوند، زخمی بر پیکر ملت بود.»
-
-فرحناز اسپد پس از تحمل یک دوره بیماری سخت چشم از جهان فروبست.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

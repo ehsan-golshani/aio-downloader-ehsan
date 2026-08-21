@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 503
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 243847
+
+<div align="center"><img src="files/post_243847_VahidOOnLine_243847.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس جمهوری ایالات متحده، در هواپیمای ایر فورس وان در مسیر ویسکانسین، به خبرنگاران گفت: «ما در مورد ایران موفقیت بزرگی داریم. آن‌ها قرار نیست به سلاح هسته‌ای دست پیدا کنند.»
+
+او اضافه کرد: «آنها در موقعیتی نیستند که سلاح هسته‌ای داشته باشند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243846
 
@@ -268,19 +281,6 @@
 
 این تصمیم در حالی اتخاذ می‌شود که در پی اعتراضات سراسری دی‌ماه هزاران شهروند ایرانی با اتهامات ساختگی «جاسوسی و همکاری با کشور متخاصم» بازداشت شده‌اند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243820
-
-<div align="center"><video src="files/post_243820_VahidOOnLine_243820.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243820_VahidOOnLine_243820.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که به تازگی به ایران اینترنشنال رسیده صحنه تیراندازی و سنگرگیری شهروندان را در خیابان‌های یک شهر در جریان انقلاب ملی دی‌ماه سال گذشته را نشان می‌دهد. در جریان انقلاب ملی در بسیاری از شهرها ماموران حکومت اقدام به تیراندازی مستقیم به معترضان کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

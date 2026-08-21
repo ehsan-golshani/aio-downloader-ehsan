@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 504
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 243820
+
+<div align="center"><video src="files/post_243820_VahidOOnLine_243820.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243820_VahidOOnLine_243820.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی که به تازگی به ایران اینترنشنال رسیده صحنه تیراندازی و سنگرگیری شهروندان را در خیابان‌های یک شهر در جریان انقلاب ملی دی‌ماه سال گذشته را نشان می‌دهد. در جریان انقلاب ملی در بسیاری از شهرها ماموران حکومت اقدام به تیراندازی مستقیم به معترضان کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243819
 
@@ -269,19 +282,6 @@
 به گزارش رسانه‌های دولتی پاکستان، دو طرف در این دیدار درباره روابط دوجانبه، تحولات منطقه‌ای، مسائل امنیت داخلی و راهکارهای کاهش تنش‌ها رایزنی کردند. وزرای کشور ایران و پاکستان همچنین بر تداوم گفت‌وگوهای دیپلماتیک و گسترش همکاری‌های مشترک تأکید کردند.
 بر اساس این گزارش، تقویت هماهنگی‌های منطقه‌ای برای مقابله با چالش‌های امنیتی و دستیابی به ثبات پایدار از محورهای اصلی این دیدار بوده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243793
-
-<div align="center"><video src="files/post_243793_VahidOOnLine_243793.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243793_VahidOOnLine_243793.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با اشاره به تورم فزاینده و ناتوانی مردم در تامین معیشت می‌گوید اگر فشار خارجی آمریکا به جمهوری اسلامی ادامه یابد، حکومت «نفس‌های آخرش را می‌کشد.» پیام او با هوش مصنوعی خوانده شده است.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

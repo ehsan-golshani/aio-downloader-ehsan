@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 435
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 245799
+
+<div align="center"><img src="files/post_245799_VahidOOnLine_245799.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️رامین رضاییان در دقیقه ۳۲ بازی توانست گل اول را برای تیم فوتبال ایران مقابل نیوزلند به ثمر برساند و نتیجه بازی را یک بر یک مساوی کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245798
 
@@ -236,17 +247,6 @@
 طبق گزارش مهر، این انفجارها در محدوده تنگه هرمز روی داده و بر اساس گزارش‌های اولیه، احتمالا به «مدیریت تردد» تنگه هرمز مرتبط است.
 
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245779
-
-<div align="center"><img src="files/post_245779_VahidOOnLine_245779.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری مهر، از وقوع سه انفجار پیاپی در محدوده تنگه هرمز خبر داد و اعلام کرد که دو انفجار نخست در ساعات پایانی دوشنبه‌شب ۲۵ خرداد و سومین انفجار در ساعات اولیه بامداد سه‌شنبه ۲۶ خرداد رخ داده است. بر اساس بررسی‌های خبرنگار این رسانه، گمانه‌زنی‌های اولیه حاکی از آن است که این انفجارها احتمالا با هدف «مدیریت تردد» در تنگه هرمز صورت گرفته است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

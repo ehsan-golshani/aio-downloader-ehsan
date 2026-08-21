@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 119
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 253365
+
+<div align="center"><video src="files/post_253365_VahidOOnLine_253365.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253365_VahidOOnLine_253365.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای منتشرشده مراسم خاکسپاری آروین خیرخواهان، معترض اعدام‌شده را در شاهرود نشان می‌دهد.
+﻿آروین خیرخواهان، از بازداشت‌شدگان اعتراضات دی ۱۴۰۴، شنبه ۱۰ مرداد در زندان شاهرود اعدام شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253364
 
@@ -296,19 +310,6 @@
 
 ابن الرضا که هنوز از مجلس رای اعتماد نگرفته و همچنان سرپرستی وزارت دفاع را بر عهده دارد در همین پیام نوشت: «اظهارات اخیر دشمن، هرچند در بستر عملیات روانی و جنگ محاسباتی مطرح می‌شود، اما از نگاه ما هر تهدیدی، یک تهدید واقعی و قابل اعتناست.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253337
-
-<div align="center"><video src="files/post_253337_VahidOOnLine_253337.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253337_VahidOOnLine_253337.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان ساکن آلمان شنبه ۱۰ مرداد در شهر فرانکفورت تجمع کردند و با اعتراض به اعدام‌های جمهوری اسلامی شعار دادند: «با اینکه دوریم از وطن، پشت شماییم هموطن»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

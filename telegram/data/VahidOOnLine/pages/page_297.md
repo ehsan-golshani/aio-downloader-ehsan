@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 297
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 249136
+
+<div align="center"><img src="files/post_249136_VahidOOnLine_249136.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندار ایرانشهر اعلام کرد در حمله بامداد چهارشنبه به تاسیسات فرودگاه این شهر، یکی از نیروهای آتش‌نشانی کشته شده است.
+
+به گفته او، چهار پرتابه به ساختمان تاسیسات پرواز و ایستگاه هواشناسی فرودگاه اصابت کرده و به این بخش‌ها خسارت وارد شده است. منابع مستقل تاکنون درباره این خبر اظهار نظر نکرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249135
 
@@ -252,19 +265,6 @@
 ♦️رسانه‌های ایران در نخستین ساعات بامداد پنجشنبه ۱۸ تیرماه از وقوع دست‌کم ۱۰ انفجار در جزیره ابوموسی در جنوب ایران خبر دادند.
 پیش از این روزنامه وال‌استریت ژورنال در اوایل خردادماه گزارش داده بود که پیش از برقراری آتش‌بس، امارات متحده عربی در هماهنگی با آمریکا و اسرائیل، جزیره ابوموسی را بمباران کرده بود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249116
-
-<div align="center"><video src="files/post_249116_VahidOOnLine_249116.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249116_VahidOOnLine_249116.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوی رسیده به یاران‌اینترنشنال، پایگاه منطقه دوم نیروی دریایی سپاه در بوشهر بامداد پنجشنبه ۱۸ تیر هدف حملات آمریکا قرار گرفته است.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

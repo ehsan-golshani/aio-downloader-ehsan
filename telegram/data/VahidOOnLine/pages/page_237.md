@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 237
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 250591
+
+<div align="center"><video src="files/post_250591_VahidOOnLine_250591.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250591_VahidOOnLine_250591.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در حملات ارتش آمریکا به استان هرمزگان، پل کهورستان شهرستان خمیر هدف گرفته شد. ویدیوهای رسیده به ایران اینترنشنال وضعیت فعلی و میزان تخریب این پل در جاده بندرعباس به لارستان را نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250590
 
@@ -297,19 +310,6 @@
 هلن فلاناگان، رییس پلیس مبارزه با تروریسم لندن، گفت این پرونده نمونه دیگری از اقدام پلیس برای مختل کردن فعالیت‌های مشکوک مرتبط با سرویس‌های اطلاعاتی خارجی است. او افزود تاکنون هیچ تهدید مستقیمی علیه مردم یا هیچ فرد یا جامعه‌ای در ارتباط با این پرونده شناسایی نشده است.
 
 وحید عابری تا زمان برگزاری جلسه دادگاه در بازداشت خواهد ماند و قرار است روز جمعه ۲۶ تیر در دادگاه وست‌مینستر حاضر شود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250565
-
-<div align="center"><video src="files/post_250565_VahidOOnLine_250565.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250565_VahidOOnLine_250565.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد که برج مراقبت دریایی بندر کلانتری چابهار در حمله صبح جمعه آمریکا هدف قرار گرفته و تخریب شد. بنا بر گزارش خبرگزاری ایرنا این حادثه هیچ تلفاتی در پی نداشته است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

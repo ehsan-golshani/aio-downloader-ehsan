@@ -1,8 +1,16 @@
 # آرشیو کانال VahidOOnLine - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/05/31 01:42
+📅 آخرین بروزرسانی: 1405/05/31 02:23
 
 ---
+
+## VahidOOnLine — post 254939
+
+<div align="center"><img src="files/post_254939_VahidOOnLine_254939.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[پست از کانال منبع حذف شد.]
+</div>
 
 ## VahidOOnLine — post 254938
 
@@ -310,19 +318,6 @@ IranintlTV
 تصاویر و ویدئوهای منتشرشده از این ترافیک نشان می‌دهد شمار زیادی از مسافران برای ساعت‌ها در جاده و داخل تونل‌ها گرفتار شده‌اند. برخی سرنشینان خودروها در میان ترافیک سنگین توقف کرده و در خودروهای خود استراحت می‌کنند. برخی از جوانان نیز با آواز خواندن و رقص و بازی گذران وقت در ترافیک سنگین را هموار کردند.
 این حجم از سفر در حالی رخ داده است که ایران همچنان با مشکلات اقتصادی و پیامدهای جنگ دست‌وپنجه نرم می‌کند. با این حال، تعطیلات چندروزه پایان ماه صفر بار دیگر فرصتی شد تا ایرانیان، با وجود فشارهای اقتصادی و دشواری‌های زندگی، همچنان زمانی را برای سفر، تفریح و گذراندن تعطیلات در کنار خانواده اختصاص دهند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254919
-
-<div align="center"><video src="files/post_254919_VahidOOnLine_254919.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254919_VahidOOnLine_254919.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند ویدیویی برای ایران اینترنشنال فرستاد و در آن با اشاره به قطع شبانه برق در سبزوار، گفت: «محمدرضا شاه پهلوی می‌گفت با نور شمع به دنبال من خواهید گشت»
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>
