@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/30 14:20
+📅 آخرین بروزرسانی: 1405/05/30 15:27
 
 ---
+
+## tasiyanc — post 9195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.76:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%8C%B1%2001
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.52:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%8C%B1%2002
+
+vless://fe566714-bb4b-4811-bf47-b6412cb93985@185.178.208.176:443?path=%2Fstream%2F615428%2Fsocket&security=tls&alpn=h3%2Ch2&encryption=none&insecure=0&host=founders-blog.online&fp=chrome&type=ws&allowInsecure=0&sni=founders-blog.online#%40Tasiyanc%20%F0%9F%8C%B1%2003
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.50:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%8C%B1%2004
+
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.16:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%8C%B1%2005
+
+
+🚨 @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9193
 
@@ -322,25 +340,5 @@ a19
 🔗لینک وبسایت👉
 ⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷 a19
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9164
-
-<div align="center"><video src="files/post_9164_tasiyanc_9164.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9164_tasiyanc_9164.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏬اینارو کسی به شما نمیگه !!!
-
-اگر مشکل خروجی در ChatGpt دارید و عکسی که میدید شبیه شما نیست تنها راهکار و روششو تاسیان بهتون میگه
-
-ویدیو رو نگاه کنید قدم به قدم برید جلو و پرامپت زیر رو کپی کنید جایی ک نشون دادم قرار بدید تا مشکلتون کامل حل شه !
-
-پرامپت زیر رو در قسمت Custom Instructions بزنید سیو کنید تمام
-
-For every image generation, treat uploaded reference images as the permanent identity anchor. Maintain extremely high facial consistency and preserve the subject’s exact facial structure, proportions, skin tone, eye shape, nose, lips, jawline, and all distinctive features with maximum accuracy. Ensure the person remains instantly recognizable across all generations. Allow changes only to pose, facial expression, clothing, hairstyle (when explicitly requested), lighting, camera angle, and background. Never alter age, ethnicity, face shape, or defining facial characteristics unless explicitly instructed. Prioritize identity preservation above artistic style, creative interpretation, or visual enhancements.
-
-@TASIYANC ✅
 </div>
 

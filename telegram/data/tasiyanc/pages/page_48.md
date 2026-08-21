@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/05/30 14:20
+📅 آخرین بروزرسانی: 1405/05/30 15:27
 
 ---
+
+## tasiyanc — post 8219
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرتاب موشک از کرمانشاه
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8217
 
@@ -163,16 +171,5 @@ Ohhh
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 روبیکا لینک سیو کنین در صورت قطعی عضو شید فعلا فعالیت نداریم
 https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
-</div>
-
-## tasiyanc — post 8196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨
-🚨۷ انفجار مهیب در بوشهر
-
-@Tasiyanc 
-⭐️
 </div>
 

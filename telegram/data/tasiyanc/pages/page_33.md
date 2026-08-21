@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/30 14:20
+📅 آخرین بروزرسانی: 1405/05/30 15:27
 
 ---
+
+## tasiyanc — post 8670
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 بهبهان صدای انفجاررررررر
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8667
 
@@ -210,14 +217,5 @@
 🔹وقتی یه عالمه اسباب‌بازی داری ولی هیشکی باهات بازی نمیکنه :)
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8643
-
-<div align="center"><img src="files/post_8643_tasiyanc_8643.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🇮🇱 مانور مشترک ارتش آمریکا و اسرائیل در صحرای نقب
-@TASIYANC ⭐️
 </div>
 

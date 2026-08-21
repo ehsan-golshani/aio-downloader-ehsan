@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/05/30 14:20
+📅 آخرین بروزرسانی: 1405/05/30 15:27
 
 ---
+
+## tasiyanc — post 5701
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود
+📱
+
+⛈ سرور 🇫🇮 vip تست شده روی همراه بقیه اپراتورا تست کنن⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5700
 
@@ -184,16 +196,5 @@ vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرور بعدی مخصوص گیمرا
-</div>
-
-## tasiyanc — post 5677
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود📱
-
-⛈سرور vip هلند و آمریکا همه اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
 </div>
 

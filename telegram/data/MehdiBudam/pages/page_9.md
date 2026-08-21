@@ -1,8 +1,20 @@
 # آرشیو کانال MehdiBudam - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/30 02:47
+📅 آخرین بروزرسانی: 1405/05/30 15:25
 
 ---
+
+## MehdiBudam — post 8121
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor12
+
+
+slipnet-enc://Ae7M8ti1lb9E0ZGy9C2fc5DPhfs0uPj2Fo3JJgcnD3D6P4NMJOB0yj4kKOx63bswL88oBXqQBJF4OQ1+hRgRpm/MSECTEVrGNHOr3O1kaH4Vdqpa/2j7qpCoOeDcN1OGqKFesStjt+I6F+exwGv+fhYQJew7BdFNyjrrtp7AukryOg7iJJPcsLFKVkvOjLnZjk4E2GnY+KXzInBNTv3O1Mj83clJDmcmc+6pmSmpQZA0Cx7U5BRLPaGkUu3c3J6NTuxJ7Hnl5tW1ZdpX0CfUi+m/YRJf8v6vxyzPB5uDkuyGhM+AvtJZYkLIV3b2zffj9mfevJ8uDBUPshYhUOBBB3TxZHPWw9Jfv0rdiXug36TJ4mA2dD1D5HtWx/fI4a9FJMBPn7FN488CjAWzi89g2drkPf9x/uuz+zlirIWEs4QVMNI6m5nPw0ZUw5250USYHcgtYRviydSFQXs1ObxvpOWwwNNBgsarP/xAVtFxtp1TBT0aJshV+J1RTaQBZ7J6hTzRs+fZzuPUtLRpURHxd0RrEa7WrjSQ74Mgri2N+cqOyHXRIINupcichQq3Hko5WNAQjOB5PsQoJf4wENhWSW/kAHsYJaUOCUbDxY5a8hG60vXeq/KmGgWmMQoOqzTPeMAa5GavI+HGd8J7giKOc+YArkM7t8Kr0NWfgWAuLJ0WJxcbFDlTrcjfqqQFEI2DRTim1dfdT/OBg5pvlKINtBzrKy3JUbiufo76f7G4XzJYUQ==
+
+
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8120
 
@@ -187,11 +199,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 طبق گفته یکی از دوستان تور رو با لینوکس و ترموکس تست کردن با اپدیت خود لینوکس راحت وصل شدن.
-</div>
-
-## MehdiBudam — post 8099
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طرف پیام داده میگه تو هم خوب از این داستانا پول زدی به جیب ها کسی این پولای مارو برنداشته؟ من ندیدمشون آخه
 </div>
 

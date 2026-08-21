@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 103
 
-📅 آخرین بروزرسانی: 1405/05/30 14:20
+📅 آخرین بروزرسانی: 1405/05/30 15:27
 
 ---
+
+## tasiyanc — post 6289
+
+<div align="center"><img src="files/post_6289_tasiyanc_6289.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢معرفی پروژه Defyx (قبلاً معرفی شده بود )
+
+🟡خلاصه مشخصات و تیم توسعه دهنده Defyx VPN
+​
+تیم توسعه دهنده : توسعه‌یافته توسط UnboundTech؛ یک پروژه جامعه‌محور، غیرتجاری و مستقل که هدفش فراهم کردن ابزار دسترسی به اینترنت آزاد است.
+​هسته و پروتکل‌ها: مبتنی بر هسته قدرتمند Xray؛ پشتیبانی کامل از پروتکل‌های VLESS، VMess، Trojan و SSH.
+​امنیت و شفافیت: کاملاً متن‌باز (Open Source) و بدون تبلیغات؛ کدهای برنامه برای تایید عدم سوءاستفاده از داده‌ها در گیت‌هاب شفاف‌سازی شده است.
+⭕️ ﻿راه اتصال فعلی آسان : توی تصویر نشان دادم فقط تیک x-ray بزنید کانکت شید در صورت وصل نشدن deep scan فعال کنین و پروتکل هایی مثل x-ray - Psiphon - outline - Warp انتخاب کنین
+
+🔹دانلود DefyxVpn android 🕹
+
+🔹دانلود DefyxVpn  iOS  🌐
+
+Join As @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6288
 
@@ -199,11 +220,5 @@ BadBoys 🚀 موشک.npvt
 
 ✔️ @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امن ✅
 </div>
 

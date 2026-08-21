@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/30 14:20
+📅 آخرین بروزرسانی: 1405/05/30 15:27
 
 ---
+
+## tasiyanc — post 8968
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر 🖤
+</div>
 
 ## tasiyanc — post 8966
 
@@ -285,25 +291,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 اتصال امن برای همه 🇮🇷
 
 👹 Join As @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 کانفیگ اختصاصی نامحدود اینجکتور📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
-
-سرور سرعتی‌ لوکیشن آلمان و ترکیه 📍
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال 🔸
-
-اتصال امن برای همه 🇮🇷
-
-📱 @TASIYANC ✅
 </div>
 

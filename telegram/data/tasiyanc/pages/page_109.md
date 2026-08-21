@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/05/30 14:20
+📅 آخرین بروزرسانی: 1405/05/30 15:27
 
 ---
+
+## tasiyanc — post 6142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Jzzb 🔥Vip.npvt
+</div>
 
 ## tasiyanc — post 6141
 
@@ -196,11 +202,5 @@ Fast2⚡@Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc چنل تاسیان.conf
-</div>
-
-## tasiyanc — post 6117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نپستر عضو جداناپذیر تاسیانه دوستان نگران نباشید میزاریم ، راه های دیگه رو هم فقط تست میکنیم ❤️
 </div>
 
