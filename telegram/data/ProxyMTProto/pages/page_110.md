@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/05/30 18:37
+📅 آخرین بروزرسانی: 1405/05/30 19:20
 
 ---
+
+## ProxyMTProto — post 48170
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.120.230.120
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48169
 
@@ -172,15 +181,6 @@ Secret: ee595ef26a3a0072f97dadb2be7007dbac6173736574732e7072782e746f646179
 Server: iran.protocolsix.info
 Port: 25565
 Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48150
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: api.prxtoday.store
-Port: 443
-Secret: ee1fed31d4c3ce8255aedc8c4c14a36f536170692e707278746f6461792e73746f7265
 @ProxyMTProto
 </div>
 

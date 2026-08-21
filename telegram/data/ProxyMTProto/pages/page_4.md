@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/30 18:37
+📅 آخرین بروزرسانی: 1405/05/30 19:20
 
 ---
+
+## ProxyMTProto — post 50302
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50301
 
@@ -173,15 +182,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: chestno.servera-dlya-tg-zdes-net.abrdns.com
 Port: 443
 Secret: eea65c7fc5a0d5669ba371a7ca88fc19496f7a6f6e2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50282
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: admin.valmira.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 

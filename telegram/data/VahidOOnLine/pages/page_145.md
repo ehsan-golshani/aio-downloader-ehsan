@@ -1,8 +1,63 @@
 # آرشیو کانال VahidOOnLine - صفحه 145
 
-📅 آخرین بروزرسانی: 1405/05/30 18:36
+📅 آخرین بروزرسانی: 1405/05/30 19:19
 
 ---
+
+## VahidOOnLine — post 252674
+
+<div align="center"><video src="files/post_252674_VahidOOnLine_252674.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252674_VahidOOnLine_252674.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دادگاهی در لندن امروز یک نوجوان نروژی را به مشارکت در توطئه قتل مجرم شناخت. او برای اجرای این قتل به بریتانیا رفته بود، اما پیش از عملی کردن نقشه در هتلی در هادرسفیلد بازداشت شد. پلیس می‌گوید این مأموریت را یک شبکه تبهکار سوئدی مرتبط با جمهوری اسلامی به او سپرده بود.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252673
+
+<div align="center"><video src="files/post_252673_VahidOOnLine_252673.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252673_VahidOOnLine_252673.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تصاویر منتشرشده در شبکه‌های اجتماعی نشان می‌دهد رانندگان در بندرعباس روز چهارشنبه هفتم مردادماه برای دریافت سهمیه ۲۰ لیتری بنزین، در صف‌های طولانی مقابل یکی از جایگاه‌های سوخت این شهر منتظر مانده‌اند.
+
+همزمان، برخی شهروندان از عرضه بنزین خارج از شبکه رسمی جایگاه‌ها با قیمت‌هایی تا لیتری ۲۰ هزار تومان خبر داده‌اند و این پرسش را مطرح کرده‌اند که اگر هدف از اجرای محدودیت‌های جدید مقابله با قاچاق سوخت است، چرا پیامد آن افزایش فشار بر مصرف‌کنندگان است.
+فاطمه مهاجرانی، سخنگوی دولت مسعود پزشکیان، روز شنبه سوم مردادماه در گفتگو با رسانه‌های دولتی ایران اعلام کرده بود که تغییر قیمت یا سهمیه‌بندی مصرف بنزین در ایران «یقینی و قطعی» است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252672
+
+<div align="center"><video src="files/post_252672_VahidOOnLine_252672.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252672_VahidOOnLine_252672.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پوشش زنان؛ «لج کردن حراست دانشگاه علم‌ و صنعت» ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252671
+
+<div align="center"><video src="files/post_252671_VahidOOnLine_252671.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252671_VahidOOnLine_252671.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«لعنت بر خامنه‌ای»؛ سر دادن شعار در واکنش به اعدام‌های اصفهان _ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252658
 
@@ -236,56 +291,6 @@
 
 سلیمی اضافه کرد: «برخی از کشورهای منطقه ادب شدند، برخی از آن‌ها هم به‌زودی ادب می‌شوند. آن‌هایی که آسمان و زمین در اختیار دشمن قرار دادند، هدف مشروع محسوب می‌شود.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌هد که در مراسم یادبود عرفان اسفندیاری جمعی از خانواده‌های جاویدنامان، ازجمله مادر هومن کیانی، دختر بهزاد کیوانداریان و همسر مرتضی شاهزیدی حضور یافتند.
-
-عرفان اسفندیاری، معترض بازداشتی در پرونده میدان علیخانی اصفهان در ارتباط با اعتراضات دی‌ماه ۱۴۰۴، با حکم قوه قضاییه جمهوری اسلامی اعدام شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252626
-
-<div align="center"><img src="files/post_252626_VahidOOnLine_252626.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️شبه‌نظامیان حشد شعبی (بسیج مردمی) صبح چهارشنبه هفتم مردادماه اعلام کرد دست‌کم ۲۰ نفر از نیروهای این سازمان تحت حمایت جمهوری اسلامی در عراق، در جریان حملات مشترک عربستان سعودی و سنتکام به پایگاه‌هایش کشته و ۳۲ نفر دیگر زخمی شده‌اند.
-
-نیروی هوایی عربستان سعودی و فرماندهی مرکزی ایالات متحده (سنتکام) نیمه‌شب سه‌شنبه و بامداد چهارشنبه و در پاسخ به حملات پهپادی حشد شعبی به خاک عربستان سعودی، مواضع این گروه در عراق را بمباران کردند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252625
-
-<div align="center"><img src="files/post_252625_VahidOOnLine_252625.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️وزارت امور خارجه عربستان سعودی، روز چهارشنبه هفتم مردادماه و در پی عملیات مشترک با آمریکا علیه گروه‌های شبه نظامی تحت حمایت جمهوری اسلامی ایران در عراق، با صدور بیانیه‌ای اعلام کرد این کشور به‌دنبال تشدید تنش نیست، اما در صورت حمله مجدد به خاک پادشاهی سعودی، بدون تردید پاسخ خواهد داد.
-
-وزارت امور خارجه عربستان سعودی در این بیانیه تاکید کرد که حملات پهپادی مداوم شبه‌نظامیان تحت حمایت ایران در عراق، تلاش‌های پادشاهی سعودی برای کاهش تنش‌های منطقه‌ای را تضعیف می‌کند و این حملات را مصداق تشدید بی‌ملاحظه تنش و نقض قوانین بین‌المللی می‌داند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ویدیوهایی از آتش‌سوزی گسترده در مقرهای شبه‌نظامیان حشد شعبی، نیروهای مسلح تحت حمایت جمهوری اسلامی در عراق، پس از حمله مشترک سنتکام و نیروی هوایی عربستان سعودی، در شبکه‌های اجتماعی منتشر شده است.
-
-سنتکام و عربستان سعودی اعلام کردند حملات هوایی نیمه‌شب سه‌شنبه و بامداد چهارشنبه هفتم مرداد علیه مواضع حشد شعبی در پاسخ به حملات پهپادی این گروه به خاک عربستان سعودی انجام شده است.
-
-حشد شعبی اعلام کرد دست‌کم ۲۰ نفر از اعضایش در این حملات کشته و بیش از ۳۰ نفر دیگر زخمی شده‌اند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
