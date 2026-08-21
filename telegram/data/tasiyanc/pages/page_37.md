@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/30 12:41
+📅 آخرین بروزرسانی: 1405/05/30 14:20
 
 ---
+
+## tasiyanc — post 8523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر 💘
+</div>
 
 ## tasiyanc — post 8522
 
@@ -211,11 +217,5 @@ Loc 🇩🇪 🇩🇪
 امروز 20 July روز جهانی ماهه
 
 به تمام دختر پسرای چنلمون تبریك میگیم این روز رو 🌚
-</div>
-
-## tasiyanc — post 8484
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt
 </div>
 

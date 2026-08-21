@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/05/30 12:41
+📅 آخرین بروزرسانی: 1405/05/30 14:20
 
 ---
+
+## tasiyanc — post 9014
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ HttpCustum بزاریم ؟
+</div>
 
 ## tasiyanc — post 9012
 
@@ -435,32 +441,5 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 ⚠️
 
 🔥 بلک کارت جدید ترین بازی معروف جهانی هست که فقط کافیه یکمی باهوش باشی تا حریفات رو شکست بدی 👌🏼
-</div>
-
-## tasiyanc — post 8991
-
-<div align="center"><video src="files/post_8991_tasiyanc_8991.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8991_tasiyanc_8991.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😯 اگر هوشت بالاست 
-🗼 :
-
-
-❌ 
-👍 این ‌ویدیو‌ آموزشی رو‌ ببین و با ‌استفاده از هوش بالایی که داری پول در بیار.
-
-
-🟢 بازی خیلی حرفه ای و‌ #پولساز رو‌ از این ویدیو یاد بگیر
-
-💻لینک سایت بازی:
-
-💻 betinja.bet
-
-💻 betinja.bet
-
-🌐 کانال بونوس های رایگان a13
-@betinjabet
 </div>
 

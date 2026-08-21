@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/30 12:41
+📅 آخرین بروزرسانی: 1405/05/30 14:20
 
 ---
+
+## tasiyanc — post 9329
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختر توپُر & اسکینی ؟ پسر توپُر & سیکس پک ؟ کامنت
+</div>
 
 ## tasiyanc — post 9328
 
@@ -257,13 +263,5 @@ r24
 دانلود برنامه برای ویندوز 💻
 
 @TASIYANC ☑️
-</div>
-
-## tasiyanc — post 9300
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🐊 crocodile
-بعد سه ماه متولد شده عشق کنید
-تو قطعیا یادتونه دیگه چقد ترکوندیم
 </div>
 

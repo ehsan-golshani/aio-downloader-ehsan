@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/30 12:41
+📅 آخرین بروزرسانی: 1405/05/30 14:20
 
 ---
+
+## tasiyanc — post 9404
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووری
+
+ترامپ: توافق با ایران را لغو خواهیم کرد
+</div>
 
 ## tasiyanc — post 9403
 
@@ -236,11 +244,5 @@ g26
 
 تست شده تمام نت‌ها ⚡️
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9373
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اینترنت چطوره؟
 </div>
 

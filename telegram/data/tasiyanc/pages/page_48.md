@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/05/30 12:41
+📅 آخرین بروزرسانی: 1405/05/30 14:20
 
 ---
+
+## tasiyanc — post 8217
+
+<div align="center"><video src="files/post_8217_tasiyanc_8217.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8217_tasiyanc_8217.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺ از سنتکام : فیلم توقیف نفتکش ایرانی توسط ارتش نیروی دریایی آمریکا
+
+
+@Tasiyanc ⭐️| مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8216
 
@@ -161,11 +174,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8195
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
 </div>
 

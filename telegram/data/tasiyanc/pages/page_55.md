@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/30 12:41
+📅 آخرین بروزرسانی: 1405/05/30 14:20
 
 ---
+
+## tasiyanc — post 7960
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️🇺🇸 هگست وزیر جنگ آمریکا: ایران انتخاب نادرستی انجام داد. اکنون باید عواقب آن را بپردازد. @TasiyanProxy ⭐️
+</div>
 
 ## tasiyanc — post 7959
 
@@ -232,11 +238,5 @@ home.by.me
 بفرس برا رفیقت برات بخره☺️
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7922
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐 مشاهده فیلم 👉
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/05/30 12:41
+📅 آخرین بروزرسانی: 1405/05/30 14:20
 
 ---
+
+## tasiyanc — post 6193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+2سرور  سرعتی تست شده 🚀
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6191
 
@@ -181,12 +189,5 @@ Premium GOD SV 🚀🔥.npvt
 ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6165
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رو دوتا کانفیگ آخری( وایرگارد - نپستر)
-ریکشن رو هر کدوم بیشتر باشه پست بعدی از اون کانفیگ میزارم
 </div>
 

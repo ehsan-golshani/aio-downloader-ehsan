@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/30 12:41
+📅 آخرین بروزرسانی: 1405/05/30 14:20
 
 ---
+
+## tasiyanc — post 8897
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 کاخ سفید : خداوند سربازان ما را حفظ کند
+
+جنگ سهمگین در راهه؟
+
+🔱 @TASIYANC
+</div>
 
 ## tasiyanc — post 8896
 
@@ -345,23 +355,5 @@ Text:
 
 ✈️@TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8862
-
-<div align="center"><img src="files/post_8862_tasiyanc_8862.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 تعویض پس زمینه و بالابردن کیفیت عکس
-( حرفه ای و طبیعی)
-
-Prompt
-Replace the background with a realistic environment while preserving the original subject, lighting, shadows, reflections and perspective. Blend everything naturally for a seamless result.
-﻿
-آموزش استفاده از پرامپت 
-👉
-
-
-✈️@TASIYANC 💠
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/05/30 12:41
+📅 آخرین بروزرسانی: 1405/05/30 14:20
 
 ---
+
+## tasiyanc — post 8461
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ میخواست با بازیکنا اسپانیا قهرمانیو جشن بگیره که رئیس فیفا اومد بهش گفت مشتی بیا اینور 😂😂😂😂😂
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8460
 
@@ -138,11 +146,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گل شد برا اسپانیا ولی داور خطا گرف
-</div>
-
-## tasiyanc — post 8439
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نود زن مسی 😂
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/05/30 12:41
+📅 آخرین بروزرسانی: 1405/05/30 14:20
 
 ---
+
+## tasiyanc — post 9193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑فقط کافیه مرغ از خیابون رد کنی و‌ پولت چند برابر کنی راحت💵👌
+</div>
 
 ## tasiyanc — post 9192
 
@@ -336,24 +342,5 @@ a19
 For every image generation, treat uploaded reference images as the permanent identity anchor. Maintain extremely high facial consistency and preserve the subject’s exact facial structure, proportions, skin tone, eye shape, nose, lips, jawline, and all distinctive features with maximum accuracy. Ensure the person remains instantly recognizable across all generations. Allow changes only to pose, facial expression, clothing, hairstyle (when explicitly requested), lighting, camera angle, and background. Never alter age, ethnicity, face shape, or defining facial characteristics unless explicitly instructed. Prioritize identity preservation above artistic style, creative interpretation, or visual enhancements.
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9163
-
-<div align="center"><img src="files/post_9163_tasiyanc_9163.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی کاپلی 🆕
-
-"Girl with White Bow"
-
-Prompt 🤖🤖
-
-> Ultra-realistic close-up portrait of a beautiful young woman indoors during golden hour. She is facing the camera with a slight head tilt and a soft, natural expression. Warm sunlight enters through a nearby window, casting dramatic diagonal shadows across one side of her face while illuminating the other with rich golden light. She has long dark brown hair styled half-up in a high ponytail, secured with a large sheer white organza bow. A few loose wispy strands fall naturally across her forehead. Thick, well-defined dark eyebrows, hazel-brown eyes with shimmering champagne eyeshadow, long curled eyelashes, glowing skin with subtle blush and natural highlights, soft matte pink lips, and minimal elegant makeup. She wears large silver hoop earrings and a loose chocolate-brown button-up linen shirt with the collar slightly open. Neutral light gray background, cinematic golden-hour lighting, shallow depth of field, ultra-detailed skin texture, realistic hair strands, soft shadows, editorial fashion photography, DSLR, 85mm lens, f/1.8, natural color grading, photorealistic, ultra high resolution, 8K.
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
 </div>
 

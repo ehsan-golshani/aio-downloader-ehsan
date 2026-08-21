@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 130
 
-📅 آخرین بروزرسانی: 1405/05/30 12:41
+📅 آخرین بروزرسانی: 1405/05/30 14:20
 
 ---
+
+## tasiyanc — post 5578
+
+<div align="center"><img src="files/post_5578_tasiyanc_5578.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ وای‌فای.npvt
+</div>
 
 ## tasiyanc — post 5577
 
@@ -159,14 +167,5 @@ WAR 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️⭕️⭕️
-</div>
-
-## tasiyanc — post 5555
-
-<div align="center"><img src="files/post_5555_tasiyanc_5555.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هم اکنون پرواز هواپیمای سوخت رسان ایالت متحده KC46 Pegasus بر فراز خلیج عمان
-@Tasiyanc ✅
 </div>
 

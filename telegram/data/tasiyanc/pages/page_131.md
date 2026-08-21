@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 131
 
-📅 آخرین بروزرسانی: 1405/05/30 12:41
+📅 آخرین بروزرسانی: 1405/05/30 14:20
 
 ---
+
+## tasiyanc — post 5555
+
+<div align="center"><img src="files/post_5555_tasiyanc_5555.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هم اکنون پرواز هواپیمای سوخت رسان ایالت متحده KC46 Pegasus بر فراز خلیج عمان
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5554
 
@@ -448,16 +457,6 @@ Join @Tasiyanc ✅
 📶اختصاصی تاسیان سرور تست شده وای‌فای 📶
 
 برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5524
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده 📶
-
-برای اتصال پایدار زمان بدید 🚀
 
 @Tasiyanc ✅
 </div>
