@@ -1,8 +1,17 @@
 # آرشیو کانال VahidOOnLine - صفحه 152
 
-📅 آخرین بروزرسانی: 1405/05/30 21:27
+📅 آخرین بروزرسانی: 1405/05/30 21:54
 
 ---
+
+## VahidOOnLine — post 252483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم فرانسه دوشنبه پنجم مرداد به مناسبت سالروز درگذشت رضاشاه و محمدرضا شاه در ۴ و ۵ مرداد، در پاریس تجمع کردند و یادشان را گرامی داشتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252482
 
@@ -274,19 +283,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم لندن سه‌شنبه ششم مرداد در اعتراض به اجرای احکام اعدام بازداشتی‌های دی‌ماه در میدان علیخانی اصفهان، مقابل سفارت جمهوری اسلامی تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252463
-
-<div align="center"><video src="files/post_252463_VahidOOnLine_252463.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252463_VahidOOnLine_252463.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد بامداد سه‌شنبه ششم مرداد ماموران جمهوری اسلامی به معترضان حکم اعدام در میدان علیخانی حمله کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/30 20:35
+📅 آخرین بروزرسانی: 1405/05/30 21:54
 
 ---
+
+## ProxyMTProto — post 49926
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fresh.t-proxy.info.
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49925
 
@@ -172,15 +181,6 @@ Secret: eea990d0794c43c68cdd51caea31e4e957706574726f766963682e7275
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49906
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: live.best-proxy.ink
-Port: 443
-Secret: eee49c0c36df83f06e456ffbe5b7b3a73c6c6976652e626573742d70726f78792e696e6b
 @ProxyMTProto
 </div>
 

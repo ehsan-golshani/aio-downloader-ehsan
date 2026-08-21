@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 147
 
-📅 آخرین بروزرسانی: 1405/05/30 21:27
+📅 آخرین بروزرسانی: 1405/05/30 21:54
 
 ---
+
+## VahidOOnLine — post 252623
+
+<div align="center"><video src="files/post_252623_VahidOOnLine_252623.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252623_VahidOOnLine_252623.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در پیامی که همراه ویدیو به ایران‌اینترنشنال فرستاد، گفت: «در فاز چهار شهر جدید اندیشه در شهرستان شهریار، جریان آب در سه هفته اخیر از صبح تا شب و گاهی از شب تا صبح قطع بوده، تانکر آبرسانی اعزام نشده و مسئولان نیز موضوع را پیگیری نکرده‌اند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252622
 
@@ -299,17 +312,6 @@
 دفتر ارتباطات شاهزاده رضا پهلوی در شبکه ایکس اعلام کرد جان دست‌کم هشت نفر دیگر در خطر فوری اعدام قرار دارد و خواستار استفاده از همه ظرفیت‌ها برای افزایش فشار بین‌المللی به منظور توقف اعدام‌ها در جمهوری اسلامی شد.
 
 این دفتر همچنین اعلام کرد شماری از ایرانیان ساکن آلمان در شهر هانوفر در اعتراض به اعدام دو جوان اصفهانی به دست جمهوری اسلامی تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252594
-
-<div align="center"><img src="files/post_252594_VahidOOnLine_252594.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ با انتشار تصاویری از دیدار خود با نتانیاهو و اعضای مجلس نمایندگان آمریکا در کاخ سفید، این دیدار را «افتخاری بزرگ» و «بسیار خوب» توصیف کرد و نوشت: «بدیهی است که درباره موضوعات مهم بسیاری گفت‌وگو شد.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
