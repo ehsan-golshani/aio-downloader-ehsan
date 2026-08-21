@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/05/30 10:07
+📅 آخرین بروزرسانی: 1405/05/30 11:07
 
 ---
+
+## tasiyanc — post 7879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💀با این سایت های ارزشمند تنبلی رو بزار کنار و خودخوانی زبان رو شروع کن : #معرفی_سایت
+
+1- سایت : TalkEnglish.com
+2- سایت : Storynory.com
+3- سایت : Lingua.com
+4- سایت : Grammerly.com
+5- سایت : Oysterenglish.com
+
+@Tasiyanc✅
+#Mobina
+</div>
 
 ## tasiyanc — post 7878
 
@@ -318,11 +333,5 @@
 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7828
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سپاه پاسداران : تنگه هرمز اکنون به طور دائم بسته شده است و ایالات متحده و متحدان آن دیگر هرگز از خلیج فارس نفت دریافت نخواهند کرد @Tasiyanproxy
 </div>
 

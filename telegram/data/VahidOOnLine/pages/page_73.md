@@ -1,8 +1,96 @@
 # آرشیو کانال VahidOOnLine - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/05/30 10:05
+📅 آخرین بروزرسانی: 1405/05/30 11:05
 
 ---
+
+## VahidOOnLine — post 254438
+
+<div align="center"><video src="files/post_254438_VahidOOnLine_254438.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254438_VahidOOnLine_254438.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنیامین نتانیاهو، نخست‌ وزیر اسرائیل گفت: جمهوری اسلامی به اسرائیل حمله نمی‌کند چون می‌داند چه ضربه سختی می‌خورد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254437
+
+<div align="center"><video src="files/post_254437_VahidOOnLine_254437.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254437_VahidOOnLine_254437.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانیال عیوضی، از آسیب‌دیدگان در جریان انقلاب ملی ایرانیان، به ساجده شریفی، خبرنگار ایران‌اینترنشنال، درباره اعتراضات ۱۸ و ۱۹ دی‌ماه گفت معترضان با شعار «جاوید شاه» و در حمایت از شاهزاده رضا پهلوی به خیابان‌ها رفتند، اما جمهوری اسلامی پاسخ آزادی‌خواهی مردم را با تفنگ داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254436
+
+<div align="center"><video src="files/post_254436_VahidOOnLine_254436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254436_VahidOOnLine_254436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرکت‌کننده در تجمع ایرانیان مقابل دفتر نخست‌وزیری بریتانیا، به تاج‌الدین سروش، خبرنگار ایران‌اینترنشنال، گفت درخواست ما از دولت بریتانیا، افزایش فشار دیپلماتیک بر جمهوری اسلامی برای توقف اعدام‌ها و پاسخگو کردن مقام‌های جمهوری اسلامی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254435
+
+<div align="center"><video src="files/post_254435_VahidOOnLine_254435.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254435_VahidOOnLine_254435.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احتمال حمله مجدد اسرائیل به ایران
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+
+youtu.be
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254434
+
+<div align="center"><img src="files/post_254434_VahidOOnLine_254434.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️پس از انتشار نامه‌ای منتسب به مجتبی خامنه‌ای مبنی بر انتصاب محسن رضایی به عنوان «نماینده رهبر» در شورای عالی امنیت ملی، محمدباقر ذوالقدر مشاور سیاسی سومین رهبر جمهوری اسلامی شد. تسنیم به نقل از مجتبی خامنه‌ای نوشت: «برادر گرامی جناب آقای دکتر محمدباقر ذوالقدر. باتوجه به تجارب ارزشمندتان بدین‌وسیله جناب‌عالی را به‌عنوان مشاور سیاسی خود منصوب می‌کنم. امیدوارم در انجام این مسئولیت و در پیشبرد آرمان‌های انقلاب اسلامی موفق و موید باشید.»
+پس از گمانه‌زنی‌ها درباره استعفای محمدباقر ذوالقدر از دبیری شورای عالی امنیت ملی، محسن رضایی با حکم مسعود پزشکیان به عنوان دبیر جدید «شعام» منسوب شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254429
+
+<div align="center"><img src="files/post_254429_VahidOOnLine_254429.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️لیونل مسی، ستاره فوتبال آرژانتین، روز یکشنبه ۱۸ مرداد ماه با حضور در مراسمی خصوصی در شهر پرز آرژانتین با پدرش خورخه مسی وداع کرد.
+خورخه مسی که ۶۸ سال داشت، پس از مدتی مبارزه با بیماری سرطان، جمعه گذشته در یک درمانگاه خصوصی در آرژانتین درگذشت.
+به گزارش خبرگزاری فرانسه، مسی شامگاه شنبه با پروازی خصوصی از میامی به آرژانتین رفت. همسرش آنتونلا روکوزو و فرزندانشان نیز او را در این سفر همراهی کردند.
+مراسم خاکسپاری با حضور اعضای نزدیک خانواده و شماری از هم‌تیمی‌های مسی در گورستان «ال پرادو» در شهر پرز برگزار شد. شماری از هواداران نیز مقابل گورستان حاضر شدند و پیام‌هایی برای ابراز همدردی با مسی و خانواده‌اش نصب کردند.
+خورخه مسی از مهم‌ترین چهره‌ها در مسیر حرفه‌ای پسرش بود. او که در روزاریو به‌عنوان کارگر فلزکار فعالیت می‌کرد، مربی تیم‌های پایه باشگاه محلی گراندولی و نخستین کسی بود که پرافتخارترین فوتبالیست تاریخ را در چهار سالگی با فوتبال آشنا کرد.
+خورخه در سال ۲۰۰۰ برای همراهی پسرش، شغلش در آرژانتین، همسرش و سه فرزند دیگرش را ترک کرد و به اسپانیا رفت. او بعدها به مدیر برنامه‌های مسی تبدیل شد و در مذاکرات مربوط به قراردادهای او با بارسلونا، پاری‌سن‌ژرمن و اینتر میامی نقش داشت.
+مسی پیش‌تر درباره روزهای دشوار مهاجرت به اسپانیا گفته بود که او و پدرش در خلوت گریه می‌کردند اما مقابل یکدیگر وانمود می‌کردند که شرایط خوبی دارند.
+در پی درگذشت خورخه مسی،‌فدراسیون فوتبال آرژانتین اعلام کرد پیش از مسابقات این هفته  فوتبال در این کشور در تمامی رده‌های سنی یک دقیقه سکوت برگزار شود و بازیکنان با بازوبندهای مشکی به میدان بروند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254428
 
@@ -206,89 +294,6 @@
 او درباره واکنش دولت یمن به این حملات گفت: «اقدامات ما برای پاسخ به حوثی‌ها، براساس مصلحت کشور خواهد بود.»
 
 پیش‌تر رشاد العلیمی، رییس شورای رهبری یمن، گفت حوثی‌ها شریان‌های حیاتی مردم یمن را هدف قرار می‌دهند. او حمله به بندر مخا را بخشی از «جنگ سازمان‌یافته حوثی‌ها علیه منابع و دارایی‌های مردم یمن» خواند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254407
-
-<div align="center"><video src="files/post_254407_VahidOOnLine_254407.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254407_VahidOOnLine_254407.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد بنری در یکی از خیابان‌های تهران نصب شده که روی آن در اعتراض به قطعی و گرانی آب و برق، نوشته‌اند: «آب، برق، زندگی»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254406
-
-<div align="center"><img src="files/post_254406_VahidOOnLine_254406.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تازه‌ترین تصاویر ماهواره‌ای «کوپرنیک» و مقایسه آن با زمان مشابه سال گذشته نشان‌دهنده بهبود چشمگیر وضعیت دریاچه ارومیه و بازگشت امیدها برای احیای این پهنه آبی است. بر اساس آمارهای اعلام‌شده، حجم آب ورودی به این دریاچه در سال آبی جاری از ۴.۵ میلیارد مترمکعب عبور کرده که فراتر از حقابه تعیین‌شده است.
-
-همچنین میزان بارندگی‌ها در حوضه آبریز دریاچه ارومیه با ثبت ۳۹۱ میلی‌متر، رشدی ۶۷ درصدی نسبت به سال گذشته داشته است. امری که موجب شده برخلاف سال‌های گذشته، پهنه آبی دریاچه در طول فصل تابستان و موج گرما به‌خوبی حفظ شود.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254405
-
-<div align="center"><video src="files/post_254405_VahidOOnLine_254405.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254405_VahidOOnLine_254405.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد حامیان حکومت با تجمع شبانه در خیابان‌های تهران برای مردم مزاحمت ایجاد کرده و ترافیک ایجاد کرده‌اند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254404
-
-<div align="center"><video src="files/post_254404_VahidOOnLine_254404.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254404_VahidOOnLine_254404.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ارتش اسرائیل روز یکشنبه ۱۸ مرداد اعلام کرد در جریان عملیاتی در جنوب لبنان، یک «چاهک زیرزمینی» مورد استفاده حزب‌الله برای نگهداری تسلیحات را شناسایی و منهدم کرده است.
-ارتش اسرائیل در بیانیه‌ای در شبکه اجتماعی ایکس اعلام کرد در این عملیات که طی هفته گذشته انجام شده است، «تعداد زیادی سلاح و تجهیزات جنگی از جمله کلاشنیکف، موشک و پرتابگرهای ضدزره، تسلیحات توپخانه‌ای و راکت‌های آرپی‌جی» در این تونل شناسایی شد.
-به گفته ارتش اسرائیل، این حملات در واکنش به انفجاری در روز شنبه در منطقه مجدل زون انجام شد که در جریان آن «هارل بیرنستاک، سرگرد ذخیره، و تامیر واکنین، گروهبان ارشد ذخیره، کشته و چهار نظامی اسرائیلی به‌شدت زخمی شدند.»
-بنیامین نتانیاهو هفته گذشته در واکنش به «نقض آتش‌بس از سوی حزب‌الله» دستور حملات جدید به لبنان را صادر کرد. این حملات در حالی انجام شد که مقام‌های تل‌آویو و بیروت در حال برگزاری مذاکرات صلح در آمریکا بودند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254403
-
-<div align="center"><img src="files/post_254403_VahidOOnLine_254403.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به گزارش هرانا، حکم اعدام رسول رضایی، شهروند اهل فریمان و از بازداشت‌شدگان انقلاب ملی ایرانیان در دی ۱۴۰۴، از سوی دیوان عالی کشور تایید شد.
-
-هرانا نوشت این زندانی سیاسی محبوس در زندان وکیل‌آباد مشهد، پیش‌تر از دادگاه انقلاب این شهرستان از بابت اتهام «محاربه» به اعدام محکوم شده بود.
-
-در این گزارش آمده است رسول رضایی ۱۹ دی ۱۴۰۴ دستگیر و از زمان بازداشت تاکنون، از حق دسترسی به وکیل انتخابی و تماس و ملاقات با خانواده خود محروم مانده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254402
-
-<div align="center"><video src="files/post_254402_VahidOOnLine_254402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254402_VahidOOnLine_254402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای ارسال شده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان ساکن بریتانیا یکشنبه ۱۸ مرداد در اعتراض به اعدام‌های جمهوری اسلامی در شهر شفیلد تجمع کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

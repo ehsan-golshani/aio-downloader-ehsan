@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/30 10:07
+📅 آخرین بروزرسانی: 1405/05/30 11:07
 
 ---
+
+## tasiyanc — post 9270
 
 ## tasiyanc — post 9269
 
@@ -242,11 +244,5 @@ http://til.ac/z5jcpGT
 g22
 🔥کانال اطلاع رسانی ایران:👇
 https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9242
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از اوپن ها راضی اید؟
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/30 10:07
+📅 آخرین بروزرسانی: 1405/05/30 11:07
 
 ---
+
+## tasiyanc — post 9425
+
+<div align="center"><img src="files/post_9425_tasiyanc_9425.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️اولین سایت جهانی برای کاربران ایران با واریز برداشت مستقیم⬇️
+
+🪙سایت بین المللی و معتبر لاین بت
+
+❤️‍🔥اسپانسر لیگ  فرانسه
+💳 واریز و برداشت ریالی
+👀بازگشت باخت ب صورت هفتگی
+📣دارای پشتیبانی فارسی فعال
+🎁بونوس 💯 روز های دوشنبه
+
+🎡کدهدیه ثبت نام ➡️ L5670
+
+🔗《 لینک سایت برای کاربران ایرانی》
+
+👍《 دانلود اپلیکیشن اندروید》
+❤️https://telegram.me/+dukgrB6-zGsyNGM8
+🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
+
+✔️ آموزش کامل و جامع شرطبندی👉
+</div>
 
 ## tasiyanc — post 9422
 
@@ -177,14 +203,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 به گزارش اعضا وضعیت اینترنت داغون شده ، تایید یا ن؟
-</div>
-
-## tasiyanc — post 9402
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ العربیه :
-
-ایران و آمریکا بر سر تمدید مجدد ۶۰ روزه ی آتش بس موافقت کردن.
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 123
 
-📅 آخرین بروزرسانی: 1405/05/30 10:07
+📅 آخرین بروزرسانی: 1405/05/30 11:07
 
 ---
+
+## tasiyanc — post 5766
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریکشن 😐😐?
+</div>
 
 ## tasiyanc — post 5765
 
@@ -223,15 +229,5 @@ Crocodile 🐊 VIP.npvt
 
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5743
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-V2Box 🌟 MCI - WiFi
-
-vless://0dc22208-cea4-4423-b3c3-a36957e23233@91.225.217.26:443?security=reality&encryption=none&pbk=Zd5BqaW-kyJqZANUH2cIARr466QZw09pNngYjsEK1w8&headerType=none&fp=chrome&type=tcp&sni=yahoo.com&sid=30fa#%40Tasiyanc%20%E2%80%A2%20MCI
-
-@Tasiyanc ✅
 </div>
 

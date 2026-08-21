@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 129
 
-📅 آخرین بروزرسانی: 1405/05/30 10:07
+📅 آخرین بروزرسانی: 1405/05/30 11:07
 
 ---
+
+## tasiyanc — post 5606
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان 📱
+
+⛈سرور تست شده wifi⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5605
 
@@ -151,18 +165,6 @@
 🔑Password @Tasiyanc
 
 🌐 اختصاصی تاسیان 2 سرور تست شده  وای‌فای   🌐
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5576
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Password @Tasiyanc
-
-🌐 اختصاصی تاسیان 2 سرور تست شده  تمام اپراتورها  🌐
 
 برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
 
