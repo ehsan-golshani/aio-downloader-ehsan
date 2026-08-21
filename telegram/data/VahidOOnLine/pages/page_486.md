@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 486
 
-📅 آخرین بروزرسانی: 1405/05/31 02:23
+📅 آخرین بروزرسانی: 1405/05/31 02:48
 
 ---
+
+## VahidOOnLine — post 244323
+
+<div align="center"><video src="files/post_244323_VahidOOnLine_244323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244323_VahidOOnLine_244323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تصاویر منتشرشده در شبکه‌های اجتماعی نشان می‌دهد هم‌زمان با به صدا درآمدن آژیرهای هشدار موشکی در اسرائیل، یک هواپیمای مسافربری در حال فرود در فرودگاه بن‌گوریون بوده است.
+
+این ویدئو لحظاتی از ادامه فعالیت فرودگاه در شرایط هشدار امنیتی را به تصویر می‌کشد. تاکنون جزئیات بیشتری درباره تأثیر این هشدار بر پروازها یا خسارات احتمالی منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244322
 
@@ -300,23 +315,6 @@ iranintl
 
 همچنین روابط عمومی سازمان منطقه ویژه اقتصادی پتروشیمی در اطلاعیه‌ای اعلام کرد همه کارکنان روزکار باید به‌صورت اضطراری از منطقه خارج شوند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244273
-
-<div align="center"><video src="files/post_244273_VahidOOnLine_244273.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244273_VahidOOnLine_244273.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ارتش اسرائیل حمله به سایت‌های پتروشیمی در جنوب غرب ایران را تایید کرد
-
-♦️کاربران شبکه‌های اجتماعی صبح دوشنبه ۱۸ خرداد، تصاویری را از عبور موشک‌های سپاه در آسمان ملارد در کرج منتشر کردند.
-
-این دومین موج حملات موشکی جمهوری اسلامی به اسرائیل از دیشب به شمار می‌رود.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

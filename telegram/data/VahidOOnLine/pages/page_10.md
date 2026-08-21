@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/31 02:23
+📅 آخرین بروزرسانی: 1405/05/31 02:48
 
 ---
+
+## VahidOOnLine — post 256018
+
+<div align="center"><video src="files/post_256018_VahidOOnLine_256018.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256018_VahidOOnLine_256018.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در شبکه‌های اجتماعی، اتاق جاویدنام ایلیا دهقانی را در نبود او به تصویر می‌کشد.
+
+این جاویدنام شامگاه جمعه ۱۹ دی در تهرانپارس تهران با گلوله جنگی هدف قرار گرفت که به قطع نخاع او انجامید و پس از حدود یک هفته بستری جان خود را از دست داد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256017
 
@@ -266,22 +281,5 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [پست از کانال منبع حذف شد.]
-</div>
-
-## VahidOOnLine — post 255998
-
-<div align="center"><img src="files/post_255998_VahidOOnLine_255998.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️قیمت دلار در بازار تهران از ۱۹۰ هزار تومان رد شد
-
-♦️قیمت دلار در بازار آزاد تهران ظهر پنجشنبه ۲۹ مردادماه و یک روز پس از آنکه دونالد ترامپ از تشدید تحریم اقتصادی سخن گفت، با افزایش چشمگیری همراه و وارد کانال ۱۹۱ هزار تومان شد.
-
-فروشندگان ارزهای خارجی در شبکه‌های اجتماعی، تا ظهر روز پنجشنبه قیمت دلار را ۱۹۰ هزار و ۱۰۰ تومان اعلام کرده‌اند.
-
-همزمان، هر یورو در بازار تهران به قیمت ۲۲۲ هزار و ۴۰۰ تومان رسید.
-Indypersian
-
-🤖 @VahidOOnLine
 </div>
 

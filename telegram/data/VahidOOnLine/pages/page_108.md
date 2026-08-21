@@ -1,8 +1,24 @@
 # آرشیو کانال VahidOOnLine - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/05/31 02:23
+📅 آخرین بروزرسانی: 1405/05/31 02:48
 
 ---
+
+## VahidOOnLine — post 253661
+
+<div align="center"><img src="files/post_253661_VahidOOnLine_253661.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ماجد محمد الانصاری، سخنگوی وزارت خارجه قطر، اعلام کرد رایزنی‌ها با همه طرف‌ها درباره مذاکرات ایران ادامه دارد.
+
+او افزود مهم‌ترین موضوع در حال حاضر، بازگشت به مذاکرات است.
+
+محمد الانصاری گفت: «می‌توانیم تایید کنیم که تلاش‌ها با همه طرف‌ها ادامه دارد و در حال بررسی راه‌حل دیپلماتیک هستیم.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253660
 
@@ -265,19 +281,6 @@ iranintl
 
 استاندار بوشهر همچنین اعلام کرد بر اساس ارزیابی‌های انجام‌شده، در مجموع ۸ هزار و ۴۵۶ واحد شامل ساختمان‌های مسکونی، تجاری و سایر واحدها در اثر این حملات آسیب دیده‌اند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253634
-
-<div align="center"><video src="files/post_253634_VahidOOnLine_253634.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253634_VahidOOnLine_253634.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال، نصب شعارهای اعتراضی را روی دیوارهای یکی از شهرهای ایران نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

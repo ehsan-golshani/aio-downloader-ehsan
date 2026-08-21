@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/05/31 02:23
+📅 آخرین بروزرسانی: 1405/05/31 02:48
 
 ---
+
+## VahidOOnLine — post 253521
+
+<div align="center"><video src="files/post_253521_VahidOOnLine_253521.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253521_VahidOOnLine_253521.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ روز دوشنبه ۱۲ مرداد، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، برای شرکت در مراسم اربعین راهی نجف در عراق شد.
+پیش‌تر، اسماعیل بقایی، سخنگوی وزارت امور خارجه، اعلام کرده بود که عراقچی برای شرکت در مراسم اربعین به نجف سفر می‌کند و اعضای تیم مذاکره‌کننده در تهران حضور دارند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253520
 
@@ -273,19 +287,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم یونان یکشنبه ۱۱ مرداد در اعتراض به اعدام‌های جمهوری اسلامی، مقابل مقر اتحادیه اروپا در شهر آتن تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253484
-
-<div align="center"><img src="files/post_253484_VahidOOnLine_253484.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، در نشست خبری دوشنبه خود گفت: «مقام‌های اوکراین در تماس‌های مختلف تاکید کرده‌اند حمله به کشتی‌های ایرانی غیرعمدی بوده، اما اظهارات زلنسکی با این ادعا مغایرت دارد و جمهوری اسلامی هر اقدام لازم را برای پاسخگو کردن اوکراین انجام خواهد داد.»
-
-او ادامه داد: «منتظر اقدامات عملی کی‌یف هستیم تا اثبات کنند این اقدام غیرعمدی بوده است و هر اقدامی برای جلوگیری از تکرار این جنایت انجام خواهیم داد.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

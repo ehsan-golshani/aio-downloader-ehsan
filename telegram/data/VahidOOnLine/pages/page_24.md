@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/31 02:23
+📅 آخرین بروزرسانی: 1405/05/31 02:48
 
 ---
+
+## VahidOOnLine — post 255680
+
+<div align="center"><img src="files/post_255680_VahidOOnLine_255680.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چهارشنبه ۲۸ مرداد، ساعت ۹ شب به وقت تهران، در یک لایو اینستاگرامی با امیر پوریا، منتقد و مدرس سینما، به سینمای زیرزمینی ایران و شرایط فیلم‌سازی خارج از چارچوب‌های رسمی جمهوری اسلامی می‌پردازیم.
+
+بهانه این گفت‌وگو، پخش اینترنتی فیلم «بیداد» ساخته سهیل بیرقی است؛ فیلمی درباره خواننده‌ای جوان که در برابر ممنوعیت آوازخوانی زنان در ایران می‌ایستد و صدای خود را به خیابان می‌برد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255679
 
@@ -295,19 +308,6 @@ IranintlTV
 او همچنین مدعی شد که دشمن برای سوءاستفاده از هرگونه اقدام دولت در زمینه کاهش مصرف بنزین برنامه‌ریزی کرده است.
 رئیس مجلس تاکید کرد هرگونه سیاست برای کاهش مصرف سوخت باید «با بیشترین عدالت و کمترین نارضایتی» اجرا شود تا زمینه سوءاستفاده از شرایط موجود فراهم نشود.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255660
-
-<div align="center"><video src="files/post_255660_VahidOOnLine_255660.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255660_VahidOOnLine_255660.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نصب تراکت‌های «آب ـ برق ـ زندگی» در فضای شهری ـ گزارشگر
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

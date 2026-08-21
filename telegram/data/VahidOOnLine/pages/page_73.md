@@ -1,8 +1,17 @@
 # آرشیو کانال VahidOOnLine - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/05/31 02:23
+📅 آخرین بروزرسانی: 1405/05/31 02:48
 
 ---
+
+## VahidOOnLine — post 254544
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرید رمضانی، جوان ۲۹ ساله، شامگاه ۱۸ دی‌ ۱۴۰۴ در محله آریاشهر تهران با شلیک ماموران مجروح شد و به زمین افتاد. بر اساس گزارش‌ها، نیروهای حکومت بالای سر او آمدند، ابتدا به انگشت دست راستش شلیک کردند که خالکوبی تاج شاه را بر خود داشت و سپس به او تیر خلاص زدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254543
 
@@ -302,17 +311,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مهم‌ترین تحولات ایران در ۲۴ ساعت گذشته از نگاه رسانه‌‌های بین‌المللی: دوشنبه ۱۹ مرداد ۱۴۰۵
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254513
-
-<div align="center"><img src="files/post_254513_VahidOOnLine_254513.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصاویری که می‌بینید، مربوط به سفر محمدرضا شاه پهلوی و شهبانو فرح پهلوی به خوزستان در سال ۱۳۴۵ خورشیدی است؛ سفری که با بازدید از شهرها و مناطق مختلف استان و دیدار با مردم خوزستان همراه بود.
 ‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
