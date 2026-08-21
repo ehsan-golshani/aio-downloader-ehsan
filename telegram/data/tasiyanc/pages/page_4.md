@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/30 18:39
+📅 آخرین بروزرسانی: 1405/05/30 19:55
 
 ---
+
+## tasiyanc — post 9432
+
+<div align="center"><img src="files/post_9432_tasiyanc_9432.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سود های میلیارد دلاری شرکت های نفتی آمریکا بعد جنگ:
+
+پ ن : حالا شما هی تو صداسیما بگو پیروز شدیم
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9431
 
@@ -190,18 +203,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
-</div>
-
-## tasiyanc — post 9409
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇
-@wWwWwWwWwWwWwWwWwWwWwW26
-
-من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه
-
-هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این شخص بدست بیارید سریع بفرستید پیوی ادمین هزینشو ... هم میدیم
-
-@TSSUB
 </div>
 

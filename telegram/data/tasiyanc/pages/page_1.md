@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/30 18:39
+📅 آخرین بروزرسانی: 1405/05/30 19:55
 
 ---
+
+## tasiyanc — post 9502
+
+<div align="center"><a href="files/post_9502_⚡ اختلال شکن قوی ⚡.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ⚡ اختلال شکن قوی ⚡.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+سرور سرعتی مولتی لوکیشن⚡️
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9501
 
@@ -18,8 +42,6 @@
 </div>
 
 ## tasiyanc — post 9500
-
-<div align="center"><a href="files/post_9500_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
@@ -394,46 +416,5 @@ IPv6
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9478
-
-<div align="center"><video src="files/post_9478_tasiyanc_9478.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9478_tasiyanc_9478.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-سرور سرعتی مولتی لوکیشن
-⚡️
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود 
-⬇️ ترید 
-🤑 اینستاگرام 
-📸 جمینای 
-🤖
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-
-✔️ @TASIYANC 
-✅
 </div>
 

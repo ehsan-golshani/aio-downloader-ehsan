@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/05/30 18:39
+📅 آخرین بروزرسانی: 1405/05/30 19:55
 
 ---
+
+## tasiyanc — post 8201
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Ohhh
+</div>
 
 ## tasiyanc — post 8200
 
@@ -161,15 +167,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
-</div>
-
-## tasiyanc — post 8171
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند پل دیگه رو داره میزنه که به بندرعباس راه دارن
-وقتی این پل ها زده بشه هیچ چیزی نمیتونه بره بندرعباس
-طبق چیزایی که داره اتفاق میوفته احتمالاً آمریکا می‌خواد نیرو زمینی پیاده کنه!
-
-@Tasiyanc✅
 </div>
 
