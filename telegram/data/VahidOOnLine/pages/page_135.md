@@ -1,8 +1,67 @@
 # آرشیو کانال VahidOOnLine - صفحه 135
 
-📅 آخرین بروزرسانی: 1405/05/30 12:39
+📅 آخرین بروزرسانی: 1405/05/30 13:29
 
 ---
+
+## VahidOOnLine — post 252899
+
+<div align="center"><img src="files/post_252899_VahidOOnLine_252899.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یعقوب رضازاده، عضو کمیسیون امنیت ملی مجلس، گفت پاسخ جمهوری اسلامی به هر حمله «۱۰ برابر بزرگ‌تر و سخت‌تر» خواهد بود.
+او افزود پاسخ به هرگونه حمله، همه پایگاه‌های نظامی آمریکا در منطقه، از جمله در کویت، اردن، یمن، بحرین، امارات متحده عربی، قطر و عربستان سعودی را در بر خواهد گرفت.
+رضازاده اضافه کرد: «تنگه هرمز کمافی‌السابق و با اقتدار کامل در کنترل نیروهای مسلح جمهوری اسلامی قرار دارد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252898
+
+<div align="center"><video src="files/post_252898_VahidOOnLine_252898.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252898_VahidOOnLine_252898.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دادستانی اسرائیل روز پنجشنبه هشتم مردادماه علیه امیر هشام محمد طیطی، راننده ۳۴ ساله آمبولانس از روستای عرب‌نشین بعینه در منطقه جلیل، به اتهام جاسوسی برای جمهوری اسلامی کیفرخواست صادر کرد.
+
+به گفته پلیس اسرائیل، او متهم است که با سوءاستفاده از دسترسی خود به مراکز درمانی، اطلاعات حساسی از جمله وضعیت آمادگی بیمارستان‌ها در شرایط اضطراری را در اختیار رابط خود در ایران قرار داده است. دادستان‌ها می‌گویند طیطی هنگام بازدید اسحاق هرتزوگ، رئیس‌جمهوری اسرائیل، و بتسالل اسموتریچ، وزیر دارایی، از مرکز پزشکی الجلیل در نهاریا، حضور آنها را به رابط خود اطلاع داده و تصویری از هرتزوگ و همراهانش ارسال کرده است.
+
+بر اساس کیفرخواست، این متهم همچنین از محل برگزاری اعتراض‌ها در تل‌آویو و حیفا و مناطقی در نزدیکی محل سکونت یوآو گالانت، وزیر دفاع پیشین اسرائیل، تصویربرداری کرده و در ازای این فعالیت‌ها ده‌ها هزار شِکِل از طریق ارز دیجیتال دریافت کرده است.
+
+در ماه‌های اخیر، گزارش‌های متعددی از بازداشت و محاکمه شهروندان اسرائیلی به اتهام همکاری و جاسوسی برای جمهوری اسلامی منتشر شده است. در اردیبهشت‌ماه نیز رسانه دولتی اسرائیل از پیگرد قضایی دومتخصص فنی نیروی هوایی این کشور به اتهام جاسوسی برای جمهوری اسلامی خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252897
+
+<div align="center"><video src="files/post_252897_VahidOOnLine_252897.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252897_VahidOOnLine_252897.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«برق قطعه و مامانم بدون دستگاه اکسیژن نمی‌تونه نفس بکشه» - گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252896
+
+<div align="center"><video src="files/post_252896_VahidOOnLine_252896.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252896_VahidOOnLine_252896.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حمله فرد حامی حکومت به یک دختر به دلیل داشتن سگ ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252895
 
@@ -231,56 +290,6 @@
  در روزهای اخیر، هم‌زمان با حملات گسترده آمریکا به اهدافی در جنوب ایران، شهرهایی مانند بندرعباس، قشم و دیگر مناطق نزدیک به تنگه هرمز در کانون حملات قرار گرفتند.
 حمله به چند پل و یک تونل در جاده‌های اصلی استان‌های هرمزگان و کرمان موجب توقف عبور و مرور خودروها در استان‌های جنوبی ایران شد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252875
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای ارسالی به ایران‌اینترنشنال نشان می‌دهد که گروهی از ایرانیان دانمارک با هدف اعلام حمایت از هموطنان خود در ایران، جلوی سفارت جمهوری اسلامی در کپنهاگ تجمعی اعتراضی برگزار کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252874
-
-<div align="center"><img src="files/post_252874_VahidOOnLine_252874.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️روابط عمومی سپاه انصارالمهدی استان زنجان، با انتشار بیانیه‌ای از کشته شدن سه نفر از نیروهای این سپاه در حمله آمریکا در روز هشتم مرداد ماه خبر داد.
-بر اساس این اطلاعیه که در خبرگزاری حکومتی تسنیم منتشر شده است، محمود ملاجباری، محمدرضا چراغی و جمال امیری، جریان «حمله موشکی» کشته شده‌اند.
-این خبر در حالی منتشر می‌شود که در اطلاعیه منتشرشده از سوی فرماندهی مرکزی نیروهای مسلح آمریکا (سنتکام) و همچنین رسانه‌های رسمی ایران، تاکنون گزارشی درباره حمله آمریکا به استان زنجان در روز هشتم مرداد ماه منتشر نشده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252873
-
-<div align="center"><video src="files/post_252873_VahidOOnLine_252873.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252873_VahidOOnLine_252873.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ در پی حملات بامداد پنجشنبه هشتم مرداد ارتش آمریکا به استان‌های جنوبی ایران، خبرگزاری حکومتی تسنیم و صدا و سیما، تصاویری که گفته می‌شود، آثار تخریب این حملات است را منتشر کردند.
-صدا و سیمای فارس، تصاویری از تخریب یک سالن ورزشی در فراشبند، از «حمله موشکی آمریکا» خبر داد. خبرگزاری تسنیم نیز ویدیویی از به وجود آمدن یک حفره بزرگ در محل یک ساختمان مسکونی در چاهتنگوی قشم را منتشر کرد.
-پیشتر دانشگاه علوم پزشکی هرمزگان اعلام کرد در این حمله، پدر و مادر یک خانواده و یک کودک دو ساله کشته شدند و دو کودک هفت و ۹ ساله نیز زخمی و به بیمارستان منتقل شدند. مقام‌های استان هرمزگان همچنین گفته‌اند نیروهای امدادی همچنان در حال جستجو در محل حادثه هستند و عملیات آواربرداری ادامه دارد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252863
-
-<div align="center"><video src="files/post_252863_VahidOOnLine_252863.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252863_VahidOOnLine_252863.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مروری بر مهم‌ترین اخبار و تحولات جنگ در روز پنجشنبه ۸ مرداد، از تحرکات نظامی تا تازه‌ترین مواضع سیاسی و دیپلماتیک.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>
