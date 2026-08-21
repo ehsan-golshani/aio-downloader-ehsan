@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/30 06:51
+📅 آخرین بروزرسانی: 1405/05/30 07:43
 
 ---
+
+## VahidOOnLine — post 255863
+
+<div align="center"><video src="files/post_255863_VahidOOnLine_255863.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255863_VahidOOnLine_255863.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در پی ریزش یک معدن طلای سنتی در منطقه زامبوی در شرق کامرون و در نزدیکی مرز جمهوری آفریقای مرکزی، دست‌کم ۱۰۷ نفر جان خود را از دست دادند.
+
+این حادثه بعدازظهر سه‌شنبه ۲۷ مرداد رخ داد و به گفته شهردار گاروآ-بولای، تاکنون اجساد ۱۰۷ نفر از زیر آوار خارج شده است.
+
+عملیات امداد و جستجو برای یافتن افرادی که احتمال می‌رود همچنان زیر آوار گرفتار باشند، ادامه دارد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255862
 
@@ -294,21 +311,6 @@ IranintlTV
 
 پاکستان هر سال در فصل باران‌های موسمی با خطر سیلاب‌های ناگهانی و آب‌گرفتگی شهری روبه‌رو می‌شود؛ بحرانی که در شهرهایی مانند راولپندی و اسلام‌آباد، به‌دلیل ضعف زیرساخت‌های زهکشی، ساخت‌وسازهای متراکم و بارش‌های شدید، می‌تواند خیلی سریع زندگی روزمره، خانه‌ها و کسب‌وکارهای مردم را مختل کند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255837
-
-<div align="center"><video src="files/post_255837_VahidOOnLine_255837.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255837_VahidOOnLine_255837.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد که یاد آروین مرادی توقع، نوجوانی که در ۱۵ سالگی به‌دست ماموران در شهریار کشته شد، به‌طور نمادین در عمق ۱۵ متری زیر آب گرامی داشته شد.
-
-این جاویدنام در جریان اعتراضات ۱۸ دی‌ماه ۱۴۰۴ در کنار مادرش هدف شلیک مستقیم ماموران جمهوری اسلامی قرار گرفت.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

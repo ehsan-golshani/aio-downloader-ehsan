@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 202
 
-📅 آخرین بروزرسانی: 1405/05/30 06:51
+📅 آخرین بروزرسانی: 1405/05/30 07:43
 
 ---
+
+## VahidOOnLine — post 251253
+
+<div align="center"><img src="files/post_251253_VahidOOnLine_251253.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری تسنیم به نقل از خبرنگار خود گزارش داد موج جدیدی از حملات آغاز شده و صدای چند انفجار در بندر چابهار و کنارک شنیده شده است.
+
+تاکنون جزییات بیشتری درباره علت این انفجارها یا خسارت و تلفات احتمالی منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251252
 
@@ -225,17 +238,6 @@
 
 همزمان با اعلام سنتکام مبنی آغاز دور تازه حملات علیه جمهوری اسلامی، رسانه‌های ایران از شنیده شدن صدای انفجار در بندرعباس، سیریک و قشم خبر دادند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251233
-
-<div align="center"><img src="files/post_251233_VahidOOnLine_251233.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری مهر، دوشنبه‌شب از فعالیت سامانه‌های پدافندی در اطراف نیروگاه اتمی بوشهر خبر داد. همزمان، ایرنا گزارش داد که چند انفجار در سیریک، بندرعباس و قشم شنیده شده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

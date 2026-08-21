@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 175
 
-📅 آخرین بروزرسانی: 1405/05/30 06:51
+📅 آخرین بروزرسانی: 1405/05/30 07:43
 
 ---
+
+## VahidOOnLine — post 251864
+
+<div align="center"><img src="files/post_251864_VahidOOnLine_251864.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش مهر، استاندار خوزستان اعلام کرد در پی حمله موشکی به نقاطی در اطراف شهر اهواز، ۴ نفر کشته و ۵ نفر دیگر مجروح شدند.
+همچنین به گزارش تسنیم، نقاطی در اطراف شهرهای اندیمشک و امیدیه هدف حمله موشکی قرار گرفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251863
 
@@ -263,17 +275,6 @@
 
 این گزارش‌ها تاکنون به طور مستقل تایید نشده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251835
-
-<div align="center"><img src="files/post_251835_VahidOOnLine_251835.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️به گزارش فارس، معاون سیاسی، امنیتی و اجتماعی استاندار مرکزی اعلام کرد یک نقطه خارج از شهر خنداب هدف حمله موشکی قرار گرفته است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 231
 
-📅 آخرین بروزرسانی: 1405/05/30 06:51
+📅 آخرین بروزرسانی: 1405/05/30 07:43
 
 ---
+
+## VahidOOnLine — post 250612
+
+<div align="center"><video src="files/post_250612_VahidOOnLine_250612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250612_VahidOOnLine_250612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی‌حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال، گفت جمهوری اسلامی، ایران را وارد جنگی کرده که سال‌ها طول می‌کشد تا خسارت‌های ناشی از آن جبران شود.
+
+او افزود این تازه دور ششم حملات است و ممکن است ادامه‌دار باشد، بی‌آنکه واکنش گسترده‌ای در پی داشته باشد، این همان اتفاقی است که در لبنان رخ داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250611
 
@@ -286,22 +301,6 @@ iranintl
 
 این نهاد همچنین هشدار داد در صورت ادامه این روند از سوی آمریکا، «پاسخ‌های خردکننده‌تری در راه است؛ پاسخ‌هایی که در تاریخ نبردها ماندگار خواهد شد.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250592
-
-<div align="center"><video src="files/post_250592_VahidOOnLine_250592.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250592_VahidOOnLine_250592.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️در پی حملات هوایی آمریکا به دو شهر ویسیان و چنگی در استان لرستان، مخابرات این استان اعلام کرد به دلیل بروز اختلال فنی گسترده در تجهیزات زیرساختی، شبکه تلفن ثابت و همراه در بخش ویسیان و شهرستان معمولان به طور کامل قطع شده است.
-
-بر اساس بیانیه رسمی شرکت مخابرات منطقه لرستان، ارتباطات تلفنی بخش ویسیان،  تا عصر شنبه به حالت عادی باز می‌گردد، اما برقراری مجدد شبکه تلفن همراه و ثابت در شهرستان معمولان به دلیل حجم خسارت‌ها به زمان بیشتری نیاز دارد و حداکثر تا بعدازظهر فردا برقرار خواهد شد.
-خبرگزاری‌های دولتی ایران، نیمه شب جمعه از حمله هوایی به شهرهایی در استان لرستان خبر داده بودند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

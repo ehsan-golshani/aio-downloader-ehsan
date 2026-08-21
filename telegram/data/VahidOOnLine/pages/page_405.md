@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 405
 
-📅 آخرین بروزرسانی: 1405/05/30 06:51
+📅 آخرین بروزرسانی: 1405/05/30 07:43
 
 ---
+
+## VahidOOnLine — post 246562
+
+<div align="center"><img src="files/post_246562_VahidOOnLine_246562.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارتش اسرائیل اعلام کرد که یک گروهبان ۲۱ ساله اسرائیلی، شامگاه جمعه در جنوب لبنان در یک حمله پهپادی کشته شده است.
+
+بر اساس بیانیه ارتش اسرائیل، در این حمله ۱۳ سرباز دیگر زخمی شدند و از میان زخمی‌ها، حال دو نفر وخیم، یک نفر متوسط و ۱۰ نفر دیگر سطحی گزارش شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246561
 
@@ -279,19 +292,6 @@ iranintl.c
 سنتکام اعلام کرد نیروهای آمریکایی همچنان در منطقه حضور دارند و با هوشیاری کامل فعالیت می‌کنند تا اطمینان حاصل شود همه مفاد توافق با جمهوری اسلامی اجرا می‌شود.
 
 سنتکام اعلام کرد که روز شنبه عبور ایمن از تنگه هرمز برقرار بود و ۵۵ کشتی که مقادیر زیادی بار و بیش از ۱۷ میلیون بشکه نفت را به بازارهای جهانی منتقل می‌کردند، از این آبراه تردد کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246542
-
-<div align="center"><video src="files/post_246542_VahidOOnLine_246542.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246542_VahidOOnLine_246542.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسالی یک شهروند ایرانی در بریتانیا نصب تصاویر جاویدنامان انقلاب ایران در بخش از این شهر را نشان می‌دهد. فرستند ویدیو می‌گوید یاد این جاویدنامان و خانواده‌های آن‌ها فراموش نخواهد شد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

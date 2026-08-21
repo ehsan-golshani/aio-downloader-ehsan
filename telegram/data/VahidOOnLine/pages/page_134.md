@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 134
 
-📅 آخرین بروزرسانی: 1405/05/30 06:51
+📅 آخرین بروزرسانی: 1405/05/30 07:43
 
 ---
+
+## VahidOOnLine — post 252895
+
+<div align="center"><video src="files/post_252895_VahidOOnLine_252895.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252895_VahidOOnLine_252895.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«قیمت‌های شرکت‌های تاکسی‌اینترنتی جوابگوی هزینه‌های ما در تهران نیست» ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252894
 
@@ -268,28 +281,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مروری بر مهم‌ترین اخبار و تحولات جنگ در روز پنجشنبه ۸ مرداد، از تحرکات نظامی تا تازه‌ترین مواضع سیاسی و دیپلماتیک.
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252862
-
-<div align="center"><video src="files/post_252862_VahidOOnLine_252862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252862_VahidOOnLine_252862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️روایت شهروندان قشم از حملات آمریکا در سپیده‌دم پنجشنبه؛ تشبیه طلوع آفتاب و ستون دود به «نبرد خیر و شر»
-
-♦️دو شهروند ساکن قشم در جنوب ایران، با انتشار ویدیویی در شبکه‌های اجتماعی از وضعیت این جزیره پس از حملات گسترده آمریکا در بامداد پنجشنبه هشتم مرداد روایت کردند.
-در یکی از این تصاویر، شهروندی اهل قشم، طلوع خورشید در شرق جزیره را هنگام برخاستن ستون دود از محل حملات آمریکا به تصویر کشید و آن را به حضور «خیر و شر» همزمان توصیف کرد.
-
-به گزارش این کاربر شبکه‌های اجتماعی، حملات از حدود ساعت ۳:۳۰ بامداد آغاز شد و چند نقطه در قشم هدف قرار گرفت.
-
-این روایت‌ها در حالی منتشر می‌شود که دونالد ترامپ، رئیس‌جمهوری آمریکا، پیش‌تر در واکنش به حملات موشکی جمهوری اسلامی به اردن گفته بود: «حالا ما سخت به ایران حمله می‌کنیم.»
-
-دانشگاه علوم پزشکی هرمزگان گزارش کرده است، در نتیجه حملات آمریکا به منطقه چاهتنگو در قشم، سه تن از اعضای یک خانواده کشته شده‌اند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
