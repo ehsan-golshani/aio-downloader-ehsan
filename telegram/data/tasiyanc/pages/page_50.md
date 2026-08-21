@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/05/30 23:41
+📅 آخرین بروزرسانی: 1405/05/31 00:17
 
 ---
+
+## tasiyanc — post 8184
+
+<div align="center"><img src="files/post_8184_tasiyanc_8184.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🚨تصویر تخریب پل کهورستان در بندر خمیر
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8183
+
+<div align="center"><video src="files/post_8183_tasiyanc_8183.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8183_tasiyanc_8183.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دو نفر از کارکنان ایستگاه راه آهن کشته شدن 
+💔
+
+@Tasiyanc
+✅
+</div>
+
+## tasiyanc — post 8174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
+</div>
 
 ## tasiyanc — post 8173
 
@@ -178,36 +210,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🏔 روستای کندوان تبریز از معدود روستاهای صخره‌ای جهان است طبیعت زیبا، آب‌وهوای خنک و معماری منحصربه‌فرد، کندوان را به یکی از محبوب‌ترین جاذبه‌های گردشگری ایران تبدیل کرده است.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8142
-
-<div align="center"><img src="files/post_8142_tasiyanc_8142.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بانو Ester هستن زید مدل اسپانیایی امباپه بازیکن رئال 🦥
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 8140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گزارش هایی مبنی بر اینکه حرم امام رضا اتیش گرفته تاییذ و تکذیب نمیشه @TasiyanProxy✅
-</div>
-
-## tasiyanc — post 8138
-
-<div align="center"><video src="files/post_8138_tasiyanc_8138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8138_tasiyanc_8138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈یکی از مقام‌های طالبان که خودش 63 ساله بوده، یه دختر 14 ساله به اسم نازگل رو میخره و باهاش ازدواج می‌کنه.
-
-و اما بعد از چند روز، این دختر معصوم رو بخاطر پخش شدن فیلم عروسی خفه می‌کنه و به قتل میرسونه!
 
 @Tasiyanc ⭐️
 </div>

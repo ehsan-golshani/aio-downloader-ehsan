@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 253
 
-📅 آخرین بروزرسانی: 1405/05/30 23:39
+📅 آخرین بروزرسانی: 1405/05/31 00:14
 
 ---
+
+## VahidOOnLine — post 250244
+
+<div align="center"><img src="files/post_250244_VahidOOnLine_250244.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دو زمین‌لرزه، چهارشنبه ۲۴ تیر، بخش‌هایی از استان‌های گلستان و خوزستان را لرزاندند. زمین‌لرزه‌ای به بزرگی ۳.۹ با مرکزیت انبارالوم در شهرستان آق‌قلا در حوالی گرگان ثبت شد.
+
+هم‌زمان، زمین‌لرزه‌ای به بزرگی ۳.۲ خرمشهر را لرزاند. این زمین‌لرزه در عمق ۱۰ کیلومتری زمین رخ داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250243
 
@@ -278,19 +291,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گزارش‌های دریافتی از ممسنی از وقوع آتش‌سوزی گسترده در مناطق پادراز و مورکی و پیشروی شعله‌ها به سمت کوه دکل، اشکان و روستاهای اطراف حکایت دارد. بر اساس این گزارش‌ها، مردم با درخواست کمک برای مهار آتش، نسبت به گسترش لحظه‌به‌لحظه آن ابراز نگرانی کرده‌اند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250223
-
-<div align="center"><video src="files/post_250223_VahidOOnLine_250223.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250223_VahidOOnLine_250223.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیلگر سیاسی، به ایران‌اینترنشنال گفت با وجود حملات جمهوری اسلامی به هشت کشور منطقه، این کشورها به همکاری نظامی با آمریکا ادامه خواهند داد، اما هنوز نشانه‌ای از تصمیم آن‌ها برای حمله مستقل به جمهوری اسلامی دیده نمی‌شود.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

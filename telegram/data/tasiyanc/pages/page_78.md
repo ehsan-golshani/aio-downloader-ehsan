@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/30 23:41
+📅 آخرین بروزرسانی: 1405/05/31 00:17
 
 ---
+
+## tasiyanc — post 7102
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
+
+2سرور سرعتی مناسب تمام نت‌ها⚡️
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال ➡️
+
+مناسب دانلود🎥 وب‌گردی🔍 جمینای 🤖 🚀
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7101
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+5 کانفیگ حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+🛡Password Zip: @Tasiyanc
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7099
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید رو به راهید؟
+</div>
 
 ## tasiyanc — post 7096
 
@@ -238,47 +276,5 @@ Loc 🇬🇧
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز 16 June روز برآورده شدن آرزوهاتونه😄
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7058
-
-<div align="center"><img src="files/post_7058_tasiyanc_7058.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمامی نپسترایی ک از دیروز صبح زدیم وصلن با سرعت فضایی وصل شید عشق کنید ⚡️
-</div>
-
-## tasiyanc — post 7057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-2 سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel  🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-T.me/Tasiyanc 
-✅
 </div>
 

@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/30 23:41
+📅 آخرین بروزرسانی: 1405/05/31 00:17
 
 ---
+
+## tasiyanc — post 8600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 ترامپ :
+
+بیش از 52 هزار معترض در ایران در دو ماه گذشته توسط جمهوری اسلامی کشته شدند؛
+
+اما نمیدونم چرا هیچکس راجب این موضوع صحبت نمی‌کنه، هیچ رسانه ای ازش نمیگه!
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8599
+
+<div align="center"><video src="files/post_8599_tasiyanc_8599.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8599_tasiyanc_8599.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ امشب فاز نصیحت برداشته:
+
+یه پلیس بهم گفت از وقتی زنم فهمیده هوش مالی بالایی دارم و خوب پول در میارم، بیشتر دوسم داره.
+شما نباید کسیو بخاطر پول دوس داشته باشین.
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8592
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امیر دوست پسر قبلی نیکا فلاحی وقتی فهمید نیکا با مرسلی رفته تو رابطه از لجش اومده عکسای نود بدون سانسورشو پخش کرده ولی خودمونیم چیز خوبیه 📥 مشاهده ویدیو
+</div>
 
 ## tasiyanc — post 8591
 
@@ -250,30 +284,5 @@ Join As @TASIYANC ✅
 جدیدترین مورد از بیش از 52 هزار معترض بی‌گناه. وحشی‌ها!!! دموکرات‌ها کِی میخوان بیدار بشن؟؟؟
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8555
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میساقی مجری صداسیما : من ۱۰۰ نفرو حریف بودم ۱۰۱ نفر اومدن مادرمو گای*یدن
-</div>
-
-## tasiyanc — post 8554
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-س*اک زدن دنیا خانوم جهانبخت برای تتلو 🤣
-
-مشاهده فیلم 👉
-</div>
-
-## tasiyanc — post 8552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-vless://073d1d50-8478-47bf-a828-7a1b381931d5@104.17.147.31:443?path=%2Fodiyfws&security=tls&encryption=none&insecure=0&host=octopusss.net&fp=chrome&type=ws&allowInsecure=0&sni=octopusss.net#%40Tasiyanc%20%F0%9F%87%AB%F0%9F%87%B7%20Paris
-vless://073d1d50-8478-47bf-a828-7a1b381931d5@104.17.147.129:443?path=%2Fodiyfws&security=tls&encryption=none&insecure=0&host=octopusss.net&fp=chrome&type=ws&allowInsecure=0&sni=octopusss.net#%40Tasiyanc%20%F0%9F%87%AB%F0%9F%87%B7%20Paris
-Location 🤯 🇫🇷
-
-@TASIYANC✅
 </div>
 

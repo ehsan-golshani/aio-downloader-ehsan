@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 250
 
-📅 آخرین بروزرسانی: 1405/05/30 23:39
+📅 آخرین بروزرسانی: 1405/05/31 00:14
 
 ---
+
+## VahidOOnLine — post 250305
+
+<div align="center"><video src="files/post_250305_VahidOOnLine_250305.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250305_VahidOOnLine_250305.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال در شامگاه چهارشنبه ۲۴ تیر، لحظه حمله به قرارگاه سپاه پاسداران را در شهرستان راسک در استان سیستان و بلوچستان نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250304
 
@@ -264,19 +277,6 @@
 
 
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250285
-
-<div align="center"><img src="files/post_250285_VahidOOnLine_250285.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️فرماندهی مرکزی ارتش ایالات متحده (سنتکام) که هدایت عملیات نظامی آمریکا در خاورمیانه را بر عهده دارد، چهارشنبه‌شب ۲۴ تیرماه اعلام کرد نیروهای آمریکایی ساعت ۳ بعدازظهر به وقت شرق آمریکا، دومین موج حملات همان روز علیه ایران را آغاز کردند.
-
-سنتکام گفت این حملات توانمندی‌های نظامی ایران را هدف قرار داده‌اند که برای تهدید کشتی‌های در حال عبور آزادانه از تنگه هرمز به کار می‌روند. این نهاد نظامی افزود ارتش آمریکا به دستور فرمانده کل قوا، ایران را در قبال این اقدامات پاسخگو می‌داند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

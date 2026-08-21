@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/30 23:41
+📅 آخرین بروزرسانی: 1405/05/31 00:17
 
 ---
+
+## tasiyanc — post 9507
+
+<div align="center"><img src="files/post_9507_tasiyanc_9507.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ده تا از بهترین ابزارهای رایگان هوش مصنوعی در تمام زمینه ها ...
+
+
+⚡️میتونید در تولید محتوا ( ساخت ویدیو - عکس - تبلیغات ،بازاریابی) ازشون ایده بگیرید و رایگان بسازید !
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9506
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتشه درامد دلاری به جیب بزنی ✅
+همین حالا وارد کانال  Evil Bet شو👇
+https://t.me/+TmGWkUYH_8c0OWZk
+</div>
+
+## tasiyanc — post 9505
+
+<div align="center"><img src="files/post_9505_tasiyanc_9505.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
+
+https://t.me/+TmGWkUYH_8c0OWZk
+https://t.me/+TmGWkUYH_8c0OWZk
+</div>
 
 ## tasiyanc — post 9504
 
@@ -297,113 +330,5 @@ til.ac/0L4vyJf
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9483
-
-<div align="center"><video src="files/post_9483_tasiyanc_9483.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9483_tasiyanc_9483.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت
-🔐
-سرور سرعتی مولتی لوکیشن⚡️
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9482
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 👾 GAME DNS VIP TASIYAN ━━━╮
-
-⚡️ DNS #1
-IPv4
-
-17.62.198.222
-77.160.218.160
-
-IPv6
-
-2a0e:1c80:11::c6db:ccca:d924:626f
-2a0e:1c80:11::cf20:5007:eac9:1b44
-➖➖➖➖➖➖➖
-
-⚡️ DNS #2
-IPv4
-
-140.112.232.208
-136.95.165.219
-
-IPv6
-
-2a0e:1c80:11::e431:449e:90af:3521
-2a0e:1c80:11::397e:8dbf:fee2:a9cb
-
-➖➖➖➖➖➖➖
-
-⚡️DNS #3
-IPv4
-
-189.92.99.165
-19.33.60.233
-
-IPv6
-
-2a0e:1c80:11::ab31:e1b9:40cd:78d3
-2a0e:1c80:11::bcd1:7936:75f:7d0c
-
-➖➖➖➖➖➖➖
-
-⚡️ DNS #4
-IPv4
-
-169.217.217.193
-103.216.123.101
-
-IPv6
-
-2a0e:1c80:11::572a:2f94:1164:a500
-2a0e:1c80:11::6a6c:9e8c:8e01:f608
-
-⚡️ Low Ping • Stable Connection
-╰━━━━━━━━━━━━━━━━━━╯
-
-💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9481
-
-<div align="center"><video src="files/post_9481_tasiyanc_9481.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9481_tasiyanc_9481.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴توی استان زنجان اطراف ترمینال شهرستان ابهر دو تا دختر ۱۷ ساله به این شکل رفتن تو تریلی و الان حالشون وخیم و در کما هستن
-
-+ تصادف با موتورسیکلت کمترین بهاش اینه که دست پای ادم می‌شکنه به خانواده هاتون رحم کنید لاقل کلاه ایمنی بزارید
-@Tasiyanc 
-✅
 </div>
 

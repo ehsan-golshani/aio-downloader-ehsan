@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 276
 
-📅 آخرین بروزرسانی: 1405/05/30 23:39
+📅 آخرین بروزرسانی: 1405/05/31 00:14
 
 ---
+
+## VahidOOnLine — post 249611
+
+<div align="center"><img src="files/post_249611_VahidOOnLine_249611.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️وزارت کشور امارات متحده عربی با انتشار هشداری فوری، صبح شنبه، اعلام کرد که سیستم‌های پدافند هوایی این کشور در حال حاضر در حال مقابله با یک «تهدید موشکی» هستند. این نهاد امنیتی با صدور این بیانیه اضطراری، از تمامی مردم و ساکنان امارات خواست تا برای حفظ امنیت خود در پناهگاه‌ها و مکان‌های امن باقی بمانند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249610
 
@@ -247,19 +258,6 @@
 ## VahidOOnLine — post 249586
 
 <div align="center"><img src="files/post_249586_VahidOOnLine_249586.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برخی از رسانه‌ها در ایران بامداد یکشنبه به وقت محلی از شنیده شدن صدای انفجار در عسلویه و بوشهر خبر دادند.
-
-شبکه خبری پرس تی‌وی، متعلق به رادیو و تلویزیون جمهوری اسلامی، نیز نوشت گزارش‌هایی از انفجار در بوشهر و عسلویه وجود دارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249585
-
-<div align="center"><img src="files/post_249585_VahidOOnLine_249585.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 برخی از رسانه‌ها در ایران بامداد یکشنبه به وقت محلی از شنیده شدن صدای انفجار در عسلویه و بوشهر خبر دادند.

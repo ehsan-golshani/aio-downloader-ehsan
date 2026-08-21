@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 176
 
-📅 آخرین بروزرسانی: 1405/05/30 23:39
+📅 آخرین بروزرسانی: 1405/05/31 00:14
 
 ---
+
+## VahidOOnLine — post 251979
+
+<div align="center"><img src="files/post_251979_VahidOOnLine_251979.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ خبرگزاری دولتی ایرنا گزارش داد که روز جمعه دوم مرداد، یک هیات عمانی با هدف گفتگو درباره چارچوبی برای «ایجاد سازوکارهای مناسب جهت مدیریت رفت‌وآمد کشتی‌ها در تنگه هرمز» وارد تهران شده است.
+
+جمهوری اسلامی ایران در طول این درگیری همواره تاکید کرده که آماده است مدیریت این آبراه حیاتی را با هماهنگی عمان، تنها کشور ساحلی دیگر در تنگه هرمز، پیش ببرد؛ این در حالی است که ایالات متحده و کشورهای حوزه خلیج فارس با چنین ترتیبات و الگویی مخالفت کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251978
 
@@ -265,19 +278,6 @@ https://i
 
 این شهروند ۳۸ ساله و مهندس نقشه‌بردار، با قرار وثیقه آزاد شده بود اما بار دیگر در ۱۳ تیرماه مقابل منزل خود در اسلامشهر به دست نیروهای امنیتی بازداشت و به زندان تهران بزرگ منتقل شد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251951
-
-<div align="center"><video src="files/post_251951_VahidOOnLine_251951.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251951_VahidOOnLine_251951.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مروری بر مهم‌ترین خبرهای جمعه ۲ مرداد ۱۴۰۵؛ بر اساس پوشش و گزارش رسانه‌های خبری بین‌المللی درباره ایران و منطقه.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

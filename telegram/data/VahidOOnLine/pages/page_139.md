@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 139
 
-📅 آخرین بروزرسانی: 1405/05/30 23:39
+📅 آخرین بروزرسانی: 1405/05/31 00:14
 
 ---
+
+## VahidOOnLine — post 252882
+
+<div align="center"><video src="files/post_252882_VahidOOnLine_252882.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252882_VahidOOnLine_252882.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان‌دهنده برگزاری مراسم سوگواری برای ابوالفضل سپاهی است.
+
+بامداد سه‌شنبه حکم اعدام این شهروند بازداشت‌شده در اعتراضات دی‌ماه در اصفهان، با دستور قوه قضاییه جمهوری اسلامی اجرا شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252881
 
@@ -286,21 +301,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال، درباره از سرگیری حملات آمریکا به تاسیسات نظامی جمهوری اسلامی پس از وقفه‌ای چندروزه توضیح داد و از شکل‌گیری جنگی فرسایشی و بسیار پرهزینه برای مردم ایران، در نتیجه سیاست‌های ضدملی حکومت، گفت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252849
-
-<div align="center"><video src="files/post_252849_VahidOOnLine_252849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252849_VahidOOnLine_252849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت خارجه نیوزیلند در پاسخ به ایران‌اینترنشنال بر مخالفت خود با اعدام و حمایت از حق اعتراض مسالمت‌آمیز در ایران تاکید کرد و استرالیا نیز با محکوم کردن اعدام مخالفان سیاسی از سوی جمهوری اسلامی، خواستار توقف فوری اعدام‌ها شد.
-
-گفت‌وگو با علیرضا محبی، خبرنگار ایران‌اینترنشنال
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

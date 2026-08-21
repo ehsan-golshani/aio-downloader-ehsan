@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 180
 
-📅 آخرین بروزرسانی: 1405/05/30 23:39
+📅 آخرین بروزرسانی: 1405/05/31 00:14
 
 ---
+
+## VahidOOnLine — post 251854
+
+<div align="center"><video src="files/post_251854_VahidOOnLine_251854.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251854_VahidOOnLine_251854.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️رسانه‌های ایران با انتشار تصاویری از مشاهده یک شیء پرنده در حال سقوط در آسمان قشم خبر دادند.
+بر اساس این تصاویر، این شیء در حال از دست دادن ارتفاع بوده و به سمت زمین سقوط می‌کند، اما هنوز جزئیات دقیقی درباره ماهیت آن منتشر نشده است.پ
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251845
 
@@ -248,19 +262,6 @@
 همزمان، کانال تلگرامی «وحید آنلاین» با نتشار ویدیویی به نقل از گزارش‌های مردمی از وقوع چندین انفجار در این مناطق خبر داده است.
 این گزارش‌ها در حالی منتشر می‌شود که پیش‌تر فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرده بود نیروهای آمریکایی سیزدهمین شب متوالی حملات خود علیه اهداف نظامی در ایران را آغاز کرده‌اند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251825
-
-<div align="center"><img src="files/post_251825_VahidOOnLine_251825.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رییس روابط عمومی وزارت بهداشت جمهوری اسلامی اعلام کرد که از ۶ تیر تا ساعت ۹ صبح اول مرداد،در حملات آمریکا ۵۵ تن کشته و ۶۲۹ نفر مصدوم شده‌اند.
-
-او گفت در میان مصدومان، ۴۶ زن و ۲۴ فرد زیر ۱۸ سال و در میان کشته‌شدگان، ۶ زن و ۳ شخص زیر ۱۸ سال هستند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
