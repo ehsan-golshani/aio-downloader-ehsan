@@ -1,8 +1,37 @@
 # آرشیو کانال VahidOOnLine - صفحه 350
 
-📅 آخرین بروزرسانی: 1405/05/31 00:42
+📅 آخرین بروزرسانی: 1405/05/31 01:25
 
 ---
+
+## VahidOOnLine — post 247984
+
+<div align="center"><img src="files/post_247984_VahidOOnLine_247984.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حسن حسن‌زاده، فرمانده سپاه تهران و رییس ستاد تشییع جنازه خامنه‌ای، گفت که امکان ورود کوله پشتی، ساک و اجسام حجیم در مصلی وجود ندارد و مردم این نوع اجسام را در خودرو خود بگذارند.
+
+او ادامه داد: «شرکت‌کنندگان در مراسم تشییع حتما باید شناورسازی جمعیت را انجام دهند و در حال حرکت باشند.»
+
+او همچنین از شرکت‌کنندگان در این مراسم حکومتی خواسته کلاه، آفتابگیر و بطری آب همراه داشته باشند.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247983
+
+<div align="center"><video src="files/post_247983_VahidOOnLine_247983.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247983_VahidOOnLine_247983.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز سه‌شنبه نهم تیرماه دانشجویان دانشگاه آزاد مقاطع کارشناسی ارشد و دکتری، مقابل سازمان مرکزی دانشگاه آزاد در تهران تجمع کرده و نسبت به حضوری شدن امتحانات خود اعتراض کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247982
 
@@ -286,34 +315,6 @@
 
 ونزوئلا هفته گذشته با دو زمین‌لرزه پیاپی و قدرتمند به بزرگی ۷.۲ و ۷.۵ لرزید؛ حادثه‌ای که خسارت‌های گسترده‌ای به مناطق ساحلی و شهری این کشور وارد کرده و به یکی از مرگبارترین بلایای طبیعی سال‌های اخیر در آمریکای جنوبی تبدیل شده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247964
-
-<div align="center"><img src="files/post_247964_VahidOOnLine_247964.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس جمهوری اسلامی، در مصاحبه با صداوسیما گفت توان موشکی و پهپادی جمهوری اسلامی «خط قرمز» است و با هیچ معامله‌ای محدود نخواهد شد.
-
-او همچنین گفت تنگه هرمز بخشی جدایی‌ناپذیر از حاکمیت جمهوری اسلامی است و مدیریت آن صرفا در اختیار جمهوری اسلامی قرار دارد.
-
-عزیزی با اشاره به نقش آمریکا در منطقه گفت: «عصر مداخله آمریکا در امور منطقه به سر آمده و بازگشت مجدد شکست‌خوردگان، هرگز دستاوردی به همراه ندارد.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247963
-
-<div align="center"><video src="files/post_247963_VahidOOnLine_247963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247963_VahidOOnLine_247963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم بریتانیا دوشنبه هشتم تیرماه مقابل ساختمان نخست‌وزیری این کشور در لندن تجمع کردند و خواستار تروریستی اعلام شدن سپاه شدند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

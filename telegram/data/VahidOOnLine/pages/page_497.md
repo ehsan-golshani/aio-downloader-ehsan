@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 497
 
-📅 آخرین بروزرسانی: 1405/05/31 00:42
+📅 آخرین بروزرسانی: 1405/05/31 01:25
 
 ---
+
+## VahidOOnLine — post 243976
+
+<div align="center"><video src="files/post_243976_VahidOOnLine_243976.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243976_VahidOOnLine_243976.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان بیرجند در استان خراسان جنوبی روز شنبه در اعتراض به اعمال تاثیر معدل پایه یازدهم در کنکور و حضوری شدن امتحانات تجمع کردند و شعار دادند: «محصل داد بزن حقتو فریاد بزن.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243975
+
+<div align="center"><img src="files/post_243975_VahidOOnLine_243975.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ ارتش لبنان روز شنبه ۱۶ خردا اعلام کرد ژنرال رودولف هیکل، فرمانده ارتش این کشور، عازم پاکستان شده است. این سفر در شرایطی صورت می‌گیرد که پاکستان تلاش‌هایی را برای میانجی‌گری جهت پایان دادن به منازعه ایالات متحده و اسرائیل با ایران، که دامنه‌اش به لبنان نیز کشیده شده، آغاز کرده است.
+
+بر اساس بیانیه ارتش لبنان، این سفر به دعوت همتای پاکستانی ژنرال هیکل انجام شده است، اما هنوز جزئیات بیشتری درباره اهداف دقیق یا مدت زمان این سفر ارائه نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243974
 
@@ -280,32 +306,6 @@
 🔹یک شنیون‌کار: هیچ پس‌اندازی ندارم. قیمت مواد آرایشگری سه‌برابر شده. چسب «البورا» به ۶۰۰ هزار تومان رسیده و هزینه‌ها کمرشکنه و فشار اقتصادی آدمو له می‌کنه.
 
 🔹درگیری چند کارمند آموزش‌وپرورش با تجمعات دانش‌آموزان شهرستان ساوه.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243956
-
-<div align="center"><video src="files/post_243956_VahidOOnLine_243956.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243956_VahidOOnLine_243956.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دانش‌آموزان کهگیلویه و بویراحمد روز شنبه با تجمع مقابل آموزش و پرورش در یاسوج خواستار لغو تاثیر قطعی یازدهم و عدم برگزاری امتحانات حضوری شدند. این تجمع همزمان با دست‌کم اعتراض دانش‌آموزی در ۱۰ استان دیگر برگزار شد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243955
-
-<div align="center"><img src="files/post_243955_VahidOOnLine_243955.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سنتکام، ستاد فرماندهی مرکزی آمریکا، تصاویری از ناو تریپولی و یک بالگرد سی‌هاوک منتشر کرد و در توضیح آن نوشت ملوانان و تفنگداران دریایی آمریکا در عرشه ناو یواس‌اس تریپولی هنگام حرکت این ناو در دریای عرب، از یک بالگرد سی‌هاوک پایین می‌آیند.
-
-سنتکام در توضیحات خود مشخص نکرد این اقدام بخشی از یک عملیات نظامی بوده یا در چارچوب یک تمرین نظامی انجام شده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

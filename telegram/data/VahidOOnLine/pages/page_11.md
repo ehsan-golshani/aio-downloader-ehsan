@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/31 00:42
+📅 آخرین بروزرسانی: 1405/05/31 01:25
 
 ---
+
+## VahidOOnLine — post 255989
+
+<div align="center"><video src="files/post_255989_VahidOOnLine_255989.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255989_VahidOOnLine_255989.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار ایران در رسانه‌های جهان، پنجشنبه ۲۹ مرداد ۱۴۰۵
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255988
+
+<div align="center"><video src="files/post_255988_VahidOOnLine_255988.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255988_VahidOOnLine_255988.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد پدر جاویدنام محسن عباسی بر فراز قله دماوند در سوگ فرزندش اشک ریخت و یاد او را گرامی داشت.
+
+این جاویدنام ۱۸ دی ۱۴۰۴ در اعتراضات نجف‌آباد اصفهان، به‌دست ماموران جمهوری اسلامی در سن ۲۱ سالگی کشته شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255987
 
@@ -291,28 +319,5 @@ Indypersian
 IranintlTV
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255968
-
-<div align="center"><video src="files/post_255968_VahidOOnLine_255968.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255968_VahidOOnLine_255968.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، گفت واشینگتن همچنان گزینه‌های زیادی برای اعمال تحریم‌های سنگین علیه جمهوری‌اسلامی در اختیار دارد و محاصره دریایی را «صددرصد موفق» توصیف کرد.
-او افزود تنگه هرمز در حال حاضر باز است و کشتی‌های زیادی از آن عبور می‌کنند.
-ترامپ همچنین گفت با پیدا شدن مسیرها و گزینه‌های جایگزین، تنگه هرمز ممکن است دیگر اهمیت گذشته را نداشته باشد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255967
-
-<div align="center"><img src="files/post_255967_VahidOOnLine_255967.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
 </div>
 

@@ -1,8 +1,37 @@
 # آرشیو کانال VahidOOnLine - صفحه 321
 
-📅 آخرین بروزرسانی: 1405/05/31 00:42
+📅 آخرین بروزرسانی: 1405/05/31 01:25
 
 ---
+
+## VahidOOnLine — post 248608
+
+<div align="center"><img src="files/post_248608_VahidOOnLine_248608.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میثم ظهوریان، عضو کمیسیون اقتصادی مجلس، در شبکه اجتماعی ایکس نوشت مهم‌ترین نکته بیانیه مجلس خبرگان این است که تفاهم‌نامه و روند مذاکرات، مسیری جدا و موازی با پرونده انتقام از عاملان و آمران کشتن علی خامنه‌ای دارد.
+
+او افزود که بر اساس این بیانیه، مذاکرات نه مانعی برای پیگیری انتقام خون علی خامنه‌ای است و نه جای آن را می‌گیرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248607
+
+<div align="center"><video src="files/post_248607_VahidOOnLine_248607.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248607_VahidOOnLine_248607.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️هزاران نفر از حامیان جمهوری اسلامی، روز یکشنبه ۱۴ تیر در دومین روز مراسم «وداع» با علی خامنه‌ای، رهبر پیشین جمهوری اسلامی ایران، در مصلای بزرگ تهران گرد هم آمدند و در آیین نماز و سوگواری شرکت کردند.
+در این مراسم، احمد وحیدی، فرمانده سپاه پاسداران انقلاب اسلامی نیز در میان حاضران دیده شد. همزمان، شرکت‌کنندگان شعارهایی از جمله «مرگ بر آمریکا» سر دادند.
+در کنار این تجمع گسترده، ادامه غیبت رهبر سوم جمهوری اسلامی در نماز میت پدر و نیز عدم حضور برخی چهره‌های سیاسی از جمله سه رئیس‌جمهور سابق در مراسم، از نکات قابل توجه روز دوم «وداع» عنوان شده است.
+مراسم تشییع علی خامنه‌ای که از روز شنبه آغاز شده، طبق اعلام برگزارکنندگان در چند مرحله و در نقاط مختلف تهران و سایر شهرها ادامه خواهد داشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248606
 
@@ -259,34 +288,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیویی که به ایران‌اینترنشنال ارسال شده، صف طولانی اتوبوس‌ها را در بزرگراه بابایی تهران برای آوردن حامیان حکومت به مراسم دفن علی خامنه‌ای نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248588
-
-<div align="center"><video src="files/post_248588_VahidOOnLine_248588.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248588_VahidOOnLine_248588.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ملانیا ترامپ، بانوی اول آمریکا، شامگاه شنبه (به وقت آمریکا) در مراسم رسمی دویست‌وپنجاهمین سالگرد استقلال آمریکا در واشنگتن، دونالد ترامپ را همراهی کرد.
-این مراسم که به دلیل گرمای شدید، طوفان و رعدوبرق با چند ساعت تاخیر آغاز شد، در نهایت در نشنال مال (National Mall) برگزار شد. ملانیا ترامپ پس از اجرای ترانه «خدا آمریکا را برکت دهد» توسط لی گرینوود، همراه با دونالد ترامپ بر صحنه این مراسم قدم گذاشت.
-او در طول سخنرانی حدود ۴۵ دقیقه‌ای رئیس‌جمهوری آمریکا در کنار او حضور داشت. پس از پایان سخنرانی نیز دونالد و ملانیا ترامپ از جایگاه ویژه، نمایش آتش‌بازی مراسم را که بیش از ۴۰ دقیقه ادامه داشت، تماشا کردند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248587
-
-<div align="center"><video src="files/post_248587_VahidOOnLine_248587.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248587_VahidOOnLine_248587.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده نشان می‌دهند گروهی از ایرانیان مقیم ایسلند شنبه ۱۳ تیر مقابل سفارت آمریکا در شهر ریکاویک تجمع کرده و خواستار پایان مماشات با جمهوری اسلامی شدند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

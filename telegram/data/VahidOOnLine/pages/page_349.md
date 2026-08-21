@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 349
 
-📅 آخرین بروزرسانی: 1405/05/31 00:42
+📅 آخرین بروزرسانی: 1405/05/31 01:25
 
 ---
+
+## VahidOOnLine — post 248004
+
+<div align="center"><img src="files/post_248004_VahidOOnLine_248004.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، در نشست خبری سه‌شنبه گفت: «برای صیانت از منافع خود در رابطه با تنگه هرمز، هر اقدامی که لازم باشد انجام خواهیم داد.»
+
+او افزود به مشورت‌هایمان با عمان برای تنظیم ترتیبات لازم جهت عبور کشتی‌ها از تنگه هرمز ادامه می‌دهیم و نیازی به مداخله هیچ کشوری، از جمله فرانسه در موضوع تنگه هرمز نیست.
+
+بقائی همچنین درباره تاثیرات امضای تفاهم‌نامه با آمریکا گفت: «روند فروش نفت و محصولات نفتی پس از امضای یادداشت تفاهم، تسهیل شده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248003
+
+<div align="center"><video src="files/post_248003_VahidOOnLine_248003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248003_VahidOOnLine_248003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از خریدرارن خانه در شهرک صدرا در شیراز به دلیل تمام نشدن پروژه و تحویل ندادن خانه‌ها تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248002
 
@@ -255,35 +283,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس ویدیوی رسیده به ایران اینترنشنال دانشجویان دانشگاه آزاد روز سه‌شنبه نهم تیرماه مقابل سازمان مرکزی این دانشگاه در تهران تجمع کرده و نسبت به حضوری شدن امتحانات خود اعتراض کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247984
-
-<div align="center"><img src="files/post_247984_VahidOOnLine_247984.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حسن حسن‌زاده، فرمانده سپاه تهران و رییس ستاد تشییع جنازه خامنه‌ای، گفت که امکان ورود کوله پشتی، ساک و اجسام حجیم در مصلی وجود ندارد و مردم این نوع اجسام را در خودرو خود بگذارند.
-
-او ادامه داد: «شرکت‌کنندگان در مراسم تشییع حتما باید شناورسازی جمعیت را انجام دهند و در حال حرکت باشند.»
-
-او همچنین از شرکت‌کنندگان در این مراسم حکومتی خواسته کلاه، آفتابگیر و بطری آب همراه داشته باشند.
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247983
-
-<div align="center"><video src="files/post_247983_VahidOOnLine_247983.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247983_VahidOOnLine_247983.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز سه‌شنبه نهم تیرماه دانشجویان دانشگاه آزاد مقاطع کارشناسی ارشد و دکتری، مقابل سازمان مرکزی دانشگاه آزاد در تهران تجمع کرده و نسبت به حضوری شدن امتحانات خود اعتراض کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

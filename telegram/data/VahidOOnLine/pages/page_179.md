@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 179
 
-📅 آخرین بروزرسانی: 1405/05/31 00:42
+📅 آخرین بروزرسانی: 1405/05/31 01:25
 
 ---
+
+## VahidOOnLine — post 251882
+
+<div align="center"><video src="files/post_251882_VahidOOnLine_251882.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251882_VahidOOnLine_251882.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال نشان‌دهنده رد پرتاب موشک در آسمان فردیس کرج در صبح جمعه دوم مرداد است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251881
+
+<div align="center"><video src="files/post_251881_VahidOOnLine_251881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251881_VahidOOnLine_251881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در ویدیوی رسیده به ایران‌اینترنشنال، یک شهروند می‌گوید که صبح جمعه ۲ مرداد ۱۴۰۵، دو موشک از پادگان و زاغه سپاه پاسداران در بیدگنه ملارد پرتاب شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251880
 
@@ -288,32 +314,6 @@ iranintl
 
 دونالد ترامپ، پیشتر در صفحه تروت سوشال خود اعلام کرده بود که تا اطلاع ثانوی، هرگونه خسارت واردشده به کشتی‌ها، محموله‌ها یا هر موضوع مرتبط با آن‌ها، از محل دارایی‌های جمهوری اسلامی که در اختیار و تحت کنترل آمریکا است، پرداخت خواهد شد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251860
-
-<div align="center"><img src="files/post_251860_VahidOOnLine_251860.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، در پیامی در شبکه اجتماعی اکس نوشت: «توقیف دارایی‌های یک کشور دیگر برای پرداخت مطالبات نامرتبط در آینده، رویه‌ای تحریک‌آمیز ایجاد می‌کند.»
-او افزود: «کسانی که از چنین منابعی استقبال می‌کنند یا از آن سود می‌برند، باید به یاد داشته باشند که وقتی دولت‌ها مصادره دارایی‌ها را عادی کنند، دارایی هیچ‌کس در امان نخواهد بود. هرج‌ومرج ناشی از آن نه خوشایند خواهد بود و نه مسالمت‌آمیز.»
-پیش از این، دونالد ترامپ، رئیس‌جمهوری آمریکا، اعلام کرده بود که تا اطلاع ثانوی، خسارت‌های واردشده به کشتی‌ها و محموله‌ها از پول‌های ایران در اختیار آمریکا پرداخت خواهد شد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251859
-
-<div align="center"><video src="files/post_251859_VahidOOnLine_251859.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251859_VahidOOnLine_251859.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تصاویر منتشر شده در حساب کاربری «وحید آنلاین»، صبح روز پنجشنبه دوم مردادماه، پرتاب موشک از حوالی بیدگنه را نشان می‌دهد. در توضیح این تصاویر آمده است: «این پرتاب‌ها حوالی ساعت ۵:۵۰ بامداد رخ داده و رد آن‌ها از شهرهای مختلف از جمله کرج و فردیس قابل رویت بوده وهمچین گزارش‌هایی از پرتاب موشک از استان مرکزی و اصفهان داده شده است.»
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

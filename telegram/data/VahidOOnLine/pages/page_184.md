@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 184
 
-📅 آخرین بروزرسانی: 1405/05/31 00:42
+📅 آخرین بروزرسانی: 1405/05/31 01:25
 
 ---
+
+## VahidOOnLine — post 251763
+
+<div align="center"><video src="files/post_251763_VahidOOnLine_251763.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251763_VahidOOnLine_251763.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«قیمت این دستمال از همه این اسکناس‌ها بیشتره»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251762
+
+<div align="center"><video src="files/post_251762_VahidOOnLine_251762.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251762_VahidOOnLine_251762.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علیرضا شفیعی‌خواه، زندانی سابق سیاسی، در ویدیویی با اشاره به گذشت شش ماه از دیماه خونین گفت «امید همچنان زنده است و یاد جاویدنامان را زنده نگه می‌داریم.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251761
 
@@ -270,32 +296,6 @@
 دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل پنج‌شنبه اعلام کرد پیوستن عربستان سعودی به توافق‌های ابراهیم، تحولی تاریخی در مسیر صلح در خاورمیانه خواهد بود.
 
 دفتر نخست‌وزیر اسرائیل افزود اقدام نظامی مشترک آمریکا و اسرائیل علیه جمهوری اسلامی و تضعیف محور «تروریستی» تهران، زمینه را برای گسترش دایره صلح فراهم کرده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251729
-
-<div align="center"><img src="files/post_251729_VahidOOnLine_251729.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد مخبر، دستیار مجتبی خامنه‌ای، در ایکس نوشت: «آتشی که آمریکا در حال روشن کردن آن در میادین نفت و گاز منطقه است شعله‌هایش دامن همه جهان را خواهد گرفت. نیروهای مسلح ما قطعا با ابتکار عمل و هوشمندی، میدان و سطح بازی را یک پله بالاتر از دشمن تعریف می‌کنند.»
-
-او افزود: «نفت ۱۰۰ دلاری تا این لحظه صرفا نتیجه اختلال در روند حمل و نقل آن است نه تولید.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251728
-
-<div align="center"><img src="files/post_251728_VahidOOnLine_251728.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، شعبه چهارم دادگاه تجدیدنظر استان خراسان جنوبی حکم چهار سال زندان محمدنبی (نوید) براهویی، از بازداشت‌شدگان اعتراضات دی‌ماه، را تایید کرد.
-
-محمدنبی (نوید) براهویی ۲۳ دی‌ماه در نهبندان بازداشت شد و پس از دو ماه بازداشت موقت، به‌صورت آنلاین محاکمه شد. او در دادگاه انقلاب نهبندان با اتهام‌هایی از جمله «اجتماع و تبانی علیه امنیت کشور»، «تبلیغ علیه نظام» و «شرکت در تجمعات اعتراضی» به چهار سال زندان محکوم شده بود. براهویی هم‌اکنون در زندان مرکزی بیرجند زندانی است و از حق داشتن وکیل انتخابی و ملاقات با خانواده محروم است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

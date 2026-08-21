@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 322
 
-📅 آخرین بروزرسانی: 1405/05/31 00:42
+📅 آخرین بروزرسانی: 1405/05/31 01:25
 
 ---
+
+## VahidOOnLine — post 248588
+
+<div align="center"><video src="files/post_248588_VahidOOnLine_248588.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248588_VahidOOnLine_248588.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ملانیا ترامپ، بانوی اول آمریکا، شامگاه شنبه (به وقت آمریکا) در مراسم رسمی دویست‌وپنجاهمین سالگرد استقلال آمریکا در واشنگتن، دونالد ترامپ را همراهی کرد.
+این مراسم که به دلیل گرمای شدید، طوفان و رعدوبرق با چند ساعت تاخیر آغاز شد، در نهایت در نشنال مال (National Mall) برگزار شد. ملانیا ترامپ پس از اجرای ترانه «خدا آمریکا را برکت دهد» توسط لی گرینوود، همراه با دونالد ترامپ بر صحنه این مراسم قدم گذاشت.
+او در طول سخنرانی حدود ۴۵ دقیقه‌ای رئیس‌جمهوری آمریکا در کنار او حضور داشت. پس از پایان سخنرانی نیز دونالد و ملانیا ترامپ از جایگاه ویژه، نمایش آتش‌بازی مراسم را که بیش از ۴۰ دقیقه ادامه داشت، تماشا کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248587
+
+<div align="center"><video src="files/post_248587_VahidOOnLine_248587.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248587_VahidOOnLine_248587.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده نشان می‌دهند گروهی از ایرانیان مقیم ایسلند شنبه ۱۳ تیر مقابل سفارت آمریکا در شهر ریکاویک تجمع کرده و خواستار پایان مماشات با جمهوری اسلامی شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248586
 
@@ -247,30 +275,6 @@
 
 او در بازی پرتغال مقابل کنگو نیز گوشواره آویز الماس به گوش داشت؛ جزئیاتی کوچک اما کاملا قابل‌توجه در ظاهر بازیکنی که از آغاز دوران حرفه‌ای‌اش به جواهرات علاقه نشان داده است. برای رونالدو، گوشواره، چه به صورت تکی و چه جفتی، سال‌هاست بخشی از زبان پوشش و زیورآلات شخصی‌اش بوده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248567
-
-<div align="center"><img src="files/post_248567_VahidOOnLine_248567.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در سخنرانی جشن ۲۵۰ سالگرد استقلال آمریکا با تاکید بر قدرت گسترده نظامی آمریکا گفت: «به ونزوئلا نگاه کنید، به ایران نگاه کنید؛ ما آن را نابود کردیم، توان نظامی آن‌ها را نابود کردیم.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248566
-
-<div align="center"><img src="files/post_248566_VahidOOnLine_248566.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حمیدرضا مقدم‌فر، مشاور فرمانده کل سپاه پاسداران، با تاکید بر «خونخواهی» علی خامنه‌ای گفت: «قصاص دشمن یک تکلیف تاریخی برای همه مردم و مسئولان است و حتی در صورت ادامه مذاکرات، مطالبه انتقام پابرجا خواهد ماند.»
-او تاکید کرد: قصاص و انتقام، هم مسئولیت فردی است و هم مسئولیت اجتماعی است و امروز انتقام علی خامنه‌ای بر عهده همه مردم، نیروهای مسلح، فرماندهان و هر کسی است که خود را مسئول می‌داند.
-
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
