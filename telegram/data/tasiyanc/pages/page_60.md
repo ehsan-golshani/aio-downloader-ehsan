@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/05/30 11:07
+📅 آخرین بروزرسانی: 1405/05/30 12:41
 
 ---
+
+## tasiyanc — post 7733
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حرومزاده ها
+</div>
 
 ## tasiyanc — post 7732
 
@@ -160,11 +166,5 @@ CR7 GOAT Forever 🇵🇹❤️‍🔥
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رونالدو پر افتخارترین بازیکن جهان
 تا ابد در قلب ما خواهی بود
-</div>
-
-## tasiyanc — post 7702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسپانیا زد 💔
 </div>
 

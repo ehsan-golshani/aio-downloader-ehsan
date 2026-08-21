@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/30 11:07
+📅 آخرین بروزرسانی: 1405/05/30 12:41
 
 ---
+
+## tasiyanc — post 9162
+
+<div align="center"><img src="files/post_9162_tasiyanc_9162.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی کاپلی 🆕
+
+"Midnight Street Romance❤️"
+
+Prompt 🤖🤖
+
+A candid, natural night photograph of a young, stylish Middle Eastern couple embracing in a deeply affectionate hug on a city street in Tehran. The man, with a short, well-kept dark beard and a modern fade haircut, wears a black casual bomber jacket and is kissing the woman gently on her forehead. The woman, with long, dark straight hair and a gentle, smiling expression with her eyes closed, is wearing a black leather moto jacket. Her hands are wrapped around his back, and his hands are wrapped around hers. They are positioned in the foreground, filling the frame in a tight embrace. The background is a typical Tehran street at night, with concrete-faced residential buildings, lit windows, a line of parked classic and modern cars (like a Peugeot 206 and older models), and some tall coniferous and plane trees under a dark night sky. The street lighting is ambient and natural, giving the image a low-light, realistic, almost phone-camera documentary feel with a slight grain, not overly polished. The depth of field is shallow, keeping the couple sharp while the background elements blur organically. High-resolution photo. (optional: add "no text" to avoid UI elements)
+
+﻿
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9161
 
@@ -263,11 +283,5 @@ A high-contrast, moody black and white portrait photograph. A handsome young man
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 یه نفت کش تو تنگه هرمز میخواست راهشو کج کنه از مسیر آمریکا (عمان) رد شه که با ۴ موشک مورد اصابت قرار گرفت
-</div>
-
-## tasiyanc — post 9139
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴متهمین قتل «حمیدرضا رجب‌زاده» دستگیر شدند طبق اعلام مقام‌های قضایی، خودرویی که او آخرین‌بار سوار شده بود شناسایی و مالک آن دستگیر شد. این فرد اعتراف کرده که به همراه ۴ نفر دیگر و با تحریک یک شبکه خارج از کشور، اقدام به ربایش و قتل رجب‌زاده کرده‌اند @TASIYANC…
 </div>
 

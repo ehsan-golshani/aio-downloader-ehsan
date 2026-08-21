@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/30 11:07
+📅 آخرین بروزرسانی: 1405/05/30 12:41
 
 ---
+
+## tasiyanc — post 9070
+
+<div align="center"><video src="files/post_9070_tasiyanc_9070.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9070_tasiyanc_9070.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet
+💥
+
+
+🎁بونوس ورزشی هر چهارشنبه
+🔥
+
+💸واریز و برداشت متنوع
+💵
+
+⭕️بدون نیاز به فیلتر شکن
+⭕️
+r16
+
+🎁کد هدیه ثبت نام Melbet90 
+✌️
+
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9069
 
@@ -296,16 +323,5 @@ Join @TASIYANC
 پ‌ن : انقد سطحی و مبتدیانه ساخته شده بچه ۴ ساله هم میفهمه
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9039
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سازمان وظیفه عمومی فراجا شایعه معافیت سربازان فراری را تکذیب کرد
-
-اطلاعیه سازمان وظیفه عمومی:
-▫️آن دسته از کارکنان وظیفه که به هر دلیل خدمت سربازی خود را به اتمام نرسانده‌اند، می‌بایست وضعیت سربازی خود را از طریق یگان خدمتی تعیین تکلیف کنند و هیچ نوع معافیت جدیدی برای آنان در نظر گرفته نشده است.
-
-@Tasiyanc ✅
 </div>
 

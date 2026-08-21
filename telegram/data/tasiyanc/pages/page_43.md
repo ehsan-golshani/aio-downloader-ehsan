@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/05/30 11:07
+📅 آخرین بروزرسانی: 1405/05/30 12:41
 
 ---
+
+## tasiyanc — post 8350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت دریافت وایرگارد مخصوص گیم و وبگردی وارد ربات تاسیان شوید بگیرید ظرفیت پر شه لینک پاک میکنم
+
+دریافت کانفیگ 🤜
+</div>
 
 ## tasiyanc — post 8349
 
@@ -224,11 +232,5 @@ Multi Location ⚡ Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این ربات بصورت ناشناس ساخته بودم مجبور کردن اطلاع رسانی کنیم پست ها پاک میشه خواستم بگم جریانو فقط ❤️
-</div>
-
-## tasiyanc — post 8314
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرچ نامحدود ۲۰۰ استارز میکنم از پسفردا چون اینا می‌خوان اطلاعات بزارن ❤️
 </div>
 

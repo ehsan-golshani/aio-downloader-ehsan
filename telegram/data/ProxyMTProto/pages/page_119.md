@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 119
 
-📅 آخرین بروزرسانی: 1405/05/30 11:47
+📅 آخرین بروزرسانی: 1405/05/30 12:39
 
 ---
+
+## ProxyMTProto — post 47977
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: our.nolags.pw
+Port: 443
+Secret: dd5088c9e07efb119857c044eb20c50a5b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47976
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ%3D%3D
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47975
 
@@ -163,24 +181,6 @@ Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 Server: eng.nolags.pw
 Port: 443
 Secret: dd390d29157d7c81eb7ce6ac2b50d2d39b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47957
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 15
-Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47956
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: flux.proxytelega.store
-Port: 443
-Secret: eec57f379567b25a79cbd1fa0ad73b98d9666c75782e70726f787974656c6567612e73746f7265
 @ProxyMTProto
 </div>
 

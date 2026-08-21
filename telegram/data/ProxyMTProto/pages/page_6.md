@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/30 11:47
+📅 آخرین بروزرسانی: 1405/05/30 12:39
 
 ---
+
+## ProxyMTProto — post 50249
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50248
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee20e961e9cce4da79d95e399b07edadc13661646632342e6c696e6b776176652e696f
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50247
 
@@ -163,24 +181,6 @@ Secret: ee5622e11fff3e49bcc85280197a6106b5742e6d656f772d6e6574776f726b2e636f6d
 Server: irancell-mci-rightell-adsl.mr-moo.co.uk.
 Port: 443
 Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50229
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: peak.helloworld.surf
-Port: 443
-Secret: ddae7a078698a9289137599c9762db5d65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50228
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: runserver.co.uk
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

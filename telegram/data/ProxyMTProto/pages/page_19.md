@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/30 11:47
+📅 آخرین بروزرسانی: 1405/05/30 12:39
 
 ---
+
+## ProxyMTProto — post 49989
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49987
 
@@ -163,24 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: proxy1.fluxvpnguard.ru
 Port: 443
 Secret: 1a2b3c4d5e6f708192a3b4c5d6e7f809
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49969
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hi.wrenshire.co.uk
-Port: 7980
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: smile.workingproxy.xyz
-Port: 443
-Secret: dd6767547c5dd848f55281e391e0153eae
 @ProxyMTProto
 </div>
 

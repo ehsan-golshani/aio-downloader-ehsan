@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/30 11:07
+📅 آخرین بروزرسانی: 1405/05/30 12:41
 
 ---
+
+## tasiyanc — post 8921
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود دوستان پروفایل چنلمون عوض شد 🌸
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+</div>
 
 ## tasiyanc — post 8918
 
@@ -270,22 +280,5 @@ vmess://eyJhZGQiOiI1LjE4OC4xOTAuMjUyIiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 جنگ سهمگین در راهه؟
 
 🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8896
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📌 آمار دیروز کانال تراست بت :
-
-✅✅✅ 3.46⬅️
-✅✅✅ 3.94⬅️
-✅✅✅ 3.46⬅️
-✅✅✅ 4.67⬅️
-✅✅✅ 2.76⬅️
-✅✅✅ 7.43⬅️
-✅✅✅ 1.30⬅️
-👇بدو جوین شو فرم بعدی بگیر👇
-🆔 https://t.me/+umLw_34TXrEzYTQ0
-🆔 https://t.me/+umLw_34TXrEzYTQ0
 </div>
 

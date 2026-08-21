@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/30 11:07
+📅 آخرین بروزرسانی: 1405/05/30 12:41
 
 ---
+
+## tasiyanc — post 8896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📌 آمار دیروز کانال تراست بت :
+
+✅✅✅ 3.46⬅️
+✅✅✅ 3.94⬅️
+✅✅✅ 3.46⬅️
+✅✅✅ 4.67⬅️
+✅✅✅ 2.76⬅️
+✅✅✅ 7.43⬅️
+✅✅✅ 1.30⬅️
+👇بدو جوین شو فرم بعدی بگیر👇
+🆔 https://t.me/+umLw_34TXrEzYTQ0
+🆔 https://t.me/+umLw_34TXrEzYTQ0
+</div>
 
 ## tasiyanc — post 8894
 
@@ -346,20 +363,5 @@ Replace the background with a realistic environment while preserving the origina
 
 
 ✈️@TASIYANC 💠
-</div>
-
-## tasiyanc — post 8861
-
-<div align="center"><img src="files/post_8861_tasiyanc_8861.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 بازسازی عکس یا فیلم های قدیمی - جدید آسیب دیده با حفظ هویت و نوستالژیک
-
-prompt
-Restore this vintage film frame by removing scratches, dust, flicker, fading and damage while preserving authentic film grain, original contrast, natural texture and historical authenticity.
-
-آموزش استفاده از پرامپت 👉
-
-✈️@TASIYANC ⭐
 </div>
 

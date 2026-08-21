@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 97
 
-📅 آخرین بروزرسانی: 1405/05/30 11:07
+📅 آخرین بروزرسانی: 1405/05/30 12:41
 
 ---
+
+## tasiyanc — post 6443
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+داش این‌کانفنیگی که گذاشتی بات موشکه؟؟؟؟😐😂پشمماامممممم سرعتتوووووو
+</div>
 
 ## tasiyanc — post 6442
 
@@ -165,24 +171,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 FAST⚡TASIYAN🚀.npvt
-</div>
-
-## tasiyanc — post 6414
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان متد جدید  😏
-
-۴سرور  پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

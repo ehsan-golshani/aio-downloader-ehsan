@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/05/30 11:47
+📅 آخرین بروزرسانی: 1405/05/30 12:39
 
 ---
+
+## ProxyMTProto — post 49265
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cloud.neoqua.pro
+Port: 443
+Secret: ee17a8c39b61cada586d48df4c790bc178636c6f75642e6e656f7175612e70726f
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Oh.Oh.AjaB_Sorati_Dare
+Port: 443
+Secret: BeZaN_RoooSh_Connect
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49263
 
@@ -163,24 +181,6 @@ Secret: ee5ab264a139bb00bd82c48212db75f9b33263613136342e7a69706c696e652e6363
 Server: 103.161.35.23
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49245
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

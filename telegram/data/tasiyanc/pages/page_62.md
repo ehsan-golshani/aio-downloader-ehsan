@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/30 11:07
+📅 آخرین بروزرسانی: 1405/05/30 12:41
 
 ---
+
+## tasiyanc — post 7673
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آخر اسم چنل کلمه VPN اضافه شد
+</div>
 
 ## tasiyanc — post 7666
 
@@ -165,12 +171,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جهنمو ضرر ، رو برد کیپ ورد بستم
-</div>
-
-## tasiyanc — post 7630
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شرکت ها و سایتهای معتبر جهت اسپانسری (همکاری) و حمایت از چنل با آیدی پشتیبانی در ارتباط باشید
-@StarTasiyan
 </div>
 

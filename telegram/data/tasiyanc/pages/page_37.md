@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/30 11:07
+📅 آخرین بروزرسانی: 1405/05/30 12:41
 
 ---
+
+## tasiyanc — post 8522
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8520
 
@@ -211,29 +217,5 @@ Loc 🇩🇪 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt
-</div>
-
-## tasiyanc — post 8483
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-10سرور سرعتی پرمیوم سرور ترکیه⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

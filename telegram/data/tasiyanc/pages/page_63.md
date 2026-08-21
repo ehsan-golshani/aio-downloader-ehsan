@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/30 11:07
+📅 آخرین بروزرسانی: 1405/05/30 12:41
 
 ---
+
+## tasiyanc — post 7630
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرکت ها و سایتهای معتبر جهت اسپانسری (همکاری) و حمایت از چنل با آیدی پشتیبانی در ارتباط باشید
+@StarTasiyan
+</div>
 
 ## tasiyanc — post 7629
 
@@ -150,11 +157,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Saiedmusics
 برم رو مادرش یا نه؟ آیدیشو گذاشتم یه اکیپ دارم دارن کل پیامای تلگرامشو درمیارن به کل چنل ناموسی داده ببینم چیکار میکنین
-</div>
-
-## tasiyanc — post 7600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عرزشی لف بده😂
 </div>
 
