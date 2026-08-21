@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/30 15:55
+📅 آخرین بروزرسانی: 1405/05/30 17:07
 
 ---
+
+## ProxyMTProto — post 49715
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Empire-persia.iran.hey-gardash.info.
+Port: 1080
+Secret: 79e344818749bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49714
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: link.mishkalapy.life
+Port: 443
+Secret: ee943031c5687da2dc848bf7582bf801496c696e6b2e6d6973686b616c6170792e6c696665
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49713
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast-proxy.ink
+Port: 443
+Secret: ee98e83ac6806491b9501d3a61cdd59c71666173742d70726f78792e696e6b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49712
 
@@ -154,33 +181,6 @@ Secret: eee09f46368021f91b92ad3dea14c7ac896164312e617269786f2e73686f70
 Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: api.gorbushkin.click
-Port: 443
-Secret: eebeda39dcb3b3bea0da3843853002fe5a6170692e676f72627573686b696e2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49693
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp1.hlebushek.com
-Port: 443
-Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
 @ProxyMTProto
 </div>
 

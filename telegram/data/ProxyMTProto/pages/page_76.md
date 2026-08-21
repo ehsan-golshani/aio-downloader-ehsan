@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/05/30 15:55
+📅 آخرین بروزرسانی: 1405/05/30 17:07
 
 ---
+
+## ProxyMTProto — post 48848
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: web.utkanos.life
+Port: 443
+Secret: ee36fd02bb86fbc4266de3a70114c13a247765622e75746b616e6f732e6c696665
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48847
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gate.klyuch1k.org
+Port: 443
+Secret: eeae941a76ec4acf04faabaf8a24571080676174652e6b6c79756368316b2e6f7267
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48846
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48845
 
@@ -154,33 +181,6 @@ Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 Server: be60e38d.etherealvpn.uk
 Port: 443
 Secret: eee2c4f26e0246dea5eb84f95c325ea46062343233353730312e657468657265616c76706e2e756b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48828
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48827
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy90.arixo.shop
-Port: 443
-Secret: eed715e5e741cb3ce98a926b8ee5ac68dc70726f787939302e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48826
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: should.be.wake.up.ir.yfdhjderkig.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
