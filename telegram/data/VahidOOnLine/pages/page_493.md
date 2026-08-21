@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 493
 
-📅 آخرین بروزرسانی: 1405/05/30 09:18
+📅 آخرین بروزرسانی: 1405/05/30 10:05
 
 ---
+
+## VahidOOnLine — post 243962
+
+<div align="center"><video src="files/post_243962_VahidOOnLine_243962.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243962_VahidOOnLine_243962.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان چهارمحال بختیاری در شهرکرد تجمع کرده و در اعتراض به برخوردهای فیزیکی با آنها، شعار دادند: «محصل داد بزن، حقتو فریاد بزن»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243961
 
@@ -282,19 +295,6 @@
 عون در گفتگویی با شبکه سی‌ان‌ان، ایران را متهم کرده بود که از لبنان به عنوان «برگ چانه‌زنی» در مذاکرات و منازعات خود با آمریکا و اسرائیل استفاده می‌کند و گفته بود مردم لبنان بهای این سیاست‌ها را می‌پردازند.
 رئیس‌جمهوری لبنان همچنین خطاب به ایران و سپاه پاسداران گفته بود: «این کشور، کشور ماست نه کشور شما» و تاکید کرده بود که لبنانی‌ها از جنگ خسته شده‌اند و خواهان زندگی در صلح و ثبات هستند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243942
-
-<div align="center"><video src="files/post_243942_VahidOOnLine_243942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243942_VahidOOnLine_243942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان شیروان در استان خراسان شمالی همزمان با سایر استان‌ها به اعتراضات سراسری دانش‌آموزی علیه سیاست‌های کنکوری و آموزشی حکومت در زمینه تاثیر معدل و شیوه برگزاری امتحانات پیوستند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/05/30 09:21
+📅 آخرین بروزرسانی: 1405/05/30 10:07
 
 ---
+
+## tasiyanc — post 6665
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیست پخش کانالهای خارجی افتتاحیه و بازیهای جام‌جهانی 🔻Persiana Sports HD 🗣 Yahsat / TurkmenAlem 🟢10762 V 27500 🟢 10803 H 27500 🟢 11420 V 27500 🟢 11383 H 27500 🔻​TRT 1 HD 🇹🇷 🗣 Turksat 42°E 🟢 11794 V 30000 🔻​ ATN HD 🗣 Yahsat1A 🟢11938 H 27500 🟢 BISS:1234569C7890ABB3…
+</div>
 
 ## tasiyanc — post 6664
 
@@ -211,25 +217,5 @@ vless://931729a8-3c20-4841-89a1-f18dc9ce0a6f@cdn7-09.vk-cdnvideo.com:8443?securi
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرعت سرویس ساب نامحدود ک براتون گذاشتیم 🚀 داخل چنل پروکسی پین شده ❤️ https://t.me/+v0wRP5SGNrg5MThk 👆
-</div>
-
-## tasiyanc — post 6637
-
-<div align="center"><video src="files/post_6637_tasiyanc_6637.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6637_tasiyanc_6637.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 
-📱 WG tunnel 
-🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

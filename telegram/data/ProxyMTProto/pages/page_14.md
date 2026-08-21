@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/30 09:19
+📅 آخرین بروزرسانی: 1405/05/30 10:05
 
 ---
+
+## ProxyMTProto — post 50084
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: ee16309abd572d284b309ef26bd7a3f68570726f78792e6c6f646b69726d6d2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50083
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50082
 
@@ -163,24 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e63
 Server: shop.startnetwork.shop
 Port: 443
 Secret: dd56771eb41fb312ed11c1993f341aa923
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: eu1.kvakzon.top
-Port: 8443
-Secret: ee75c1ee2fe969feda0442861e991211066575312e6b76616b7a6f6e2e746f70
 @ProxyMTProto
 </div>
 

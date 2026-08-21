@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/05/30 09:21
+📅 آخرین بروزرسانی: 1405/05/30 10:07
 
 ---
+
+## tasiyanc — post 7405
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/TasiyanProxy/1840
+نتیجه بازی رو پیش بینی دقیق کنید کانفیگ بگیرید ، باید عضو چنل پروکسی باشید تا جایزه رو بگیرید
+</div>
 
 ## tasiyanc — post 7403
 
@@ -245,11 +252,5 @@ Melody 🚀.npvt
 
 
  💘@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7350
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ دارک تانل رو از این به بعد تو گروه تاسیان میزارم پین میکنم یکم دیگه ۲.۳ تا می‌زارم ، هرکی خواست جوین بشه لینک عوض میشه https://t.me/+DhVkjFb6qhZmYTFk
 </div>
 

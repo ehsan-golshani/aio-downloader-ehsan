@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/05/30 09:21
+📅 آخرین بروزرسانی: 1405/05/30 10:07
 
 ---
+
+## tasiyanc — post 6138
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😐😐😐 یه دونه هم ری اکشن نزدید
+</div>
 
 ## tasiyanc — post 6137
 
@@ -187,11 +193,5 @@ Fast2⚡@Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc(01).conf
-</div>
-
-## tasiyanc — post 6111
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانفیگا برای تست هست اگر اوکی باشه روش کار میکنیم
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/30 09:21
+📅 آخرین بروزرسانی: 1405/05/30 10:07
 
 ---
+
+## tasiyanc — post 9036
+
+<div align="center"><video src="files/post_9036_tasiyanc_9036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9036_tasiyanc_9036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشماتون بریزه جدیدا تو تهران مهدکودک زدن واسه افراد بالای ۳۰ سال 😂
+
+شما ممکنه وقتی صبح تو خیابون راه میری یه سری مرد سیبیلو و زن ببینید که با کیف باب اسفنجی و عروسکی دارن میرن مهد کودک
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9035
 
@@ -267,26 +281,5 @@ Join As @TASIYANC ✅
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9010
-
-<div align="center"><video src="files/post_9010_tasiyanc_9010.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9010_tasiyanc_9010.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خفن ترین تیپستر های ایران با هم جمع شدن و TRUST BET رو تشکیل دادن
-👍
-
-هیچ سایت بتی دوست نداره شما این کانال رو پیدا کنین
-رایگان بهترین شرط هارو براتون میذاره
-حتی هزار تومن هم دریافت نمیکنه
-سریع از این لینک جوین بدین کانالشون
-👇(این پست پاک میشه)
-g14
-
-https://t.me/+cBQ8n7zLQiUzN2U0
-https://t.me/+cBQ8n7zLQiUzN2U0
 </div>
 

@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/30 09:21
+📅 آخرین بروزرسانی: 1405/05/30 10:07
 
 ---
+
+## tasiyanc — post 9348
+
+<div align="center"><img src="files/post_9348_tasiyanc_9348.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جیسون استاتهام ستاره هالیوود : من فقط می‌خوام کار کنم ، پول دربیارم ، با آدمهای خوب غذا بخورم و هر روز عاشق ؛ یک زن باشم
+
+@Tasiyanc 🕒
+</div>
 
 ## tasiyanc — post 9347
 
@@ -263,15 +273,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 
 اتصال امن برای همه 🇮🇷
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9321
-
-<div align="center"><img src="files/post_9321_tasiyanc_9321.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید نوید محمدزاده با پرچم پِلستین
-
-@Tasiyanc ☑️
 </div>
 

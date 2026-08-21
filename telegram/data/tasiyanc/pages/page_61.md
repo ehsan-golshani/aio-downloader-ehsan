@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/05/30 09:21
+📅 آخرین بروزرسانی: 1405/05/30 10:07
 
 ---
+
+## tasiyanc — post 7700
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لبیك یا رونالدو ، امیدوارم امشب خوشحال باشی ❤️ 7
+</div>
 
 ## tasiyanc — post 7699
 
@@ -219,11 +225,5 @@ VIP 🎯 @Tasiyanc.nm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fast ⚡ Unlimited.npvt
-</div>
-
-## tasiyanc — post 7665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا 😍
 </div>
 

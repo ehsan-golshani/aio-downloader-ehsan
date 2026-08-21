@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/30 09:18
+📅 آخرین بروزرسانی: 1405/05/30 10:05
 
 ---
+
+## VahidOOnLine — post 255144
+
+<div align="center"><video src="files/post_255144_VahidOOnLine_255144.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255144_VahidOOnLine_255144.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش تازه اورشلیم پست می‌گوید سرعت بازسازی توان موشکی جمهوری اسلامی، ارتش و موساد را غافلگیر کرده است. مسئله اصلی دیگر فقط تعداد موشک‌های باقی‌مانده نیست، بلکه سرعت تولید دوباره آن‌هاست.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255143
 
@@ -298,21 +311,6 @@ IranintlTV
 
 پیش‌تر دبیر شورای تامین خراسان رضوی، اعلام کرده بود درگیری در جریان فعالیت دو هیات مذهبی در مشهد، دو مصدوم بر جای گذاشت.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255124
-
-<div align="center"><video src="files/post_255124_VahidOOnLine_255124.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255124_VahidOOnLine_255124.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصاویری که بامداد جمعه ۲۳ مردادماه منتشر شده است، لحظه رهگیری و انهدام پهپادهای انتحاری در آسمان اربیل از سوی نیروهای ائتلاف بین‌المللی به رهبری آمریکا را نشان می‌دهد.
-
-سازمان مبارزه با تروریسم اقلیم کردستان عراق اعلام کرد نیروهای ائتلاف سه پهپاد انتحاری را رهگیری و منهدم کردند. براساس این بیانیه، این عملیات تلفات جانی یا خسارت مادی در پی نداشت و مبدا پرتاب پهپادها نیز اعلام نشده است.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>

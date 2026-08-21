@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/05/30 09:21
+📅 آخرین بروزرسانی: 1405/05/30 10:07
 
 ---
+
+## tasiyanc — post 7473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپستر
+
+4 سرور سرعتی ⚡️
+
+آموزش اتصال ⛓
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7463
 
@@ -163,15 +179,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 برای خرید بازی GTA VI در‌ هر کشور چند روز باید کار کنی ؟
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7435
-
-<div align="center"><img src="files/post_7435_tasiyanc_7435.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برنامه بازی های امروز جام جهانی 🏆
 @Tasiyanc 💠
 </div>
 

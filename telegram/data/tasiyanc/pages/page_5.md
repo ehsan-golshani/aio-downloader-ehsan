@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/30 09:21
+📅 آخرین بروزرسانی: 1405/05/30 10:07
 
 ---
+
+## tasiyanc — post 9397
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی وایرگارد  😎
+
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9396
 
@@ -224,12 +249,5 @@ g26
 
 عسل دانشجوی ۲۱ ساله مهندسی کامپیوتر بود که ۱۸ دی ماه به ضرب گلوله به قتل رسید.
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 قالیباف: ۹۰ میلیون ایرانی حامی نظام جمهوری اسلامی هستن
-@Tasiyanc 🏛
 </div>
 
