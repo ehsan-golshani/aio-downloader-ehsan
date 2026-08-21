@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/05/30 15:25
+📅 آخرین بروزرسانی: 1405/05/30 15:55
 
 ---
+
+## ProxyMTProto — post 47843
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: nova.flowstreamhub.site
+Port: 443
+Secret: eeb1a90b2bd080b288badd320bf824277c6e6f76612e666c6f7773747265616d6875622e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47842
 
@@ -174,15 +183,6 @@ Secret: eeea2f80ea6628006a3db2a8678d65bd07776176652e666c6f776163636573732e736974
 Server: starsvpn.obhod.fun
 Port: 6443
 Secret: 76706e76706e76706e76706e76706e76
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47823
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: spain.nolags.pw
-Port: 443
-Secret: ddda11050e6e98fb151d0094b549b0344a
 @ProxyMTProto
 </div>
 

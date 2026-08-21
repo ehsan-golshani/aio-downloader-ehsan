@@ -1,8 +1,64 @@
 # آرشیو کانال VahidOOnLine - صفحه 194
 
-📅 آخرین بروزرسانی: 1405/05/30 15:24
+📅 آخرین بروزرسانی: 1405/05/30 15:55
 
 ---
+
+## VahidOOnLine — post 251461
+
+<div align="center"><img src="files/post_251461_VahidOOnLine_251461.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️اورشلیم‌پست گزارش داد که دونالد ترامپ، رئیس‌جمهوری آمریکا، در حال آماده شدن برای گسترش چشمگیر عملیات نظامی آمریکا در ایران است؛ موضوعی که به باور مقام‌های اسرائیلی می‌تواند حمله ایران به اسرائیل را به‌دنبال داشته باشد.
+به گزارش این روزنامه اسرائیلی، دو مقام اسرائیلی گفته‌اند ارزیابی دستگاه امنیتی این کشور آن است که اگر آمریکا دامنه حملات خود را به زیرساخت‌های راهبردی ایران و مقام‌های ارشد حکومت گسترش دهد، جمهوری اسلامی احتمالا در پاسخ، مستقیما اسرائیل را هدف قرار خواهد داد.
+در همین راستا، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، شامگاه دوشنبه نشست امنیتی شش‌ساعته‌ای با حضور چند وزیر و مقام‌های ارشد دفاعی برگزار کرد تا تحولات جاری را بررسی کند.
+به گفته یک مقام اسرائیلی، نتانیاهو در جریان این نشست برای گفت‌وگویی کوتاه با مارکو روبیو، وزیر امور خارجه آمریکا، جلسه را ترک کرد.اوایل این هفته نیز یک منبع به اورشلیم‌پست گفته بود که دیگر مسئله این نیست که آیا ترامپ حمله خواهد کرد یا نه، بلکه تنها زمان این حمله مطرح است.
+این منبع افزود: «ترامپ به این نتیجه رسیده است که مگر آنکه تحول غیرمنتظره‌ای رخ دهد، احتمال دستیابی به یک راه‌حل دیپلماتیک اکنون تقریبا از بین رفته است.»
+با این حال، یک مقام دیگر هشدار داد که ترامپ پیش‌تر نیز در «آخرین لحظه» تصمیم خود را تغییر داده است و بنابراین، همچنان ممکن است موضع او دستخوش تغییر شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251460
+
+<div align="center"><video src="files/post_251460_VahidOOnLine_251460.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251460_VahidOOnLine_251460.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو‌های رسیده به ایران‌اینترنشنال فعال شدن پدافند هوایی را در مناطق نیاوران، کاشانک و شرق تهران در ساعات اولیه بامداد چهارشنبه ۳۱ تیر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251459
+
+<div align="center"><video src="files/post_251459_VahidOOnLine_251459.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251459_VahidOOnLine_251459.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسالی به ایران‌اینترنشنال، همراه با ویدیوهای منتشرشده از سوی کانال تلگرامی «وحید آنلاین»، آتش و دود را در منطقه‌ای از بهبهان در بامداد چهارشنبه ۳۱ تیر نشان می‌دهد.
+گزارش‌های منتشرشده حاکی است پادگان بخردیان سپاه در بهبهان خوزستان هدف حمله قرار گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251458
+
+<div align="center"><video src="files/post_251458_VahidOOnLine_251458.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251458_VahidOOnLine_251458.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ستاد فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد نیروهای آمریکا ساعت ۸:۱۵ شامگاه ۲۱ ژوییه به وقت شرق آمریکا، یازدهمین شب متوالی حملات به مواضع حکومت ایران را به پایان رسانده‌اند. به گفته این فرماندهی، در این عملیات مراکز نظامی، توانمندی‌های دریایی، آشیانه‌های هواپیما، انبارهای پهپاد و زیرساخت‌های لجستیکی هدف قرار گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251457
 
@@ -225,57 +281,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️تسنیم ساعت ۲:۴۵ دقیقه بامداد چهارشنبه از شنیده شدن صدای مهیب انفجار در برخی مناطق بوشهر خبر داد. به گزارش این خبرگزاری وابسته به سپاه، حمله هوایی آمریکا به دست‌کم دو نقطه در بوشهر انجام شده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251441
-
-<div align="center"><video src="files/post_251441_VahidOOnLine_251441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251441_VahidOOnLine_251441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تصاویر دریافتی از تبریز در بامداد چهارشنبه، صدای چند انفجار پیاپی در این شهر را ثبت کرده است. شماری از مردم نیز از شنیده شدن چندین صدای بلند انفجار در فاصله زمانی کوتاه خبر داده‌اند.
-پیش از این فارس، خبرگزاری وابسته به سپاه، از شنیده شدن صدای چند انفجار در حوالی جنوب و غرب تبریز و نیز بهبهان و بندر ماهشهر در خوزستان خبر داد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251440
-
-<div align="center"><img src="files/post_251440_VahidOOnLine_251440.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️همزمان با آغاز یازدهمین شب حملات متوالی آمریکا علیه اهداف نظامی در ایران، بامداد چهارشنبه، ولی‌الله حیاتی، معاون امنیتی و انتظامی استانداری خوزستان، اعلام کرد: «نقاطی در اطراف شهرهای بهبهان و امیدیه مورد تهاجم موشکی آمریکا قرار گرفت.» به گزارش ایرنا، صدای انفجار در چابهار، کنارک و سیرک به گوش رسید. پیش از این، فارس از وقوع چند انفجار در حوالی جنوب و غرب تبریز و نیز بهبهان و بندر ماهشهر در خوزستان خبر داد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251439
-
-<div align="center"><video src="files/post_251439_VahidOOnLine_251439.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251439_VahidOOnLine_251439.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در شبکه‌های اجتماعی، همراه با ویدیوی منتشرشده در حساب کاربری «وحید آنلاین»، صدای انفجارهای مهیبی را در تبریز نشان می‌دهد که در پی حمله به مواضع جمهوری اسلامی در بامداد چهارشنبه ۳۱ تیر به وقوع پیوست.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251438
-
-<div align="center"><img src="files/post_251438_VahidOOnLine_251438.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری تسنیم، وابسته به سپاه پاسداران، گزارش داد آمریکا کنگاور در استان کرمانشاه را هدف حمله موشکی قرار داده است.
-
-بر اساس این گزارش، تاکنون جزییاتی درباره اهداف این حمله یا خسارات احتمالی آن منتشر نشده است.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

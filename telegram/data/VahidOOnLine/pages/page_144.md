@@ -1,8 +1,51 @@
 # آرشیو کانال VahidOOnLine - صفحه 144
 
-📅 آخرین بروزرسانی: 1405/05/30 15:24
+📅 آخرین بروزرسانی: 1405/05/30 15:55
 
 ---
+
+## VahidOOnLine — post 252648
+
+<div align="center"><video src="files/post_252648_VahidOOnLine_252648.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252648_VahidOOnLine_252648.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مروری بر مهم‌ترین اخبار و تحلیل‌های رسانه‌های جهان درباره ایران در چهارشنبه ۷ مرداد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252645
+
+<div align="center"><video src="files/post_252645_VahidOOnLine_252645.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252645_VahidOOnLine_252645.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+## VahidOOnLine — post 252644
+
+<div align="center"><img src="files/post_252644_VahidOOnLine_252644.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ خبرگزاری رویترز روز چهارشنبه هفتم مرداد ماه گزارش کرد که فرمانده ارشد نیروهای آمریکایی در خاورمیانه به سربازان هشدار داده است که ویدیوهای تلفن همراه که در اینترنت به اشتراک گذاشته می‌شوند، می‌توانند به ایران در هدف قرار دادن پایگاه‌های آمریکایی کمک کنند. همچنین منابعی به خبرگزاری رویترز گفته‌اند که ممکن است به‌زودی به برخی از نیروهای مستقر در منطقه دستور داده شود تا گوشی‌های خود را تحویل دهند.
+
+براساس این گزارش دریادار برد کوپر، فرمانده سنتکام در نامه‌ای به نیروهای تحت امر خود گفت ایران با جستجوی اخبار یا پیام‌های خبرنگاران که به «واکنش‌ها، عکس‌ها و فیلم‌های گرفته‌شده از گوشی‌های تلفن همراه نیروهای ما» اشاره می‌کنند، توانسته است موفقیت یا شکست حملات خود را به صورت زنده و لحظه‌ای مشاهده کند و از آن بهره ببرد.
+
+براساس این گزارش کوپر از نیروها خواست تا «تمرکز خود را بر امنیت عملیاتی دوچندان کنند».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252643
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروهی از ایرانیان ساکن هامبورگ آلمان روز چهارشنبه هفتم مرداد در تجمعی با شعار «نه به اعدام» گرد هم آمدند و با بازخوانی نام زندانیان در معرض خطر اعدام، خواستار توقف این احکام شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252642
 
@@ -240,67 +283,6 @@
 خبرگزاری تسنیم گزارش کرد که بخش عمده این آتش‌سوزی مهار شده است.
 
 تالاب هورالعظیم در سال‌های گذشته و همزمان با گسترش خشکسالی، یکی از منابع گسترش ریزگردها در آسمان استان‌های غربی و جنوبی ایران بوده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252621
-
-<div align="center"><img src="files/post_252621_VahidOOnLine_252621.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدجواد اشرفی، مدیرکل حفاظت محیط زیست خوزستان، اعلام کرد آتش‌سوزی در بخش ایرانی تالاب هورالعظیم همچنان ادامه دارد، هرچند «بخش‌های عمده» حریق در قسمت شمالی تالاب مهار شده است.
-
-به گزارش خبرگزاری ایرنا، آتش‌سوزی از روز سه‌شنبه در بخشی از تالاب آغاز شد و عملیات مهار آن در سایر مناطق ادامه دارد.
-
-اشرفی گفت علت دقیق آتش‌سوزی هنوز مشخص نیست، اما بر اساس شواهد اولیه، احتمال می‌رود این حریق «منشا انسانی و عمدی» داشته باشد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252611
-
-<div align="center"><video src="files/post_252611_VahidOOnLine_252611.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252611_VahidOOnLine_252611.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فایننشال تایمز: امارات در حال احیای روابط اقتصادی با ایران است، اما هم‌زمان همکاری دفاعی خود با آمریکا و اسرائیل را گسترش می‌دهد. راهبردی پرریسک برای حفظ امنیت و رونق اقتصادی در میانه جنگ.
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252610
-
-<div align="center"><img src="files/post_252610_VahidOOnLine_252610.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیاتی از نیروی هوایی کویت به ریاست فهد فلاح الخرینج، فرمانده نیروی هوایی این کشور، در جریان سفری به اردن با جهاد عبداللطیف البطوش، فرمانده نیروی هوایی این کشور دیدار و درباره راه‌های تقویت همکاری‌های نظامی و آموزشی میان دو طرف گفت‌وگو کرد.
-
-دو طرف در این نشست راه‌های گسترش همکاری‌های نظامی، تبادل تجربه در زمینه آموزش و تربیت نیروی هوایی و شماری از موضوع‌های مورد علاقه مشترک را بررسی کردند.
-
-در این بیانیه آمده است این رایزنی‌ها با هدف تقویت همکاری میان دو نیروی هوایی انجام شده و بیانگر روابط برادرانه و تاریخی میان کویت و اردن است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252609
-
-<div align="center"><video src="files/post_252609_VahidOOnLine_252609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252609_VahidOOnLine_252609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ویدیویی که به‌تازگی در شبکه‌های اجتماعی منتشر شده، لحظه نزدیک‌شدن یک آهو به محیط‌بان را نشان می‌دهد؛ نمونه‌ای از اعتماد حیات وحش به انسان.
-
-در این ویدیو، آهو سر خود را داخل جیب لباس محیط‌بان می‌کند و به دنبال غدا می‌گردد.
-محل ثبت این تصاویر مشخص نشده است.
-
-این لحظه نادر با واکنش کاربران شبکه‌های اجتماعی همراه شده و بسیاری آن را نمونه‌ای از ارتباط نزدیک حیوانات وحشی با نیروهای حفاظت محیط‌زیست دانسته‌اند؛ نیروهایی که در بسیاری از مناطق، علاوه بر مراقبت از زیستگاه‌ها، در شرایط سخت به نجات و تغذیه اضطراری حیوانات نیز کمک می‌کنند.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

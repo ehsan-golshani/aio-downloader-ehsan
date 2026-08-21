@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/30 15:25
+📅 آخرین بروزرسانی: 1405/05/30 15:55
 
 ---
+
+## ProxyMTProto — post 48083
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48082
 
@@ -172,15 +181,6 @@ Secret: ee7930091e4348bb260a09c61562aa661a6465736b2e70726f787974672e6c697665
 Server: Unknown
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: surge.linkflowhub.shop
-Port: 443
-Secret: ee932f87d141afddf9a957c5e3c85d8bb673757267652e6c696e6b666c6f776875622e73686f70
 @ProxyMTProto
 </div>
 
