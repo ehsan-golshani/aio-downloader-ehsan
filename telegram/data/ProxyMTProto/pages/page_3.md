@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/30 14:18
+📅 آخرین بروزرسانی: 1405/05/30 14:47
 
 ---
+
+## ProxyMTProto — post 50313
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: x.shmelproxy.top
+Port: 443
+Secret: eefc2612ff65a557fddf1d1b334395ef23617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50312
 
@@ -174,14 +183,5 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 
 Want to post your proxy here? 😏 @SProxyRobot
 Reserve your slot through the bot in seconds.
-</div>
-
-## ProxyMTProto — post 50293
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: edge2.medhata.org
-Port: 2443
-Secret: ee210a1476d9f3374fed48b19ccd3ad7b665646765322e6d6564686174612e6f7267
-@ProxyMTProto
 </div>
 
