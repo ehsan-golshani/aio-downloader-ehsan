@@ -1,8 +1,67 @@
 # آرشیو کانال VahidOOnLine - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/05/30 17:07
+📅 آخرین بروزرسانی: 1405/05/30 17:48
 
 ---
+
+## VahidOOnLine — post 255853
+
+<div align="center"><video src="files/post_255853_VahidOOnLine_255853.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255853_VahidOOnLine_255853.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدباقر قالیباف، رئیس مجلس و عضو ارشد هیات مذاکره‌کننده جمهوری اسلامی، روز چهارشنبه ۲۸ مردادماه در بغداد با نزار آمیدی، رئیس جمهوری عراق دیدار و گفتگو کرد.
+
+این سفر همزمان با ادامه تنش‌ها در خاورمیانه و یک روز پس از پایان مهلت ۶۰ روزه توافق میان تهران و واشنگتن براساس تفاهم‌نامه اسلام‌آباد انجام می‌شود.
+
+دولت عراق اعلام کرده که گروه‌های شبه‌نظامی باید تا ماه آینده سلاح خود را تحویل دهند. شبه‌نظامیان حشد شعبی که در دوران حملات داعش و با حمایت جمهوری اسلامی تشکیل شدند، در برابر این تصمیم مقاومت می‌کنند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255852
+
+<div align="center"><img src="files/post_255852_VahidOOnLine_255852.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش وای‌نت، نفتالی بنت، نخست‌وزیر پیشین اسرائیل، گفت که در صورت بازگشت به قدرت، معادله بازدارندگی را تغییر خواهد داد و هر حمله حزب‌الله باعث خواهد شد ما ایران را هدف قرار دهیم.
+
+نفتالی بنت همچنین وعده داد قطر را «کشور دشمن» اعلام کند.
+
+نخست‌وزیر پیشین اسرائیل ادامه داد: «ترکیه و قطر را از غزه خارج خواهیم کرد و به جای آن‌ها مصر را وارد می‌کنیم و در عین حال آزادی عمل اسرائیل در غزه را حفظ خواهیم کرد.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255845
+
+<div align="center"><img src="files/post_255845_VahidOOnLine_255845.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری ایسنا روز چهارشنبه ۲۸ مردادماه با انتشار گزارشی اعلام کرد با وجود تلاش‌های گسترده سازمان‌های دولتی و مردمی برای پاکسازی لکه‌های نفتی، سواحل جزیره قشم همچنان با آلودگی ناشی از این اثر جنگ مواجه‌اند.
+
+در پی حملات سنتکام و نیروهای مسلح جمهوری اسلامی ایران به نفتکش‌ها در تنگه هرمز، هم سواحل ایران و هم سواحل عمان درگیر آلودگی ناشی از نشت نفت‌کش‌های آسیب‌دیده در این منطقه هستند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255844
+
+<div align="center"><video src="files/post_255844_VahidOOnLine_255844.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255844_VahidOOnLine_255844.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرکت چینی «لنداسپیس» چهارشنبه ۲۸ مرداد برای نخستین بار پیشران تقویتی (Booster) موشک «ژوکو-۳» را پس از پرتاب با موفقیت فرود آورد و به جمع اسپیس‌ایکس و بلو اوریجین در بازیابی بوستر موشک‌ها پیوست. این شرکت قصد دارد بوستر ژوکو-۳ را تا ۲۰ بار استفاده مجدد کند؛ دستاوردی که می‌تواند هزینه پرتاب‌های فضایی را کاهش دهد و فاصله چین را با آمریکا در فناوری موشک‌های چندبارمصرف کمتر کند.
+این موشک از فولاد ضدزنگ ساخته شده و به‌عنوان پاسخ چین به موشک «فالکون ۹» اسپیس‌ایکس معرفی شده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255843
 
@@ -253,56 +312,6 @@ Indypersian
 
 همین دو مقام که نام آن‌ها اعلام نشده می‌گویند نیروهای مسلح جمهوری اسلامی به‌طور جداگانه حمله به کابل‌های فیبر نوری زیر دریایی در تنگه هرمز را در صورت تشدید تنش‌ها، بررسی کرده‌اند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255827
-
-<div align="center"><video src="files/post_255827_VahidOOnLine_255827.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255827_VahidOOnLine_255827.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیلگر سیاسی، با اشاره به گزارش سی‌ان‌ان درباره توقف گفت‌وگوهای آمریکا با جمهوری‌اسلامی گفت این تحول را می‌توان یک «تغییر راهبردی» دانست، زیرا نه‌تنها ابزار فشار، بلکه منطق واشینگتن برای رسیدن به هدف سیاسی نیز در حال تغییر است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255826
-
-<div align="center"><video src="files/post_255826_VahidOOnLine_255826.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255826_VahidOOnLine_255826.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل، با اشاره به تصمیم فرانسه برای اخراج دو دیپلمات جمهوری‌اسلامی در واکنش به بازداشت و بدرفتاری با دو دیپلمات فرانسوی در تهران، گفت جمهوری‌اسلامی رژیمی «متجاوز، طغیانگر و تروریست‌پرور» است و سابقه‌ای طولانی در نقض مصونیت دیپلماتیک دارد.
-
-او گفت جمهوری‌اسلامی با این اقدامات حتی کشورهایی را که حاضر به میانجی‌گری با تهران بوده‌اند، از خود دور می‌کند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255816
-
-<div align="center"><img src="files/post_255816_VahidOOnLine_255816.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مهم‌ترین خبرها و تحلیل‌های رسانه‌های جهان درباره ایران در ۲۴ ساعت گذشته
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255811
-
-<div align="center"><img src="files/post_255811_VahidOOnLine_255811.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نائینی فقط زبان یک شهر نیست، حافظهٔ زندهٔ نسل‌هایی است که جهان را با واژه‌هایی متفاوت روایت کرده‌اند. آیا این صدای کهن به نسل بعد خواهد رسید؟
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>
