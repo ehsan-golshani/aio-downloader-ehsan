@@ -1,8 +1,39 @@
 # آرشیو کانال VahidOOnLine - صفحه 136
 
-📅 آخرین بروزرسانی: 1405/05/31 19:17
+📅 آخرین بروزرسانی: 1405/05/31 19:40
 
 ---
+
+## VahidOOnLine — post 253067
+
+<div align="center"><img src="files/post_253067_VahidOOnLine_253067.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ انتشار ویژگی جدید گوگل که به کاربران اجازه می‌دهد تصاویر ماهواره‌ای «گوگل ارث» را به‌صورت دیجیتالی ویرایش کنند، تلاش‌ها برای راستی‌آزمایی ادعاهای نظامی در جریان جنگ آمریکا و ایران را پیچیده‌تر کرده است.
+
+بر اساس تحلیل شبکه «سی‌بی‌اس نیوز»، ویرایشگر هوش مصنوعی جدید گوگل (Nano Banana 2) می‌تواند تصاویر جعلی با ظاهر کاملا واقعی از تخریب تجهیزات نظامی آمریکا در پایگاه هوایی «موفق السلطی» در اردن تولید کند؛ پایگاهی که هدف حملات متعدد جمهوری اسلامی ایران بوده است. اگرچه گوگل هدف از ارائه این ابزار را کمک به معلمان تاریخ یا برنامه‌ریزان شهری اعلام کرده، اما آزمایش‌ها نشان داد می‌توان با آن نشانه‌های سوختگی و هواپیماهای آسیب‌دیده را به تصاویر واقعی اضافه کرد.
+
+گوگل اعلام کرده که تمامی این تصاویر حاوی واترمارک دیجیتالی «SynthID» هستند و کاربران می‌توانند از طریق برنامه «جمنای» یا «گوگل لنز»، هوش مصنوعی بودن آن‌ها را تشخیص دهند. با این حال، بررسی‌های سی‌بی‌اس نیوز نشان داد که با برش دادن (Crop) تصویر، گوگل لنز نه تنها دستکاری تصویر را تشخیص نداد، بلکه به‌اشتباه اعلام کرد که تصویر متعلق به تخریب هواپیماها در پایگاهی در شیراز است!
+
+این ابزار جدید در حالی جنجال‌برانگیز شده که جمهوری اسلامی ایران بارها تصاویر ماهواره‌ای بدون منبعی از خسارات پایگاه‌های آمریکا منتشر کرده است؛ از جمله روز جمعه که تصاویری از تخریب جنگنده‌های F-35 در پایگاه اردن را منتشر کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253066
+
+<div align="center"><video src="files/post_253066_VahidOOnLine_253066.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253066_VahidOOnLine_253066.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال، دود غلیظ در شمال شرق تهران را در جمعه نهم مرداد نشان می‌دهد.
+سخنگوی آتش‌نشانی تهران اعلام کرد دود مشاهده‌شده در شرق پایتخت ناشی از آتش‌سوزی در فضای سبز و محل تجمع ضایعات در جاجرود است و عملیات اطفای آتش همچنان ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253065
 
@@ -268,30 +299,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کرمانشاه؛ برگزاری مراسم زادروز جاویدنام معین رنجبر بر مزارش ـ گزارشگر
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253032
-
-<div align="center"><video src="files/post_253032_VahidOOnLine_253032.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253032_VahidOOnLine_253032.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«آمدم صرافی، می‌گویند فقط دلار می‌خرند» ـ گزارشگر
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253026
-
-<div align="center"><img src="files/post_253026_VahidOOnLine_253026.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مروری بر مهم‌ترین اخبار و تحولات جنگ در روز جمعه ۹ مرداد، از تحرکات نظامی تا تازه‌ترین مواضع سیاسی و دیپلماتیک.
 ‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine

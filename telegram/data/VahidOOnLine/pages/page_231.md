@@ -1,8 +1,35 @@
 # آرشیو کانال VahidOOnLine - صفحه 231
 
-📅 آخرین بروزرسانی: 1405/05/31 19:17
+📅 آخرین بروزرسانی: 1405/05/31 19:40
 
 ---
+
+## VahidOOnLine — post 250812
+
+<div align="center"><img src="files/post_250812_VahidOOnLine_250812.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، لیندزی فورمن و کریگ فورمن، زوج بریتانیایی زندانی در اوین، پس از بیش از دو ماه اعتصاب غذا، قند و نمک را نیز از رژیم غذایی خود حذف کرده‌اند و اکنون تنها آب مصرف می‌کنند.
+اطلاعات رسیده به ایران‌اینترنشنال حاکی است کریگ فورمن از پنج روز پیش و لیندزی فورمن از سه روز پیش وارد مرحله اعتصاب با آب خالی شده‌اند.
+بر اساس این اطلاعات، این زوج همچنان از رسیدگی پزشکی، تماس با فرزندان خود و دریافت دارو و لوازم ضروری محروم هستند.
+یک منبع آگاه به ایران‌اینترنشنال گفت با وجود گذشت بیش از دو ماه از آغاز اعتصاب غذای این زوج و چند روز از اعتصاب با آب خالی، تاکنون هیچ‌گونه سرم‌درمانی برای لیندزی فورمن و کریگ فورمن انجام نشده و وضعیت جسمی هر دو «بسیار وخیم» است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250811
+
+<div align="center"><video src="files/post_250811_VahidOOnLine_250811.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250811_VahidOOnLine_250811.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در پی دریافت گزارش‌هایی مبنی بر شلیک موشک از جنوب شرقی استان زنجان در روز ۲۷ تیرماه، ویدیوهای ارسالی به ایران اینترنشنال نیز نشان‌دهنده رد موشک در آسمان شهر ابهر است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250810
 
@@ -277,35 +304,6 @@ iranintl
 🔹من از مشهد پیام می‌دم، خواستم بگم وضعیت توی مشهد خیلی بده، اینترنت نیست، برق هم قطع می‌کنن، به امید آزادی.
 
 🔹از رشت: داروهایی که برای زنان باردار پرخطر حیاتی است، در هیچ داروخانه‌ای موجود نیست! اون‌وقت می‌گن بچه بیارید، الان من باید چه‌کار کنم؟
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250792
-
-<div align="center"><img src="files/post_250792_VahidOOnLine_250792.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارتش اردن ظهر شنبه از حمله پهپادی به این کشور خبر داد و اعلام کرد که چهار فروند پهپاد وارد حریم هوایی اردن شده است.
-
-ارتش اردن اضافه کرد که این چهار پهپاد رهگیری و سرنگون شدند.
-
-همچنین شرکت نفت کویت گزارش داد حملات جمهوری اسلامی به یک سایت نفتی، خسارات مادی سنگین و زخمی بر جای گذاشته است.
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250791
-
-<div align="center"><video src="files/post_250791_VahidOOnLine_250791.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250791_VahidOOnLine_250791.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد که ۲۷ تیر، ترکیدگی لوله گاز در خیابان ولیعصر تهران اعزام خودروهای آتش‌نشانی به حوالی بیمارستان دی را در پی داشت.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
