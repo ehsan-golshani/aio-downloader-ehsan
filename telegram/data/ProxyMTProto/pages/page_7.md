@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/31 14:23
+📅 آخرین بروزرسانی: 1405/05/31 14:42
 
 ---
+
+## ProxyMTProto — post 50265
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50264
 
@@ -172,15 +181,6 @@ Secret: eeddff05e65a69a6a7fd1a28a28a121fff7765622e62616c652e6169
 Server: edge.catsproxy.shop
 Port: 443
 Secret: ee77e833a4cf612b12af5c86614cc5291a656467652e6361747370726f78792e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50245
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: sioms.co.uk
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
