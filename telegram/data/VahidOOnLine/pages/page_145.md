@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 145
 
-📅 آخرین بروزرسانی: 1405/06/01 02:13
+📅 آخرین بروزرسانی: 1405/06/01 02:40
 
 ---
+
+## VahidOOnLine — post 252897
+
+<div align="center"><video src="files/post_252897_VahidOOnLine_252897.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252897_VahidOOnLine_252897.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«برق قطعه و مامانم بدون دستگاه اکسیژن نمی‌تونه نفس بکشه» - گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252896
+
+<div align="center"><video src="files/post_252896_VahidOOnLine_252896.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252896_VahidOOnLine_252896.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حمله فرد حامی حکومت به یک دختر به دلیل داشتن سگ ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252895
+
+<div align="center"><video src="files/post_252895_VahidOOnLine_252895.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252895_VahidOOnLine_252895.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«قیمت‌های شرکت‌های تاکسی‌اینترنتی جوابگوی هزینه‌های ما در تهران نیست» ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252894
 
@@ -239,56 +278,6 @@
 ♦️روابط عمومی سپاه انصارالمهدی استان زنجان، با انتشار بیانیه‌ای از کشته شدن سه نفر از نیروهای این سپاه در حمله آمریکا در روز هشتم مرداد ماه خبر داد.
 بر اساس این اطلاعیه که در خبرگزاری حکومتی تسنیم منتشر شده است، محمود ملاجباری، محمدرضا چراغی و جمال امیری، جریان «حمله موشکی» کشته شده‌اند.
 این خبر در حالی منتشر می‌شود که در اطلاعیه منتشرشده از سوی فرماندهی مرکزی نیروهای مسلح آمریکا (سنتکام) و همچنین رسانه‌های رسمی ایران، تاکنون گزارشی درباره حمله آمریکا به استان زنجان در روز هشتم مرداد ماه منتشر نشده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252873
-
-<div align="center"><video src="files/post_252873_VahidOOnLine_252873.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252873_VahidOOnLine_252873.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ در پی حملات بامداد پنجشنبه هشتم مرداد ارتش آمریکا به استان‌های جنوبی ایران، خبرگزاری حکومتی تسنیم و صدا و سیما، تصاویری که گفته می‌شود، آثار تخریب این حملات است را منتشر کردند.
-صدا و سیمای فارس، تصاویری از تخریب یک سالن ورزشی در فراشبند، از «حمله موشکی آمریکا» خبر داد. خبرگزاری تسنیم نیز ویدیویی از به وجود آمدن یک حفره بزرگ در محل یک ساختمان مسکونی در چاهتنگوی قشم را منتشر کرد.
-پیشتر دانشگاه علوم پزشکی هرمزگان اعلام کرد در این حمله، پدر و مادر یک خانواده و یک کودک دو ساله کشته شدند و دو کودک هفت و ۹ ساله نیز زخمی و به بیمارستان منتقل شدند. مقام‌های استان هرمزگان همچنین گفته‌اند نیروهای امدادی همچنان در حال جستجو در محل حادثه هستند و عملیات آواربرداری ادامه دارد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252863
-
-<div align="center"><video src="files/post_252863_VahidOOnLine_252863.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252863_VahidOOnLine_252863.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مروری بر مهم‌ترین اخبار و تحولات جنگ در روز پنجشنبه ۸ مرداد، از تحرکات نظامی تا تازه‌ترین مواضع سیاسی و دیپلماتیک.
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252862
-
-<div align="center"><video src="files/post_252862_VahidOOnLine_252862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252862_VahidOOnLine_252862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️روایت شهروندان قشم از حملات آمریکا در سپیده‌دم پنجشنبه؛ تشبیه طلوع آفتاب و ستون دود به «نبرد خیر و شر»
-
-♦️دو شهروند ساکن قشم در جنوب ایران، با انتشار ویدیویی در شبکه‌های اجتماعی از وضعیت این جزیره پس از حملات گسترده آمریکا در بامداد پنجشنبه هشتم مرداد روایت کردند.
-در یکی از این تصاویر، شهروندی اهل قشم، طلوع خورشید در شرق جزیره را هنگام برخاستن ستون دود از محل حملات آمریکا به تصویر کشید و آن را به حضور «خیر و شر» همزمان توصیف کرد.
-
-به گزارش این کاربر شبکه‌های اجتماعی، حملات از حدود ساعت ۳:۳۰ بامداد آغاز شد و چند نقطه در قشم هدف قرار گرفت.
-
-این روایت‌ها در حالی منتشر می‌شود که دونالد ترامپ، رئیس‌جمهوری آمریکا، پیش‌تر در واکنش به حملات موشکی جمهوری اسلامی به اردن گفته بود: «حالا ما سخت به ایران حمله می‌کنیم.»
-
-دانشگاه علوم پزشکی هرمزگان گزارش کرده است، در نتیجه حملات آمریکا به منطقه چاهتنگو در قشم، سه تن از اعضای یک خانواده کشته شده‌اند.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
