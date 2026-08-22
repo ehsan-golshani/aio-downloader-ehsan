@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 375
 
-📅 آخرین بروزرسانی: 1405/06/01 00:49
+📅 آخرین بروزرسانی: 1405/06/01 01:18
 
 ---
+
+## VahidOOnLine — post 247539
+
+<div align="center"><img src="files/post_247539_VahidOOnLine_247539.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حمیدرضا محمدحسینی تختی، مدیر بنادر شرق استان هرمزگان، گفت: وضعیت بندر سیریک عادی است و خسارتی به بندر و تجهیزات و اسکله‌های آن وارد نشده است.
+
+به گزارش خبرگزاری مهر، او اشاره کرد که بندر سیریک روال طبیعی و عادی دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247538
+
+<div align="center"><img src="files/post_247538_VahidOOnLine_247538.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️محمود صابر در دقیقه ۵ بازی موفق شد گل اول را برای تیم ملی مصر مقابل ایران به ثمر برساند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247537
 
@@ -241,30 +265,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️طرفداران حزب‌الله، جمعه‌شب، در پی امضای «توافق‌نامه سه‌جانبه» لبنان با اسرائیل و ایالات متحده، پایتخت لبنان را به ناآرامی و آشوب کشاندند. براساس گزارش‌های منتشر شده از بیروت، طرفداران حزب‌الله با حضور در خیابان‌ها، آتش زدن لاستیک‌ها و مسدود کردن راه‌ها، خشم خود را نسبت به این اقدام مقامات لبنانی ابراز کرده‌اند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247512
-
-<div align="center"><img src="files/post_247512_VahidOOnLine_247512.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تام کاتن، سناتور جمهوری‌خواه در ایکس نوشت: «وحشی‌های حزب‌الله خون آمریکایی‌ها را بر دستان خود دارند. از ترامپ و وزیر خارجه آمریکا به‌دلیل دستیابی به این توافق مهم که گروه نیابتی تروریستی جمهوری اسلامی را مهار خواهد کرد، قدردانی می‌کنم. بگذارید صریح بگویم: تهران هیچ آینده‌ای در لبنان ندارد»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247511
-
-<div align="center"><img src="files/post_247511_VahidOOnLine_247511.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ابراهیم عزیزی، رییس کمیسیون امنیت ملی و سیاست خارجی مجلس جمهوری اسلامی، آمریکا را متهم کرد که «در میانه مذاکره به ایران حمله کرده است.»
-
-او نوشت دونالد ترامپ به اصول مذاکره و آتش‌بس پایبند نیست و مدعی شد نقض آتش‌بس از سوی آمریکا به عقب‌نشینی و پشیمانی این کشور منجر خواهد شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
