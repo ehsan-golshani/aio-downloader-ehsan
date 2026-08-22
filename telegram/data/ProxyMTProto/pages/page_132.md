@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 132
 
-📅 آخرین بروزرسانی: 1405/05/31 18:40
+📅 آخرین بروزرسانی: 1405/05/31 19:18
 
 ---
+
+## ProxyMTProto — post 47762
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp7.sosproxy.space
+Port: 443
+Secret: ee77eea55483cdb42d81ab76a5ceddc28d64726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47761
 
@@ -175,15 +184,6 @@ Secret: eebb8fe6fb6d181e454f4454195b880e627233342e70726f787974672e7370616365
 Server: crystal.nolags.pw
 Port: 443
 Secret: dd830d4ed967d6deb679cf74c9b10d0ddb
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47742
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/05/31 18:40
+📅 آخرین بروزرسانی: 1405/05/31 19:18
 
 ---
+
+## ProxyMTProto — post 48162
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.nilmart.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48161
 
@@ -172,15 +181,6 @@ Secret: ee5213729eae4670d804f594044f81b831617669746f2e7275
 Server: 65.109.255.99
 Port: 443
 Secret: YyEEgYdJXfrFmgMCIMJdjgYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYY
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Gengbeng.etherealvpn.uk
-Port: 443
-Secret: eec3332fab3d82ff009bc26822e5b7dc84617669746f2e7275
 @ProxyMTProto
 </div>
 
