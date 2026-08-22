@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 129
 
-📅 آخرین بروزرسانی: 1405/05/31 12:44
+📅 آخرین بروزرسانی: 1405/05/31 13:14
 
 ---
+
+## ProxyMTProto — post 47810
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dash.flowstreamhub.site
+Port: 8443
+Secret: eeef254d73d0f3c934acf304ca0e6b9cc2646173682e666c6f7773747265616d6875622e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47809
 
@@ -172,15 +181,6 @@ Secret: dd2c611b53a9c82f662081daed93cc3cb3
 Server: fast.quickrouteapp.xyz
 Port: 8443
 Secret: ee80aa4a3c8b88e873af8b323a6c485efa666173742e717569636b726f7574656170702e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47790
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 

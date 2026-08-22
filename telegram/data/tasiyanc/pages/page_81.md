@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/05/31 11:44
+📅 آخرین بروزرسانی: 1405/05/31 13:16
 
 ---
+
+## tasiyanc — post 6985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از این به بعد ۲ فایل یه جا میزاریم
+یکی NPV TUNNEL یکی HTTPCUSTUM
+هر کی هر کدوم دوست داره وصل شه
+</div>
 
 ## tasiyanc — post 6984
 
@@ -255,11 +263,5 @@ T.me/Tasiyanc ✅
 https://play.google.com/store/apps/details?id=net.darktunnel.app
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 6950
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب خب دست پر اومدیم
 </div>
 

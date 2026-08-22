@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/05/31 11:44
+📅 آخرین بروزرسانی: 1405/05/31 13:16
 
 ---
+
+## tasiyanc — post 7285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
+
+برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
+
+دانلود Dark Tunnel  🕹
+
+آموزش اتصال به سرور دارک ⏩
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7284
 
@@ -176,12 +190,6 @@
 ## tasiyanc — post 7253
 
 <div align="center"><img src="files/post_7253_tasiyanc_7253.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل ایران رف وار آفساید شد
-</div>
-
-## tasiyanc — post 7252
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گل ایران رف وار آفساید شد

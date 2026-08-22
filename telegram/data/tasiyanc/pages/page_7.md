@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/31 11:44
+📅 آخرین بروزرسانی: 1405/05/31 13:16
 
 ---
+
+## tasiyanc — post 9369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 قالیباف: ۹۰ میلیون ایرانی حامی نظام جمهوری اسلامی هستن
+@Tasiyanc 🏛
+</div>
 
 ## tasiyanc — post 9368
 
@@ -234,15 +241,5 @@ g25
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 معاوضه امیر با دسته بیل
-</div>
-
-## tasiyanc — post 9348
-
-<div align="center"><img src="files/post_9348_tasiyanc_9348.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جیسون استاتهام ستاره هالیوود : من فقط می‌خوام کار کنم ، پول دربیارم ، با آدمهای خوب غذا بخورم و هر روز عاشق ؛ یک زن باشم
-
-@Tasiyanc 🕒
 </div>
 

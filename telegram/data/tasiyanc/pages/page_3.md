@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/31 11:44
+📅 آخرین بروزرسانی: 1405/05/31 13:16
 
 ---
+
+## tasiyanc — post 9470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9469
 
@@ -349,15 +359,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 + حالا بعد از سال ها، تصاویر نمونه اولیه اون منتشر شده.
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

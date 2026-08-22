@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/05/31 12:44
+📅 آخرین بروزرسانی: 1405/05/31 13:14
 
 ---
+
+## ProxyMTProto — post 49779
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: relaywise.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49778
 
@@ -172,15 +181,6 @@ Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 Server: wave.savelyev.click
 Port: 443
 Secret: eeba2e1341a08483c2cede6818498348ff776176652e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49759
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

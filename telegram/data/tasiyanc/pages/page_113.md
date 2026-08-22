@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/05/31 11:44
+📅 آخرین بروزرسانی: 1405/05/31 13:16
 
 ---
+
+## tasiyanc — post 6053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه چیزای دستم رسیده نمی‌دونم بزارم نزارم🤣
+</div>
 
 ## tasiyanc — post 6052
 
@@ -126,11 +132,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مال منم حالا چیکاکنم برکرده
-</div>
-
-## tasiyanc — post 6029
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اره برامنم امروز پرید
 </div>
 

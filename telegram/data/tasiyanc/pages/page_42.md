@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/05/31 11:44
+📅 آخرین بروزرسانی: 1405/05/31 13:16
 
 ---
+
+## tasiyanc — post 8412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فینال جام‌جهانی 2026 🌍 اسپانیا 🇪🇸  آرژانتین 🇦🇷 ⏰‌ ساعت 22.30 @TasiyanC ✅
+</div>
 
 ## tasiyanc — post 8411
 
@@ -200,15 +206,5 @@ IP
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۹۹٪ اخبار امشب فیکن و پوشش ندادیم
-</div>
-
-## tasiyanc — post 8382
-
-<div align="center"><img src="files/post_8382_tasiyanc_8382.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با دو تا نود چنل vip نیلی افشار برید بخوابید که الان داره بابت هرکدوم ۷ میلیون پول میگیره :))) 🚫
-
-📥 مشاهده 👉
 </div>
 

@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/31 11:44
+📅 آخرین بروزرسانی: 1405/05/31 13:16
 
 ---
+
+## tasiyanc — post 9493
+
+<div align="center"><img src="files/post_9493_tasiyanc_9493.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران عالیه، کتاب شیطان پرستی نوشتن، بعد صفحه اولش: بسم الله الرحمن الرحیم.
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9492
 
@@ -441,15 +451,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 Join As @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 
