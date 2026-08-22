@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 368
 
-📅 آخرین بروزرسانی: 1405/05/31 08:52
+📅 آخرین بروزرسانی: 1405/05/31 09:26
 
 ---
+
+## VahidOOnLine — post 247591
+
+<div align="center"><video src="files/post_247591_VahidOOnLine_247591.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247591_VahidOOnLine_247591.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد گروهی از پادشاهی‌خواهان روز ششم تیر مقابل پارلمان فنلاند در هلسینکی تجمع کردند. حاضران در این گردهمایی ضمن حمایت از شاهزاده رضا پهلوی، به اعدام‌ها در ایران اعتراض کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247590
+
+<div align="center"><video src="files/post_247590_VahidOOnLine_247590.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247590_VahidOOnLine_247590.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد گروهی از پادشاهی‌خواهان روز ششم تیر مقابل پارلمان فنلاند در هلسینکی تجمع کردند. حاضران در این گردهمایی ضمن حمایت از شاهزاده رضا پهلوی، به اعدام‌ها در ایران اعتراض کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247589
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️چارلز سوم، پادشاه بریتانیا، روز شنبه ششم تیر، در مراسم افتتاح نشست جدید پارلمان اسکاتلند، با اشاره به چالش‌های پیش روی این کشور گفت نمایندگان کار خود را در شرایطی آغاز می‌کنند که «همه ما با جهانی نامطمئن روبه‌رو هستیم.»
+
+او همچنین گفت بسیاری از مردم با مشکلات معیشتی دست‌وپنجه نرم می‌کنند و از نمایندگان خواست برای حفاظت از منابع طبیعی اسکاتلند و پاسخ به نیازهای شهروندان تلاش کنند.
+
+چارلز سوم در آغاز سخنانش نیز گفت از حضور دوباره در مراسم افتتاح نشست جدید پارلمان اسکاتلند «بسیار خرسند» است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247588
 
@@ -267,46 +306,6 @@
 
 این آلبوم را ورق بزنید.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247571
-
-<div align="center"><img src="files/post_247571_VahidOOnLine_247571.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️بازیکنان و کادر فنی تیم ملی فوتبال ایران پس از مساوی یک یک با مصر، با یادداشت تشکری، با ورزشگاه سیاتل وداع و بر بازی جوانمردانه تاکید کردند.
-
-در این پیام تشکر آمده است: «از ایران آمده‌ایم؛ از سرزمینی که هزاران سال، شرافت را بالاتر از پیروزی دانسته است.
-برای ما، فوتبال فقط رقابت برای نتیجه نیست؛ آزمونی است برای شخصیت.
-شاید بتوان با هر راهی امتیاز گرفت، اما احترام را نه. شاید بتوان از یک گروه صعود کرد، اما از قضاوت تاریخ، تنها با جوانمردی می‌توان سربلند عبور کرد.
-بازی جوانمردانه یک بند از قوانین فوتبال نیست؛ روح فوتبال است.»
-
-تیم ملی ایران با تشکر از مهمان‌نوازی سیاتل، بار دیگر از هم‌میهنان ایرانی قدردانی کرد: «سپاس از همه ایرانیان؛ که قلب، صدا و تمام وجودشان را برای ایران به میدان آوردند؛ ایران، همیشه سربلند.»
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247570
-
-<div align="center"><video src="files/post_247570_VahidOOnLine_247570.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247570_VahidOOnLine_247570.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد در منطقه‌ای در نزدیکی فرودگاه شیراز دود به آسمان برخاسته است. برخی شهروندان از شنیدن صدای انفجار در این شهر در روز شنبه روایت کرده‌اند اما این روایت به صورت مستقل تایید نشده است
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد هم‌زمان با مراسم عزاداری محرم، جمعی از شهروندان و اعضای خانواده جاویدنام علی امانی بر مزار او در آب‌پخش بوشهر گرد هم آمدند و ضمن گرامی‌داشت یادش گفتند: «نور بر تاریکی پیروز است.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

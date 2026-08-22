@@ -1,8 +1,48 @@
 # آرشیو کانال VahidOOnLine - صفحه 242
 
-📅 آخرین بروزرسانی: 1405/05/31 08:52
+📅 آخرین بروزرسانی: 1405/05/31 09:26
 
 ---
+
+## VahidOOnLine — post 250505
+
+<div align="center"><img src="files/post_250505_VahidOOnLine_250505.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت کشور بحرین اعلام کرد آژیرهای هشدار در این کشور به صدا درآمده و از شهروندان و ساکنان خواست آرامش خود را حفظ کرده و به نزدیک‌ترین محل امن بروند.
+
+این هشدار در حالی صادر شد که پیش‌تر جمهوری اسلامی اعلام کرده بود پایگاه ناوگان پنجم آمریکا در بحرین را هدف حمله قرار داده است. مقام‌های بحرینی تاکنون درباره علت به صدا درآمدن آژیرها یا وقوع هرگونه حمله جزییات بیشتری منتشر نکرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250504
+
+<div align="center"><video src="files/post_250504_VahidOOnLine_250504.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250504_VahidOOnLine_250504.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️روابط عمومی ارتش در نخستین ساعات بامداد جمعه در بیانیه‌ای گفت که در مرحله یازدهم عملیات صاعقه، به منافع آمریکا در پایگاه الصخیر بحرین حمله کرده است. ارتش آمریکا و دولت بحرین هنوز گزارشی درباره حمله به این پایگاه منتشر نکرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250503
+
+<div align="center"><video src="files/post_250503_VahidOOnLine_250503.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250503_VahidOOnLine_250503.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان حقوق بشری «حال‌وش» با انتشار ویدیوهایی در کانال تلگرام خود از حمله آمریکا به مواضع جمهوری اسلامی در محدوده فرودگاه ایرانشهر در شامگاه پنج‌شنبه ۲۵ تیر خبر داد.
+به گزارش حال‌وش، در پی این حمله صدای انفجارهای پیاپی در منطقه شنیده شده و شعله‌های آتش و دود غلیظ مشاهده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250502
 
@@ -217,47 +257,6 @@
 بر اساس این گزارش، ۷ نفر از مجروحان دچار موج‌گرفتگی ناشی از انفجار شده‌اند و یک نفر نیز با شکستگی به مراکز درمانی منتقل شده است.
 جزئیات بیشتری درباره هویت قربانیان و میزان خسارات واردشده به این منطقه منتشر نشده و وضعیت مصدومان تحت بررسی است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250485
-
-<div align="center"><video src="files/post_250485_VahidOOnLine_250485.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250485_VahidOOnLine_250485.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️بر اساس ویدیویی که پنجشنبه‌شب ۲۵ تیرماه در حساب کاربری «وحید آنلاین» منتشر شده است، یک موشک به بخش میانی یکی از پل‌های کهورستان اصابت کرده و در پی آن یک تانکر سوخت دچار انفجار شده است.
-این پل در محدوده شهر کهورستان از توابع شهرستان بندرخمیر در استان هرمزگان و در مسیر ارتباطی بندرعباس، بندرخمیر و لار قرار دارد. منابع محلی نیز از مسدود شدن محور رفت و برگشت بندرعباس به لار خبر داده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250484
-
-<div align="center"><img src="files/post_250484_VahidOOnLine_250484.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️بر اساس گزارش‌های منتشرشده در کانال «وحید آنلاین» و برخی رسانه‌های داخلی، بامداد پنج‌شنبه ۲۵ تیرماه مناطقی در استان‌های هرمزگان و سیستان و بلوچستان هدف حمله قرار گرفته‌اند.
-در این میان، گزارش شده که برق بخش‌هایی از کهورستان در پی این حملات قطع شده است. منابع داخلی همچنین از هدف قرار گرفتن پل ارتباطی بندرعباس–کهورستان–لار خبر داده‌اند؛ موضوعی که در ویدیوهای منتشرشده از سوی شهروندان نیز دیده می‌شود.
-همزمان، گزارش‌هایی از حمله به شهرستان بندرخمیر و شنیده شدن چندین انفجار در حوالی فرودگاه ایرانشهر منتشر شده است.
-کهورستان در حدود ۹۰ کیلومتری غرب بندرعباس واقع شده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250483
-
-<div align="center"><img src="files/post_250483_VahidOOnLine_250483.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علیرضا زاکانی، شهردار تهران، در سخنانی گفت مسئولان کشور باید برای سر دونالد ترامپ، رییس‌جمهوری آمریکا، و «هم‌دستانش» جایزه تعیین کنند.
-
-او این اظهارات را در حالی مطرح کرد که تنش‌ها میان جمهوری اسلامی و آمریکا همچنان ادامه دارد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

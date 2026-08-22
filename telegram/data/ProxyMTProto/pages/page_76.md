@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/05/31 08:53
+📅 آخرین بروزرسانی: 1405/05/31 09:26
 
 ---
+
+## ProxyMTProto — post 48864
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 34.6.122.236
+Port: 443
+Secret: dd5ce750c0f6787b81051bc5da67626b0d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48863
 
@@ -172,15 +181,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: node.nowabst.net
 Port: 853
 Secret: ee1bbdcdcfd200974bb999813180a12738766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48844
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ocean.babysharkollah.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

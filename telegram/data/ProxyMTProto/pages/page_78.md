@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/05/31 08:53
+📅 آخرین بروزرسانی: 1405/05/31 09:26
 
 ---
+
+## ProxyMTProto — post 48824
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48823
 
@@ -172,15 +181,6 @@ Secret: 8f3c7a1d4b92e6c51a7d0fb843c2e91f
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 34.7.50.106
-Port: 443
-Secret: dd39a22112c392f0cbfb056066b429addd
 @ProxyMTProto
 </div>
 
