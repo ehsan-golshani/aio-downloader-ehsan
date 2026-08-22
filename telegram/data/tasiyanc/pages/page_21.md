@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/31 18:15
+📅 آخرین بروزرسانی: 1405/05/31 21:21
 
 ---
+
+## tasiyanc — post 9019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پیشنهاد_ویژه ⚠️
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
+دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
+</div>
 
 ## tasiyanc — post 9018
 
@@ -403,40 +411,6 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 
 🪩 https://Poe.com
 
-
-
-⚡️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠هوش‌های مصنوعی که برای ساخت پروژه‌های نرم‌افزاری کمک می‌کنند 
-👩‍💻
-
-فقط کافیه پروژه رو توضیح بدید، کد رو تولید می‌کنند
-
-
-🔗 replit.com
-
-🔗 bolt.new
-
-🔗 stack.ai
-
-🔗 v0.dev
-
-🔗 cursor.sh
-
-🔗 Lovable.dev
-
-🔗 codeium.com
-
-🔗 tabnine.com
-
-🔗 github.com/features/copilot
-
-مشکلی داشتید برید ChatGpt یا Gemini سایت رو بهش بدید کمکتون میکنه چیکار کنی
 
 
 ⚡️@TASIYANC 

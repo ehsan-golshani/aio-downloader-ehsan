@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/31 18:15
+📅 آخرین بروزرسانی: 1405/05/31 21:21
 
 ---
+
+## tasiyanc — post 8927
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴احمدرضا رادان، فرمانده کل نیروی انتظامی:
+
+من یه مشکلی برام پیش اومد که گفتم نمیتونم در جلسه شورای دفاع در نهم اسفندماه شرکت کنم و غلامرضا رضاییان، رییس سازمان اطلاعات فراجا به جای من در جلسه شرکت کرد و کشته شد.
+
+💙@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8926
 
@@ -273,17 +283,5 @@ New Wallpapers ✨ HD
 🔺قیمت دلار  ۱۹۶ هزار تومان  شد
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8901
-
-<div align="center"><img src="files/post_8901_tasiyanc_8901.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ:
-
-در حال نابودی کامل ارزش پول ایران هستم. در شروع دوران ریاست جمهوری من دلار ۹۰ هزار تومن بوده و الان شده ۱۹۶ هزار تومن.
-
-🔱 @TASIYANC
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/31 20:41
+📅 آخرین بروزرسانی: 1405/05/31 21:19
 
 ---
+
+## ProxyMTProto — post 49938
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 65.21.205.29
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49937
 
@@ -172,15 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: zilch.chunkycorp.shop
 Port: 443
 Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49918
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: naro.guguli.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

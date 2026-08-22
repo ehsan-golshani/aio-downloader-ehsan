@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/31 18:15
+📅 آخرین بروزرسانی: 1405/05/31 21:21
 
 ---
+
+## tasiyanc — post 6293
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•𝐅_𝟐𝟐_⚡💣_ᴾʳᵉᵐᶤᵘᵐ_ᶳᵉʳᵛᵉʳᶳ.npvt
+</div>
 
 ## tasiyanc — post 6292
 
@@ -202,22 +208,5 @@ https://t.me/TasiyanProxy
 ⏩
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6268
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-2سرور پرومیوم  سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها 
-⏩
-
-✔️ @Tasiyanc ✅
 </div>
 
