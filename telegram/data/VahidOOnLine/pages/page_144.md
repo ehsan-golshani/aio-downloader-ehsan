@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 144
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 252901
+
+<div align="center"><img src="files/post_252901_VahidOOnLine_252901.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک منبع آگاه به ایران‌اینترنشنال گفت طاها نظری از سوی دادگاه انقلاب شهرستان شاهرود به پنج سال زندان محکوم شده است.
+
+او ۲۶ فروردین ۱۴۰۵ بازداشت و پس از یک ماه با قرار وثیقه پنج میلیارد تومانی آزاد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252900
 
@@ -274,19 +287,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دیوید دی‌روش، مدیر پیشین سیاستگذاری حوزه خلیج فارس در پنتاگون، گفت به نظر نمی‌رسد دونالد ترامپ بخواهد پرونده جمهوری اسلامی را نیمه‌تمام رها کند و ممکن است دامنه حملات را به زیرساخت‌های دومنظوره، از جمله پل‌ها، نیروگاه‌ها و حتی اهدافی در پایتخت ایران، گسترش دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252877
-
-<div align="center"><video src="files/post_252877_VahidOOnLine_252877.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252877_VahidOOnLine_252877.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی شیرازی، عضو تحریریه ایران‌اینترنشنال، درباره دور جدید حملات آمریکا به مواضع جمهوری اسلامی در ایران گفت به نظر می‌رسد پس از دو شب توقف حملات و به نتیجه نرسیدن مذاکرات، دونالد ترامپ به این نتیجه رسیده که جمهوری اسلامی بدون یک کارزار گسترده نظامی به پای میز مذاکرات بازنمی‌گردد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

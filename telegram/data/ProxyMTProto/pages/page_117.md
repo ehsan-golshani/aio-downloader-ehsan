@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 117
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:16
 
 ---
+
+## ProxyMTProto — post 48072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48071
 
@@ -172,15 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: Unknown
 Port: 25565
 Secret: FgMBAgABAAH8AxOG4kw63Q
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: flux.proxyux.site
-Port: 443
-Secret: ee0a7ecff0ebda97b34dc84157b8cbfad3666c75782e70726f787975782e73697465
 @ProxyMTProto
 </div>
 

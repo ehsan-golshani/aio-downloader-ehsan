@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 285
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 249535
+
+<div align="center"><img src="files/post_249535_VahidOOnLine_249535.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری دولتی ایرنا گزارش داد عباس عراقچی در دیدار با بدر البوسعیدی، وزیر خارجه عمان، درباره روابط دوجانبه، تحولات منطقه، تنگه هرمز و سازوکارهای تردد ایمن کشتی‌ها بر اساس بند پنج یادداشت تفاهم اسلام‌آباد تبادل نظر کردند.
+
+پیش‌تر اعلام شده بود سفر عراقچی به مسقط، برای گفت‌وگو در خصوص نحوه مدیریت تنگه هرمز انجام شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249534
 
@@ -292,21 +305,6 @@
 
 انتشار جزئیات این تسلیحات، از معدود مواردی است که اطلاعاتی درباره زرادخانه سلاح‌های مایکروویوی پرقدرت ارتش چین به‌صورت عمومی منتشر می‌شود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249513
-
-<div align="center"><video src="files/post_249513_VahidOOnLine_249513.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249513_VahidOOnLine_249513.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوی منتشرشده، مادر جاویدنام امیرحسین شیخ‌بو در ششمین ماهگرد کشته شدن فرزندش، در محل جان‌باختن او در مشهد حضور یافته، زمین را گلباران و به یاد او شمع روشن کرده است. در این ویدیو، مادر امیرحسین در سوگ فرزند جوانش مویه می‌کند.
-
-امیرحسین شیخ‌بو روز ۱۸ دی‌ماه ۱۴۰۴ در جریان اعتراضات در مشهد، با شلیک مستقیم مأموران حکومت جان باخت.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

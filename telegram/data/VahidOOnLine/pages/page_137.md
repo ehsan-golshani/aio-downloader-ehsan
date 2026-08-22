@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 137
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 253068
+
+<div align="center"><img src="files/post_253068_VahidOOnLine_253068.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی مطهری، نایب رییس پیشین مجلس، به خبرگزاری ایسنا گفت: «دشمن گستاخی‌های خیلی بزرگی انجام داده است. گرفتن انتقام هم حرف درستی بود و البته به این معنا نیست حتما یک ایرانی انتقام را می‌گیرد، بلکه ممکن است یک آمریکایی یا آفریقایی این اقدام را انجام دهد.»
+
+او ادامه داد: «هر انسان آزاده‌ای که با ظلم مبارزه می‌کند، می‌تواند انتقام رهبر و فرماندهان ما را بگیرد.»
+
+مطهری اضافه کرد: «بسیاری از اروپایی‌ها و کشورهای منطقه از اینکه جمهوری اسلامی مقابل اسرائیل و آمریکا ایستاده، خوشحالند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253067
 
@@ -286,19 +301,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اصفهان؛ «با دوشکا آمدند وسط میدان علیخانی» ـ گزارشگر
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253033
-
-<div align="center"><video src="files/post_253033_VahidOOnLine_253033.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253033_VahidOOnLine_253033.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کرمانشاه؛ برگزاری مراسم زادروز جاویدنام معین رنجبر بر مزارش ـ گزارشگر
 ‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine

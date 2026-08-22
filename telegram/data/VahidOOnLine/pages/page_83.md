@@ -1,8 +1,27 @@
 # آرشیو کانال VahidOOnLine - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 254435
+
+<div align="center"><video src="files/post_254435_VahidOOnLine_254435.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254435_VahidOOnLine_254435.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احتمال حمله مجدد اسرائیل به ایران
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+
+youtu.be
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254434
 
@@ -276,22 +295,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد حامیان حکومت با تجمع شبانه در خیابان‌های تهران برای مردم مزاحمت ایجاد کرده و ترافیک ایجاد کرده‌اند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254404
-
-<div align="center"><video src="files/post_254404_VahidOOnLine_254404.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254404_VahidOOnLine_254404.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ارتش اسرائیل روز یکشنبه ۱۸ مرداد اعلام کرد در جریان عملیاتی در جنوب لبنان، یک «چاهک زیرزمینی» مورد استفاده حزب‌الله برای نگهداری تسلیحات را شناسایی و منهدم کرده است.
-ارتش اسرائیل در بیانیه‌ای در شبکه اجتماعی ایکس اعلام کرد در این عملیات که طی هفته گذشته انجام شده است، «تعداد زیادی سلاح و تجهیزات جنگی از جمله کلاشنیکف، موشک و پرتابگرهای ضدزره، تسلیحات توپخانه‌ای و راکت‌های آرپی‌جی» در این تونل شناسایی شد.
-به گفته ارتش اسرائیل، این حملات در واکنش به انفجاری در روز شنبه در منطقه مجدل زون انجام شد که در جریان آن «هارل بیرنستاک، سرگرد ذخیره، و تامیر واکنین، گروهبان ارشد ذخیره، کشته و چهار نظامی اسرائیلی به‌شدت زخمی شدند.»
-بنیامین نتانیاهو هفته گذشته در واکنش به «نقض آتش‌بس از سوی حزب‌الله» دستور حملات جدید به لبنان را صادر کرد. این حملات در حالی انجام شد که مقام‌های تل‌آویو و بیروت در حال برگزاری مذاکرات صلح در آمریکا بودند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

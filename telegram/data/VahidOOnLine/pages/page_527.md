@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 527
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 243363
+
+<div align="center"><img src="files/post_243363_VahidOOnLine_243363.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دنی دانون، سفیر اسرائیل در سازمان ملل، در شبکه ایکس نوشت: حزب‌الله از ماه مارس تاکنون حدود ۹ هزار راکت و صدها پهپاد به سوی اسرائیل شلیک کرده است. اسرائیل برای دفاع از خود از کسی اجازه نخواهد گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243362
 
@@ -323,19 +334,6 @@ iranintl
 
 با این حال، وضعیت مبهم توافق احتمالی میان آمریکا و جمهوری اسلامی، همچنان بر بازارهای جهانی تاثیرگذار است و بورس‌های آسیایی و اروپایی واکنش محتاطانه‌ای به تحولات تنگه هرمز و مذاکرات تهران و واشنگتن نشان می‌دهند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243340
-
-<div align="center"><video src="files/post_243340_VahidOOnLine_243340.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243340_VahidOOnLine_243340.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از دانش‌آموزان کنکوری و یازدهمی در تهران، سه‌شنبه ۱۲ خرداد در اعتراض به تاثیر معدل نهایی بر کنکور و امتحانات حضوری مقابل دبیرخانه شورای عالی انقلاب فرهنگی روی زمین نشستند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

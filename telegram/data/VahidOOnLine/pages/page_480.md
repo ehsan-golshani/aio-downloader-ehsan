@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 480
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 244642
+
+<div align="center"><video src="files/post_244642_VahidOOnLine_244642.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244642_VahidOOnLine_244642.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ناپدید شدن پول از حساب‌های بانکی فقط یک مشکل مالی نیست، نشانه‌ای از فروریختن اعتماد عمومی به نظام بانکی و توان دولت در حفاظت از دارایی شهروندان است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244637
 
@@ -250,17 +263,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️همزمان با حملات روز چهارشنبه آمریکا به جنوب ایران، بخش خبری ساعت ۳ بامداد صداوسیما، در حین اعلام یک خبر اقتصادی، تصاویر شبیه‌سازی شده از انفجار هسته‌ای در وسط یک شهر را پخش کرد و پس از آن عبارت «تسلیت بندرعباس» زیرنویس شد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244617
-
-<div align="center"><img src="files/post_244617_VahidOOnLine_244617.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت دفاع بحرین از فعال شدن آژیرهای خطر و پدافند هوایی در پی حمله‌هایی از سمت ایران خبر داد. طبق اعلام مشاور رسانه‌ای پادشاه بحرین، پدافند هوایی بحرین این حملات جمهوری اسلامی را دفع کرده‌‌ است.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 254455
+
+<div align="center"><img src="files/post_254455_VahidOOnLine_254455.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، یکشنبه بعد از ظهر به وقت شرق آمریکا با انتشار نموداری در شبکه اجتماعی تروث سوشال، به کاهش ارزش پول ایران واکنش نشان داد و نوشت: «۵۱ سال رفتار بد!»
+
+در تصویر منتشر‌شده، با عبارت «ایران هیچ پولی ندارد» تاکید شده است ارزش یک میلیون ریال از حدود یک دلار و ۱۱ سنت در سال ۲۰۲۵ به نزدیک ۵۳ سنت در سال ۲۰۲۶ کاهش یافته است. ترامپ توضیح دیگری درباره منبع آمار این نمودار ارائه نکرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254454
 
@@ -261,25 +274,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شرکت‌کننده در تجمع ایرانیان مقابل دفتر نخست‌وزیری بریتانیا، به تاج‌الدین سروش، خبرنگار ایران‌اینترنشنال، گفت درخواست ما از دولت بریتانیا، افزایش فشار دیپلماتیک بر جمهوری اسلامی برای توقف اعدام‌ها و پاسخگو کردن مقام‌های جمهوری اسلامی است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254435
-
-<div align="center"><video src="files/post_254435_VahidOOnLine_254435.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254435_VahidOOnLine_254435.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احتمال حمله مجدد اسرائیل به ایران
-
-چشم‌انداز با مهدی مهدوی‌آزاد
-
-نسخه کامل این برنامه در یوتیوب:
-
-youtu.be
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,27 @@
 # آرشیو کانال VahidOOnLine - صفحه 430
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 246140
+
+<div align="center"><video src="files/post_246140_VahidOOnLine_246140.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246140_VahidOOnLine_246140.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️وزارت دفاع روسیه: ۵۵۵ پهپاد اوکراینی را در آسمان مسکو رهگیری کردیم
+
+♦️وزارت دفاع روسیه صبح پنجشنبه ۲۸ خرداد اعلام کرد ۵۵۵ پهپاد ارتش اوکراین را در آسمان مسکو رهگیری کرده است.
+
+این خبر در حالی اعلام می‌شود که یکی از پالایشگاه‌های نفت پایتخت روسیه در پی اصابت پهپادهای اوکراینی دچار حریق شد و عبورو و مرور خودروها در بخشی از مسکو مختل شده است.
+
+اوکراین در روزهای گذشته حملات به زیرساخت‌های انرژی روسیه را به‌شدت افزایش داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246139
 
@@ -244,21 +263,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رسانه‌های جمهوری اسلامی تصویر پزشکیان را هنگام امضای یادداشت تفاهم با آمریکا منتشر کردند. از سوی دیگر، ترامپ نیز در کاخ ورسای فرانسه این یادداشت تفاهم را امضا کرد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246120
-
-<div align="center"><video src="files/post_246120_VahidOOnLine_246120.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246120_VahidOOnLine_246120.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد پنجشنبه ۲۸ خردادماه پس از ضیافت شام در کاخ ورسای، همراه با امانوئل مکرون، رئیس‌جمهوری فرانسه، این کاخ را ترک کرد.
-
-ترامپ هنگام خروج از کاخ ورسای در پاسخ به پرسش خبرنگاران، امضای توافق تهران و واشنگتن را تایید کرد و گفت: «امضا شده است.»
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

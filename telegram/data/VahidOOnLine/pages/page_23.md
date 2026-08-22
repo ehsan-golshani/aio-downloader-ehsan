@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 255843
+
+<div align="center"><video src="files/post_255843_VahidOOnLine_255843.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255843_VahidOOnLine_255843.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نصب بادکنک‌های سفید روی خودروها به یاد مهدی حسامی، امیر ابراهیم‌نژاد، مجتبی رضوانی و سینا فرجی، چهار جاویدنام رستمکلا در مازندران ـ گزارشگر
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255842
 
@@ -290,25 +303,6 @@ ManotoTV
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نائینی فقط زبان یک شهر نیست، حافظهٔ زندهٔ نسل‌هایی است که جهان را با واژه‌هایی متفاوت روایت کرده‌اند. آیا این صدای کهن به نسل بعد خواهد رسید؟
 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255810
-
-<div align="center"><video src="files/post_255810_VahidOOnLine_255810.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255810_VahidOOnLine_255810.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد خاتمی، رئیس جمهوری اسبق جمهوری اسلامی ایران، روز سه‌شنبه ۲۷ مردادماه با حمایت از تفاهم‌نامه پایان جنگ اسلام‌آباد میان ایران و آمریکا گفت هیچ رئیس جمهوری در ایالات متحده از زمان جنگ جهانی دوم به بعد، در یک سند به این اندازه به طرف مقابل امتیاز نداده است.
-
-خاتمی در این سخنرانی از عملکرد دولت پزشکیان تقدیر کرد و گفت که او با شجاعت، امضای تفاهم‌نامه با آمریکا را پذیرفته و این سند بین‌المللی در شورای عالی امنیت ملی هم تصویب شده و مورد حمایت رهبر جمهوری اسلامی است.
-
-دونالد ترامپ، رئیس جمهوری آمریکا ماه گذشته اعلام کرد «تفاهم‌نامه از نظر او تمام شده است.»
-
-رئیس پیشین دولت جمهوری اسلامی در همین سخنرانی گفت هیچ اعتمادی به آمریکا ندارد ولی «امضای دو رئیس جمهوری» پای این تفاهم‌نامه است.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>

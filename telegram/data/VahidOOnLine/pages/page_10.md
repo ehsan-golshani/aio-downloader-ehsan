@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 256135
+
+<div align="center"><video src="files/post_256135_VahidOOnLine_256135.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256135_VahidOOnLine_256135.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار ایران در رسانه‌های جهان: جمعه ۳۰ مرداد ۱۴۰۵
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256134
 
@@ -298,19 +311,6 @@ Indypersian
 او همچنین با دفاع از آمادگی نظامی جمهوری اسلامی گفت دیپلماسی زمانی ارزش دارد و پیش می‌رود که کشور برای جنگ آماده باشد و افزود: «اگر آماده جنگ نباشیم در زمان استفاده از دیپلماسی هم کسی پاسخ ما را نمی‌دهد.»
 این سخنان در حالی بیان می‌شود که دونالد ترامپ روز گذشته از «آغاز کارزار فشار اقتصادی بی‌سابقه برای انزوای ایران» خبر داده بود. اسکات بسنت،‌ وزیر خزانه‌داری آمریکا هم اعلام کرد که با تشدید تحریم‌ها و فشار اقتصادی، جمهوری اسلامی سرنگون خواهد شد.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256106
-
-<div align="center"><video src="files/post_256106_VahidOOnLine_256106.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256106_VahidOOnLine_256106.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تحریم اقتصادی و محاصره دریایی بارها در تاریخ علیه حکومت‌های مختلف به کار گرفته شده است. از عراق و ونزوئلا تا رودزیا، کوبا و ژاپن. آیا این‌بار چنین فشاری جمهوری اسلامی را به عقب‌نشینی وادار می‌کند، به اعتراضات گسترده می‌انجامد یا جمهوری اسلامی عقب خواهد نشست؟
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 256164
+
+<div align="center"><img src="files/post_256164_VahidOOnLine_256164.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مهدی قریشی، امام جمعه ارومیه، در خطبه‌های نماز جمعه این شهر گفت: «اگر قانون حجاب و عفاف نیازمند اصلاح است، مسئولان باید برای اصلاح آن اقدام کنند، اما در هر صورت حکومت اسلامی وظیفه دارد محیط جامعه را امن کند و نسبت به موضوع حجاب و بی‌عفتی وارد عمل شود.»
+
+قریشی ادامه داد: «ما باید هم در داخل کشور و هم در جهان اسلام، وحدت میان مسلمانان را جدی بگیریم ممکن است در جامعه اختلاف نظر داشته باشیم، ممکن است انتقاد یا اعتراض کنیم و دیدگاه‌های متفاوتی داشته باشیم، اما این اختلاف نظرها نباید به دشمنی و تضعیف انسجام ملی منجر شود انتقاد حق مردم است، اما حفظ منافع و وحدت کشور نیز یک ضرورت اساسی است.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256163
 
@@ -315,19 +328,6 @@ Indypersian
 
 نبویان در ادامه نوشت در حالی که مذاکرات در جریان بود، جنگ به جمهوری اسلامی «تحمیل شد» و «اکنون ما در حال دفاع هستیم.»
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256135
-
-<div align="center"><video src="files/post_256135_VahidOOnLine_256135.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256135_VahidOOnLine_256135.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار ایران در رسانه‌های جهان: جمعه ۳۰ مرداد ۱۴۰۵
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

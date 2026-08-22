@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 255978
+
+<div align="center"><video src="files/post_255978_VahidOOnLine_255978.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255978_VahidOOnLine_255978.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسالی به ایران‌اینترنشنال نشان می‌دهد که روز ۲۸ مرداد گروهی از کوهنوردان، صعود خود به قله دماوند را به جاویدنامان انقلاب ملی ایران پیشکش کردند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255976
 
@@ -301,13 +314,5 @@ IranintlTV
 Indypersian
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255957
-
-<div align="center"><img src="files/post_255957_VahidOOnLine_255957.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 186
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 251841
+
+<div align="center"><img src="files/post_251841_VahidOOnLine_251841.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری ایرنا به نقل از حسن قمری، معاون استانداری مرکزی، گزارش داد یک نقطه در خارج از شهر خنداب بامداد جمعه هدف دو پرتابه قرار گرفته است.
+
+بنا به این گزارش، برآورد دقیق خسارت‌های جانی و مالی این حمله در دست بررسی کارشناسان مربوطه است. جزییات بیشتری درباره محل دقیق اصابت یا میزان خسارت احتمالی ارائه نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251840
 
@@ -249,18 +262,6 @@
 
 جزییات بیشتری درباره علت یا محل دقیق این انفجار منتشر نشده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251817
-
-<div align="center"><img src="files/post_251817_VahidOOnLine_251817.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️صداوسیما از شنیده شدن صدای انفجار در غرب بندرعباس و حوالی امیدیه خبر داد.
-پیش از این، فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرد نیروهای آمریکایی سیزدهمین شب متوالی حملات خود علیه اهداف نظامی در ایران را آغاز کرده‌اند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

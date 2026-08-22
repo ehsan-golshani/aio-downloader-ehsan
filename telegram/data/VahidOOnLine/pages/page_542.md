@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 542
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 242951
+
+<div align="center"><video src="files/post_242951_VahidOOnLine_242951.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242951_VahidOOnLine_242951.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سعید آجرلو، عضو تیم رسانه‌ای مذاکره‌کننده جمهوری اسلامی، گفت در صورت تایید متن نهایی تفاهم‌ [با آمریکا]، گفت‌وگوهای ۶۰ روزه درباره جزئیات آغاز می‌شود. او افزود اگر طرف مقابل به تعهداتش، از جمله درباره ۱۲ میلیارد دلار، عمل نکند، جمهوری اسلامی می‌تواند از توافق خارج شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242950
 
@@ -286,21 +299,6 @@ https://iranin
 
 او پیش‌تر نیز در ابتدای جنگ آمریکا و اسرائیل با جمهوری اسلامی، به‌دلیل انتشار استوری‌های اینستاگرامی بازداشت و پس از مدتی با قرار وثیقه آزاد شده بود.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242931
-
-<div align="center"><video src="files/post_242931_VahidOOnLine_242931.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_242931_VahidOOnLine_242931.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️در جریان مراسم روز نیروهای مسلح اسپانیا، یک اتفاق غیرمنتظره توجه‌ها را به خود جلب کرد؛ پرچم اسپانیا در حین اجرای مراسم دچار اختلال شد و به‌طور ناگهانی سقوط کرد.
-در ویدیوی منتشرشده، واکنش آرام و خونسرد فیلیپه ششم، پادشاه اسپانیا، به این اتفاق مورد توجه قرار گرفته و در شبکه‌های اجتماعی بازتاب گسترده‌ای داشته است.
-این مراسم که هر سال با حضور مقامات ارشد و نمایش توان نظامی برگزار می‌شود، امسال با این اتفاق غیرمنتظره به یکی از سوژه‌های رسانه‌ای تبدیل شد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

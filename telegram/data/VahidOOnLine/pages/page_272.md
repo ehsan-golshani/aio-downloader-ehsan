@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 272
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 249825
+
+<div align="center"><img src="files/post_249825_VahidOOnLine_249825.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت کشور بحرین، صبح دوشنبه، ۲۲ تیر برای سومین بار در شبکه اجتماعی ایکس از به صدا درآمدن آژیر خطر در این کشور خبر داد.
+
+این وزارت‌خانه از شهروندان و ساکنان خواست آرامش خود را حفظ کنند، به نزدیک‌ترین مکان امن بروند و اخبار را از کانال‌های رسمی دنبال کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249824
 
@@ -270,17 +283,6 @@ iranintl
 
 این وزارتخانه از شهروندان و ساکنان بحرین خواست آرامش خود را حفظ کنند و به نزدیک‌ترین مکان امن بروند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249805
-
-<div align="center"><img src="files/post_249805_VahidOOnLine_249805.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️وزارت کشور بحرین با انتشار هشدار فوری در اکس اعلام کرد که آژیرهای خطر در این کشور، صبح دوشنبه، به صدا درآمده‌اند. این نهاد امنیتی با صدور این بیانیه، از تمامی مردم و ساکنان این کشور خواست تا ضمن حفظ آرامش کامل، به سرعت به نزدیک‌ترین مکان امن و پناهگاه‌ها بروند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 504
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 243945
+
+<div align="center"><video src="files/post_243945_VahidOOnLine_243945.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243945_VahidOOnLine_243945.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان در استان لرستان روز شنبه همزمان با سایر استان‌ها مقابل اداره‌کل آموزش و پرورش استان تجمع کرده و به شیوه برگزاری امتحانات و تاثیر معدل در کنکور اعتراض کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243944
 
@@ -281,19 +294,6 @@
 وزیر کشور پاکستان، در روزهای اول خرداد ماه و در راستای تلاش‌های اسلام‌آباد برای برقراری توافق پایان جنگ میان ایران و آمریکا، سفری از پیش اعلام نشده به تهران داشت و با مقام‌های دولت و مذاکره‌کنندگان ایرانی گفتگو کرد.
 همزمان، رسانه‌ها به نقل از روزنامه النهار گزارش کرده‌اند فیلد مارشال عاصم منیر، فرمانده ارتش پاکستان، روز شنبه در اسلام‌آباد میزبان ژنرال «رودولف هیکل» فرمانده ارتش لبنان خواهد بود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243925
-
-<div align="center"><video src="files/post_243925_VahidOOnLine_243925.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243925_VahidOOnLine_243925.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که دانش‌آموزان کرمانشاه با تجمع مقابل اداره ‌کل آموزش و پرورش شعار «وعده زیاد شنیدیم، عدالتی ندیدیم» سردادند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

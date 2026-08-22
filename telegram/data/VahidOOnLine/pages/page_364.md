@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 364
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 247784
+
+<div align="center"><img src="files/post_247784_VahidOOnLine_247784.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایوت کوپر، وزیر خارجه بریتانیا، حملات اخیر جمهوری اسلامی به بحرین و کویت و حملات در تنگه هرمز را به‌شدت محکوم کرد و در شبکه ایکس نوشت: «این حملات بی‌پروا، از جمله حمله به کشتیرانی بین‌المللی، جان غیرنظامیان را به خطر انداخته و آزادی ناوبری را محدود می‌کند.»
+وزیر خارجه بریتانیا تاکید کرد اجرای توافق میان آمریکا و جمهوری اسلامی برای حفظ امنیت مردم و تداوم تردد کشتی‌ها ضروری است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247783
 
@@ -286,19 +299,6 @@
 
 ناو هواپیمابر «جرج بوش» یکی از ناوهای پیشرفته نیروی دریایی آمریکا به‌شمار می‌رود که در مأموریت‌های مختلف در منطقه خاورمیانه و آب‌های بین‌المللی حضور دارد
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247764
-
-<div align="center"><video src="files/post_247764_VahidOOnLine_247764.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247764_VahidOOnLine_247764.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم بریتانیا، یکشنبه هفتم تیرماه علیه جمهوری اسلامی در شهر شفیلد تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

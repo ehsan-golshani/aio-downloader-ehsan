@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/05/31 23:40
+📅 آخرین بروزرسانی: 1405/06/01 00:15
 
 ---
+
+## VahidOOnLine — post 255490
+
+<div align="center"><img src="files/post_255490_VahidOOnLine_255490.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارتش یمن روز دوشنبه ۲۶ مردادماه اعلام کرد شورشیان بار دیگر دو موشک بالسیتیک به تنگه باب‌المندب شلیک کرده‌اند.
+
+در بیانیه ارتش یمن اشاره‌ای به هدف این حملات موشکی نشده است.
+
+شورشیان حوثی تحت حمایت جمهوری اسلامی ایران از یک ماه پیش حملات به نیروهای دولتی و کشتی‌ها در تنگه باب‌المندب را پس از نزدیک به چهار سال آتش‌بس از سر گرفته‌اند. ارتش یمن می‌گوید به این حملات پاسخ می‌دهد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255489
 
@@ -311,18 +326,5 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 .
-</div>
-
-## VahidOOnLine — post 255470
-
-<div align="center"><video src="files/post_255470_VahidOOnLine_255470.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255470_VahidOOnLine_255470.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خانواده و نزدیکان سعید‌ تروند از جاوید‌نامان اعتراض‌های دی‌ماه در استان ایلام در سالروز تولد او در کنار مزارش گردهم آمدند و یاد او را گرامی داشتند. تروند که ۳۳ ساله و پیمانکار شرکت نفت بود در جریان اعتراضات ۱۸ دی‌ماه در آبادان با شلیک مستقیم نیروهای امنیتی کشته شد و در شهرستان مهران استان ایلام به خاک سپرده شد
-IranintlTV
-
-🤖 @VahidOOnLine
 </div>
 
