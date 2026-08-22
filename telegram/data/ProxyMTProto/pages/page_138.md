@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 138
 
-📅 آخرین بروزرسانی: 1405/05/31 16:38
+📅 آخرین بروزرسانی: 1405/05/31 17:18
 
 ---
+
+## ProxyMTProto — post 47638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.154.25.238
+Port: 443
+Secret: 886ace76f7a9a1e3219537fe5dfd04d5
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47637
 
@@ -178,15 +187,6 @@ Secret: eea66a6c939a8f1a0596bd06f17dae253772362e70726f787974672e7370616365
 Server: tproxy.ink
 Port: 443
 Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowaboost.com
-Port: 443
-Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
 @ProxyMTProto
 </div>
 

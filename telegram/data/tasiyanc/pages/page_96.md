@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/05/31 16:40
+📅 آخرین بروزرسانی: 1405/05/31 17:20
 
 ---
+
+## tasiyanc — post 6505
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی تاسیان 🆕
+
+✅87 کانفیگ تست شده
+
+فایل Txt رو باز کنین کانفیگ رو تو آپ NPV & V2BOX & V2RAYNG زیر بزنید پینگ بگیرید وصل شید  🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از عصر دارم بمب براتون آماده میکنم عشق کنین الان آماده شده
+</div>
+
+## tasiyanc — post 6503
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار رو از اینجا دنبال کنین + پروکسی
+@Tasiyanproxy 
+✅
+@Tasiyanproxy 
+✅
+@Tasiyanproxy 
+✅
+</div>
 
 ## tasiyanc — post 6502
 
@@ -207,24 +237,5 @@
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6471
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت ارتباط با ادمین ها و تبادلات گپمون : https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا یکم اوضاع اوکی میشه مارو فراموش میکنین؟ 🤣
-</div>
-
-## tasiyanc — post 6469
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت ارتباط با ادمین ها و تبادلات گپمون :
-https://t.me/+RTGtcYWb8HdkNjdk
 </div>
 

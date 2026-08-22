@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/31 16:38
+📅 آخرین بروزرسانی: 1405/05/31 17:18
 
 ---
+
+## ProxyMTProto — post 48800
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s2.postpulse.space
+Port: 443
+Secret: ee263bf8f7de3c2b04aa1c008ab21e4a566164322e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48799
 
@@ -172,15 +181,6 @@ Secret: ee5149538ef4476db6e76d74a7a7c8a48b6e65742e6672656574672e7077
 Server: proxy.garden-troll.life
 Port: 443
 Secret: eee9b3ba71e9986a0601aaf9d8ec29b57c70726f78792e67617264656e2d74726f6c6c2e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48780
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: should.be.wake.up.ir.yfdhjderkig.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

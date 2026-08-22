@@ -1,8 +1,51 @@
 # آرشیو کانال VahidOOnLine - صفحه 570
 
-📅 آخرین بروزرسانی: 1405/05/31 16:37
+📅 آخرین بروزرسانی: 1405/05/31 17:17
 
 ---
+
+## VahidOOnLine — post 242111
+
+<div align="center"><img src="files/post_242111_VahidOOnLine_242111.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علیرضا سلیمی، عضو هیات رییسه مجلس، گفت آمریکا هیچ‌گاه به دنبال مذاکره واقعی برای پایان دادن به تنش‌ها نبوده و از میز مذاکره فقط به‌عنوان «تله‌گذاری» برای پیشبرد اقدامات «خصمانه» بعدی استفاده می‌کند.
+
+او افزود: «اگر مقام‌های آمریکایی صادق بودند و حسن نیت داشتند، هم‌زمان با سخن گفتن از مذاکره، تحریم‌های جدید علیه جمهوری اسلامی اعمال نمی‌کردند.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242109
+
+<div align="center"><img src="files/post_242109_VahidOOnLine_242109.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری فارس، وابسته به سپاه پاسداران، ضمن اعلام خبر سفر عبدالناصر همتی، رییس بانک مرکزی جمهوری اسلامی به قطر، نوشت که این سفر پیرامون بررسی «آزادسازی اموال بلوکه‌شده» و در راستای کمیسیون اقتصادی مذاکرات انجام شده است.
+
+این در حالی است که در روزهای اخیر و در جریان مذاکرات، هیاتی قطری به ایران سفر کرده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242108
+
+<div align="center"><video src="files/post_242108_VahidOOnLine_242108.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242108_VahidOOnLine_242108.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماسی از هلند:
+«می‌گفت هر روز با برنامه‌های منوتو زندگی می‌کردیم…
+و حالا نمی‌دانیم بعد از آن باید چه کنیم.»
+او همچنین از جاویدنام سینا حق‌شناس یاد کرد؛ دوستی که خبر جان‌باختنش زندگی او را زیر و رو کرده بو
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242107
 
@@ -257,21 +300,6 @@ iranintl
 امید در آخرین تماس تلفنی با مادرش گفته بود: شام می‌آیم و دور هم می‌خوریم.
 
 
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242090
-
-<div align="center"><img src="files/post_242090_VahidOOnLine_242090.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی گفت: «کسی نمی‌تواند ادعا بکند به توافق نزدیک شده‌ایم، تغییرات مکرر مواضع مقامات آمریکایی هر گفت‌وگویی را دچار اشکال می‌کند.»
-
-او افزود: «جمهوری اسلامی در حال حاضر بر روند مذاکرات متمرکز است و اینکه توافق احتمالی بعدا چگونه اعلام یا امضا شود، موضوعی است که برای تصمیم‌گیری درباره آن فرصت وجود دارد.»
-
-بقائی اضافه کرد: «سفر هیئت‌ها به تهران یا سفر متقابل ممکن است در صورت لزوم انجام شود، اما در شرایط فعلی برنامه‌ای برای سفر به پاکستان یا سفر هیئت پاکستانی به ایران برنامه‌ریزی نشده است.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

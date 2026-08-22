@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/31 16:40
+📅 آخرین بروزرسانی: 1405/05/31 17:20
 
 ---
+
+## tasiyanc — post 6242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+2سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6241
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به یاد آنان که جسارت بیشتری از ما داشتند. 🖤
+
+پروکسی
+پروکسی
+
+@Tasiyanproxy
+</div>
+
+## tasiyanc — post 6240
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[12]⚡@Tasiyanc 🚀.conf
+</div>
 
 ## tasiyanc — post 6239
 
@@ -176,23 +209,5 @@ FAST - MCI💥.npvt
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-nuclear bomb 💥.npvt
-</div>
-
-## tasiyanc — post 6219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-NEW FAST ⚡ 🚀.npvt
-</div>
-
-## tasiyanc — post 6218
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ میشه یا آتش بس برقراره؟
 </div>
 

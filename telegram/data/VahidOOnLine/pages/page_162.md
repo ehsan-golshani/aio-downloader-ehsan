@@ -1,8 +1,53 @@
 # آرشیو کانال VahidOOnLine - صفحه 162
 
-📅 آخرین بروزرسانی: 1405/05/31 16:37
+📅 آخرین بروزرسانی: 1405/05/31 17:17
 
 ---
+
+## VahidOOnLine — post 252360
+
+<div align="center"><video src="files/post_252360_VahidOOnLine_252360.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252360_VahidOOnLine_252360.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال، صف طولانی خودروهای سنگین را در پمپ‌بنزین داورزن در جاده «امام‌رضا» نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252359
+
+<div align="center"><img src="files/post_252359_VahidOOnLine_252359.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تایمز اسرائیل عصر دوشنبه پنجم مردادماه اعلام کرد هواپیمای نخست وزیر اسرائیل پس از دو ساعت تاخیر یک پایگاه هوایی نظامی را به مقصد واشنگتن ترک کرد.
+
+براساس این گزارش بنیامین نتانیاهو قرار بود ساعت ۱۱ به سمت واشنگتن پرواز کند اما این سفر اندکی به تاخیر افتاد. دفتر نخست وزیری اسرائیل دلیل این تاخیر را اعلام نکرده است.
+
+این خبر در حالی منتشر می‌شود که ارتش اردن و ارتش اسرائیل  ساعاتی پیش از رهگیری دو پهپاد در آسمان اردن خبر داده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252358
+
+<div align="center"><video src="files/post_252358_VahidOOnLine_252358.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252358_VahidOOnLine_252358.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️آتش‌سوزی در هتل پارسیان استقلال تهران ظهر دوشنبه ۵ مردادماه، در تقاطع بزرگراه چمران و خیابان ولیعصر رخ داد و شعله‌های آتش بخش‌هایی از این مجتمع اقامتی را فرا گرفت.
+
+به گفته سخنگوی آتش‌نشانی تهران، همزمان با عملیات اطفای حریق، چند گروه از آتش‌نشانان برای نجات افراد محبوس وارد ساختمان شده‌اند.
+
+اورژانس تهران نیز اعلام کرد ۷ دستگاه آمبولانس، ۲ دستگاه اتوبوس آمبولانس، سه خودروی فرماندهی و یک دستگاه موتورلانس به محل حادثه اعزام شده‌اند. بر اساس گزارش اولیه اورژانس، تاکنون مصدومی گزارش نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252357
 
@@ -215,47 +260,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده نشان می‌دهد گروهی از ایرانیان مقیم بریتانیا، یکشنبه چهارم مرداد مراسم گرامیداشت برای سالروز درگذشت رضاشاه و محمدرضاشاه پهلوی را در لندن برگزار کردند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252340
-
-<div align="center"><video src="files/post_252340_VahidOOnLine_252340.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252340_VahidOOnLine_252340.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی روز دوشنبه پنجم مرداد گفت که آمریکا می‌خواست ایران را در سه روز تسلیم کند اما هم‌اکنون در باتلاق «خودساخته» گیر کرده است.
-
-سخنگوی وزارت امور خارجه جمهوری اسلامی ایران در پاسخ به پرسش  خبرنگاران گفت: آمریکا جنگ را مدیریت نمی‌کند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252338
-
-<div align="center"><video src="files/post_252338_VahidOOnLine_252338.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252338_VahidOOnLine_252338.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صف گازوییل در عسلویه
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252330
-
-<div align="center"><img src="files/post_252330_VahidOOnLine_252330.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به مناسبت چهل‌وششمین سالگرد درگذشت محمدرضاشاه پهلوی
-
-تصاویری از اعلیحضرت فقید محمدرضاشاه پهلوی در کنار علیاحضرت شهبانو فرح پهلوی
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

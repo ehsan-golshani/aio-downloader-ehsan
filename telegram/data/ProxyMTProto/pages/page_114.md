@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/05/31 16:38
+📅 آخرین بروزرسانی: 1405/05/31 17:18
 
 ---
+
+## ProxyMTProto — post 48118
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: For.dear-iranian-people.com.heazshddd.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48117
 
@@ -172,15 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: proxy19.arixo.shop
 Port: 443
 Secret: ee6563f5614f0abb0d62d219083ab9f658617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48098
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 51.250.3.250
-Port: 443
-Secret: eed449877a1e5b7a264124d13085899647617669746f2e7275
 @ProxyMTProto
 </div>
 

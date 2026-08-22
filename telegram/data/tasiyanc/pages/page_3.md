@@ -1,8 +1,71 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/31 16:40
+📅 آخرین بروزرسانی: 1405/05/31 17:20
 
 ---
+
+## tasiyanc — post 9475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9474
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعدادی DNS برای گیمر های عزیز 😎
+
+IPv4 server 🇩🇪
+DNS 1⚡️
+
+60.154.181.244
+22.137.148.153
+
+DNS 2⚡️
+
+85.0.69.240
+173.193.142.191
+
+
+IPv6 🇩🇪
+DNS 1⚡️
+
+2a0e:1c80:11::5ce4:607c:3c41:e868
+2a0e:1c80:11::dcc8:31c8:1fa2:bd89
+
+DNS 2⚡️
+
+2a0e:1c80:11::9014:410:e8bd:d8fd
+2a0e:1c80:11::cf95:da47:970b:4273
+
+DNS 3⚡️
+
+2a0e:1c80:11::ee5b:4bb1:cd6:e105
+2a0e:1c80:11::7ad2:3896:4a4e:cceb
+لینک DNS Changer اندروید
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
 
 ## tasiyanc — post 9472
 
@@ -331,60 +394,6 @@ DNS 2 ⚡️
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨امروز 19 August، روز جهانی عکاسیه📸
 یه روز واسه ثبت کردن لحظه‌ها و منظره‌هایی که حالتو خوب می‌کنن امروز وقتشه انجام بدی .
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9448
-
-<div align="center"><img src="files/post_9448_tasiyanc_9448.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
-
-🌍 سایت بین‌المللی و معتبر LINEBET
-
-⚽️ پیش‌بینی فوتبال
-🎰 کازینو آنلاین
-💳 واریز و برداشت ریالی
-🎁 بونوس 100٪ اولین واریز
-🎁 بونوس 100٪ هر دوشنبه
-📞پشتیبانی فارسی فعال
-
-🎁کد هدیه ثبت‌نام: L5670
-
-🔗 دانلود اپلیکیشن اندروید 👉
-
-🔗 لینک سایت 👉
-✉️ https://t.me/+dukgrB6-zGsyNGM8
-
-🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
-
-📚 آموزش کامل سایت👉
-</div>
-
-## tasiyanc — post 9447
-
-<div align="center"><video src="files/post_9447_tasiyanc_9447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9447_tasiyanc_9447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مزاحم یک دختر توی تبریز، به سطل زباله انداخته شد!
-توی تبریز کسبه و مردم وقتی میبینن یه بچه داره واسه یه دختر مزاحمت ایجاد میکنه میریزن سرش دل سیر کتکش میزنن بعدشم میندازنش تو سطل زیاله.
-
 @Tasiyanc ⭐️
 </div>
 
