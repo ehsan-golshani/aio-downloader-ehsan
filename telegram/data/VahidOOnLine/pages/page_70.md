@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/06/01 01:18
+📅 آخرین بروزرسانی: 1405/06/01 01:39
 
 ---
+
+## VahidOOnLine — post 254731
+
+<div align="center"><img src="files/post_254731_VahidOOnLine_254731.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ روز سه‌شنبه، با انتشار پیامی در شبکه اجتماعی «تروث سوشال» از لغو بودجه فدرال برای اقدامات «تغییر جنسیت خردسالان» خبر داد و نوشت: «امروز به دستور من، دکتر محمد آز اعلام کرد که بیمه دولتی «مدیکید» دیگر هزینه جراحی‌های تغییر جنسیت و هورمون‌درمانی برای افراد زیر سن قانونی را تامین نخواهد کرد. ما قرار نیست هزینه این اعمال و جراحی‌های وحشیانه را بپردازیم که آسیب‌های غیرقابل‌تصور و جبران‌ناپذیری به بدن آن‌ها وارد می‌کند.» رئیس‌جمهوری آمریکا در ادامه با اشاره به توقف این روند در ده‌ها بیمارستان آمریکایی و با انتقاد شدید از رقبای سیاسی خود افزود: «در حالی که حزب دمکرات می‌خواهد فرزندان شما بتوانند پیش از رسیدن به سن رای دادن، اندام‌های تناسلی خود را قطع کنند، من و حزب جمهوری‌خواه می‌گوییم این کار کاملا مضحک است و ما از کودکان آمریکا محافظت خواهیم کرد. لطفا این موضوع بسیار مهم را هنگام رای دادن در انتخابات میان‌دوره‌ای نوامبر به یاد داشته باشید.»
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254730
+
+<div align="center"><video src="files/post_254730_VahidOOnLine_254730.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254730_VahidOOnLine_254730.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به به ایران اینترنشنال نشان می‌دهد که ایرانیان ساکن بریتانیا روز سه‌شنبه ۲۰ مرداد مقابل دفتر نخست‌وزیری این کشور در لندن تجمع کردند و در اعتراض به اعدام‌ها و احکام صادرشده علیه زندانیان و بازداشت‌شدگان «انقلاب ملی»، خواستار توقف اجرای احکام اعدام شدند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254729
 
@@ -248,30 +272,6 @@ IranintlTV
 اطلاعات اسرائیل نشان می‌داد حکومت ایران قصد داشته است هواپیمای ترامپ را با موشک‌های دوش‌پرتاب هدف قرار دهد.
 
 با وجود این تهدید، مقام‌های ارشد دولت ترامپ، از جمله مارکو روبیو، وزیر امور خارجه آمریکا، در ایرفورس وان باقی ماندند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254711
-
-<div align="center"><img src="files/post_254711_VahidOOnLine_254711.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شبکه المسیره، وابسته به حوثی‌های یمن، گزارش داد این گروه نیابتی جمهوری اسلامی یک کشتی حامل «تجهیزات نظامی» عربستان سعودی را در باب‌المندب هدف قرار داده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254710
-
-<div align="center"><video src="files/post_254710_VahidOOnLine_254710.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254710_VahidOOnLine_254710.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد یکی از معترضان شعاری را روی سطل زباله نوشته است: «کجا جنگ رو بردیم؟ نه آب داریم نه برق نه پول غذا»
 IranintlTV
 
 🤖 @VahidOOnLine

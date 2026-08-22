@@ -1,8 +1,35 @@
 # آرشیو کانال VahidOOnLine - صفحه 303
 
-📅 آخرین بروزرسانی: 1405/06/01 01:18
+📅 آخرین بروزرسانی: 1405/06/01 01:39
 
 ---
+
+## VahidOOnLine — post 249133
+
+<div align="center"><img src="files/post_249133_VahidOOnLine_249133.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرپرست دانشکده علوم پزشکی و خدمات بهداشتی درمانی چابهار شایعات درباره حمله آمریکا به بیمارستان امام علی این شهر را تکذیب کرد و گفت این مرکز درمانی در سلامت کامل قرار دارد و حمله‌ای به آن صورت نگرفته است.
+
+او همچنین از سلامت و آماده‌باش کامل کادر درمان این بیمارستان خبر داد. این اظهارات پس از انتشار شایعاتی از سوی هواداران جمهوری اسلامی در فضای مجازی مبنی بر حمله آمریکا به بیمارستان چابهار بیان شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249132
+
+<div align="center"><video src="files/post_249132_VahidOOnLine_249132.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249132_VahidOOnLine_249132.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تصاویر و ویدیوهای منتشرشده در شبکه‌های اجتماعی نشان می‌دهد در پی حمله آمریکا به مواضع جمهوری اسلامی در چابهار در شامگاه چهارشنبه ۱۷ تیر، سازه برج دریایی اسکله بهشتی در این شهر منهدم شد.
+محمدسعید اربابی، مدیرعامل سازمان منطقه آزاد چابهار، نیز تخریب برج مراقبت کنترل ترافیک دریایی منطقه آزاد چابهار در پی حمله آمریکا را تایید کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249131
 
@@ -241,34 +268,6 @@
 سنتکام پیش‌تر از گسترش دامنه حملات آمریکا خبر داده و اکسیوس نیز گزارش کرده بود که اهداف نظامی جمهوری اسلامی در تنگه هرمز هدف قرار گرفته‌اند.
 
 این دومین شب پیاپی است که ارتش ایالات متحده در پاسخ به حملات سپاه پاسداران به چند کشتی تجاری در تنگه هرمز، مواضع نظامی در نوار ساحلی جنوب ایران را هدف قرار می‌دهد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249113
-
-<div align="center"><video src="files/post_249113_VahidOOnLine_249113.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249113_VahidOOnLine_249113.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال، وقوع انفجارهای مهیب را در چابهار در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249112
-
-<div align="center"><img src="files/post_249112_VahidOOnLine_249112.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️گزارش‌های کاربران شبکه‌های اجتماعی حاکی از قطع برق در برخی از مناطق این شهر در پی حملات بامداد پنجشنبه ۱۸ تیرماه آمریکا است.
-
-یکی از ساکنان بندرعباس در شبکه اجتماعی اکس نوشت برق مناطقی از این شهر قطع شده است. او در پیام دیگری نوشت: «من یک بندرعباسی‌ام، ما آدمیم، نه تیتر خبر.»
-
-این گزارش همزمان با ادامه حملات آمریکا به اهدافی‌ها در نوار ساحلی جنوب ایران و انفجارها در بندرعباس، سیریک، چابهار، کنارک و جزیره ابوموسی منتشر شده است.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

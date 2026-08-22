@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 356
 
-📅 آخرین بروزرسانی: 1405/06/01 01:18
+📅 آخرین بروزرسانی: 1405/06/01 01:39
 
 ---
+
+## VahidOOnLine — post 247983
+
+<div align="center"><video src="files/post_247983_VahidOOnLine_247983.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247983_VahidOOnLine_247983.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز سه‌شنبه نهم تیرماه دانشجویان دانشگاه آزاد مقاطع کارشناسی ارشد و دکتری، مقابل سازمان مرکزی دانشگاه آزاد در تهران تجمع کرده و نسبت به حضوری شدن امتحانات خود اعتراض کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247982
+
+<div align="center"><video src="files/post_247982_VahidOOnLine_247982.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247982_VahidOOnLine_247982.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد روی یکی از سطل‌های زباله در شهر سردشت استان آذربایجان‌غربی، پلاکاردهایی با مضامین شعارهایی علیه علی و مجتبی خامنه‌ای چسبانده‌اند. روی آنها نوشته‌: «یزید خامنه‌ای رفت که رفت» و «مجتبی جلاد هم پشتش می‌ره»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247981
 
@@ -288,32 +314,6 @@
 
 عزیزی با اشاره به نقش آمریکا در منطقه گفت: «عصر مداخله آمریکا در امور منطقه به سر آمده و بازگشت مجدد شکست‌خوردگان، هرگز دستاوردی به همراه ندارد.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247963
-
-<div align="center"><video src="files/post_247963_VahidOOnLine_247963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247963_VahidOOnLine_247963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم بریتانیا دوشنبه هشتم تیرماه مقابل ساختمان نخست‌وزیری این کشور در لندن تجمع کردند و خواستار تروریستی اعلام شدن سپاه شدند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247962
-
-<div align="center"><img src="files/post_247962_VahidOOnLine_247962.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️روابط عمومی سپاه کرمانشاه اعلام کرد که در پی یک «حمله مسلحانه» در شامگاه دوشنبه نهم تیر، دو عضو نیروهای بومی سپاه پاوه کشته شده‌اند.
-
-به گزارش رکنا، این حمله در مقابل درِ منزل این افراد رخ داد و در جریان آن، «برهان کریسانی» و «خالد خالدی‌نیا» کشته شدند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,35 @@
 # آرشیو کانال VahidOOnLine - صفحه 219
 
-📅 آخرین بروزرسانی: 1405/06/01 01:18
+📅 آخرین بروزرسانی: 1405/06/01 01:39
 
 ---
+
+## VahidOOnLine — post 251110
+
+<div align="center"><img src="files/post_251110_VahidOOnLine_251110.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌های ایران گزارش دادند به فاصله پنج دقیقه از زمین‌لرزه اول، زمین‌لرزه دیگری به بزرگی ۵.۷، حوالی کوزران در استان کرمانشاه را لرزاند.
+
+
+دقایقی پیش از آن نیز زمین‌لرزه‌ای به بزرگی ۵.۲، همین منطقه در استان کرمانشاه را لرزانده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251109
+
+<div align="center"><img src="files/post_251109_VahidOOnLine_251109.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زمین‌لرزه‌ای به بزرگی ۵.۲، صبح دوشنبه، ۲۹ تیرماه کوزران در استان کرمانشاه را لرزاند.
+بنا بر این گزارش این زمین‌لرزه در مناطق مختلفی از غرب ایران احساس شده است.
+تا لحظه تنظیم این خبر گزارشی از میزان خسارات احتمالی این زمین‌لرزه منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251108
 
@@ -246,28 +273,6 @@
 
 ایالات متحده همراه با کانادا و مکزیک میزبان جام جهانی ۲۰۲۶ بود و ترامپ نیز دیدار فینال میان اسپانیا و آرژانتین را از جایگاه ویژه ورزشگاه مت‌لایف تماشا کرد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251082
-
-<div align="center"><img src="files/post_251082_VahidOOnLine_251082.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️سازمان عملیات تجارت دریایی بریتانیا (UKMTO) بامداد دوشنبه اعلام کرد، گزارشی مبنی بر وقوع حادثه در فاصله ۸ مایل دریایی (حدود ۱۴.۸ کیلومتر) شمال غربی منطقه «کمزار» در عمان دریافت کرده است. طبق اطلاعات دریافتی این سازمان از مقامات نظامی، یک کشتی در این موقعیت دچار آتش‌سوزی شده که علت آن هنوز تایید و مشخص نشده است. در همین راستا، از کشتی‌های در حال عبور خواسته شده تا با احتیاط تردد کنند و هرگونه فعالیت مشکوک را گزارش دهند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251081
-
-<div align="center"><img src="files/post_251081_VahidOOnLine_251081.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های ایران گزارش دادند دقایقی پیش صدای چند انفجار در حوالی شهر سیریک در استان هرمزگان شنیده شده است. بر اساس این گزارش‌ها، هنوز محل دقیق این انفجارها مشخص نیست.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
