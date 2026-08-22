@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/31 11:19
+📅 آخرین بروزرسانی: 1405/05/31 11:44
 
 ---
+
+## tasiyanc — post 9319
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برا دوستانی ک همراه اول (اختلال) دارن
+
+ساب ۵۰ گیگی - ارسالی از Parisa
+
+https://sub.connecti24.info/roKRodKdpbqkdXXk
+
+
+ساب رو تو هاپ ، ویتوباکس ، ویتوری بزنید
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9318
 
@@ -256,13 +271,5 @@ a23
 🎯همین حالا عضو شو و شروع کن👇
 https://t.me/+FaoDjhEVG34wMWFk
 https://t.me/+FaoDjhEVG34wMWFk
-</div>
-
-## tasiyanc — post 9295
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکس هاتونو با یه ایموجی معرفی کنید
-
-کامنت بازه.
 </div>
 

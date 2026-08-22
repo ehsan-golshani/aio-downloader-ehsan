@@ -1,12 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/31 11:19
+📅 آخرین بروزرسانی: 1405/05/31 11:44
 
 ---
 
-## tasiyanc — post 9513
+## tasiyanc — post 9514
 
-<div align="center"><a href="files/post_9513_@Tasiyanc Mumbai 🇮🇳.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc Mumbai 🇮🇳.ovpn</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Mumbai 🇮🇳.ovpn
+</div>
+
+## tasiyanc — post 9513
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 
@@ -306,18 +310,5 @@ Negative prompt: cartoon, CGI, 3D render, illustration, painting, plastic skin, 
 ایران عالیه، کتاب شیطان پرستی نوشتن، بعد صفحه اولش: بسم الله الرحمن الرحیم.
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9492
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
 </div>
 

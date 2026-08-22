@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/05/31 11:19
+📅 آخرین بروزرسانی: 1405/05/31 11:44
 
 ---
+
+## tasiyanc — post 6284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+MCI - SamanTel - wifi تست شده
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 6283
 
@@ -222,11 +229,5 @@ trojan://bb45f73f-795b-4a05-a8e0-ba717bce87e3@104.19.229.21:443?path=%2Fid-tksi&
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشنارو 
 🦦
-</div>
-
-## tasiyanc — post 6260
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP OCTOPUS SV⚡🐙.npvt
 </div>
 

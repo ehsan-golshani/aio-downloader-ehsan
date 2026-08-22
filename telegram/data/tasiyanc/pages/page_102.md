@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/05/31 11:19
+📅 آخرین بروزرسانی: 1405/05/31 11:44
 
 ---
+
+## tasiyanc — post 6334
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی  🇮🇹 🇩🇪 🇳🇱
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🚀
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  ⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6333
 
@@ -188,16 +204,5 @@ Password : @Tasiyanc 
 Password : @Tasiyanc  ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سندروم Survivor's Guilt:
-حالت روانی‌ای که فرد پس از زنده موندن از یه فاجعه یا تجربه مرگبار با وجود بی تقصیر بودن، دچار احساس گناه از زنده موندن میشه، به ویژه وقتی دیگران آسیب دیده یا جان باختن.
-
-پروکسی • پروکسی
-
-@Tasiyanproxy ✅
 </div>
 

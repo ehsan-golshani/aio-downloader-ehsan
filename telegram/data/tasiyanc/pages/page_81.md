@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/05/31 11:19
+📅 آخرین بروزرسانی: 1405/05/31 11:44
 
 ---
+
+## tasiyanc — post 6984
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡⚡@Taisyanc.hc
+</div>
 
 ## tasiyanc — post 6983
 
@@ -255,11 +261,5 @@ https://play.google.com/store/apps/details?id=net.darktunnel.app
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خب خب دست پر اومدیم
-</div>
-
-## tasiyanc — post 6949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنا چ‌کم شده
 </div>
 

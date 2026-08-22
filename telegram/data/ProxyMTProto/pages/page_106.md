@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/05/31 11:17
+📅 آخرین بروزرسانی: 1405/05/31 11:42
 
 ---
+
+## ProxyMTProto — post 48267
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: relay.nowabst.net
+Port: 853
+Secret: ee19f4ad26c65891fd22cf3b7a59f0d1036164732e78352e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48266
 
@@ -172,15 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e
 Server: get.utkanos.life
 Port: 443
 Secret: eed8c4721b5a97067cca9364b04d293afc6765742e75746b616e6f732e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48247
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Together-for-iran.jetish.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 
