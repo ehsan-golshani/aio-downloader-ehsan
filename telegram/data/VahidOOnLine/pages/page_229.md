@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 229
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 250882
+
+<div align="center"><video src="files/post_250882_VahidOOnLine_250882.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250882_VahidOOnLine_250882.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تصاویر منتشرشده، شنبه ۲۷ تیر، راهپیمایی ایرانیان مقیم هامبورگ را در حمایت از انقلاب ملی ایران و در گرامیداشت یاد کشته‌شدگان دی‌ماه به تصویر می‌کشد.
+
+شرکت‌کنندگان با در دست داشتن پرچم‌های شیروخورشید، شعار «پاینده ایران» سر دادند و یاد جاویدنامان انقلاب دی‌ماه را گرامی داشتند
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250881
 
@@ -287,19 +302,6 @@ youtu.be
 
 در پیام خود تاکید کرد «دشمن» نباید هیچ علامت ضعفی از ما دریافت کند.
 
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250862
-
-<div align="center"><video src="files/post_250862_VahidOOnLine_250862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250862_VahidOOnLine_250862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای ارسالی به ایران اینترنشنال نشان می‌دهد که ایرانیان مقیم فنلاند روز ۲۷ تیر مقابل سفارت آمریکا در هلسینکی برای گرامیداشت یاد سناتور لیندزی گراهام گرد هم آمدند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

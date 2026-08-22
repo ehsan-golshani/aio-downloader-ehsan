@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 253
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 250364
+
+<div align="center"><img src="files/post_250364_VahidOOnLine_250364.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری رسمی اردن گزارش داد که این کشور پنجشنبه هشت موشک جمهوری اسلامی را رهگیری و منهدم کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250363
 
@@ -305,15 +316,6 @@
 
 با این حال، ترامپ گفت این حکومت همچنان خطرناک است، اما اکنون خواهان توافق است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250340
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تصاویر منتشرشده از شهرهای جنوبی ایران، صف‌های طولانی در جایگاه‌های سوخت را نشان می‌دهد؛ شهروندان برای تامین بنزین با ازدحام و انتظارهای طولانی روبه‌رو شده‌اند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/31 21:21
+📅 آخرین بروزرسانی: 1405/05/31 23:42
 
 ---
+
+## tasiyanc — post 8137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 ترامپ در مصاحبه با فاکس نیوز:
+تغییر حکومت در ایران شدنی است بشرطی که مردم ایران بتوانند با سلاح از خودشان دفاع کنند
+اگر لازم بدونم نیروی زمینی به ایران اعزام خواهم کرد هنوز وضعیت رو نهایی نکردیم
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺امروز July 16، روز جهانی ماره 🌟
+
++ این روزو به آدمای سمی زندگیت تبریک بگو
+
+@Tasiyanc ⭐️| مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8130
+
+<div align="center"><video src="files/post_8130_tasiyanc_8130.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8130_tasiyanc_8130.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساحل فیتوپلانکتون ، چابهار زیبا 🌴🌊
+
+@Tasiyanc 
+⭐️| مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8128
 
@@ -156,33 +189,5 @@
 ⭕️💪 ترامپ :امشب، فردا و پس‌فردا به ایران حمله سختی خواهیم کرد و در آخر اگر تسلیم نشن، تمام پل‌‌ها و نیروگاه هاشون رو نابود میکنیم
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8108
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توی مسجد سلیمان یه خانم 31 ساله بعد از اینکه به خواستگارش جواب رد میده، خواستگارِ حرومزاده‌اش با 5 تا گلوله، این خانوم رو جلوی دختر 12 سالش به قتل می‌رسونه. اون بارها به مقامات اعلام کرده بود که جونش توسط این شخص در خطره، ولی توجهی نکردن! @Tasiyanc ⭐️ |…
-</div>
-
-## tasiyanc — post 8107
-
-<div align="center"><img src="files/post_8107_tasiyanc_8107.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توی مسجد سلیمان یه خانم 31 ساله بعد از اینکه به خواستگارش جواب رد میده، خواستگارِ حرومزاده‌اش با 5 تا گلوله، این خانوم رو جلوی دختر 12 سالش به قتل می‌رسونه.
-اون بارها به مقامات اعلام کرده بود که جونش توسط این شخص در خطره، ولی توجهی نکردن!
-
-
-@Tasiyanc ⭐️ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8106
-
-<div align="center"><img src="files/post_8106_tasiyanc_8106.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه مربی پرواز وسط آموزش به شاگرد 22 ساله‌اش گفته “ ازینجا به بعد خودت میدونی چیکار کنی” بعد در هواپیمارو باز کرده و پریده و خودکشی کرده،شاگرد هم در نهایت موفق شده هواپیمارو تنهایی و سالم فرود بیاره.
-
-@Tasiyanc ⭐️| مرجع کانفیگ
 </div>
 

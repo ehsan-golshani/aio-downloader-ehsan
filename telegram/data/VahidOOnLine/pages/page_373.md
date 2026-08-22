@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 373
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 247570
+
+<div align="center"><video src="files/post_247570_VahidOOnLine_247570.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247570_VahidOOnLine_247570.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد در منطقه‌ای در نزدیکی فرودگاه شیراز دود به آسمان برخاسته است. برخی شهروندان از شنیدن صدای انفجار در این شهر در روز شنبه روایت کرده‌اند اما این روایت به صورت مستقل تایید نشده است
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247569
 
@@ -264,18 +277,6 @@ ht
 فقط می‌خواستیم مردم را خوشحال کنیم
 
 ♦️رامین رضاییان، بهترین بازیکن دیدار ایران و مصر پس از این دیدار پرافت‌وخیز و در حالیکه گل دقیقه ۹۰+۳ شجاع خلیل‌زاده آفساید اعلام شد، در مقابل خبرنگاران به گریه افتاد و گفت: حق مردم ما خیلی بیشتر از این حرف‌ها است. ما در میدان جنگیدیم. سه ماه است که داریم بدون هیچ چشم‌داشتی با همه می‌جنگیم فقط برای اینکه مردم ایران را اندکی خوشحال کنیم. فقط امیدوارم صعود کنیم.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247550
-
-<div align="center"><img src="files/post_247550_VahidOOnLine_247550.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تیم ملی بلژیک سرانجام پس از مساوی با مصر و ایران در برابر نیوزیلند «بازگشت دیرهنگام» خود به جام جهانی را با پنج گل به نیوزیلند جشن گرفت.
-بلژیک با این نتیجه به‌عنوان تیم نخست گروه به مرحله حذفی صعود کرد.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

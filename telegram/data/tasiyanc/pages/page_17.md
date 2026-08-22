@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/05/31 21:21
+📅 آخرین بروزرسانی: 1405/05/31 23:42
 
 ---
+
+## tasiyanc — post 9124
+
+<div align="center"><video src="files/post_9124_tasiyanc_9124.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9124_tasiyanc_9124.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی کانال 
+🆕
+
+Oreo Hair — Night Selfie 
+🤖
+🤖
+
+Prompt - بزنید روش کپی میشه
+
+An extremely unremarkable iPhone mirror selfie photo with no clear subject or framing—just a careless snapshot. The photo has a touch of motion blur, and mildly overexposed from uneven sunlight. The angle is awkward, the composition nonexistent, and the overall effect is aggressively mediocre—like a photo taken by accident while pulling the phone out of a pocket to take the selfie. It's of an e girl in a skirt, oversized (very big) black hoodie, and has tight, white legs warmers with converse shoes, she holds her legs up, she is sitting in the sofa, her face is visible, she has oreo hair, vertical 9:16 aspect ratio, no lights, it’s night, the mirror is slightly dirty.
+
+آموزش استفاده 
+♻️
+
+Join As @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرگزاری تسنیم : حمیدرضا رجب‌زاده، مداحی که چند روزی بود گم شده بود، به قتل رسیده و فیلم لحظه قتلش به خانواده‌‌اش ارسال شده، پلیس فعلا داره پیگیری می‌کنه. « مشاهده »
+</div>
+
+## tasiyanc — post 9122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated location 🇹🇷━━━╮ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.141:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage…
+</div>
 
 ## tasiyanc — post 9121
 
@@ -230,34 +267,5 @@ fashion editorial photography, front shot, upper body, professional female model
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9102
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴قوه قضاییه : آیت‌الله خرازی به دلیل حرف های کذب و دروغش تحت تعقیب قرار گرفت و براش تشکیل پرونده دادیم.
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9099
-
-<div align="center"><img src="files/post_9099_tasiyanc_9099.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت Vip جدید 🆕
-
-Prompt 🤖🤖
-عکس دخترانه هم میشه بدید
-A person with slicked-back dark hair wearing oversized square sunglasses is shown in a dramatic, cinematic portrait. The lighting creates a strong shadow across the face, revealing only part of the skin tone and features, while the background is a vibrant gradient of deep red to orange, forming a glowing circular or sun-like halo effect behind the head. The clothing is dark, almost blending into the shadows, giving the portrait a bold, fashion-editorial, and futuristic mood.
-آموزش استفاده 👉
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9098
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از تیم اتکر تاسیان تشکر میکنم بخاطر کار خوبی ک چند روزه کردن ، خط قرمز کانال و اعضاء رد بشه تیم اتکر ورود میکنن
 </div>
 

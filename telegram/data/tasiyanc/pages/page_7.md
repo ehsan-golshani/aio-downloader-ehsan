@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/05/31 21:21
+📅 آخرین بروزرسانی: 1405/05/31 23:42
 
 ---
+
+## tasiyanc — post 9383
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها ⚡️
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9382
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴آغاز توزیع کارت کنکور ۱۴۰۵
+
+📡 داوطلبان کنکور تا چهارشنبه ۲۸ مرداد فرصت دارند کارت آزمون خود را از سایت سازمان سنجش دریافت کنند.
+
+📡 آزمون تجربی صبح، هنر و زبان‌های خارجی بعدازظهر پنجشنبه ۲۹ مرداد، ریاضی، فنی و انسانی صبح جمعه ۳۰ مرداد برگزار خواهد شد.
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9381
+
+<div align="center"><img src="files/post_9381_tasiyanc_9381.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺بورس در آستانه ۵.۹ میلیونی شدن
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9380
 
@@ -217,47 +250,5 @@ A realistic photo of a powerful, mysterious young woman with dark, tousled hair,
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9359
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قدیمی ترین سایت فعال در ایران✅
-امنیت،امکانات،تضمین پرداخت💎
-</div>
-
-## tasiyanc — post 9358
-
-<div align="center"><img src="files/post_9358_tasiyanc_9358.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅چرا سایت بین المللی ماف بت بهترین انتخاب برای پیش بینی و شرط بندی❓
-1️⃣ شارژ و برداشت اسان و سریع
-2️⃣پر اپشن ترین سایت فعال در ایران
-3️⃣دارای مجوز رسمی curacao
-4️⃣کارت به کارت همیشه فعال
-
-➖هدایا بی نظیر ماف بت:👇
-🎁 100% بونوس خوشامدگویی
-🎁 تا 20%برگشت باخت هفتگی
-🎁10% شارژ اضافی روی شارژ دلاری
-🎁و15%و20%شارژ اضافی نقدی برای 3 واریز اول هر روز
-
-👍 با فعالیت در ماف بت طعم واقعی امکانات در سایت جهانی حس میکنید👍
-g25
-🎯ادرس بدون فیلتر سایت:
-✅https://mafbet.com/fa/?btag=260368
-✔️ کانال تلگرام سایت:
-👑https://t.me/+8eCDvbzSV5JlZjlk
-</div>
-
-## tasiyanc — post 9356
-
-<div align="center"><img src="files/post_9356_tasiyanc_9356.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استوری های جدید جول فرشاد: رامین رضائیان من رو به تریسام دعوت کرد!
-
-@Tasiyanc ✅
 </div>
 

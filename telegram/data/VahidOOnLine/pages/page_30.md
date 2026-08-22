@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 255665
+
+<div align="center"><img src="files/post_255665_VahidOOnLine_255665.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ماجد الانصاری، سخنگوی وزارت امور خارجه قطر، روز سه‌شنبه ۲۷ مرداد، در یک نشست خبری اعلام کرد که کشورهای میانجی میان جمهوری اسلامی و ایالات متحده، پیش از تلاش برای بازگرداندن واشنگتن و تهران به میز مذاکرات جهت پایان دادن به جنگ، منتظر اعلام توافق دوجانبه میان ایران و عمان درباره تردد از تنگه هرمز هستند.
+
+سخنگوی وزارت خارجه قطر تاکید کرد که دستیابی به یک توافق روشن میان تهران و مسقط درباره این آبراه راهبردی، مسیر را برای ازسرگیری گفتگوهای کلان‌تر و جامع‌تر میان ایران و آمریکا هموارتر خواهد کرد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255664
 
@@ -300,13 +313,5 @@ ManotoTV
 Indypersian
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255636
-
-<div align="center"><img src="files/post_255636_VahidOOnLine_255636.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
 </div>
 

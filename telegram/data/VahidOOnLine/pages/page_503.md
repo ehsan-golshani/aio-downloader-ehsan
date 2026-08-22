@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 503
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 243964
+
+<div align="center"><video src="files/post_243964_VahidOOnLine_243964.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243964_VahidOOnLine_243964.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز شنبه دانش‌آموزان معترض در مقابل شورای عالی انقلاب فرهنگی خطاب به دبیر این نهاد فریاد زدند «خسرو بیا پایین» تا به پاسخگویی به آن‌ها بپردازد. آن‌ها به مصوبه تاثیر معدل پایه یازدهم در کنکور معترض هستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243963
 
@@ -282,19 +295,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان در استان لرستان روز شنبه همزمان با سایر استان‌ها مقابل اداره‌کل آموزش و پرورش استان تجمع کرده و به شیوه برگزاری امتحانات و تاثیر معدل در کنکور اعتراض کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243944
-
-<div align="center"><video src="files/post_243944_VahidOOnLine_243944.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243944_VahidOOnLine_243944.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با گسترش سراسری اعتراضات دانش‌آموزی، محصلان استان خراسان رضوی روز شنبه ۱۶ خرداد در مشهد با تجمع مقابل اداره‌کل آموزش و پرورش علیه تاثیر معدل پایه یازدهم در کنکور و شیوه برگزار کلاس‌ها و امتحانات اعتراض کردند. آن‌ها خواستار استعفای دبیر شورای عالی انقلاب فرهنگی شدند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

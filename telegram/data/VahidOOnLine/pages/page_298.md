@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 298
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 249242
+
+<div align="center"><video src="files/post_249242_VahidOOnLine_249242.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249242_VahidOOnLine_249242.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تصاویری که چهارشنبه‌شب در شبکه‌های اجتماعی منتشر شد، نشان می‌دهد شماری از ماهیگیران در هرمزگان، قایق‌های خود را از اسکله خارج می‌کنند تا از آسیب‌های ناشی از درگیری‌های اخیر در امان بمانند.
+
+در بخشی از این ویدیو، یکی از ماهیگیران می‌گوید: «هر قایق ۵۰۰، ۶۰۰، ۷۰۰ میلیون یا حتی یک میلیارد تومان ارزش دارد. چندین قایق غرق شده، چندین قایق سوخته و لنج‌های ۲۰، ۴۰ و ۵۰ میلیارد تومانی از بین رفته‌اند. مال و اموال مهم نیست، درد اصلی جان‌هایی است که از دست رفته‌اند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249241
 
@@ -277,21 +292,6 @@
 برخی منابع نیز از فعالیت پدافند در نقاطی از بندرعباس برای مقابله با اهدافی در آسمان خبر داده‌اند. تاکنون مقام‌های نظامی یا استانی درباره ماهیت دقیق این صداها، خسارات یا تلفات احتمالی اظهارنظر رسمی نکرده‌اند.
 نقاط مختلفی از استان بوشهر، روز پنجشنبه هدف حملات آمریکا قرار گرفته است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249219
-
-<div align="center"><video src="files/post_249219_VahidOOnLine_249219.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249219_VahidOOnLine_249219.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همزمان با گذشت شش ماه از انقلاب ملی ایرانیان، گروهی از خانواده‌های جان‌باختگان با راه‌اندازی کارزاری در شبکه‌های اجتماعی، تصاویر و ویدیوهایی از عزیزان خود منتشر کردند و یاد آن‌ها را گرامی داشتند.
-
-مهدی تاجیک، عضو تحریریه ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

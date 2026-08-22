@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 284
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 249558
+
+<div align="center"><video src="files/post_249558_VahidOOnLine_249558.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249558_VahidOOnLine_249558.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سرگئی لاوروف، وزیر امور خارجه روسیه، جمعه ۱۹ تیر، پس از پایان سفر خود به بوروندی، با اجرای رقص و آیین‌های سنتی در بوجومبورا بدرقه شد.
+هیات روسی در جریان سفر به بوروندی با «استقبالی بسیار گرم» روبرو شد و هنگام ترک بوجومبورا نیز بار دیگر شاهد «مهمان‌نوازی واقعی آفریقایی» بود.
+بوروندی چهارمین مقصد لاوروف در سفر چندروزه او به آفریقا بود. وزیر امور خارجه روسیه پیش از آن به اتیوپی، نیجر و موزامبیک سفر کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249557
 
@@ -281,21 +296,6 @@
 
 پیش‌تر اعلام شده بود سفر عراقچی به مسقط، برای گفت‌وگو در خصوص نحوه مدیریت تنگه هرمز انجام شده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249534
-
-<div align="center"><video src="files/post_249534_VahidOOnLine_249534.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249534_VahidOOnLine_249534.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️غلامعلی حدادعادل، پدر همسر مجتبی خامنه‌ای که روز شنبه با حضور بر مزار علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، ادای احترام کرد در گفتگو با خبرگزاری فارس، گفت مردم او را «همانند پدر خود» می‌دانستند و به همین دلیل، مطالبه خونخواهی او را دارند.
-
-او در جریان این حضور، دقایقی بر مزار دخترش، زهرا حدادعادل، همسر مجتبی خامنه‌ای، حضور یافت و با بیان اینکه «هر خانواده‌ای هنگامی که پدر خود را بر اثر ظلم از دست می‌دهد، خونخواه او می‌شود»، مدعی شد «امروز خانواده بزرگ امت اسلام و مردم ایران خونخواه رهبر انقلاب هستند.»
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

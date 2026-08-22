@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/05/31 21:21
+📅 آخرین بروزرسانی: 1405/05/31 23:42
 
 ---
+
+## tasiyanc — post 8787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان امنیت روسیه: پاول دوروف، بنیانگذار تلگرام، در فهرست افراد تحت تعقیب بین‌المللی قرار گرفت!!
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8786
+
+<div align="center"><video src="files/post_8786_tasiyanc_8786.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8786_tasiyanc_8786.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴انتقال اجساد حشدالشعبی
+
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر گلای توی خونه
+</div>
 
 ## tasiyanc — post 8784
 
@@ -205,39 +234,5 @@
 ​✔️ برای طرفداران کارت‌به‌کارت و واریز ریالی
 🔘 (DERBYBET.Com):
 سریع‌ترین واریز ریالی با محیط کاربری امن برای شرط‌های سنگین و آپشن های فراوان.g6
-</div>
-
-## tasiyanc — post 8760
-
-<div align="center"><img src="files/post_8760_tasiyanc_8760.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پژمان بهروزی، شرکت کننده برنامه ایدز ابدی، اومده تو برنامه خط قرمز صداوسیما برا ایرانیا از وطن پرستی بگه
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8759
-
-<div align="center"><img src="files/post_8759_tasiyanc_8759.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانی بودنم سخته ، اداره برق نه تنها برقو قطع می‌کنه ، بعدش میاد یه اپ معرفی می‌کنه پول میگیره میگه کی برقتون قطع میشه
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8758
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود لوک ترکیه📱
-
-تست شده روی همه نت ها
-
-آموزش اتصال روی اندروید⛓
-آموزش اتصال روی ویندوز  ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ⭐️
 </div>
 

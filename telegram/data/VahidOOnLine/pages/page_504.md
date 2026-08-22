@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 504
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 243944
+
+<div align="center"><video src="files/post_243944_VahidOOnLine_243944.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243944_VahidOOnLine_243944.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با گسترش سراسری اعتراضات دانش‌آموزی، محصلان استان خراسان رضوی روز شنبه ۱۶ خرداد در مشهد با تجمع مقابل اداره‌کل آموزش و پرورش علیه تاثیر معدل پایه یازدهم در کنکور و شیوه برگزار کلاس‌ها و امتحانات اعتراض کردند. آن‌ها خواستار استعفای دبیر شورای عالی انقلاب فرهنگی شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243943
 
@@ -280,19 +293,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که دانش‌آموزان کرمانشاه با تجمع مقابل اداره ‌کل آموزش و پرورش شعار «وعده زیاد شنیدیم، عدالتی ندیدیم» سردادند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243924
-
-<div align="center"><video src="files/post_243924_VahidOOnLine_243924.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243924_VahidOOnLine_243924.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد همزمان با سایر شهرهای ایران، محصلان کرمانشاه با تجمع مقابل اداره‌کل آموزش و پرورش به بلاتکلیفی وضعیت کنکور و حضوری شدن امتحانات مدارس اعتراض کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

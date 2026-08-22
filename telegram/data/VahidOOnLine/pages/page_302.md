@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 302
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 249142
+
+<div align="center"><video src="files/post_249142_VahidOOnLine_249142.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249142_VahidOOnLine_249142.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال‌ تلگرامی «حال‌وش» با انتشار ویدیوهایی از چند انفجار در حوالی فرودگاه ایرانشهر و پایگاه سپاه سلمان، در پی حمله آمریکا به مواضع جمهوری اسلامی، خبر داد. تصاویر منتشرشده انفجارهای شدیدی را نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249141
 
@@ -264,17 +277,6 @@
 
 ترامپ که پس از شرکت در اجلاس سران ناتو در آنکارا به لندن رفته است، در این پیام هشدار داد که «در صورت تکرار [حملات ایران] وضعیت بسیار بدتر خواهد شد.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249122
-
-<div align="center"><img src="files/post_249122_VahidOOnLine_249122.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، با بازنشر پستی در تروث سوشال که تصویری از یک آتش‌سوزی را نشان می‌دهد که بالای آن اسم چابهار آورده شده، نوشت: «این حملات در تلافی بمباران کشتی‌ها از سوی ایران در روز گذشته انجام شد. اگر دوباره تکرار شود، اوضاع بسیار بدتر خواهد شد.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

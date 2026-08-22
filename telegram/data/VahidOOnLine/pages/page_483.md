@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 483
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 244571
+
+<div align="center"><video src="files/post_244571_VahidOOnLine_244571.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244571_VahidOOnLine_244571.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانیان بریتانیا با تشکیل تجمعی در مقابل پارلمان این کشور در لندن،‌ روز سه‌شنبه خواستار تروریستی اعلام شدن سپاه و مقابله با جمهوری اسلامی شدند. آن‌ها پرچم‌های شیروخورشید و اسرائیل را در تجمع خود حمل کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244570
 
@@ -306,19 +319,6 @@
 
 ترامپ نوشت دو خلبان این هلی‌کوپتر سالم هستند و هیچ آسیبی ندیده‌اند، اما ایالات متحده «ناگزیر» باید به این حمله پاسخ دهد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244551
-
-<div align="center"><img src="files/post_244551_VahidOOnLine_244551.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدباقر قالیباف، رییس مجلس، در شبکه ایکس نوشت ما زبان دیپلماسی را ترجیح می‌دهیم، اما به زبان‌های دیگر بسیار روان‌تر صحبت می‌کنیم.
-
-او افزود: «اگر به تعهدات خود پایبند نمانید، به زبانی روی خواهیم آورد که در آن مهارت بیشتری داریم.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

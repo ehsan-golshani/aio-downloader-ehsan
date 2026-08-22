@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 488
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 244425
+
+<div align="center"><video src="files/post_244425_VahidOOnLine_244425.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244425_VahidOOnLine_244425.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حوثی‌های یمن، تحت حمایت جمهوری اسلامی، در تلگرام ویدیویی منتشر کرده‌اند که لحظه شلیک موشک به منطقه یافا در اسرائیل را در روز دوشنبه ۱۸ خرداد نشان می‌دهد.
+به گزارش تایمز اسرائیل، موشک پرتاب‌شده از سوی حوثی‌های یمن با موفقیت رهگیری شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244424
 
@@ -304,19 +318,6 @@
 
 کانال ۱۲ تلویزیون اسرائیل عصر دوشنبه ۱۸ خردادماه به نقل از یک مقام رسمی دولت نتانیاهو اعلام کرده بود اسرائیل حملات به ایران را به درخواست دونالد ترامپ متوقف کرده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244404
-
-<div align="center"><video src="files/post_244404_VahidOOnLine_244404.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244404_VahidOOnLine_244404.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارتش اسرائیل با انتشار تصاویری از حملات گسترده به سامانه‌های پدافند هوایی جمهوری اسلامی در غرب و مرکز ایران در روز دوشنبه خبر داد. به گفته این ارتش، این سامانه‌ها برای بازسازی توان دفاعی ایران مستقر شده بودند و انهدام آنها برتری هوایی اسرائیل را در حریم هوایی ایران تقویت می‌کند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

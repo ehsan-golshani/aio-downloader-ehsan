@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 254640
+
+<div align="center"><video src="files/post_254640_VahidOOnLine_254640.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254640_VahidOOnLine_254640.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای منتشرشده در شبکه‌های اجتماعی، گروهی از پرستاران در نیشابور روز سه‌شنبه ۲۰ مرداد در اعتراض به شرایط کاری و مشکلات صنفی خود مقابل بیمارستان حکیم تجمع کردند.
+معترضان خواستار پرداخت معوقات و کارانه‌های پرداخت‌نشده و رسیدگی به مشکلاتی از جمله کمبود نیروی انسانی و تجهیزات، اضافه‌کار اجباری، مدیریت ناصحیح و تبعیض در پرداخت کارانه شدند.
+در ویدیوهای منتشرشده از این تجمع، پرستاران در حالی که مقابل بیمارستان تجمع کرده‌اند، شعار می‌دهند: «کارانه حق ماست، پولش تو جیب شماست».
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254639
 
@@ -304,19 +319,6 @@ IranintlTV
 
 براساس همین گزارش، گفتگو با رهبران گروه‌های مورد حمایت جمهوری اسلامی برای یافتن راهی با هدف انتقال نفت عراق از تنگه هرمز، در دستور کار فرمانده سپاه قدس است.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254620
-
-<div align="center"><video src="files/post_254620_VahidOOnLine_254620.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254620_VahidOOnLine_254620.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از بازنشستگان مخابرات در اصفهان دوشنبه ۱۹ مرداد تجمع کردند و شعارهایی چون «مخابرات رو ما ساختیم، سپاه برد و ما باختیم» سردادند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

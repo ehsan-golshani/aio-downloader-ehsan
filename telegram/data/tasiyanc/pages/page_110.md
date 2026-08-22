@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/05/31 21:21
+📅 آخرین بروزرسانی: 1405/05/31 23:42
 
 ---
+
+## tasiyanc — post 6148
+
+<div align="center"><img src="files/post_6148_tasiyanc_6148.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پابجیم آپدیت شد
+ای فوتبال هم گذاشتم
+تشکر واقعا
+</div>
+
+## tasiyanc — post 6147
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Premium 💙BLUE.npvt
+</div>
+
+## tasiyanc — post 6146
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید 📱
+
+3سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6145
 
@@ -180,35 +212,5 @@ Fast2⚡@Tasiyanc.conf
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-5سرور  سرعتی تست شده 
-🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند سرورNPV میزارم بعدش وایر
-</div>
-
-## tasiyanc — post 6121
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از وایرگارد راضی بودید ریکشن بزنید کانفیگ بعدیشو تا دقایقی دیگه آماده کنم بفرستم
 </div>
 

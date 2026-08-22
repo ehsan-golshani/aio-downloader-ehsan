@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/05/31 21:21
+📅 آخرین بروزرسانی: 1405/05/31 23:42
 
 ---
+
+## tasiyanc — post 7096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟3 کانفیگ اختصاصی دارک تانل 🌟
+
+حجم نامحدود - سرعتی 🚀
+
+تست شده رو تمام نت ها ✅
+
+دانلود Dark Tunnel  🕹
+
+آموزش اتصال به سرور دارک ⏩
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ: یادداشت با ایران نهایی نیست. اگر از توافق خوشمان نیاید، دوباره به بمباران بازمی‌گردیم
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📥Game public DNS | All games
+195.46.39.39
+195.46.39.40
+
+🔑 DNS CHANGER
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7089
 
@@ -244,37 +279,6 @@ Loc 🇬🇧
 آموزش اتصال به سرور دارک ⏩
 
 T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7055
-
-<div align="center"><img src="files/post_7055_tasiyanc_7055.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت دلار هم اکنون 155000
-</div>
-
-## tasiyanc — post 7054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت دلار هم اکنون 155000
-</div>
-
-## tasiyanc — post 7052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختصاصی Ovpn  📶
-
-تست شده تمام نتها 
-🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال
-
-
-✔️ T.me/Tasiyanc 
 ✅
 </div>
 

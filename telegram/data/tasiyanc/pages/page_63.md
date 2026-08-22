@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/05/31 21:21
+📅 آخرین بروزرسانی: 1405/05/31 23:42
 
 ---
+
+## tasiyanc — post 7686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سن دریافت گواهینامه رانندگی از ۱۸ سال به ۱۶ سال کاهش پیدا کرد.
+</div>
+
+## tasiyanc — post 7685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP 🎯 @Tasiyanc.nm
+</div>
+
+## tasiyanc — post 7682
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+3سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
+</div>
 
 ## tasiyanc — post 7681
 
@@ -148,36 +182,5 @@ Fast ⚡ Unlimited.npvt
 Canada 🇨🇦 & Morocco 🇲🇦 🏆
 
 کی میبره
-</div>
-
-## tasiyanc — post 7645
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-2 سرور حجم و کاربر نامحدود ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال به اینجکتور ✨
-
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-</div>
-
-## tasiyanc — post 7643
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید https://t.me/FreeConfigTsBot?start=facac4538f0c
-</div>
-
-## tasiyanc — post 7642
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید https://t.me/FreeConfigTsBot?start=facac4538f0c
 </div>
 

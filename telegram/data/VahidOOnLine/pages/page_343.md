@@ -1,8 +1,27 @@
 # آرشیو کانال VahidOOnLine - صفحه 343
 
-📅 آخرین بروزرسانی: 1405/05/31 23:18
+📅 آخرین بروزرسانی: 1405/05/31 23:40
 
 ---
+
+## VahidOOnLine — post 248249
+
+<div align="center"><video src="files/post_248249_VahidOOnLine_248249.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248249_VahidOOnLine_248249.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️تجمع شبانه مخالفان تفاهم‌نامه با آمریکا؛ شعار «گندم و جو ارزونیتون، تنگه نمی‌دیم بهتون»
+
+♦️ویدئویی از یک تجمع شبانه حامیان حکومت در شب سه‌شنبه دهم تیر ماه در شبکه‌های اجتماعی پربازخورد شده است که در آن شرکت‌کنندگان با سر دادن شعارهایی، با تفاهم‌نامه میان جمهوری اسلامی و آمریکا مخالفت می‌کنند، در شبکه‌های اجتماعی منتشر شده است.
+
+در این ویدئو، تجمع‌کنندگان شعار می‌دهند: «گندم و جو ارزونیتون، تنگه نمی‌دیم بهتون.»
+
+با وجود آنکه به گفته پزشکیان و مجتبی خامنه‌ای، تفاهم‌نامه میان جمهوری اسلامی و آمریکا با تایید شورای عالی امنیت ملی به اجرا درآمده است، برخی جریان‌های تندرو در داخل ایران پیوسته مخالفت خود را با این توافق اعلام می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248248
 
@@ -276,19 +295,6 @@
 
 پس از کشته شدن علی خامنه‌ای در نهم اسفند سال گذشته، مقام‌های جمهوری اسلامی بارها آمریکا و اسرائیل را مسئول این اقدام دانسته و بر «انتقام» و پاسخ به عاملان آن تأکید کرده‌اند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248229
-
-<div align="center"><video src="files/post_248229_VahidOOnLine_248229.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248229_VahidOOnLine_248229.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که یک معترض، شعارهای «دی‌ماه را فراموش نمی‌کنیم» و «جاوید شاه» را بر دیوار خیابانی در شهر فومن نوشت.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
