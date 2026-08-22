@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 422
 
-📅 آخرین بروزرسانی: 1405/05/31 22:51
+📅 آخرین بروزرسانی: 1405/05/31 23:18
 
 ---
+
+## VahidOOnLine — post 246404
+
+<div align="center"><video src="files/post_246404_VahidOOnLine_246404.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246404_VahidOOnLine_246404.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دوستان و بستگان جاویدنام علی روزبهانی به یاد او به توزیع غذا بین شهروندان پرداختند. علی روزبهانی از جمله جوانانی بود که از نخستین روزهای اعتراضات دی‌ماه ۱۴۰۴ در خیابان‌ها حاضر شد و به گفته نزدیکانش، حضوری فعال در کنار دیگر شهروندان داشت. او ابتدا در بازار و چند نقطه دیگر تهران حاضر شد و سرانجام ۱۸ دی به تهرانپارس رفت و گلوله خورد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246403
 
@@ -269,19 +282,6 @@
 
 او ادامه داد: «مسعود پزشکیان تعهد کرده که حقوق ملت ایران و جبهه مقاومت حفظ شود و از حزب‌الله، انصارالله، حشد الشعبی و حماس حمایت کنیم.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246383
-
-<div align="center"><img src="files/post_246383_VahidOOnLine_246383.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ شهباز شریف، نخست‌وزیر پاکستان، روز جمعه ۲۹ خرداد در صحن مجلس این کشور اعلام کرد که در راس هیئتی بلندپایه برای شرکت در مراسم تشییع علی خامنه‌ای، رهبر پیشین جمهوری اسلامی به ایران سفر خواهد کرد.
-
-شریف اعلام کرد که برای شرکت در این مراسم از او دعوت به‌عمل آمده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

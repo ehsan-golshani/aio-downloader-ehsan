@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 440
 
-📅 آخرین بروزرسانی: 1405/05/31 22:51
+📅 آخرین بروزرسانی: 1405/05/31 23:18
 
 ---
+
+## VahidOOnLine — post 245804
+
+<div align="center"><img src="files/post_245804_VahidOOnLine_245804.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️در ابتدای نیمه دوم، دقیقه ۵۴، تیم فوتبال نیوزلند توانست گل دوم را وارد دروازه تیم فوتبال ایران کرده و نتیجه بازی را ۲ بر ۱ کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245803
 
@@ -238,19 +249,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️جورجیا ملونی، نخست‌وزیر ایتالیا، روز دوشنبه برای شرکت در نشست سران گروه ۷ وارد فرودگاه ژنو در سوئیس شد. تصاویر منتشر شده نشان می‌دهند که ملونی در این سفر، دختر ۹ ساله‌اش، جینورا را نیز به همراه دارد و هر دو پس از خروج از هواپیما مورد استقبال میزبان قرار گرفتند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245784
-
-<div align="center"><img src="files/post_245784_VahidOOnLine_245784.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جی‌دی ونس به سی‌ان‌ان گفت یادداشت تفاهم آمریکا با جمهوری اسلامی «سندی بسیار کلی» و حدود یک‌ونیم صفحه است. او گفت جزییات توافق در جریان مذاکرات بیشتر مشخص خواهد شد.
-ونس گفت: «این یادداشت تفاهم حدود یک صفحه و نیم است، بنابراین سندی بسیار کلی محسوب می‌شود. شماری از مسائل را باید در مرحله مذاکرات فنی مشخص کنیم.»
-
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

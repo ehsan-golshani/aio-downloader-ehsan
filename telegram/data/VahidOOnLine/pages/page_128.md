@@ -1,8 +1,24 @@
 # آرشیو کانال VahidOOnLine - صفحه 128
 
-📅 آخرین بروزرسانی: 1405/05/31 22:51
+📅 آخرین بروزرسانی: 1405/05/31 23:18
 
 ---
+
+## VahidOOnLine — post 253271
+
+<div align="center"><video src="files/post_253271_VahidOOnLine_253271.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253271_VahidOOnLine_253271.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️پلیس روسیه اعلام کرد در پی انفجاری در نزدیکی یک کافه در مسکو، دست‌کم سه نفر کشته و ۱۵ نفر دیگر زخمی شدند.
+به گزارش خبرگزاری ریانووستی به نقل از پلیس، این انفجار شامگاه شنبه دهم مرداد ماه، در نزدیکی یک کافه تابستانی رخ داد.
+پلیس اعلام کرد سه نفر در این حادثه جان باختند و ۱۵ نفر نیز با جراحات متفاوت به مراکز درمانی منتقل شدند.
+مقام‌های روسیه تاکنون علت این انفجار را اعلام نکرده‌اند و تحقیقات درباره این حادثه ادامه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253270
 
@@ -297,19 +313,6 @@
 ♦️مدیر کل حفاظت محیط زیست استان تهران روز شنبه دهم مرداد تصاویری از بازیگوشی دو خرس قهوه‌ای را که توسط دوستداران طبیعت در یکی از مناطق حفاظت‌شده شهرستان شمیرانات ثبت شده، منتشر کرد.
 او این رخداد را نشانه پویایی زیستگاه‌های طبیعی و اثربخشی اقدامات حفاظتی در این مناطق دانست و گفت ثبت این تصاویر نشان‌دهنده تداوم حضور گونه‌های ارزشمند حیات‌وحش در زیستگاه‌های استان تهران است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253250
-
-<div align="center"><video src="files/post_253250_VahidOOnLine_253250.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253250_VahidOOnLine_253250.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده نشان می‌دهد که ایرانیان مقیم سوئد روز شنبه ۱۰ مرداد در شهر مالمو با برگزاری تجمعی، اعدام‌های جمهوری اسلامی در میدان علیخانی اصفهان را محکوم کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/31 22:51
+📅 آخرین بروزرسانی: 1405/05/31 23:18
 
 ---
+
+## ProxyMTProto — post 50242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxtstar.live
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50241
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: as.mkim.click
 Port: 443
 Secret: ee2dfa3526fc70b7abd7a09eade6ccea1f61732e6d6b696d2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50222
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

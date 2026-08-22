@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/31 22:51
+📅 آخرین بروزرسانی: 1405/05/31 23:18
 
 ---
+
+## VahidOOnLine — post 255935
+
+<div align="center"><img src="files/post_255935_VahidOOnLine_255935.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+المانیتور به نقل از مقام‌های منطقه‌ای گزارش داد عربستان سعودی از علی الزیدی، نخست‌وزیر عراق، خواسته است رهبران شبه‌نظامیان مورد حمایت جمهوری اسلامی را که در حملات به عربستان سعودی نقش داشته‌اند، بازداشت و مجازات کند.
+
+در این گزارش آمده است: «ریاض خواستار پاسخگو کردن رهبرانی است که دستور حملات به عربستان سعودی را صادر کرده‌اند، نه فقط نیروهایی که این حملات را اجرا کرده‌اند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255934
 
@@ -292,19 +305,6 @@ IranintlTV
 
 پیش‌تر، منابع پاکستانی روز سه‌شنبه ۲۷ مرداد به «الشرق» گفته بودند که ۴۸ ساعت آینده می‌تواند در تعیین سرنوشت آتش‌بس میان ایالات متحده و ایران حیاتی باشد. این منابع هشدار داده بودند که ادامه اختلافات و بازنگشتن دو طرف به مذاکرات محتوایی، خطر ازسرگیری حملات نظامی را افزایش می‌دهد.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255907
-
-<div align="center"><video src="files/post_255907_VahidOOnLine_255907.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255907_VahidOOnLine_255907.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سفر قالیباف به بغداد فقط یک دیدار دیپلماتیک نیست. آینده گروه‌های مسلح، صادرات نفت عراق و دسترسی تهران به منابع مالی، سه پرونده اصلی پشت این سفرند.
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

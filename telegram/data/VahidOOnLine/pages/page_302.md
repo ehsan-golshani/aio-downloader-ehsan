@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 302
 
-📅 آخرین بروزرسانی: 1405/05/31 22:51
+📅 آخرین بروزرسانی: 1405/05/31 23:18
 
 ---
+
+## VahidOOnLine — post 249141
+
+<div align="center"><img src="files/post_249141_VahidOOnLine_249141.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، همزمان با حملات آمریکا به اهدافی در جنوب ایران، در پیامی در شبکه اجتماعی ایکس نوشت: «دشمن متجاوز و هم‌دستانش به‌شدت تنبیه خواهند شد.»
+او این پیام را به دو زبان عربی و فارسی خطاب به کشورهای حوزه خلیج فارس منتشر کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249140
 
@@ -259,17 +271,6 @@
 ## VahidOOnLine — post 249122
 
 <div align="center"><img src="files/post_249122_VahidOOnLine_249122.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، با بازنشر پستی در تروث سوشال که تصویری از یک آتش‌سوزی را نشان می‌دهد که بالای آن اسم چابهار آورده شده، نوشت: «این حملات در تلافی بمباران کشتی‌ها از سوی ایران در روز گذشته انجام شد. اگر دوباره تکرار شود، اوضاع بسیار بدتر خواهد شد.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249121
-
-<div align="center"><img src="files/post_249121_VahidOOnLine_249121.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دونالد ترامپ، رییس‌جمهوری آمریکا، با بازنشر پستی در تروث سوشال که تصویری از یک آتش‌سوزی را نشان می‌دهد که بالای آن اسم چابهار آورده شده، نوشت: «این حملات در تلافی بمباران کشتی‌ها از سوی ایران در روز گذشته انجام شد. اگر دوباره تکرار شود، اوضاع بسیار بدتر خواهد شد.»
