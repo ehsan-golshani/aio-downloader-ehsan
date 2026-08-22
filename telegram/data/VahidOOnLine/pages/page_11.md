@@ -1,8 +1,65 @@
 # آرشیو کانال VahidOOnLine - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/31 05:33
+📅 آخرین بروزرسانی: 1405/05/31 06:50
 
 ---
+
+## VahidOOnLine — post 256018
+
+<div align="center"><video src="files/post_256018_VahidOOnLine_256018.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256018_VahidOOnLine_256018.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در شبکه‌های اجتماعی، اتاق جاویدنام ایلیا دهقانی را در نبود او به تصویر می‌کشد.
+
+این جاویدنام شامگاه جمعه ۱۹ دی در تهرانپارس تهران با گلوله جنگی هدف قرار گرفت که به قطع نخاع او انجامید و پس از حدود یک هفته بستری جان خود را از دست داد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256017
+
+<div align="center"><video src="files/post_256017_VahidOOnLine_256017.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256017_VahidOOnLine_256017.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تصاویری تاریخی از جشن خرمن با حضور کشاورزان، روستاییان و مهندسان ایرانی و آمریکایی؛ همراه با رقص‌های محلی ایران و اجرای Square Dance آمریکایی.
+گوشه‌ای از همکاری و ارتباط فرهنگی ایران و آمریکا در قدیم.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256016
+
+<div align="center"><img src="files/post_256016_VahidOOnLine_256016.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد گروه ضربت ناو هواپیمابر «یواس‌اس جورج واشینگتن» وارد حوزه عملیاتی این فرماندهی در خاورمیانه شده و فعالیت خود را در منطقه آغاز کرده است.
+
+سنتکام اعلام کرد این گروه ضربت در چارچوب یک ماموریت برنامه‌ریزی‌شده به منطقه اعزام شده است.
+
+سنتکام همچنین تصویری از عرشه «یواس‌اس جورج واشینگتن» در دریای عرب منتشر کرد که چندین جنگنده و ملوانان نیروی دریایی آمریکا را نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256015
+
+<div align="center"><img src="files/post_256015_VahidOOnLine_256015.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ابراهیم عزیزی، رئیس کمیسیون امنیت ملی و سیاست خارجی مجلس شورای اسلامی، روز پنجشنبه ۲۹ مردادماه در شبکه اجتماعی ایکس نوشت: «ما تک‌تک حرکات شما را زیر نظر داریم. هرگونه اشتباه یا محاسبه نادرست دیگری، پیامدهایی به‌مراتب سنگین‌تر از گذشته خواهد داشت. پیش از آنکه خیلی دیر شود، فورا به حضور خود در منطقه پایان دهید و نظم منطقه‌ای جدید ایران را بپذیرید.»
+
+این پیام عزیزی همزمان با گزارش‌ها درباره رسیدن ناو هواپیمابر جورج واشنگتن به دریای عرب منتشر شد. این ناو جنگی برای جایگزینی ناو آبراهام لینکلن به منطقه اعزام شده است. دونالد ترامپ، رئیس‌جمهوری آمریکا و پیت هگست، وزیر جنگ این کشور، پیش از این هشدار داده بودند که ارتش آمریکا می‌تواند محاصره دریایی بنادر و شناورهای مرتبط با ایران را «تا هر زمان که لازم باشد» ادامه دهد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256014
 
@@ -224,64 +281,5 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 [پست از کانال منبع حذف شد.]
-</div>
-
-## VahidOOnLine — post 255998
-
-<div align="center"><img src="files/post_255998_VahidOOnLine_255998.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️قیمت دلار در بازار تهران از ۱۹۰ هزار تومان رد شد
-
-♦️قیمت دلار در بازار آزاد تهران ظهر پنجشنبه ۲۹ مردادماه و یک روز پس از آنکه دونالد ترامپ از تشدید تحریم اقتصادی سخن گفت، با افزایش چشمگیری همراه و وارد کانال ۱۹۱ هزار تومان شد.
-
-فروشندگان ارزهای خارجی در شبکه‌های اجتماعی، تا ظهر روز پنجشنبه قیمت دلار را ۱۹۰ هزار و ۱۰۰ تومان اعلام کرده‌اند.
-
-همزمان، هر یورو در بازار تهران به قیمت ۲۲۲ هزار و ۴۰۰ تومان رسید.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255997
-
-<div align="center"><video src="files/post_255997_VahidOOnLine_255997.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255997_VahidOOnLine_255997.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مخاطبان با ارسال ویدیوهایی یاد فرحناز اسپد، روزنامه‌نگار و مجری ایران‌اینترنشنال را گرامی داشتند. یکی از آنها گفت: «رفتن او در شرایطی که مردم ایران هر روز با رنجی تازه مواجه می‌شوند، زخمی بر پیکر ملت بود.»
-
-فرحناز اسپد پس از تحمل یک دوره بیماری سخت چشم از جهان فروبست.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255996
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک کاربر ایرانی در اینستاگرام به نام حمید شبانی، با انتشار ویدیویی می‌گوید او و همراهانش در مسیر بازگشت از سفر مشهد در محور قم به گرمسار، یک کره‌اسب گرفتار در باتلاق را نجات داده‌اند.
-
-به گفته این کاربر، آن‌ها در حین رانندگی در جاده متوجه حضور گله‌ای از اسب‌ها و شترها در حاشیه منطقه نمک‌زار و نیزارها شدند و پس از توقف و رفتن به پشت تپه‌های خاکی، متوجه شدند کره‌اسبی در میان لجنزار و باتلاق گیر افتاده است.
-
-او می‌گوید بر اساس وضعیت حیوان، به نظر می‌رسید کره‌اسب حدود دو تا سه روز در گل‌ولای گرفتار بوده و اسب مادر در تمام این مدت در کنار فرزندش ایستاده و او را ترک نکرده است.
-در نهایت یکی از سرنشینان وارد باتلاق شده، کره‌اسب را بیرون کشیده و به مادرش بازگردانده است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255989
-
-<div align="center"><video src="files/post_255989_VahidOOnLine_255989.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255989_VahidOOnLine_255989.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار ایران در رسانه‌های جهان، پنجشنبه ۲۹ مرداد ۱۴۰۵
-ManotoTV
-
-🤖 @VahidOOnLine
 </div>
 
