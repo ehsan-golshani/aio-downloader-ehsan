@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 375
 
-📅 آخرین بروزرسانی: 1405/05/31 20:14
+📅 آخرین بروزرسانی: 1405/05/31 20:41
 
 ---
+
+## VahidOOnLine — post 247506
+
+<div align="center"><img src="files/post_247506_VahidOOnLine_247506.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جی‌دی ونس، معاون رییس جمهور آمریکا گفت اگر جمهوری اسلامی درباره نحوه اجرای تفاهم‌نامه اختلاف‌نظر دارد، می‌تواند تلفن را بردارد و تماس بگیرد.
+
+او افزود خشونت با خشونت پاسخ داده خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247505
 
@@ -236,21 +249,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده نشان می‌دهد گروهی از ایرانیان جمعه پنجم تیرماه مقابل محل اقامت اعضای تیم فوتبال ایران در سیاتل آمریکا تجمع کرده و علیه جمهوری اسلامی شعار می‌دهند.
 بازی فوتبال میان ایران و مصر بامداد شنبه ساعت ۶:۳۰ به وقت تهران در جام‌جهانی انجام خواهد شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247486
-
-<div align="center"><img src="files/post_247486_VahidOOnLine_247486.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری صداوسیمای جمهوری اسلامی از «شنیده شدن صدای انفجار در سیریک» خبر داد.
-
-بر اساس این گزارش، منشا صدا هنوز مشخص نیست.
-
-پیش‌تر دونالد ترامپ اعلام کرده بود جمهوری اسلامی با شلیک پهپاد به یک کشتی باری، آتش‌بس را نقض کرده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

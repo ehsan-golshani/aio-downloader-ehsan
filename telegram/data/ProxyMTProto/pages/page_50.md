@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/05/31 20:15
+📅 آخرین بروزرسانی: 1405/05/31 20:41
 
 ---
+
+## ProxyMTProto — post 49413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: br8ta.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49412
 
@@ -172,15 +181,6 @@ Secret: dd2bc98ec562627d4d23f303a558febf39
 Server: 95.217.193.214
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtproxy.nolags.pw
-Port: 443
-Secret: dd8b89db666c463cce92d4aa6ace95f840
 @ProxyMTProto
 </div>
 

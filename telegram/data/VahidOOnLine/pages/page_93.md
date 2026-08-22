@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/05/31 20:14
+📅 آخرین بروزرسانی: 1405/05/31 20:41
 
 ---
+
+## VahidOOnLine — post 254191
+
+<div align="center"><video src="files/post_254191_VahidOOnLine_254191.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254191_VahidOOnLine_254191.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«تاکسی‌اینترنتی به بهانه خلوت بودن خیابان‌ها ۷۰٪ قیمت کرایه‌ها را کم کرده» ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254190
 
@@ -245,20 +258,6 @@
 
 این در حالی است که گروه حزب‌الله طرفی از این توافقنامه نیست و تا کنون از تحویل و زمین گذاشتن سلاح‌های خود امتناع کرده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254170
-
-<div align="center"><video src="files/post_254170_VahidOOnLine_254170.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254170_VahidOOnLine_254170.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده نشان می‌دهد مراسم تولد جاویدنام آرشان قاسمی بر سر مزارش برگزار شد و یکی از حاضران شعار «به امید سرنگونی» را در تولد او سرمی‌دهد.
-آرشان، دارنده چندین مدال ریاضی بود که در شامگاه ۱۸ دی ۱۴۰۴ در تهران با گلوله ماموران کشته شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

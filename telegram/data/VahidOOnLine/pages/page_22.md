@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/31 20:14
+📅 آخرین بروزرسانی: 1405/05/31 20:41
 
 ---
+
+## VahidOOnLine — post 255845
+
+<div align="center"><img src="files/post_255845_VahidOOnLine_255845.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری ایسنا روز چهارشنبه ۲۸ مردادماه با انتشار گزارشی اعلام کرد با وجود تلاش‌های گسترده سازمان‌های دولتی و مردمی برای پاکسازی لکه‌های نفتی، سواحل جزیره قشم همچنان با آلودگی ناشی از این اثر جنگ مواجه‌اند.
+
+در پی حملات سنتکام و نیروهای مسلح جمهوری اسلامی ایران به نفتکش‌ها در تنگه هرمز، هم سواحل ایران و هم سواحل عمان درگیر آلودگی ناشی از نشت نفت‌کش‌های آسیب‌دیده در این منطقه هستند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255844
 
@@ -295,17 +308,6 @@ IranintlTV
 
 او گفت جمهوری‌اسلامی با این اقدامات حتی کشورهایی را که حاضر به میانجی‌گری با تهران بوده‌اند، از خود دور می‌کند.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255816
-
-<div align="center"><img src="files/post_255816_VahidOOnLine_255816.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مهم‌ترین خبرها و تحلیل‌های رسانه‌های جهان درباره ایران در ۲۴ ساعت گذشته
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 277
 
-📅 آخرین بروزرسانی: 1405/05/31 20:14
+📅 آخرین بروزرسانی: 1405/05/31 20:41
 
 ---
+
+## VahidOOnLine — post 249697
+
+<div align="center"><img src="files/post_249697_VahidOOnLine_249697.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️نهاد مدیریت آبراه خلیج فارس، نهادی که به‌تازگی برای اعمال مدیریت جمهوری اسلامی ایران بر تنگه هرمز تاسیس شده است، یکشنبه ۲۱ تیرماه با انتشار بیانیه‌ای اعلام کرد تردد از این آبراه در حال حاضر امکان‌پذیر نیست.
+در این بیانیه، آنچه «تحرکات غیرقانونی اخیر نیروهای نظامی ایالات متحده در منطقه» خوانده شد، علت توقف تردد عنوان شده است. این نهاد افزود پس از برقراری ثبات و آرامش، درخواست‌ها بر اساس زمان ثبت بررسی و مجوزهای لازم صادر خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249696
 
@@ -248,8 +260,4 @@ exclusive
 
 🤖 @VahidOOnLine
 </div>
-
-## VahidOOnLine — post 249670
-
-<div align="center"><img src="files/post_249670_VahidOOnLine_249670.jpg" alt="Photo"></div>
 

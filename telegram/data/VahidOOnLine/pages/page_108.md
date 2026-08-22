@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/05/31 20:14
+📅 آخرین بروزرسانی: 1405/05/31 20:41
 
 ---
+
+## VahidOOnLine — post 253767
+
+<div align="center"><img src="files/post_253767_VahidOOnLine_253767.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سپاه‌نیوز به نقل از یک منبع آگاه، نوشت که دلیل اصلی تاخیر در توافق با عمان در رابطه با تنگه هرمز، دخالت‌های آمریکا و تهدیدات ترامپ است.
+
+این منبع آگاه اضافه کرد که تا وقتی «دخالت‌های آمریکا و تهدید به حمله نظامی به ایران وجود دارد»، توافق به تاخیر می‌افتد و جمهوری اسلامی زیر سایه تهدید، هیچ توافقی نخواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253766
 
@@ -302,17 +315,6 @@
 
 به نوشته سی‌ان‌ان، فرماندهان ارشد نظامی آمریکا هشدار داده‌اند ذخایر مهمات پنتاگون به سطحی «خطرناک» کاهش یافته است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253747
-
-<div align="center"><img src="files/post_253747_VahidOOnLine_253747.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️به گزارش تسنیم، زمین‌لرزه‌ای به بزرگی ۴، بامداد چهارشنبه، حوالی یاسوج در مرز استان‌های کهگیلویه و بویراحمد، اصفهان و فارس را لرزاند. براساس این گزارش، این زلزله در عمق ۶ کیلومتری زمین رخ داد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

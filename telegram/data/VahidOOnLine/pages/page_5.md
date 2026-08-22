@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/31 20:14
+📅 آخرین بروزرسانی: 1405/05/31 20:41
 
 ---
+
+## VahidOOnLine — post 256236
+
+<div align="center"><img src="files/post_256236_VahidOOnLine_256236.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ در یک سخنرانی در میرتل بیچ ایالت کارولینای جنوبی گفت: «من در میان جمهوری‌خواهان، بیشترین رای همجنس‌گرایان را در تاریخ سیاست به دست آوردم و سرود ملی همجنس‌گرایان را هم پخش کردم.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256235
 
@@ -244,21 +255,6 @@ Indypersian
 برنامه‌های رسمی شاهزاده محمد بن سلمان روز یکشنبه با حضور در مراسم اختتامیه جام جهانی ورزش‌های الکترونیک (Esports) آغاز خواهد شد؛ رویدادی که الیزه آن را نمادی از اهتمام مشترک دو کشور برای پیوند ملت‌ها از طریق ورزش و فرهنگ دانسته است.
 
 در جریان این سفر، نشست «شورای شراکت راهبری عربستان سعودی و فرانسه» نیز با هدف ارتقای همکاری‌ها در حوزه‌های دفاعی، انرژی، اقتصاد و هوانوردی برگزار می‌شود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256216
-
-<div align="center"><video src="files/post_256216_VahidOOnLine_256216.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256216_VahidOOnLine_256216.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی منتشرشده در شبکه‌های اجتماعی، اجرای خیابانی دو زن جوان در شهرک اکباتان تهران را نشان می‌دهد که یکی از آن‌ها به زبان انگلیسی آواز می‌خواند و دیگری در فضای عمومی می‌رقصد.
-
-زمان دقیق ضبط این ویدیو مشخص نیست.
 Indypersian
 
 🤖 @VahidOOnLine

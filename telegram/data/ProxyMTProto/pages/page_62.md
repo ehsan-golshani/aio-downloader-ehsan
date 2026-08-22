@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/05/31 20:15
+📅 آخرین بروزرسانی: 1405/05/31 20:41
 
 ---
+
+## ProxyMTProto — post 49172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: status.nolags.pw
+Port: 443
+Secret: ddff6eb6da66f6218001f0d8cb023cbdd8
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49171
 
@@ -172,15 +181,6 @@ Secret: BeZaN_RoooSh_Connect
 Server: s4.postpulse.space
 Port: 443
 Secret: ee4ed06711abba996600b11cd356a7674c6164312e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

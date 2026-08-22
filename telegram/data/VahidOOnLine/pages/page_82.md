@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/05/31 20:14
+📅 آخرین بروزرسانی: 1405/05/31 20:41
 
 ---
+
+## VahidOOnLine — post 254437
+
+<div align="center"><video src="files/post_254437_VahidOOnLine_254437.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254437_VahidOOnLine_254437.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانیال عیوضی، از آسیب‌دیدگان در جریان انقلاب ملی ایرانیان، به ساجده شریفی، خبرنگار ایران‌اینترنشنال، درباره اعتراضات ۱۸ و ۱۹ دی‌ماه گفت معترضان با شعار «جاوید شاه» و در حمایت از شاهزاده رضا پهلوی به خیابان‌ها رفتند، اما جمهوری اسلامی پاسخ آزادی‌خواهی مردم را با تفنگ داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254436
 
@@ -282,19 +295,6 @@ youtu.be
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد بنری در یکی از خیابان‌های تهران نصب شده که روی آن در اعتراض به قطعی و گرانی آب و برق، نوشته‌اند: «آب، برق، زندگی»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254406
-
-<div align="center"><img src="files/post_254406_VahidOOnLine_254406.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تازه‌ترین تصاویر ماهواره‌ای «کوپرنیک» و مقایسه آن با زمان مشابه سال گذشته نشان‌دهنده بهبود چشمگیر وضعیت دریاچه ارومیه و بازگشت امیدها برای احیای این پهنه آبی است. بر اساس آمارهای اعلام‌شده، حجم آب ورودی به این دریاچه در سال آبی جاری از ۴.۵ میلیارد مترمکعب عبور کرده که فراتر از حقابه تعیین‌شده است.
-
-همچنین میزان بارندگی‌ها در حوضه آبریز دریاچه ارومیه با ثبت ۳۹۱ میلی‌متر، رشدی ۶۷ درصدی نسبت به سال گذشته داشته است. امری که موجب شده برخلاف سال‌های گذشته، پهنه آبی دریاچه در طول فصل تابستان و موج گرما به‌خوبی حفظ شود.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
