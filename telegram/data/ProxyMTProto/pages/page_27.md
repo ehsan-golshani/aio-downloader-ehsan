@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/05/31 08:22
+📅 آخرین بروزرسانی: 1405/05/31 08:53
 
 ---
+
+## ProxyMTProto — post 49850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: phloe.slarkfat.icu
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49849
 
@@ -172,15 +181,6 @@ Secret: ee6b56378bbf49f5bd8552fa1e9d63bab773796e632e736176656c7965762e636c69636b
 Server: Unknown
 Port: 443
 Secret: ee6b56378bbf49f5bd8552fa1e9d63bab773796e632e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49830
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

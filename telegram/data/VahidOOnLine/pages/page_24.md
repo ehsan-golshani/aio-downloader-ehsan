@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/31 08:22
+📅 آخرین بروزرسانی: 1405/05/31 08:52
 
 ---
+
+## VahidOOnLine — post 255706
+
+<div align="center"><img src="files/post_255706_VahidOOnLine_255706.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدباقر قالیباف، رییس مجلس، در شبکه ایکس نوشت آمریکایی‌ها فکر می‌کنند با افزایش فشار بر جمهوری اسلامی می‌توانند امتیازهایی بگیرند که هرگز بخشی از توافق نبوده است.
+
+او افزود: «بسنت و هگست در حد و اندازه این کار نیستند. دست از انتظار برای معجزه این گروه دلقک‌ها بردارید و خرابکاری‌ای را که خودتان به بار آورده‌اید، جمع کنید.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255705
 
@@ -273,19 +286,6 @@ IranintlTV
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عصر سه‌شنبه ۲۷ مرداد، وزارت کشور امارات متحده عربی با صدور هشدار فوری روی تلفن شهروندان، نسبت به احتمال وقوع حمله موشکی هشدار داد. در این پیام، وزارت کشور امارات از شهروندان خواسته است که به‌دلیل تهدید حمله موشکی، فورا در یک مکان امن در نزدیک‌ترین ساختمان پناه گرفته، از پنجره‌ها، درها و مکان‌های باز فاصله بگیرند و منتظر دستورات و توصیه‌های بعدی این وزارتخانه بمانند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255683
-
-<div align="center"><video src="files/post_255683_VahidOOnLine_255683.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255683_VahidOOnLine_255683.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند ساکن محمودآباد با ارسال ویدیویی به ایران اینترنشنال می‌گوید که برای سومین بار در یک روز برق منزل او قطع شده است.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/05/31 08:22
+📅 آخرین بروزرسانی: 1405/05/31 08:53
 
 ---
+
+## ProxyMTProto — post 50293
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: edge2.medhata.org
+Port: 2443
+Secret: ee210a1476d9f3374fed48b19ccd3ad7b665646765322e6d6564686174612e6f7267
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50292
 
@@ -172,15 +181,6 @@ Secret: eed21e15e0d7df3d811a11e2accff34eec617669746f2e7275
 Server: Unknown
 Port: 4443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50273
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: beam.whitelist.cyou
-Port: 443
-Secret: ee96671dab2ecd8b178da5371b6081550b6265616d2e77686974656c6973742e63796f75
 @ProxyMTProto
 </div>
 

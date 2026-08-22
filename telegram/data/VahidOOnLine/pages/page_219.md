@@ -1,8 +1,17 @@
 # آرشیو کانال VahidOOnLine - صفحه 219
 
-📅 آخرین بروزرسانی: 1405/05/31 08:22
+📅 آخرین بروزرسانی: 1405/05/31 08:52
 
 ---
+
+## VahidOOnLine — post 251009
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که یک کوهنورد پرچم شیروخورشید را بالای قله دماوند برافراشت، شعار «جاویدشاه» سرداد و گفت: «ما ادامه داریم»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251008
 
@@ -273,20 +282,6 @@ iranintl
 
  روز شنبه، فعالان حقوق بشر و رسانه‌های معترض از انتقال ۱۲ نفر از متهمان این پرونده به سلول‌های انفرادی خبر داده بودند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250989
-
-<div align="center"><img src="files/post_250989_VahidOOnLine_250989.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سازمان انرژی اتمی جمهوری اسلامی اعلام کرد که آمریکا، بامداد یکشنبه، ۲۸ تیر به سایت درحال ساخت نیروگاه اتمی دارخوین حمله کرده است.
-
-بر اساس بیانیه این سازمان، ارتش آمریکا با «تعدادی پرتابه» به سایت در حال ساخت نیروگاه دارخوین حمله کرده است. این سایت در استان خوزستان واقع شده است.
-iranintl
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

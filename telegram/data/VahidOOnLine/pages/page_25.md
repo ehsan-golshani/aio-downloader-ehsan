@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/05/31 08:22
+📅 آخرین بروزرسانی: 1405/05/31 08:52
 
 ---
+
+## VahidOOnLine — post 255683
+
+<div align="center"><video src="files/post_255683_VahidOOnLine_255683.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255683_VahidOOnLine_255683.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند ساکن محمودآباد با ارسال ویدیویی به ایران اینترنشنال می‌گوید که برای سومین بار در یک روز برق منزل او قطع شده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255682
 
@@ -298,19 +311,6 @@ Indypersian
 
 تسلا و اسپیس‌اکس برای مرحله نخست ساخت ترافب حدود ۱۶.۸ میلیارد دلار سرمایه‌گذاری خواهند کرد و انتظار می‌رود با توسعه مراحل بعدی پروژه، حجم سرمایه‌گذاری افزایش یابد.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255663
-
-<div align="center"><video src="files/post_255663_VahidOOnLine_255663.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255663_VahidOOnLine_255663.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی در رسانه‌های اجتماعی منتشر شده است که نشان می‌دهد قطع مکرر برق در شهرستان فلارد استان چهارمحال و بختیاری، یک نانوا را با خسارت مالی مواجه کرده است.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>
