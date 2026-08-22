@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 309
 
-📅 آخرین بروزرسانی: 1405/05/31 14:41
+📅 آخرین بروزرسانی: 1405/05/31 15:17
 
 ---
+
+## VahidOOnLine — post 248932
+
+<div align="center"><video src="files/post_248932_VahidOOnLine_248932.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248932_VahidOOnLine_248932.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال، دود و انفجار ناشی از حمله آمریکا به مواضع جمهوری اسلامی را در بندرعباس در بامداد چهارشنبه ۱۷ تیر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248931
+
+<div align="center"><video src="files/post_248931_VahidOOnLine_248931.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248931_VahidOOnLine_248931.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی در شبکه‌های اجتماعی منتشر شده که نشان می‌دهد در پی حمله آمریکا به مواضع حکومت در بندرعباس در بامداد چهارشنبه ۱۷ تیر، یک شهروند می‌گوید بندرعباس را به‌شدت هدف قرار داده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248930
+
+<div align="center"><video src="files/post_248930_VahidOOnLine_248930.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248930_VahidOOnLine_248930.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال انفجار مهیبی را نشان می‌دهد که پس از حمله آمریکا به مواضع جمهوری اسلامی در بندرعباس در بامداد چهارشنبه ۱۷ تیر رخ داد. ویدیوی دیگری نیز به دست ایران‌اینترنشنال رسیده که نشان می‌دهد پس از این حمله، ستونی از دود غلیظ در محل ایجاد شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248929
 
@@ -214,43 +253,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم آلمان، سه‌‌شنبه ۱۶ تیر در اعتراض به اعدام‌های جمهوری اسلامی در ایران، در شهر هانوفر تجمع کردند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248912
-
-<div align="center"><img src="files/post_248912_VahidOOnLine_248912.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکسیوس به نقل از یک مقام آمریکایی گزارش داد اهداف حمله‌های جدید آمریکا به ایران شامل سامانه‌های پدافند هوایی، سامانه‌های پایش ساحلی، موشک‌های زمین‌به‌هوا، پایگاه‌های موشک‌های کروز ضدکشتی، محل‌های پرتاب پهپاد و تاسیسات بندری بوده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248911
-
-<div align="center"><img src="files/post_248911_VahidOOnLine_248911.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسکان نیوز گزارش داد که ستون دود از سمت پایگاه هوایی بندرعباس مشاهده شده است. پیش‌تر نیز رسانه‌های ایران از شنیده شدن صداهای انفجار در قشم و سیریک خبر دادند.
-ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد که بامداد چهارشنبه مجموعه‌ای از حملات سنگین علیه جمهوری اسلامی را آغاز کرده‌ تا بابت هدف قرار دادن و حمله به کشتی‌های تجاری با خدمه غیرنظامی و بی‌گناه در یک آبراه بین‌المللی، هزینه سنگینی بر حکومت ایران تحمیل کنند.
-
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248910
-
-<div align="center"><img src="files/post_248910_VahidOOnLine_248910.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️همزمان با آغاز حملات نیروهای آمریکا علیه اهدافی در جنوب ایران، معاون بین‌الملل وزارت خارجه جمهوری اسلامی گفت: «حمله آمریکا به ایران مصداق نقض جدی بندهای ۱ و ۲ یادداشت تفاهم اسلام‌آباد است. آمریکا در ۳ هفته گذشته نیز به‌واسطه اقدامات اسرائیل در لبنان و اظهارات تهدیدآمیز علیه ایران، بارها مرتکب نقض بندهای ۱ و ۲ یادداشت تفاهم شده است».
-فرماندهی مرکزی ایالات متحده (سنتکام) بامداد چهارشنبه، در بیانیه‌ای اعلام کرد: «نیروهای فرماندهی مرکزی آمریکا سلسله حملات قدرتمندی را علیه ایران آغاز کرده‌اند تا هزینه‌های سنگینی را به دلیل هدف قرار دادن و حمله به کشتی‌های تجاری با خدمه غیرنظامی و بی‌گناه در یک آبراه بین‌المللی تحمیل کنند. این حملات ایالات متحده در پاسخ به حملات ایران به سه کشتی تجاری در حال عبور از تنگه هرمز صورت می‌گیرد و تجاوزگری آشکار ایران، غیرموجه، خطرناک و نقض صریح آتش‌بس است.»
-صداوسیما از شنیده‌شدن صدای چندین انفجار در سیریک، بندرعباس و جزیره قشم خبر داد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

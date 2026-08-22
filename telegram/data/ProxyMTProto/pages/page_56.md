@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/05/31 14:42
+📅 آخرین بروزرسانی: 1405/05/31 15:18
 
 ---
+
+## ProxyMTProto — post 49282
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy.fluxvpnguard.ru
+Port: 443
+Secret: ee0a9b43ea17eff45e518fa360979998e770726f78792e666c757876706e67756172642e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49281
 
@@ -172,15 +181,6 @@ Secret: BeZaN_RoooSh_Connect
 Server: best-proxy.ink
 Port: 443
 Secret: ee3646eba8c65e0e1d4804a7f9caa6531d626573742d70726f78792e696e6b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49262
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: super.sub-ploter.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 

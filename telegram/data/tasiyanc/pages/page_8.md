@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/31 13:16
+📅 آخرین بروزرسانی: 1405/05/31 15:20
 
 ---
+
+## tasiyanc — post 9349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاوضه امیر با دسته بیل
+</div>
 
 ## tasiyanc — post 9348
 
@@ -250,28 +256,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 پسر توپُر & سیکس پک ؟
 
 کامنت
-</div>
-
-## tasiyanc — post 9323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد 😎
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
 </div>
 

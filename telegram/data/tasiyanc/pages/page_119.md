@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 119
 
-📅 آخرین بروزرسانی: 1405/05/31 13:16
+📅 آخرین بروزرسانی: 1405/05/31 15:20
 
 ---
+
+## tasiyanc — post 5905
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑 رمز @Tasiyanc ″
+
+📶  اختصاصی تاسیان  📶
+
+ 2 سرور  سرعتی
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5903
 
@@ -203,15 +224,6 @@ Ovpn 🔥
 کانفیگ جدید OpenVPN  ♻️
 
 تست شده روی رایتل ـ سامانتل _ ایرانسل🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5882
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SamanTel 🛜 🏳
-vless://394f6981-a782-4779-9a85-e6cf22935d93@152.233.28.198:8443?security=tls&alpn=h2&encryption=none&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=uk1.fromblancwithlove.com#%F0%9F%8F%B3%EF%B8%8F%20Samantel%20-%20%40Tasiyanc
 
 @Tasiyanc ✅
 </div>

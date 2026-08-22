@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/05/31 13:16
+📅 آخرین بروزرسانی: 1405/05/31 15:20
 
 ---
+
+## tasiyanc — post 9516
+
+<div align="center"><video src="files/post_9516_tasiyanc_9516.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9516_tasiyanc_9516.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📺 10 تا از بهترین فیلم های ترسناک 2026 اگه به ژانر وحشت علاقه دارید ببینید !
+
++سایت پیشنهادی برای تماشا و دانلود بدون سانسور
+
+🔗https://www.novigrad.top
+
+
+🩸 @Tasiyanc | تاسیان
+</div>
 
 ## tasiyanc — post 9515
 
@@ -296,18 +313,5 @@ Negative prompt: cartoon, CGI, 3D render, illustration, painting, plastic skin, 
 
 @TASIYANC 
 ⭐️
-</div>
-
-## tasiyanc — post 9494
-
-<div align="center"><img src="files/post_9494_tasiyanc_9494.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏛 راز مجسمه‌های غول‌پیکر یک معبد باستانی در ترکیه!
-در کوه نمرود، پیکره‌های عظیمی پیدا شدند که سرهایشان از بدن جدا شده بود؛ اما با پیدا شدن سرها، ماجرا عجیب‌تر شد!
-در این مجموعه، نشانه‌هایی از اهورامزدا و ایزدان مهر، بهرام و آناهیتا در کنار نمادهای شیر و شاهین دیده می‌شود؛ ترکیبی که پیوندهای فرهنگی و دینی ایران باستان را در این منطقه نشان می‌دهد.
-👑 سنگ‌ها ساکت‌اند، اما داستانی چند هزار ساله برای گفتن دارند...
-
-@TASIYANC ⭐️
 </div>
 

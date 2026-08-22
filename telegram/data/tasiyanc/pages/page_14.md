@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/05/31 13:16
+📅 آخرین بروزرسانی: 1405/05/31 15:20
 
 ---
+
+## tasiyanc — post 9185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9184
 
@@ -329,31 +350,6 @@ A candid, natural night photograph of a young, stylish Middle Eastern couple emb
 
 ﻿
 آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9161
-
-<div align="center"><video src="files/post_9161_tasiyanc_9161.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9161_tasiyanc_9161.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی 
-🆕
-
-"Dark Luxury Noir Suit Portrait"
-
-Prompt 
-🤖🤖
-
-A high-contrast black and white studio portrait of a handsome Middle Eastern man with styled dark hair and a neat, full beard. He is wearing a tailored dark suit, crisp white dress shirt, and a sleek dark tie. He poses in a three-quarter view, looking thoughtfully away from the camera. One hand gently rests over the other, showcasing a luxury metallic wristwatch. Moody low-key studio lighting, dark seamless background, ultra-realistic, 8k resolution, cinematic atmosphere.
-
-
-آموزش استفاده 
-👉
 
 
 @TASIYANC ⭐️

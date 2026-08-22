@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/31 13:16
+📅 آخرین بروزرسانی: 1405/05/31 15:20
 
 ---
+
+## tasiyanc — post 8122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انگلیس زددددد
+</div>
 
 ## tasiyanc — post 8120
 
@@ -211,16 +217,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 
 اتصال امن برای همه 🇮🇷
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8094
-
-<div align="center"><img src="files/post_8094_tasiyanc_8094.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺دیوار نگاره جدید دوستان عرزشی در میدان انقلاب:  ترامپ را می کـــشیم
-
-
-@Tasiyanc ☑️
 </div>
 

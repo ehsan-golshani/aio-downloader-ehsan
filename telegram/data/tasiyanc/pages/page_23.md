@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/05/31 13:16
+📅 آخرین بروزرسانی: 1405/05/31 15:20
 
 ---
+
+## tasiyanc — post 8964
+
+<div align="center"><video src="files/post_8964_tasiyanc_8964.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8964_tasiyanc_8964.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ آقاآآ این بازی #پنالتی چقدر خفنه⚽
+
+🟢 بازی خیلی حرفه ای و‌ #پولساز پنالتی فقط‌ پلتفرم جهانی و معتبر #بت_اینجا
+
+✊همین الان ویدیو #آموزش پنالتی زدن ‌رو ببین و با شارژ اضافی 🤩🤩 درصدی که سایت بهت میده.
+
+💖 حتما ویدیو #آموزش رو ببینید
+💻لینک سایت بازی:
+💻 betinja.bet
+💻 betinja.bet
+🌐 کانال بونوس های رایگان r13
+@betinjabet
+</div>
 
 ## tasiyanc — post 8963
 
@@ -283,13 +304,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 💻 betinja.bet
 🌐 کانال بونوس های رایگان r12
 @betinjabet
-</div>
-
-## tasiyanc — post 8941
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مذاکرات بعد از ظهر دوشنبه به وقت واشنگتن، با توجه به اختلاف هفت و نیم ساعت، مبنا اگر ۲ بعد از ظهر باشد، ۹:۳۰ شب تهران، تا ۴ بعد از ظهر، ۱۱:۳۰ شب تهران خواهد بود.
-@TASIYANC 
-✅
 </div>
 

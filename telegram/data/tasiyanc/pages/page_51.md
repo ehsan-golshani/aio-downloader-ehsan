@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/05/31 13:16
+📅 آخرین بروزرسانی: 1405/05/31 15:20
 
 ---
+
+## tasiyanc — post 8161
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاید باورتون نشه ولی تو این سه تا عکس هیچ اثری از فتوشاپ نیست🐰؛
+ابرهای نادر استراتوسفر قطبی - ایسلند🇮🇸
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8155
 
@@ -228,11 +237,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آرژانتین زددد
-</div>
-
-## tasiyanc — post 8122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انگلیس زددددد
 </div>
 

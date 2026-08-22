@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/05/31 13:16
+📅 آخرین بروزرسانی: 1405/05/31 15:20
 
 ---
+
+## tasiyanc — post 8290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشخصات کامل بزاریم؟
+</div>
 
 ## tasiyanc — post 8289
 
@@ -149,17 +155,6 @@ JAVID SHAH 👑
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨💪 انفجار مهیب در قشم
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8268
-
-<div align="center"><img src="files/post_8268_tasiyanc_8268.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 وضعیت راه آهن بندرعباس پس از حمله ارتش آمریکا
 
 
 @Tasiyanc ✅
