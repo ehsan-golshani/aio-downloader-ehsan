@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 369
 
-📅 آخرین بروزرسانی: 1405/05/31 06:50
+📅 آخرین بروزرسانی: 1405/05/31 07:38
 
 ---
+
+## VahidOOnLine — post 247566
+
+<div align="center"><img src="files/post_247566_VahidOOnLine_247566.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️پادشاهی بحرین روز شنبه ششم تیرماه اعلام کرد که جمهوری اسلامی ایران با چند پهپاد به خاک این کشور حمله کرده است.
+این خبر ساعاتی پس از آن منتشر می‌شود که سپاه پاسداران اعلام کرد در پاسخ به حملات سنتکام به یک دکل مخابراتی در بندر سیریک، مواضع نظامی آمریکا در منطقه را هدف قرار داده است.
+دولت بحرین با محکوم کردن شدید این حملات اعلام کرد حق کامل برای دفاع از تمامیت ارضی و حاکمیت خود را محفوظ می‌داند.
+دور جدید تنش در خلیج فارس و تنگه هرمز از دو شب پیش و زمانی آغاز شد که سپاه پاسداران یک کشتی باری سنگاپور را در زمان عبور از یک کانال جنوبی تنگه هرمز هدف قرار داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247565
 
@@ -269,17 +283,6 @@ ht
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️داور پس از بررسی ویدیویی گل شجاع خلیل‌زاده آن را آفساید اعلام کرد
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247546
-
-<div align="center"><img src="files/post_247546_VahidOOnLine_247546.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️شجاع خلیل‌زاده در دقیقه ۹۰+۳ دروازه مصر را برای دومین بار باز کرد.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

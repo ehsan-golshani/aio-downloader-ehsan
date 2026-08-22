@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 486
 
-📅 آخرین بروزرسانی: 1405/05/31 06:50
+📅 آخرین بروزرسانی: 1405/05/31 07:38
 
 ---
+
+## VahidOOnLine — post 244371
+
+<div align="center"><img src="files/post_244371_VahidOOnLine_244371.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسرائیل هیوم به نقل از یک مقام امنیتی نوشت که جمهوری اسلامی از ترس حملات غافلگیرانه اسرائیل حریم هوایی ایران را بسته است در حالی که اسرائیل هنوز به‌طور رسمی پایان این دور از درگیری را اعلام نکرده است.
+این مقام امنیتی افزود حجم حملات از سوی ایران نشان می‌دهد توان نظامی تهران هنوز به سطح پیش از جنگ بازنگشته است.
+او اضافه کرد هیچ محدودیتی برای فعالیت ارتش اسرائیل در منطقه ضاحیه بیروت وجود ندارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244370
 
@@ -287,19 +300,6 @@ iranintl
 
 هنوز خبری درباره منشاء این آتش‌سوزی و حمله احتمالی به نفتکش هندی منتشر نشده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244324
-
-<div align="center"><img src="files/post_244324_VahidOOnLine_244324.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های عربی و هندی از حمله به یک کشتی باری با پرچم پالائو با ۲۴ خدمه هندی در نزدیکی تنگه هرمز در روز دوشنبه خبر دادند.
-بر اساس این گزارش‌ها، در این حمله موتورخانه کشتی هدف قرار گرفته است.
-iranintl
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 307
 
-📅 آخرین بروزرسانی: 1405/05/31 06:50
+📅 آخرین بروزرسانی: 1405/05/31 07:38
 
 ---
+
+## VahidOOnLine — post 248931
+
+<div align="center"><video src="files/post_248931_VahidOOnLine_248931.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248931_VahidOOnLine_248931.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی در شبکه‌های اجتماعی منتشر شده که نشان می‌دهد در پی حمله آمریکا به مواضع حکومت در بندرعباس در بامداد چهارشنبه ۱۷ تیر، یک شهروند می‌گوید بندرعباس را به‌شدت هدف قرار داده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248930
 
@@ -237,19 +250,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اکسیوس به نقل از یک مقام آمریکایی گزارش داد اهداف حمله‌های جدید آمریکا به ایران شامل سامانه‌های پدافند هوایی، سامانه‌های پایش ساحلی، موشک‌های زمین‌به‌هوا، پایگاه‌های موشک‌های کروز ضدکشتی، محل‌های پرتاب پهپاد و تاسیسات بندری بوده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248911
-
-<div align="center"><img src="files/post_248911_VahidOOnLine_248911.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسکان نیوز گزارش داد که ستون دود از سمت پایگاه هوایی بندرعباس مشاهده شده است. پیش‌تر نیز رسانه‌های ایران از شنیده شدن صداهای انفجار در قشم و سیریک خبر دادند.
-ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد که بامداد چهارشنبه مجموعه‌ای از حملات سنگین علیه جمهوری اسلامی را آغاز کرده‌ تا بابت هدف قرار دادن و حمله به کشتی‌های تجاری با خدمه غیرنظامی و بی‌گناه در یک آبراه بین‌المللی، هزینه سنگینی بر حکومت ایران تحمیل کنند.
-
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 491
 
-📅 آخرین بروزرسانی: 1405/05/31 06:50
+📅 آخرین بروزرسانی: 1405/05/31 07:38
 
 ---
+
+## VahidOOnLine — post 244165
+
+<div align="center"><video src="files/post_244165_VahidOOnLine_244165.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244165_VahidOOnLine_244165.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال از تبریز در شامگاه یکشنبه ۱۷ خرداد، نور موشک شلیک‌شده از سوی جمهوری اسلامی را به سمت اسرائیل در آسمان تبریز نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244164
 
@@ -263,19 +276,6 @@
 ارتش اسرائیل عصر یکشنبه منطقه ضاحیه در حومه بیروت را بمباران کرد.
 جمهوری اسلامی هفته پیش هشدار داده بود در صورت حمله اسرائیل به این منطقه، شمال اسرائیل را هدف قرار خواهد داد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244138
-
-<div align="center"><img src="files/post_244138_VahidOOnLine_244138.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گیلا گاملیل، وزیر علوم و فناوری اسرائیل، در گفت‌وگو با کانال ۱۴ گفت ما شاهد وضعیت حکومت جمهوری اسلامی هستیم، قطعا پس از اعتراضات، این رژیم از هر زمان دیگری ضعیف‌تر شده است.
-
-او افزود در مقابل، فردی که هم در داخل ایران و هم در عرصه بین‌المللی حمایت‌هایش در حال افزایش است، شاهزاده رضا پهلوی است. این رژیم حتی بسیار سریع‌تر از آنچه تصور می‌کردیم سقوط خواهد کرد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

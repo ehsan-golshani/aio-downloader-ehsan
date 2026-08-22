@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/31 06:50
+📅 آخرین بروزرسانی: 1405/05/31 07:38
 
 ---
+
+## VahidOOnLine — post 256019
+
+<div align="center"><img src="files/post_256019_VahidOOnLine_256019.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرکز عملیات تجارت دریایی بریتانیا (UKMTO) روز پنج‌شنبه ۲۹ مرداد گزارش داد که یک نفتکش در ۲۵۰ کیلومتری شرق بندر مکلا در یمن، توسط شش فرد مسلح توقیف شده و هم‌اکنون به سمت سومالی در حال هدایت است.
+
+اگرچه این مرکز نامی از شناور یا هویت مهاجمان نبرده است، اما گروه هوشمندی دریایی Marisks اعلام کرد که تغییر مسیر این نفتکش، ربایش توسط دزدان دریایی را قاطعانه تایید می‌کند و نشان‌دهنده «بازگشت چشمگیر دزدی دریایی و فعالیت‌های مسلحانه در خليج عدن و حوضه سومالی» است.
+
+این حادثه در حالی رخ می‌دهد که با تغییر مسیر کشتی‌های تجاری به دلیل جنگ ایران و عبور آن‌ها از مناطق تحت فعالیت دزدان دریایی سومالی، خطرات امنیتی افزایش یافته است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256018
 
@@ -273,13 +288,5 @@ Indypersian
 Indypersian
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255999
-
-<div align="center"><img src="files/post_255999_VahidOOnLine_255999.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
 </div>
 
