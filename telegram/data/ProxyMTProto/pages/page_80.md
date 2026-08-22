@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/31 15:18
+📅 آخرین بروزرسانی: 1405/05/31 15:39
 
 ---
+
+## ProxyMTProto — post 48797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: best-sellerst.co.uk.
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48796
 
@@ -172,15 +181,6 @@ Secret: eefdf6175e50069c01bd22d786534aa2b2766b2e636f6d
 Server: 92.246.87.243
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48777
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.savelyev.click
-Port: 443
-Secret: ee5098400982be6b8f6bf938e483f64dd463646e2e736176656c7965762e636c69636b
 @ProxyMTProto
 </div>
 
