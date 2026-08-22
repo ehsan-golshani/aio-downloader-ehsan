@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/05/31 22:25
+📅 آخرین بروزرسانی: 1405/05/31 22:51
 
 ---
+
+## ProxyMTProto — post 48649
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: link.mishkalapy.life
+Port: 443
+Secret: ee4b6b1de597b3b682aadd9133cd774fee6c696e6b2e6d6973686b616c6170792e6c696665
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48648
 
@@ -172,15 +181,6 @@ Secret: eef09a7a4c51b6bc6caf4d3134b312b0f56765742e75746b616e6f732e6c696665
 Server: 92.246.87.243
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48629
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: net.freetg.pw
-Port: 443
-Secret: eebd79a03bd57944c4830f41e0f2fb94626e65742e6672656574672e7077
 @ProxyMTProto
 </div>
 
