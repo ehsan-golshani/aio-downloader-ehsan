@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 140
 
-📅 آخرین بروزرسانی: 1405/05/31 19:40
+📅 آخرین بروزرسانی: 1405/05/31 20:15
 
 ---
+
+## ProxyMTProto — post 47604
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: amoreszi.duckdns.org
+Port: 443
+Secret: 7uZ0yg4fr7vIQ5i_MUfeWQB3d3cuYXBwbGUuY29t
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47603
 

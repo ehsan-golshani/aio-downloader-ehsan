@@ -1,8 +1,40 @@
 # آرشیو کانال VahidOOnLine - صفحه 200
 
-📅 آخرین بروزرسانی: 1405/05/31 19:40
+📅 آخرین بروزرسانی: 1405/05/31 20:14
 
 ---
+
+## VahidOOnLine — post 251489
+
+<div align="center"><video src="files/post_251489_VahidOOnLine_251489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251489_VahidOOnLine_251489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که حدود ساعت ۸:۳۰ صبح چهارشنبه ۳۱ تیر، دود ناشی از انفجار در حوالی فرودگاه شیراز مشاهده شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251488
+
+<div align="center"><video src="files/post_251488_VahidOOnLine_251488.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251488_VahidOOnLine_251488.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️گزارش‌ها از حمله موشکی سپاه به بندر عقبه اردن
+
+♦️رسانه‌های داخلی ایران و شبکه الجزیره قطر از حمله موشکی به بندر عقبه اردن در ظهر چهارشنبه ۳۱ تیرماه خبر دادند.
+
+الجزیره به نقل از خبرنگار خود در عقبه اردن نوشت صدای انفجار در این شهر همزمان با فعالیت سامانه پدافندی ارتش اردن به گوش می‌رسد. الجزیره همچنین از لغو پرواز یک هواپیما مسافربری اسرائیلی در پی حمله موشکی به اردن خبر داد.
+
+یک کاربر اسرائیلی ساکن بندر ایلات هم ویدیویی را منتشر کرده که دود ناشی از انفجار را در این منطقه نشان می‌دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251487
 
@@ -282,26 +314,6 @@
 
 وال‌استریت ژورنال افزود منتقدان هشدار داده‌اند این توافق، با وجود سازوکارهای نظارتی پیش‌بینی‌شده، می‌تواند خطر گسترش فناوری هسته‌ای در خاورمیانه را افزایش دهد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251469
-
-<div align="center"><img src="files/post_251469_VahidOOnLine_251469.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارتش جمهوری اسلامی اعلام کرد در پاسخ به حملات آمریکا، انبارهای مهمات و تجهیزات لجستیکی مرکز فرماندهی نیروهای زمینی آمریکا در پادگان الدوحه در غرب کویت را هدف حمله پهپادی قرار داده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251468
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️بیانیه ارتش که صبح چهارشنبه منتشر شده، حاکی از‌ آن است که در مرحله بیست‌ویکم عملیات صاعقه پادگان الدوحه در غرب کویت هدف حمله قرار گرفته است. کویت پیش‌تر از به صدا در آمدن آژیر هشدار در این کشور و فعال شدن دفاع هوایی خبر داده بود.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

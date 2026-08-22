@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/05/31 19:40
+📅 آخرین بروزرسانی: 1405/05/31 20:14
 
 ---
+
+## VahidOOnLine — post 255491
+
+<div align="center"><img src="files/post_255491_VahidOOnLine_255491.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری ایالات متحده، در پیامی در شبکه اجتماعی تروث سوشال تاکید کرد که جلوگیری از دستیابی ایران به سلاح هسته‌ای، «هدف شماره یک» او بوده و خواهد بود.
+
+ترامپ نوشت: «هدف شماره یک این است و همیشه خواهد بود که ایران به هیچ شکل و صورتی نتواند سلاح هسته‌ای داشته باشد.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255490
+
+<div align="center"><img src="files/post_255490_VahidOOnLine_255490.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارتش یمن روز دوشنبه ۲۶ مردادماه اعلام کرد شورشیان بار دیگر دو موشک بالسیتیک به تنگه باب‌المندب شلیک کرده‌اند.
+
+در بیانیه ارتش یمن اشاره‌ای به هدف این حملات موشکی نشده است.
+
+شورشیان حوثی تحت حمایت جمهوری اسلامی ایران از یک ماه پیش حملات به نیروهای دولتی و کشتی‌ها در تنگه باب‌المندب را پس از نزدیک به چهار سال آتش‌بس از سر گرفته‌اند. ارتش یمن می‌گوید به این حملات پاسخ می‌دهد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255489
 
@@ -301,27 +329,6 @@ IranintlTV
 
 نخست وزیر پاکستان که در کنار عاصم منیر یکی از میانجیگران اصلی در مذاکرات تهران و واشنگتن است، نوشت: «صلح پایدار، اساسی‌ترین پیش‌نیاز برای آینده‌ای روشن و مرفه برای مردم ماست.»
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255471
-
-<div align="center"><img src="files/post_255471_VahidOOnLine_255471.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-</div>
-
-## VahidOOnLine — post 255470
-
-<div align="center"><video src="files/post_255470_VahidOOnLine_255470.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255470_VahidOOnLine_255470.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خانواده و نزدیکان سعید‌ تروند از جاوید‌نامان اعتراض‌های دی‌ماه در استان ایلام در سالروز تولد او در کنار مزارش گردهم آمدند و یاد او را گرامی داشتند. تروند که ۳۳ ساله و پیمانکار شرکت نفت بود در جریان اعتراضات ۱۸ دی‌ماه در آبادان با شلیک مستقیم نیروهای امنیتی کشته شد و در شهرستان مهران استان ایلام به خاک سپرده شد
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>
