@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/31 00:17
+📅 آخرین بروزرسانی: 1405/05/31 10:38
 
 ---
+
+## tasiyanc — post 9392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز August 17، روز دوست داشتن پاهاست.
+
++ این روز رو به رفیقای فوت فتیشت تبریک بگو
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 9391
+
+<div align="center"><img src="files/post_9391_tasiyanc_9391.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری، مارجوری تیلور نماینده سابق کنگره آمریکا:
+
+آمریکا توی جلسات راهبردی خودش، درباره استفاده از بمب اتم علیه ایران صحبت میکنه! آره این موضوع کاملا واقعیه و حدس نمیزنم!
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ اسم کانال با فونت معمولی تنظیم شد
+
+𝐓 𝐀 𝐒 𝐈 𝐘 𝐀 𝐍 👉 Tasiyan | تاسیان
+
+بخاطر برخی الگوریتم های موجود تلگرام فونت معمولی گذاشتیم
+
+« همراه ما باشید ❤️ »
+</div>
 
 ## tasiyanc — post 9388
 
@@ -188,53 +223,5 @@ Prompt 🤖🤖
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این کانال از نون شب واجب تر 👌
-</div>
-
-## tasiyanc — post 9365
-
-<div align="center"><img src="files/post_9365_tasiyanc_9365.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
-
-💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
-sa25
-📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥
-💵
-
-‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
-https://t.me/+F1CivZlkxrgzMTM0
-https://t.me/+F1CivZlkxrgzMTM0
-</div>
-
-## tasiyanc — post 9364
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 روزنامه نگار آلمانی: آیا شما مامور اسرائیل هستید؟
-
-شاهزاده رضا پهلوی : نه اما پدر بزرگ من به یهودیان پناه داد زمانی که شما آنها را در کوره ها می سوزاندید.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9363
-
-<div align="center"><img src="files/post_9363_tasiyanc_9363.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت پرمیوم جدید 🆕
-
-" Cyberpunk Redline Portrait "
-
-تبدیل به پرامپت دخترانه کافیه woman رو جایگزین man کنید
-
-Prompt 🤖🤖
-
-Cinematic studio portrait of a young man with messy textured hair, wearing a black turtleneck, centered composition, dark minimal background, dramatic low-key lighting, a horizontal red neon light strip cutting across his eyes, strong contrast shadows covering lower face, intense gaze, moody atmosphere, cyberpunk aesthetic, ultra-realistic, sharp focus, 85mm lens, shallow depth of field, high detail, editorial photography style.
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
 </div>
 

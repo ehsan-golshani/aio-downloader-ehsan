@@ -1,8 +1,79 @@
 # آرشیو کانال VahidOOnLine - صفحه 160
 
-📅 آخرین بروزرسانی: 1405/05/31 09:26
+📅 آخرین بروزرسانی: 1405/05/31 10:35
 
 ---
+
+## VahidOOnLine — post 252360
+
+<div align="center"><video src="files/post_252360_VahidOOnLine_252360.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252360_VahidOOnLine_252360.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال، صف طولانی خودروهای سنگین را در پمپ‌بنزین داورزن در جاده «امام‌رضا» نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252359
+
+<div align="center"><img src="files/post_252359_VahidOOnLine_252359.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️تایمز اسرائیل عصر دوشنبه پنجم مردادماه اعلام کرد هواپیمای نخست وزیر اسرائیل پس از دو ساعت تاخیر یک پایگاه هوایی نظامی را به مقصد واشنگتن ترک کرد.
+
+براساس این گزارش بنیامین نتانیاهو قرار بود ساعت ۱۱ به سمت واشنگتن پرواز کند اما این سفر اندکی به تاخیر افتاد. دفتر نخست وزیری اسرائیل دلیل این تاخیر را اعلام نکرده است.
+
+این خبر در حالی منتشر می‌شود که ارتش اردن و ارتش اسرائیل  ساعاتی پیش از رهگیری دو پهپاد در آسمان اردن خبر داده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252358
+
+<div align="center"><video src="files/post_252358_VahidOOnLine_252358.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252358_VahidOOnLine_252358.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️آتش‌سوزی در هتل پارسیان استقلال تهران ظهر دوشنبه ۵ مردادماه، در تقاطع بزرگراه چمران و خیابان ولیعصر رخ داد و شعله‌های آتش بخش‌هایی از این مجتمع اقامتی را فرا گرفت.
+
+به گفته سخنگوی آتش‌نشانی تهران، همزمان با عملیات اطفای حریق، چند گروه از آتش‌نشانان برای نجات افراد محبوس وارد ساختمان شده‌اند.
+
+اورژانس تهران نیز اعلام کرد ۷ دستگاه آمبولانس، ۲ دستگاه اتوبوس آمبولانس، سه خودروی فرماندهی و یک دستگاه موتورلانس به محل حادثه اعزام شده‌اند. بر اساس گزارش اولیه اورژانس، تاکنون مصدومی گزارش نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم آلمان با تجمع در برلین به احکام معترضان در اصفهان اعتراض کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252356
+
+<div align="center"><video src="files/post_252356_VahidOOnLine_252356.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252356_VahidOOnLine_252356.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️گروهی از ایرانیان مقیم بریتانیا، روز یکشنبه چهارم مرداد، و به مناسبت سالروز درگذشت محمدرضاشاه پهلوی، مراسمی را در شهر لندن برگزار کردند.
+
+تصاویر منشتر شده در شبکه های اجتماعی نشان می‌دهد که شرکت‌کنندگان با در دست داشتن پرچم شیر و خورشید، تصاویر رضاشاه و محمدرضاشاه پهلوی و سر دادن شعارهایی، یاد و خاطره این دو پادشاه را گرامی داشتند.
+
+همزمان، مراسم‌ها و تجمع‌های مشابهی نیز با حضور شماری از ایرانیان خارج از کشور در شهرهای مختلف جهان از جمله هیوستون، مالمو، کلن، کپنهاگ، آتن، لیسبون، برن، گوتنبرگ، هامبورگ، هانوفر، فرانکفورت، مادرید، برلین و همچنین در نقاطی از استرالیا و نیوزیلند برگزار شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252355
 
@@ -188,69 +259,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده نشان می‌دهد گروهی از ایرانیان مقیم بریتانیا، یکشنبه چهارم مرداد مراسم گرامیداشت برای سالروز درگذشت رضاشاه و محمدرضاشاه پهلوی را در لندن برگزار کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252340
-
-<div align="center"><video src="files/post_252340_VahidOOnLine_252340.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252340_VahidOOnLine_252340.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی روز دوشنبه پنجم مرداد گفت که آمریکا می‌خواست ایران را در سه روز تسلیم کند اما هم‌اکنون در باتلاق «خودساخته» گیر کرده است.
-
-سخنگوی وزارت امور خارجه جمهوری اسلامی ایران در پاسخ به پرسش  خبرنگاران گفت: آمریکا جنگ را مدیریت نمی‌کند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252338
-
-<div align="center"><video src="files/post_252338_VahidOOnLine_252338.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252338_VahidOOnLine_252338.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صف گازوییل در عسلویه
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252330
-
-<div align="center"><img src="files/post_252330_VahidOOnLine_252330.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به مناسبت چهل‌وششمین سالگرد درگذشت محمدرضاشاه پهلوی
-
-تصاویری از اعلیحضرت فقید محمدرضاشاه پهلوی در کنار علیاحضرت شهبانو فرح پهلوی
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252329
-
-<div align="center"><img src="files/post_252329_VahidOOnLine_252329.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️فداحسین مالکی، عضو کمیسیون امنیت ملی و سیاست خارجی مجلس شورای اسلامی، با رد گمانه‌زنی‌ها درباره احتمال ازسرگیری مذاکرات میان ایران و آمریکا، گفت در شرایط کنونی «هیچ موضوعی تحت عنوان مذاکره مطرح نیست» و آنچه از سوی واشنگتن درباره گفتگو مطرح می‌شود، به گفته او، «فرار رو به جلوی ترامپ» است.
-مالکی در گفتگو با خبرگزاری ایلنا مدعی شد کاهش عملیات نظامی آمریکا علیه ایران، نتیجه حملات نیروهای مسلح جمهوری اسلامی به مراکز پشتیبانی آمریکا در منطقه بوده است. او گفت: «عملیات سنگین و پرحجم نیروهای مسلح ایران در اردن، کمر آمریکایی‌ها را از لحاظ پشتیبانی شکست و تلفات سنگینی به آن‌ها وارد کرد.» به گفته او، در پی این عملیات‌ها، برنامه‌های نظامی آمریکا با اختلال روبه‌رو شده و حملات علیه سواحل جنوبی و زیرساخت‌های ایران به حداقل رسیده است.
-مالکی در ادامه با بیان اینکه «ایران از مرحله بازدارندگی عبور کرده و وارد مرحله هجومی شده است»، افزود در چنین شرایطی اساسا موضوع مذاکره مطرح نیست.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد احسان کرمی، بازیگر، یکشنبه چهارم مرداد در تجمع ایرانیان به منایبت گرامیداشت رضاشاه و محمدرضاشاه پهلوی در هیوستون آمریکا گفت: «شاهان این سلسله در تاریخ ایران سربلند هستند.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

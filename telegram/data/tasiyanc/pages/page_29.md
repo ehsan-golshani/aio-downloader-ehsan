@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/31 00:17
+📅 آخرین بروزرسانی: 1405/05/31 10:38
 
 ---
+
+## tasiyanc — post 8793
+
+<div align="center"><img src="files/post_8793_tasiyanc_8793.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مقایسه بلند ترین قله کره زمین با بلند ترین قله کره مریخ !🙂
+قله اورست زمین با 8848 متر
+قله المپوس مریخ با 21222 متر
+
+⭐ @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8792
+
+<div align="center"><video src="files/post_8792_tasiyanc_8792.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8792_tasiyanc_8792.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید کاخ سفید با تصاویری از ترامپ و متن:
+
+« کار این جنگ رو یه‌سره کن »
+
+
+⭐ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8791
+
+<div align="center"><video src="files/post_8791_tasiyanc_8791.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8791_tasiyanc_8791.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مجری بعد این برنامه کلا اخراج شد 😂
+ارزش دانلود ۱۰۰۰ از ۱۰
+
+داستان از این قراره کسایی ک مشکلات حنجره داشتن و معلول بودن دعوت بودن به برنامه
+
+⭐@TASIYANC 
+⭐️
+</div>
 
 ## tasiyanc — post 8790
 
@@ -178,51 +221,5 @@
 سام صابری که دیشب اون گندش بالا اومد، امروز با این الفاظ مردم رو خطاب کرد و به همه ناموسی داد:
 
 @TASIYANC
-</div>
-
-## tasiyanc — post 8766
-
-<div align="center"><img src="files/post_8766_tasiyanc_8766.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠  نسخه اختصاصی مود GitiVPN
-✅️سیستم عامل: اندروید
-
-تست شده با همه اینترنت ها📶📶📶🛜🛜
-
-🟢توضیحات مهم:
-وارد لیست سرور ها بشید، یکی را انتخاب کنید و متصل بشید. سرعت خوبی داره.
-
-نسخه: 111
-
-ویژگی های نسخه مود:
-• باز بودن سرور های پریمیوم
-• حذف تبلیغات اضافی
-• نامحدود شدن تایم
-
-برای دانلود روی لینک زیر کلیک کنید
-
-🔗《لینک دانلود》👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8765
-
-<div align="center"><img src="files/post_8765_tasiyanc_8765.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نخست‌وزیر نتانیاهو و رئیس‌جمهور ترامپ در کاخ سفید.
-
-@TASIYANc ⭐️
-</div>
-
-## tasiyanc — post 8764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق اعلام بانک مرکزی؛
-تورم نقطه به نقطه تیرماه ۸۳.۹ درصد اعلام شد.
-یعنی کالاها نسبت به تیرماه سال قبل؛ ۸۳.۹ درصد گرون تر شدن ک فک کنم زیاد بوده باشه
-@Tasiyanc ⭐️
 </div>
 

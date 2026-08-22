@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/31 00:17
+📅 آخرین بروزرسانی: 1405/05/31 10:38
 
 ---
+
+## tasiyanc — post 9264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرایط
+
+میو میکنید ، ویسشو میدید پیوی ادمین تو کانال میزاریم اگر ریکشن زیاد بگیرید برنده میشید
+
+جایزه
+نفر اول: کانفیگ نامحدود اوپن VPN دو کاربر - وایرگارد
+
+نفر دوم وایرگارد - ویتوری
+
+نفر سوم وایرگارد
+
+Admin : @Tssub
+</div>
+
+## tasiyanc — post 9263
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چالش میو بزاریم؟
+</div>
+
+## tasiyanc — post 9262
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر وقت از سینگلی خسته میشید یه دیت برید ، بعدش تا ۶ ماه انگیزه پیدا میکنید برا سینگلی 😞
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 9259
 
@@ -261,45 +292,5 @@ https://t.me/+MT03hkV78q9kMTc0
 نمونه آموزش بازی Apple of Furtuneکه سودش تضمینیه رو براتون گذاشتیم پیش بینی های معتبر فوتبالی هم دارن z22:
 📶https://t.me/+MT03hkV78q9kMTc0
 📶https://t.me/+MT03hkV78q9kMTc0
-</div>
-
-## tasiyanc — post 9237
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶 🇳🇱
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9235
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ اینترنشنال : ترامپ اطلاعات کلی مهاجر ایرانیو داده به مقامات جمهوری اسلامی
-
-@Tasiyanc⭐️
 </div>
 

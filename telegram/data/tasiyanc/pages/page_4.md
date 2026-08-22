@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/31 00:17
+📅 آخرین بروزرسانی: 1405/05/31 10:38
 
 ---
+
+## tasiyanc — post 9440
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Decarys 🔥.ovpn
+</div>
+
+## tasiyanc — post 9439
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیرم و گاهی دلم یاد جوانی می‌کند
+بلبل شوقم هوای نغمه‌خوانی می‌کند 😞
+
+نفری یه بیت بگید تو کامنت
+</div>
+
+## tasiyanc — post 9438
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال 
+⛓
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9437
 
@@ -227,26 +256,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 آیدی عددی
 8973915004
-</div>
-
-## tasiyanc — post 9418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سیو کنین ساعت ۲ پاک میشه
-دخترایی ک عکسشون پخش شده اسکرین ویدیو بگیرن از چنلش و اکانتش ، میتونن در اولین ساعات فردا با مراجعه به دفتر خدمات قضایی شهرشون شکایتشون طرح کنن کلا ۱۰ مین زمان می‌بره ، پروسه خاص ای هم ندارع و زود پیگیری میشه ، قبلا هم از این موردها داشتیم ک نسلش منقرض شد
-</div>
-
-## tasiyanc — post 9416
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ، همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام پستها پاک میشه
-</div>
-
-## tasiyanc — post 9415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ،
-همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام
-پستها پاک میشه
 </div>
 

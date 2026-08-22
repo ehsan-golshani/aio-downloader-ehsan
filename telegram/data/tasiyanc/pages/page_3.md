@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/05/31 00:17
+📅 آخرین بروزرسانی: 1405/05/31 10:38
 
 ---
+
+## tasiyanc — post 9462
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عضوی از تیم اتکر ما شوید تا باهم کسانی که به حریم خصوصی مردم تجاوز می‌کنند را محو کنیم
+
+https://t.me/+Mcyp10mcfFA2MTM0
+جوین بدید
+</div>
+
+## tasiyanc — post 9461
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی مولتی لوکیشن⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+
+دانلود اندروید 🕹
+
+
+دانلود آیفون 📱
+
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو صداسیما جایزه جمع کردن برای کسی که ترامپ بکشه، ۱۸۱ میلیون جمع شده، بعد بلیط هواپیما تا امریکا ۴۰۰ میلیونه 😂
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9459
 
@@ -279,34 +329,5 @@ til.ac/0L4vyJf
 🟠 بدترین سرنوشت برای یک حاکم( رهبر) اینه که مردمش از دستش بنالند و دائما نفرینش کنند .... آه دل داغ دیدگان یقه کوچیک و بزرگتان را خواهد گرفت ( استاد کاکاوند)
 
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Decarys 🔥.ovpn
-</div>
-
-## tasiyanc — post 9439
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیرم و گاهی دلم یاد جوانی می‌کند
-بلبل شوقم هوای نغمه‌خوانی می‌کند 😞
-
-نفری یه بیت بگید تو کامنت
-</div>
-
-## tasiyanc — post 9438
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال 
-⛓
-
-
-@Tasiyanc ⭐️
 </div>
 

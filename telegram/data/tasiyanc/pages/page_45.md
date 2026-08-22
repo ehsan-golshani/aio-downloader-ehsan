@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/05/31 00:17
+📅 آخرین بروزرسانی: 1405/05/31 10:38
 
 ---
+
+## tasiyanc — post 8308
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش انفجار ۱۰ مین پیش در یزد از اعضای عزیز
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خاورمیانه آرومه امشب انگار؟
+</div>
+
+## tasiyanc — post 8306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ شنیده شدن صدای انفجار در اهواز
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8305
 
@@ -156,25 +178,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
-</div>
-
-## tasiyanc — post 8285
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
-</div>
-
-## tasiyanc — post 8284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو امام سجاد نیستی بگی مریضم و نمیتونم بجنگم. جانفدا ثبت نام کردی بااااید بری😹😹😹
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-JAVID SHAH 👑
 </div>
 

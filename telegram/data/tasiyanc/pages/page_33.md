@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/31 00:17
+📅 آخرین بروزرسانی: 1405/05/31 10:38
 
 ---
+
+## tasiyanc — post 8685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱WG tunnel🕹 iOS WG
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8684
+
+<div align="center"><img src="files/post_8684_tasiyanc_8684.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رد پای هواپیمای Dragon Lady در آسمان ایران ⚠️
+
+«دراگون لیدی» کابوس آسمونه؛ اسم مستعار Lockheed U-2 که بالای ۲۰ کیلومتر پرواز میکنه و با دوربین‌های فوق دقیق هر تحرکی رو ثبت میکنه. کنارش معمولاً Boeing RC-135 Rivet Joint میاد؛ یکی تصویر میگیره، یکی شنود میکنه. خلبانش لباس شبیه فضانوردها میپوشه و هر وقت این دوتا کنار هم دیده میشن یعنی مأموریت اطلاعاتی جدیه.
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8682
+
+<div align="center"><img src="files/post_8682_tasiyanc_8682.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•پرامپت اختصاصی تاسیان 👑
+
+•عکساتو زیباتر کن 💖
+•آموزش استفاده 🤖🤖
+
+
+🔺دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8681
 
@@ -156,26 +204,4 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این وسط ارتش عربستان سعودی داره تقه میزنه به یمن 😂
 </div>
-
-## tasiyanc — post 8659
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹ویدیو دیده نشده از شخم زدن بغداد توسط عباس دوران خلبان ایرانی وقتی صدام اعلام کرد که هر کلاغ ایرانی بتونه به بغداد حمله کنه بودجه یک سال نیروی هوایی را پاداش می دهم... ساعتی از این خبر نگذشته بود که دلیر مردان ایران اهداف مهمی را در عمق خاک عراق مورد هدف…
-</div>
-
-## tasiyanc — post 8658
-
-<div align="center"><video src="files/post_8658_tasiyanc_8658.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8658_tasiyanc_8658.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹ویدیو دیده نشده از شخم زدن بغداد توسط عباس دوران خلبان ایرانی
-وقتی صدام اعلام کرد که هر کلاغ ایرانی بتونه به بغداد حمله کنه بودجه یک سال
-نیروی هوایی را پاداش می دهم... ساعتی از این خبر نگذشته بود که دلیر مردان ایران اهداف مهمی را در عمق خاک عراق مورد هدف قرار دادند در این عملیات خلبانان ایرانی موفق شدند پالایشگاه الدوره را با بمب 82
-بمباران کنند
-@TASIYANC 💠
-</div>
-
-## tasiyanc — post 8657
 
