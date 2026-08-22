@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 276
 
-📅 آخرین بروزرسانی: 1405/05/31 07:38
+📅 آخرین بروزرسانی: 1405/05/31 08:22
 
 ---
+
+## VahidOOnLine — post 249644
+
+<div align="center"><img src="files/post_249644_VahidOOnLine_249644.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری ایالات متحده، در شبکه اجتماعی تروث سوشال، با اشاره به درگذشت لیندسی گراهام، سناتور جمهوری‌خواه، نوشت: «لیندسی گراهام، یکی از بزرگ‌ترین افراد و سناتورهایی که تاکنون شناخته‌ام، درگذشت. او همیشه در حال کار و یک میهن‌پرست واقعی بود.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249643
 
@@ -281,17 +293,6 @@ iranintl
 
 فرماندهی مرکزی ارتش آمریکا (سنتکام) ساعاتی قبل با انتشار بیانیه‌ای از حمله به ۱۴۰ نقطه در جنوب ایران خبر داد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249622
-
-<div align="center"><img src="files/post_249622_VahidOOnLine_249622.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدباقر قالیباف، رییس مجلس، ضمن انتشار بند پنجم تفاهمنامه اسلام‌آباد که به مدیریت تنگه هرمز اشاره دارد، در شبکه ایکس نوشت: «دوران توافقات یک‌طرفه به پایان رسیده است. به شما گفته بودیم به قول و تعهداتتان عمل کنید، وگرنه باید بهایش را بپردازید. حالا باید با واقعیت روبه‌رو شوید.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

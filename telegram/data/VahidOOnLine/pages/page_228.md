@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 228
 
-📅 آخرین بروزرسانی: 1405/05/31 07:38
+📅 آخرین بروزرسانی: 1405/05/31 08:22
 
 ---
+
+## VahidOOnLine — post 250809
+
+<div align="center"><video src="files/post_250809_VahidOOnLine_250809.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250809_VahidOOnLine_250809.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که حدود ساعت ۱۱ صبح شنبه ۲۷ تیر، از حوالی پادگان سپاه پاسداران در بهارستان اصفهان دود انفجار به آسمان برخاست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250808
 
@@ -292,21 +305,6 @@ iranintl
 
 به باور کارشناسان بخش زیادی از این مجموعه با سهل انگاری مقامات و سودجویی قاچاقچی‌ها به‌جای رسیدن به موزه‌های ایرانی، وارد بازار عتیقه و مجموعه‌های موزه‌ای و خصوصی جهان شدند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250789
-
-<div align="center"><video src="files/post_250789_VahidOOnLine_250789.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250789_VahidOOnLine_250789.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشر شده در شبکه ‌های اجتماعی نشان می‌دهد که گروهی از همشهری‌ها و دوستان جاویدنام ماهان حقیقی، زادورز او را بر سر مزارش گرامی داشتند.
-
-ماهان حقیقی، جوان کشتی‌گیر و دارای مقام قهرمانی استانی، شامگاه پنج‌شنبه ۱۸ دی‌ماه در شهر رشت، با شلیک گلوله جنگی ماموران حکومتی کشته شد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 541
 
-📅 آخرین بروزرسانی: 1405/05/31 07:38
+📅 آخرین بروزرسانی: 1405/05/31 08:22
 
 ---
+
+## VahidOOnLine — post 242887
+
+<div align="center"><video src="files/post_242887_VahidOOnLine_242887.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242887_VahidOOnLine_242887.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهایی که به تازگی و پس از وصل‌شدن نسبی اینترنت به ایران اینترنشنال رسیده نشان می‌دهد یک شهروند در روزهای جنگ جمهوری اسلامی با آمریکا و اسرائیل در محله نارمک تهران شعار «جاوید شاه» را دیوارنویسی کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242886
 
@@ -282,17 +295,6 @@ https:
 هگست گفت آمریکا در حال اجرای بسیج تاریخی ملی برای تقویت پایه صنعتی دفاعی خود است.
 
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242865
-
-<div align="center"><img src="files/post_242865_VahidOOnLine_242865.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️پیت هگست، وزیر جنگ ایالات متحده، روز جمعه، با تاکید بر قدرت نظامی واشنگتن در قبال تهران اعلام کرد: «در صورت لزوم، توانایی ما برای آغاز مجدد و ازسرگیری درگیری با ایران، بیش از حد تصور و کاملا آماده و توانمند است. با این حال، هرگونه توافقی با ایران یک توافق خوب خواهد بود.» هگست با اشاره به مواضع کاخ سفید در قبال پرونده هسته‌ای افزود که ایالات متحده همچنان تعهدات جهانی دارد تا تضمین کند کشورهایی مانند ایران هرگز به سلاح هسته‌ای دست پیدا نخواهند کرد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

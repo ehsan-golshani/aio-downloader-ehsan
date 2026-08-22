@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 351
 
-📅 آخرین بروزرسانی: 1405/05/31 07:38
+📅 آخرین بروزرسانی: 1405/05/31 08:22
 
 ---
+
+## VahidOOnLine — post 247989
+
+<div align="center"><video src="files/post_247989_VahidOOnLine_247989.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247989_VahidOOnLine_247989.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌اینترنشنال، حضور گسترده مردم را در تشییع پیکر امیرمحمد کاظمی، جوان کشته‌شده به‌دست بسیج در شهر نگار استان کرمان در روز دوشنبه هشتم تیر نشان می‌دهد.
+به گفته هه‌نگاو، امیرمحمد کاظمی، سرباز ١٩ ساله، به دلیل بلند بودن صدای موسیقی در ایام محرم با شلیک گلوله کشته شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247988
 
@@ -299,19 +313,6 @@ iranintl
 
 پس از برقراری آتش‌بس میان ایران و اسرائیل، مقام‌های جمهوری اسلامی بارها اعلام کرده‌اند که با وجود توقف درگیری‌ها، به اقدامات اسرائیل و آمریکا اعتماد ندارند و نیروهای مسلح در آمادگی کامل باقی خواهند ماند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247969
-
-<div align="center"><video src="files/post_247969_VahidOOnLine_247969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247969_VahidOOnLine_247969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز سه‌شنبه نهم تیرماه دانشجویان دانشگاه آزاد مقاطع کارشناسی ارشد و دکتری، مقابل سازمان مرکزی دانشگاه آزاد در تهران تجمع کرده و نسبت به حضوری شدن امتحانات خود اعتراض کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

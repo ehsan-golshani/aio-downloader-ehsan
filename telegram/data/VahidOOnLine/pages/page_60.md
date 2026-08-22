@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/05/31 07:38
+📅 آخرین بروزرسانی: 1405/05/31 08:22
 
 ---
+
+## VahidOOnLine — post 254839
+
+<div align="center"><video src="files/post_254839_VahidOOnLine_254839.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254839_VahidOOnLine_254839.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال درباره گرانی‌های شدید در ایران می‌گوید دیگر توان خرید خورد و خوراک ندارد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254838
 
@@ -314,18 +327,6 @@ Indypersian
 
 بانک توسعه جدید بریکس در سال ۲۰۱۵ با هدف تامین مالی پروژه‌های زیرساختی و توسعه پایدار در کشورهای عضو این گروه راه‌اندازی شد. اعضای اصلی بریکس شامل برزیل، روسیه، هند، چین و آفریقای جنوبی هستند و این گروه در سال‌های اخیر اعضای جدیدی از جمله ایران را نیز پذیرفته است.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254819
-
-<div align="center"><img src="files/post_254819_VahidOOnLine_254819.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ با تاکید بر اینکه آمریکا «کنترل کامل» تنگه هرمز را در اختیار دارد، در شبکه تروث سوشال نوشت: جمهوری اسلامی نیروی هوایی و دریایی ندارد، حقوق سربازان باقی‌مانده‌شان پرداخت نشده، سپاه پاسداران متلاشی شده و نیروهایش در حال فرار هستند و وضعیت رهبری آنها، در بهترین حالت، نامشخص است.»
-ترامپ با اشاره به وضعیت اقتصادی ایران افزود: «آنها پولی ندارند، کشورشان نابود شده و تنها چیزی که دارند اخبار جعلی و تورم ۳۰۰ درصدی است که بدتر هم می‌شود.»
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

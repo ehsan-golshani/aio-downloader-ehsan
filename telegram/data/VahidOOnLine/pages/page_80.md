@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/05/31 07:38
+📅 آخرین بروزرسانی: 1405/05/31 08:22
 
 ---
+
+## VahidOOnLine — post 254400
+
+<div align="center"><img src="files/post_254400_VahidOOnLine_254400.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان دفاع از جریان آزاد اطلاعات هم‌زمان با روز خبرنگار در ایران، ضمن اعلام صدور حکم ۱۵ سال حبس غیابی برای یلدا معیری، عکاس خبری و عضو انجمن صنفی عکاسان مطبوعاتی ایران، گزارش داد شماری از روزنامه‌نگاران و عکاسان خبری همچنان با بازداشت طولانی، بلاتکلیفی قضایی، محرومیت از خدمات درمانی و احکام سنگین زندان روبه‌رو هستند.
+
+معیری یکشنبه ۱۸ مرداد اعلام کرد شعبه ۲۹ دادگاه انقلاب تهران او را به‌صورت غیابی به ۱۵ سال حبس محکوم کرده است. او در شبکه اجتماعی ایکس نوشت: «حکمم را گرفتم! ۱۵ سال حبس! بقیه‌اش هم بماند!»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254399
 
@@ -295,19 +308,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مروری بر مهم‌ترین اخبار و تحولات جنگ در روز یکشنبه ۱۸ مرداد ۱۴۰۵.
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254372
-
-<div align="center"><video src="files/post_254372_VahidOOnLine_254372.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254372_VahidOOnLine_254372.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای ارسال شده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان ساکن سوئد در مالمو یکشنبه ۱۸ مرداد برای گرامیداشت جاویدنامان انقلاب ملی سرود «ای ایران» را همخوانی کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

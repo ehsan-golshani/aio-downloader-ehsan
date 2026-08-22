@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 236
 
-📅 آخرین بروزرسانی: 1405/05/31 07:38
+📅 آخرین بروزرسانی: 1405/05/31 08:22
 
 ---
+
+## VahidOOnLine — post 250634
+
+<div align="center"><img src="files/post_250634_VahidOOnLine_250634.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی ایالات متحده اعلام کرد اظهارات جمهوری اسلامی درباره حمله به پایگاه التنف در سوریه و کشته یا اسیر شدن نیروهای آمریکایی نادرست است.
+
+سنتکام تاکید کرد هیچ‌یک از نیروهای آمریکایی مستقر در منطقه اخیرا کشته یا اسیر نشده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250633
 
@@ -265,21 +278,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک شهروند پیامی ویدیویی فرستاد و گفت که بابت خرید چند پیمانه قهوه، نیم میلیون هزینه کرده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250614
-
-<div align="center"><video src="files/post_250614_VahidOOnLine_250614.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250614_VahidOOnLine_250614.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش‌های رسیده به مدیابات ایران‌اینترنشنال از ادامه کمبود و گرانی دارو و قطع پوشش بیمه‌ای برخی داروها در ایران حکایت دارد
-
-گفت‌وگو با لیلا سعادتی، عضو تحریریه ایران‌اینترنشنال
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

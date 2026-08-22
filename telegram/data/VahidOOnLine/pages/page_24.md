@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/31 07:38
+📅 آخرین بروزرسانی: 1405/05/31 08:22
 
 ---
+
+## VahidOOnLine — post 255705
+
+<div align="center"><video src="files/post_255705_VahidOOnLine_255705.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255705_VahidOOnLine_255705.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی از عبور ناگهانی سه گوزن شمالی از مقابل افرادی که مشغول قایق‌سواری بودند، در فضای مجازی توجه مخاطبان را جلب کرده است.
+
+در این ویدیو، سه گوزن در فاصله‌ای نزدیک از قایق‌ها که از رودخانه هنریز فورک در ایالت آیداهو آمریکا عبور می‌کنند، صحنه‌ای کم‌نظیر از مواجهه نزدیک آنها با حیات‌وحش را رقم می‌زند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255704
 
@@ -270,21 +285,6 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک شهروند ساکن محمودآباد با ارسال ویدیویی به ایران اینترنشنال می‌گوید که برای سومین بار در یک روز برق منزل او قطع شده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255682
-
-<div align="center"><img src="files/post_255682_VahidOOnLine_255682.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی مدنی‌زاده، وزیر اقتصاد، در گفت‌وگو با خبرگزاری دانشجو اعلام کرد در شرایط فعلی، اولویت نخست جمهوری اسلامی فراهم‌کردن زمینه افزایش تاب‌آوری و مقاومت اقتصادی است.
-
-مدنی‌زاده گفت: «باید تلاش کنیم فشارهایی را که دشمنان از ابعاد مختلف به اقتصاد کشور وارد می‌کنند، به حداقل برسانیم و مانع اثرگذاری آن‌ها شویم.»
-
-وزیر اقتصاد همچنین افزود باید مشارکت حداکثری مردم را در اقتصاد کشور از طریق صرفه‌جویی و سرمایه‌گذاری برای بازسازی کشور و نوسازی اقتصاد جلب کنیم.
 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/05/31 00:15
+📅 آخرین بروزرسانی: 1405/05/31 08:22
 
 ---
+
+## ProxyMTProto — post 50272
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: idyll.shmelproxy.top
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50271
 
@@ -172,15 +181,6 @@ Secret: ee93e8816b5fd5c054bc95442701329e0072656c61792e726b6e736f73692e73686f70
 Server: 135.181.74.154
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50252
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: wave.savelyev.click
-Port: 443
-Secret: eeba2e1341a08483c2cede6818498348ff776176652e736176656c7965762e636c69636b
 @ProxyMTProto
 </div>
 
