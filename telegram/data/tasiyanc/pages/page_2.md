@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/31 15:20
+📅 آخرین بروزرسانی: 1405/05/31 16:40
 
 ---
+
+## tasiyanc — post 9495
+
+<div align="center"><video src="files/post_9495_tasiyanc_9495.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9495_tasiyanc_9495.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید تاسیان 
+🆕
+
+" Golden Hour Red Puffer Editorial ✨ "
+
+Prompt 
+🤖
+🤖
+
+A cinematic high-fashion editorial portrait of a naturally beautiful young woman with a short wavy dark bob haircut and wispy bangs, wearing round orange-tinted sunglasses with thin metal frames, elegant pearl drop earrings, a fitted black ribbed turtleneck, and a bold oversized red puffer jacket. Soft glossy lips, natural makeup, realistic skin texture with visible pores and subtle facial details. Wind gently moves her short wavy hair and loose strands around her face.
+Photographed from a dramatic low angle, intimate close-up to upper-body framing, 85mm portrait lens, f/1.8, extremely shallow depth of field, tack-sharp focus on the face, warm golden-hour sunlight illuminating her skin and hair, soft natural shadows, clean cloudless blue sky in the background. Cinematic color grading, rich warm highlights, realistic contrast, subtle analog film texture, premium Vogue-style fashion editorial photography, ultra-photorealistic, professional photography, extremely detailed skin texture, natural facial proportions, authentic optical rendering, high dynamic range, sophisticated luxury fashion aesthetic.
+Negative prompt: cartoon, CGI, 3D render, illustration, painting, plastic skin, over-smoothed skin, excessive retouching, artificial makeup, distorted face, deformed anatomy, bad eyes, asymmetrical glasses, extra fingers, low resolution, blurry face, harsh shadows, oversaturated colors, watermark, text, logo, cropped head.
+
+آموزش استفاده 
+👉
+
+
+@TASIYANC 
+⭐️
+</div>
 
 ## tasiyanc — post 9494
 
@@ -407,33 +435,5 @@ DNS 3⚡️
 💰💰💰💰💰
 📱Telegram Channel👇
 https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9472
-
-<div align="center"><img src="files/post_9472_tasiyanc_9472.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
-
-🌍 سایت بین‌المللی و معتبر LINEBET
-
-⚽️ پیش‌بینی فوتبال
-🎰 کازینو آنلاین
-💳 واریز و برداشت ریالی
-🎁 بونوس 100٪ اولین واریز
-🎁 بونوس 100٪ هر دوشنبه
-📞پشتیبانی فارسی فعال
-
-🎁کد هدیه ثبت‌نام: L5670
-
-🔗 دانلود اپلیکیشن اندروید 👉
-
-🔗 لینک سایت 👉
-✉️ https://t.me/+dukgrB6-zGsyNGM8
-
-🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
-
-📚 آموزش کامل سایت👉
 </div>
 

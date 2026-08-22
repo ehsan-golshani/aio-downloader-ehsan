@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/05/31 15:39
+📅 آخرین بروزرسانی: 1405/05/31 16:38
 
 ---
+
+## ProxyMTProto — post 48037
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: country.nolags.pw
+Port: 443
+Secret: ddc5a3afebedae870af378217569f6586c
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48036
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48035
 
@@ -163,24 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e
 Server: ya.proxyobhod.online
 Port: 8443
 Secret: ee2419e93e2af4bddd80bb8bc8936ea49879612e70726f78796f62686f642e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48017
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ%3D%3D
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48016
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: apex.proxyux.site
-Port: 443
-Secret: ee1e16392ec634c2ebce9387a9edcf24e3617065782e70726f787975782e73697465
 @ProxyMTProto
 </div>
 

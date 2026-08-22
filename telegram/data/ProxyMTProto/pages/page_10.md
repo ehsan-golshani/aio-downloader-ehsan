@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/31 15:39
+📅 آخرین بروزرسانی: 1405/05/31 16:38
 
 ---
+
+## ProxyMTProto — post 50209
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxtstar.live
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50207
 
@@ -163,24 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: tg3.uniq.care
 Port: 8443
 Secret: 7swcOHh7aWFN6hqGnDPq5RF0ZzMudW5pcS5jYXJl
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50189
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50188
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media6.happtg.org
-Port: 443
-Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 111
 
-📅 آخرین بروزرسانی: 1405/05/31 15:20
+📅 آخرین بروزرسانی: 1405/05/31 16:40
 
 ---
+
+## tasiyanc — post 6113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظرتون رو داخل کامنت بگید
+</div>
 
 ## tasiyanc — post 6112
 
@@ -175,11 +181,5 @@ vless://1b9e301d-cecd-4eb1-8b36-eef811c2696d@de1.vitok.cc:443?security=reality&e
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پرمیوم سرعتی ⚡.npvt
-</div>
-
-## tasiyanc — post 6087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Channel@Tasiyanc.ovpn
 </div>
 

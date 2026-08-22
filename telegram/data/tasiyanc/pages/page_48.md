@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/05/31 15:20
+📅 آخرین بروزرسانی: 1405/05/31 16:40
 
 ---
+
+## tasiyanc — post 8239
+
+<div align="center"><video src="files/post_8239_tasiyanc_8239.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8239_tasiyanc_8239.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی که از یکی از سرباز های تیپ 388 بمپور ایرانشهر به شدت وایرال شده که داره آهنگ میخونه 💔
+
+@Tasiyanc ✅| بانك کانفیگ رایگان
+</div>
 
 ## tasiyanc — post 8236
 
@@ -180,13 +192,5 @@
 
 
 @Tasiyanc ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8216
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺حمله آمریکا به بندرلنگه
-
-@Tasiyanc✅
 </div>
 

@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/05/31 15:20
+📅 آخرین بروزرسانی: 1405/05/31 16:40
 
 ---
+
+## tasiyanc — post 9299
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9298
 
@@ -149,6 +170,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9273
 
 ## tasiyanc — post 9272
-
-## tasiyanc — post 9271
 

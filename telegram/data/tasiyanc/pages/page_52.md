@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/05/31 15:20
+📅 آخرین بروزرسانی: 1405/05/31 16:40
 
 ---
+
+## tasiyanc — post 8123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آرژانتین زددد
+</div>
 
 ## tasiyanc — post 8122
 
@@ -196,26 +202,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💢 فوری، رمضان رحیمی عضو کمیسیون آموزش: اگر شرایط جنگ و بحرانی ادامه پیدا کنه، کنکور به تعویق خواهد خورد.
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد
-
-مناسب دانلود⬇️ &  گیم 🎮 & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe ⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
 </div>
 

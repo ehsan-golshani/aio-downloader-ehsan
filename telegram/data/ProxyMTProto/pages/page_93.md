@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/05/31 15:39
+📅 آخرین بروزرسانی: 1405/05/31 16:38
 
 ---
+
+## ProxyMTProto — post 48537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: zinova.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ge.nowabst.net
+Port: 853
+Secret: ee5a281fcc91f7ec3ce293d643395222ad766b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48535
 
@@ -163,24 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e63
 Server: spider.chunkycorp.shop
 Port: 443
 Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 34.7.181.135
-Port: 443
-Secret: ddebf4e93d8565ca5d242efe5aa70822c3
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48516
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
