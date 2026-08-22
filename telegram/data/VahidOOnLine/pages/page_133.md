@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 133
 
-📅 آخرین بروزرسانی: 1405/05/31 17:17
+📅 آخرین بروزرسانی: 1405/05/31 17:40
 
 ---
+
+## VahidOOnLine — post 253116
+
+<div align="center"><video src="files/post_253116_VahidOOnLine_253116.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253116_VahidOOnLine_253116.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده نشان می‌دهند ایرانیان مقیم آلمان جمعه نهم مرداد در اعتراض به اعدام‌های جمهوری اسلامی در دوسلدورف تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253115
+
+<div align="center"><video src="files/post_253115_VahidOOnLine_253115.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253115_VahidOOnLine_253115.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده نشان می‌دهند ایرانیان مقیم دانمارک جمعه نهم مرداد در اعتراض به اعدام‌های جمهوری اسلامی در کپنهاگ تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253114
 
@@ -253,32 +279,6 @@
 برنامه «جغرافیای انقلاب ملی ایرانیان» از سوی ایران‌اینترنشنال برای بررسی روایت‌های اعتراضات دی‌ماه ۱۴۰۴ در استان‌های ایران راه‌اندازی شده است. در این قسمت و در ادامه بررسی کشتار در استان البرز، شلیک مستقیم به مردم از بالای سینما فردیس و حمله ماموران به بیمارستان‌ها روایت می‌شود.
 فرزاد فتاحی، عضو تحریریه ایران‌اینترنشنال گزارش می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253096
-
-<div align="center"><img src="files/post_253096_VahidOOnLine_253096.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندهی مرکزی آمریکا (سنتکام) اعلام کرد ادعای جمهوری اسلامی مبنی بر بستن تنگه هرمز نادرست است و این آبراه همچنان برای تردد کشتی‌های تجاری باز است.
-
-حکومت ایران ظهر جمعه اعلام کرده بود که تنگه هرمز همچنان بسته است و هیچ شناوری امکان عبور از این آبراه را ندارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253095
-
-<div align="center"><img src="files/post_253095_VahidOOnLine_253095.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ دونالد ترامپ، رئیس‌جمهور آمریکا، با اشاره به اینکه حملات جاری این کشور علیه جمهوری اسلامی ایران به این زودی‌ها پایان نخواهد یافت، از راهبرد واشنگتن برای ادامه این حملات تا زمان بازگشت تهران به پای میز مذاکره خبر داد.
-
-ترامپ در جریان جلسه کابینه گفت: «ما ضربات بسیار سنگینی به آن‌ها وارد خواهیم کرد و می‌دانید، بالاخره در یک نقطه‌ای خواهند گفت: دیگر توان تحملش را نداریم.»
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

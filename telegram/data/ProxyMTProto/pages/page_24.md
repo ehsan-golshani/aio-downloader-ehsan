@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/05/31 17:18
+📅 آخرین بروزرسانی: 1405/05/31 17:40
 
 ---
+
+## ProxyMTProto — post 49931
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy.whiteproxy.baby
+Port: 443
+Secret: dd7815244840ab293a65f83fc16bb0234e
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49930
 
@@ -172,15 +181,6 @@ Secret: ee77da8983d77f29210da791d3a3ace4ce3639393766352e73776966742d63646e2e6e65
 Server: iran.fourie.co.uk.
 Port: 443
 Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49911
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ardesvpn1.ru
-Port: 8443
-Secret: ee05cf8e164f926f4a664b2404d276a1d6617264657376706e312e7275
 @ProxyMTProto
 </div>
 

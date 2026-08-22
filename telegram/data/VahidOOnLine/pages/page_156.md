@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 156
 
-📅 آخرین بروزرسانی: 1405/05/31 17:17
+📅 آخرین بروزرسانی: 1405/05/31 17:40
 
 ---
+
+## VahidOOnLine — post 252501
+
+<div align="center"><video src="files/post_252501_VahidOOnLine_252501.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252501_VahidOOnLine_252501.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اعدام ابوالفضل سپاهی و امیرحسین صفری در میدان علیخانی اصفهان، تلاشی بود از سوی حکومت برای نمایش قدرت با پیامی هم‌زمان برای مخالفان و حامیان جمهوری اسلامی. اما تجمع معترضان و شعارهای اعتراضی در محل اجرای حکم، روایت دیگری از این رویداد ساخت؛ روایتی که نشان داد حتی اعدام در ملا عام نیز نمی‌تواند صدای اعتراض و دادخواهی را خاموش کند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252500
+
+<div align="center"><img src="files/post_252500_VahidOOnLine_252500.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس اطلاعات رسیده به ایران اینترنشنال، شروین باقری، از معترضان پرونده اصفهان، در آستانه اجرای حکم اعدام قرار دارد. به خانواده‌ او گفته شده برای آخرین ملاقات به زندان مراجعه کنند . شروین باقری نیز در حال انتقال به سلول انفرادی است.
+
+روز سه‌شنبه اقدام جمهوری اسلامی در اجرای حکم اعدام ابوالفضل سپاهی و امیرحسین صفری، دو تن از معترضان دی‌ماه، در خیابان‌های اصفهان، با واکنش‌های گسترده شهروندان و کاربران شبکه‌های اجتماعی روبه‌رو شد. بسیاری این اقدام حکومت را «وحشیانه» و «جنایتی علیه بشریت» خواندند و از آن ابراز انزجار کردند.
+
+یک منبع آگاه به ایران‌اینترنشنال خبر داد قائم حسینی، امیرحسین ملکی و علی دشتی، سه تن از معترضان انقلاب ملی در اصفهان، در آستانه اجرای حکم اعدام قرار دارند. در پی تشدید موج سرکوب‌ها در ایران، کارزار «سه‌شنبه‌های نه به اعدام» از جامعه جهانی خواست صدای زندانیان محکوم به اعدام باشد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252499
 
@@ -267,32 +295,6 @@
 سخنگوی دولت همچنین گفت ظرفیت تولید بنزین داخلی پس از جنگ آسیب جدی دیده و افزود بنزین وارداتی «نیازمند تخصیص ارز ویژه» است.
 
 او با اشاره به وضعیت بخش انرژی پس از جنگ افزود: «در حملاتی که در جنگ صورت گرفت، ۲۳۰ میلیون متر مکعب از ظرفیت تولید گاز از دست رفته است.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252475
-
-<div align="center"><video src="files/post_252475_VahidOOnLine_252475.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252475_VahidOOnLine_252475.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال در سه‌شنبه ششم مرداد، گریه خانواده یکی از معترضان بازداشتی در دی‌ماه را هنگام اجرای حکم اعدام نشان می دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252474
-
-<div align="center"><video src="files/post_252474_VahidOOnLine_252474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252474_VahidOOnLine_252474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال در سه‌شنبه ششم مرداد، لحظه اعدام یکی از بازداشتی‌های دی‌ماه ۱۴۰۴ را در میدان علیخانی اصفهان همزمان با پخش اذان صبح نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

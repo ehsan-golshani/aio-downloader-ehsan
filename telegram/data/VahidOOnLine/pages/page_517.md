@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 517
 
-📅 آخرین بروزرسانی: 1405/05/31 17:17
+📅 آخرین بروزرسانی: 1405/05/31 17:40
 
 ---
+
+## VahidOOnLine — post 243591
+
+<div align="center"><img src="files/post_243591_VahidOOnLine_243591.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️گزارش‌های رسانه‌های داخلی حاکی از آن است که کف قیمت خودرو در بازار به دست‌کم یک میلیارد و ۲۵۰ میلیون تومان رسیده که قیمت ساینا دنده‌ای است. این در حالی است که بسیاری از خودروهای تولید داخل، کیفیت و سطح ایمنی نامناسبی دارند. در بین محصولات سایپا، ری‌را توربو ۶ سرعته، سه میلیارد و ۴۰۰ میلیون تومان قیمت دارد و بسیاری دیگر از محصولات آن نیز بالای یک‌و‌نیم میلیارد تومان هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243590
+
+<div align="center"><video src="files/post_243590_VahidOOnLine_243590.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243590_VahidOOnLine_243590.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، چهارشنبه ۱۳ خرداد، گفت ممکن است طی چند روز آینده در مذاکرات با ایران پیشرفت حاصل شود و در صورت دستیابی به توافق، آمریکا انتظار دارد ذخایر اورانیوم غنی‌شده جمهوری اسلامی را در اختیار بگیرد و نابود کند. او افزود این توافق شاید تا آخر هفته حاصل شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243589
 
@@ -250,31 +274,6 @@
 طبق این اطلاعات، الیاس رافعی به دلیل شرایط دشوار اقتصادی خانواده، دوران کودکی خود را در پرورشگاه گذراند و پس از ۱۸ سالگی در کنار مادرش زندگی می‌کرد. او ورزشکار بود و به عنوان نان‌آور خانواده از مادرش حمایت می‌کرد.
 
 پس از کشته شدن الیاس، از مادر او برای تحویل گرفتن پیکرش درخواست پول شده بود. مادر الیاس به دلیل ناتوانی مالی ناچار شده مدارکی را امضا کند که در آن فرزندش به عنوان عضو بسیج معرفی شده بود تا بتواند جسد او را تحویل بگیرد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243571
-
-<div align="center"><video src="files/post_243571_VahidOOnLine_243571.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243571_VahidOOnLine_243571.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد جوانی در استان مازندران شعار «جاوید شاه» را در یکی از شهرهای استان دیوارنویسی کرده و به آن احترام نظامی می‌گذارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243570
-
-<div align="center"><img src="files/post_243570_VahidOOnLine_243570.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد ادعای تهران مبنی بر هدف قرار دادن یک ناوشکن نیروی دریایی آمریکا در دریای عمان نادرست است.
-سنتکام همچنین تاکید کرد تمامی شناورها و تجهیزات نظامی آمریکا در دریا بدون هیچ‌گونه اختلالی به فعالیت خود ادامه می‌دهند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

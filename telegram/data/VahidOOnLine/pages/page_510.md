@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 510
 
-📅 آخرین بروزرسانی: 1405/05/31 17:17
+📅 آخرین بروزرسانی: 1405/05/31 17:40
 
 ---
+
+## VahidOOnLine — post 243762
+
+<div align="center"><video src="files/post_243762_VahidOOnLine_243762.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243762_VahidOOnLine_243762.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در کرمانشاه با ارسال ویدیویی از درگیری فرد حامی حکومت با تعداد جوان روایت کرده که این فرد به دلیل حجاب دختر همراه جوانان به آن‌ها حمله‌ور شده و اقدام به فحاشی و درگیری فیزیکی کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243761
+
+<div align="center"><video src="files/post_243761_VahidOOnLine_243761.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243761_VahidOOnLine_243761.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند ویدیویی به ایران اینترنشنال ارسال کرده که شعارنویسی «جاوید شاه پاینده ایران» را در نیشابور در روز ۱۴ خردادماه نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243760
 
@@ -267,35 +293,6 @@
 
 مدیرکل بهزیستی کردستان افزود پدر این کودکان بازداشت شده و نامادری آنان نیز به دلیل نگهداری از دو کودک خردسال دیگر، تحت نظارت قضایی قرار دارد. به گفته او، پرونده این افراد در دستگاه قضایی در دست بررسی است و گزارش‌های کارشناسی نیز به مراجع قضایی ارسال شده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243742
-
-<div align="center"><video src="files/post_243742_VahidOOnLine_243742.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243742_VahidOOnLine_243742.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ حمید رسایی، نماینده مجلس شورای اسلامی، در تجمع شبانه حامیان جمهوری اسلامی در کاشان اعلام کرد «انتقام خون امام شهید را رها نمی‌کنیم.»
-او همچنین گفت: «آنقدر روی برد موشک‌های ایرانی کار می‌کنیم تا روزی کاخ سفید را روی سر رئیس‌جمهوری آمریکا خراب کنیم.»
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243733
-
-<div align="center"><img src="files/post_243733_VahidOOnLine_243733.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر کدامشان ۲۶ سال داشتند؛ سنی برای ساختن، عاشق شدن، کار کردن، ورزش کردن و دنبال کردن رویاهایشان.
-اما خیابان‌های دی‌ماه برای آن‌ها به نقطه پایان تبدیل شد؛ با گلوله سرکوب، در بی‌خبری خانواده‌ها، با پیکرهایی که در گرو ماندند و روایت‌هایی که پایانی ندارند.<
-محمد جباری دیزیچه، یاشار سلطانی‌راد، امید باقری، سعید توکلیان دشمن‌زیاری، امیرعباس باغستانی، مهدی (کیارش) صفری، بهنام برآبادی و صادق علیجانی علیجانوند
-نامشان را می‌نویسیم، چون این روایت‌ها بخشی از حافظه جمعی ما ایرانیان است؛ حافظه‌ای که با سکوت کنار نمی‌آید.<
-#جاویدنامان_انقلاب_ملی_ایرانیان
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

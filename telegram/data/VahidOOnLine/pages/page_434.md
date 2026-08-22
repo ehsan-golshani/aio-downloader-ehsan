@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 434
 
-📅 آخرین بروزرسانی: 1405/05/31 17:17
+📅 آخرین بروزرسانی: 1405/05/31 17:40
 
 ---
+
+## VahidOOnLine — post 245978
+
+<div align="center"><img src="files/post_245978_VahidOOnLine_245978.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کامران غضنفری، عضو کمیسیون امور داخلی مجلس، با انتقاد از تفاهم‌ میان جمهوری اسلامی و آمریکا گفت اگر این تفاهم‌نامه جمعه امضا شود، اسرائیل ظرف چند روز آن را نقض خواهد کرد و دوباره به جمهوری اسلامی حمله می‌کند.
+
+این نماینده مجلس همچنین گفت در این توافق به ممنوعیت ورود ناوهای نظامی خارجی به خلیج فارس و محدودیت تردد کشتی‌های اسرائیلی اشاره نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245966
+
+<div align="center"><video src="files/post_245966_VahidOOnLine_245966.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_245966_VahidOOnLine_245966.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرخط خبرهای چهارشنبه ۲۷ خرداد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245965
 
@@ -225,34 +251,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 در پاسخ به فراخوان شاهزاده رضا پهلوی، ایرانیان نیوکاسل روز ۲۶ خرداد پرچم شیر و خورشید ایران را در تجمعی برافراشتند و نقاشی چهره مجیدرضا رهنورد را در زادروزش به نمایش گذاشتند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245947
-
-<div align="center"><video src="files/post_245947_VahidOOnLine_245947.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_245947_VahidOOnLine_245947.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سعید آجرلو، عضو تیم رسانه‌ای مذاکره‌کننده جمهوری اسلامی، با اشاره به اینکه بعد از جمعه می‌توان راحت‌تر درباره متن یادداشت تفاهم با آمریکا صحبت کرد، گفت آمریکا مراد و قصد مذاکره‌کنندگان را از آوردن «فلان کلمه» در متن نمی‌داند.
-به گفته او، اگر مردم متن نهایی درباره تنگه هرمز را با متن اولیه‌ای که از سوی آمریکا یا جمهوری اسلامی ارائه شده بود مقایسه کنند، تایید خواهند کرد که متن کنونی بهتر است.
-دونالد ترامپ، رییس‌جمهوری آمریکا، پیش‌تر رهبران جدید ایران را «بسیار باهوش» توصیف کرده بود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245946
-
-<div align="center"><video src="files/post_245946_VahidOOnLine_245946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_245946_VahidOOnLine_245946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانیان ساکن هانوفر سه‌شنبه ۲۶ خرداد در گردهمایی‌ای به مناسبت زادروز جاویدنام مجیدرضا رهنورد، به اعدام‌ها در ایران اعتراض کرده و از شاهزاده رضا پهلوی حمایت کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
