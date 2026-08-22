@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 229
 
-📅 آخرین بروزرسانی: 1405/05/31 13:13
+📅 آخرین بروزرسانی: 1405/05/31 13:40
 
 ---
+
+## VahidOOnLine — post 250819
+
+<div align="center"><img src="files/post_250819_VahidOOnLine_250819.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جاسم محمد البدیوی، دبیرکل شورای همکاری خلیج فارس، حملات جمهوری اسلامی به زیرساخت‌ها و تاسیسات غیرنظامی در بحرین، کویت و اردن را جنایت جنگی خواند.
+
+البدیوی خواستار آن شد که این حملات فورا در سطح بین‌المللی مورد پیگرد و عاملان آن پاسخگو شوند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250818
+
+<div align="center"><img src="files/post_250818_VahidOOnLine_250818.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مستندات و اطلاعات خود درباره زندانیان انقلاب ملی ایرانیان در استان‌ها و شهرهای مختلف را برای انتشار به ایران اینترنشنال ارسال کنید. در صورتی که هر کدام از شهروندان در ارتباط با اعتراضات دی‌ماه ۱۴۰۴ با تشکیل پرونده، محکومیت یا زندان مواجه شده‌اند، جزییات آن را به مدیابات ایران اینترنشنال با لینک زیر ارسال کنید. t.me
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250817
 
@@ -265,36 +289,6 @@ iranintl
 
 این شبکه همچنین به نقل از مقام‌های آمریکایی گزارش داد که چین و روسیه نتوانسته‌اند به جمهوری اسلامی کمک کنند و قادر نخواهند بود آن را به وضعیت پیشین بازگردانند.
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250799
-
-<div align="center"><video src="files/post_250799_VahidOOnLine_250799.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250799_VahidOOnLine_250799.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️جاده‌ای خاکی و ناهموار؛ رسانه‌ها از «بازگشایی مسیر جایگزین»‌ برای محور رودان-بندرعباس خبر دادند
-
-♦️در پی تخریب پل محور رودان در استان هرمزگان در حملات هوایی آمریکا، رسانه‌های داخلی ایران، روز شنبه ۲۷ تیرماه با انتشار ویدیویی از حرکت خودروها در مسیری خاکی و ناهموار،‌ از «بازگشایی مسیر جایگزین»‌ برای محور رودان-بندرعباس خبر دادند.
-
-استانداری هرمزگان بامداد شنبه اعلام کرده بود، مسیر رفت و برگشت پل رودان در حملات آمریکا تخریب شده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250798
-
-<div align="center"><video src="files/post_250798_VahidOOnLine_250798.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250798_VahidOOnLine_250798.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که در رسانه‌های اجتماعی منتشر شده، ترافیک سنگین و اختلال در تردد مردم در یک مسیر خاکی از بندرپل به بندرعباس را نشان می‌دهد. این مسیر از غرب وارد بندرعباس می‌شود و از محدوده اسکله رجایی و بندر باهنر عبور می‌کند. این وضعیت همزمان با حملات اخیر به جنوب ایران و محدودیت‌های ترددی اعمال‌شده از سوی مقام‌های حکومت گزارش شده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
