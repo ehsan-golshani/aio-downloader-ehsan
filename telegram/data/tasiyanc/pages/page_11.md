@@ -1,8 +1,12 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/05/31 10:38
+📅 آخرین بروزرسانی: 1405/05/31 11:19
 
 ---
+
+## tasiyanc — post 9266
+
+## tasiyanc — post 9265
 
 ## tasiyanc — post 9264
 
@@ -266,31 +270,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 حمام‌ها کپک زده، توالت‌ها خراب شده، ماشین‌های لباسشویی هفته‌هاست که از کار افتادن، آب گرم نیست و غذا هم که بعضی وقت‌ها فقط نصف لیوان برنج و دو تا نونِ تورتیلاست، دیگه حتى صابون و خمیردندون هم ندارن!
 
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9239
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📌فقط ۲۴ ساعت عضویت رایگان باز شده از همین امشب چک کن ببین چجوری میشه پول دراورد💵💸
-🛒این فرصت محدود رو از دست ندید
-https://t.me/+MT03hkV78q9kMTc0
-</div>
-
-## tasiyanc — post 9238
-
-<div align="center"><video src="files/post_9238_tasiyanc_9238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9238_tasiyanc_9238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💯تنها کانالی که حتما باید توش عضو باشی
-
-✅چون راه پول درآوردن رو بهت نشون میده
-
-📝 حتما آمار کانالشو ببینید فعلا به مدت محدود عضویت رایگان باز شده فقط تا پایان فردا شب🚫⚠️
-
-نمونه آموزش بازی Apple of Furtuneکه سودش تضمینیه رو براتون گذاشتیم پیش بینی های معتبر فوتبالی هم دارن z22:
-📶https://t.me/+MT03hkV78q9kMTc0
-📶https://t.me/+MT03hkV78q9kMTc0
 </div>
 

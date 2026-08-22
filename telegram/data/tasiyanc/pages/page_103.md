@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 103
 
-📅 آخرین بروزرسانی: 1405/05/31 10:38
+📅 آخرین بروزرسانی: 1405/05/31 11:19
 
 ---
+
+## tasiyanc — post 6306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد XB  👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قصد حاشیه با هیچ بنی بشری ام ندارم چون نه حوصله ن وقتشو دارم درکل گفتم زحمتای بقیه رو بعضیا با دو تکست بگ* ندن
+با قدرت در خدمت شما هستیم❤️
+</div>
 
 ## tasiyanc — post 6304
 
@@ -181,27 +199,5 @@ Green Eyes ⚡💚.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 MCI - SamanTel - wifi تست شده
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 6283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-الان کسی از چنل رد شه میگه پشمام ریکشن تاسیانو نگا
-</div>
-
-## tasiyanc — post 6282
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور پرومیوم  سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها ⏩
-
-✔️ @Tasiyanc ✅
 </div>
 

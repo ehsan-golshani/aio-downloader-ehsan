@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/05/31 10:36
+📅 آخرین بروزرسانی: 1405/05/31 11:17
 
 ---
+
+## ProxyMTProto — post 50218
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: persian.gulf.ir.olsjddhf.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50217
 
@@ -172,15 +181,6 @@ Secret: eebeda39dcb3b3bea0da3843853002fe5a6170692e676f72627573686b696e2e636c6963
 Server: haji.biabala.co.uk
 Port: 443
 Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50198
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: juke.startnetwork.shop
-Port: 443
-Secret: dd3eda2b33587de0dad091f72b70fc188d
 @ProxyMTProto
 </div>
 

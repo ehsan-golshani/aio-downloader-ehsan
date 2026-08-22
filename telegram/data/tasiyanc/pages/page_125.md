@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 125
 
-📅 آخرین بروزرسانی: 1405/05/31 10:38
+📅 آخرین بروزرسانی: 1405/05/31 11:19
 
 ---
+
+## tasiyanc — post 5740
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+https://t.me/Tasiyanc/5733
+</div>
+
+## tasiyanc — post 5739
+
+<div align="center"><img src="files/post_5739_tasiyanc_5739.jpg" alt="Photo"></div>
 
 ## tasiyanc — post 5738
 
@@ -173,24 +183,6 @@ vless://20ecee51-1044-4be3-89a9-f3c700425ead@45.67.230.230:443?security=reality&
 
 رمز : ″ @Tasiyanc ″
 
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه جور نتارو باز کردن دوباره مردم میرن کانفیگ میخرن ، تف به شرفتون
-</div>
-
-## tasiyanc — post 5715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده با همراه اول ⛈ 
-
-رمز : ″ @Tasiyanc ″
 
 🚀 @Tasiyanc ✅
 </div>

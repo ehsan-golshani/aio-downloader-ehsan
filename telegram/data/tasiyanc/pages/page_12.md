@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/31 10:38
+📅 آخرین بروزرسانی: 1405/05/31 11:19
 
 ---
+
+## tasiyanc — post 9239
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📌فقط ۲۴ ساعت عضویت رایگان باز شده از همین امشب چک کن ببین چجوری میشه پول دراورد💵💸
+🛒این فرصت محدود رو از دست ندید
+https://t.me/+MT03hkV78q9kMTc0
+</div>
+
+## tasiyanc — post 9238
+
+<div align="center"><video src="files/post_9238_tasiyanc_9238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9238_tasiyanc_9238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💯تنها کانالی که حتما باید توش عضو باشی
+
+✅چون راه پول درآوردن رو بهت نشون میده
+
+📝 حتما آمار کانالشو ببینید فعلا به مدت محدود عضویت رایگان باز شده فقط تا پایان فردا شب🚫⚠️
+
+نمونه آموزش بازی Apple of Furtuneکه سودش تضمینیه رو براتون گذاشتیم پیش بینی های معتبر فوتبالی هم دارن z22:
+📶https://t.me/+MT03hkV78q9kMTc0
+📶https://t.me/+MT03hkV78q9kMTc0
+</div>
 
 ## tasiyanc — post 9237
 
@@ -202,24 +228,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 طرح امتحانی بنزین ۴ نرخی آغاز شد! نرخ اول: ۶۰ لیتر بنزین با نرخ ۱۵۰۰ تومان نرخ دوم: ۵۰ لیتر با نرخ ۳۰۰۰ تومان نرخ سوم: ۴۰ لیتر با نرخ ۵۰۰۰ تومان نرخ چهارم: ۸۷,۲۰۰ تومان این طرح هنوز به طور رسمی کامل اجرا نشده و اکنون محدود به ۲۰۴ جایگاه سوخت در استان کرمان…
-</div>
-
-## tasiyanc — post 9213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طرح امتحانی بنزین ۴ نرخی آغاز شد!
-نرخ اول: ۶۰ لیتر بنزین با نرخ ۱۵۰۰ تومان
-نرخ دوم: ۵۰ لیتر با نرخ ۳۰۰۰ تومان
-نرخ سوم: ۴۰ لیتر با نرخ ۵۰۰۰ تومان
-نرخ چهارم: ۸۷,۲۰۰ تومان
-این طرح هنوز به طور رسمی کامل اجرا نشده و اکنون محدود به ۲۰۴ جایگاه سوخت در استان کرمان میباشد.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐 @Tasiyanc ⭐️
 </div>
 

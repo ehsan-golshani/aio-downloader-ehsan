@@ -1,8 +1,51 @@
 # آرشیو کانال VahidOOnLine - صفحه 312
 
-📅 آخرین بروزرسانی: 1405/05/31 10:35
+📅 آخرین بروزرسانی: 1405/05/31 11:17
 
 ---
+
+## VahidOOnLine — post 248844
+
+<div align="center"><img src="files/post_248844_VahidOOnLine_248844.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، زندانیان سیاسی بند ۶ زندان تهران بزرگ از قطع آب، خاموش شدن کولرها و بسته شدن حمام‌ها از روز گذشته خبر داده و می‌گویند این اقدامات برای اعمال فشار بر آنان انجام شده است.
+
+به گفته این زندانیان، ملاقات‌های روز سه‌شنبه نیز لغو شده و حق ملاقات از آنان گرفته شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248843
+
+<div align="center"><img src="files/post_248843_VahidOOnLine_248843.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رجب طیب اردوغان، رییس‌جمهوری ترکیه، گفت موضوع جنگنده‌های اف-۳۵ مسئله تازه‌ای نیست و آنکارا همچنان منتظر اجرای وعده تحویل پنج فروند از این جنگنده‌هاست.
+
+او ابراز امیدواری کرد این موضوع در نشست رهبران ناتو روندی مثبت پیدا کند.
+
+اردوغان همچنین گفت در دیدار با دونالد ترامپ درباره جنگ روسیه و اوکراین و همچنین موتورهای جنگنده بومی «کان» گفت‌وگو خواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248842
+
+<div align="center"><video src="files/post_248842_VahidOOnLine_248842.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248842_VahidOOnLine_248842.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ دونالد ترامپ، رئیس‌جمهوری ایالات متحده روز سه‌شنبه ۱۶ تیر، هنگام ورود به آنکارا برای شرکت در نشست سران ناتو، به سربازان ترکیه که برای استقبال در فرودگاه حضور داشتند به ترکی سلام کرد و گفت: «مرحبا عسگر» به معنی «سلام سرباز».
+
+نشست سران کشورهای عضو پیمان آتلانتیک شمالی، ناتو، از روز سه‌شنبه آغاز شده و قرار است دو روز طول بکشد. در این نشست، کشورهای از بستن قراردادهای نظامی به ارزش ده‌ها میلیارد دلار خبر دادند؛ اقدامی که در پی فشار ترامپ به اروپا برای افزایش بودجه دفاعی انجام شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248841
 
@@ -239,47 +282,6 @@
 
 او افزود که «انتقام خون رهبری از قاتلان، راهبرد و استراتژی نظام است.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248822
-
-<div align="center"><video src="files/post_248822_VahidOOnLine_248822.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248822_VahidOOnLine_248822.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری رویترز ویدیویی را از لحظه وقوع یکی از چند انفجار روز سه‌شنبه ۱۶ تیرماه در سوریه منتشر کرد.
-به نظر می‌رسد این تصاویر پس از یک انفجار دیگر ضبط شده‌اند.
-رئیس جمهوری فرانسه که برای دیدار رسمی با احمد الشرع، رئیس جمهوری «موقت» سوریه به دمشق سفر کرده، در زمان وقوع این انفجارها در راه «قصر الشعب»، کاخ ریاست جمهوری سوریه بود و به گفته الیزه، صدای انفجاری نشنید.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248821
-
-<div align="center"><img src="files/post_248821_VahidOOnLine_248821.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همزمان با حضور امانوئل مکرون، رییس‌جمهوری فرانسه، در دمشق، چندین وسیله انفجاری روز سه‌شنبه در نزدیکی هتلی که قرار بود او در آن اقامت کند، منفجر شد.
-
-پس از انفجار، نیروهای امنیتی خیابان‌های اطراف را بستند و تدابیر امنیتی را در منطقه تشدید کردند.
-
-کاخ الیزه اعلام کرد امانوئل مکرون در مسیر دیدار با احمد الشرع، رییس دولت سوریه، صدای انفجارهایی را که صبح سه‌شنبه در دمشق رخ داد، نشنید.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248820
-
-<div align="center"><img src="files/post_248820_VahidOOnLine_248820.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ دقایقی پس از انتشار خبر وقوع چند انفجار در نزدیکی هتل محل اقامت رئیس جمهوری فرانسه در دمشق، کاخ الیزه اعلام کرد مکرون در حال حرکت به سمت کاخ ریاست جمهوری سوریه برای دیدار با احمد الشرع بوده و صدای هیچ انفجاری را نشنیده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

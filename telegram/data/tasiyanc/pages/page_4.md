@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/05/31 10:38
+📅 آخرین بروزرسانی: 1405/05/31 11:19
 
 ---
+
+## tasiyanc — post 9442
+
+<div align="center"><img src="files/post_9442_tasiyanc_9442.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+توی قائمشهر یک مرد همسر و دختر خردسال خودش رو خفه کرد و به قتل رسوند!!
+
+وقتی همسر و دخترش خواب بودن جفتشون رو با فشار بر مجرای تنفسی خفه میکنه بعدش سعی میکنه این قتل رو نشت گاز جلوه بده ولی در نهایت لو میره!
+انگیزش قتلش هم اختلافات خانوادگی بوده.
+‌
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 9441
+
+<div align="center"><video src="files/post_9441_tasiyanc_9441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9441_tasiyanc_9441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 بدترین سرنوشت برای یک حاکم( رهبر) اینه که مردمش از دستش بنالند و دائما نفرینش کنند .... آه دل داغ دیدگان یقه کوچیک و بزرگتان را خواهد گرفت ( استاد کاکاوند)
+
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 9440
 
@@ -240,21 +266,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جهت اطلاع ساعت ۲ پست ها پاک میشه
-</div>
-
-## tasiyanc — post 9420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان عزیز توجه کنید جهت طرح شکایت چون اطلاعات تایید ۱۰۰٪ نمیشه ، فقط کانال و شماره اکانت تلگرام و شماره عددی اکانت طرف کافیه تا طرح شکایت کنید پلیس فتا درجا پیگیری می‌کنه @wWwWwWwWwWwWwWwWwWwWwW26 آیدی عددی 8973915004
-</div>
-
-## tasiyanc — post 9419
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان عزیز توجه کنید جهت طرح شکایت چون اطلاعات تایید ۱۰۰٪ نمیشه ، فقط کانال و شماره اکانت تلگرام و شماره عددی اکانت طرف کافیه تا طرح شکایت کنید پلیس فتا درجا پیگیری می‌کنه
-@wWwWwWwWwWwWwWwWwWwWwW26
-
-آیدی عددی
-8973915004
 </div>
 

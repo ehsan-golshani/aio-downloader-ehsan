@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 137
 
-📅 آخرین بروزرسانی: 1405/05/31 10:36
+📅 آخرین بروزرسانی: 1405/05/31 11:17
 
 ---
+
+## ProxyMTProto — post 47646
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 178.105.168.17
+Port: 443
+Secret: eeb67e98429f3ba8896ff33ab9ff9d18a1676f6f676c65617069732e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47645
 
@@ -175,15 +184,6 @@ Secret: ee6cc9e422a51432ca4df25293389adef06172746c6562656465762e7275
 Server: r9.proxytg.space
 Port: 8443
 Secret: ee3e77e6aa740bda96a1dabd06717f51b272392e70726f787974672e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: amorecoin.duckdns.org
-Port: 443
-Secret: 7mYW_5fPLJzJxcvUupkA3pN3d3cuZ29vZ2xlLmNvbQ
 @ProxyMTProto
 </div>
 

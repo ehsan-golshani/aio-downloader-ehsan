@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/05/31 10:38
+📅 آخرین بروزرسانی: 1405/05/31 11:19
 
 ---
+
+## tasiyanc — post 8795
+
+<div align="center"><video src="files/post_8795_tasiyanc_8795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8795_tasiyanc_8795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارهای غیرممکنی که بروسلی تو عالم واقعیت انجام میداد 
+😞
+
+
+⭐ @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8794
+
+<div align="center"><img src="files/post_8794_tasiyanc_8794.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجا نه نیویورکه نه دوبی نه ژاپن
+این نمای نزدیک از مادربرد یک کامپیوتره !
+
+⭐ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8793
 
@@ -185,41 +211,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
-</div>
-
-## tasiyanc — post 8770
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8769
-
-<div align="center"><video src="files/post_8769_tasiyanc_8769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8769_tasiyanc_8769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سام صابری که دیشب اون گندش بالا اومد، امروز با این الفاظ مردم رو خطاب کرد و به همه ناموسی داد:
-
-@TASIYANC
 </div>
 

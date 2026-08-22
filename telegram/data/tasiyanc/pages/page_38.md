@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/05/31 10:38
+📅 آخرین بروزرسانی: 1405/05/31 11:19
 
 ---
+
+## tasiyanc — post 8517
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انفجار در شیراز ، تایید میکنید شیرازیا؟
+</div>
+
+## tasiyanc — post 8516
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اختلال اینترنت در سراسر ایران
+</div>
 
 ## tasiyanc — post 8515
 
@@ -238,20 +250,5 @@ Loc 🇩🇪 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خب بخوابید آروم شد
-</div>
-
-## tasiyanc — post 8476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 دو انفجار در بندر امام
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
 </div>
 

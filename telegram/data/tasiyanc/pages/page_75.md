@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/05/31 10:38
+📅 آخرین بروزرسانی: 1405/05/31 11:19
 
 ---
+
+## tasiyanc — post 7212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگای دارک امیدوارم فراگیر شه و همه برنامشو بزنن کانفیگاش استفاده کنن واقعا یه لول از بقیه متد ها سر تره ،
+کوچکترین باگ نمیشه پیدا کرد توش با سرعت اتصال پایدار میده و هر ثانیه اتصال شمارو چک می‌کنه پینگ میده
+این کانفیگ ها در صورت قطعی قطعا باهاش خیلی کار خواهیم کرد
+</div>
+
+## tasiyanc — post 7210
+
+<div align="center"><video src="files/post_7210_tasiyanc_7210.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7210_tasiyanc_7210.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ اختصاصی دارک تانل 
+🌟
+
+برای گیم 
+🎲 دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖 
+
+حجم نامحدود - سرعتی 
+🚀
+
+تست شده رو تمام نت ها 
+✅
+
+دانلود Dark Tunnel  
+🕹
+
+آموزش اتصال به سرور دارک 
+⏩
+
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7209
 
@@ -287,20 +329,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡⚡🇩🇪.npvt
-</div>
-
-## tasiyanc — post 7184
-
-<div align="center"><img src="files/post_7184_tasiyanc_7184.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡⚡🇩🇪.npvt
-</div>
-
-## tasiyanc — post 7183
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود سرور فرانکفورت 
-🇩🇪
 </div>
 

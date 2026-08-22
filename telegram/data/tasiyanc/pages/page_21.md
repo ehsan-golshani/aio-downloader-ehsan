@@ -1,8 +1,64 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/05/31 10:38
+📅 آخرین بروزرسانی: 1405/05/31 11:19
 
 ---
+
+## tasiyanc — post 9008
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•تقدیم به مردم سرزمینم 🖤
+
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 📍
+
+•آموزش اتصال ⚡️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9006
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 این ۱۰ وب سایت هم با استفاده از هوش مصنوعی میتونن در زمینه ساخت ویدیو و تولید محتوای تصویری مفید باشن - پرامپت رو از ChatGpt بگیرید بدید به سایت های زیر درست کنه
+
+1️⃣  Fliki -
+http://fliki.ai
+
+2️⃣ Tavus -
+http://tavus.ai
+
+3️⃣ D-ID -
+http://d-id.com
+
+4️⃣ Wombo -
+http://deepart.io
+
+5️⃣ Reface -
+http://hey.reface.ai
+
+6️⃣ Hour One -
+http://hourone.ai
+
+7️⃣ Rephrase -
+http://rephrase.ai
+
+8️⃣ Synthesia -
+http://synthesia.io
+
+9️⃣ DeepBrain -
+http://deepbrain.io
+
+1️⃣0️⃣ EmbodyMe -
+http://embodyme.com
+
+Join 👹 @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9005
 
@@ -351,21 +407,5 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8986
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نتانیاهو:
-اگه گوشی موبایل دارید یعنی بخشی از اسرائیل رو دارید با خودتون حمل میکنید. ما اونجاییم
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast - HCustum 🇮🇹B.hc
 </div>
 

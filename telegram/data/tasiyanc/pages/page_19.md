@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/05/31 10:38
+📅 آخرین بروزرسانی: 1405/05/31 11:19
 
 ---
+
+## tasiyanc — post 9065
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[SuperFast] @Tasiyanc 🔥.npvt
+</div>
+
+## tasiyanc — post 9064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 📍
+
+•آموزش اتصال ⚡️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 9063
 
@@ -236,30 +258,5 @@ Join @TASIYANC
 
 بفرست برا کسی که میخوای عکس پاشو برات بده 😂
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9034
-
-<div align="center"><video src="files/post_9034_tasiyanc_9034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9034_tasiyanc_9034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این سکانس GOT برای دنیا معمولیه برای ما ایرانیا نه
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9032
-
-<div align="center"><img src="files/post_9032_tasiyanc_9032.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز تولد جاویدنام شیوا جاویده که در ۱۸ سالگی به قتل رسید 🕊️
-
-شیوا جاوید ۱۸ ساله، به همراه پدرش علی‌اکبر جاوید ۳۸ ساله، هر دو در مشهد، در آغوش همدیگه به قتل رسیدن.
-
-
-@TASIYANC ✅
 </div>
 
