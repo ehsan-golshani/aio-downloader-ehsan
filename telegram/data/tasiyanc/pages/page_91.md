@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/05/31 17:20
+📅 آخرین بروزرسانی: 1405/05/31 18:15
 
 ---
+
+## tasiyanc — post 6672
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک پست : ترامپ الان اعلام کرد توافق نهایی شده و تمومه
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6671
 
@@ -198,13 +205,6 @@ Fotmob iOS
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔩⭕️⭕️ امشب بمباران وحشتناکی در راه است
 
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6647
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔩🔴ترامپ: ما با جنگنده و هواپیما‌های خود بر فراز تهران پرواز می‌کنیم و ایرانی‌ها از آن خبر ندارن. ایران در تبلیغات خوبه اما در جنگیدن خوب نیست.
 @Tasiyanc ✅
 </div>
 

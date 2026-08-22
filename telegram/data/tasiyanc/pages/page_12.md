@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/05/31 17:20
+📅 آخرین بروزرسانی: 1405/05/31 18:15
 
 ---
+
+## tasiyanc — post 9252
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا ابد و یک روز؟؟؟؟
+</div>
 
 ## tasiyanc — post 9249
 
@@ -264,11 +270,5 @@ r22
 این نرخ (بنزین ۸۷تومنی) بعد از ۱۰ روز در تمامی نقاط کشور اجرا خواهد شد.
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 9222
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گنلمه دار خلقتده ... وررسن باده خلوتده
 </div>
 

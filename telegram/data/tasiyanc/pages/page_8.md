@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/31 17:20
+📅 آخرین بروزرسانی: 1405/05/31 18:15
 
 ---
+
+## tasiyanc — post 9354
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سردار باقرزاده : سه خلبان ایرانی زنده و در اسارت قطری ها هستند
+
+«جواد صالحی , عبدالمجید دشتیان ، عمران به‌روشیان » از ۶ ماه پیش بعد از اصابت هواپیمایشان ( سوخو۲۴) در اسارت نیروهای قطری هستند همچنین ارتش قطر اجازه مصاحبه ، ملاقات ، تماس هم بهشون نداده است.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9353
 
@@ -243,18 +253,5 @@ sr25
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🪐 05.conf
-</div>
-
-## tasiyanc — post 9332
-
-<div align="center"><img src="files/post_9332_tasiyanc_9332.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🇰🇵دونالد ترامپ در شبکه اجتماعی Truth Social:
-
-«با وجود چهره ناخوشایند در این تصویر خاص، عکس‌های زیادی وجود دارد که در آنها لبخند می‌زنیم؛ من و کیم جونگ اون رابطه بسیار خوبی داریم!»
-
-
-@Tasiyanc ☑️
 </div>
 

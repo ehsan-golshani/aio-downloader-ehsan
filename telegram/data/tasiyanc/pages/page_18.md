@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/05/31 17:20
+📅 آخرین بروزرسانی: 1405/05/31 18:15
 
 ---
+
+## tasiyanc — post 9095
+
+<div align="center"><img src="files/post_9095_tasiyanc_9095.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت کاپلی VIP اختصاصی تاسیان 
+🆕 😎
+
+عکس خودتون و پارتنرتون بدید به AI
+
+Prompt 🤖🤖
+"Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim shirt, driving with a lit cigar in his mouth, hand on the wheel. Woman with dark, shaggy hair and bangs, wearing gold-framed aviator sunglasses and a denim shirt, leaning her head on the man's shoulder. View is framed by the car's windshield and wipers. The red hood is prominent in the foreground. Gritty film grain, warm color correction, vintage photography. Shot with Kodak Portra film."
+آموزش استفاده 👉
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9094
 
@@ -298,16 +315,6 @@ https://t.me/+5fvta-uF4QA3ZDY0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مردی در کشور ولز لباس عزرائیل میپوشید هر صبح می‌رفت روبروی بیمارستان به پنجره بیماران زل میزد ، توسط پلیس دستگیر شد 😞
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 7 آگوست روز جهانی ترویج شیردهی هست
-
-+بفرست برا کسی که میخوای بت شیر بده 😞
 
 @TASIYANC ✅
 </div>

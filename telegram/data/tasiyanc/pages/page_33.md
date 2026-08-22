@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/05/31 17:20
+📅 آخرین بروزرسانی: 1405/05/31 18:15
 
 ---
+
+## tasiyanc — post 8699
+
+<div align="center"><img src="files/post_8699_tasiyanc_8699.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با این سایت به کل دنیا گوش بده 🎼
+
+https://radio.garden/visit/reykjavik/82Q3wG81
+
+🌐 تا حالا شده کنجکاو شی مردم یه شهر اونور دنیا دارن چی گوش میدن؟
+
+با Radio Garden میتونی فقط با چرخوندن کره زمین، رادیوی زنده چندین هزار شهر از سراسر دنیا رو گوش بدی. از موسیقی و اخبار گرفته تا برنامه‌های محلی و حتی تبلیغات همون کشور!
+
+🔎 اگه دنبال یه شهر خاص باشی، فقط کافیه اسمش رو سرچ کنی…
+﻿
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8698
 
@@ -222,11 +240,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 هم اکنون حمله سپاه به بحرین
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8672
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب چقد آرومه 🦦
 </div>
 

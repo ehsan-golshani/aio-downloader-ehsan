@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/05/31 17:20
+📅 آخرین بروزرسانی: 1405/05/31 18:15
 
 ---
+
+## tasiyanc — post 9500
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9499
 
@@ -429,11 +439,5 @@ IPv6
 
 
 @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Blue Man💙 (1).ovpn
 </div>
 
