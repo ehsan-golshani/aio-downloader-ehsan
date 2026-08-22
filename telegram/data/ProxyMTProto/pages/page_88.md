@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/05/31 21:19
+📅 آخرین بروزرسانی: 1405/05/31 21:40
 
 ---
+
+## ProxyMTProto — post 48647
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: edge.rknwatch.digital
+Port: 443
+Secret: ee1f46fcc7e9b3991677f71d2c1cb2ac92656467652e726b6e77617463682e6469676974616c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48646
 
@@ -172,15 +181,6 @@ Secret: eebd79a03bd57944c4830f41e0f2fb94626e65742e6672656574672e7077
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn.savelyev.click
-Port: 443
-Secret: ee0e25d36b89ee532fcc5767a9dae2669e63646e2e736176656c7965762e636c69636b
 @ProxyMTProto
 </div>
 
