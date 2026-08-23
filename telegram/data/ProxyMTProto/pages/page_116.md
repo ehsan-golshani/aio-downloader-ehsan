@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/06/01 15:42
+📅 آخرین بروزرسانی: 1405/06/01 16:40
 
 ---
+
+## ProxyMTProto — post 48110
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mx.proxyz.site
+Port: 443
+Secret: ee76166fbf55209edbcfbe009bcc16f4646d782e70726f78797a2e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48109
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48108
 
@@ -163,24 +181,6 @@ Secret: eec57f379567b25a79cbd1fa0ad73b98d9666c75782e70726f787974656c6567612e7374
 Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48090
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lumen.proxyux.site
-Port: 443
-Secret: ee46a405cdf38698927aa7352341e2ba0a6c756d656e2e70726f787975782e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 
