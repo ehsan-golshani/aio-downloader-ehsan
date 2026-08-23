@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 253835
+
+<div align="center"><video src="files/post_253835_VahidOOnLine_253835.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253835_VahidOOnLine_253835.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال دیوارنویسی اعتراضی شهروندان علیه جنگ‌طلبی مجتبی خامنه‌ای و احمد وحیدی را در پیرانشهر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253834
 
@@ -316,19 +329,6 @@ iranintl
 این رزمایش با واکنش تند کیم یو جونگ، خواهر رهبر کره شمالی، همراه شد. او ژاپن را «کشوری جنایتکار در جنگ» خواند و گفت دستیابی توکیو به توان حمله پیش‌دستانه، تهدیدی جدی برای صلح و ثبات بین‌المللی است.
 او همچنین تاکید کرد پیونگ‌یانگ هرگز روند تقویت توان نظامی ژاپن را که می‌تواند امنیت کره شمالی را تهدید کند، نادیده نخواهد گرفت و در برابر آن از گزینه‌های نظامی خود استفاده خواهد کرد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253815
-
-<div align="center"><video src="files/post_253815_VahidOOnLine_253815.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253815_VahidOOnLine_253815.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدجواد اکبرین، عضو تحریریه ایران‌اینترنشنال، با اشاره به تضعیف نیروهای نیابتی جمهوری اسلامی، گفت حکومت ایران تلاش می‌کند اندک نیروهای باقی‌مانده خود را در یک نقطه متمرکز کند تا از آخرین توانایی‌های آن‌ها علیه منطقه و جهان استفاده کند
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

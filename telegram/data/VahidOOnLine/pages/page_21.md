@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 256025
+
+<div align="center"><img src="files/post_256025_VahidOOnLine_256025.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یحیی سریع، سخنگوی حوثی‌های یمن، پنج‌شنبه ۲۹ مرداد اعلام کرد این گروه با دو پهپاد فرودگاه نجران و تاسیسات آرامکو در نجران عربستان سعودی را هدف قرار داده است.
+
+سخنگوی حوثی‌های یمن با بیان اینکه «هر دو عملیات با موفقیت انجام شده است»، گفت این حملات در واکنش به «نقض حریم هوایی استان صعده از سوی پهپادهای عربستان سعودی» صورت گرفته است.
+
+او همچنین گفت: «به مقابله با هرگونه نقض حاکمیت یمن ادامه خواهیم داد.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256024
 
@@ -270,19 +285,6 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گزارشگر: این آقا کنار ساحل به من توهین می‌کند
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256005
-
-<div align="center"><video src="files/post_256005_VahidOOnLine_256005.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256005_VahidOOnLine_256005.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام یکی از ببیندگان و گزارشگران قدیمی منوتو درباره درگذشت خانم فرحناز اسپد
 ManotoTV
 
 🤖 @VahidOOnLine

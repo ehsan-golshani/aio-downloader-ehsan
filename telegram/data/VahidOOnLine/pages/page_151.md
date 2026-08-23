@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 151
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 252878
+
+<div align="center"><video src="files/post_252878_VahidOOnLine_252878.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252878_VahidOOnLine_252878.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیوید دی‌روش، مدیر پیشین سیاستگذاری حوزه خلیج فارس در پنتاگون، گفت به نظر نمی‌رسد دونالد ترامپ بخواهد پرونده جمهوری اسلامی را نیمه‌تمام رها کند و ممکن است دامنه حملات را به زیرساخت‌های دومنظوره، از جمله پل‌ها، نیروگاه‌ها و حتی اهدافی در پایتخت ایران، گسترش دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252877
 
@@ -286,23 +299,6 @@
 طاهر اندربی، سخنگوی وزارت امور خارجه پاکستان، در گفتگو با خبرنگاران در اسلام‌آباد گفت: «مذاکرات میان طرف‌ها در جریان است، به‌ویژه درباره تنگه هرمز و کاهش تنش.»
 پاکستان در ماه‌های اخیر تلاش کرده است در میان تنش‌های فزاینده میان ایران و آمریکا نقش میانجی را ایفا کند. این اظهارات در حالی مطرح می‌شود که درگیری‌ها در منطقه بار دیگر شدت گرفته و آمریکا و ایران حملات متقابلی انجام داده‌اند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252845
-
-<div align="center"><video src="files/post_252845_VahidOOnLine_252845.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252845_VahidOOnLine_252845.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با وجود مشارکت عربستان سعودی در حملات مشترک با آمریکا علیه شبه‌نظامیان مورد حمایت جمهوری اسلامی در عراق، ریاض همچنان بر کاهش تنش با تهران تاکید دارد.
-
-هم‌زمان، وزیر دفاع عربستان سعودی در دیدار با معاون رییس‌جمهوری آمریکا، پیام محمد بن سلمان درباره جنگ با ایران و تحولات منطقه را به کاخ سفید منتقل کرد.
-
-نیلوفر منصوری، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

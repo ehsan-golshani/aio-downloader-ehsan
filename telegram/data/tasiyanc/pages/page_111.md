@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 111
 
-📅 آخرین بروزرسانی: 1405/06/01 22:26
+📅 آخرین بروزرسانی: 1405/06/01 22:53
 
 ---
+
+## tasiyanc — post 6149
+
+<div align="center"><img src="files/post_6149_tasiyanc_6149.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دو دقیقه نیست استارت خورد ، دمت گرم عشقی. بمبه
+</div>
 
 ## tasiyanc — post 6148
 
@@ -197,20 +205,5 @@ Fast2⚡@Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هردفم باید بگیم دیگه ری اکشنو😭
-</div>
-
-## tasiyanc — post 6124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی کانفیگ وایرگارد ✅
-
-تست شده 🎚
-
-دانلود برنامه Wg tunnel 🕹
-
-آموزش ویدیویی ⏩
-
-@Tasiyanc 
-✅
 </div>
 

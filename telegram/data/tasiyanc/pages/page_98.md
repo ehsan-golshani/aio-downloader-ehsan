@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/06/01 22:26
+📅 آخرین بروزرسانی: 1405/06/01 22:53
 
 ---
+
+## tasiyanc — post 6478
+
+<div align="center"><img src="files/post_6478_tasiyanc_6478.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هلیا خانم ایران ۵ قلو زایید 🥹
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6477
 
@@ -201,20 +212,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 new@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 6453
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  OpenVPN♻️
-
-تست شده  سامانتل ، رایتل ، وای‌فای 🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
 </div>
 

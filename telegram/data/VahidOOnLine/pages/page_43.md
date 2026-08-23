@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 255491
+
+<div align="center"><img src="files/post_255491_VahidOOnLine_255491.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری ایالات متحده، در پیامی در شبکه اجتماعی تروث سوشال تاکید کرد که جلوگیری از دستیابی ایران به سلاح هسته‌ای، «هدف شماره یک» او بوده و خواهد بود.
+
+ترامپ نوشت: «هدف شماره یک این است و همیشه خواهد بود که ایران به هیچ شکل و صورتی نتواند سلاح هسته‌ای داشته باشد.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255490
 
@@ -318,13 +331,5 @@ IranintlTV
 Indypersian
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255471
-
-<div align="center"><img src="files/post_255471_VahidOOnLine_255471.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
 </div>
 

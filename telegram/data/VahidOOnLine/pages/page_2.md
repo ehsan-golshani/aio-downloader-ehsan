@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 256459
+
+<div align="center"><img src="files/post_256459_VahidOOnLine_256459.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حسن قشقاوی، سخنگوی کمیسیون امنیت ملی و سیاست خارجی مجلس، از تصویب ماده‌ای خبر داد که بر اساس آن، جمهوری اسلامی «در قبال خدماتی از جمله خدمات دریانوردی، محیط‌زیستی، سوخت‌رسانی در شرایط خاص، بیمه‌ای، ایمنی و سایر خدماتی که ارائه می‌شود»، هزینه دریافت خواهد کرد.
+
+سخنگوی کمیسیون امنیت ملی و سیاست خارجی مجلس همچنین افزود این هزینه‌ها از «کشتی‌های کشورهای مجاز به عبور از تنگه هرمز، به ریال یا هر ارز دیگری که مورد نظر جمهوری اسلامی باشد» دریافت خواهد شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256458
 
@@ -266,19 +279,6 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تهران؛ صف طولانی بنزین ـ گزارشگر
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256435
-
-<div align="center"><video src="files/post_256435_VahidOOnLine_256435.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256435_VahidOOnLine_256435.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مروری بر مهم‌ترین اخبار و تحولات جنگ در روز یکشنبه ۱ شهریور ۱۴۰۵.
 ManotoTV
 
 🤖 @VahidOOnLine

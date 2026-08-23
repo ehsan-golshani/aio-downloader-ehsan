@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/06/01 22:26
+📅 آخرین بروزرسانی: 1405/06/01 22:53
 
 ---
+
+## tasiyanc — post 7798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارشات تایید نشده ترامپ با ناتو به توافق رسیده در ازای کمك آمریکا به اوکراین ، ناتو نیز کنار آمریکا به ایران حمله خواهد کرد
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 7797
 
@@ -177,11 +184,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تنگه هرمز بسته شد💪
-</div>
-
-## tasiyanc — post 7752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری فرودگاه بندرعباس زدن
 </div>
 

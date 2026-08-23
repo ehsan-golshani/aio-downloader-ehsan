@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 144
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 253034
+
+<div align="center"><video src="files/post_253034_VahidOOnLine_253034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253034_VahidOOnLine_253034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اصفهان؛ «با دوشکا آمدند وسط میدان علیخانی» ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253033
 
@@ -295,23 +308,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای منتشرشده در رسانه‌های اجتماعی نشان می‌دهد در روزهای اخیر بر اثر بارش باران، در مناطقی از نوکنده در استان گلستان و هزارجریب مازندران سیلاب جاری شده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253004
-
-<div align="center"><img src="files/post_253004_VahidOOnLine_253004.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه‌های ایران با انتشار تصاویری گزارش دادند تابوت‌های پنج عضو سپاه پاسداران که در حملات آمریکا و عربستان سعودی به مواضع گروه‌های شبه‌نظامی مورد حمایت جمهوری اسلامی در عراق کشته شده بودند، از طریق مرز مهران وارد ایران شد.
-
-رسانه‌ها نوشتند این تابوت‌ها از مرز مهران به ایران منتقل شدند.
-
-ساعاتی پس از حملات آمریکا و عربستان سعودی به عراق، برخی رسانه‌های ایران و کانال‌های تلگرامی وابسته به حکومت از کشته شدن چهار عضو سپاه پاسداران خبر داده بودند.
-
-با این حال، جعفر صفری، سرپرست کنسولگری جمهوری اسلامی در کربلا، در یک مصاحبه ویدیویی این گزارش‌ها را تکذیب کرد و گفت ساختمانی که هدف حمله قرار گرفت، «متروکه و خالی از سکنه» بود.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

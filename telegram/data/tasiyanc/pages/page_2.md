@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/01 22:26
+📅 آخرین بروزرسانی: 1405/06/01 22:53
 
 ---
+
+## tasiyanc — post 9528
+
+<div align="center"><img src="files/post_9528_tasiyanc_9528.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
+
+🌍 سایت بین‌المللی و معتبر LINEBET
+
+⚽️ پیش‌بینی فوتبال
+🎰 کازینو آنلاین
+💳 واریز و برداشت ریالی
+🎁 بونوس 100٪ اولین واریز
+🎁 بونوس 100٪ هر دوشنبه
+📞پشتیبانی فارسی فعال
+
+🎁کد هدیه ثبت‌نام: L5670
+
+🔗 دانلود اپلیکیشن اندروید 👉
+
+🔗 لینک سایت 👉
+✉️ https://t.me/+dukgrB6-zGsyNGM8
+
+🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
+sr1
+📚 آموزش کامل سایت👉
+</div>
 
 ## tasiyanc — post 9526
 
@@ -319,17 +347,6 @@ sr31
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وقتشه درامد دلاری به جیب بزنی ✅
 همین حالا وارد کانال  Evil Bet شو👇
-https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9505
-
-<div align="center"><img src="files/post_9505_tasiyanc_9505.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
-
-https://t.me/+TmGWkUYH_8c0OWZk
 https://t.me/+TmGWkUYH_8c0OWZk
 </div>
 

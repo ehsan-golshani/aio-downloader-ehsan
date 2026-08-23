@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/01 22:26
+📅 آخرین بروزرسانی: 1405/06/01 22:53
 
 ---
+
+## tasiyanc — post 9281
 
 ## tasiyanc — post 9280
 
@@ -98,26 +100,5 @@ Admin : @Tssub
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9257
-
-<div align="center"><video src="files/post_9257_tasiyanc_9257.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9257_tasiyanc_9257.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
-
-✅اسپانسر لیگ انگلستان
-
-👑 امکان شارژ و برداشت با کارت بانکی
-
-⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....
-📢
-
-😀Telegram Channel
-👇
-https://t.me/+c5jwC3lt9z45NTE0
 </div>
 

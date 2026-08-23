@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 180
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 252137
+
+<div align="center"><img src="files/post_252137_VahidOOnLine_252137.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش «وای‌نت»، عصر شنبه یک پهپاد در شهرک کریات اربع و در نزدیکی منزل ایتامار بن‌گویر، وزیر امنیت ملی اسرائیل، سقوط کرد. بر اساس این گزارش، این پهپاد حامل هیچ‌گونه مواد منفجره‌ای نبوده و پس از سقوط، توسط نیروهای ارتش اسرائیل جمع‌آوری شده است. این حادثه هیچ خسارت یا آسیب جانی به همراه نداشته و تحقیقات برای بررسی جزئیات و علل وقوع آن همچنان ادامه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252136
 
@@ -294,19 +305,6 @@
 
 #ایندیپندنت_فارسی
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252116
-
-<div align="center"><video src="files/post_252116_VahidOOnLine_252116.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252116_VahidOOnLine_252116.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«مریض دارم راه رو بستند»
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

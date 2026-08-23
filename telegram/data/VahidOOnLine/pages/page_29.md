@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 255844
+
+<div align="center"><video src="files/post_255844_VahidOOnLine_255844.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255844_VahidOOnLine_255844.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرکت چینی «لنداسپیس» چهارشنبه ۲۸ مرداد برای نخستین بار پیشران تقویتی (Booster) موشک «ژوکو-۳» را پس از پرتاب با موفقیت فرود آورد و به جمع اسپیس‌ایکس و بلو اوریجین در بازیابی بوستر موشک‌ها پیوست. این شرکت قصد دارد بوستر ژوکو-۳ را تا ۲۰ بار استفاده مجدد کند؛ دستاوردی که می‌تواند هزینه پرتاب‌های فضایی را کاهش دهد و فاصله چین را با آمریکا در فناوری موشک‌های چندبارمصرف کمتر کند.
+این موشک از فولاد ضدزنگ ساخته شده و به‌عنوان پاسخ چین به موشک «فالکون ۹» اسپیس‌ایکس معرفی شده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255843
 
@@ -291,17 +305,6 @@ IranintlTV
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مهم‌ترین خبرها و تحلیل‌های رسانه‌های جهان درباره ایران در ۲۴ ساعت گذشته
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255811
-
-<div align="center"><img src="files/post_255811_VahidOOnLine_255811.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نائینی فقط زبان یک شهر نیست، حافظهٔ زندهٔ نسل‌هایی است که جهان را با واژه‌هایی متفاوت روایت کرده‌اند. آیا این صدای کهن به نسل بعد خواهد رسید؟
 ManotoTV
 
 🤖 @VahidOOnLine

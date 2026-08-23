@@ -1,8 +1,24 @@
 # آرشیو کانال VahidOOnLine - صفحه 342
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 248391
+
+<div align="center"><video src="files/post_248391_VahidOOnLine_248391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248391_VahidOOnLine_248391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️یک افسر ارشد فعال در نیروی هوایی ایالات متحده با حضور در مقابل ساختمان کنگره آمریکا ، در اقدامی اعتراضی علیه دونالد ترامپ، رئیس‌جمهور این کشور،  خواستار برکناری ترامپ شد.
+این افسر که درجه «سرگرد» دارد، با در دست داشتن پلاکاردی با شعار «استیضاح، محکومیت، برکناری» (IMPEACH, CONVICT, REMOVE) خواستار کنار گذاشتن ترامپ از قدرت شد.
+جزئیات بیشتری درباره هویت این فرد یا واکنش مقام‌های نظامی آمریکا به این اقدام منتشر نشده است.
+بر اساس قوانین نظامی ایالات متحده، نیروهای فعال نظامی معمولا از مشارکت علنی در فعالیت‌های سیاسی منع شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248390
 
@@ -250,21 +266,6 @@
 ♦️شهباز شریف، نخست‌وزیر پاکستان با همراهی عاصم منیر، فرمانده ارتش این کشور و محسن نقوی، وزیر کشور، روز جمعه ۱۲ تیرماه بر تابوت رهبر پیشین ایران حاضر شد و به آن ادای احترام کرد.
 
 فیلد مارشال عاصم منیر و شهباز شریف، ظهر جمعه برای حضور در مراسم تشییع علی خامنه‌ای و گفتگو با مقام‌های ایران وارد تهران شدند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248371
-
-<div align="center"><video src="files/post_248371_VahidOOnLine_248371.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248371_VahidOOnLine_248371.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️امام علی رحمان به تابوت علی خامنه‌ای ادای احترام کرد
-
-♦️امام علی رحمان، رئیس جمهوری تاجیکستان که برای حضور در مراسم تشییع رهبر پیشین جمهوری اسلامی به تهران سفر کرده است، روز جمعه ۱۲ تیرماه با حضور در مصلی تهران، به تابوت علی خامنه‌ای ادای احترام کرد.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

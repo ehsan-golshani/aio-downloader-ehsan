@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 206
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 251518
+
+<div align="center"><img src="files/post_251518_VahidOOnLine_251518.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، گزارش داد که جزیره لارک ساعت ۱۴:۴۸ به وقت محلی هدف حمله موشکی آمریکا قرار گرفت.
+
+تسنیم، به نقل از ساکنان منطقه گزارش داد هم‌زمان با این حمله صدای انفجار شدیدی در حوالی جزیره شنیده شد.
+
+تسنیم افزود بررسی محل دقیق اصابت، ابعاد حمله و میزان خسارات احتمالی از سوی نهادهای مسئول ادامه دارد و تاکنون جزییات رسمی درباره نوع پرتابه، منشا آن و میزان خسارات احتمالی اعلام نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251517
 
@@ -276,19 +291,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رسانه‌های اردن گزارش دادند هم‌زمان با رهگیری موشک‌ها، صدای انفجار در شهر عقبه شنیده شد. همچنین در جریان حمله موشکی جمهوری اسلامی به شهر عقبه، صدای انفجار در شهر ایلات، جنوبی‌ترین شهر اسرائیل، نیز شنیده شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251489
-
-<div align="center"><video src="files/post_251489_VahidOOnLine_251489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251489_VahidOOnLine_251489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که حدود ساعت ۸:۳۰ صبح چهارشنبه ۳۱ تیر، دود ناشی از انفجار در حوالی فرودگاه شیراز مشاهده شد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

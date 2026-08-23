@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 371
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 247765
+
+<div align="center"><video src="files/post_247765_VahidOOnLine_247765.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247765_VahidOOnLine_247765.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد ملوانان نیروی دریایی آمریکا در ناو هواپیمابر «یواس‌اس جرج اچ. دبلیو. بوش» در حال انجام عملیات پروازی در حین عبور از دریای عرب هستند.
+
+بر اساس این گزارش، این عملیات در چارچوب فعالیت‌های معمول نیروی دریایی آمریکا در منطقه و با هدف حفظ آمادگی عملیاتی و پشتیبانی از مأموریت‌های جاری انجام می‌شود.
+
+ناو هواپیمابر «جرج بوش» یکی از ناوهای پیشرفته نیروی دریایی آمریکا به‌شمار می‌رود که در مأموریت‌های مختلف در منطقه خاورمیانه و آب‌های بین‌المللی حضور دارد
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247764
 
@@ -275,19 +292,6 @@
 
 به گفته او، این مراسم در عتبات مقدسه و با «شکوه کامل» برگزار خواهد شد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247743
-
-<div align="center"><video src="files/post_247743_VahidOOnLine_247743.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247743_VahidOOnLine_247743.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم استرالیا یکشنبه هفتم تیرماه در شهر پرت تجمع کردند و فریاد «مرگ بر جمهوری اسلامی» سردادند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

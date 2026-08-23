@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 255237
+
+<div align="center"><video src="files/post_255237_VahidOOnLine_255237.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255237_VahidOOnLine_255237.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران اینترنشنال از برگزاری یک مراسم حکومتی با تابوت نمادین برای علی خامنه‌ای به عنوان «مرده‌پرستی» یاد کرده و از مخارج چنین مراسمی انتقاد می‌کند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255236
 
@@ -288,21 +301,6 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیویی که یک شهروند ارسال کرده نشان می‌دهد قطع برق مکرر در شهرهای مختلف ادامه دارد. هنگام فیلم‌برداری این شهروند برق خانه او قطع شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255217
-
-<div align="center"><img src="files/post_255217_VahidOOnLine_255217.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احمد مرادی، عضو کمیسیون انرژی مجلس جمهوری اسلامی، گفت نظر نمایندگان این است که در مقطع فعلی قیمت بنزین افزایش نیابد، زیرا تاب‌آوری مردم در برابر گرانی‌ها محدود است و افزایش قیمت بنزین می‌تواند موج جدیدی از گرانی‌ها ایجاد کند.
-
-مرادی گفت: «نظر نمایندگان این است که در مقطع فعلی هیچ افزایشی در قیمت بنزین صورت نگیرد، زیرا تاب‌آوری مردم در برابر گرانی‌ها محدود است و افزایش قیمت بنزین می‌تواند موج جدیدی از گرانی‌ها ایجاد کند.»
-
-او همچنین مقایسه قیمت سوخت در ایران با کشورهای دیگر را نادرست دانست و گفت: «در چنین مقایسه‌ای باید میزان درآمد مردم، کیفیت خودروها و وضعیت حمل‌ونقل عمومی نیز در نظر گرفته شود.»
 IranintlTV
 
 🤖 @VahidOOnLine

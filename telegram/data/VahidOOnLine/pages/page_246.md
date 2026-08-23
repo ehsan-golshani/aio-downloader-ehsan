@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 246
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 250639
+
+<div align="center"><video src="files/post_250639_VahidOOnLine_250639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250639_VahidOOnLine_250639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️فرماندهی مرکزی ایالات متحده (سنتکام) جمعه ۲۶ تیرماه تصاویری از لحظه هدف قرار دادن برج دیده‌بانی بندر «شهید کلانتری» چابهار منتشر کرد. سنتکام می‌گوید این برج بخشی از شبکه نظارت دریایی سپاه پاسداران انقلاب اسلامی در سواحل دریای عمان بوده که برای ردیابی و هدف قرار دادن کشتی‌های تجاری عبوری از تنگه هرمز مورد استفاده قرار می‌گرفت.
+
+در بیانیه سنتکام آمده است که هدف قرار گرفتن این برج، توانایی سپاه پاسداران را برای هماهنگی حملات علیه خدمه غیرنظامی کشتی‌ها کاهش می‌دهد و به حفظ آزادی کشتیرانی در آب‌های منطقه کمک می‌کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250638
 
@@ -270,19 +285,6 @@
 
 در روزهای گذشته، و در پی اعلام رسمی پایان آتش‌بس، ارتش ایالات متحده حملات متعددی را در استان‌های خوزستان، بوشهر، هرمزگان و سیستان و بلوچستان انجام داده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250619
-
-<div align="center"><video src="files/post_250619_VahidOOnLine_250619.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250619_VahidOOnLine_250619.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده نشان می‌دهد که ۲۶ تیرماه، گروهی از دانشجویان دانشگاه علوم پزشکی شیراز در اعتراض به کیفیت پایین غذای خوابگاه دستغیب، از خوردن وعده نهار امتناع کرده و پرس‌های غذا را روی موزاییک‌های کف سالن غذاخوری چیدند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

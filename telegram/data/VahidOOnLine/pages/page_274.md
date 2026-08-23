@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 274
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 250041
+
+<div align="center"><img src="files/post_250041_VahidOOnLine_250041.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ولی الله حیاتی، معاون سیاسی و امنیتی استانداری خوزستان، اعلام کرد در حملات ظهر سه‌شنبه ۲۳ تیر، نقاطی در آبادان و حوالی ماهشهر هدف پرتابه‌های آمریکا قرار گرفتند.
+
+او افزود حمله به حوالی ماهشهر با دو انفجار شدید همراه بوده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250040
 
@@ -274,21 +287,6 @@
 
 ترامپ افزود محاصره دریایی تنها کشتی‌ها و مشتریان ایران را هدف قرار می‌دهد و مانعی برای عبور دیگر کشورها ایجاد نخواهد کرد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249900
-
-<div align="center"><video src="files/post_249900_VahidOOnLine_249900.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249900_VahidOOnLine_249900.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد که نیروهای این کشور روز یکشنبه، ۱۱ تیرماه، با استفاده از پهپادهای تهاجمی، تاسیسات تعمیر و نگهداری زیردریایی و کشتی‌های نظامی در پایگاه دریایی بندرعباس را هدف قرار دادند.
-
-طبق بیانیه سنتکام، در این عملیات برای نخستین‌بار از سه شناور سطحی بدون سرنشین «کرسیر» (Corsair) در عملیات رزمی استفاده شده است. ارتش آمریکا هدف از این حملات را تضعیف توانمندی‌های نظامی جمهوری اسلامی در تداوم حملات به کشتی‌های تجاری اعلام کرده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

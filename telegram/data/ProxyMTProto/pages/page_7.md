@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/01 22:24
+📅 آخرین بروزرسانی: 1405/06/01 22:51
 
 ---
+
+## ProxyMTProto — post 50314
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 80
+Secret: 7hbZ3hNtxAbJ6L5BQipx2_std3d3LnlhaG9vLmNvbQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50313
 
@@ -173,15 +182,5 @@ Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Хочешь разместить свой прокси здесь? 😏 @SProxyRobot
-Забронируй слот через бота за пару секунд.
-
-Want to post your proxy here? 😏 @SProxyRobot
-Reserve your slot through the bot in seconds.
 </div>
 

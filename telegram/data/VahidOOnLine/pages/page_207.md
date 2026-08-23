@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 207
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 251489
+
+<div align="center"><video src="files/post_251489_VahidOOnLine_251489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251489_VahidOOnLine_251489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که حدود ساعت ۸:۳۰ صبح چهارشنبه ۳۱ تیر، دود ناشی از انفجار در حوالی فرودگاه شیراز مشاهده شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251488
 
@@ -300,17 +313,6 @@
 بر اساس این گزارش، توافق در روزهای آینده برای بررسی به کنگره آمریکا ارسال می‌شود و انتظار می‌رود کریس رایت، وزیر انرژی آمریکا، و عبدالعزیز بن سلمان، وزیر انرژی عربستان، روز چهارشنبه آن را امضا کنند.
 
 وال‌استریت ژورنال افزود منتقدان هشدار داده‌اند این توافق، با وجود سازوکارهای نظارتی پیش‌بینی‌شده، می‌تواند خطر گسترش فناوری هسته‌ای در خاورمیانه را افزایش دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251469
-
-<div align="center"><img src="files/post_251469_VahidOOnLine_251469.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارتش جمهوری اسلامی اعلام کرد در پاسخ به حملات آمریکا، انبارهای مهمات و تجهیزات لجستیکی مرکز فرماندهی نیروهای زمینی آمریکا در پادگان الدوحه در غرب کویت را هدف حمله پهپادی قرار داده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 256
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 250426
+
+<div align="center"><img src="files/post_250426_VahidOOnLine_250426.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حسن رحیم‌پور ازغدی، عضو شورای عالی انقلاب فرهنگی، گفت: اگر با آمریکا نجنگیم و برای هدف قرار دادن رهبران آن در آمریکا تلاش نکنیم، ترورها ادامه پیدا می‌کند، تحریم‌ها افزایش می‌یابد و اغتشاشات داخلی دوباره برنامه‌ریزی می‌شود.
+
+او افزود قصاص رهبران آمریکا مسئله شخصی نیست بلکه مسئله «عزت و ذلت اسلام» است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250425
 
@@ -291,17 +304,6 @@
 
 به گفته تحلیلگران، با بسته بودن تنگه هرمز، هرگونه اختلال در دریای سرخ می‌تواند دو مسیر اصلی صادرات نفت خاورمیانه را همزمان از دسترس خارج کند و بحران جهانی انرژی را تشدید کند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250406
-
-<div align="center"><img src="files/post_250406_VahidOOnLine_250406.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصویری کمتر دیده‌شده از برگزاری کلاس آموزشی برای زندانیان در زندان بهبهان، سال ۱۳۲۹.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 463
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 245334
+
+<div align="center"><img src="files/post_245334_VahidOOnLine_245334.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، شامگاه شنبه ۲۳ خرداد اصرار دونالد ترامپ بر امضای یادداشت تفاهم با جمهوری اسلامی در روز یکشنبه را «عجیب» و «فشار نمایشی» خواند.
+
+فارس نوشت: «سرنوشت امضای یکشنبه نه‌فقط یک آزمون فنی برای محتوای تفاهم، بلکه آزمونی برای صداقت و ایستادگی مسئولان ایرانی در برابر فشارهای نمایشی نیز خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 245333
 
@@ -284,19 +297,6 @@
 نخست‌وزیر پاکستان همچنین اعلام کرد که پاکستان برای امضای الکترونیکی تفاهم‌نامه صلح میان آمریکا و جمهوری اسلامی، بلافاصله پس از نهایی شدن آن، آماده می‌شود.
 
 ترامپ این اظهارات را بدون توضیح اضافی در تروت سوشال بازنشر کرد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 245314
-
-<div align="center"><video src="files/post_245314_VahidOOnLine_245314.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_245314_VahidOOnLine_245314.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانیان ملبورن در استرالیا روز شنبه برای زادروز مجیدرضا رهنورد، جانباخته خیزش انقلابی ۱۴۰۱، و ۴۰ هزار جاویدنام انقلاب ملی پرچم شیروخورشید را برای ۴۰ هزار ثانیه برافراشتند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

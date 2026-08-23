@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/01 22:26
+📅 آخرین بروزرسانی: 1405/06/01 22:53
 
 ---
+
+## tasiyanc — post 9412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی نظام آبادی - کد ملی : 3100474*** شهر بم شماره کارت: 589210170532**** فقط امشب فرصت داری چنلتو پاک کنی عکس ناموس مردم حذف کنی و بری پی زندگیت
+</div>
 
 ## tasiyanc — post 9411
 
@@ -231,17 +237,5 @@ g26
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اظهارات مجری صداسیما ریحانه قاسمی زاده : جنوب ایران فدای جنوب لبنان چون اینا همونایی ان که ۹ اسفند شادی کردن @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9384
-
-<div align="center"><video src="files/post_9384_tasiyanc_9384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9384_tasiyanc_9384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اظهارات مجری صداسیما ریحانه قاسمی زاده : جنوب ایران فدای جنوب لبنان چون اینا همونایی ان که ۹ اسفند شادی کردن
-
-@Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 111
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 253876
+
+<div align="center"><video src="files/post_253876_VahidOOnLine_253876.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253876_VahidOOnLine_253876.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد پسر اجاویدنام افسانه رضویان، بر مزار مادرش شعر می‌خواند.
+افسانه رضویان، شامگاه ۱۸ دی‌ماه ۱۴۰۴ مقابل کلانتری چالوس با شلیک گللوه ماموران جان باخت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253875
 
@@ -285,19 +299,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️دونالد ترامپ با اشاره به مذاکرات با تهران گفت مقام‌های ایرانی خواهان گفتگو و دستیابی به توافق هستند و اگر «باهوش باشند» توافق خواهند کرد. او افزود که مقام‌های ایرانی با واشنگتن تماس گرفته‌اند، پیشرفت زیادی در مذاکرات حاصل شده و تهران نمی‌خواهد هدف حمله قرار بگیرد. رئیس‌جمهوری آمریکا همچنین با اشاره به احتمال بازگشایی تنگه هرمز در روزهای آینده، گفت که توافق تصمیمی «بسیار هوشمندانه» خواهد بود، هرچند باید منتظر ماند و دید در نهایت چه اتفاقی رخ می‌دهد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253835
-
-<div align="center"><video src="files/post_253835_VahidOOnLine_253835.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253835_VahidOOnLine_253835.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال دیوارنویسی اعتراضی شهروندان علیه جنگ‌طلبی مجتبی خامنه‌ای و احمد وحیدی را در پیرانشهر نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

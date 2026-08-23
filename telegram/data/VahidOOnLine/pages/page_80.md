@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 254642
+
+<div align="center"><video src="files/post_254642_VahidOOnLine_254642.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254642_VahidOOnLine_254642.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، مراسم تولد جاویدنام علی جزایری شنبه ۱۷ مرداد بر سر مزارش برگزار شده است.
+جزایری، ۳۲ ساله، ۱۸ دی ۱۴۰۴ بر اثر تیراندازی ماموران جمهوری اسلامی در تهران کشته شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254641
 
@@ -300,19 +314,6 @@ IranintlTV
 
 او در بخش دیگری از سخنانش از عملکرد نیروهای مسلح تمجید کرد و گفت: «نیروهای مسلح ما جانفشانی کردند و بزرگ‌ترین ارتش ظاهری دنیا را عاجز و شکست دادند.»
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254622
-
-<div align="center"><video src="files/post_254622_VahidOOnLine_254622.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254622_VahidOOnLine_254622.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید هزینه تعمیرات و نگهداری موتورسیکلت چند برابر درآمد حاصل از کار کردن با آن شده است.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

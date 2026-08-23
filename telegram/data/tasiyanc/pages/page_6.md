@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/01 22:26
+📅 آخرین بروزرسانی: 1405/06/01 22:53
 
 ---
+
+## tasiyanc — post 9435
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با #کد های هدیه کسب درآمد میکنید 🤑
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
 
 ## tasiyanc — post 9434
 
@@ -226,11 +237,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 603799746347**** شماره کارت دوم
-</div>
-
-## tasiyanc — post 9412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی نظام آبادی - کد ملی : 3100474*** شهر بم شماره کارت: 589210170532**** فقط امشب فرصت داری چنلتو پاک کنی عکس ناموس مردم حذف کنی و بری پی زندگیت
 </div>
 

@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 137
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 253204
+
+<div align="center"><img src="files/post_253204_VahidOOnLine_253204.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرور مهم‌ترین خبرهای ایران و منطقه در ۲۴ ساعت گذشته، از تنش‌های نظامی تا تحولات اقتصادی و امنیتی.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253203
 
@@ -287,20 +298,6 @@ iranintl
 
 روسیه و اوکراین در آستانه ششمین سال جنگ حملات به مناطق غیرنظامی و زیرساخت‌های انرژی را به‌شدت افزایش داده‌اند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253180
-
-<div align="center"><img src="files/post_253180_VahidOOnLine_253180.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی خضریان، نماینده تهران در مجلس گفت: «با توجه به اینکه این جنگ ادامه خواهد داشت، در سطح استان‌های کشور و خصوصا مراکز استان‌ها نیاز به ساخت شهرهای حکمرانی داریم. به این معنا که در زمان تجاوز دشمن به کشور بتوانیم مدیران و مسئولان کشور را در زیر زمین و در دل کوه از ترور ایمن نگه داریم.»
-
-او ادامه دارد: «در چنین شرایطی باید بودجه استانها را اولویت‌بندی کنیم و بودجه جنگی تهیه کنیم.»
-iranintl
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

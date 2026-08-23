@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 501
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 244171
+
+<div align="center"><img src="files/post_244171_VahidOOnLine_244171.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ، رئیس جمهوری ایالات متحده، یکشنبه‌شب، در واکنش به حملات موشکی جمهوری اسلامی ایران به اسرائیل، در مصاحبه با «فاکس نیوز» گفت:‌ «پیشنهاد من به ایران این است؛ شما موشک‌هایتان را شلیک کردید، دیگر کافی است. به میز مذاکره برگردید و توافق کنید».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244170
 
@@ -250,21 +261,6 @@
 
 این پیام دقایقی پس از پیام محمدباقر قالیباف، رئیس مجلس و مذاکره‌کننده ارشد جمهوری اسلامی ایران در گفتگوها با آمریکا منتشر شد که اسرائیل و آمریکا را به نقض آتش‌بس متهم و به «پاسخ نظامی» تهدید کرد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244144
-
-<div align="center"><video src="files/post_244144_VahidOOnLine_244144.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244144_VahidOOnLine_244144.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای منتشرشده در شبکه‌های اجتماعی، دود ناشی از حمله اسرائیل به منطقه ضاحیه و انهدام مواضع حزب‌الله لبنان را در این منطقه در روز یک‌شنبه ۱۷ خرداد نشان می‌دهد.
-ارتش اسرائیل اعلام کرد این حملات در پاسخ به شلیک‌های حزب‌الله لبنان به سوی خاک اسرائیل انجام شده است.
-منطقه «ضاحیه» در حومه جنوبی بیروت، از پایگاه‌های اصلی حزب‌الله به شمار می‌رود.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 255275
+
+<div align="center"><img src="files/post_255275_VahidOOnLine_255275.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ارتش اسرائیل اعلام کرد در حمله به مقر مرکزی یگان رضوان حزب‌الله در منطقه انصار در جنوب لبنان، علی سمیر الحاج حسن، فرمانده یک گردان این یگان کشته شده است.
+
+به گفته ارتش اسرائیل، این حمله در واکنش به اقدام حزب‌الله علیه نیروهای این کشور که مطابق با توافق آتش‌بس در منطقه حائل امنیتی فعالیت می‌کنند، انجام شده است.
+
+ارتش اسرائیل همچنین گزارش داد در این حمله علاوه بر سمیر الحاج حسن، چند نیروی دیگر حزب‌الله نیز که در پیشبرد «طرح‌های تروریستی» علیه نیروهای ارتش اسرائیل در منطقه حائل امنیتی فعالیت داشتند، کشته شدند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255274
 
@@ -296,19 +311,6 @@ IranintlTV
 
 @indypers
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255237
-
-<div align="center"><video src="files/post_255237_VahidOOnLine_255237.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255237_VahidOOnLine_255237.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران اینترنشنال از برگزاری یک مراسم حکومتی با تابوت نمادین برای علی خامنه‌ای به عنوان «مرده‌پرستی» یاد کرده و از مخارج چنین مراسمی انتقاد می‌کند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

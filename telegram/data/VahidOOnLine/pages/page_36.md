@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/06/01 22:23
+📅 آخرین بروزرسانی: 1405/06/01 22:50
 
 ---
+
+## VahidOOnLine — post 255667
+
+<div align="center"><img src="files/post_255667_VahidOOnLine_255667.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوزی دایان، معاون پیشین رئیس ستاد ارتش اسرائیل، گفت اسرائیل در موضوع ایران نمی‌تواند به آمریکا تکیه کند و باید به خود متکی باشد.
+دایان گفت: «ما برای تنگه هرمز یا قیمت جهانی نفت نمی‌جنگیم، بلکه برای نیاز حیاتی و موجودیتی خود می‌جنگیم.»
+او با تاکید بر لزوم آمادگی اسرائیل برای تحولات احتمالی افزود این کشور باید از نظر دفاعی و تهاجمی کاملا آماده باشد، زیرا «شرایط ممکن است هر لحظه تغییر کند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255666
 
@@ -294,19 +307,6 @@ Indypersian
 
 🔹۶ گیگ بسته اینترنتی طی سه روز تموم شد، در صورتی که میزان مصرف اینترنت گوشی می‌گه کلاً ۲/۲ گیگ مصرف کردم.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255638
-
-<div align="center"><video src="files/post_255638_VahidOOnLine_255638.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255638_VahidOOnLine_255638.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مهم‌ترین تحولات ایران در رسانه‌های جهان در روز سه‌شنبه ۲۷ مرداد.
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>
