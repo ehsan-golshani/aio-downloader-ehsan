@@ -1,8 +1,31 @@
 # آرشیو کانال VahidOOnLine - صفحه 495
 
-📅 آخرین بروزرسانی: 1405/06/01 08:34
+📅 آخرین بروزرسانی: 1405/06/01 09:15
 
 ---
+
+## VahidOOnLine — post 244203
+
+<div align="center"><img src="files/post_244203_VahidOOnLine_244203.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سفارت ایالات متحده در اورشلیم اعلام کرد که به دلیل «وضعیت امنیتی کنونی در اسرائیل» روز دوشنبه تعطیل خواهد بود.
+این سفارتخانه در بیانیه‌ای اعلام کرد که به تمامی کارکنان دولت آمریکا دستور داده شده است «در محل خود پناه بگیرند و برای انتقال به پناهگاه‌های امن در صورت لزوم آماده باشند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244202
+
+<div align="center"><img src="files/post_244202_VahidOOnLine_244202.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پس ازاینکه عباس عراقچی، عکس پرچم‌های جمهوری اسلامی و لبنان را کنار هم در شبکه اجتماعی ایکس منتشر کرد، گیدون سعار، وزیر خارجه اسرائیل، پرچم حزب‌الله لبنان را کنار پرچم جمهوری اسلامی گذاشت و عراقچی را «کلاهبردار» خطاب کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244201
 
@@ -216,32 +239,6 @@
 سخنگوی ارتش اسرائیل گفت حکومت ایران اشتباه بزرگی مرتکب شد. اسرائیل موازنه‌ای را که تهران در پی ایجاد آن است نخواهد پذیرفت.
 
 او افزود ارتش در حالت آماده‌باش قرار دارد و برای حملات دیگر جمهوری اسلامی آماده‌ است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244183
-
-<div align="center"><video src="files/post_244183_VahidOOnLine_244183.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_244183_VahidOOnLine_244183.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ابراهیم ذوالفقاری، سخنگوی قرارگاه خاتم الانبیا، یکشنبه‌شب، اعلام کرد:‌ «ارتش اسرائیل باید حملات خود به جنوب لبنان و ضاحیه را متوقف نماید و در صورت گسترش حملات خود به آن منطقه و یا پاسخ به اقدام ایران با ضربات کوبنده‌تر و پشیمان‌کننده روبه‌رو و حملات ویرانگری علیه اسرائیل و حامیان آن آغاز خواهد شد».
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244182
-
-<div align="center"><img src="files/post_244182_VahidOOnLine_244182.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سخنگوی قرارگاه مرکزی خاتم‌الانبیا گفت: «قبلا اخطار داده بودیم در صورت گسترش حملات در ضاحیه بیروت، اهدافی را در اسرائیل مورد هجوم قرار می دهیم.»
-
-او افزود: «ارتش اسرائیل باید حملات خود به جنوب لبنان و ضاحیه را متوقف نماید و در صورت گسترش حملات خود به آن منطقه و یا پاسخ به اقدام جمهوری اسلامی با ضربات کوبنده‌تر و پشیمان‌کننده روبرو و حملات ویرانگری علیه اسرائیل و حامیان آن آغاز خواهد شد.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

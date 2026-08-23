@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/06/01 08:34
+📅 آخرین بروزرسانی: 1405/06/01 09:15
 
 ---
+
+## VahidOOnLine — post 253337
+
+<div align="center"><video src="files/post_253337_VahidOOnLine_253337.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253337_VahidOOnLine_253337.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان ساکن آلمان شنبه ۱۰ مرداد در شهر فرانکفورت تجمع کردند و با اعتراض به اعدام‌های جمهوری اسلامی شعار دادند: «با اینکه دوریم از وطن، پشت شماییم هموطن»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253336
+
+<div align="center"><img src="files/post_253336_VahidOOnLine_253336.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجید ابن‌الرضا، سرپرست وزارت دفاع جمهوری اسلامی، در ایکس نوشت: «اظهارات اخیر دشمن، هرچند در بستر عملیات روانی و جنگ محاسباتی مطرح می‌شود، اما از نگاه ما هر تهدیدی، یک تهدید واقعی و قابل اعتناست.»
+
+او نوشت: «نه غافلگیر می‌شویم و نه منفعل؛ تهدید را مبنای افزایش آمادگی، تقویت بازدارندگی و ارتقای قدرت خود قرار می‌دهیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253335
 
@@ -277,34 +303,6 @@
 
 علم‌الهدی افزود: «باید با قدرت این راه مقاومت را ادامه دهیم. اگر این راه را با استقامت ادامه دهیم، پیروزی قطعی از آن ما خواهد بود و دشمن شکست خواهد خورد.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253306
-
-<div align="center"><img src="files/post_253306_VahidOOnLine_253306.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وب‌سایت میدل‌ایست ۲۴ گزارش داد دونالد ترامپ، رییس‌جمهوری آمریکا، از اسرائیل خواسته است بار دیگر به جنگ با جمهوری اسلامی بپیوندد. به نوشته این رسانه، تهران تلاش کرده اسرائیل را از درگیری‌ها دور نگه دارد.
-
-بر اساس این گزارش، اسرائیل طی ماه‌های گذشته بانک گسترده‌ای از اهداف را برای حملات احتمالی آماده کرده است.
-
-میدل‌ایست ۲۴ مدعی شد در صورت ازسرگیری عملیات، این فهرست شامل مقام‌های ارشد جمهوری اسلامی و دیگر اهداف راهبردی خواهد بود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253305
-
-<div align="center"><video src="files/post_253305_VahidOOnLine_253305.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253305_VahidOOnLine_253305.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ احمدرضا عابدزاده، دروازه‌بان پیشین تیم ملی فوتبال ایران و باشگاه پرسپولیس، با انتشار تصاویری در اینستاگرام آمادگی بدنی خود را به نمایش گذاشت. او که متولد خرداد ۱۳۴۵ است و بیش از ۶۰ سال سن دارد، در توضیح این تصاویر نوشت: «(تمرین) شکم ساده در باشگاه».
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>
