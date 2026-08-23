@@ -1,8 +1,50 @@
 # آرشیو کانال VahidOOnLine - صفحه 213
 
-📅 آخرین بروزرسانی: 1405/06/01 17:20
+📅 آخرین بروزرسانی: 1405/06/01 17:42
 
 ---
+
+## VahidOOnLine — post 251337
+
+<div align="center"><video src="files/post_251337_VahidOOnLine_251337.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251337_VahidOOnLine_251337.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی شیرازی، عضو تحریریه ایران‌اینترنشنال، درباره انتقاد روزنامه جوان، وابسته به سپاه پاسداران، از گفت‌وگوی جواد موگویی و عباس عراقچی گفت این روزنامه نوشته است که عراقچی رازهای مگوی امنیتی را با لبخند مقابل دوربین افشا می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251336
+
+<div align="center"><video src="files/post_251336_VahidOOnLine_251336.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251336_VahidOOnLine_251336.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انتشار گزارش بازداشت و بازجویی دو تن از کارکنان سفارت فرانسه در ایران، بازتاب گسترده‌ای در رسانه‌های فرانسوی داشته است. وزیر خارجه این کشور درباره پیامدهای این اقدام به وزارت خارجه جمهوری اسلامی هشدار داده است.
+
+ساجده شریفی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251335
+
+<div align="center"><video src="files/post_251335_VahidOOnLine_251335.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251335_VahidOOnLine_251335.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی در تشریح سناریوی احتمالی «اشغال» خاک ایران از سوی آمریکا، گفت در صورت وقوع چنین شرایطی، نیروهای مسلح ایران حاضر خواهند بود برای مقابله با نیروهای مهاجم، بخش‌هایی از خاک خود را نیز هدف حملات قرار دهند.
+اکرمی‌نیا این اظهارات را در توضیح راهبرد نظامی جمهوری اسلامی در صورت وقوع یک تهاجم زمینی بیان کرد و گفت هدف از چنین اقدامی جلوگیری از تثبیت و استقرار نیروهای مهاجم در مناطق اشغالی خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251334
 
@@ -263,53 +305,6 @@ iranintl
 
 مادر نوزادان، جنیتار ناآموآنا، پیش از این نیز به همراه همسرش چهار فرزند داشت و حتی هنگام اطلاع از بارداری، در حال شیردهی به کوچک‌ترین فرزندش بود. این زوج در ابتدا تصور می‌کردند تنها یک فرزند دیگر در راه دارند، اما پس از انجام سونوگرافی متوجه شدند که صاحب چهارقلو خواهند شد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251317
-
-<div align="center"><img src="files/post_251317_VahidOOnLine_251317.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کارزار «سه‌شنبه‌های نه به اعدام» در صدوسی‌امین هفته خود اعلام کرد بیش از یک‌هزار و ۵۰۰ زندانی واحد دو زندان قزل‌حصار که همگی زیر حکم اعدام و عمدتا با اتهام‌های مرتبط با مواد مخدر هستند، بیش از یک هفته است در اعتراض به احکام اعدام دست به اعتصاب زده‌اند.
-
-کارزار «سه‌شنبه‌های نه به اعدام» با پیوستن گروهی از زندانیان زندان نیشابور، به ۵۹ زندان سراسر ایران گسترش یافت.
-
-این کارزار با محکوم کردن اعدام‌های فزاینده در ایران اعلام کرد عارف خوشکار، محمد امینی دهاقانی، عرفان اسفندیاری و گل‌محمد محمدی، چهار زندانی سیاسی، در دادرسی‌هایی ناعادلانه محاکمه و اعدام شدند.
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251316
-
-<div align="center"><img src="files/post_251316_VahidOOnLine_251316.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علیرضا پناهیان، سخنران دفتر خامنه‌ای، در مراسمی در قم گفت: «ما جنگ‌طلب نیستیم اما هر روز و هر لحظه باید از خدا درخواست و تمنا کنیم که به ما فرصت بده تا اسرائیل را ریشه‌کن کنیم.»
-
-او ادامه داد: «ما جنگ‌طلب نیستیم اما بدانیم که حق جهاد به معنای جنگ‌طلبی نیست. اگر ذره‌ای کوتاه بیاییم، دچار فتنه‌ها خواهیم شد.»
-
-پناهیان اضافه کرد: «خوشبختانه آمریکا با بدعهدی‌ها و جنایت‌ها این فرصت را برای ما مهیا کرده که با اسرائیل و ترامپ بجنگیم و انتقام خون همه مظلومان جهان را بگیریم.»
-iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251315
-
-<div align="center"><video src="files/post_251315_VahidOOnLine_251315.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251315_VahidOOnLine_251315.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس گزارش‌ها اسکندر مومنی، وزیر کشور جمهوری اسلامی، در سفر به پاکستان گفت‌وگو درباره تبادلات تجاری را در دستور کار دارد و گزارش‌ها حاکی است حامل پیام مسعود پزشکیان درباره مذاکرات با آمریکا و وضعیت تنگه هرمز است.
-
-جواد همدانی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

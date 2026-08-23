@@ -1,8 +1,54 @@
 # آرشیو کانال VahidOOnLine - صفحه 168
 
-📅 آخرین بروزرسانی: 1405/06/01 17:20
+📅 آخرین بروزرسانی: 1405/06/01 17:42
 
 ---
+
+## VahidOOnLine — post 252368
+
+<div align="center"><video src="files/post_252368_VahidOOnLine_252368.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252368_VahidOOnLine_252368.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️آتش‌سوزی در هتل پارسیان استقلال تهران ظهر دوشنبه ۵ مردادماه، در تقاطع بزرگراه چمران و خیابان ولیعصر رخ داد و شعله‌های آتش بخش‌هایی از این مجتمع اقامتی را فرا گرفت.
+
+به گفته سخنگوی آتش‌نشانی تهران، همزمان با عملیات اطفای حریق، چند گروه از آتش‌نشانان برای نجات افراد محبوس وارد ساختمان شده‌اند.
+
+اورژانس تهران نیز اعلام کرد ۷ دستگاه آمبولانس، ۲ دستگاه اتوبوس آمبولانس، سه خودروی فرماندهی و یک دستگاه موتورلانس به محل حادثه اعزام شده‌اند. بر اساس گزارش اولیه اورژانس، تاکنون مصدومی گزارش نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252367
+
+<div align="center"><img src="files/post_252367_VahidOOnLine_252367.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ سرتیپ ترکی المالکی، سخنگوی رسمی وزارت دفاع عربستان سعودی، اعلام کرد که پدافند هوایی این کشور در ساعات گذشته چند پهپاد متخاصم را که قصد داشتند تاسیسات نفتی در شرق کشور و منطقه ریاض را هدف قرار دهند، رهگیری و منهدم کرده است.
+
+سخنگوی وزارت دفاع عربستان تصریح کرد این حملات از خاک عراق و توسط «شبه‌نظامیان وابسته به ایران» انجام شده است.
+
+او با تاکید بر حق مشروع عربستان سعودی برای دفاع از خود و امکاناتش، اعلام کرد که این کشور حق پاسخگویی در زمان و مکان مناسب را برای خود محفوظ می‌دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252366
+
+<div align="center"><video src="files/post_252366_VahidOOnLine_252366.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252366_VahidOOnLine_252366.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال حاکی است هتل استقلال تهران روز دوشنبه پنجم مرداد دچار آتش‌سوزی شده است.
+بر اساس گزارش‌ها کارشناسان اورژانس استان تهران برای نجات جان یک شهروند به طبقه ۱۳ هتل اعزام شده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252365
 
@@ -224,37 +270,6 @@
 بر اساس این گزارش، گراهام در گفت‌وگویی با جیک سالیوان، مشاور پیشین امنیت ملی آمریکا، پیش‌بینی کرده بود که حکومت ایران ظرف سه تا چهار هفته کنترل برخی شهرها را از دست خواهد داد، پیش‌بینی‌ای که به نوشته وال‌استریت ژورنال هرگز محقق نشد.
 این روزنامه همچنین گزارش داده است که گراهام در ماه‌های پایانی عمر خود از برخی تصمیم‌های ترامپ، از جمله امضای یک توافق اولیه با ایران، ابراز نارضایتی کرده و گفته بود: «او دارد این فرصت را از دست می‌دهد؛ باید بروم و با او صحبت کنم.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252347
-
-<div align="center"><video src="files/post_252347_VahidOOnLine_252347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252347_VahidOOnLine_252347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«وقتی زنده بودند این هزینه‌ها رو می‌کردید»
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252346
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده نشان می‌دهد گروهی از ایرانیان در مالمو سوئد، یکشنبه چهارم مرداد مراسم گرامیداشت برای درگذشت رضاشاه و محمدرضاشاه پهلوی را برگزار کرئه و در این مراسم سرود «ای ایران» را هم‌خوانی کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم استرالیا یکشنبه چهارم مرداد به مناسبت سالروز درگذشت رضاشاه و محمدرضا شاه در ۴ و ۵ مرداد، در شهر پرت تجمع کردند و یادشان را گرامی داشتند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
