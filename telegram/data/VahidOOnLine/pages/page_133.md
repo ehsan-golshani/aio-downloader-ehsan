@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 133
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 253242
+
+<div align="center"><video src="files/post_253242_VahidOOnLine_253242.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253242_VahidOOnLine_253242.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند گفت جوانان کشته‌شده و در معرض اعدام، زیرساخت واقعی کشور هستند. او افزود برادرزاده‌اش ۱۸ دی با شلیک گلوله به قلبش کشته شد و در آغوش پسرش جان باخت و فرزندانش تنها ماندند. او تاکید کرد پالایشگاه‌ها دوباره ساخته می‌شوند، اما جان جوانان جایگزین‌پذیر نیست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253241
 
@@ -299,19 +312,6 @@ iranintl
 
 اسلام‌آباد غرب از شهرهای استان کرمانشاه است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253222
-
-<div align="center"><img src="files/post_253222_VahidOOnLine_253222.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی روز شنبه دهم مردادماه گفت اگر هواداران نظام در روز پس از کشته شدن علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، به خیابان‌ها نمی‌آمدند، ممکن بود «مساله خیابان جور دیگری رقم بخورد.»
-
-قالیباف که در جلسه شورای هماهنگی مجلس سخن می‌گفت، چگونگی اعلام خبر کشته شدن رهبر پیشین جمهوری اسلامی را از «الطاف خدا» توصیف کرد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

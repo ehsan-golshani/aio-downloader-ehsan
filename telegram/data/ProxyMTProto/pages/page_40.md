@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:44
 
 ---
+
+## ProxyMTProto — post 49635
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hello.nolagsproxy.space
+Port: 443
+Secret: dd23c4f3442902ef41986fda3e819c1417
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49634
 
@@ -165,15 +174,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: go.antitspu.com
 Port: 443
 Secret: ee7e32ec95420179a00a86424a4a971b5a676f2e616e7469747370752e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
 @ProxyMTProto
 </div>
 

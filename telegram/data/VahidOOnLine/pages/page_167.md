@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 167
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 252366
+
+<div align="center"><video src="files/post_252366_VahidOOnLine_252366.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252366_VahidOOnLine_252366.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال حاکی است هتل استقلال تهران روز دوشنبه پنجم مرداد دچار آتش‌سوزی شده است.
+بر اساس گزارش‌ها کارشناسان اورژانس استان تهران برای نجات جان یک شهروند به طبقه ۱۳ هتل اعزام شده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252365
 
@@ -245,15 +259,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده نشان می‌دهد گروهی از ایرانیان در مالمو سوئد، یکشنبه چهارم مرداد مراسم گرامیداشت برای درگذشت رضاشاه و محمدرضاشاه پهلوی را برگزار کرئه و در این مراسم سرود «ای ایران» را هم‌خوانی کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم استرالیا یکشنبه چهارم مرداد به مناسبت سالروز درگذشت رضاشاه و محمدرضا شاه در ۴ و ۵ مرداد، در شهر پرت تجمع کردند و یادشان را گرامی داشتند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

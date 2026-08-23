@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 212
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 251335
+
+<div align="center"><video src="files/post_251335_VahidOOnLine_251335.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251335_VahidOOnLine_251335.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی در تشریح سناریوی احتمالی «اشغال» خاک ایران از سوی آمریکا، گفت در صورت وقوع چنین شرایطی، نیروهای مسلح ایران حاضر خواهند بود برای مقابله با نیروهای مهاجم، بخش‌هایی از خاک خود را نیز هدف حملات قرار دهند.
+اکرمی‌نیا این اظهارات را در توضیح راهبرد نظامی جمهوری اسلامی در صورت وقوع یک تهاجم زمینی بیان کرد و گفت هدف از چنین اقدامی جلوگیری از تثبیت و استقرار نیروهای مهاجم در مناطق اشغالی خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251334
 
@@ -294,21 +308,6 @@ iranintl
 
 پناهیان اضافه کرد: «خوشبختانه آمریکا با بدعهدی‌ها و جنایت‌ها این فرصت را برای ما مهیا کرده که با اسرائیل و ترامپ بجنگیم و انتقام خون همه مظلومان جهان را بگیریم.»
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251315
-
-<div align="center"><video src="files/post_251315_VahidOOnLine_251315.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251315_VahidOOnLine_251315.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس گزارش‌ها اسکندر مومنی، وزیر کشور جمهوری اسلامی، در سفر به پاکستان گفت‌وگو درباره تبادلات تجاری را در دستور کار دارد و گزارش‌ها حاکی است حامل پیام مسعود پزشکیان درباره مذاکرات با آمریکا و وضعیت تنگه هرمز است.
-
-جواد همدانی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

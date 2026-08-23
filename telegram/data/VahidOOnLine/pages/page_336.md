@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 336
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 248474
+
+<div align="center"><video src="files/post_248474_VahidOOnLine_248474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248474_VahidOOnLine_248474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان ساکن نیوزیلند در شهرهای اوکلند و وِلینگتون تجمع کرده و در برابر سفارتخانه آمریکا مخالفت خود با هرگونه توافق با جمهوری اسلامی را فریاد زدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248473
 
@@ -268,21 +281,6 @@ https://irani
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️ دونالد ترامپ، رئیس‌جمهوری آمریکا، جمعه‌شب، ۱۲ تیر برای شرکت در مراسم ۲۵۰ سالگی استقلال ایالات متحده وارد داکوتای شمالی شد. ترامپ قرار است در این مراسم که زیر مجسمه چهار «پدر بنیان‌گذار» آمریکا روی کوه راشمور برگزار می‌شود سخنرانی کند. این برنامه به دلیل مشکلات آب و هوا با کمی تاخیر آغاز شد اما از ساعت ۱۹، جمعیتی که با وجود گرمای شدید برای شرکت در این مراسم جمع شده بودند، از اجراهای زنده موسیقی لذت بردند و قرار است در پایان شب نیز، آتش‌بازی بزرگی بر فراز یادواره کوه راشمور انجام شود.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248454
-
-<div align="center"><video src="files/post_248454_VahidOOnLine_248454.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248454_VahidOOnLine_248454.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ از ساعاتی قبل از شروع روز دوم تشییع علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، حامیان حکومت پشت درهای بسته مصلی جمع شدند. گروهی از این افراد، عزاداری‌هایی به سبک عزاداری‌های شیعیان در محرم انجام دادند و گروهی نیز در سکوت منتظر باز شدن درها بودند. روز دوم مراسم تشییع در تهران که به آن عنوان «وداع عمومی» داده‌اند، از ساعت ۶ صبح شنبه ۱۳ تیر تا ساعت ۲۰ به یکشنبه ادامه خواهد داشت.
-
-پس از آن مراسم تشییع و اقامه نماز میت در قم، سپس تشییع در عراق و در نهایت دفن در مشهد انجام خواهد شد.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 298
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 249313
+
+<div align="center"><img src="files/post_249313_VahidOOnLine_249313.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ابوذر شیرودی، رییس سازمان هواپیمایی ایران، اعلام کرد عملیات پروازی در سراسر کشور با وجود آنچه «اقدامات خرابکارانه و تهدیدهای امنیتی» خواند، بدون وقفه ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249312
 
@@ -300,19 +311,6 @@
 
 این گزارش‌ها تاکنون به طور رسمی تایید نشده‌اند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249293
-
-<div align="center"><img src="files/post_249293_VahidOOnLine_249293.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️دفتر نخست وزیری اسرائیل در نخستین ساعات بامداد جمعه ۱۹ تیرماه (به وقت تهران) با انتشار بیانیه‌ای اعلام کرد بنیامین نتانیاهو و دونالد ترامپ در یک گفتگوی تلفنی، بر هماهنگی در جبهه‌های مختلف تاکید کردند.
-
-براساس این بیانیه، ترامپ نتانیاهو را درباره «آخرین حرکات» آمریکا در خلیج فارس و  ایران، در جریان قرار داد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

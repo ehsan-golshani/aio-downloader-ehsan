@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 254
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 250415
+
+<div align="center"><video src="files/post_250415_VahidOOnLine_250415.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250415_VahidOOnLine_250415.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران‌اینترنشنال به مستندات و تصاویری دست یافته که طبق آن، کارکنان پزشکی قانونی کهریزک جاویدنام جمشید مومنی‌ثانی را جلوی چشمان اعضای خانواده‌اش کالبدشکافی کرده و پیش از صدور مجوز خاک‌سپاری، گلوله‌های جنگی به‌جامانده در بدن او را بیرون کشیدند.
+
+منابع مطلع گفته‌اند هدف از باز کردن بدن و خارج‌سازی گلوله‌ها، محو شواهدی بوده است که می‌توانست نوع اسلحه و عاملان شلیک را مشخص کند.
+
+گزارش فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250414
 
@@ -291,21 +308,6 @@
 وانگ هونینگ، از اعضای اصلی هسته رهبری چین و نظریه‌پرداز حزب کمونیست که نقش کلیدی در موضوعاتی مانند تایوان دارد، راهی کره شمالی شده است. برخی تحلیلگران آسیایی این سفر را نشانه بازتعریف ائتلاف دو کشور در برابر فشارهای آمریکا می‌دانند.
 
 گزارش توماج طاهباز، خبرنگار ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250395
-
-<div align="center"><video src="files/post_250395_VahidOOnLine_250395.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250395_VahidOOnLine_250395.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قاضی دادگاه فدرال نیویورک حکم نهایی رضا ضراب، تاجر ایرانی‌تبار، را در پرونده نقض تحریم‌های آمریکا علیه جمهوری اسلامی صادر کرد. این دادگاه با احتساب دوران بازداشت قبلی، مجازات دیگری تعیین نکرد و پرونده پس از حدود ۱۰ سال پایان یافت.
-
-گزارش فرزیا ثابتی، خبرنگار ایران‌اینترنشنال
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

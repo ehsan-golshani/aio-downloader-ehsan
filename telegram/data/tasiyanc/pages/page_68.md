@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/06/01 14:16
+📅 آخرین بروزرسانی: 1405/06/01 14:46
 
 ---
+
+## tasiyanc — post 7519
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+6سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+Password :  @Tasiyanc ❤️
+
+ ✅@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7518
 
@@ -194,11 +210,5 @@ ESPRESSO 🔥☕.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ❌هم اکنون شلیک موشک از ایران به سمت اردن
-</div>
-
-## tasiyanc — post 7475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️مذاکرات تهران و واشینگتن ک قرار بود این هفته برگزار بشه لغو شد
 </div>
 

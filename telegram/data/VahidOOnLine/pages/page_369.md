@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 369
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 247754
+
+<div align="center"><video src="files/post_247754_VahidOOnLine_247754.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247754_VahidOOnLine_247754.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان، یکشنبه هفتم تیرماه علیه جمهوری اسلامی در شهر فرانکفورت راهپیمایی کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247753
 
@@ -266,19 +279,6 @@ iranintl
 شایان ذکر است که پیش‌تر صادق ساعدی‌نیا، مدیرعامل «املاک و صنایع ساعدی‌نیا»، به دلیل حمایت از انقلاب ملی علیه جمهوری اسلامی در دی‌ماه ۱۴۰۴، بازداشت و محاکمه شده بود.
 iranintl
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247717
-
-<div align="center"><img src="files/post_247717_VahidOOnLine_247717.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️وزارت امور خارجه عربستان سعودی، یکشنبه هفتم تیرماه، در بیانیه‌ای حملات حکومت ایران به کویت و بحرین و همچنین حملات علیه امنیت و آزادی کشتیرانی در تنگه هرمز را به‌شدت محکوم کرد و این اقدامات را نقض قوانین بین‌المللی و منشور سازمان ملل متحد دانست.
-
-در این بیانیه آمده است که این حملات، تلاش‌های بین‌المللی برای بازگرداندن امنیت و ثبات به منطقه را تضعیف می‌کند. عربستان سعودی همچنین بار دیگر بر همبستگی خود با کویت و بحرین تاکید کرد و حمایت کامل خود را از همه اقداماتی که این دو کشور برای حفظ حاکمیت، امنیت و ثبات خود اتخاذ می‌کنند، اعلام کرد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

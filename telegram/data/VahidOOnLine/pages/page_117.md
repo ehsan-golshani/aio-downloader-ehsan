@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 117
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 253657
+
+<div align="center"><video src="files/post_253657_VahidOOnLine_253657.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253657_VahidOOnLine_253657.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ویدیوهای منتشرشده در شبکه‌های اجتماعی در روز سه‌شنبه ۱۳ مرداد، ستونی از دود سیاه را بر فراز شهرک صنعتی شمس‌آباد در جنوب تهران نشان می‌دهد. هم‌زمان، شماری از شهروندان از شنیده شدن صدای انفجار در این منطقه خبر داده‌اند.
+داود ولی، عضو هیات مدیره شهرک صنعتی شمس‌آباد اعلام کرد که صدای انفجار در فشافویه مربوط به مخزن داخلی یک کارخانه در شهرک آلمینیوم‌کاران بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253656
 
@@ -272,19 +286,6 @@ iranintl
 
 دبیرکل حزب‌الله در پایان تاکید کرد که لبنان «واحد، متحد و غیرقابل تقسیم» است و افزود حمله به جنوب لبنان، حمله به تمام لبنان محسوب می‌شود.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253621
-
-<div align="center"><video src="files/post_253621_VahidOOnLine_253621.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253621_VahidOOnLine_253621.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده نشان می‌دهند گروهی از ایرانیان مقیم اسپانیا دوشنبه ۱۲ مرداد برای اعتراض به اعدام‌ها در ایران مقابل سفارت جمهوری اسلامی تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

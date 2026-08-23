@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/06/01 14:16
+📅 آخرین بروزرسانی: 1405/06/01 14:46
 
 ---
+
+## tasiyanc — post 8314
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرچ نامحدود ۲۰۰ استارز میکنم از پسفردا چون اینا می‌خوان اطلاعات بزارن ❤️
+</div>
 
 ## tasiyanc — post 8313
 
@@ -170,11 +176,5 @@
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8291
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آدرس ، کد ملی با ادرس
 </div>
 

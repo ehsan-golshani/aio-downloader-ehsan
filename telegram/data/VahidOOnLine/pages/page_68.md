@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 254833
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رجب طیب اردوغان، رئیس‌جمهوری ترکیه، روز چهارشنبه ۲۱ مردادماه در مجموعه ریاست‌جمهوری در آنکارا از محمود عباس، رئیس تشکیلات خودگردان فلسطینی، استقبال کرد.
+
+خبرگزاری فرانسه گزارش داد که این دیدار در جریان سفر رسمی محمود عباس به ترکیه انجام شد. برهان‌الدین دوران، رئیس مرکز ارتباطات ریاست‌جمهوری ترکیه، اعلام کرد دو طرف درباره آخرین تحولات فلسطین، روابط دوجانبه و تحولات منطقه‌ای گفتگو خواهند کرد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254832
 
@@ -308,16 +319,6 @@ IranintlTV
 
 این جانباز ۶۶ ساله، ۲۱ آذر ۱۴۰۴ در پی حضور در مراسم هفتم خسرو علیکردی بازداشت شد و همچنان بدون تعیین تکلیف قضایی در حبس نگهداری می‌شود.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254812
-
-<div align="center"><img src="files/post_254812_VahidOOnLine_254812.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

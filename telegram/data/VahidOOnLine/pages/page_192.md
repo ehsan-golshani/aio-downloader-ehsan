@@ -1,8 +1,17 @@
 # آرشیو کانال VahidOOnLine - صفحه 192
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 251787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند ویدیویی به ایران اینترنشنال ارسال کرده که نشان می‌دهد مسئولان شهر بجنورد شعار مردم روی دیوار یک مدرسه را که «جاوید شاه» نوشته‌اند، را پوشانده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251786
 
@@ -260,19 +269,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 «قیمت این دستمال از همه این اسکناس‌ها بیشتره»
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251762
-
-<div align="center"><video src="files/post_251762_VahidOOnLine_251762.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251762_VahidOOnLine_251762.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علیرضا شفیعی‌خواه، زندانی سابق سیاسی، در ویدیویی با اشاره به گذشت شش ماه از دیماه خونین گفت «امید همچنان زنده است و یاد جاویدنامان را زنده نگه می‌داریم.»
 ‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine

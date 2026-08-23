@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 307
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 249113
+
+<div align="center"><video src="files/post_249113_VahidOOnLine_249113.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249113_VahidOOnLine_249113.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال، وقوع انفجارهای مهیب را در چابهار در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249112
 
@@ -273,19 +286,6 @@
 
 این رسانه اضافه کرد شامگاه سه‌شنبه نیز آمریکا به چندین نقطه در استان‌های جنوبی حمله کرد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249093
-
-<div align="center"><img src="files/post_249093_VahidOOnLine_249093.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ خبرگزاری العربیه، چهارشنبه‌شب، ۱۷ تیر به نقل از منابع خود گزارش داد که عاصم منیر، فرمانده کل ارتش پاکستان که نقش پررنگی نیز در مذاکرات میان تهران و واشنگتن داشت، در حال رایزنی با مقام‌های جمهوری اسلامی است تا از تشدید تنش‌ها با ایالات متحده جلوگیری کند.
-
-پاکستان روز چهارشنبه در بیانیه‌ای رسمی نیز از طرفین خواسته بود خویشتنداری نشان داده و به مفاد تفاهم‌نامه اسلام‌آباد پایبند باشند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

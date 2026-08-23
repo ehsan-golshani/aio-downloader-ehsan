@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 135
 
-📅 آخرین بروزرسانی: 1405/06/01 14:16
+📅 آخرین بروزرسانی: 1405/06/01 14:46
 
 ---
+
+## tasiyanc — post 5493
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ع کانفیگای ک گذاشتیم پینگ بگیرید 😁✅
+</div>
 
 ## tasiyanc — post 5492
 

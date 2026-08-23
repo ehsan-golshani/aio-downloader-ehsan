@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 256364
+
+<div align="center"><video src="files/post_256364_VahidOOnLine_256364.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256364_VahidOOnLine_256364.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش فارس، در پی سقوط یک خودرو ون به دره در کیلومتر ۳۵ جاده هراز، دست‌کم ۷ نفر جان خود را از دست دادند و ۶ نفر دیگر مجروح شدند. معاون عملیات سازمان امداد و نجات با اعلام این خبر تاکید کرد که تیم‌های امدادی و عملیاتی همچنان در محل حادثه حضور دارند و عملیات انتقال جان‌باختگان و مجروحان از عمق دره به سطح جاده در جریان است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256363
 
@@ -260,19 +273,6 @@ IranintlTV
 
 پزشکیان همچنین گفت همه کسانی که در شورای عالی امنیت ملی دستی در آتش داشتند، معتقد بودند که این تفاهم‌نامه بهترین تفاهم‌نامه است.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256336
-
-<div align="center"><video src="files/post_256336_VahidOOnLine_256336.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256336_VahidOOnLine_256336.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«چهلم دوم» علی خامنه‌ای، فراتر از یک مراسم عزاداری، تصویری از ساختار جدید قدرت در جمهوری اسلامی ارائه کرد؛ از نمایش هماهنگی نخبگان و تثبیت جانشینی مجتبی خامنه‌ای تا تبدیل میراث و «خون‌خواهی» رهبر پیشین به سرمایه‌ای برای مشروعیت سیاسی و ابزاری در سیاست خارجی. در این ساختار، خامنه‌ای پس از مرگ به سرمایه نمادین نظام تبدیل می‌شود؛ سرمایه‌ای که در عین حال می‌تواند آزادی عمل حکومت برای توافق‌های آینده را محدود کند.
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

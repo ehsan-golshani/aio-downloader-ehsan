@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 255372
+
+<div align="center"><img src="files/post_255372_VahidOOnLine_255372.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️اعلام رقم دلاری جایزه کشتن هر سرباز آمریکایی از سوی فرمانده کل ارتش
+
+♦️امیر حاتمی، فرمانده کل ارتش جمهوری اسلامی در مراسم گرامیداشت روز خبرنگار از تعیین جایزه نقدی برای دستگیری یا کشتن نیروهای آمریکایی خبر داد.
+حاتمی گفت بر اساس طرحی که در ارتش تهیه شده، با مشارکت و تامین مالی مردم، اگر هر فرد ایرانی بتواند یک نیروی آمریکایی «متجاوز» را دستگیر یا بکشد، ۳۰ هزار دلار جایزه از طرف مردم ایران دریافت خواهد کرد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255371
 
@@ -294,19 +308,6 @@ IranintlTV
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گروهی از ایرانیان ساکن لندن روز شنبه ۲۴ مرداد، تصاویر جاوید‌نامان اعتراض‌های دی‌ماه را روی یک کامیون نصب کردند و با برگزاری رالی خودرویی و در دست داشتن پرچم‌های شیر و خورشید یاد کشته‌شدگان را گرامی داشتند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255345
-
-<div align="center"><video src="files/post_255345_VahidOOnLine_255345.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255345_VahidOOnLine_255345.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کیوان احمدی، خواننده معترض اهل نورآباد ممسنی که پیش‌تر به‌دلیل همراهی با انقلاب ملی ایرانیان بازداشت شده بود، در جمع گروهی از اهالی این شهر ترانه لری بختیاری «مر جنگه، مر جنگه، خدا دونه جنگ تفنگه» را اجرا کرد.
 IranintlTV
 
 🤖 @VahidOOnLine

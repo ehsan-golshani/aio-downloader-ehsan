@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 541
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 243049
+
+<div align="center"><video src="files/post_243049_VahidOOnLine_243049.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243049_VahidOOnLine_243049.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در پی راه‌اندازی کارزار مردمی رشت از سوی ایران‌اینترنشنال، ویدیوهایی از مراسم چهلم جاویدنام امیرحسین (شایان) شکاری به دست ما رسیده است.
+شکاری، ۲۱ ساله، عضو پیشین تیم ملی تکواندو نوجوانان که سابقه نایب‌قهرمانی آسیا را در کارنامه دارد، ۱۸ دی ۱۴۰۴ با شلیک مستقیم گلوله به سر کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243048
 
@@ -280,20 +294,6 @@ iranintl
 محمدعلی زلفی‌گل، وزیر علوم در دولت ابراهیم رئیسی گفت: «شما در مناظرات انتخاباتی دیدید که رئیسی هیچ‌گاه حاضر نبود دست به کاری بزند یا حرفی بزند که از منش انسانی، تقوا، ایمان و اخلاق به دور باشد؛ رئیسی شهادت‌گونه زندگی کرد و یک پهلوان سیاسی بود.»
 
 او ادامه داد: «من شهادت می‌دهم که رئیسی فقط کارها را برای خدا، مردم و نظام جمهوری اسلامی انجام می‌داد.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243029
-
-<div align="center"><video src="files/post_243029_VahidOOnLine_243029.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243029_VahidOOnLine_243029.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهایی که تازه به دست ایران‌اینترنشنال رسیده، برگزاری مراسم چهلم جاویدنام احمد طراقیان را بر سر مزارش نشان می‌دهد.
-طراقیان، ۳۲ ساله، شامگاه ۱۹ دی‌ ۱۴۰۴ در شهر کرج، با شلیک گلوله جنگی به ناحیه سر هدف قرار گرفت و جان باخت.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

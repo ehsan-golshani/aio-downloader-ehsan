@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/06/01 14:16
+📅 آخرین بروزرسانی: 1405/06/01 14:46
 
 ---
+
+## tasiyanc — post 7475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️مذاکرات تهران و واشینگتن ک قرار بود این هفته برگزار بشه لغو شد
+</div>
 
 ## tasiyanc — post 7474
 
@@ -171,11 +177,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 🔑Password :  @Tasiyanc
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروفایل چنل عوض شد --- ❤️
 </div>
 

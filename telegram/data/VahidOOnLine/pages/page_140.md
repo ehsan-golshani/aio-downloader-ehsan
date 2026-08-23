@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 140
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 253078
+
+<div align="center"><video src="files/post_253078_VahidOOnLine_253078.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253078_VahidOOnLine_253078.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تصاویر رسیده به ایران‌اینترنشنال، برخاستن دود سیاه‌رنگی را در شمال شرق تهران در جمعه نهم مرداد نشان می‌دهد.
+سخنگوی آتش‌نشانی تهران اعلام کرد دود مشاهده‌شده در شرق پایتخت ناشی از آتش‌سوزی در فضای سبز و محل تجمع ضایعات در جاجرود است و عملیات اطفای آتش همچنان ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253077
 
@@ -270,21 +284,6 @@ exclusive
 
 این نهاد اضافه کرد: «به محض برقراری ثبات و آرامش، کلیه درخواست‌ها بر اساس ترتیب و زمان‌بندی بررسی و مجوزها به مرور صادر خواهند شد.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253052
-
-<div align="center"><video src="files/post_253052_VahidOOnLine_253052.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253052_VahidOOnLine_253052.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️علی مطهری، عضو پیشین مجلس شورای اسلامی، در گفتگو با خبرگزاری ایسنا، با اشاره به جمله‌ای که به گفته او از طریق یک واسطه از علی لاریجانی شنیده بود، گفت که رئیس پیشین مجلس و دبیر پیشین شورای عالی امنیت ملی معتقد بود: «مذاکره در حال جنگ بهتر جواب می‌دهد.»
-
-علی لاریجانی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، همراه با پسر و معاونش، روز سه‌شنبه ۲۶ اسفند ۱۴۰۴، در جریان حملات هوایی آمریکا و اسرائیل کشته شد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

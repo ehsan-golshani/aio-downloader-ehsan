@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/06/01 14:16
+📅 آخرین بروزرسانی: 1405/06/01 14:46
 
 ---
+
+## tasiyanc — post 8194
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه
+
+دریافت کانفیگ 👉
+</div>
 
 ## tasiyanc — post 8192
 
@@ -162,11 +170,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️حمله به فرودگاه ایرانشهر در سیستان و بلوچستان @TasiyanProxy
-</div>
-
-## tasiyanc — post 8163
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بندرعباس عزیز زیر حملات شدید آمریکا 💔
 </div>
 

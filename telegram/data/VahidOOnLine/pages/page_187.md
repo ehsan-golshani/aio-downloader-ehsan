@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 187
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 251921
+
+<div align="center"><img src="files/post_251921_VahidOOnLine_251921.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روابط عمومی سپاه پاسداران در بیانیه‌ای اعلام کرد ظهر جمعه دوم مرداد، در حمله‌ای دوباره به مرکز داده شرکت آمازون در بحرین، ساختمان باقی‌مانده این مرکز را منهدم کرده است.
+
+سپاه پاسداران پیش‌تر نیز در بیانیه‌ای که صبح سه‌شنبه ۳۰ تیر منتشر شد، اعلام کرده بود «زیرساخت مرکزی داده‌های شرکت آمریکایی آمازون» در بحرین را با چند موشک کروز هدف قرار داده است.
+
+تاکنون مقام‌های آمریکا و بحرین درباره حملات اعلام‌شده از سوی سپاه پاسداران اظهارنظری نکردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251920
 
@@ -297,19 +312,6 @@ iranintl
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران‌اینترنشنال نشان‌دهنده رد پرتاب موشک در آسمان فردیس کرج در صبح جمعه دوم مرداد است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251881
-
-<div align="center"><video src="files/post_251881_VahidOOnLine_251881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251881_VahidOOnLine_251881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در ویدیوی رسیده به ایران‌اینترنشنال، یک شهروند می‌گوید که صبح جمعه ۲ مرداد ۱۴۰۵، دو موشک از پادگان و زاغه سپاه پاسداران در بیدگنه ملارد پرتاب شد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 312
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 248991
+
+<div align="center"><video src="files/post_248991_VahidOOnLine_248991.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248991_VahidOOnLine_248991.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس گزارش‌ها بامداد ۱۷ تیرماه، پایگاه نیروی دریایی سپاه پاسدران در اسکله صیادی پُشَهر (پشت شهر) در بندرعباس هدف حمله آمریکا قرار گرفت. ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد که شماری از قایق‌داران محلی در حوالی اسکله تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248990
 
@@ -286,20 +299,6 @@
 
 سپاه پاسداران هم ساعاتی پیش اعلام کرده بود ۸۵ هدف نظامی مرتبط با آمریکا در بحرین و کویت را هدف قرار داده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248971
-
-<div align="center"><img src="files/post_248971_VahidOOnLine_248971.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روابط عمومی ارتش جمهوری اسلامی در بیانیه‌ای اعلام کرد پهپادهای هجومی ارتش از بامداد چهارشنبه ۱۷ تیر، مراکز تجمع نیروهای آمریکا در پایگاه شیخ عیسی در بحرین را مورد حمله قرار دادند.
-
-در این بیانیه آمده است عواقب نقض و شکستن آشکار و مکرر آتش‌بس به عهده آمریکا است و تمام پایگاه‌های آمریکا در منطقه، هدف مشروع پهپادهای ارتش خواهند بود.
-
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

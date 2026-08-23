@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/06/01 14:16
+📅 آخرین بروزرسانی: 1405/06/01 14:46
 
 ---
+
+## tasiyanc — post 6798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بخاطر نمک ریختنتون امروز کلا npv نمیزارم 😍
+فقط در صورتی میزارم ک ریکشن قلب بالای ۲۰۰ تا باشه رو پست
+</div>
 
 ## tasiyanc — post 6793
 
@@ -191,11 +198,5 @@ VIP⚡ APEX ⛓️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 VİP - ⛓️OMEGA ⚡.npvt
-</div>
-
-## tasiyanc — post 6770
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داداش بقران بهترین‌چنلی هستی دمت‌‌گرم که بفکری سرعتتتش‌موشکهه🥲😭😭😭
 </div>
 

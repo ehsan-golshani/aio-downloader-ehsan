@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 306
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 249133
+
+<div align="center"><img src="files/post_249133_VahidOOnLine_249133.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرپرست دانشکده علوم پزشکی و خدمات بهداشتی درمانی چابهار شایعات درباره حمله آمریکا به بیمارستان امام علی این شهر را تکذیب کرد و گفت این مرکز درمانی در سلامت کامل قرار دارد و حمله‌ای به آن صورت نگرفته است.
+
+او همچنین از سلامت و آماده‌باش کامل کادر درمان این بیمارستان خبر داد. این اظهارات پس از انتشار شایعاتی از سوی هواداران جمهوری اسلامی در فضای مجازی مبنی بر حمله آمریکا به بیمارستان چابهار بیان شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249132
 
@@ -256,19 +269,6 @@
 
 این دومین شب پیاپی است که ارتش ایالات متحده در پاسخ به حملات سپاه پاسداران به چند کشتی تجاری در تنگه هرمز، مواضع نظامی در نوار ساحلی جنوب ایران را هدف قرار می‌دهد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249113
-
-<div align="center"><video src="files/post_249113_VahidOOnLine_249113.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249113_VahidOOnLine_249113.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال، وقوع انفجارهای مهیب را در چابهار در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

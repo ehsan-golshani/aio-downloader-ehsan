@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 359
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 247983
+
+<div align="center"><video src="files/post_247983_VahidOOnLine_247983.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247983_VahidOOnLine_247983.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز سه‌شنبه نهم تیرماه دانشجویان دانشگاه آزاد مقاطع کارشناسی ارشد و دکتری، مقابل سازمان مرکزی دانشگاه آزاد در تهران تجمع کرده و نسبت به حضوری شدن امتحانات خود اعتراض کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247982
 
@@ -300,19 +313,6 @@
 او همچنین گفت تنگه هرمز بخشی جدایی‌ناپذیر از حاکمیت جمهوری اسلامی است و مدیریت آن صرفا در اختیار جمهوری اسلامی قرار دارد.
 
 عزیزی با اشاره به نقش آمریکا در منطقه گفت: «عصر مداخله آمریکا در امور منطقه به سر آمده و بازگشت مجدد شکست‌خوردگان، هرگز دستاوردی به همراه ندارد.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247963
-
-<div align="center"><video src="files/post_247963_VahidOOnLine_247963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247963_VahidOOnLine_247963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم بریتانیا دوشنبه هشتم تیرماه مقابل ساختمان نخست‌وزیری این کشور در لندن تجمع کردند و خواستار تروریستی اعلام شدن سپاه شدند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

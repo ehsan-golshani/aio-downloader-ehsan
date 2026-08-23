@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 103
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 254059
+
+<div align="center"><video src="files/post_254059_VahidOOnLine_254059.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254059_VahidOOnLine_254059.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشگر منوتو: آب برق زندگی، این شده شعار مردم بیچاره ایران
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254049
 
@@ -274,19 +287,6 @@
 ♦️خبرگزاری تسنیم، وابسته به سپاه پاسداران، پنجشنبه‌شب ۱۵ مرداد و در پی انتشار گزارش‌هایی از شنیده شدن صدای انفجار در محدوده جزیره قشم، گزارش داد که دو صدای انفجار شنیده‌شده ناشی از «مقابله با هداف متخاصم» در ورودی تنگه هرمز بوده است.
 
 تسنیم به نقل از «منابع آگاه» اعلام کرد که جزئیات این عملیات به‌زودی اطلاع‌رسانی خواهد شد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254019
-
-<div align="center"><img src="files/post_254019_VahidOOnLine_254019.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری تسنیم به نقل از احمد نفیسی، معاون سیاسی و امنیتی استاندار هرمزگان اعلام کرد که پنجشنبه‌شب، ۱۵ مرداد، اصابت یا حادثه‌ای در جزیره قشم و بندرعباس گزارش نشده است. این خبر پس از آن اعلام شد که شهروندان در شبکه‌های اجتماعی از شنیده شدن صدای انفجار خبر دادند.
-
-نفسی توضیح داد که بررسی‌های لازم برای شناسایی منشاء صداهای شنیده شده، در حال انجام است.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

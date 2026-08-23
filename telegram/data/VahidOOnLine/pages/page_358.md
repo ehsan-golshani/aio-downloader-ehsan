@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 358
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 248003
+
+<div align="center"><video src="files/post_248003_VahidOOnLine_248003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248003_VahidOOnLine_248003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از خریدرارن خانه در شهرک صدرا در شیراز به دلیل تمام نشدن پروژه و تحویل ندادن خانه‌ها تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248002
 
@@ -271,19 +284,6 @@
 
 او همچنین از شرکت‌کنندگان در این مراسم حکومتی خواسته کلاه، آفتابگیر و بطری آب همراه داشته باشند.
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247983
-
-<div align="center"><video src="files/post_247983_VahidOOnLine_247983.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247983_VahidOOnLine_247983.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز سه‌شنبه نهم تیرماه دانشجویان دانشگاه آزاد مقاطع کارشناسی ارشد و دکتری، مقابل سازمان مرکزی دانشگاه آزاد در تهران تجمع کرده و نسبت به حضوری شدن امتحانات خود اعتراض کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

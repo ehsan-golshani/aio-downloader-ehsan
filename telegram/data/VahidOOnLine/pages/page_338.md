@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 338
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 248434
+
+<div align="center"><video src="files/post_248434_VahidOOnLine_248434.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248434_VahidOOnLine_248434.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️سهیل محمود، دبیرکل سازمان همکاری اقتصادی دی‌۸،جمعه‌‌شب ۱۲ تیرماه با سید عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، دیدار و گفتگو کرد.
+
+دو طرف در این دیدار درباره راه‌های گسترش همکاری میان کشورهای عضو دی‌۸ و موضوعات مورد علاقه مشترک رایزنی کردند.
+
+سازمان همکاری اقتصادی دی‌۸ متشکل از هشت کشور در حال توسعه، با هدف تقویت همکاری‌های اقتصادی، تجاری و توسعه‌ای میان اعضا فعالیت می‌کند. این هشت کشور شامل ایران، ترکیه، پاکستان، بنگلادش، اندونزی، مالزی، مصر و نیجریه است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248433
 
@@ -267,19 +284,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سایت هرانا گزارش داد وحید خان‌صنمی، از بازداشت‌شدگان انقلاب ملی ایرانیان در دی ۱۴۰۴ و زندانی زندان تهران بزرگ، از سوی شعبه ۱۵ دادگاه انقلاب تهران به ریاست ابوالقاسم صلواتی، به اتهام «محاربه» به اعدام محکوم شده است.
 بر اساس این گزارش، وحید خان‌صنمی اسفند سال گذشته در ارتباط با اعتراضات سراسری دی ۱۴۰۴ بازداشت شد و از آن زمان در زندان تهران بزرگ نگهداری می‌شود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248402
-
-<div align="center"><video src="files/post_248402_VahidOOnLine_248402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248402_VahidOOnLine_248402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد بستگان جاویدنام محمدرضا سعیدی برای گرامیداشت سالروز میلاد او بر مزارش جمع شدند. او در میدان خراسان تهران با گلوله ماموران در جریان سرکوب انقلاب ملی کشته شد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

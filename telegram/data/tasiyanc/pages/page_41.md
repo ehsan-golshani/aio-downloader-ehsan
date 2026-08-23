@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/06/01 14:16
+📅 آخرین بروزرسانی: 1405/06/01 14:46
 
 ---
+
+## tasiyanc — post 8460
+
+<div align="center"><img src="files/post_8460_tasiyanc_8460.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فووووری ، حمله سپاه پاسداران به ورزشگاهی که ترامپ در اون حضور داشت !
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8459
 
@@ -134,11 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نود زن مسی 😂
-</div>
-
-## tasiyanc — post 8438
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قرممممممز آرژانتین ۱۰ نفره شد
 </div>
 

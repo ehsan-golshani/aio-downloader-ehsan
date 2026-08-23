@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 368
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 247774
+
+<div align="center"><img src="files/post_247774_VahidOOnLine_247774.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سایت هرانا گزارش داد برای زرتشت احمدی راغب، زندانی سیاسی، پرونده قضایی جدیدی تشکیل شده و جلسه بازپرسی او روز یک‌شنبه هفت تیر در دادسرای عمومی و انقلاب کرج برگزار شده است.
+
+یک منبع نزدیک به خانواده زرتشت این زندانی سیاسی محبوس در ندامتگاه مرکزی کرج، به هرانا گفت او در اعتراض به تشکیل پرونده جدید و محرومیت از رسیدگی پزشکی اعتصاب غذا کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247773
 
@@ -291,19 +304,6 @@
 هاآرتص نوشت هواپیمای حامل شیخ تمیم بن حمد آل ثانی، امیر قطر، هنگام سفر به تهران در سال گذشته به یک سامانه دفاع هوایی ساخت شرکت اسرائیلی البیت سیستمز مجهز بوده است.
 
 پیش‌تر نیز بنیامین نتانیاهو با قراردادهای دفاعی بیش از ۱۰۰ میلیون دلاری با قطر موافقت کرده بود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247754
-
-<div align="center"><video src="files/post_247754_VahidOOnLine_247754.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247754_VahidOOnLine_247754.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان، یکشنبه هفتم تیرماه علیه جمهوری اسلامی در شهر فرانکفورت راهپیمایی کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 576
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 242095
+
+<div align="center"><video src="files/post_242095_VahidOOnLine_242095.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242095_VahidOOnLine_242095.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ «جمعیت اندک در تجمع شبانه حامیان حکومت در اهواز»
+
+♦️یکی از مخاطبان ایندیپندنت فارسی ویدیویی را از جمعیت اندک در تجمع شبانه حامیان جمهوری اسلامی در پارک داریوش اهواز ارسال کرده است.
+این شهروند که ویدیو را از خودرو و در حال حرکت گرفته است در پایان شعار «جاوید شاه» سر می‌دهد.
+از دومین روز حملات آمریکا و اسرائیل به جمهوری اسلامی، هواداران حکومت هر شب در مکان‌های تعیین شده در شهرها و روستاها تجمع برگزار می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242094
 

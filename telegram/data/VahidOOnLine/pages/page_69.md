@@ -1,8 +1,18 @@
 # آرشیو کانال VahidOOnLine - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 254812
+
+<div align="center"><img src="files/post_254812_VahidOOnLine_254812.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254811
 
@@ -293,21 +303,6 @@ IranintlTV
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم آلمان سه‌شنبه ۲۰ مرداد علیه جمهوری اسلامی در شهرهای هانوفر و هامبورگ تجمع کردند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254791
-
-<div align="center"><img src="files/post_254791_VahidOOnLine_254791.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امید صدیقی، مدیرکل دفتر آلودگی دریایی سازمان حفاظت محیط زیست، در گفت‌وگو با خبرگزاری فارس، وابسته به سپاه پاسداران اعلام کرد سواحل سوزا، شیب‌دراز، نقاشه و بخش‌هایی از جزیره هنگام دچار آلودگی نفتی شدند.
-
-مدیرکل دفتر آلودگی دریایی سازمان حفاظت محیط زیست گفت: «آلودگی نفتی در محدوده شیب‌دراز و روستای نقاشه مشاهده شده و عملیات پاکسازی در این مناطق در حال انجام است.»
-
-صدیقی افزود علت این آلودگی هنوز مشخص نشده است و اما پیش‌بینی می‌شود عملیات پاکسازی ساحل تا پایان چهارشنبه به‌طور کامل انجام شود.
 IranintlTV
 
 🤖 @VahidOOnLine

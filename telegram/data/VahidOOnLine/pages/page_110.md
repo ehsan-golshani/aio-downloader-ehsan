@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/06/01 14:14
+📅 آخرین بروزرسانی: 1405/06/01 14:43
 
 ---
+
+## VahidOOnLine — post 253824
+
+<div align="center"><video src="files/post_253824_VahidOOnLine_253824.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253824_VahidOOnLine_253824.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️وزارت خارجه عربستان سعودی چهارشنبه ۱۴ مردادماه اعلام کرد فیصل بن فرحان، وزیر امور خارجه این کشور، در دیدار با فواد محمد حسین، وزیر امور خارجه عراق، بر ضرورت جلوگیری از تبدیل شدن خاک و امکانات عراق به ابزاری برای حمله به کشورهای همسایه تاکید کرده است.
+
+بر اساس بیانیه وزارت خارجه عربستان، این دیدار در حاشیه نشست وزیران برای «حمایت از بیت‌المقدس و اماکن مقدس» در عمان برگزار شد و دو طرف آخرین تحولات منطقه و راه‌های تقویت روابط میان بغداد و کشورهای عربی و اسلامی را بررسی کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253823
 
@@ -309,21 +324,6 @@ iranintl
 
 این دیدار در حالی انجام می‌شود که جمهوری اسلامی ایران از زمان آغاز جنگ تلاش می‌کند تا همکاری نظامی ایالات متحده با کشورهای حاشیه جنوبی خلیج فارس را با مشکل مواجه و همسایگان عرب را به قطع روابط  نظامی با آمریکا وادار کند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253804
-
-<div align="center"><video src="files/post_253804_VahidOOnLine_253804.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253804_VahidOOnLine_253804.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصاویر ارسالی به ایران‌اینترنشنال، لحظاتی پیش از خاکسپاری جاویدنام شیوا بردبار ۱۸ ساله، را نشان می‌دهد. او متولد ۱۴ مرداد ۱۳۸۷ بود و به همراه پدرش در خیابان هفت‌تیر مشهد در جریان انقلاب ملی ایرانیان با شلیک گلوله ماموران حکومتی کشته شد.
-
-جزئیات بیشتر در گزارش سبا حیدرخانی، عضو تحریریه ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
