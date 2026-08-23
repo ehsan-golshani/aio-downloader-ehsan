@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/01 23:20
+📅 آخرین بروزرسانی: 1405/06/01 23:39
 
 ---
+
+## VahidOOnLine — post 256280
+
+<div align="center"><video src="files/post_256280_VahidOOnLine_256280.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256280_VahidOOnLine_256280.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مروری بر مهم‌ترین اخبار و تحولات جنگ در روز شنبه ۳۱ مرداد ۱۴۰۵.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256279
+
+<div align="center"><video src="files/post_256279_VahidOOnLine_256279.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256279_VahidOOnLine_256279.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در استان مرکزی با ارسال ویدیویی توضیح می‌دهد که برخی افراد مجبور شده‌اند به خاطر فقر اقدام به سرقت کابل برق در محلات کنند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256278
 
@@ -286,34 +312,6 @@ IranintlTV
 دونالد ترامپ، رییس‌جمهوری‌ آمریکا درباره جمهوری‌اسلامی به خبرنگاران گفت: «آن‌ها پول ندارند، نیروی دریایی ندارند، نیروی هوایی ندارند و حتی نمی‌توانند حقوق سربازان و نیروهای پلیس خود را پرداخت کنند.»
 
 او افزود آمریکا «کنترل کامل» منطقه مرتبط با تنگه هرمز را در اختیار دارد و جمهوری‌اسلامی «بسیار مایل» به توافق است، اما هنوز آماده پذیرش «توافق درست» نیست.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256260
-
-<div align="center"><video src="files/post_256260_VahidOOnLine_256260.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256260_VahidOOnLine_256260.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در آغاز فصل پذیرش دانشجویان جدید در دانشگاه ژجیانگ در شهر هانگژو، چین، این‌بار خبری از باربرهای انسانی برای جابه‌جایی چمدان‌ها نبود و سگ‌های رباتیک چهارپا وارد میدان شدند.
-روز جمعه، ۳۰ مرداد هم‌زمان با آغاز برنامه استقبال از دانشجویان ورودی سال ۲۰۲۶، چند ربات چهارپا از جمله مدل‌های «لنیکس ام بیست» (Lynx M20) و «اکس سی» (X30) ساخت شرکت چینی «دپ رباتیک» (Deep Robotics) در محوطه دانشگاه به کار گرفته شدند تا چمدان‌ها و وسایل دانشجویان و خانواده‌هایشان را از پله‌ها بالا ببرند.
-این ربات‌ها با استفاده از سامانه‌های کنترل حرکت و حسگرهای تشخیص محیط، می‌توانند روی سطوح مختلف حرکت کرده و در شرایطی که برای انسان یا تجهیزات معمولی دشوارتر است، تعادل خود را حفظ کنند. در این برنامه، نقش آنها از یک نمایش فناوری فراتر رفت و به‌عنوان بخشی از خدمات عملی استقبال و ثبت‌نام دانشجویان مورد استفاده قرار گرفت.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256259
-
-<div align="center"><video src="files/post_256259_VahidOOnLine_256259.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256259_VahidOOnLine_256259.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران اینترنشنال با اشاره به شرایط بد معیشتی و نداشتن قدرت خرید گوشت قرمز، می‌گوید که به این نتیجه رسیده که کله مرغ مصرف کند.
 IranintlTV
 
 🤖 @VahidOOnLine

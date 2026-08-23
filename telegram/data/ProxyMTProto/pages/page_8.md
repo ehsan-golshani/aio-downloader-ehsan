@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/01 23:21
+📅 آخرین بروزرسانی: 1405/06/01 23:40
 
 ---
+
+## ProxyMTProto — post 50296
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ljox44lz.helper.website
+Port: 443
+Secret: eeb4f9b88528d51bd43c20e7d400020711636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50295
 
@@ -173,15 +182,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: srv.savelyev.click
 Port: 443
 Secret: ee966bd27e82ca84e00f7dcf1eecd7237c7372762e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50276
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mc-ssh.t-proxyru.info.
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 215
 
-📅 آخرین بروزرسانی: 1405/06/01 23:20
+📅 آخرین بروزرسانی: 1405/06/01 23:39
 
 ---
+
+## VahidOOnLine — post 251331
+
+<div align="center"><img src="files/post_251331_VahidOOnLine_251331.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صدا و سیمای جمهوری اسلامی، ظهر سه‌شنبه از حمله به نقطه‌ای در ارتفاعات خرم‌آباد خبر داد.
+
+تا لحظه تنظیم این خبر اطلاعات بیشتری در خصوص علت این انفجار منتشر نشده است.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251330
+
+<div align="center"><img src="files/post_251330_VahidOOnLine_251330.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود پزشکیان در مراسم «روز ملی گرامیداشت صنعت و معدن»، گفت که ارتباط ما با مجتبی خامنه‌ای روزبه‌روز بیشتر شده و افزود دولت «در سایه هدایت‌های او»، در پی کاهش مشکلات است.
+
+پزشکیان اضافه کرد که با افزایش ارتباط و دسترسی به مجتبی خامنه‌ای، همه اقدامات بر اساس رهنمودهای او سامان یافته است.
+
+مسعود پزشکیان گفت در مذاکرات، موضع اصلی ما بازگشایی تنگه هرمز برای صادرات نفت بود و با وجود «تخلف» طرف مقابل، دستاوردهای جمهوری اسلامی بسیار فراتر از انتظار بوده است.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251329
 
@@ -276,29 +306,6 @@ iranintl
 
 سپاه پاسداران بارها تهدید کرده بود که کشتی‌هایی که از مسیر جنوبی تنگه هرمز می‌گذرند را «تا اطلاع ثانوی» هدف قرار می‌دهد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251311
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از متقاضیان ویزای دانشجویی در تهران دوشنبه ۲۹ تیر مقابل سفارت اتریش تجمع کردند تا نسبت به بلاتکلیفی خود و نداشتن وقت برای سفارت اعتراض کنند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251309
-
-<div align="center"><video src="files/post_251309_VahidOOnLine_251309.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251309_VahidOOnLine_251309.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جاویدنامان انقلاب ملی ایرانیان
-«رهام سعادتی» ۱۸ دی‌ماه در کرج، با شلیک مستقیم نیروهای سرکوب جمهوری اسلامی کشته شد. نام او در حافظه این سرزمین ماندگار است و یادش چراغ راه آزادی‌خواهان خواهد بود.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
