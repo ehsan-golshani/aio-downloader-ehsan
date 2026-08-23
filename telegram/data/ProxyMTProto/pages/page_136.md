@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 136
 
-📅 آخرین بروزرسانی: 1405/06/01 19:23
+📅 آخرین بروزرسانی: 1405/06/01 19:41
 
 ---
+
+## ProxyMTProto — post 47716
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 79.137.194.196
+Port: 443
+Secret: ee2b1199d55f2189e508d07f1f5503faf2766b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47715
 
@@ -173,15 +182,6 @@ Secret: 7kBjzU5SbZqTzIJZZEf4Tvp3d3cubWljcm9zb2Z0LmNvbQ
 Server: 186.246.19.134
 Port: 443
 Secret: ee17867c11b83c2c36a3de356743602b2c617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47696
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vpn.chunkycorp.shop
-Port: 443
-Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
 @ProxyMTProto
 </div>
 
