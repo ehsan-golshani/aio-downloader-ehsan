@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 139
 
-📅 آخرین بروزرسانی: 1405/06/01 15:20
+📅 آخرین بروزرسانی: 1405/06/01 15:42
 
 ---
+
+## ProxyMTProto — post 47648
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: yard-yaystal-menyat.yard-tg-bot.ru
+Port: 443
+Secret: ee6a441d3845f1bfec1100662ce671d8ed76762e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47647
 
@@ -175,15 +184,6 @@ Secret: eefe281d2bfa13f991ed6be43138e5e14c79612e7275
 Server: s15.proxyru.top
 Port: 993
 Secret: eefe281d2bfa13f991ed6be43138e5e14c7777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47628
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 2.26.252.43
-Port: 443
-Secret: ee6cc9e422a51432ca4df25293389adef06172746c6562656465762e7275
 @ProxyMTProto
 </div>
 
