@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 332
 
-📅 آخرین بروزرسانی: 1405/06/01 06:50
+📅 آخرین بروزرسانی: 1405/06/01 07:43
 
 ---
+
+## VahidOOnLine — post 248522
+
+<div align="center"><img src="files/post_248522_VahidOOnLine_248522.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حسن حسن‌زاده، فرمانده سپاه پاسداران تهران، اعلام کرد که مراسم حکومتی دفن علی خامنه‌ای قطعا به صورت زمینی برگزار خواهد شد.
+
+او با تشویق شهروندان به شرکت در این مراسم، بر رایگان بودن و دسترسی آسان به حمل‌ونقل عمومی تاکید کرد و گفت که مراسم در مصلای تهران به صورت شبانه ادامه خواهد داشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248521
 
@@ -254,19 +267,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خیرت ویلدرس، رهبر حزب آزادی و نماینده پارلمان هلند، در پیامی در شبکه اجتماعی ایکس نوشت که نباید برای علی خامنه‌ای سوگواری کرد و او را «هیولا، قصاب و قاتل» خواند.
 ویلدرز در ادامه این پیام نوشت: «مردم ایران شایسته سکولاریسم و آزادی هستند.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248502
-
-<div align="center"><video src="files/post_248502_VahidOOnLine_248502.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248502_VahidOOnLine_248502.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده از یک مخاطب نشان می‌دهد در چارچوب هزینه و تمهیدات حکومت برای تشییع بقایای خامنه‌ای، مسیر اتوبان بابایی تهران با بلوک‌های بتنی محدود شده است. شهروندان از اختلال در فعالیت و زندگی خود گلایه کرده‌اند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

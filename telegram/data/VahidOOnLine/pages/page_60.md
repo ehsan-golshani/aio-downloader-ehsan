@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/06/01 06:50
+📅 آخرین بروزرسانی: 1405/06/01 07:43
 
 ---
+
+## VahidOOnLine — post 254979
+
+<div align="center"><video src="files/post_254979_VahidOOnLine_254979.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254979_VahidOOnLine_254979.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انفجار در یک کارخانه مهمات‌سازی در نزدیکی کولفرو، شهری در حدود ۴۰ کیلومتری جنوب شرقی رم، پایتخت ایتالیا، رخ داد و نیروهای پلیس و آتش‌نشانی به محل حادثه اعزام شدند.
+
+پلیس کارابینیری ایتالیا روز پنجشنبه ۲۲ مردادماه به خبرگزاری فرانسه گفت آتش‌نشانان و نیروهای پلیس در محل انفجار حضور دارند و «عملیات پیچیده‌ای» در حال انجام است. پلیس تاکنون جزئیات بیشتری درباره علت انفجار یا تلفات و خسارت‌های احتمالی اعلام نکرده است.
+
+خبرگزاری ایتالیایی آنسا گزارش داد این کارخانه متعلق به گروه دفاعی آلمانی «کی‌ان‌دی‌اس» است و مهمات با کالیبر متوسط و بزرگ برای سامانه‌های دفاعی زمینی و دریایی تولید می‌کند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254956
 
@@ -288,13 +305,5 @@ IranintlTV
 IranintlTV
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254934
-
-<div align="center"><img src="files/post_254934_VahidOOnLine_254934.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
 </div>
 

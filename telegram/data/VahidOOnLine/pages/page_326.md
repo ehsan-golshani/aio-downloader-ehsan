@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 326
 
-📅 آخرین بروزرسانی: 1405/06/01 06:50
+📅 آخرین بروزرسانی: 1405/06/01 07:43
 
 ---
+
+## VahidOOnLine — post 248654
+
+<div align="center"><img src="files/post_248654_VahidOOnLine_248654.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش سی‌ان‌ان، اعضای سازمان کشورهای صادرکننده نفت و متحدانش (اوپک‌پلاس) یکشنبه توافق کردند با توجه به اینکه تردد در تنگه هرمز همچنان پایین‌تر از سطح پیش از جنگ است، تولید نفت را افزایش دهند.
+بر اساس این توافق، هفت کشور تولیدکننده نفت روزانه ۱۸۸ هزار بشکه به تولید خود اضافه خواهند کرد.
+این پنجمین افزایش متوالی تولید از زمان آغاز جنگ ایران است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248653
 
@@ -267,19 +280,6 @@
 در بیانیه منتشرشده، هدف از این اقدام تنظیم بازار و پاسخ به شرایط فعلی عنوان شده است.
 این در حالی است که پس از بسته شدن تنگه هرمز در جریان تنش‌های نظامی میان آمریکا، اسرائیل و ایران، برخی کشورهای حاشیه خلیج فارس تولید خود را کاهش داده بودند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248634
-
-<div align="center"><video src="files/post_248634_VahidOOnLine_248634.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248634_VahidOOnLine_248634.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده نشان می‌دهند گروهی از ایرانیان مقیم اسپانیا شنبه ۱۳ تیر مقابل کنسولگری آمریکا در بارسلون تجمع کرده و خواستار پایان مماشات با جمهوری اسلامی شدند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
