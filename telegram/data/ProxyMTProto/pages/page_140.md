@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 140
 
-📅 آخرین بروزرسانی: 1405/06/01 18:36
+📅 آخرین بروزرسانی: 1405/06/01 19:23
 
 ---
+
+## ProxyMTProto — post 47635
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: For Iran
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47634
 
@@ -175,15 +184,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: 146.103.96.129
 Port: 443
 Secret: ee627bdd42b085906e41105ddd7dab8cca706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dr1.dedus.pro
-Port: 443
-Secret: eeaf504aa56469ec880c9cb00515fc8a2d79616e6465782e7275
 @ProxyMTProto
 </div>
 
