@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/06/01 20:46
+📅 آخرین بروزرسانی: 1405/06/01 21:18
 
 ---
+
+## ProxyMTProto — post 49267
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 95.85.237.7
+Port: 14305
+Secret: dd36d988a8d13716c2c3aa9e90b7a8b18a
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49266
 
@@ -172,15 +181,6 @@ Secret: ee3f558f47bfd43aafffc4c8bb4ffc0130706574726f766963682e7275
 Server: www2.acientirani-uor4.ir
 Port: 443
 Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49247
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 2ca164.zipline.cc
-Port: 443
-Secret: ee5ab264a139bb00bd82c48212db75f9b33263613136342e7a69706c696e652e6363
 @ProxyMTProto
 </div>
 

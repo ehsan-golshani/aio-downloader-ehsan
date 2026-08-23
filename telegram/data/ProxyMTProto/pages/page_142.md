@@ -1,8 +1,22 @@
 # آرشیو کانال ProxyMTProto - صفحه 142
 
-📅 آخرین بروزرسانی: 1405/06/01 20:46
+📅 آخرین بروزرسانی: 1405/06/01 21:18
 
 ---
+
+## ProxyMTProto — post 47599
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Telegram опять еле дышит?
+
+BLYATNET фиксит это за минуту ⚡
+
+🚀 Быстрые MTProxy и VPN
+🛡 Стабильный доступ без мусора
+🌍 Серверы по всему миру
+
+💫 От 5 ⭐ — дешевле чем стикер 👇
+</div>
 
 ## ProxyMTProto — post 47598
 
