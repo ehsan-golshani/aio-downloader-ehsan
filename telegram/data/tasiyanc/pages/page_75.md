@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/06/01 11:31
+📅 آخرین بروزرسانی: 1405/06/01 12:21
 
 ---
+
+## tasiyanc — post 7247
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐
+</div>
 
 ## tasiyanc — post 7238
 
@@ -314,14 +320,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 🟢@nac_config
 
 🔵@nacconfig
-</div>
-
-## tasiyanc — post 7208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹هیئت مذاکره کننده جمهوری اسلامی دقایقی قبل به ریاست قالیباف راهی سوئیس شد.
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 

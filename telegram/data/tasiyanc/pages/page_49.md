@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/06/01 11:31
+📅 آخرین بروزرسانی: 1405/06/01 12:21
 
 ---
+
+## tasiyanc — post 8230
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واقعا مثل کشورم شدم همونطور که همه‌ جای ایران درد و غم داره منم کل بدنم درد و غم داره.
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8229
 
@@ -171,11 +179,5 @@
 🚨🚨 فرودگاه ایرانشهر مورد حمله قرار گرفت
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سپاه جون دارن جنوب میزنن خب؟چرا گیر دادی ب کردستان عراق داری اشتباهی میزنی ها😹
 </div>
 

@@ -1,12 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/01 11:31
+📅 آخرین بروزرسانی: 1405/06/01 12:21
 
 ---
 
-## tasiyanc — post 9531
+## tasiyanc — post 9533
 
-<div align="center"><a href="files/post_9531_𝐓𝐚𝐬𝐢𝐲𝐚𝐧_𝐄𝐦𝐩𝐢𝐫𝐞_🇦🇱_¹.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 𝐓𝐚𝐬𝐢𝐲𝐚𝐧_𝐄𝐦𝐩𝐢𝐫𝐞_🇦🇱_¹.ovpn</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون دلار 198000
+هم اکنون طلا 21.900.000
+
+کجا داریم میریم ؟
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9531
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 📶
@@ -38,8 +48,6 @@
 </div>
 
 ## tasiyanc — post 9529
-
-<div align="center"><a href="files/post_9529_linebet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 linebet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🪙اپلیشیکن اندروید سایت جهانی لاین بت
@@ -333,18 +341,5 @@ til.ac/0L4vyJf
 من نمی‌دانم اصلاً با چه کسی در ایران باید مذاکره کنم. این در واقع یکی از بزرگترین مشکلات من است.
 هیچ کس نمی‌خواهد رئیس‌جمهور ایران باشد. آن‌ها می‌گویند: «چه کسی می‌خواهد رئیس‌جمهور باشد؟» «نه، نه، من نمی‌خواهم رئیس‌جمهور باشم.»
 💋 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
 </div>
 

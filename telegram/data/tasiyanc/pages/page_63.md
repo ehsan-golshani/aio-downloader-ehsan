@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/06/01 11:31
+📅 آخرین بروزرسانی: 1405/06/01 12:21
 
 ---
+
+## tasiyanc — post 7693
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+4 سرور سرعتی حجم و کاربر نامحدود ⚡️
+
+تست شده روی همه نت ها
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال به اینجکتور ✨
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+</div>
 
 ## tasiyanc — post 7692
 
@@ -179,11 +197,5 @@ Fast ⚡ Unlimited.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مدیتیشن تموم شد 😂
-</div>
-
-## tasiyanc — post 7655
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عرزشی 🍑 🤬🍆
 </div>
 

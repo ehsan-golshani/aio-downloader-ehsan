@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/06/01 11:31
+📅 آخرین بروزرسانی: 1405/06/01 12:21
 
 ---
+
+## tasiyanc — post 6155
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Premium 💙BLUE.npvt
+</div>
 
 ## tasiyanc — post 6152
 
@@ -182,17 +188,5 @@ Fast2⚡@Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر 💋
-</div>
-
-## tasiyanc — post 6129
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی کانفیگ وایرگارد متد جدید 👑
-
-تست شده 🎚
-دانلود برنامه Wg tunnel 🕹
-آموزش ویدیویی ⏩
-
-@Tasiyanc ✅
 </div>
 

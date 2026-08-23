@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/01 11:31
+📅 آخرین بروزرسانی: 1405/06/01 12:21
 
 ---
+
+## tasiyanc — post 9416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ، همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام پستها پاک میشه
+</div>
 
 ## tasiyanc — post 9415
 
@@ -215,17 +221,5 @@ g26
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 9391
-
-<div align="center"><img src="files/post_9391_tasiyanc_9391.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، مارجوری تیلور نماینده سابق کنگره آمریکا:
-
-آمریکا توی جلسات راهبردی خودش، درباره استفاده از بمب اتم علیه ایران صحبت میکنه! آره این موضوع کاملا واقعیه و حدس نمیزنم!
-
-@Tasiyanc ⭐️
 </div>
 

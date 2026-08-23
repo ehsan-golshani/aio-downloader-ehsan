@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/06/01 11:31
+📅 آخرین بروزرسانی: 1405/06/01 12:21
 
 ---
+
+## tasiyanc — post 7181
+
+<div align="center"><img src="files/post_7181_tasiyanc_7181.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Milano 🇮🇹🔥.npvt
+</div>
 
 ## tasiyanc — post 7179
 
@@ -264,11 +272,5 @@ Game DNS
 میدونی چیه ؟ لطف بیش از حد انجام بدی میشه وظیفه
 و همه بعد یه مدت میگن طرف کسخله ولت میکنن بدون اینکه به یاد بیارن چیکارا کردی
 با پوست استخون دارم تجربه میکنم همین الان ، فقط میشه تاسف خورد
-</div>
-
-## tasiyanc — post 7140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مال ما شد وظیفه مال بعضیا شده لطف
 </div>
 

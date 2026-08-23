@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/01 11:31
+📅 آخرین بروزرسانی: 1405/06/01 12:21
 
 ---
+
+## tasiyanc — post 9263
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چالش میو بزاریم؟
+</div>
 
 ## tasiyanc — post 9262
 
@@ -280,26 +286,5 @@ https://t.me/+MT03hkV78q9kMTc0
 تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9235
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 
