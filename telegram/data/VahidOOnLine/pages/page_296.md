@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 296
 
-📅 آخرین بروزرسانی: 1405/06/02 01:42
+📅 آخرین بروزرسانی: 1405/06/02 02:42
 
 ---
+
+## VahidOOnLine — post 249445
+
+<div align="center"><img src="files/post_249445_VahidOOnLine_249445.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️بر اساس آمار رسمی منتشرشده توسط رئیس مجلس ونزوئلا، شمار جان‌باختگان دو زلزله پیاپی در این کشور به چهار هزار و ۱۱۸ نفر نفر افزایش یافته است. طبق گزارش خبرگزاری رویترز، در پی این زمین‌لرزه‌ها که در سوم تیرماه رخ داد، شمار مجروحان بدون تغییر نسبت به آمار قبلی در رقم ۱۶ هزار و ۷۴۰ نفر باقی مانده و آوارگی ۱۷ هزار و ۹۰۷ نفر همچنان ادامه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249444
 
@@ -243,15 +254,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران‌اینترنشنال در جمعه ۱۹ تیر، دود عظیم تاشی از آتش‌سوزی را در کارخانه اکسین پالایش در پلدختر نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال در جمعه ۱۹ تیر، آتش‌سوزی مهیب را در کارخانه اکسین پالایش در پلدختر نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

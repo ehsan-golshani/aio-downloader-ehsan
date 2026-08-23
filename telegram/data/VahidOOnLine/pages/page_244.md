@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 244
 
-📅 آخرین بروزرسانی: 1405/06/02 01:42
+📅 آخرین بروزرسانی: 1405/06/02 02:42
 
 ---
+
+## VahidOOnLine — post 250707
+
+<div align="center"><video src="files/post_250707_VahidOOnLine_250707.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250707_VahidOOnLine_250707.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری مهر، بامداد شنبه گزارش داد:‌ «منابع محلی اعلام کردند که یک برخورد در حاشیه جنوبی لار شنیده شده است.» لار مرکز شهرستان لارستان است که در جنوب شرقی استان فارس قرار دارد. همزمان کانال تلگرامی «وحید آنلاین» تصاویری از «حمله به سایت موشکی در جاده گراش لار» را منتشر کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250706
 
@@ -232,16 +245,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی ارسال‌شده به ایران‌اینترنشنال، ویرانه پایگاه سپاه را در راسک واقع در سیستان و بلوچستان، پس از حملات آمریکا نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد زندانیان واحد دو زندان قزل‌حصار کرج در چهارمین روز اعتصاب غذای خود در پنجشنبه ۲۵ تیر، فریاد «نه به اعدام» سردادند.
-﻿این زندانیان در اعتراض به اجرای احکام اعدام و انتقال شش زندانی محکوم به اعدام به سلول‌های انفرادی در اعتصاب غذا هستند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

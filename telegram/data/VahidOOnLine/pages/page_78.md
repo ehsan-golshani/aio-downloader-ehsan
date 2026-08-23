@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/06/02 01:42
+📅 آخرین بروزرسانی: 1405/06/02 02:42
 
 ---
+
+## VahidOOnLine — post 254696
+
+<div align="center"><video src="files/post_254696_VahidOOnLine_254696.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254696_VahidOOnLine_254696.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به اییران‌اینترنشنال از قطعی مداوم آب در شهر گرگان می‌گوید. به گفته او قطع آب و برق هم در این شهر طبق جدول زمانی نیست.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254695
 
@@ -273,20 +286,6 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در سه‌شنبه ۲۰ مرداد، می‌گوید: «من بچه کوچک در خانه دارم اما یخچال کاملا خالی است.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254676
-
-<div align="center"><img src="files/post_254676_VahidOOnLine_254676.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محسن نقوی، وزیر کشور پاکستان، روز سه‌شنبه ۲۰ مرداد در سفر به تهران با عباس عراقچی، وزیر خارجه جمهوری اسلامی دیدار کرد.
-بر اساس این گزارش‌ها، اسکندر مومنی، وزیر کشور، از همتای پاکستانی خود استقبال کرد.
-
-اسلام‌آباد از زمان آغاز مذاکرات تهران و واشینگتن در نقش میانجی ظاهر شده و وزیر کشور پاکستان نیز طی ماه‌های اخیر چندین بار به ایران سفر کرده است.
 IranintlTV
 
 🤖 @VahidOOnLine

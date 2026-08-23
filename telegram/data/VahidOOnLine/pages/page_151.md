@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 151
 
-📅 آخرین بروزرسانی: 1405/06/02 01:42
+📅 آخرین بروزرسانی: 1405/06/02 02:42
 
 ---
+
+## VahidOOnLine — post 252896
+
+<div align="center"><video src="files/post_252896_VahidOOnLine_252896.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252896_VahidOOnLine_252896.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حمله فرد حامی حکومت به یک دختر به دلیل داشتن سگ ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252895
 
@@ -268,19 +281,6 @@
 صدا و سیمای فارس، تصاویری از تخریب یک سالن ورزشی در فراشبند، از «حمله موشکی آمریکا» خبر داد. خبرگزاری تسنیم نیز ویدیویی از به وجود آمدن یک حفره بزرگ در محل یک ساختمان مسکونی در چاهتنگوی قشم را منتشر کرد.
 پیشتر دانشگاه علوم پزشکی هرمزگان اعلام کرد در این حمله، پدر و مادر یک خانواده و یک کودک دو ساله کشته شدند و دو کودک هفت و ۹ ساله نیز زخمی و به بیمارستان منتقل شدند. مقام‌های استان هرمزگان همچنین گفته‌اند نیروهای امدادی همچنان در حال جستجو در محل حادثه هستند و عملیات آواربرداری ادامه دارد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252863
-
-<div align="center"><video src="files/post_252863_VahidOOnLine_252863.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252863_VahidOOnLine_252863.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مروری بر مهم‌ترین اخبار و تحولات جنگ در روز پنجشنبه ۸ مرداد، از تحرکات نظامی تا تازه‌ترین مواضع سیاسی و دیپلماتیک.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

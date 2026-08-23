@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/06/02 01:42
+📅 آخرین بروزرسانی: 1405/06/02 02:42
 
 ---
+
+## VahidOOnLine — post 255122
+
+<div align="center"><img src="files/post_255122_VahidOOnLine_255122.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در سخنرانی پیش از خطبه‌های نماز جمعه شیراز، گفت: «آمریکا را تا شکست نهایی رها نخواهیم کرد و بهتر است آن‌ها به فرار خود از منطقه سرعت دهند.»
+
+رییس کمیسیون امنیت ملی مجلس، افزود: «پاسخ کوبنده و دور از انتظار ما به دشمن، آن‌ها را وادار به آتش بس کرد و این شکست تحقیر آمریکا در جهان بود.»
+
+عزیزی اضافه کرد: «ما با توسل به شعائر اسلامی و درس‌هایی که از مکتب عاشورا گرفتیم، در میدان نبرد دشمن را عقب راندیم و تمامیت ارضی خود را حفظ کردیم.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255121
 
@@ -289,19 +304,6 @@ IranintlTV
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مهمترین رویدادهای ایران در رسانه‌های جهان: جمعه ۲۳ مرداد ۱۴۰۵
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255085
-
-<div align="center"><video src="files/post_255085_VahidOOnLine_255085.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255085_VahidOOnLine_255085.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاتی، یکی از زبان‌های ایرانی شمال‌غربی، هنوز در شماری از شهرها و روستاهای قزوین، الموت، تاکستان، خلخال، طارم و مناطق پیرامون شنیده می‌شود. زبانی که بخشی از ویژگی‌های کهن زبان‌های ایرانی را حفظ کرده، اما امروز با کاهش انتقال میان‌نسلی روبه‌روست.
 ManotoTV
 
 🤖 @VahidOOnLine

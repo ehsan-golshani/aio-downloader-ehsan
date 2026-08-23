@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/02 01:42
+📅 آخرین بروزرسانی: 1405/06/02 02:42
 
 ---
+
+## VahidOOnLine — post 256409
+
+<div align="center"><img src="files/post_256409_VahidOOnLine_256409.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانشجویان متحد گزارش داد امین هادوی، دانشجوی سابق ورودی ۱۴۰۰ دانشگاه صنعتی شریف بازداشت شده است.
+
+بنا بر این گزارش او از حدود یک‌ماه پیش در بازداشت به‌سر می‌برد و تاکنون اطلاعی از وضعیت پرونده این دانشجوی پیشین منتشر نشده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256408
 
@@ -295,13 +308,5 @@ Indypersian
 Indypersian
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256389
-
-<div align="center"><img src="files/post_256389_VahidOOnLine_256389.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
 </div>
 
