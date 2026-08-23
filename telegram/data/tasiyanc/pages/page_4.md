@@ -1,8 +1,114 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/01 22:53
+📅 آخرین بروزرسانی: 1405/06/02 00:45
 
 ---
+
+## tasiyanc — post 9484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) 
+😞
+
+مشاهده فیلم 👉
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9483
+
+<div align="center"><video src="files/post_9483_tasiyanc_9483.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9483_tasiyanc_9483.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت
+🔐
+سرور سرعتی مولتی لوکیشن⚡️
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9482
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 👾 GAME DNS VIP TASIYAN ━━━╮
+
+⚡️ DNS #1
+IPv4
+
+17.62.198.222
+77.160.218.160
+
+IPv6
+
+2a0e:1c80:11::c6db:ccca:d924:626f
+2a0e:1c80:11::cf20:5007:eac9:1b44
+➖➖➖➖➖➖➖
+
+⚡️ DNS #2
+IPv4
+
+140.112.232.208
+136.95.165.219
+
+IPv6
+
+2a0e:1c80:11::e431:449e:90af:3521
+2a0e:1c80:11::397e:8dbf:fee2:a9cb
+
+➖➖➖➖➖➖➖
+
+⚡️DNS #3
+IPv4
+
+189.92.99.165
+19.33.60.233
+
+IPv6
+
+2a0e:1c80:11::ab31:e1b9:40cd:78d3
+2a0e:1c80:11::bcd1:7936:75f:7d0c
+
+➖➖➖➖➖➖➖
+
+⚡️ DNS #4
+IPv4
+
+169.217.217.193
+103.216.123.101
+
+IPv6
+
+2a0e:1c80:11::572a:2f94:1164:a500
+2a0e:1c80:11::6a6c:9e8c:8e01:f608
+
+⚡️ Low Ping • Stable Connection
+╰━━━━━━━━━━━━━━━━━━╯
+
+💙@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9481
 
@@ -378,36 +484,5 @@ https://t.me/+Mcyp10mcfFA2MTM0
 
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو صداسیما جایزه جمع کردن برای کسی که ترامپ بکشه، ۱۸۱ میلیون جمع شده، بعد بلیط هواپیما تا امریکا ۴۰۰ میلیونه 😂
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همگی عمو خسرو رو حمایت کنید عشقا ✅
-https://t.me/+J_q7c-COftQzOGM0
-</div>
-
-## tasiyanc — post 9458
-
-<div align="center"><img src="files/post_9458_tasiyanc_9458.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥃 خسرو خان هستم و با همکاری مافیای روس، از شرط‌بندی و پیش‌بینی درآمد دارم
-
-⭕️با من همراه باش تا بتونی روزانه بالای ۵۰ دلار درآمد ثابت داشته باشی 🔥
-
-💵با عمو خسرو، آروم آروم به آرزوهات برس
-
-🔗 آدرس عضویت کانال vip:
-https://t.me/+J_q7c-COftQzOGM0
-https://t.me/+J_q7c-COftQzOGM0
 </div>
 

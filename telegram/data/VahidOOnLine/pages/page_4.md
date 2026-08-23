@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/02 00:14
+📅 آخرین بروزرسانی: 1405/06/02 00:43
 
 ---
+
+## VahidOOnLine — post 256423
+
+<div align="center"><img src="files/post_256423_VahidOOnLine_256423.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، درباره جنگ اقتصادی آمریکا علیه جمهوری اسلامی، گفت: «جنگ اقتصادی ترامپ، فیلم تکراری است که ما حفظیم.»
+
+عراقچی افزود: «جنگ اقتصادی، همان قلدری همیشگی است که در سیاست‌های آمریکا دیده‌ایم.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256422
 
@@ -281,19 +294,6 @@ IranintlTV
 رسیدن دلار به بالاترین سطوح تاریخی خود در شرایطی است که اقتصاد ایران هم‌زمان با تورم بالا، محدودیت‌های ارزی، فشار تحریم‌ها و نااطمینانی درباره چشم‌انداز روابط خارجی مواجه است.
 افزایش نرخ ارز مستقیما بر هزینه واردات، قیمت کالاها و خدمات و همچنین قدرت خرید خانوارها اثر می‌گذارد و یکی از مهم‌ترین شاخص‌های تشدید فشارهای اقتصادی در ایران محسوب می‌شود.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256403
-
-<div align="center"><video src="files/post_256403_VahidOOnLine_256403.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256403_VahidOOnLine_256403.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تصاویری کمتر دیده‌شده از یک مهمانی جوانان در تهران در اواسط دهه ۵۰؛ نگاهی کوتاه به فضای اجتماعی و سبک زندگی جوانان ایران در آن دوران.
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

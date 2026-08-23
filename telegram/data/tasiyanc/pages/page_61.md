@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/06/01 22:53
+📅 آخرین بروزرسانی: 1405/06/02 00:45
 
 ---
+
+## tasiyanc — post 7807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچ اختلالی تو دیتا سنترا نداریم به کسشرات چنلای کانفیگ گوش ندید ، چیزی باشه خودم اطلاع رسانی میکنم
+همش برا جذب ممبره
+</div>
+
+## tasiyanc — post 7806
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ : ممکنه دوباره جنگ با ایران پر قدرت شروع بشه.
+</div>
+
+## tasiyanc — post 7799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+4 سرور سرعتی حجم و کاربر نامحدود ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال به اینجکتور ✨
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7798
 
@@ -166,23 +203,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ آکسیوس : حملات آمریکا ممکنه چند ساعت یا چند روز ادامه پیدا کنه
-</div>
-
-## tasiyanc — post 7755
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری حملات آمریکا به اسکله حقانی در سیریك
-</div>
-
-## tasiyanc — post 7754
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واکنش اسرائیل به جنگ فعلی : خوابیما قطعش کنین
-</div>
-
-## tasiyanc — post 7753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنگه هرمز بسته شد💪
 </div>
 

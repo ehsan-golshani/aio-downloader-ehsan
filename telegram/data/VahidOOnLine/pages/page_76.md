@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/06/02 00:14
+📅 آخرین بروزرسانی: 1405/06/02 00:43
 
 ---
+
+## VahidOOnLine — post 254730
+
+<div align="center"><video src="files/post_254730_VahidOOnLine_254730.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254730_VahidOOnLine_254730.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به به ایران اینترنشنال نشان می‌دهد که ایرانیان ساکن بریتانیا روز سه‌شنبه ۲۰ مرداد مقابل دفتر نخست‌وزیری این کشور در لندن تجمع کردند و در اعتراض به اعدام‌ها و احکام صادرشده علیه زندانیان و بازداشت‌شدگان «انقلاب ملی»، خواستار توقف اجرای احکام اعدام شدند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254729
 
@@ -259,19 +272,6 @@ IranintlTV
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شبکه المسیره، وابسته به حوثی‌های یمن، گزارش داد این گروه نیابتی جمهوری اسلامی یک کشتی حامل «تجهیزات نظامی» عربستان سعودی را در باب‌المندب هدف قرار داده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254710
-
-<div align="center"><video src="files/post_254710_VahidOOnLine_254710.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254710_VahidOOnLine_254710.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد یکی از معترضان شعاری را روی سطل زباله نوشته است: «کجا جنگ رو بردیم؟ نه آب داریم نه برق نه پول غذا»
 IranintlTV
 
 🤖 @VahidOOnLine

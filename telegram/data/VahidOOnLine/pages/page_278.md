@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 278
 
-📅 آخرین بروزرسانی: 1405/06/02 00:14
+📅 آخرین بروزرسانی: 1405/06/02 00:43
 
 ---
+
+## VahidOOnLine — post 249834
+
+<div align="center"><video src="files/post_249834_VahidOOnLine_249834.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249834_VahidOOnLine_249834.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال دود سفید برخاسته از انفجاری را در امیدیه استان خوزستان در بامداد یکشنبه ۲۱ تیر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249833
 
@@ -269,17 +282,6 @@ iranintl
 
 گزارش کامل را اینجا بخوانید
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249814
-
-<div align="center"><img src="files/post_249814_VahidOOnLine_249814.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️روابط عمومی سپاه پاسداران با انتشار اطلاعیه شماره سه خود، از «انهدام» تجهیزات و مواضع ارتش ایالات متحده در کویت خبر داد. براساس این بیانیه، نیروی هوافضای سپاه در سومین مرحله از عملیات، «مخازن سوخت و سامانه پدافند هوایی پاتریوت در پایگاه آمریکایی علی سالم و همچنین یک سامانه راداری راهبردی FPS را در پایگاه احمد الجابر هدف قرار دادند.» این در حالی است که هنوز مقامات کویت یا ارتش آمریکا گزارشی درباره حمله به این دو پایگاه منتشر نکرده‌اند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

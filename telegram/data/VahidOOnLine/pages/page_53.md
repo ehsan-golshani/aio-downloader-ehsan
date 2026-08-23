@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/06/02 00:14
+📅 آخرین بروزرسانی: 1405/06/02 00:43
 
 ---
+
+## VahidOOnLine — post 255283
+
+<div align="center"><img src="files/post_255283_VahidOOnLine_255283.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانک مرکزی جمهوری اسلامی اعلام کرد یک تامین‌کننده خارجی، گواهی امنیتی برخی وب‌سایت‌های مرتبط با این بانک را لغو کرده و کاربران ممکن است هنگام ورود به این سایت‌ها پیام خطای امنیتی دریافت کنند.
+
+بانک مرکزی همچنین اعلام کرد این موضوع ناشی از حمله سایبری به زیرساخت‌های بانک مرکزی نیست و تمامی خدمات بانک مرکزی برقرار است و اقدامات لازم برای اتخاذ تدابیر جایگزین و رفع مشکل گواهی امنیتی در حال انجام است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255282
 
@@ -284,19 +297,6 @@ ManotoTV
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تصاویری از بیست‌وششمین اجلاس سالانه انجمن بین‌المللی حمل‌ونقل هوایی (یاتا) که در سال ۱۳۴۹ خورشیدی (۱۹۷۰ میلادی) در تهران برگزار شد؛ رویدادی بین‌المللی که نمایندگان و مدیران صنعت هوانوردی جهان را برای گفت‌وگو درباره مسائل و آینده حمل‌ونقل هوایی، در ایران گرد هم آورد.
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255248
-
-<div align="center"><video src="files/post_255248_VahidOOnLine_255248.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255248_VahidOOnLine_255248.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اچمی، زبانی کهن از جنوب ایران، هنوز بخشی از ساخت‌ها و واژگان زبان‌های ایرانی گذشته را در خود حفظ کرده است. زبانی زنده که بقای آن به انتقال از نسلی به نسل دیگر وابسته است.
 ManotoTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/06/01 22:53
+📅 آخرین بروزرسانی: 1405/06/02 00:45
 
 ---
+
+## tasiyanc — post 8513
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+⭕️ انفجار در بندرعباس
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8512
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان.
+
+مشاهده فیلم 👉
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+💪 انفجار در شیراز
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8508
 
@@ -228,32 +258,5 @@ Loc 🇩🇪 🇩🇪
 🚨⭕️ گزارش انفجار در زنجان ، تابیده؟
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8472
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ صدای انفجار در خرم آباد
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8471
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️صدای انفجار مهیب در کنارك
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ اورمیه و چابهار صدای انفجارررر
-
-@TASIYANC 
-✅
 </div>
 

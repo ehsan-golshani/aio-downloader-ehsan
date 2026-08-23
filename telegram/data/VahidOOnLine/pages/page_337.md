@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 337
 
-📅 آخرین بروزرسانی: 1405/06/02 00:14
+📅 آخرین بروزرسانی: 1405/06/02 00:43
 
 ---
+
+## VahidOOnLine — post 248523
+
+<div align="center"><video src="files/post_248523_VahidOOnLine_248523.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248523_VahidOOnLine_248523.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که یک معترض در لرستان، شعار «جاوید شاه» را روی دیوار نوشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248522
 
@@ -256,18 +269,6 @@
 
 بیشتر بخوانید...
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248503
-
-<div align="center"><img src="files/post_248503_VahidOOnLine_248503.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خیرت ویلدرس، رهبر حزب آزادی و نماینده پارلمان هلند، در پیامی در شبکه اجتماعی ایکس نوشت که نباید برای علی خامنه‌ای سوگواری کرد و او را «هیولا، قصاب و قاتل» خواند.
-ویلدرز در ادامه این پیام نوشت: «مردم ایران شایسته سکولاریسم و آزادی هستند.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

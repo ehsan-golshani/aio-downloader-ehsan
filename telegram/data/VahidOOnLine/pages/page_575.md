@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 575
 
-📅 آخرین بروزرسانی: 1405/06/02 00:14
+📅 آخرین بروزرسانی: 1405/06/02 00:43
 
 ---
+
+## VahidOOnLine — post 242177
+
+<div align="center"><video src="files/post_242177_VahidOOnLine_242177.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_242177_VahidOOnLine_242177.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمد مرندی، کارشناس حکومتی و عضو هیات مذاکره‌کنندگان جمهوری اسلامی در مذاکرات جاری، در تلویزیون گفت قطر پذیرفته بخشی از دارایی‌های بلوکه‌شده حکومت را پیشاپیش تامین و بعد، از آمریکا دریافت کند. او دلیل این اقدام را درک قدرت جمهوری اسلامی و نتایج ایستادگی آن عنوان کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242176
 
@@ -251,21 +264,6 @@
 ## VahidOOnLine — post 242156
 
 <div align="center"><img src="files/post_242156_VahidOOnLine_242156.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یدالله جوانی، معاون سیاسی سپاه پاسداران، گفت «هادیان سیاسی» باید «روایت پیروزی ملت ایران» را برای جامعه بازگو کنند و افزود دشمن پس از شکست در میدان، تلاش می‌کند در جامعه «اختلاف، تردید و سستی» ایجاد کند.
-
-او گفت: «اگر مجاهدت در میدان نباشد، دشمن شکست نمی‌خورد.»
-
-معاون سیاسی سپاه پاسداران افزود: «دشمنی که در میدان شکست خورده است تلاش می‌کند در جامعه اختلاف، تردید، ابهام و سستی ایجاد کند.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242155
-
-<div align="center"><img src="files/post_242155_VahidOOnLine_242155.jpg" alt="Photo"></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یدالله جوانی، معاون سیاسی سپاه پاسداران، گفت «هادیان سیاسی» باید «روایت پیروزی ملت ایران» را برای جامعه بازگو کنند و افزود دشمن پس از شکست در میدان، تلاش می‌کند در جامعه «اختلاف، تردید و سستی» ایجاد کند.

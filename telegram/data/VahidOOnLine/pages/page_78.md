@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/06/02 00:14
+📅 آخرین بروزرسانی: 1405/06/02 00:43
 
 ---
+
+## VahidOOnLine — post 254690
+
+<div align="center"><video src="files/post_254690_VahidOOnLine_254690.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254690_VahidOOnLine_254690.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در حالی که بسیاری از نقاط ایران، به‌ویژه تهران، طی روزهای اخیر با گرمای شدید هوا روبه‌رو بوده‌اند، بارش باران و مه غلیظ روز سه‌شنبه ۱۹ مردادماه در شهرستان فیروزکوه، چهره‌ای متفاوت از آب‌وهوای تابستانی را به نمایش گذاشت.
+تصاویر منتشرشده از این منطقه، بارش باران و کاهش محسوس دما همراه با مه‌گرفتگی را نشان می‌دهد؛ شرایطی که در میانه فصل تابستان، تضادی چشمگیر با هوای گرم حاکم بر بخش‌های وسیعی از ایران ایجاد کرده است
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254689
 
@@ -271,19 +285,6 @@ Indypersian
 
 شهردار تهران در پاسخ به این پرسش که آیا در آن زمان از آسیب ندیدن دفتر رهبری اطمینان حاصل کرده بود، گفت: «برای من مسجل نشد. پرسیدم، اما دوستان پاسخ صریح ندادند. البته برای برخی از افراد نزدیک، موضوع روشن شده بود، اما به من نگفتند.»
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254670
-
-<div align="center"><video src="files/post_254670_VahidOOnLine_254670.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254670_VahidOOnLine_254670.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با انتشار ویدیویی در رسانه‌های اجتماعی، از وضعیت کساد میدان میوه و تره‌بار در کرج می‌گوید. یکی از بازاریان می‌گوید: «بازار نابود است. همه بارها مانده.»
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

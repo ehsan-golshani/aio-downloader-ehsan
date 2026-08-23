@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/01 22:53
+📅 آخرین بروزرسانی: 1405/06/02 00:45
 
 ---
+
+## tasiyanc — post 9207
+
+<div align="center"><img src="files/post_9207_tasiyanc_9207.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📞 با پروکسی هم میشه تماس تلگرامی گرفت؟
+
+⚡️ بله حتماً! شاید تا حالا اگه میخواستید به کسی زنگ بزنید مجبور بودید فیلترشکن قوی وصل کنید و کلی دردسر بکشید؛ ولی الان میخوام یه ترفند خوب بهتون بگم که دیگه به هیچ VPN اضافی نیاز ندارید.
+
+⚡️ قدم اول: برید تو تنظیمات و بخش Privacy and security رو باز کنید. بعد Call رو انتخاب کنید، گزینه Use Peer-to-Peer with رو بزنید و My Contacts رو انتخاب کنید.
+
+⚡️ حالا برگردید عقب و به بخش Data and Storage برید. گزینه Use less data for calls رو پیدا کنید و روی حالت Always بذارید تا مصرف اینترنت کم بشه.
+
+⚡️ کافیه فقط یه پروکسی MTPROTO خوب و پایدار وصل باشید و تماس بگیرید. فقط یه نکته مهم: حتماً طرف مقابل باید آنلاین باشه و شماره شما توی لیست مخاطبانشون ذخیره شده باشه.
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 9206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
+
+## tasiyanc — post 9205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی⁉️
+
+🔥کمپانی بین المللی We pari همون انتخاب🔥
+
+            👑سایتی برای حرفه ای ها👑
+
+🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
+
+🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
+💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
+💖واریز اول و هر شنبه 2 برابر شارژ میشین
+💖تسویه حساب سریع و بدون احراز
+💖دارای مجوز رسمی Anjuan و curacao
+💖فعالیت بدون تخلف در کشورهای مختلف دنیا
+💖بازگشت بخشی از باخت به صورت هفتگی
+💖اسپانسر سوپر  لیگ ترکیه
+😃😃😃😃
+👑کد هدیه ثبت نام:GG007
+
+👑ادرس سایت:
+http://til.ac/z5jcpGT
+ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
+
+👑دانلود اپلیکیشن اندروید➡️
+g21
+🔥کانال اطلاع رسانی ایران:👇
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
 
 ## tasiyanc — post 9204
 
@@ -299,52 +357,5 @@ Use uploaded images as face reference. Absolute face lock. Black-and-white minim
 
 @TASIYANC 
 ⭐️
-</div>
-
-## tasiyanc — post 9177
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated Multi⚡️━━━╮
-
-vless://06d44c57-8e1a-41f4-b9c4-65d35869e078@78.17.126.222:13868?security=reality&encryption=none&pbk=sgpya-5ohMKCjzyrDe4RWz7b8O9XegDzQ88oHCV45Gk&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=booking.com&sid=e852dc#%F0%9F%94%A5%20%40Tasiyanc
-
-vless://06d44c57-8e1a-41f4-b9c4-65d35869e078@78.17.125.201:13868?security=reality&encryption=none&pbk=sgpya-5ohMKCjzyrDe4RWz7b8O9XegDzQ88oHCV45Gk&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=booking.com&sid=e852dc#%F0%9F%94%A5%20%40Tasiyanc
-
-vless://e4514801-0d5a-42ba-869f-39bd605aef9e@18.153.84.121:22222?security=&encryption=none&headerType=none&type=tcp#%F0%9F%A1%A0%20%40Tasiyanc
-
-vless://e4514801-0d5a-42ba-869f-39bd605aef9e@63.178.105.116:22224?security=&encryption=none&headerType=none&type=tcp#%F0%AA%9A%82%20%40Tasiyanc
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9175
-
-<div align="center"><img src="files/post_9175_tasiyanc_9175.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی 
-🆕
-
-" Golden Sunflower Gaze "
-
-Prompt 🤖🤖
-
-Ultra realistic beauty portrait using the reference image as identity anchor, preserve exact facial features, bone structure, eye shape, lips, skin tone, natural asymmetry and overall likeness. Extreme close-up, direct eye contact, sunflower covering half the face, petals softly touching cheek, nose and lips, delicate floral shadows on skin. Luxury skincare campaign, Vogue Beauty cover style, intimate editorial photography, shallow depth of field, ultra detailed flower texture, crisp iris details, warm cinematic highlights, soft shadows, natural window light, Canon EOS R5, RF 85mm f/1.2L, subtle film grain, fine art floral portrait, luxury beauty advertisement, elegant feminine mood, Pinterest-worthy composition.Photorealistic 8K, realistic anatomy, no Al look, no beauty filter, no skin smoothing, visible pores, authentic skin texture, vertical 5:7.
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9174
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
-✅اسپانسر لیگ انگلستان
-👑 امکان شارژ و برداشت با کارت بانکی
-⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
-😀Telegram Channel👇
-https://t.me/+c5jwC3lt9z45NTE0
 </div>
 

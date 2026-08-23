@@ -1,8 +1,17 @@
 # آرشیو کانال VahidOOnLine - صفحه 285
 
-📅 آخرین بروزرسانی: 1405/06/02 00:14
+📅 آخرین بروزرسانی: 1405/06/02 00:43
 
 ---
+
+## VahidOOnLine — post 249684
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از متقاضیان خودروی سنگین یکشنبه ۲۱ تیر در اعتراض به تحویل نگرفتن خودروهای خود از شرکت‌های اعیان تجارت، گلوبال و ممتاز، مقابل ساختمان قوه قضاییه در تهران تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249683
 
@@ -268,19 +277,6 @@ iranintl
 
 او همچنین نوشت برخی این «سوءتفاهم» را تفاهم‌نامه نامیده‌اند.
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249657
-
-<div align="center"><img src="files/post_249657_VahidOOnLine_249657.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عربستان سعودی اعلام کرد که جمهوری اسلامی همچنان اصول حقوق بین‌الملل و قواعد حسن همجواری را نقض می‌کند.
-
-در بیانیه این کشور تاکید شده که تکرار حملات جمهوری اسلامی به کشتی‌های تجاری امنیت و آزادی کشتیرانی را تهدید می‌کند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

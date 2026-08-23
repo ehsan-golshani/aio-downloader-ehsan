@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 224
 
-📅 آخرین بروزرسانی: 1405/06/02 00:14
+📅 آخرین بروزرسانی: 1405/06/02 00:43
 
 ---
+
+## VahidOOnLine — post 251148
+
+<div align="center"><img src="files/post_251148_VahidOOnLine_251148.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش وای‌نت، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، شامگاه دوشنبه ۲۹ تیر جلسه کابینه امنیتی برگزار خواهد کرد.
+
+وای‌نت همچنین افزود این جلسه در حالی تشکیل می‌شود که نگرانی‌ها درباره ادامه تشدید تنش‌ها با جمهوری اسلامی افزایش یافته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251147
 
@@ -266,19 +279,6 @@ iranintl
 
 
 دقایقی پیش از آن نیز زمین‌لرزه‌ای به بزرگی ۵.۲، همین منطقه در استان کرمانشاه را لرزانده بود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251109
-
-<div align="center"><img src="files/post_251109_VahidOOnLine_251109.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زمین‌لرزه‌ای به بزرگی ۵.۲، صبح دوشنبه، ۲۹ تیرماه کوزران در استان کرمانشاه را لرزاند.
-بنا بر این گزارش این زمین‌لرزه در مناطق مختلفی از غرب ایران احساس شده است.
-تا لحظه تنظیم این خبر گزارشی از میزان خسارات احتمالی این زمین‌لرزه منتشر نشده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 277
 
-📅 آخرین بروزرسانی: 1405/06/02 00:14
+📅 آخرین بروزرسانی: 1405/06/02 00:43
 
 ---
+
+## VahidOOnLine — post 249855
+
+<div align="center"><img src="files/post_249855_VahidOOnLine_249855.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدرضا صباغیان، نماینده بافق در مجلس، با اشاره به مشکلات معیشتی و اقتصادی، به خبرگزاری ایلنا گفت: «ما مشکل داخلی داریم، مشکل بیرونی نداریم؛ ما سیستم اقتصادی، سیاسی و اداری کشورمان به گونه‌ای است که اگر جنگ هم تمام شود، باز هم خواهیم لنگید.»
+
+این نماینده مجلس ادامه داد: «مدیریت در دوره جنگ و پساجنگ تفاوتی نمی‌کند. ما باید اصولی داشته باشیم و متناسب با آن اصول و راهبردهای خودمان حرکت کنیم.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249854
 
@@ -283,19 +297,6 @@ iranintl
 
 سیل تابستانی در چین و دیگر کشورهای شرق آسیا ده‌ها کشته بر جای گذاشته است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249834
-
-<div align="center"><video src="files/post_249834_VahidOOnLine_249834.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249834_VahidOOnLine_249834.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال دود سفید برخاسته از انفجاری را در امیدیه استان خوزستان در بامداد یکشنبه ۲۱ تیر نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

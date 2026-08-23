@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/06/01 22:53
+📅 آخرین بروزرسانی: 1405/06/02 00:45
 
 ---
+
+## tasiyanc — post 7988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هم اکنون حملات آمریکا پایان یافت ، حملات سپاه به سمت کویت ، بحرین آغاز شد
+@TasiyanC ⭐️
+</div>
+
+## tasiyanc — post 7987
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر شب جنگ خلیج فارس داریم همو میزنن روزا آروم میشن😐
+</div>
+
+## tasiyanc — post 7986
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7985
 
@@ -205,38 +242,5 @@ Speed Fast ⚡ 🇩🇪.npvt
 اصفهان:
 
 @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 7938
-
-<div align="center"><img src="files/post_7938_tasiyanc_7938.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با این پرامپت بچگیتو در آغوش بگیر 👼
-از اون پرامپت‌های وایرال شده و به شدت جذابه ..
-
-Take a photo taken with a Polaroid camera. The photo should look like an ordinary photograph, without an explicit subject or property. The photo should have a slight blur and consistent light source, like a flash from a dark room, scattered throughout the photo.Don't change the face.
-Change the background behind those two people with white curtains. With hugging me.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7937
-
-<div align="center"><img src="files/post_7937_tasiyanc_7937.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏جوری که این مدت گذشت:
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7936
-
-<div align="center"><img src="files/post_7936_tasiyanc_7936.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همین گنده گوزیا بگاتون داد
-
-@Tasiyanc ⭐️
 </div>
 

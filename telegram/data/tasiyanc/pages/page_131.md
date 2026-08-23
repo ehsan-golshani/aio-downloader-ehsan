@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 131
 
-📅 آخرین بروزرسانی: 1405/06/01 22:53
+📅 آخرین بروزرسانی: 1405/06/02 00:45
 
 ---
+
+## tasiyanc — post 5631
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمام سرورا با همراه اول & وای‌فای تست میشن
+</div>
+
+## tasiyanc — post 5629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈۲سرور تست شده همه اپراتورا⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5628
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرورای وای‌فای ک بالا گذاشتم هنوز وصله✅
+</div>
 
 ## tasiyanc — post 5627
 
@@ -138,23 +164,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🥹💋 fadatooooooooooooonnn
-</div>
-
-## tasiyanc — post 5599
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خیلی خوبن🥹
-</div>
-
-## tasiyanc — post 5598
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من فقط با نپستر این چنل وصلم
-</div>
-
-## tasiyanc — post 5597
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
 </div>
 
