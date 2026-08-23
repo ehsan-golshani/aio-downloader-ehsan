@@ -1,8 +1,63 @@
 # آرشیو کانال VahidOOnLine - صفحه 305
 
-📅 آخرین بروزرسانی: 1405/06/01 10:44
+📅 آخرین بروزرسانی: 1405/06/01 11:28
 
 ---
+
+## VahidOOnLine — post 249129
+
+<div align="center"><img src="files/post_249129_VahidOOnLine_249129.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️یک مقام آمریکایی به پاملا براون، خبرنگار سی‌ان‌ان که در ناو هواپیمابر آبراهام لینکلن در شمال دریای عرب حضور دارد، گفت آتش‌بس با ایران «دست‌کم به‌طور موقت متوقف شده است.»
+این مقام افزود وضعیت مربوط به ایران همچنان بسیار متغیر است و ممکن است فراتر از حملاتی که تاکنون اعلام شده، حملات بیشتری نیز انجام شود. به گفته او، ارتش آمریکا در حال حاضر در وضعیت «صبر و مشاهده» قرار دارد و اهداف حملات امشب، موشک‌ها و پهپادهایی بوده‌اند که می‌توانند علیه تجهیزات و دارایی‌های آمریکا، از جمله ناوهای هواپیمابر، به کار گرفته شوند.
+این مقام همچنین گفت آمریکا اهدافی را در اطراف تنگه هرمز که می‌توانستند امنیت کشتیرانی را تهدید کنند، هدف قرار داده است. به گفته او، در تازه‌ترین موج حملات، نیروی دریایی آمریکا نیز مشارکت داشته و این حملات هم از دریا و هم از خشکی انجام شده‌اند.
+او افزود در حال حاضر، عملیات ناو هواپیمابر آبراهام لینکلن ماهیتی دفاعی دارد. این ناو همچنین می‌تواند برای نظارت بر تنگه هرمز و در صورت اجرای دوباره محاصره دریایی، در آن عملیات نیز به کار گرفته شود.
+این مقام تاکید کرد که انجام حملات تهاجمی نیز، بسته به روند تحولات، همچنان منتفی نیست.
+دونالد ترامپ، رئیس‌جمهوری آمریکا، پیش‌تر امروز اعلام کرده بود که تفاهم با تهران «پایان یافته است»، اما در عین حال گفت که مذاکرات صلح همچنان می‌تواند ادامه پیدا کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249128
+
+<div align="center"><img src="files/post_249128_VahidOOnLine_249128.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری فارس در نخستین ساعات بامداد پنجشنبه ۱۹ تیرماه و همزمان با ادامه حملات گسترده آمریکا به مواضع نظامی در نوار جنوبی ایران، از وقوع انفجار و بلند شدن ستون‌های دود در فرودگاه ایرانشهر استان سیستان و بلوچستان خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249127
+
+<div align="center"><img src="files/post_249127_VahidOOnLine_249127.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️فرماندهی مرکزی ایالات متحده، سنتکام، شامگاه چهارشنبه ۱۷ تیرماه اعلام کرد به دستور فرمانده کل قوا، ارتش آمریکا حملات بیشتری را علیه ایران آغاز کرده‌ تا توانایی این کشور برای تهدید آزادی کشتیرانی در تنگه هرمز را بیش از پیش تضعیف کند.
+
+سنتکام در این بیانیه افزود ایالات متحده ایران را بابت حملات اخیر به کشتی‌های تجاری و خدمه غیرنظامی در این آبراه حیاتی بین‌المللی مسئول می‌داند.
+
+رسانه‌های ایران از حملات گسترده ارتش آمریکا به شهرها و بنادر ساحل جنوبی ایران در استان‌های بوشهر، هرمزگان و سیستان و بلوچستان خبر می‌دهند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249126
+
+<div align="center"><img src="files/post_249126_VahidOOnLine_249126.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری مهر گزارش داد صدای چند انفجار در منطقه شمال شرقی «ایرانشهر» واقع در استان سیستان و بلوچستان شنیده شده است.
+
+این خبر هم‌زمان با ادامه حملات آمریکا به اهدافی در جنوب و جنوب‌شرق ایران منتشر شده و جزئیات بیشتری درباره محل انفجارها یا خسارت‌های احتمالی اعلام نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249125
 
@@ -212,59 +267,6 @@
 خبرگزاری مهر گزارش داد در حمله‌های آمریکا به بخش‌هایی از استان بوشهر، هیچ آسیبی به نیروگاه اتمی بوشهر وارد نشده است.
 
 این خبرگزاری به نقل از منابع خود افزود جای هیچ‌گونه نگرانی در این زمینه وجود ندارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249109
-
-<div align="center"><video src="files/post_249109_VahidOOnLine_249109.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249109_VahidOOnLine_249109.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای ارسال‌شده به ایران‌اینترنشنال، وقوع انفجارهای مهیب را در بندرعباس در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249108
-
-<div align="center"><video src="files/post_249108_VahidOOnLine_249108.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249108_VahidOOnLine_249108.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️بامداد پنجشنبه ۱۸ تیرماه، حساب کاربری وحیدآنلاین تصاویری را در شبکه اجتماعی اکس منتشر کرد که انفجارهای شدید در پی حمله آمریکا به اهداف نظامی جمهوری اسلامی در بوشهر را نشان می‌دهد.
-پیش‌تر، سنتکام از آغاز حملات بیشتر آمریکا خبر داده و اکسیوس نیز گزارش داده بود اهداف نظامی جمهوری اسلامی در تنگه هرمز هدف حملات آمریکا قرار گرفته‌اند. همزمان، رسانه‌های داخلی از انفجار در بندرعباس، سیریک، چابهار، کنارک و جزیره ابوموسی خبر داده بودند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249107
-
-<div align="center"><video src="files/post_249107_VahidOOnLine_249107.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249107_VahidOOnLine_249107.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای منتشرشده در حساب کاربری «وحید آنلاین» و شبکه‌های اجتماعی، حملات سنگین آمریکا به چابهار را در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249106
-
-<div align="center"><video src="files/post_249106_VahidOOnLine_249106.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249106_VahidOOnLine_249106.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال، وقوع انفجارهای مهیب را در بندرعباس در شامگاه چهارشنبه ۱۷ تیر نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

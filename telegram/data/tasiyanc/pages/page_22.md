@@ -1,8 +1,122 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/05/31 23:42
+📅 آخرین بروزرسانی: 1405/06/01 11:31
 
 ---
+
+## tasiyanc — post 9003
+
+<div align="center"><video src="files/post_9003_tasiyanc_9003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9003_tasiyanc_9003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تهران نوروز ۱۳۵۶ نزدیک به ۵۰ سال پیش
+😭 !!
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 
+🖤 Config Unlimated Vip 
+⚡️━━━╮
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.210:8080#%F0%9F%87%B3%F0%9F%87%B1NL%20%40Tasiyanc
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.176:8080#%F0%9F%87%B3%F0%9F%87%B1NL%20%40Tasiyanc
+
+ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@141.98.101.179:443#%F0%9F%87%AC%F0%9F%87%A7GB%20%20%40TASIYANC
+
+ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@141.98.101.178:443#%F0%9F%87%AC%F0%9F%87%A7GB%20%20%40TASIYANC
+
+
+📍Location 
+🇬🇧
+🇳🇱
+
+
+📱@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9001
+
+<div align="center"><video src="files/post_9001_tasiyanc_9001.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9001_tasiyanc_9001.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet
+💥
+
+
+🎁بونوس ورزشی هر چهارشنبه
+🔥
+
+💸واریز و برداشت متنوع
+💵
+
+⭕️بدون نیاز به فیلتر شکن
+⭕️
+R14
+
+🎁کد هدیه ثبت نام Melbet90 ✌️
+
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9000
+
+<div align="center"><video src="files/post_9000_tasiyanc_9000.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9000_tasiyanc_9000.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 
+👍
+😁
+😊
+🙂
+
+🥇واریز و برداشت ارزی و ریالی
+‼️
+
+🔥بونوس 100% اولین واریز
+‼️
+
+⚽️بونوس ورزشی هرچهارشنبه
+‼️
+
+🆗کازینو و انفجار با ضرایب جهانی
+‼️
+
+
+🎁کد هدیه ثبت نام :Melbet90
+
+
+🇩🇪دانلود اپلیکیشن MELBET
+👉
+
+
+🔗لینک وبسایت
+👉
+
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
+🇨🇦 
+🇹🇷 r14
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 8998
 
@@ -238,75 +352,5 @@ Fast - HCustum 🇮🇹B.hc
 
 💙@TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8980
-
-<div align="center"><video src="files/post_8980_tasiyanc_8980.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8980_tasiyanc_8980.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی مراسم اربعین امسال، آهوهای ایرانیو کباب کردن میدن به زائرین!!!
-
-⚠️ حاوی تصاویر دلخراش.
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8978
-
-<div align="center"><video src="files/post_8978_tasiyanc_8978.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8978_tasiyanc_8978.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید خواهر جاویدنام دانیال مرادی‌زاده، قلب هر انسانی رو بدرد میاره ...
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8977
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 
-🖤 Config Unlimated Vip 
-👑 ━━━╮
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca20.exodnsdir.xyz:8880?mode=gun&security=none&encryption=none&type=grpc#%40Tasiyanc%20%E2%9A%A1%F0%9F%8F%9D%EF%B8%8F%F0%9F%87%AE%F0%9F%87%B9
-
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTo3ZTczMWVjMy1mOGUxLTQzZjYtOTJjZi0zOTc4ZDE0NzA1YzQ@r3mrcg001287h3p.cybervena.com:50099#%40Tasiyanc%20%F0%9F%8F%9D%EF%B8%8F%E2%9A%A1%F0%9F%87%B9%F0%9F%87%BC
-
-vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiJAUHJveHlWUE4xMSIsImlkIjoiMDQ2MjFiYWUtYWIzNi0xMWVjLWI5MDktMDI0MmFjMTIwMDAyIiwiaW5zZWN1cmUiOiIwIiwibmV0IjoidGNwIiwicGF0aCI6Ii8gQFByb3h5VlBOMTEiLCJwY3MiOiIiLCJwb3J0IjoiMjIzMjQiLCJwcyI6IkBUYXNpeWFuYyDwn4+d77iP4pqh8J+HrPCfh6ciLCJzY3kiOiJhdXRvIiwic25pIjoiIiwidGxzIjoiIiwidHlwZSI6Im5vbmUiLCJ2IjoiMiIsInZjbiI6IiJ9
-
-
-📍Location 🇬🇧🇮🇹🇹🇼
-
-
-👹@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8976
-
-<div align="center"><video src="files/post_8976_tasiyanc_8976.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8976_tasiyanc_8976.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥با این سایت به راحتی میتونی کل ضرر های جام جهانی رو جبران کنی
-بونوس هاش واقعا عالیه👌🏼بدون قیدوشرط
-
-❌با هر 1 میلیون شارژ ، 
-🤩
-🤩
-🤩 هزارتومان شارژ اضافی بگیر
-🅰️
-
-
-❌
-❌طرح شارژ رایگان فقط تا پایان مرداد ماه
 </div>
 

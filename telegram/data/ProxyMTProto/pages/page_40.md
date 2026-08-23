@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/06/01 10:45
+📅 آخرین بروزرسانی: 1405/06/01 11:29
 
 ---
+
+## ProxyMTProto — post 49628
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49627
 
@@ -165,15 +174,6 @@ Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e
 Server: net.pelmeshka.top
 Port: 443
 Secret: ee2e70efdb3ae33dd0c1d1db1ae6930b986e65742e70656c6d6573686b612e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Vije-download.co.uk.
-Port: 443
-Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/05/31 23:42
+📅 آخرین بروزرسانی: 1405/06/01 11:31
 
 ---
+
+## tasiyanc — post 6076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+150 گیگ تو گپ تاسیان کانفیگ ویتوری
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6075
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FastVip⚡.npvt
+</div>
+
+## tasiyanc — post 6074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی همه اپراتورا🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میخواستم کانفیگ اوپن دیگه بدم ولی ری اکشن کمه
+</div>
 
 ## tasiyanc — post 6072
 
@@ -151,29 +185,5 @@ Hot Servers 🔥🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نزنه رسانه ای میکنم
-</div>
-
-## tasiyanc — post 6046
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکم صبر میکنم دیل آک بزنه
-</div>
-
-## tasiyanc — post 6045
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امین زحمت کشید شماره و آدرس و شماره بابای جاکشش درآورده
-</div>
-
-## tasiyanc — post 6044
-
-<div align="center"><img src="files/post_6044_tasiyanc_6044.jpg" alt="Photo"></div>
-
-## tasiyanc — post 6043
-
-<div align="center"><img src="files/post_6043_tasiyanc_6043.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
 </div>
 

@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/05/31 23:42
+📅 آخرین بروزرسانی: 1405/06/01 11:31
 
 ---
+
+## tasiyanc — post 8373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب زیادی ساکته اوضاع و این موضوع بیشتر ترسناک و دلهره آوره
+</div>
+
+## tasiyanc — post 8372
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 
+🔐
+
+5سرور سرعتی پرمیوم دارای ۳ لوکیشن  ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8371
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏴󠁧󠁢󠁥󠁮󠁧󠁿 🇫🇷 کدوم می‌بره؟
+
+
+نتیجه دقیق بگید تا قبل شروع بازی کانفیگ وایرگارد هدیه بگیرید
+</div>
+
+## tasiyanc — post 8369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرگزرای CBS به نقل از مقام نظامی: حملات امشب دقایقی دیگر آغاز میشود و گستردگی بیشتری دارد
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8367
 
@@ -182,58 +230,5 @@ Multi Location ⚡ Fast.npvt
 حواس خانواده پرت میشه آب بچه رو میبره و نیروی دریایی ارتش این بچه رو لب مرز دریایی امارات پیدا میکنن و برمیگردونن🤣🤣
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8342
-
-<div align="center"><img src="files/post_8342_tasiyanc_8342.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معلم جلوی پروژکتور معلم کنار پروژکتور
-
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8341
-
-<div align="center"><img src="files/post_8341_tasiyanc_8341.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴10 فیلم معروفی که پایان‌بندی‌شون غافلگیرتون می‌کنه و پشماتون از دیدنشون میریزه:
-
-▪️The Sixth Sense 1999
-▫️Se7en 1995
-▪️Fight Club 1999
-▫️The Prestige 2006
-▪️Shutter Island 2010
-▫️The Usual Suspects 1995
-▪️ Oldboy 2003
-▫️Primal Fear 1996
-▪️The Mist 2007
-▫️Incendies 2010
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 18 July، روز جهانی گوش دادن
-گوش دادن به آهنگ و چیزای دیگه مثل کسشرای رفیقته
-
-@Tasiyanc ✅| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8335
-
-<div align="center"><img src="files/post_8335_tasiyanc_8335.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زیبایي کوههای مریخيِ چابهارِ زیبا
-
-پروکسی | پروکسی | پروکسی | پروکسی
-
-@Tasiyanc ✅ | مرجع کانفیگ
 </div>
 

@@ -1,8 +1,70 @@
 # آرشیو کانال VahidOOnLine - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/01 10:44
+📅 آخرین بروزرسانی: 1405/06/01 11:28
 
 ---
+
+## VahidOOnLine — post 255855
+
+<div align="center"><img src="files/post_255855_VahidOOnLine_255855.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌های ایران گزارش دادند که در جلسه آنلاین چهارشنبه مجلس شورای اسلامی، ۳۸ تن از نمایندگان در تذکری به مسعود پزشکیان، خواستار برخورد با «مروجان فرهنگ برهنگی» در جامعه شدند.
+
+بنا بر این گزارش، تذکر محمدرضا احمدی سنگری، نماینده رشت و ۳۷ نماینده دیگر در جلسه مجلس قرائت شده است.
+
+این نمایندگان، در خصوص «ضرورت مواظبت از فرهنگ اصیل ایرانی و اسلامی، حفظ ارزش‌های دفاع مقدس و برخورد با هنجارشکنان و مروجان فرهنگ برهنگی در جامعه» به مسعود پزشکیان تذکر دادند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255854
+
+<div align="center"><video src="files/post_255854_VahidOOnLine_255854.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255854_VahidOOnLine_255854.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مخاطبان با ارسال ویدیوهایی یاد فرحناز اسپد، روزنامه‌نگار و مجری ایران‌اینترنشنال را گرامی داشتند.
+
+فرحناز اسپد پس از تحمل یک دوره بیماری سخت، در ۳۷ سالگی چشم از جهان فروبست.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255853
+
+<div align="center"><video src="files/post_255853_VahidOOnLine_255853.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255853_VahidOOnLine_255853.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدباقر قالیباف، رئیس مجلس و عضو ارشد هیات مذاکره‌کننده جمهوری اسلامی، روز چهارشنبه ۲۸ مردادماه در بغداد با نزار آمیدی، رئیس جمهوری عراق دیدار و گفتگو کرد.
+
+این سفر همزمان با ادامه تنش‌ها در خاورمیانه و یک روز پس از پایان مهلت ۶۰ روزه توافق میان تهران و واشنگتن براساس تفاهم‌نامه اسلام‌آباد انجام می‌شود.
+
+دولت عراق اعلام کرده که گروه‌های شبه‌نظامی باید تا ماه آینده سلاح خود را تحویل دهند. شبه‌نظامیان حشد شعبی که در دوران حملات داعش و با حمایت جمهوری اسلامی تشکیل شدند، در برابر این تصمیم مقاومت می‌کنند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255852
+
+<div align="center"><img src="files/post_255852_VahidOOnLine_255852.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش وای‌نت، نفتالی بنت، نخست‌وزیر پیشین اسرائیل، گفت که در صورت بازگشت به قدرت، معادله بازدارندگی را تغییر خواهد داد و هر حمله حزب‌الله باعث خواهد شد ما ایران را هدف قرار دهیم.
+
+نفتالی بنت همچنین وعده داد قطر را «کشور دشمن» اعلام کند.
+
+نخست‌وزیر پیشین اسرائیل ادامه داد: «ترکیه و قطر را از غزه خارج خواهیم کرد و به جای آن‌ها مصر را وارد می‌کنیم و در عین حال آزادی عمل اسرائیل در غزه را حفظ خواهیم کرد.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255845
 
@@ -247,66 +309,6 @@ IranintlTV
 نایب‌رییس مجلس گفت: «تحولات اخیر، ملت‌های آزادی‌خواه جهان را به این نتیجه رسانده است که اقتدار و امنیت یک کالای وارداتی و خریدنی نیست، بلکه یک فرآیند درون‌زا و مبتنی بر اراده ملت‌هاست.»
 
 نیکزاد همچنین افزود کشور را نمی‌توان در «شرایط جنگی با رویکرد عادی اداره کرد» و گفت: «مجلس برای انجام اصلاحات عزم جدی دارد و از تمام ابزارهای قانونی خود در این زمینه استفاده خواهد کرد.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255829
-
-<div align="center"><video src="files/post_255829_VahidOOnLine_255829.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255829_VahidOOnLine_255829.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری مهر روز چهارشنبه ۲۸ مردادماه و همزمان با سفر محمدباقر قالیباف به عراق، ویدیویی از اهدای یک تابلوفرش از طرف هیات پارلمانی جمهوری اسلامی به محمد الحبوسی، رئیس مجلس ملی عراق را منتشر کرد.
-
-براساس قانون اساسی عراق پس از سقوط صدام حسین، رئیس مجلس از اهل سنت این کشور است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255828
-
-<div align="center"><img src="files/post_255828_VahidOOnLine_255828.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاینشنال تایمز روز چهارشنبه ۲۸ مردادماه با انتشار گزارشی به نقل از دو مقام ارشد جمهوری اسلامی گزارش کرد که اگر دونالد ترامپ تصمیم به گسترش جنگ بگیرد، هدف قرار دادن پایگاه‌های نظامی در جنوب شرقی اروپا را بررسی خواهد کرد.
-
-براساس این گزارش، یک پایگاه نظامی در بلغارستان و یک پایگاه نظامی ناتو در قبرس از جمله اهداف احتمالی جدید ایران در صورت تشدید درگیری‌ها خواهند بود.
-
-مجلس بلغارستان ماه گذشته با استفاده آمریکا از یکی از پایگاه‌های نظامی این کشور موافقت کرد.
-
-همین دو مقام که نام آن‌ها اعلام نشده می‌گویند نیروهای مسلح جمهوری اسلامی به‌طور جداگانه حمله به کابل‌های فیبر نوری زیر دریایی در تنگه هرمز را در صورت تشدید تنش‌ها، بررسی کرده‌اند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255827
-
-<div align="center"><video src="files/post_255827_VahidOOnLine_255827.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255827_VahidOOnLine_255827.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیلگر سیاسی، با اشاره به گزارش سی‌ان‌ان درباره توقف گفت‌وگوهای آمریکا با جمهوری‌اسلامی گفت این تحول را می‌توان یک «تغییر راهبردی» دانست، زیرا نه‌تنها ابزار فشار، بلکه منطق واشینگتن برای رسیدن به هدف سیاسی نیز در حال تغییر است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255826
-
-<div align="center"><video src="files/post_255826_VahidOOnLine_255826.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255826_VahidOOnLine_255826.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل، با اشاره به تصمیم فرانسه برای اخراج دو دیپلمات جمهوری‌اسلامی در واکنش به بازداشت و بدرفتاری با دو دیپلمات فرانسوی در تهران، گفت جمهوری‌اسلامی رژیمی «متجاوز، طغیانگر و تروریست‌پرور» است و سابقه‌ای طولانی در نقض مصونیت دیپلماتیک دارد.
-
-او گفت جمهوری‌اسلامی با این اقدامات حتی کشورهایی را که حاضر به میانجی‌گری با تهران بوده‌اند، از خود دور می‌کند.
 IranintlTV
 
 🤖 @VahidOOnLine

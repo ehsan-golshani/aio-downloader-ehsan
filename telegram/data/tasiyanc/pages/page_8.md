@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/05/31 23:42
+📅 آخرین بروزرسانی: 1405/06/01 11:31
 
 ---
+
+## tasiyanc — post 9363
+
+<div align="center"><img src="files/post_9363_tasiyanc_9363.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت پرمیوم جدید 🆕
+
+" Cyberpunk Redline Portrait "
+
+تبدیل به پرامپت دخترانه کافیه woman رو جایگزین man کنید
+
+Prompt 🤖🤖
+
+Cinematic studio portrait of a young man with messy textured hair, wearing a black turtleneck, centered composition, dark minimal background, dramatic low-key lighting, a horizontal red neon light strip cutting across his eyes, strong contrast shadows covering lower face, intense gaze, moody atmosphere, cyberpunk aesthetic, ultra-realistic, sharp focus, 85mm lens, shallow depth of field, high detail, editorial photography style.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9362
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فاکس نیوز: تفاهم‌نامه آتش بس ۶٠ روزه بین ایران ، آمریکا فردا تمام میشود
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9361
+
+<div align="center"><img src="files/post_9361_tasiyanc_9361.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت پرمیوم تاسیان 🆕
+
+اسم : " Golden Hour Storyboard 🌅″
+
+آموزش استفاده 👉
+
+دریافت پرامپت👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9360
+
+<div align="center"><img src="files/post_9360_tasiyanc_9360.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 🆕
+
+" Shadow Queen — Target: You ♟️🖤 "
+
+Prompt 🤖🤖
+
+
+A realistic photo of a powerful, mysterious young woman with dark, tousled hair, wearing a black blazer and several rings. She sits at a wooden table in a dimly lit, shadowy war room or study, holding a pen to her chin and looking directly at the camera with a confident, piercing gaze. In the foreground, a single black chess king piece sits on a detailed map. Behind her, a dark chalkboard reveals handwritten text: 'TARGET: YOU', with bullet points below: 'WEAKNESSES', 'ROUTINES', 'ALLIES', 'NEXT MOVE'. Surveillance photos are pinned to the wall next to the board. The atmosphere is intense, cold, and dramatic. The lighting is low and focused on her face and the text, creating depth and shadows.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9359
 
@@ -191,55 +256,5 @@ g25
 
 ⭐کانال اطلاع رسانی سایت:👇 sr25
 💠https://t.me/+K0fAOE9hCUo3OGE8
-</div>
-
-## tasiyanc — post 9342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب لینک اختصاصی تاسیان 🚀
-
-🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-
-پروتکل Trojan سرعتی
-( هر ۸ ساعت آپدیت خواهد شد )
-
-
-آموزش ویدیویی اضافه کردن ساب
-
-
-@Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9340
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای همراه اول و بقیه اوپراتور ها
-
-ساب نامحدود - ارسالی از GTXll
-
-https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
-
-آموزش ویدیویی اضافه کردن ساب 💘
-
-
-@Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 16 August، روز جهانی جوک گفتن و کصخل بازیه
-
-
-@Tasiyanc ⭐️
 </div>
 
