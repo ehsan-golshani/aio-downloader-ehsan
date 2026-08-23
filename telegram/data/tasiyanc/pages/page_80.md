@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/06/01 12:54
+📅 آخرین بروزرسانی: 1405/06/01 13:29
 
 ---
+
+## tasiyanc — post 7078
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast VIP ⚡🇳🇱″🇬🇧.npvt
+</div>
+
+## tasiyanc — post 7077
+
+<div align="center"><img src="files/post_7077_tasiyanc_7077.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دی ان اس اختصاصی تاسیان برای گیم ✅ ریج تیر & زد لگ Primary address ⚡️ 117.50.10.10 Primary address ⚡️ 117.50.22.22 Primary address ⚡️123.125.81.6 Primary address ⚡️119.29.29.29 🔑 DNS CHANGER ⬜️ برنامه مورد نیاز @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دی ان اس اختصاصی تاسیان برای گیم ✅
+ریج تیر & زد لگ
+
+Primary address ⚡️ 117.50.10.10
+
+Primary address ⚡️ 117.50.22.22
+
+Primary address ⚡️123.125.81.6
+
+Primary address ⚡️119.29.29.29
+
+🔑 DNS CHANGER ⬜️ برنامه مورد نیاز
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7063
 
@@ -174,36 +207,5 @@ Location 🇩🇪
 TRT 1
 https://ritsatv.ru/mobile-version/movie-id901190-trt1
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بخاطر اون ۶۴۰۰۰ نفر بیدارم بازیو ببینیم
-</div>
-
-## tasiyanc — post 7022
-
-<div align="center"><video src="files/post_7022_tasiyanc_7022.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7022_tasiyanc_7022.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 
-📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7017
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این ها پخت پز نیست چیه؟
 </div>
 

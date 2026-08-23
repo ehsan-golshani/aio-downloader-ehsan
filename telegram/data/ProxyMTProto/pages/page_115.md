@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/06/01 12:52
+📅 آخرین بروزرسانی: 1405/06/01 13:27
 
 ---
+
+## ProxyMTProto — post 48123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: my.proxyz.site
+Port: 443
+Secret: ee0a9ab2b66d72b6797fa11106f55707056d792e70726f78797a2e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48122
 
@@ -172,15 +181,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: live.proxyvpn.site
 Port: 443
 Secret: eed2430edff0d3fc503099f982282bd0066c6976652e70726f787976706e2e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48103
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.nowabst.net
-Port: 853
-Secret: 7hKJP_0gRM7NMRBO3AKn5VhhZHMueDUucnU
 @ProxyMTProto
 </div>
 

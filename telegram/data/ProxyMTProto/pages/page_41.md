@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/06/01 12:52
+📅 آخرین بروزرسانی: 1405/06/01 13:27
 
 ---
+
+## ProxyMTProto — post 49612
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cloud.neoqua.pro
+Port: 443
+Secret: ee030089cc0dcc47eab9137c31a92a8ad9636c6f75642e6e656f7175612e70726f
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49611
 
@@ -165,15 +174,6 @@ Secret: eee09f46368021f91b92ad3dea14c7ac896164312e617269786f2e73686f70
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49592
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: best-proxy.ink
-Port: 443
-Secret: eecd52b1146f6670de19bc5bf189d1ab58626573742d70726f78792e696e6b
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/01 12:54
+📅 آخرین بروزرسانی: 1405/06/01 13:29
 
 ---
+
+## tasiyanc — post 9295
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکس هاتونو با یه ایموجی معرفی کنید
+
+کامنت بازه.
+</div>
+
+## tasiyanc — post 9294
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید چخبرا؟
+</div>
+
+## tasiyanc — post 9290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱Android🕹  iOS
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9289
 
@@ -96,10 +131,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پیوی اد بفرستید ویسارو @Tssub
 </div>
-
-## tasiyanc — post 9267
-
-## tasiyanc — post 9266
-
-## tasiyanc — post 9265
 

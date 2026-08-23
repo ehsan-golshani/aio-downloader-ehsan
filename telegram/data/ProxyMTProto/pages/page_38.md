@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/06/01 12:52
+📅 آخرین بروزرسانی: 1405/06/01 13:27
 
 ---
+
+## ProxyMTProto — post 49672
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: night.workingproxy.xyz
+Port: 443
+Secret: dde5d60707998c23e890e00e0bbe5eacdd
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49671
 
@@ -171,15 +180,6 @@ Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e
 Server: net.antitspu.com
 Port: 443
 Secret: ee24918e3782cee00f652c0018f2867ffd6e65742e616e7469747370752e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49652
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 
