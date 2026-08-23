@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 136
 
-📅 آخرین بروزرسانی: 1405/06/01 12:19
+📅 آخرین بروزرسانی: 1405/06/01 12:52
 
 ---
+
+## ProxyMTProto — post 47702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r24.proxytg.space
+Port: 8443
+Secret: eeade4e42a3bee4969fcb706467380da727232342e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47701
 
@@ -176,15 +185,6 @@ Secret: ee843223f372ef32e718c5271b5580714c6d656469612e737465616d706f77657265642e
 Server: proxymtproto.tproxy.rest
 Port: 8443
 Secret: ee79e7010200010007f0030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: russia.nolags.pw
-Port: 443
-Secret: dd04dbf1f1459ffbc5e646db206794163a
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/01 12:21
+📅 آخرین بروزرسانی: 1405/06/01 12:54
 
 ---
+
+## tasiyanc — post 9489
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9488
 
@@ -476,14 +486,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وضعیت اینترنت چطوره؟
-</div>
-
-## tasiyanc — post 9462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عضوی از تیم اتکر ما شوید تا باهم کسانی که به حریم خصوصی مردم تجاوز می‌کنند را محو کنیم
-
-https://t.me/+Mcyp10mcfFA2MTM0
-جوین بدید
 </div>
 

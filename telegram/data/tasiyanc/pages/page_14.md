@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/01 12:21
+📅 آخرین بروزرسانی: 1405/06/01 12:54
 
 ---
+
+## tasiyanc — post 9211
+
+<div align="center"><img src="files/post_9211_tasiyanc_9211.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9208
 
@@ -323,21 +333,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 به این ماشین‌ها دیگه بنزین سهمیه‌ای نمیدن، حق تو اسنپ و تاکسی های اینترنتی هم ندارن!
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9180
-
-<div align="center"><img src="files/post_9180_tasiyanc_9180.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Ethereal Lake Muse 🤍
-
-آموزش استفاده 👉
-
-دریافت پرامپت 👉
-
-@TASIYANC ⭐️
 </div>
 

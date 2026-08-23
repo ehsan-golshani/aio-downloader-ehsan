@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/06/01 12:21
+📅 آخرین بروزرسانی: 1405/06/01 12:54
 
 ---
+
+## tasiyanc — post 8116
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اهواز زیر دود بمباران 💔
+</div>
 
 ## tasiyanc — post 8115
 
@@ -216,11 +222,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 دیروز که به یخچال نیاز داشتن، برق قطع نمیشد! به محض اینکه کارشون تموم شد، شروع کردن برقارو قطع کردن.
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تتر 190 - ریدید تو زندگی ما
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/06/01 12:21
+📅 آخرین بروزرسانی: 1405/06/01 12:54
 
 ---
+
+## tasiyanc — post 8474
+
+<div align="center"><video src="files/post_8474_tasiyanc_8474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8474_tasiyanc_8474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨از کویت به سمت ایران موشک شلیک شده
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8473
 
@@ -160,16 +173,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 الان ک ترامپ ممنوع تصویره نمی‌خواین تقدیم جام رو نشون بدید کسخلا؟
-</div>
-
-## tasiyanc — post 8454
-
-<div align="center"><img src="files/post_8454_tasiyanc_8454.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقا دیگه خیلی خیلی تنگ تر بشینید که مسی هم اومد 😐
-
-
-@TASIYANC ⭐️
 </div>
 

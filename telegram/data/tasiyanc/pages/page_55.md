@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/06/01 12:21
+📅 آخرین بروزرسانی: 1405/06/01 12:54
 
 ---
+
+## tasiyanc — post 8049
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیک نیوز چقد زیاد شده 😐
+خبر هارو از اینجا دنبال کنین ، تبلیغ نیست چنل خودمونه
+📶⭕️@TasiyanProxy
+⭕️📶@TasiyanProxy
+</div>
 
 ## tasiyanc — post 8045
 
@@ -275,24 +284,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7991
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
-
-
-برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
-
-
-دانلود Dark Tunnel  🕹
-
-
-آموزش اتصال به سرور دارک ⏩
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

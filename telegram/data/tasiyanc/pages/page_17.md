@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/01 12:21
+📅 آخرین بروزرسانی: 1405/06/01 12:54
 
 ---
+
+## tasiyanc — post 9131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زمانی به این درجه از سود توی بت میرسی که بدونی کی و کجا وارد شی🚀
+
+https://t.me/+_btGj-rRAxs3NGVk
+https://t.me/+_btGj-rRAxs3NGVk
+</div>
 
 ## tasiyanc — post 9130
 
@@ -292,14 +301,5 @@ cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, str
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴خبرگزاری تسنیم : حمیدرضا رجب‌زاده، مداحی که چند روزی بود گم شده بود، به قتل رسیده و فیلم لحظه قتلش به خانواده‌‌اش ارسال شده، پلیس فعلا داره پیگیری می‌کنه. « مشاهده »
-</div>
-
-## tasiyanc — post 9110
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی پرسرعت نپسترنت📱
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-✅ @TASIYANC
 </div>
 

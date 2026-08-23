@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/06/01 12:21
+📅 آخرین بروزرسانی: 1405/06/01 12:54
 
 ---
+
+## tasiyanc — post 6981
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اتصال با HTTPCUSTUM 
+🌟
+
+
+🔺فایل را ایمپورت کنین داخل برنامه گزینه V2ray بزنید -
+
+🔺 دکمه اتصال یا Connect بزنید شما وقتی اتصالتون انجام میشه پیامی با مضمون Ready To Use دریافت میکنید ، اتصال شما برقرار شد
+
+🔺 آموزش برای اندروید و iOS یکیست
+@Tasiyanc 
+💠
+</div>
 
 ## tasiyanc — post 6980
 
@@ -229,26 +245,6 @@ https://play.google.com/store/apps/details?id=net.darktunnel.app
 <div align="center"><video src="files/post_6946_tasiyanc_6946.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_6946_tasiyanc_6946.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 
-📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال 
-⛓
-
-T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6945
-
-<div align="center"><video src="files/post_6945_tasiyanc_6945.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6945_tasiyanc_6945.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
