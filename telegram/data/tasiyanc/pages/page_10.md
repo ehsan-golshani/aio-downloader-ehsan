@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/01 14:46
+📅 آخرین بروزرسانی: 1405/06/01 18:38
 
 ---
+
+## tasiyanc — post 9332
+
+<div align="center"><img src="files/post_9332_tasiyanc_9332.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸🇰🇵دونالد ترامپ در شبکه اجتماعی Truth Social:
+
+«با وجود چهره ناخوشایند در این تصویر خاص، عکس‌های زیادی وجود دارد که در آنها لبخند می‌زنیم؛ من و کیم جونگ اون رابطه بسیار خوبی داریم!»
+
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 9331
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر 👌
+</div>
+
+## tasiyanc — post 9330
+
+<div align="center"><img src="files/post_9330_tasiyanc_9330.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
+
+💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
+a24
+📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥💵
+
+‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
+https://t.me/+F1CivZlkxrgzMTM0
+https://t.me/+F1CivZlkxrgzMTM0
+</div>
+
+## tasiyanc — post 9329
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختر توپُر & اسکینی ؟ پسر توپُر & سیکس پک ؟ کامنت
+</div>
 
 ## tasiyanc — post 9328
 
@@ -226,44 +267,5 @@ r24
 🔴 ترامپ : تورم تو ایران ۳۵۰ درصده،۸۲ درصد از موشکاشونم نابود کردیم، ۲۲۰ تا هواپیما داشتن همه رو نابود کردیم، سه گروه اول از رهبرانشونم ترور کردیم.
 
 @tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9303
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از فوبیاتون بگید .... از چی میترسید؟
-</div>
-
-## tasiyanc — post 9302
-
-<div align="center"><img src="files/post_9302_tasiyanc_9302.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کد های مخفی ChatGpt که بکارتون میاد🤖
-
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
-
-آموزش اتصال روی اندروید⚡️
-
-آموزش اتصال روی ویندوز  ⚡️
-
-دانلود برنامه برای ویندوز 💻
-
-@TASIYANC ☑️
-</div>
-
-## tasiyanc — post 9300
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🐊 crocodile
-بعد سه ماه متولد شده عشق کنید
-تو قطعیا یادتونه دیگه چقد ترکوندیم
 </div>
 

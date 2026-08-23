@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/01 14:46
+📅 آخرین بروزرسانی: 1405/06/01 18:38
 
 ---
+
+## tasiyanc — post 9379
+
+<div align="center"><video src="files/post_9379_tasiyanc_9379.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9379_tasiyanc_9379.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟ویدئوبازی محبوب Chicky choice🌟
+
+فقط کافیه مرغ از خیابون رد کنی و پولت افزایش بدی😍💵
+
+💖توی سایت بت اینجا بازی کن و پیش بینی کن و پول در بیار😍
+⬅️امکان شارژ با کارت بانکی راحت و امن
+⬅️تسویه حساب سریع بدون احراز
+
+🎁هربار شارژ کنی 12% بیشتر شارژ میشی✅
+🎁اگ باختی هم 10% باختت سایت بهت برگشت میده✅
+🚨ادرس ورود به سایت:
+💠http://betinja.bet/affiliates/?btag=2760677
+
+⚠️فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،امریکا،ترکیه،سنگاپور،فنلاند و...
+
+⭐کانال اطلاع رسانی سایت:👇 sr26
+💠https://t.me/+K0fAOE9hCUo3OGE8
+</div>
+
+## tasiyanc — post 9378
+
+<div align="center"><img src="files/post_9378_tasiyanc_9378.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏قیمت آیفون ۱۷ پرومکس حافظه ۱ ترابایت؛ از ۷۰۰ میلیون تومن هم عبور کرد
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9374
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها ⚡️
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت چطوره؟
+</div>
 
 ## tasiyanc — post 9372
 
@@ -209,47 +261,5 @@ g25
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9354
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سردار باقرزاده : سه خلبان ایرانی زنده و در اسارت قطری ها هستند
-
-«جواد صالحی , عبدالمجید دشتیان ، عمران به‌روشیان » از ۶ ماه پیش بعد از اصابت هواپیمایشان ( سوخو۲۴) در اسارت نیروهای قطری هستند همچنین ارتش قطر اجازه مصاحبه ، ملاقات ، تماس هم بهشون نداده است.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9353
-
-<div align="center"><video src="files/post_9353_tasiyanc_9353.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9353_tasiyanc_9353.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیث لجر ستاره هالیوود ، افسانه ای که در نقش «جوکر» غرق شد و در نهایت در ۲۸ سالگی و چند ماه پس از اکران فیلم از دنیا رفت !
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9352
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر آن‌هایی که
-وقتی تو را خاموش یافتند
-رهایت نکردند
-مگر بعد از آن‌که
-نور و روشنایی را به تو باز گرداندند.
-</div>
-
-## tasiyanc — post 9351
-
-<div align="center"><img src="files/post_9351_tasiyanc_9351.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سرزمین های جدا شده از ایران عزیز در ۵۰۰ سال گذشته !
-
-@Tasiyanc ✅
 </div>
 

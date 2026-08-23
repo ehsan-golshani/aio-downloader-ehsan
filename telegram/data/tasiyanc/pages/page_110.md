@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/06/01 14:46
+📅 آخرین بروزرسانی: 1405/06/01 18:38
 
 ---
+
+## tasiyanc — post 6168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ برای نت خانگی (وای‌فای)
+چندتا سرور پرمیوم تو گپ خودمون می‌زارم بیاید بزنید عشق کنین
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6167
+
+<div align="center"><img src="files/post_6167_tasiyanc_6167.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Premium GOD SV 🚀🔥.npvt
+</div>
+
+## tasiyanc — post 6166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید 📱
+
+4سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها 
+⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رو دوتا کانفیگ آخری( وایرگارد - نپستر)
+ریکشن رو هر کدوم بیشتر باشه پست بعدی از اون کانفیگ میزارم
+</div>
 
 ## tasiyanc — post 6163
 
@@ -154,55 +194,5 @@ Premium 💙BLUE.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ری اکشن شما به ما انگیزه فعالیت بیشتر میده😐
-</div>
-
-## tasiyanc — post 6144
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-4سرور  سرعتی تست شده رو همراه ، بقیه تست کنن🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6143
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  👑
-
-تست شده 🎚
-
-دانلود برنامه Wg tunnel 🕹
-
-آموزش ویدیویی ⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Jzzb 🔥Vip.npvt
-</div>
-
-## tasiyanc — post 6141
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  👑
-
-تست شده 🎚
-
-دانلود برنامه Wg tunnel 🕹
-
-آموزش ویدیویی ⏩
-
-@Tasiyanc ✅
 </div>
 

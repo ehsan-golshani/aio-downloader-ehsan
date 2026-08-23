@@ -1,8 +1,81 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/01 14:46
+📅 آخرین بروزرسانی: 1405/06/01 18:38
 
 ---
+
+## tasiyanc — post 9500
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9499
+
+<div align="center"><img src="files/post_9499_tasiyanc_9499.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9498
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9497
+
+<div align="center"><img src="files/post_9497_tasiyanc_9497.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ده تا از بهترین سریال های جهان که قبل مرگتون باید ببینید !
+
+سایت پیشنهادی برای تماشا و دانلود بدون سانسور
+
+https://www.novigrad.top
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9495
 
@@ -366,74 +439,5 @@ IPv6
 
 
 @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Blue Man💙 (1).ovpn
-</div>
-
-## tasiyanc — post 9475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9474
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تعدادی DNS برای گیمر های عزیز 😎
-
-IPv4 server 🇩🇪
-DNS 1⚡️
-
-60.154.181.244
-22.137.148.153
-
-DNS 2⚡️
-
-85.0.69.240
-173.193.142.191
-
-
-IPv6 🇩🇪
-DNS 1⚡️
-
-2a0e:1c80:11::5ce4:607c:3c41:e868
-2a0e:1c80:11::dcc8:31c8:1fa2:bd89
-
-DNS 2⚡️
-
-2a0e:1c80:11::9014:410:e8bd:d8fd
-2a0e:1c80:11::cf95:da47:970b:4273
-
-DNS 3⚡️
-
-2a0e:1c80:11::ee5b:4bb1:cd6:e105
-2a0e:1c80:11::7ad2:3896:4a4e:cceb
-لینک DNS Changer اندروید
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
 </div>
 
