@@ -1,8 +1,14 @@
 # آرشیو کانال MehdiBudam - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/01 02:15
+📅 آخرین بروزرسانی: 1405/06/01 08:35
 
 ---
+
+## MehdiBudam — post 8129
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از تورا هم 10 تا 15 وصلن بقیه رو خودتون با اپراتور های مختلف تست کنید.
+</div>
 
 ## MehdiBudam — post 8128
 
@@ -200,11 +206,5 @@ slipnet-enc://Ae2EEQLf+LxSQ2MlvnWNA82xsmSEx4iPv+oSxDkNzqegYMSMpojO4WzTpcHOYO0k5X
 
 ﻿
 @MehdiBudam
-</div>
-
-## MehdiBudam — post 8109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای تور همین تنظیمات پیشنهاد میشه فقط بدون پروکسی مود با اسپلیت تونلینگ درست.
 </div>
 

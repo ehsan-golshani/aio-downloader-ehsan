@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/06/01 00:16
+📅 آخرین بروزرسانی: 1405/06/01 08:35
 
 ---
+
+## ProxyMTProto — post 47934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp10.sosproxy.space
+Port: 443
+Secret: ee3ab621bbb1dea6b3be09c8f3582c61a364726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 15
+Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47932
 
@@ -163,24 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: zoom.flowaccess.site
 Port: 443
 Secret: ee50179d3cf3b7e3600efe3b6001fa35c07a6f6f6d2e666c6f776163636573732e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47914
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47913
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dash.flowstreamhub.site
-Port: 443
-Secret: eee5860e3a92504e57496b5748749921d3646173682e666c6f7773747265616d6875622e73697465
 @ProxyMTProto
 </div>
 

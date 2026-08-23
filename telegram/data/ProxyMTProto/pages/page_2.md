@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/01 00:16
+📅 آخرین بروزرسانی: 1405/06/01 08:35
 
 ---
+
+## ProxyMTProto — post 50386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eefdf6175e50069c01bd22d786534aa2b2766b2e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50385
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50384
 
@@ -163,24 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e
 Server: mtp1.hlebushek.com
 Port: 443
 Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50365
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 65.21.205.41
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

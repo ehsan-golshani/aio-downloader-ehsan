@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/06/01 00:16
+📅 آخرین بروزرسانی: 1405/06/01 08:35
 
 ---
+
+## ProxyMTProto — post 48494
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48493
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 31.76.251.25
+Port: 853
+Secret: ee6aa9eb2bd47d97b43be8ac203cfd3c0e7777772e676f6f676c652e636f6d,
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48492
 
@@ -163,24 +181,6 @@ Secret: ddfb1c51c0125d6c82066dd588f5201849
 Server: 103.161.35.23
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48474
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: secure.gorbushkin.click
-Port: 443
-Secret: eebbf55b9bfecba7ac5fd1e437a7a632447365637572652e676f72627573686b696e2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gorbeye-7000-sale.asiaadomainsshatelhamrahaval.co.uk.
-Port: 443
-Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 @ProxyMTProto
 </div>
 
