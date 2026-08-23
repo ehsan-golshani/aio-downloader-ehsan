@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 129
 
-📅 آخرین بروزرسانی: 1405/06/01 23:40
+📅 آخرین بروزرسانی: 1405/06/02 00:15
 
 ---
+
+## ProxyMTProto — post 47865
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: flash.quickrouteapp.xyz
+Port: 443
+Secret: eec7b876f355b93b6b786cb4b6c9daee79666c6173682e717569636b726f7574656170702e78797a
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47864
 
@@ -172,15 +181,6 @@ Secret: eefced0b92adbe28d8bea608c8ca7e553f6275726765726b696e677275732e7275
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47845
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: blaze.flowaccess.site
-Port: 443
-Secret: eec799e0af5c33d8ffc2310d4f0154379c626c617a652e666c6f776163636573732e73697465
 @ProxyMTProto
 </div>
 

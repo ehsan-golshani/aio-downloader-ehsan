@@ -1,8 +1,35 @@
 # آرشیو کانال VahidOOnLine - صفحه 266
 
-📅 آخرین بروزرسانی: 1405/06/01 23:39
+📅 آخرین بروزرسانی: 1405/06/02 00:14
 
 ---
+
+## VahidOOnLine — post 250226
+
+<div align="center"><video src="files/post_250226_VahidOOnLine_250226.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250226_VahidOOnLine_250226.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال در واکنش به اظهارات ترامپ درباره حمله زمینی و هدف قرار دادن زیرساخت‌های ایران گفت اگر هدف، خلع سلاح گسترده جمهوری اسلامی باشد، عملیات نظامی باید هفته‌ها ادامه یابد؛ در غیر این صورت، این تهدیدها با هدف وادار کردن تهران به مذاکره است
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250225
+
+<div align="center"><img src="files/post_250225_VahidOOnLine_250225.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خانواده کریگ و لیندزی فورمن، زوج بریتانیایی زندانی در ایران اعلام کردند که دادگاه حکم زندان کریگ فورمن را به دلیل گفت‌وگو با رسانه‌ها دو سال افزایش داده است.
+
+پیش‌تر خانواده این زوج بریتانیایی اعلام کرده بودند این دو نفر به اتهام جاسوسی، به ۱۰ سال زندان محکوم شده‌اند.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250224
 
@@ -283,35 +310,6 @@ iranintl
 او افزود: «ما باید حمله زمینی را آغاز کنیم، چیزی که آمریکایی‌ها مدت‌ها تهدید کردند اما جرات اقدام نداشتند.»
 iranintl
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250206
-
-<div align="center"><video src="files/post_250206_VahidOOnLine_250206.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250206_VahidOOnLine_250206.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال، نشان می‌دهد که بامداد ۲۴ تیر، یک فروند موشک از تبریز پرتاب شد. جزئیات بیشتری درباره محل دقیق پرتاب یا مقصد احتمالی آن منتشر نشده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250205
-
-<div align="center"><video src="files/post_250205_VahidOOnLine_250205.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250205_VahidOOnLine_250205.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اداره‌ کل بنادر و دریانوردی استان سیستان‌وبلوچستان صبح چهارشنبه ۲۴ تیرماه اعلام کرد درپی حملات شب  ساعات آمریکا به بندر چابهار، مرکز کنترل ترافیک دریایی این بندر برای دومین بار در هفته گذشته مورد اصابت قرار گرفت و خساراتی به سازه آن وارد شد.
-به گفته مقام‌های محلی حملات نیمه‌شب سه‌شنبه و بامداد چهارشنبه به چابهار کسی کشته یا زخمی نشده است.
-
-ویدیوهای منتشر شده در شبکه‌های اجتماعی وقوع انفجارهای پیاپی و برخاستن ستون دود از مناطق مختلف در چابهار را نشان می‌دهد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

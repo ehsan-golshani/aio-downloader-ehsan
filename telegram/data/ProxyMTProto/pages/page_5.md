@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/01 23:40
+📅 آخرین بروزرسانی: 1405/06/02 00:15
 
 ---
+
+## ProxyMTProto — post 50357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sioms.co.uk
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50356
 
@@ -172,15 +181,6 @@ Secret: ee9d072ce3c5b43f6b422bb1e7fe983cc4617069322e6d6564686174612e6f7267
 Server: irancell-mci-rightell-adsl.mr-moo.co.uk.
 Port: 443
 Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50337
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hub.savelyev.click
-Port: 443
-Secret: ee609a2ad7e277c6eb2dd39767e12777b86875622e736176656c7965762e636c69636b
 @ProxyMTProto
 </div>
 

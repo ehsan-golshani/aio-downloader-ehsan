@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 501
 
-📅 آخرین بروزرسانی: 1405/06/01 23:39
+📅 آخرین بروزرسانی: 1405/06/02 00:14
 
 ---
+
+## VahidOOnLine — post 244178
+
+<div align="center"><video src="files/post_244178_VahidOOnLine_244178.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244178_VahidOOnLine_244178.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال از جوانرود در شامگاه یکشنبه ۱۷ خرداد، نور موشک شلیک‌شده از سوی جمهوری اسلامی را به سمت اسرائیل در آسمان این شهر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244177
+
+<div align="center"><img src="files/post_244177_VahidOOnLine_244177.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرنگار «آکسیوس» یکشنبه‌شب، به نقل از رئیس جمهوری آمریکا اعلام کرد که ترامپ از نتانیاهو خواهد خواست تا به ایران حمله متقابل نکند. خبرنگار آکسیوس نوشت:‌ «دونالد ترامپ به من می‌گوید همین الان با نتانیاهو تماس خواهم گرفت و به او خواهم گفت که حمله متقابل انجام ندهد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244176
 
@@ -223,34 +247,6 @@
 
 دوما، برخی دولت‌های منطقه که قلمرو و امکانات خود را در خدمت تجاوز علیه ایران قرار داده‌اند، در جایگاه مطالبه‌گر خسارت نیستند؛
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244151
-
-<div align="center"><img src="files/post_244151_VahidOOnLine_244151.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی، در شبکه ایکس نوشت که «هر گونه تصرف، انتقال یا تخصیص اموال ایران» برای پرداخت به هم‌پیمانان آمریکا «موجب مسئولیت آمریکا، بویژه در شرایطی که ادعای مذاکره و تفاهم می‌کند، و همچنین پاسخ متناسب ایران می‌شود.»
-
-پیشتر رویترز به نقل از یک منبع آگاه گزارش داد دولت آمریکا در حال بررسی استفاده از دارایی‌های جمهوری اسلامی برای تامین هزینه بازسازی و جبران خسارت‌هایی است که در جریان جنگ به کشورهای متحد واشینگتن در خلیج فارس وارد شده است.
-
-اقدامی که به نوشته رسانه‌ها می‌تواند به یکی از محورهای اختلاف در مذاکرات جاری میان تهران و واشینگتن تبدیل شود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244150
-
-<div align="center"><img src="files/post_244150_VahidOOnLine_244150.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس یک اطلاعیه هوانوردی، قطر مسیر برخی پروازها در فضای هوایی تحت کنترل دوحه را به‌طور موقت تغییر داد و اعلام کرد مسیرهای جایگزین برای برخی پروازهای ورودی، خروجی و عبوری در آسمان این شهر تعیین شده است.
-
-این نوتام از ۱۷ خرداد فعال شده و تا ۲۴ خرداد به‌صورت تخمینی، ادامه خواهد داشت و به معنی بسته شدن آسمان قطر نیست.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

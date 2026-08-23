@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 131
 
-📅 آخرین بروزرسانی: 1405/06/01 23:40
+📅 آخرین بروزرسانی: 1405/06/02 00:15
 
 ---
+
+## ProxyMTProto — post 47825
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wave.flowaccess.site
+Port: 8443
+Secret: eeea2f80ea6628006a3db2a8678d65bd07776176652e666c6f776163636573732e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47824
 
@@ -172,15 +181,6 @@ Secret: ddb01da288baa59189c1db3c7bb1490895
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47805
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: swift.quickrouteapp.xyz
-Port: 8443
-Secret: ee68a56bf93ff9c02daa862d3830de722773776966742e717569636b726f7574656170702e78797a
 @ProxyMTProto
 </div>
 
