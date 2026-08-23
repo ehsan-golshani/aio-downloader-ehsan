@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/06/01 18:38
+📅 آخرین بروزرسانی: 1405/06/01 20:48
 
 ---
+
+## tasiyanc — post 8902
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺قیمت دلار  ۱۹۶ هزار تومان  شد
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8901
+
+<div align="center"><img src="files/post_8901_tasiyanc_8901.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+
+در حال نابودی کامل ارزش پول ایران هستم. در شروع دوران ریاست جمهوری من دلار ۹۰ هزار تومن بوده و الان شده ۱۹۶ هزار تومن.
+
+🔱 @TASIYANC
+</div>
 
 ## tasiyanc — post 8900
 
@@ -300,19 +320,5 @@ a9
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 به تمام دیتاسنترها آماده باش داده شده تا در صورت وقوع جنگ٫ اینترنت سراسری قطع شود ( تایید / رد نمیشود)
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8875
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است
-
-@TASIYANC ⭐️
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 105
 
-📅 آخرین بروزرسانی: 1405/06/01 18:38
+📅 آخرین بروزرسانی: 1405/06/01 20:48
 
 ---
+
+## tasiyanc — post 6294
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گیمرایی ک مشکلات ورود به بازی های آنلاین دارن بالا باشید 💋
+</div>
+
+## tasiyanc — post 6293
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•𝐅_𝟐𝟐_⚡💣_ᴾʳᵉᵐᶤᵘᵐ_ᶳᵉʳᵛᵉʳᶳ.npvt
+</div>
 
 ## tasiyanc — post 6292
 
@@ -184,40 +196,5 @@ ON TARGET ⚡✅.npvt
 چنل پروکسی هنوز جوین نشدین؟
 
 https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6269
-
-<div align="center"><video src="files/post_6269_tasiyanc_6269.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6269_tasiyanc_6269.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB سرور IT  
-👑
-دانلود  Wg tunnel 
-🕹
-دانلود iOS 🍏
-آموزش
-⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6268
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-2سرور پرومیوم  سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها 
-⏩
-
-✔️ @Tasiyanc ✅
 </div>
 

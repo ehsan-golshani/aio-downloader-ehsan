@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/01 18:38
+📅 آخرین بروزرسانی: 1405/06/01 20:48
 
 ---
+
+## tasiyanc — post 9381
+
+<div align="center"><img src="files/post_9381_tasiyanc_9381.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺بورس در آستانه ۵.۹ میلیونی شدن
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9380
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙂این بازی خیلی این روزا ترند💥
+راحت میتونی پولت چند برابر کنی💖
+فرصت از دست ندین فیلم بازی نگاه کنید و شروع کنید😁💵
+</div>
 
 ## tasiyanc — post 9379
 
@@ -241,25 +260,5 @@ g25
 ✅https://mafbet.com/fa/?btag=260368
 ✔️ کانال تلگرام سایت:
 👑https://t.me/+8eCDvbzSV5JlZjlk
-</div>
-
-## tasiyanc — post 9356
-
-<div align="center"><img src="files/post_9356_tasiyanc_9356.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استوری های جدید جول فرشاد: رامین رضائیان من رو به تریسام دعوت کرد!
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9355
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺فرمانده کل ارتش : به ازای کشتن هر سرباز آمریکایی ۳۰ هزار دلار جایزه بگیرید
-فرمانده کل ارتش در مراسم روز ‌خبرنگار: با مشارکت مردم، اگر هر نیروی ایرانی بتواند یک نیروی آمریکایی متجاوز‌ را دستگیر یا بکشد، ‏از طرف مردم ایران جایزه ۳۰ هزار‌دلاری‌ دریافت خواهد کرد.
-
-@Tasiyanc 
-⭐️
 </div>
 

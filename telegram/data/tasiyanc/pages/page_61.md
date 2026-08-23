@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/06/01 18:38
+📅 آخرین بروزرسانی: 1405/06/01 20:48
 
 ---
+
+## tasiyanc — post 7795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری
+پیت هگست وزیر جنگ آمریکا بخاطر جنگ با ایران سفرش به اسرائیل را لغو کرد
+</div>
+
+## tasiyanc — post 7794
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ ترامپ : دستور لغو توافق و مذاکرات را صادر کردم
+</div>
 
 ## tasiyanc — post 7793
 
@@ -152,26 +165,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وضعیت کارمندای نت‌بلاکس الان:
-</div>
-
-## tasiyanc — post 7749
-
-<div align="center"><img src="files/post_7749_tasiyanc_7749.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی از ممبرا
-
-بندر عباس هم اکنون
-@Tasiyanc
-</div>
-
-## tasiyanc — post 7748
-
-<div align="center"><video src="files/post_7748_tasiyanc_7748.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7748_tasiyanc_7748.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همین الان ، حمله وحشتناک آمریکا به بندرعباس
 </div>
 

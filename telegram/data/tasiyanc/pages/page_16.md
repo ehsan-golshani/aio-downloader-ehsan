@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/01 18:38
+📅 آخرین بروزرسانی: 1405/06/01 20:48
 
 ---
+
+## tasiyanc — post 9168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸اظهارات ترامپ درباره ایران برای بار انم:
+
+همانطور که احتمالاً شنیده‌اید، ما تمام تنگه را پاکسازی مین کرده‌ایم. شاید شما این را نشنیده باشید.
+
+ما کنترل ۱۰۰ درصدی این تنگه را در اختیار داریم.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن multi📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید بزنید وصله ⭕️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 9166
 
@@ -287,44 +317,5 @@ ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.167:443#%40Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختلال شکن 🌱.npvt
-</div>
-
-## tasiyanc — post 9145
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن Turkey📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9144
-
-<div align="center"><img src="files/post_9144_tasiyanc_9144.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 پرامپت اختصاصی 🤖🤖
-
-Prompt Woman
-
-A high-contrast, moody black and white portrait photograph. A young woman with dark, wavy hair, wearing sunglasses, an oversized quilted puffer jacket, wide black trousers, and heavy combat boots, is seated on a low metal stool on a rugged dirt path. She is leaning forward in a contemplative pose, looking downward at her hands, which are holding a coiled leather leash. Directly behind her stands a massive black panther, looking intensely forward with sharp eyes. The backdrop is a desolate outdoor landscape with low, scrubby brush and a stormy, dark sky above, all rendered with dramatic film grain and strong chiaroscuro lighting. Solemn, grounded, atmospheric. Medium shot, caught on a high-end film camera.
-
-Prompt Man
-
-A high-contrast, moody black and white portrait photograph. A handsome young man with short, styled dark wavy hair, a neat beard, wearing sunglasses, an oversized quilted puffer jacket, wide black trousers, and heavy combat boots, is seated on a low metal stool on a rugged dirt path. He is leaning forward in a contemplative pose, looking downward at his hands, which are holding a coiled leather leash. Directly behind him stands a massive black panther, looking intensely forward with sharp eyes. The backdrop is a desolate outdoor landscape with low, scrubby brush and a stormy, dark sky above, all rendered with dramatic film grain and strong chiaroscuro lighting. Solemn, grounded, atmospheric. Medium shot, caught on a high-end film camera.
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
 </div>
 

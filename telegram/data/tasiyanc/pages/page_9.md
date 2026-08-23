@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/01 18:38
+📅 آخرین بروزرسانی: 1405/06/01 20:48
 
 ---
+
+## tasiyanc — post 9356
+
+<div align="center"><img src="files/post_9356_tasiyanc_9356.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری های جدید جول فرشاد: رامین رضائیان من رو به تریسام دعوت کرد!
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺فرمانده کل ارتش : به ازای کشتن هر سرباز آمریکایی ۳۰ هزار دلار جایزه بگیرید
+فرمانده کل ارتش در مراسم روز ‌خبرنگار: با مشارکت مردم، اگر هر نیروی ایرانی بتواند یک نیروی آمریکایی متجاوز‌ را دستگیر یا بکشد، ‏از طرف مردم ایران جایزه ۳۰ هزار‌دلاری‌ دریافت خواهد کرد.
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9354
 
@@ -229,29 +249,5 @@ https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
 🔊اپلیکیشن حرفه ای 📱
 sr25
     🎲🎲🎲🎲🎲  معتبرترین سایت ایران
-</div>
-
-## tasiyanc — post 9336
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن multi📍
-
-•آموزش اتصال ⚡️
-
-توجه :  اسکنر نپستر متاسفانه باگش برطرف نشده ⭕️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9335
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐 05.conf
 </div>
 

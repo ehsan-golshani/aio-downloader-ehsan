@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/06/01 18:38
+📅 آخرین بروزرسانی: 1405/06/01 20:48
 
 ---
+
+## tasiyanc — post 8299
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دولت عراق مجوز فعالیت استارلینک تو این کشور رو رسما امضا کرد
+.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8297
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سپاه خورموج و اهواز مورد هدف موشکی.
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8296
 
@@ -143,23 +160,5 @@ JAVID SHAH 👑
 ⏺فاکس نیوز: یک گزارش محرمانه که برای ریاست‌ جمهوری اسلامی تهیه شده، نشان می‌دهد تنها ۹ درصد ایرانیان از حفظ وضع موجود حمایت می‌کنند.
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8276
-
-<div align="center"><img src="files/post_8276_tasiyanc_8276.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بریم به کی بگیم این ایرانِ ۵۰ سال پیش ما بود !
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8275
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ انفجار در یگان امداد سنندج ، تایید / تکذیب نمیشه
-
-@Tasiyanc ⭐️
 </div>
 

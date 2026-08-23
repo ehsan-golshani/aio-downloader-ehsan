@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/01 18:38
+📅 آخرین بروزرسانی: 1405/06/01 20:48
 
 ---
+
+## tasiyanc — post 9502
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+سرور سرعتی مولتی لوکیشن⚡️
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9501
+
+<div align="center"><img src="files/post_9501_tasiyanc_9501.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گرانترین شهر های ایران برای زندگی
+( بر اساس قدرت خرید ملک و ... ) !
+
+آخرین آپدیت خرداد ماه ۱۴۰۵ - قیمت ها میانگین گرفته شدن.
+منبع: مرکز آمار ایران و سامانه های املاک معتبر
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9500
 
@@ -379,65 +414,5 @@ IPv6
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9478
-
-<div align="center"><video src="files/post_9478_tasiyanc_9478.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9478_tasiyanc_9478.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-سرور سرعتی مولتی لوکیشن
-⚡️
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود 
-⬇️ ترید 
-🤑 اینستاگرام 
-📸 جمینای 
-🤖
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-
-✔️ @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9477
-
-<div align="center"><video src="files/post_9477_tasiyanc_9477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9477_tasiyanc_9477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست موقت
-
-🪙 کاربردی - کسب درامد
-
-⚡️معرفی ربات کسب درامد ماینر (استخراج) تون کوین (گرام) - برداشت داره تایید شدست میتونید با انجام تسک ها به درآمد برسید
-
-👉https://t.me/GramHashes72Bot
-
-
-@Tasiyanc⭐️
 </div>
 
