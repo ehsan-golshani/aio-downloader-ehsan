@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/06/01 09:16
+📅 آخرین بروزرسانی: 1405/06/01 09:44
 
 ---
+
+## ProxyMTProto — post 49444
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: edge.librava.click
+Port: 443
+Secret: eea12fcf17bd87579f5063dfb4c28e4761656467652e6c6962726176612e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49443
 
@@ -165,15 +174,6 @@ Secret: ddbdf90f2bc94957916e518c887cb95489
 Server: Unknown
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 

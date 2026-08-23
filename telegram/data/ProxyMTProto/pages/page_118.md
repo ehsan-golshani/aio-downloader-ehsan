@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/06/01 09:16
+📅 آخرین بروزرسانی: 1405/06/01 09:44
 
 ---
+
+## ProxyMTProto — post 48056
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: kilo.proxyux.site
+Port: 443
+Secret: ee62d16bd3fa5f892202a2af3062a7321d6b696c6f2e70726f787975782e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48055
 
@@ -175,15 +184,6 @@ Secret: ee3d75d4605342be40f01e37f606946e81666173742e70726f787974656c6567612e7374
 Server: country.nolags.pw
 Port: 443
 Secret: ddc5a3afebedae870af378217569f6586c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48036
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 
