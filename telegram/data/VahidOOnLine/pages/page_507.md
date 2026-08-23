@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 507
 
-📅 آخرین بروزرسانی: 1405/06/01 21:18
+📅 آخرین بروزرسانی: 1405/06/01 21:39
 
 ---
+
+## VahidOOnLine — post 244002
+
+<div align="center"><video src="files/post_244002_VahidOOnLine_244002.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244002_VahidOOnLine_244002.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی که به تازگی به ایران اینترنشنال رسیده بازماندن رد خون شهروندان مجروح و کشته‌شده رد جریان انقلاب ملی در سلسبیل تهران را نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244001
 
@@ -260,19 +273,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد در جریان تجمع اعتراضی دانش‌آموزان مقابل آموزش و پرورش ساوه، یک مقام محلی این شهر در پاسخ به اعتراض و فیلم گرفتن دانش‌آموزان می‌گوید این اقدام فایده‌ای ندارد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243982
-
-<div align="center"><img src="files/post_243982_VahidOOnLine_243982.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری تسنیم، وابسته به سپاه، نوشت که محسن نقوی، وزیر کشور پاکستان، وارد تهران شد و قرار است با عباس عراقچی، وزیر خارجه جمهوری اسلامی دیدار کند.
-
-رسانه وابسته به سپاه نوشت که نقوی پیش از سفر به تهران با شهباز شریف، نخست وزیر پاکستان دیدار و درباره مذاکرات جمهوری اسلامی و آمریکا دستوراتی‌ به او ابلاغ شد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

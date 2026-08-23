@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 398
 
-📅 آخرین بروزرسانی: 1405/06/01 21:18
+📅 آخرین بروزرسانی: 1405/06/01 21:39
 
 ---
+
+## VahidOOnLine — post 247143
+
+<div align="center"><video src="files/post_247143_VahidOOnLine_247143.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247143_VahidOOnLine_247143.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد گروهی از مردم در دستگرد اصفهان در سوگ جاویدنام محسن چیت‌ساز سنج و دمام می‌زنند.
+محسن چیت‌ساز، ۲۴ ساله‌، ۱۹ دی در شهر دستگرد استان اصفهان با شلیک گلوله جنگی کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247142
 
@@ -285,24 +299,6 @@ iranintl
 احمدی‌مقدم درباره ارتباط با کشورهای همسایه افزود باید «فرصت‌محوری» را جایگزین «تهدیدمحوری» کرد و تعامل را به جای تقابل در پیش گرفت.
 iranintl
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247116
-
-<div align="center"><video src="files/post_247116_VahidOOnLine_247116.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247116_VahidOOnLine_247116.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️گزارش‌ها از حملات پهپادی اوکراین به صنایع نفت در شبه‌جزیره کریمه
-
-♦️رسانه‌های اوکراینی و کانال‌های تلگرامی روسیه روز چهارشنبه سوم تیرماه از حملات سنگین پهپادی اوکراین به تاسیسات نفت و گاز در مناطق مختلف روسیه و ازجمله شبه‌جزیره کریمه خبر دادند.
-ویدیوهای منتشر شده در شبکه‌های اجتماعی ستون‌های عظیم دود برخاسته از یکی از پالایشگاه‌های نفتی این منطقه در مرز دو کشور را نشان می‌دهد.
-روسیه در سال ۲۰۱۴ با برگزاری یک همه‌پرسی کریمه را از اوکراین جدا کرد.
-جامعه جهانی این «تغییر اراضی» را به رسمیت نمی‌شناسد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

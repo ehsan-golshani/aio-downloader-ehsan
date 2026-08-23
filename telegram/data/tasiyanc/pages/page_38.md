@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/06/01 20:48
+📅 آخرین بروزرسانی: 1405/06/01 21:41
 
 ---
+
+## tasiyanc — post 8590
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی پرمیوم  ⚡️
+
+آموزش اتصال ⛓
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8589
 
@@ -254,15 +269,6 @@ Location 🤯 🇫🇷
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨تخریب ایستگاه‌های برق و تاسیسات جدید تصفیه آب در کویت
-
-@TASIYANC 
-⭐️
-</div>
-
-## tasiyanc — post 8549
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨کشتی های امریکایی در سواحل قطر مورد هدف قرار گرفتن
 
 @TASIYANC 
 ⭐️

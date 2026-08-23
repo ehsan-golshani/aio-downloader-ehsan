@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 208
 
-📅 آخرین بروزرسانی: 1405/06/01 21:18
+📅 آخرین بروزرسانی: 1405/06/01 21:39
 
 ---
+
+## VahidOOnLine — post 251465
+
+<div align="center"><video src="files/post_251465_VahidOOnLine_251465.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251465_VahidOOnLine_251465.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️پیت هگست، وزیر جنگ آمریکا، روز سه‌شنبه در نشست پرسش‌وپاسخ سنای آمریکا و در پاسخ به پرسشی درباره توانایی ارتش ایالات متحده جهت نابودی تاسیسات زیرزمینی «کوه کلنگ» در ایران گفت: «بخش زیادی از توانمندی‌های ما محرمانه است، اما اگر کسی در این جهان باشد که بتواند به هر نقطه‌ای بر روی زمین دسترسی پیدا کند، آن ارتش ایالات متحده به‌عنوان قدرتمندترین نیروی نظامی جهان است و این مسئله به گزینه‌ها و موازنه‌ها مربوط می‌شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251464
 
@@ -254,20 +267,6 @@
 علی خلیل‌آبادی، معاون امنیتی و انتظامی استانداری سیستان و بلوچستان، تایید کرد که آمریکا بامداد چهارشنبه دو نقطه در محدوده چابهار و کنارک را هدف حمله قرار داده است.
 
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251445
-
-<div align="center"><video src="files/post_251445_VahidOOnLine_251445.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251445_VahidOOnLine_251445.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️تسنیم در نخستین ساعات بامداد چهارشنبه از فعال شدن پدافند در غرب تهران خبر داد و نوشت که پدافند «در حال مقابله با اهداف متخاصم است.» دقایقی قبل، گزارش‌هایی مبنی بر فعال شدن پدافند در شرق تهران نیز منتشر شده بود.
-تصاویر رسیده به ایندیپندنت فارسی که در مرکز تهران ثبت شده، فعالیت پدافند را نشان می‌دهد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

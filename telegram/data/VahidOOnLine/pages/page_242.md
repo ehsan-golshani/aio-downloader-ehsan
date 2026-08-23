@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 242
 
-📅 آخرین بروزرسانی: 1405/06/01 21:18
+📅 آخرین بروزرسانی: 1405/06/01 21:39
 
 ---
+
+## VahidOOnLine — post 250729
+
+<div align="center"><img src="files/post_250729_VahidOOnLine_250729.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رویترز گزارش داد سازمان دفاع مدنی عربستان سعودی اوایل روز شنبه برای شهر الخرج و ینبع دو هشدار صادر کرد و از ساکنان خواست در برابر «خطر احتمالی» هوشیار باشند.
+
+این سازمان بعدتر اعلام کرد خطر در هر دو منطقه برطرف شده است، اما درباره ماهیت تهدیدی که به صدور این هشدارها منجر شد، توضیحی نداد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250728
 
@@ -267,19 +280,6 @@
 
 iranintl.co
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250709
-
-<div align="center"><video src="files/post_250709_VahidOOnLine_250709.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250709_VahidOOnLine_250709.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️به گزارش تسنیم، خبرگزاری وابسته به سپاه، بامداد شنبه «صدای پنج انفجار در برخی مناطق حاشیه‌ای شهر یزد شنیده شد.» براساس این گزارش، صدای پرواز جنگنده‌ها در آسمان برخی مناطق یزد به وضوح شنیده شده است. همزمان کانال تلگرامی «وحید آنلاین» تصاویری از انفجارها در یزد را منتشر کرد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

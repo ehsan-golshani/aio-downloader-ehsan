@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 142
 
-📅 آخرین بروزرسانی: 1405/06/01 21:18
+📅 آخرین بروزرسانی: 1405/06/01 21:39
 
 ---
+
+## ProxyMTProto — post 47600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tproxy.mom
+Port: 8090
+Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47599
 

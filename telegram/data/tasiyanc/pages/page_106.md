@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/06/01 20:48
+📅 آخرین بروزرسانی: 1405/06/01 21:41
 
 ---
+
+## tasiyanc — post 6270
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چنل پروکسی هنوز جوین نشدین؟
+
+https://t.me/TasiyanProxy
+</div>
 
 ## tasiyanc — post 6269
 
@@ -215,12 +223,6 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpDSm1UQ0N4N0x0dWQ%3D@108.181.58.239:8388#%F0%
 </div>
 
 ## tasiyanc — post 6248
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-BabyGirl 🪐.npvt
-</div>
-
-## tasiyanc — post 6246
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 BabyGirl 🪐.npvt

@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/01 20:48
+📅 آخرین بروزرسانی: 1405/06/01 21:41
 
 ---
+
+## tasiyanc — post 9503
+
+<div align="center"><img src="files/post_9503_tasiyanc_9503.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید تاسیان  🆕
+
+Prompt 🤖🤖
+
+"Ultra-detailed studio portrait of [SUBJECT], shot straight-on from the chest up, centered symmetrical composition. Black-and-white, desaturated skin tones with a dramatic red rim light outlining the hair, ears, jawline, and shoulders. Subject wears a black turtleneck under a black tailored blazer, blending into a near-black background with a subtle deep-red glow behind the head. Serious, confident, direct-to-camera expression with chin slightly lifted. Moody cinematic lighting: soft frontal key light on the face, strong red backlight/edge light creating a glowing halo effect on hair strands. Sharp focus on the face, crisp skin texture and detail, editorial magazine cover quality, high contrast, 4:5 vertical framing, shot on medium format camera, 85mm lens look.
+
+آموزش استفاده 👉
+
+
+💋 @TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9502
 
@@ -390,28 +407,6 @@ IPv6
 فوررری
 🚨سنتکام:
 گروه ضربت ناو هواپیمابر جورج واشنگتن به منطقه عملیاتی ما در خاورمیانه رسید
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9479
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ماه تولدت با کدوم رهبر ایرانی یکی بوده؟!
-
-فروردین = علی خامنه‌ای
-اردیبهشت = داریوش بزرگ
-خرداد = خشایارشاه
-تیر = ناصرالدین شاه قاجار
-مرداد = انوشیروان دادگر
-شهریور = کوروش بزرگ
-مهر = نادرشاه افشار
-آبان = محمدرضا شاه
-آذر = شاه عباس
-دی = کریم‌خان زند
-بهمن = بهرام گور
-اسفند = رضا شاه
-
 @Tasiyanc 
 ⭐️
 </div>

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 419
 
-📅 آخرین بروزرسانی: 1405/06/01 21:18
+📅 آخرین بروزرسانی: 1405/06/01 21:39
 
 ---
+
+## VahidOOnLine — post 246605
+
+<div align="center"><img src="files/post_246605_VahidOOnLine_246605.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شبکه خبری سی‌بی‌اس به نقل از «یک دیپلمات حاضر در مذاکرات سوئیس» گفت که یک جلسه اضطراری برای رسیدگی به مناقشه بین اسرائیل و گروه شبه‌نظامی حزب‌الله لبنان به برنامه اولین روز مذاکرات صلح اضافه شده است.
+
+او اشاره کرد این موضوع در اولین جلسه‌ای که هیات‌های آمریکایی و ایرانی مذاکرات خود را آغاز می‌کنند، مطرح خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246604
 
@@ -256,20 +269,6 @@
 او افزود: «موضوعات زیادی برای گفت‌وگو وجود دارد، اما همه آنها را بررسی خواهیم کرد.»
 
 
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246585
-
-<div align="center"><video src="files/post_246585_VahidOOnLine_246585.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246585_VahidOOnLine_246585.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدحسین خوشوقت، برادر همسر مصطفی خامنه‌ای، یکی از فرزندان رهبر کشته‌شده جمهوری اسلامی، درباره دلیل عدم حضور علنی مجتبی خامنه‌ای در جامعه گفت کارشناسان امنیتی به او توصیه کرده‌اند تصویر و حتی صدایش هم منتشر نشود.
-او همچنین شایعات درباره کشته شدن یا وخامت وضعیت جسمی او، از جمله آسیب شدید به صورت یا از دست دادن پاها، را نادرست خواند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

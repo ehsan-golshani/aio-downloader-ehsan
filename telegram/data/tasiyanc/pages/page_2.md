@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/01 20:48
+📅 آخرین بروزرسانی: 1405/06/01 21:41
 
 ---
+
+## tasiyanc — post 9525
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9524
 
@@ -309,22 +319,5 @@ https://t.me/+TmGWkUYH_8c0OWZk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 از کنکور چخبر چطوری بود؟
-</div>
-
-## tasiyanc — post 9503
-
-<div align="center"><img src="files/post_9503_tasiyanc_9503.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید تاسیان  🆕
-
-Prompt 🤖🤖
-
-"Ultra-detailed studio portrait of [SUBJECT], shot straight-on from the chest up, centered symmetrical composition. Black-and-white, desaturated skin tones with a dramatic red rim light outlining the hair, ears, jawline, and shoulders. Subject wears a black turtleneck under a black tailored blazer, blending into a near-black background with a subtle deep-red glow behind the head. Serious, confident, direct-to-camera expression with chin slightly lifted. Moody cinematic lighting: soft frontal key light on the face, strong red backlight/edge light creating a glowing halo effect on hair strands. Sharp focus on the face, crisp skin texture and detail, editorial magazine cover quality, high contrast, 4:5 vertical framing, shot on medium format camera, 85mm lens look.
-
-آموزش استفاده 👉
-
-
-💋 @TASIYANC ⭐️
 </div>
 

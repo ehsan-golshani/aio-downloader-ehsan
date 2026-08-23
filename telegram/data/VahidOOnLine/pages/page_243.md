@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 243
 
-📅 آخرین بروزرسانی: 1405/06/01 21:18
+📅 آخرین بروزرسانی: 1405/06/01 21:39
 
 ---
+
+## VahidOOnLine — post 250709
+
+<div align="center"><video src="files/post_250709_VahidOOnLine_250709.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250709_VahidOOnLine_250709.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش تسنیم، خبرگزاری وابسته به سپاه، بامداد شنبه «صدای پنج انفجار در برخی مناطق حاشیه‌ای شهر یزد شنیده شد.» براساس این گزارش، صدای پرواز جنگنده‌ها در آسمان برخی مناطق یزد به وضوح شنیده شده است. همزمان کانال تلگرامی «وحید آنلاین» تصاویری از انفجارها در یزد را منتشر کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250708
 
@@ -232,19 +245,6 @@
 🔹اکثر پروژه‌های عمرانی تعطیل و کارگرها و مهندس‌ها بیکار شده‌اند. هنوز مطالباتشان رو بعد از ۴ ماه نداده‌اند. کجا شکایت کنیم؟؟!
 
 🔹روزی ۱۲ ساعت کار می‌کنم تا فقط بتونم میوه و تخم‌مرغ بخرم. متاسفم واقعا.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250688
-
-<div align="center"><img src="files/post_250688_VahidOOnLine_250688.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روابط عمومی ارتش جمهوری اسلامی، شامگاه جمعه اعلام کرد ساعاتی پیش، سامانه موشکی نیروی دریایی ارتش با موشک کروز ساحل به دریا، «شناور متخاصم دشمن را در شمال اقیانوس هند»، هدف قرار داد.
-
-روابط عمومی ارتش جمهوری اسلامی اعلام کرد که شلیک موشک کروز، موجب «ایجاد رعب و وحشت دشمن و دور شدن شناور متخاصم از تیررس رزمندگان» شده است.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

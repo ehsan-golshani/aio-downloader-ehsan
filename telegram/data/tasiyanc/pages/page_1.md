@@ -1,20 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/01 20:48
+📅 آخرین بروزرسانی: 1405/06/01 21:41
 
 ---
 
-## tasiyanc — post 9546
+## tasiyanc — post 9547
 
-<div align="center"><a href="files/post_9546_🇨🇦 @Tasiyanc .ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇨🇦 @Tasiyanc .ovpn</a></div>
+<div align="center"><video src="files/post_9547_tasiyanc_9547.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9547_tasiyanc_9547.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی بعد مرگ از ایرانی‌ جماعت میپرسن زندگی تو دنیا چطوری بود؟:
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9546
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇮🇳 @Tasiyanc.ovpn
 </div>
 
 ## tasiyanc — post 9545
-
-<div align="center"><a href="files/post_9545_🇮🇳 @Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇮🇳 @Tasiyanc.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 📶
@@ -289,15 +297,5 @@ sr1
 ماهد هم بعد از یه مدت شروع می‌کنه بلاگری به اسم و یاد آنیسا مظلوم نمایی کردن، آنیسا اواخر زندگیش می‌گفت ماهد داره بهم خیانت میکنه!
 ﻿
 🩸 @Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 9525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

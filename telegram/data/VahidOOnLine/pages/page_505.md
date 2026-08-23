@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 505
 
-📅 آخرین بروزرسانی: 1405/06/01 21:18
+📅 آخرین بروزرسانی: 1405/06/01 21:39
 
 ---
+
+## VahidOOnLine — post 244053
+
+<div align="center"><video src="files/post_244053_VahidOOnLine_244053.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244053_VahidOOnLine_244053.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از دانش‌آموزان در مشهد یکشنبه ۱۷ خرداد در اعتراض به تاثیر معدل در کنکور و شیوه برگزاری امتحانات به‌صورت حضوری تجمع کرده و شعار دادند: «مشکل‌مون حل نشه، هر روز تجمع می‌شه»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244052
 
@@ -258,19 +271,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️هم‌زمان با آغاز رویدادهای مرتبط با جام جهانی فوتبال، جمعی از ایرانیان روز شنبه، ۱۶ خردادماه، با تجمع مقابل بنای یادبود واشنگتن دی‌سی بار دیگر علیه موج گسترده اعدام‌ها در کشور اعتراض کردند. تجمع‌کنندگان در این منطقه پرتردد، خواستار آزادی فوری تمامی زندانیان سیاسی و لغو محدودیت‌های شدید علیه اینترنت در ایران شدند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244030
-
-<div align="center"><img src="files/post_244030_VahidOOnLine_244030.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پت فالون، عضو جمهوری‌خواه مجلس نمایندگان آمریکا، در پاسخ به پرسش فاکس‌نیوز درباره احتمال لغو مذاکرات با حکومت ایران از سوی ترامپ گفت که فکر می‌کند در نهایت حمله به جمهوری اسلامی اجتناب‌ناپذیر خواهد بود. او تاکید کرد جمهوری اسلامی هرگز با حسن نیت مذاکره نکرده است.
-فالون گفت سپاه پاسداران «منطقی نیست» و این گروه را برای مذاکره «بیش از حد رادیکال» توصیف کرد.
-
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
