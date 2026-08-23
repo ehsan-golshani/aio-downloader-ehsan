@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/01 13:29
+📅 آخرین بروزرسانی: 1405/06/01 14:16
 
 ---
+
+## tasiyanc — post 9270
+
+## tasiyanc — post 9269
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیوی اد بفرستید ویسارو @Tssub
+</div>
 
 ## tasiyanc — post 9267
 
@@ -236,24 +244,5 @@ http://til.ac/z5jcpGT
 g22
 🔥کانال اطلاع رسانی ایران:👇
 https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9242
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از اوپن ها راضی اید؟
-</div>
-
-## tasiyanc — post 9241
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶 
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-⭕️ در صورت برقرار نشدن اتصال دو سه بار بزنید
-
-@TASIYANC ✅
 </div>
 

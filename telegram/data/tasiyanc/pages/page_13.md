@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/01 13:29
+📅 آخرین بروزرسانی: 1405/06/01 14:16
 
 ---
+
+## tasiyanc — post 9242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از اوپن ها راضی اید؟
+</div>
+
+## tasiyanc — post 9241
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶 
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+⭕️ در صورت برقرار نشدن اتصال دو سه بار بزنید
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9240
 
@@ -225,19 +244,5 @@ a21
 🎯همین حالا عضو شو و شروع کن👇
 https://t.me/+FaoDjhEVG34wMWFk
 https://t.me/+FaoDjhEVG34wMWFk
-</div>
-
-## tasiyanc — post 9216
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خودرو های ماقبل ۸۵ هیچی بهشون تعلق نمیگیره فقط میتونن بنزین ۸۷ تومنی بزنن فقط میشه شاشید تو باک
-</div>
-
-## tasiyanc — post 9215
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آغاز حملات موشکی سپاه از سیریک به سمت تنگه هرمز ( تایید/رد) نمیشه
-
-@Tasiyanc ⭐️
 </div>
 

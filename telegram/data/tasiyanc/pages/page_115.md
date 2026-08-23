@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/06/01 13:29
+📅 آخرین بروزرسانی: 1405/06/01 14:16
 
 ---
+
+## tasiyanc — post 6030
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مال منم حالا چیکاکنم برکرده
+</div>
+
+## tasiyanc — post 6029
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اره برامنم امروز پرید
+</div>
 
 ## tasiyanc — post 6028
 
@@ -134,20 +146,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 VİP 🔥.npvt
-</div>
-
-## tasiyanc — post 6005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🇫🇷.npvt
-</div>
-
-## tasiyanc — post 6004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کی قهرمان میشه ؟
-
-🔴 آرسنال ❤️
-🇫🇷 پاریس 🔥
 </div>
 

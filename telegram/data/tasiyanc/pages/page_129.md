@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 129
 
-📅 آخرین بروزرسانی: 1405/06/01 13:29
+📅 آخرین بروزرسانی: 1405/06/01 14:16
 
 ---
+
+## tasiyanc — post 5674
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀🚀🚀🚀🚀🚀🚀🚀
+</div>
+
+## tasiyanc — post 5673
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان نامحدود📱
+
+⛈سرور vip تست شده همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5672
 
@@ -162,24 +179,5 @@ WİFİ موشک.npvt
 
 ترکیبی ✅
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5639
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5638
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منو چقد دوس؟
 </div>
 

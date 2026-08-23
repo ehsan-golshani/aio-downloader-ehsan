@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/01 13:29
+📅 آخرین بروزرسانی: 1405/06/01 14:16
 
 ---
+
+## tasiyanc — post 9402
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ العربیه :
+
+ایران و آمریکا بر سر تمدید مجدد ۶۰ روزه ی آتش بس موافقت کردن.
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9397
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی وایرگارد  😎
+
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9396
 
@@ -211,25 +245,5 @@ g26
 
 بعد این حرفاش ۹۰۰ هزار نفر آنفالوش کردن فعلا
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9370
-
-<div align="center"><video src="files/post_9370_tasiyanc_9370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9370_tasiyanc_9370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آخرین ویدیویی که مادر جاویدنام عسل شفیعی، با دخترش ضبط کرده بود رو منتشر کرد.
-
-عسل دانشجوی ۲۱ ساله مهندسی کامپیوتر بود که ۱۸ دی ماه به ضرب گلوله به قتل رسید.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 قالیباف: ۹۰ میلیون ایرانی حامی نظام جمهوری اسلامی هستن
-@Tasiyanc 🏛
 </div>
 

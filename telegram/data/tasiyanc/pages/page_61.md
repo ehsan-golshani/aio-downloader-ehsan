@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/06/01 13:29
+📅 آخرین بروزرسانی: 1405/06/01 14:16
 
 ---
+
+## tasiyanc — post 7788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل با اجازتون عوض شد ❤️
+</div>
+
+## tasiyanc — post 7785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عجب پخت پزی شد 💥 اندپوینتای جدید سرعتی
+دوستانی ک آیفون دارن تو ویندسکرایب بزنید
+</div>
 
 ## tasiyanc — post 7778
 
@@ -163,17 +176,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حرومزاده ها
-</div>
-
-## tasiyanc — post 7732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه پاس به رونالدو ندادید دیشب
-</div>
-
-## tasiyanc — post 7731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بورنو فرناندز ، ویتینیا ناموستون گاییدم
 </div>
 

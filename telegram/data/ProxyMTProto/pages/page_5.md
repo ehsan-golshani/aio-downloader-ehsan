@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/01 13:27
+📅 آخرین بروزرسانی: 1405/06/01 14:14
 
 ---
+
+## ProxyMTProto — post 50337
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hub.savelyev.click
+Port: 443
+Secret: ee609a2ad7e277c6eb2dd39767e12777b86875622e736176656c7965762e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50335
 
@@ -158,24 +176,6 @@ Secret: eeb8f5ea85920054511cbb1c19f1baf3553265383964642e73776966742d63646e2e6e65
 </div>
 
 ## ProxyMTProto — post 50318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50317
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: max.kimt.click
-Port: 443
-Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50316
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown

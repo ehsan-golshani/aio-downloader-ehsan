@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/01 13:29
+📅 آخرین بروزرسانی: 1405/06/01 14:16
 
 ---
+
+## tasiyanc — post 9471
+
+<div align="center"><img src="files/post_9471_tasiyanc_9471.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖هوش مصنوعی بدون سانسور
+و بدون محدودیت سنی
+
+آدرس سایت:
+
+
+🆕 https://notrack.ai/chat
+
+
+⚡️بدون سانسور
+
+
+⚡️بدون ثبت نام
+
+
+⚡️بدون محدودیت
+
+
+⚡️پشتیبانی از زبان فارسی
+
+Join As @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9469
 
@@ -332,32 +371,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 
 @Tasiyanc 🏛
-</div>
-
-## tasiyanc — post 9445
-
-<div align="center"><img src="files/post_9445_tasiyanc_9445.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💻 گوشی مرموز Surface Phone ؛ محصول مایکروسافت که هیچ وقت به بازار نرسید !
-
-▪️تصاویر جدیدی از نمونه اولیه گوشی مایکروسافت با نام رمز Raven فاش شده که طراحی احتمالی Surface Phone در سال های 2013 و 2014 رو نشون میده. این دستگاه از نظر ظاهر شباهت زیادی به تبلت Surface 2 داشته.
-
-▪️این گوشی قرار بوده با نمایشگر 720p و سیستم عامل Windows Phone 8.1 عرضه بشه و از یکی از تراشه های سری Snapdragon کوالکام استفاده کنه.
-اما در نهایت پروژه Raven لغو شد و این گوشی هیچ وقت به دست کاربران نرسید.
-
-+ حالا بعد از سال ها، تصاویر نمونه اولیه اون منتشر شده.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/01 13:27
+📅 آخرین بروزرسانی: 1405/06/01 14:14
 
 ---
+
+## ProxyMTProto — post 50297
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50296
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ljox44lz.helper.website
+Port: 443
+Secret: eeb4f9b88528d51bd43c20e7d400020711636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50295
 
@@ -164,24 +182,6 @@ Secret: ee16309abd572d284b309ef26bd7a3f68570726f78792e6c6f646b69726d6d2e7275
 Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
 Port: 4443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50277
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: srv.savelyev.click
-Port: 443
-Secret: ee966bd27e82ca84e00f7dcf1eecd7237c7372762e736176656c7965762e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50276
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mc-ssh.t-proxyru.info.
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/06/01 13:29
+📅 آخرین بروزرسانی: 1405/06/01 14:16
 
 ---
+
+## tasiyanc — post 8313
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
+</div>
+
+## tasiyanc — post 8312
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ ۴ انفجار در یزد شنیده شد
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8311
 
@@ -162,17 +176,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آدرس ، کد ملی با ادرس
-</div>
-
-## tasiyanc — post 8290
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشخصات کامل بزاریم؟
-</div>
-
-## tasiyanc — post 8289
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعدیا بیان پیوی
 </div>
 

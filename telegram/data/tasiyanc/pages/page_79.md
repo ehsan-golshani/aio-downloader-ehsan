@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/06/01 13:29
+📅 آخرین بروزرسانی: 1405/06/01 14:16
 
 ---
+
+## tasiyanc — post 7114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرتغال رید ، مساوی کردیم
+</div>
+
+## tasiyanc — post 7112
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طارمی مادرت به عذات بشینه ایشالا
+به کشتن ۴۰ هزار نفر انسان تو میگی اختلافات جزیی
+</div>
 
 ## tasiyanc — post 7111
 
@@ -244,26 +257,5 @@ https://persianasports.com/live.html
 
 @Tasiyanc 
 ✅ | تاسیان
-</div>
-
-## tasiyanc — post 7080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شب نشینی با تاسیان😁
-🦦
-https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 7079
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐
-🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@admin.c1.webramz.co:443#Fast%20%40Tasiyanc%20%F0%9F%AA%90
-نامحدود سرعتی 
-⚡️
-🇬🇧
-@Tasiyanc
-💠
 </div>
 
