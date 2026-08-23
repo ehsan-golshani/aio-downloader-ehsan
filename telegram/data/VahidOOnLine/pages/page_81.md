@@ -1,8 +1,38 @@
 # آرشیو کانال VahidOOnLine - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/06/02 01:19
+📅 آخرین بروزرسانی: 1405/06/02 01:42
 
 ---
+
+## VahidOOnLine — post 254635
+
+<div align="center"><img src="files/post_254635_VahidOOnLine_254635.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شعبه چهارم دادگاه کیفری دمشق، روز سه‌شنبه ۲۰ مردادماه، بشار اسد، رئیس جمهوری مخلوع سوریه را با صدور یک حکم غیابی به اعدام محکوم کرد.
+
+به گزارش خبرگزاری فرانسه، این دادگاه کیفری پس از محکومیت اسد در پرونده اتهام‌های مربوط به «جنایت‌های جنگی» و «جنایت علیه بشریت» در جریان جنگ داخلی سوریه، حکم اعدام او را صادر کرد.
+
+این نخستین حکم قضایی از این نوع علیه یکی از مقام‌های ارشد حکومت پیشین در دوره دولت انتقالی سوریه محسوب می‌شود. مقام‌های دولت انتقالی سوریه در سال جاری روند محاکمه شماری از چهره‌های حکومت سابق را، چه به‌صورت حضوری و چه در غیاب متهمان، آغاز کرده‌اند.
+
+بشار اسد در آذر ماه ۱۴۰۳ و در آستانه ورود مخالفان مسلح به دمشق، سوریه را ترک کرد و به همراه خانواده‌اش به مسکو گریخت.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254634
+
+<div align="center"><video src="files/post_254634_VahidOOnLine_254634.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254634_VahidOOnLine_254634.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از پرستاران در نیشابور سه‌شنبه ۲۰ مرداد در اعتراض به پرداخت نشدن معوقات و کارانه، کمبود تجهیزات و پرسنل، اضافه‌کار اجباری، مدیریت ناصحیح و تبعیض در پرداخت کارانه، مقابل بیمارستان حکیم تجمع کردند و شعار «کارانه حق ماست، پولش تو جیب شماست» سردادند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254633
 
@@ -317,35 +347,6 @@ IranintlTV
 
 ترامپ وضعیت اقتصادی جمهوری اسلامی را آشفته خواند.
 htt
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254615
-
-<div align="center"><video src="files/post_254615_VahidOOnLine_254615.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254615_VahidOOnLine_254615.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز یکشنبه ١٨ مرداد، یک دستگاه خودرو با پنج سرنشین در مسیر منتهی به پیرشالیار اورامان در استان کردستان پس از خروج از جاده به دره سقوط کرد، حادثه‌ای که تاکنون به مرگ چهار جوان از اهالی منطقه انجامیده و حال پنجمین سرنشین نیز وخیم گزارش شده است.
-شدت سقوط به حدی بود که خودرو در عمق دره قرار گرفت. در پی حادثه، مردم محلی با همیاری و امکانات خود و بدون حضور نیروهای امدادی دولتی، خودرو را از ته دره بالا کشیدند.
-این حادثه بار دیگر دشواری امدادرسانی در مسیرهای کوهستانی و صعب‌العبور اورامان و همچنین وضعیت ایمنی جاده‌های منطقه را به مسئله‌ای جدی تبدیل کرده است.
-چهار جوان در این حادثه جان خود را از دست داده‌اند و پنجمین سرنشین که به‌شدت مجروح شده، برای دریافت خدمات درمانی به مرکز درمانی منتقل شده است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254614
-
-<div align="center"><video src="files/post_254614_VahidOOnLine_254614.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254614_VahidOOnLine_254614.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال گروهی از ایرانیان مقیم آلمان دوشنبه ۱۹ مرداد علیه جمهوری اسلامی مقابل سرکنسولگری آمریکا در شهر دوسلدورف تجمع کرده و «ای ایران» را همخوانی کردند.
 IranintlTV
 
 🤖 @VahidOOnLine

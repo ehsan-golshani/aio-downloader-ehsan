@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/02 01:19
+📅 آخرین بروزرسانی: 1405/06/02 01:42
 
 ---
+
+## VahidOOnLine — post 256452
+
+<div align="center"><img src="files/post_256452_VahidOOnLine_256452.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عباسعلی مطلبی، رییس سازمان نظام دامپزشکی، گفت: «در یک دهه اخیر نگهداری پت در بسیاری از خانواده‌ها مرسوم و رواج پیدا کرد متعاقب آن در مکان هایی تحت عنوان پت‌شاپ به آنها خدمات ارائه شد که از نظر سازمان نظام دامپزشکی این فعالیت غیر قانونی است.»
+
+مطلبی گفت: «در حال حاضر اتحادیه گل فروشان, آرایشگران و بعضا اتاق اصناف به پت‌شاپ‌ها مجوز می‌دهند، در حالی که این مجوزها باید زیر نظر سازمان نظام دامپزشکی کشور باشد.»
+
+رییس سازمان نظام دامپزشکی افزود: «پت‌شاپ‌ها اجازه فروش غذا، دارو و مکمل‌های مربوط به حیوانات خانگی را ندارند و باید این مهم توسط داروخانه‌های تحت نظر بیمارستان‌های دامپزشکی و یا فروشگاه‌های دارای مجوز از سازمان نظام دامپزشکی انجام شود.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256451
+
+<div align="center"><video src="files/post_256451_VahidOOnLine_256451.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256451_VahidOOnLine_256451.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال دیوارنوشته‌‌ای را در مهرشهر کرج نشان می‌دهد که به انگلیسی خطاب به بنیامین نتانیاهو نوشته‌اند: «دوستت داریم بی‌بی» او می‌گوید: «ارزشی‌ها نفهمیده‌اند چه نوشته شده و آن را از روی دیوار یاک نکرده‌اند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256450
 
@@ -257,34 +285,6 @@ IranintlTV
 
 این ارقام به گفته وزیر نفت مربوط به ذخیره کشف‌شده است و ارزش اقتصادی نهایی آن به عواملی از جمله میزان واقعی تولید قابل استحصال، هزینه توسعه میدان، زیرساخت‌های انتقال و فرآورش و قیمت‌های آینده انرژی بستگی خواهد داشت.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256428
-
-<div align="center"><img src="files/post_256428_VahidOOnLine_256428.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در ادامه روند نزولی ارزش پول ملی در ایران قیمت دلار آمریکا یک‌شنبه اول شهریور به ۲۰۰ هزار تومان رسید.
-
-همزمان پوند بریتانیا از ۲۷۲ هزار تومان عبور کرد و یورو نیز به مرز ۲۳۴ هزار تومان رسید.
-
-قیمت هر سکه طلای طرح جدید، موسوم به «امامی» نیز از ۲۱۸ میلیون تومان فراتر رفت.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256427
-
-<div align="center"><video src="files/post_256427_VahidOOnLine_256427.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256427_VahidOOnLine_256427.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در یکشنبه یکم شهریور می‌گوید بستنی میهن در عرض یک هفته کوچک‌تر و گران‌تر شده است.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>
