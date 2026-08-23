@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/01 14:44
+📅 آخرین بروزرسانی: 1405/06/01 15:20
 
 ---
+
+## ProxyMTProto — post 50199
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: haji.biabala.co.uk
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50198
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: Unknown
 Port: 8443
 Secret: ee16309abd572d284b309ef26bd7a3f68570726f78792e6c6f646b69726d6d2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50179
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 135.181.74.154
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

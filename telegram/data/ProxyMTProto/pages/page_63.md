@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/06/01 14:44
+📅 آخرین بروزرسانی: 1405/06/01 15:20
 
 ---
+
+## ProxyMTProto — post 49174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: webhook.what-ever.co.uk.
+Port: 443
+Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49173
 
@@ -172,15 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: s01.neo-trading.org
 Port: 443
 Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: AjaB_Sorati_Dare
-Port: 443
-Secret: BeZaN_RoooSh_Connect
 @ProxyMTProto
 </div>
 

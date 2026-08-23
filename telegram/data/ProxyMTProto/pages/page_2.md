@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/01 14:44
+📅 آخرین بروزرسانی: 1405/06/01 15:20
 
 ---
+
+## ProxyMTProto — post 50399
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50398
 
@@ -172,15 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e
 Server: topproxt.asia
 Port: 443
 Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50379
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: irancell-mci-rightell-adsl.visalawyer.co.uk.
-Port: 443
-Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
 @ProxyMTProto
 </div>
 
