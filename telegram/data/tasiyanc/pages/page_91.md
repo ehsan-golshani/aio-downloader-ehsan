@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/06/01 21:41
+📅 آخرین بروزرسانی: 1405/06/01 22:26
 
 ---
+
+## tasiyanc — post 6700
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موقع بحران خانواده‌ایم، موقع آرامش غریبه‌ایم 😂
+</div>
 
 ## tasiyanc — post 6698
 
@@ -175,11 +181,5 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۹۰٪ کانفیگای NPV ک زدم امروز وصلن
-</div>
-
-## tasiyanc — post 6677
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc - DE VIP 🇩🇪⚡.npvt
 </div>
 

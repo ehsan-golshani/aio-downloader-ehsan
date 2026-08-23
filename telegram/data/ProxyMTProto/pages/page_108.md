@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/06/01 21:39
+📅 آخرین بروزرسانی: 1405/06/01 22:24
 
 ---
+
+## ProxyMTProto — post 48281
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: link.mishkalapy.life
+Port: 443
+Secret: eeb6b2b376ea60c64410542c640dc2765e6c696e6b2e6d6973686b616c6170792e6c696665
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48280
 
@@ -172,15 +181,6 @@ Secret: ee2644ac3ab3b5c2f5dc1aa8e71ecaee93617669746f2e7275
 Server: blue.protocolsix.info
 Port: 22
 Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48261
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: go.antitspu.com
-Port: 443
-Secret: ee0d12d8f206a08b06eced9a104734a824676f2e616e7469747370752e636f6d
 @ProxyMTProto
 </div>
 

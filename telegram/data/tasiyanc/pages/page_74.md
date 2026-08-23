@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/06/01 21:41
+📅 آخرین بروزرسانی: 1405/06/01 22:26
 
 ---
+
+## tasiyanc — post 7300
 
 ## tasiyanc — post 7299
 
@@ -175,11 +177,5 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 📹💬💬
 
 @TasiyanAploadBot
-</div>
-
-## tasiyanc — post 7268
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز کردیم ریکشن نمیزنین
 </div>
 

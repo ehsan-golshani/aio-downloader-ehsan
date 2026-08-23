@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 134
 
-📅 آخرین بروزرسانی: 1405/06/01 21:41
+📅 آخرین بروزرسانی: 1405/06/01 22:26
 
 ---
+
+## tasiyanc — post 5534
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال یک ساعتی رو پنل داشتیم بخاطر ارسال کانفیگ توسط دوستان به اپ های ایرانی آیپی ما فیلتر میشه و این مشکلات طبیعیه ، اختلال رفع شده و مثل همیشه وصلیم
+</div>
 
 ## tasiyanc — post 5533
 
@@ -342,15 +348,5 @@ gül bana dünyalar benim olsun
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 WiFi 🥝.npvt
-</div>
-
-## tasiyanc — post 5501
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

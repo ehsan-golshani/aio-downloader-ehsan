@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/01 21:41
+📅 آخرین بروزرسانی: 1405/06/01 22:26
 
 ---
+
+## tasiyanc — post 9078
+
+<div align="center"><img src="files/post_9078_tasiyanc_9078.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 شب و 6 برد پشت هم 
+✅
+
+من به پول هیچکدومتون نیاز ندارم و قرار نیست چیزی بهتون بفروشم
+
+آماری رو رقم زدم که حتی تازه وارد هم میفهمه این آمار کار هرکس نیست
+🚀
+g16
+https://t.me/+5fvta-uF4QA3ZDY0
+https://t.me/+5fvta-uF4QA3ZDY0
+</div>
 
 ## tasiyanc — post 9077
 
@@ -339,13 +356,5 @@ Join @TASIYANC
 🌐 betinja.bet
 کانال بونوس های رایگان g15
 @betinjabet
-</div>
-
-## tasiyanc — post 9055
-
-<div align="center"><img src="files/post_9055_tasiyanc_9055.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔱 @Tasiyanc - R²all.hc
 </div>
 

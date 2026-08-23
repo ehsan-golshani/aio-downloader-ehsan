@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/06/01 21:39
+📅 آخرین بروزرسانی: 1405/06/01 22:24
 
 ---
+
+## ProxyMTProto — post 49309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: stars.tg-proxy.fun
+Port: 6443
+Secret: a545c35eb2bdfa1a93df5ebe69957120
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49308
 
@@ -172,15 +181,6 @@ Secret: BeZaN_RoooSh_Connect
 Server: petrichor.slarkfat.icu
 Port: 443
 Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49289
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 
