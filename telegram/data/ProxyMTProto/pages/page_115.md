@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/06/01 16:40
+📅 آخرین بروزرسانی: 1405/06/01 17:21
 
 ---
+
+## ProxyMTProto — post 48131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 51.250.75.249
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48130
 
@@ -172,15 +181,6 @@ Secret: ee3740849efd941157c45810d974fd66097374617469632e707278746f6461792e73746f
 Server: form.quickdl.info
 Port: 22
 Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48111
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: data.proxyvpn.site
-Port: 443
-Secret: ee7d75b7a3d02eefad99691681a534c1fe646174612e70726f787976706e2e73697465
 @ProxyMTProto
 </div>
 
