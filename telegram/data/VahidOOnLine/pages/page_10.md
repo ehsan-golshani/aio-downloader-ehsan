@@ -1,8 +1,59 @@
 # آرشیو کانال VahidOOnLine - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/02 00:43
+📅 آخرین بروزرسانی: 1405/06/02 01:19
 
 ---
+
+## VahidOOnLine — post 256294
+
+<div align="center"><video src="files/post_256294_VahidOOnLine_256294.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256294_VahidOOnLine_256294.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در رسانه‌های اجتماعی نشان می‌دهد بسیجیان حکومت در ادامه امنیتی کردن فضا و استفاده از کودکان در محیط‌های نظامی،‌ تعدادی کودک را پشت ماشین‌های تسلیحاتی سنگین نشانده‌اند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256293
+
+<div align="center"><video src="files/post_256293_VahidOOnLine_256293.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256293_VahidOOnLine_256293.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روستای ساتره، چالوس؛ «به جای کمک به لبنان، این پل رو درست کنند» - گزارشگر
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256292
+
+<div align="center"><video src="files/post_256292_VahidOOnLine_256292.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256292_VahidOOnLine_256292.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️آواز بندری مردم جنوب؛ «رو گردنش گلوبندِ عکس رضاشاه»
+
+♦️یک گروه موسیقی در بندرعباس، در میان مردم، بخشی از ترانه قدیمی و معروف بندری «سر خیابون بندر» را اجرا کرد، ترانه‌ای که سال‌هاست در موسیقی عامه‌پسند جنوب و روایت‌های موسیقایی آبادان و خوزستان شنیده می‌شود.
+
+در این اجرای جمعی، مردم نیز همراه گروه شروع به خواندن کردند و یکی از بخش‌های شناخته‌شده شعر را با هم تکرار کردند:
+«جومه (پیراهن) ویل چاپی چقد قشنگه
+سر خیابون بندر چقد قشنگه
+رو گردنش گلوبند عکس رضاشاه
+بچا (بچه‌ها) مهندس اومده بریم تماشا»
+
+منظور این بخش از شعر، تصویر یک گردنبند با عکس رضاشاه است، نوعی زیور گردنی که عکس یا نشان رضاشاه روی آن قرار می‌گرفت و به‌صورت آویز دور گردن انداخته می‌شد. این نمادها بعدها، پس از انقلاب ۱۳۵۷، با نشان‌ها و پلاک‌هایی با عنوان «بهار آزادی» جایگزین شدند.
+
+این ترانه در نسخه‌های منتشرشده با نام «حلیمه» نیز شناخته می‌شود و در ادامه، داستانی عاشقانه میان «کریم» و «حلیمه» را در فضای آبادان روایت می‌کند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256291
 
@@ -289,40 +340,6 @@ Indypersian
 پارک ساحلی مرد ماهیگیر از فضاهای شناخته‌شده کیش است و ساحل شنی آن پیش‌تر نیز میزبان برنامه‌ها و مسابقات ساخت مجسمه‌های شنی بوده است.
 این تصاویر را محمود خاکباز ثبت کرده و در خبرگزاری ایرنا منتشر شده‌اند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256266
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساحل پارک ماهیگیر کیش عصر پنجشنبه ۲۹ مرداد به صحنه‌ای برای نمایش خلاقیت و هنر خانواده‌های ساکن جزیره تبدیل شد، جایی که ماسه‌های ساحل، ماده اولیه ساخت مجسمه‌هایی شدند که حاصل همکاری و ذوق شرکت‌کنندگان بود.
-در جشنواره مجسمه‌های ماسه‌ای، خانواده‌ها در کنار ساحل گرد هم آمدند و با استفاده از شن و ماسه، آثار خود را ساختند، رویدادی که علاوه بر جنبه هنری و تفریحی، فرصتی برای حضور جمعی خانواده‌ها در فضای ساحلی و تجربه یک فعالیت خلاقانه در کنار یکدیگر فراهم کرد.
-پارک ساحلی مرد ماهیگیر از فضاهای شناخته‌شده کیش است و ساحل شنی آن پیش‌تر نیز میزبان برنامه‌ها و مسابقات ساخت مجسمه‌های شنی بوده است.
-این تصاویر را محمود خاکباز ثبت کرده و در خبرگزاری ایرنا منتشر شده‌اند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ضعیف‌شدن یک حکومت الزاما به معنای سقوط آن نیست. تغییر زمانی امکان‌پذیر می‌شود که فشار اجتماعی، ریزش در ساختار قدرت، فشار خارجی و یک جایگزین قابل‌اعتماد به یکدیگر پیوند بخورند. ایرانیان چگونه می‌توانند خشم را به سازمان، نارضایتی را به قدرت اجتماعی و ترس از آینده را به امیدی واقعی برای گذار تبدیل کنند؟
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256264
-
-<div align="center"><video src="files/post_256264_VahidOOnLine_256264.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256264_VahidOOnLine_256264.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان آلمان روز جمعه در مقابل کنسولگری جمهوری اسلامی در مونیخ تجمع کرده تا با اعدام و سرکوب در ایران مخالفت کنند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>
