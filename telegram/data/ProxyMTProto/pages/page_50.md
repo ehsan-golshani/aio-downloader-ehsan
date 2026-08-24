@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/06/02 22:55
+📅 آخرین بروزرسانی: 1405/06/02 23:51
 
 ---
+
+## ProxyMTProto — post 49485
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: vpn4.primeperformance.space
+Port: 8443
+Secret: ee4331ae1586ba488e489e092e1783969e76706e342e7072696d65706572666f726d616e63652e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ops2ops.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49483
 
@@ -156,17 +174,6 @@ Secret: ee47db8cfb73a38af6c54d8976432e265863646e2e736176656c7965762e636c69636b
 Server: Unknown
 Port: 443
 Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49465
-
-## ProxyMTProto — post 49464
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 
