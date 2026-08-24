@@ -1,8 +1,14 @@
 # آرشیو کانال VahidOOnLine - صفحه 167
 
-📅 آخرین بروزرسانی: 1405/06/03 00:54
+📅 آخرین بروزرسانی: 1405/06/03 01:30
 
 ---
+
+## VahidOOnLine — post 252645
+
+<div align="center"><video src="files/post_252645_VahidOOnLine_252645.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252645_VahidOOnLine_252645.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 ## VahidOOnLine — post 252644
 
@@ -280,19 +286,6 @@
 
 اشرفی گفت علت دقیق آتش‌سوزی هنوز مشخص نیست، اما بر اساس شواهد اولیه، احتمال می‌رود این حریق «منشا انسانی و عمدی» داشته باشد.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252611
-
-<div align="center"><video src="files/post_252611_VahidOOnLine_252611.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252611_VahidOOnLine_252611.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فایننشال تایمز: امارات در حال احیای روابط اقتصادی با ایران است، اما هم‌زمان همکاری دفاعی خود با آمریکا و اسرائیل را گسترش می‌دهد. راهبردی پرریسک برای حفظ امنیت و رونق اقتصادی در میانه جنگ.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

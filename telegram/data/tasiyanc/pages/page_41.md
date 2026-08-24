@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/06/02 22:57
+📅 آخرین بروزرسانی: 1405/06/03 01:33
 
 ---
+
+## tasiyanc — post 8508
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانال تاسیان متعلق به تمام کسانی هست که وطن پرستن نه حکومت پرست ❤️
+</div>
+
+## tasiyanc — post 8507
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری دنیا جهانبخت از حضور در مراسم عزاداری. وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8504
 
@@ -243,21 +255,5 @@ Loc 🇩🇪 🇩🇪
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8469
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ سنتکام : حملات ما به ایران آغاز شد
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8468
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ گزارش از انفجار در منطقه سردرود تبریز
-
-@TASIYANC ✅
 </div>
 

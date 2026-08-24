@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/06/02 22:57
+📅 آخرین بروزرسانی: 1405/06/03 01:33
 
 ---
+
+## tasiyanc — post 7099
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید رو به راهید؟
+</div>
+
+## tasiyanc — post 7096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟3 کانفیگ اختصاصی دارک تانل 🌟
+
+حجم نامحدود - سرعتی 🚀
+
+تست شده رو تمام نت ها ✅
+
+دانلود Dark Tunnel  🕹
+
+آموزش اتصال به سرور دارک ⏩
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7095
 
@@ -246,31 +268,5 @@ Loc 🇬🇧
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 🌟
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها ✅
-
-دانلود Dark Tunnel  🕹
-
-آموزش اتصال به سرور دارک ⏩
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7055
-
-<div align="center"><img src="files/post_7055_tasiyanc_7055.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت دلار هم اکنون 155000
 </div>
 

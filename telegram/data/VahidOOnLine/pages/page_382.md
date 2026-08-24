@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 382
 
-📅 آخرین بروزرسانی: 1405/06/03 00:54
+📅 آخرین بروزرسانی: 1405/06/03 01:30
 
 ---
+
+## VahidOOnLine — post 247698
+
+<div align="center"><video src="files/post_247698_VahidOOnLine_247698.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247698_VahidOOnLine_247698.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از دانشجویان ارشد و دکتری، یکشنبه هفتم تیرماه در اعتراض به حضوری بودن امتحانات مقابل سازمان مرکزی دانشگاه آزاد در تهران تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247697
 
@@ -258,20 +271,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از ایرانیان در مونترال کانادا، شنبه ششم تیرماه تجمع برگزار کردند و فریاد «مرگ بر جمهوری اسلامی» سردادند.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247678
-
-<div align="center"><video src="files/post_247678_VahidOOnLine_247678.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247678_VahidOOnLine_247678.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ارتش اسرائیل اعلام کرد در عملیاتی در جنوب لبنان، تعدادی از نیروهای مسلح حزب‌الله را که به سلاح آرپی‌جی مجهز بودند، هدف قرار داده و کشته است. به گفته ارتش اسرائیل، این عملیات با هدایت نیروهای یگان ویژه «اگوز» تحت فرماندهی لشکر ۳۶ و با مشارکت نیروی هوایی انجام شده است.
-بر اساس بیانیه ارتش اسرائیل، نیروهای حزب‌الله در نزدیکی محل استقرار نیروهای اسرائیلی فعالیت می‌کردند و از نگاه ارتش اسرائیل، تهدیدی برای نیروهای این کشور به شمار می‌رفتند. ارتش اسرائیل همچنین اعلام کرد علاوه بر هدف قرار دادن این افراد، ساختمانی را که این نیروها از آنجا فعالیت می‌کردند نیز بمباران کرده است.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

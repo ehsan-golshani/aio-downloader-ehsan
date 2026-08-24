@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/03 00:54
+📅 آخرین بروزرسانی: 1405/06/03 01:30
 
 ---
+
+## VahidOOnLine — post 256450
+
+<div align="center"><video src="files/post_256450_VahidOOnLine_256450.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256450_VahidOOnLine_256450.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌‌اینترنشنال، گروهی از ایرانیان مقیم سوئد یکشنبه یکم شهریور در سالروز تولد ستار بهشتی، معترض کشته‌شده تجمع کردند.
+ستار بهشتی، وبلاگ‌نویسی بود که ۱۳ آبان ۱۳۹۱ به دلیل نوشته‌هایش به دست ماموران جمهوری اسلامی کشته شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256449
 
@@ -270,21 +284,6 @@ IranintlTV
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در یکشنبه یکم شهریور می‌گوید بستنی میهن در عرض یک هفته کوچک‌تر و گران‌تر شده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256426
-
-<div align="center"><img src="files/post_256426_VahidOOnLine_256426.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدرضا عارف، معاون اول رییس دولت جمهوری اسلامی، درباره افزایش قیمت بنزین گفت: «امیدوارم نظام هر تصمیمی می‌گیرد، خبر خوبی باشد. ممکن است به‌دلیل اینکه کار رسانه‌ای کمتر می‌کنیم، [مردم] توجیه نباشند. بنای ما بر این است که پس از توجیه مردم که این تصمیم به نفع شما است، این کار را انجام دهیم.»
-
-عارف گفت: «اگر احساس کنیم مردم مخالف هستند یا آمادگی ندارند، قطعا این کار را نخواهیم کرد.»
-
-معاون اول پزشکیان گفت: «ملاحضات زمان جنگ را می‌کنیم و برای همین اصلاحات گام به گام است و هر گام با نظر مردم اگر موفق بود، گام بعدی را برمی‌داریم.»
 IranintlTV
 
 🤖 @VahidOOnLine

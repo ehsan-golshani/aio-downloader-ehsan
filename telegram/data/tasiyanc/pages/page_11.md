@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/02 22:57
+📅 آخرین بروزرسانی: 1405/06/03 01:33
 
 ---
+
+## tasiyanc — post 9339
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز 16 August، روز جهانی جوک گفتن و کصخل بازیه
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9338
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎲 با اولین شارژ  🤩🤩🤩درصد شارژ بیشتر بگیر
+🎲 بازگشت هفتگی 🤩🤩 درصد
+🎲 هر واریز با کریتپو 🤩🤩 درصد هدیه بگیر
+
+🎲ورود به سایت و دریافت بونوس ۳۰۰ درصد
+👇🏻👇🏻
+🎲  🌐winro.io🎲
+
+کانال اخبار و هدایا👇🏻
+🌐Telegram
+</div>
 
 ## tasiyanc — post 9337
 
@@ -243,33 +267,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 لیست افرادی که در پویش جان فدا ثبت‌نام کرده بودن توسط هکرهای اسرائیلی منتشر شد
 تا این لحظه مشخصات 4.7 میلیون نفر با اسامی کامل ، کد ملی ، شماره تلفن ، شغل ، تخصص و محدوده زندگی انتشار یافته است
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 
-📶
-
-
-تست شده تمام نت‌ها 
-🛜
-🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-⭕️ تمام برنامه هارو ببندید بعد وصل بشید
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا
 </div>
 

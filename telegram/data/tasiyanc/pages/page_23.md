@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/02 22:57
+📅 آخرین بروزرسانی: 1405/06/03 01:33
 
 ---
+
+## tasiyanc — post 9024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کاهش پهنای باند هم اکنون در سراسر کشور
+
+پی‌نوشت : اختلاله و درست میشه نرید پول بدید یه وقت
+</div>
+
+## tasiyanc — post 9022
+
+<div align="center"><img src="files/post_9022_tasiyanc_9022.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔠هشدار
+
+به همین راحتی از همین عکس‌هایی که می‌ذارید توی سوشال می‌تونن هویتتون رو جعل کنن.
+تازه ویدیو هم ازش می‌تونن بسازن که چالش سایت‌هایی که با ویدیو تایید هویت می‌کنن رو هم حل کنن!
+
+حالا هی سلفی بذارید، هی برید تو این اپ‌هایی که ترند می‌شن عکس آپلود کنید سرتون رو بذاره جای فلان بازیگر.
+
+
+⚡️ @TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9021
 
@@ -367,69 +391,5 @@ R14
 🎁کد هدیه ثبت نام Melbet90 ✌️
 
 ✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9000
-
-<div align="center"><video src="files/post_9000_tasiyanc_9000.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9000_tasiyanc_9000.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 
-👍
-😁
-😊
-🙂
-
-🥇واریز و برداشت ارزی و ریالی
-‼️
-
-🔥بونوس 100% اولین واریز
-‼️
-
-⚽️بونوس ورزشی هرچهارشنبه
-‼️
-
-🆗کازینو و انفجار با ضرایب جهانی
-‼️
-
-
-🎁کد هدیه ثبت نام :Melbet90
-
-
-🇩🇪دانلود اپلیکیشن MELBET
-👉
-
-
-🔗لینک وبسایت
-👉
-
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
-🇨🇦 
-🇹🇷 r14
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 8998
-
-<div align="center"><img src="files/post_8998_tasiyanc_8998.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید 🆕
-
-Based on our chats, generate a clean 3x3 picture showing how you see me as a color, a song, a weather, a season, a book, a scent, a place, a flower, and a food.
-
-🚨کاربرد : این پرامپت رو میدید AI که باهاش حرف میزنید بر اساس چیز هایی که بهش گفتید به شما میگه
-چه وایب مثل رنگ، آهنگ، آب و هوا، فصل، کتاب، مکان، گل و غذا از شما گرفته !
-
-💙@TASIYANC ✅
 </div>
 

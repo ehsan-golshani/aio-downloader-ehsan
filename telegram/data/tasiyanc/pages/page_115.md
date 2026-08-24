@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/06/02 22:57
+📅 آخرین بروزرسانی: 1405/06/03 01:33
 
 ---
+
+## tasiyanc — post 6073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میخواستم کانفیگ اوپن دیگه بدم ولی ری اکشن کمه
+</div>
+
+## tasiyanc — post 6072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر عشقا
+</div>
 
 ## tasiyanc — post 6071
 
@@ -162,19 +174,4 @@ Hot Servers 🔥🌶️.npvt
 ## tasiyanc — post 6044
 
 <div align="center"><img src="files/post_6044_tasiyanc_6044.jpg" alt="Photo"></div>
-
-## tasiyanc — post 6043
-
-<div align="center"><img src="files/post_6043_tasiyanc_6043.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6042
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife
-آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
 

@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/02 22:57
+📅 آخرین بروزرسانی: 1405/06/03 01:33
 
 ---
+
+## tasiyanc — post 9528
+
+<div align="center"><img src="files/post_9528_tasiyanc_9528.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
+
+🌍 سایت بین‌المللی و معتبر LINEBET
+
+⚽️ پیش‌بینی فوتبال
+🎰 کازینو آنلاین
+💳 واریز و برداشت ریالی
+🎁 بونوس 100٪ اولین واریز
+🎁 بونوس 100٪ هر دوشنبه
+📞پشتیبانی فارسی فعال
+
+🎁کد هدیه ثبت‌نام: L5670
+
+🔗 دانلود اپلیکیشن اندروید 👉
+
+🔗 لینک سایت 👉
+✉️ https://t.me/+dukgrB6-zGsyNGM8
+
+🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
+sr1
+📚 آموزش کامل سایت👉
+</div>
+
+## tasiyanc — post 9526
+
+<div align="center"><video src="files/post_9526_tasiyanc_9526.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9526_tasiyanc_9526.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠قضیه مرگ آنیسا و بلاگر جدید آقا ماهد ک فیلمشون این روزا وایرال شده ( پشماتون بریزه)
+
+یکی از دوستای دختره فاش کرده که این زوج اسمشون آنیسا و ماهد بوده.
+این پسره به اسم ماهد خودش باعث فوت دختره شده!
+یه شب مهمونی بودن و موقع برگشت، ماهد که زیادی مست کرده بوده، میگه من میرسونمت خونه.
+با همون حال مست میشینه پشت فرمون و با ماشین میره تو کامیون، آنیسا همونجا درجا فوت میکنه و خود ماهد فقط پاش میشکنه!
+ماهد هم بعد از یه مدت شروع می‌کنه بلاگری به اسم و یاد آنیسا مظلوم نمایی کردن، آنیسا اواخر زندگیش می‌گفت ماهد داره بهم خیانت میکنه!
+﻿
+🩸 @Tasiyanc | تاسیان
+</div>
 
 ## tasiyanc — post 9525
 
@@ -302,22 +348,5 @@ sr31
 وقتشه درامد دلاری به جیب بزنی ✅
 همین حالا وارد کانال  Evil Bet شو👇
 https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9505
-
-<div align="center"><img src="files/post_9505_tasiyanc_9505.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
-
-https://t.me/+TmGWkUYH_8c0OWZk
-https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9504
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از کنکور چخبر چطوری بود؟
 </div>
 

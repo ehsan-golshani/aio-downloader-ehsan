@@ -1,8 +1,25 @@
 # آرشیو کانال VahidOOnLine - صفحه 178
 
-📅 آخرین بروزرسانی: 1405/06/03 00:54
+📅 آخرین بروزرسانی: 1405/06/03 01:30
 
 ---
+
+## VahidOOnLine — post 252368
+
+<div align="center"><video src="files/post_252368_VahidOOnLine_252368.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252368_VahidOOnLine_252368.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️آتش‌سوزی در هتل پارسیان استقلال تهران ظهر دوشنبه ۵ مردادماه، در تقاطع بزرگراه چمران و خیابان ولیعصر رخ داد و شعله‌های آتش بخش‌هایی از این مجتمع اقامتی را فرا گرفت.
+
+به گفته سخنگوی آتش‌نشانی تهران، همزمان با عملیات اطفای حریق، چند گروه از آتش‌نشانان برای نجات افراد محبوس وارد ساختمان شده‌اند.
+
+اورژانس تهران نیز اعلام کرد ۷ دستگاه آمبولانس، ۲ دستگاه اتوبوس آمبولانس، سه خودروی فرماندهی و یک دستگاه موتورلانس به محل حادثه اعزام شده‌اند. بر اساس گزارش اولیه اورژانس، تاکنون مصدومی گزارش نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252367
 
@@ -253,19 +270,6 @@
 بر اساس این گزارش، گراهام در گفت‌وگویی با جیک سالیوان، مشاور پیشین امنیت ملی آمریکا، پیش‌بینی کرده بود که حکومت ایران ظرف سه تا چهار هفته کنترل برخی شهرها را از دست خواهد داد، پیش‌بینی‌ای که به نوشته وال‌استریت ژورنال هرگز محقق نشد.
 این روزنامه همچنین گزارش داده است که گراهام در ماه‌های پایانی عمر خود از برخی تصمیم‌های ترامپ، از جمله امضای یک توافق اولیه با ایران، ابراز نارضایتی کرده و گفته بود: «او دارد این فرصت را از دست می‌دهد؛ باید بروم و با او صحبت کنم.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252347
-
-<div align="center"><video src="files/post_252347_VahidOOnLine_252347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252347_VahidOOnLine_252347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«وقتی زنده بودند این هزینه‌ها رو می‌کردید»
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

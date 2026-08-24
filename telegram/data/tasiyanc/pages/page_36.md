@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/06/02 22:57
+📅 آخرین بروزرسانی: 1405/06/03 01:33
 
 ---
+
+## tasiyanc — post 8677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سی‌ان‌ان:
+
+سنتکام پس از ۱۳ شب حمله علیه ایران، جمعه بیانیه‌ای منتشر نکرد
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8676
+
+<div align="center"><video src="files/post_8676_tasiyanc_8676.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8676_tasiyanc_8676.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦅 جنگنده ای که از شاهین بحری تقلید میکند !
+
+اف-۱۴ تامکت و شاهین بحری در ظاهر یکی یک جنگنده ی پیچیده و دیگری یک شکارچی طبیعی هستند، اما وقتی به شیوه‌ی پروازشان نگاه کنیم، شباهت‌های شگفت‌انگیزی دیده میشود.
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8675
 
@@ -167,26 +189,5 @@
 از حداقل ۷۰ کشتی و زیردریایی، ۱۵۰ هواپیما و ۲۰ هزار نیرو برای حضور و واکنش سریع مقابل چین در شرق آسیا مستقر شده است. منطقه عملیاتی آن یعنی آسیا و اقیانوسیه، ۱۲۴ میلیون کیلومتر مربع، ۳۶ کشور و نیمی از جمعیت جهان را پوشش میدهد. رهبری این واحد دریایی را ناو هواپیمابر رونالد ریگان برعهده دارد. مقر این ناوگان یوکوسوکای ژاپن است. ناوگان هفتم آمریکا یک نیروی پیشرو است که از نظر تجربه رزمی، مهارت خدمه، و ادغام فناوریهای پیشرفته در کشتیها و زیردریاییهایش، برتری کیفیتی قابل توجهی دارد که میتواند خسارات سهمگینی به نیروی دریایی چین وارد کند ایران جای خود داره 🤣
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8654
-
-<div align="center"><img src="files/post_8654_tasiyanc_8654.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکبر عبدی بازیگر سینما درگذشت 🖤
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8653
-
-<div align="center"><video src="files/post_8653_tasiyanc_8653.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8653_tasiyanc_8653.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«چشم‌های تمساح ؛ یکی از پیشرفته ترین چشم‌ها در قلمرو جانوران ک طی بیش از ۲۰۰ میلیون سال تکامل یافته اند » 🐊👁
-
-@TASIYANC ✅
 </div>
 

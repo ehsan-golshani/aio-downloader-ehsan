@@ -1,8 +1,20 @@
 # آرشیو کانال VahidOOnLine - صفحه 489
 
-📅 آخرین بروزرسانی: 1405/06/03 00:54
+📅 آخرین بروزرسانی: 1405/06/03 01:30
 
 ---
+
+## VahidOOnLine — post 244831
+
+<div align="center"><img src="files/post_244831_VahidOOnLine_244831.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صدا و سیما به نقل از یک مقام ارشد جمهوری اسلامی اعلام کرد اظهارات ترامپ درباره تماس او با مقامات ایرانی دروغ است.
+این مقام افزود: این اظهارات پوششی برای فرار از جنگ علیه جمهوری اسلامی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244830
 
@@ -238,17 +250,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فشار بر صادرات نفت، شکاف‌های درونی جمهوری اسلامی را آشکارتر کرده است. رژیمی که برای حفظ نیروهای سرکوب، شبکه‌های نیابتی و نظام وفاداری به درآمد نفتی نیاز دارد، اکنون میان مذاکره برای تنفس اقتصادی و تسلیم گرفتار شده است.
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244797
-
-<div align="center"><img src="files/post_244797_VahidOOnLine_244797.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری دانشجو اعلام کرد منابع خبری از هدف قرار گرفتن یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه خبر دادند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

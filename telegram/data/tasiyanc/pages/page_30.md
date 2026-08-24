@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/06/02 22:57
+📅 آخرین بروزرسانی: 1405/06/03 01:33
 
 ---
+
+## tasiyanc — post 8849
+
+<div align="center"><video src="files/post_8849_tasiyanc_8849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8849_tasiyanc_8849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاول دوروف مالک تلگرام میگه هیچ خانه، زمین، ملک، جت شخصی یا قایق تفریحی ندارد!!
+
+✈️@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8848
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+R8
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 8847
 
@@ -271,27 +296,5 @@ vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?secu
 
 
 ⭐ @TASIYANC✅
-</div>
-
-## tasiyanc — post 8811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، صداوسیما خیلی جدی : امروز صبح در حملات آمریکا به ایران، 6 تا جنگنده F-35 رو زدیم! 3 تاشون کامل منهدم شدن، 3 تاشون هم خسارت دیدن! چند تا از خلبانان جنگنده هم کشته شده. 🐸🐸🐸🐸 
-⭐@Tasiyanc ⭐
-</div>
-
-## tasiyanc — post 8810
-
-<div align="center"><img src="files/post_8810_tasiyanc_8810.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، صداوسیما خیلی جدی : امروز صبح در حملات آمریکا به ایران، 6 تا جنگنده F-35 رو زدیم!
-
-3 تاشون کامل منهدم شدن، 3 تاشون هم خسارت دیدن!
-چند تا از خلبانان جنگنده هم کشته شده.
-🐸🐸🐸🐸
-
-
-⭐@Tasiyanc ⭐
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/06/03 00:54
+📅 آخرین بروزرسانی: 1405/06/03 01:30
 
 ---
+
+## VahidOOnLine — post 255374
+
+<div align="center"><img src="files/post_255374_VahidOOnLine_255374.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محسن رضایی، دبیر شورای عالی امنیت ملی، در پیامی انتصاب شش فرمانده ارشد نیروهای مسلح از سوی مجتبی خامنه‌ای را تبریک گفت و نوشت این انتصاب‌ها محاسبات دشمنان جمهوری اسلامی، به‌ویژه حاکمان آمریکا و اسرائیل را «به هم ریخت».
+
+رضایی ابراز امیدواری کرد فرماندهان جدید نیروهای مسلح در برابر هرگونه تجاوز احتمالی به جمهوری اسلامی «مقابله جانانه» کنند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255373
 
@@ -305,19 +318,6 @@ IranintlTV
 🔹مبلغ ۱۵ میلیون تومان از کارت تجارت خودم انتقال دادم به کارت ملی‌ام. رسید خودپرداز هم دارم که واریز شده، اما به حسابم منتقل نشده. چند نفر دیگه هم مثل من به همین مشکل برخوردن و بانک ملی پاسخ‌گو نیست. مسئولین جمهوری اسلامی راهزن شدن.
 
 🔹حکومت اسلامی از هر راهی، جریمه‌های ماشین، قبوض، مالیات و غیره به دنبال تأمین هزینه‌های خود از جیب مردم است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255347
-
-<div align="center"><video src="files/post_255347_VahidOOnLine_255347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255347_VahidOOnLine_255347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند در تهران با ارسال ویدیویی می‌گوید در اوج گرما خسته از سر کار برگشته‌ام و برق برای بار سوم در طول یک روز قطع شده است.
 IranintlTV
 
 🤖 @VahidOOnLine

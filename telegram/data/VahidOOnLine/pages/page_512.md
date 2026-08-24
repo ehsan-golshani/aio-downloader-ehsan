@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 512
 
-📅 آخرین بروزرسانی: 1405/06/03 00:54
+📅 آخرین بروزرسانی: 1405/06/03 01:30
 
 ---
+
+## VahidOOnLine — post 244108
+
+<div align="center"><video src="files/post_244108_VahidOOnLine_244108.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244108_VahidOOnLine_244108.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدئوی ارسالی یک گزارشگر منوتو درباره تورم و تجمعات حکومتی
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244107
 
@@ -287,19 +300,6 @@ iranintl
 
 همچنین محسن زنگنه، نماینده تربت حیدریه در مجلس، به خبرگزاری فارس گفت که در حال حاضر از هر کشتی عبوری از تنگه هرمز به‌طور میانگین بین ۱.۵ تا دو میلیون دلار دریافت می‌شود.
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244068
-
-<div align="center"><img src="files/post_244068_VahidOOnLine_244068.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محسن زنگنه، عضو کمیسیون اقتصادی مجلس، گفت: «زمانی می‌توان درباره اصلاح قیمت‌ها صحبت کرد که نرخ تورم در سطح قابل قبولی قرار داشته باشد، اما اکنون با تورم نقطه‌به‌نقطه بالای ۷۰ درصد و تورم مواد غذایی بیش از ۱۰۰ درصد مواجه هستیم.»
-
-او ضافه کرد: «بنابراین هرگونه افزایش قیمت حامل‌های انرژی عملا فشار مضاعفی بر مردم وارد کرده و تاب‌آوری اقتصادی کشور را کاهش می‌دهد.»
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

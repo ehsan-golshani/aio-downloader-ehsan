@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/02 22:57
+📅 آخرین بروزرسانی: 1405/06/03 01:33
 
 ---
+
+## tasiyanc — post 9505
+
+<div align="center"><img src="files/post_9505_tasiyanc_9505.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
+
+https://t.me/+TmGWkUYH_8c0OWZk
+https://t.me/+TmGWkUYH_8c0OWZk
+</div>
+
+## tasiyanc — post 9504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از کنکور چخبر چطوری بود؟
+</div>
 
 ## tasiyanc — post 9503
 
@@ -385,29 +402,5 @@ IPv6
 ╰━━━━━━━━━━━━━━━━━━╯
 
 💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9481
-
-<div align="center"><video src="files/post_9481_tasiyanc_9481.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9481_tasiyanc_9481.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴توی استان زنجان اطراف ترمینال شهرستان ابهر دو تا دختر ۱۷ ساله به این شکل رفتن تو تریلی و الان حالشون وخیم و در کما هستن
-
-+ تصادف با موتورسیکلت کمترین بهاش اینه که دست پای ادم می‌شکنه به خانواده هاتون رحم کنید لاقل کلاه ایمنی بزارید
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 9480
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوررری
-🚨سنتکام:
-گروه ضربت ناو هواپیمابر جورج واشنگتن به منطقه عملیاتی ما در خاورمیانه رسید
-@Tasiyanc 
-⭐️
 </div>
 

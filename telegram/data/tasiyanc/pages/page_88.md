@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/06/02 22:57
+📅 آخرین بروزرسانی: 1405/06/03 01:33
 
 ---
+
+## tasiyanc — post 6844
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✊امروز تولد مودی ترین خردادیه
+دونالد ترامپ متولد ۱۴ ژوئن ۱۹۴۶ است و امروز (یکشنبه ۱۴ ژوئن ۲۰۲۶) وارد ۸۰ سالگی می‌شود.
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6843
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+14 June
+روز جهانی اکسه 😭
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6839
 
@@ -173,30 +191,5 @@ Vahid online
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به درخواست همراه اولیا گذاشتم ، شیرخورشید 88.221.169.217 88.221.169.207 88.221.169.38 88.221.169.11 88.221.169.18 88.221.169.28 88.221.169.132 88.221.169.127 88.221.169.107 88.221.169.121 @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6810
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به درخواست همراه اولیا گذاشتم ، شیرخورشید
-88.221.169.217
-88.221.169.207
-88.221.169.38
-88.221.169.11
-88.221.169.18
-88.221.169.28
-88.221.169.132
-88.221.169.127
-88.221.169.107
-88.221.169.121
-@Tasiyanc 
-✅
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال VahidOOnLine - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/03 00:54
+📅 آخرین بروزرسانی: 1405/06/03 01:30
 
 ---
+
+## VahidOOnLine — post 256609
+
+<div align="center"><img src="files/post_256609_VahidOOnLine_256609.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[پست از کانال منبع حذف شد.]
+</div>
 
 ## VahidOOnLine — post 256608
 
@@ -284,19 +292,6 @@ IranintlTV
 ویدیوی منتشرشده در رسانه‌های اجتماعی نشان می‌دهد مادر جاویدنام نازنین‌زهرا صالحی بر سر مزار دخترش ترانه «سوغاتی» هایده را می‌خواند.
 نازنین‌زهرا، ۱۳ ساله، ۱۹ دی ۱۴۰۴ در شهرک بسیج کرمانشاه بر اثر شلیک گلوله ماموران جان باخت.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256589
-
-<div align="center"><video src="files/post_256589_VahidOOnLine_256589.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256589_VahidOOnLine_256589.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صف بنزین گازوئیل در جاده
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

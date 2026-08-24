@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/06/02 22:57
+📅 آخرین بروزرسانی: 1405/06/03 01:33
 
 ---
+
+## tasiyanc — post 7935
+
+<div align="center"><img src="files/post_7935_tasiyanc_7935.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نوشته بود پدره واقعا باباست، مادره هم واقعا مامانه، بچه‌ها هم واقعا بچه‌ان
+
+اینم عکس خانوادگی آتلیه ایشون😭😭😭
+راستی پدر
+چپی مادر
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حس میکنم خیلی زود اسرائیل ترامپ رو ترور میکنه 😟
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7932
 
@@ -224,28 +246,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7895
-
-<div align="center"><img src="files/post_7895_tasiyanc_7895.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺مارک لوین از ارتش امریکا خواسته این ساختمان تخریب شود.
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7894
-
-<div align="center"><img src="files/post_7894_tasiyanc_7894.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺امروز 11 July، روز شاد کردن آدم‌های تنهاست.
-
-
-@Tasiyanc ⭐️
-#Navid
 </div>
 
