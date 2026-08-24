@@ -1,8 +1,51 @@
 # آرشیو کانال VahidOOnLine - صفحه 204
 
-📅 آخرین بروزرسانی: 1405/06/03 02:45
+📅 آخرین بروزرسانی: 1405/06/03 03:21
 
 ---
+
+## VahidOOnLine — post 251784
+
+<div align="center"><img src="files/post_251784_VahidOOnLine_251784.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ، رئیس‌جمهور آمریکا، روز پنج‌شنبه اعلام کرد که در جریان سفر شی جین‌پینگ، رئیس‌جمهور چین، به ایالات متحده در تاریخ دوم مهرماه (۲۴ سپتامبر)، درباره موضوع هوش مصنوعی با او گفتگو خواهد کرد.
+
+بر اساس اظهارات ترامپ، سفر رهبر چین به واشنگتن پیرو دعوت رسمی او در جریان دیداری است که اوایل سال جاری میلادی میان دو رهبر در پکن انجام شد. ترامپ تاکید کرد: «رئیس‌جمهوری شی در دوم مهر به اینجا می‌آید؛ ما پیش‌تر در پکن درباره هوش مصنوعی گفتگو کرده بودیم و بار دیگر در این باره مذاکره خواهیم کرد.»
+
+در همین راستا، مارکو روبیو، وزیر امور خارجه آمریکا، و وانگ ای، وزیر امور خارجه چین، روز چهارشنبه طی دیداری بر ضرورت شناسایی زمینه‌های همکاری جهت زمینه‌سازی برای «سفری بسیار مثبت» تاکید کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251783
+
+<div align="center"><img src="files/post_251783_VahidOOnLine_251783.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، درباره جنگ ایران گفت: «ما داریم به‌شدت خوب پیش می‌رویم. آن‌ها دوست دارند کاری انجام دهند، اما من می‌گویم هنوز آماده نیستند. آن‌ها نیت‌های شیطانی دارند. ما نمی‌توانیم اجازه دهیم آن‌ها به سلاح هسته‌ای دست پیدا کنند.»
+
+او افزود: «ما نمی‌توانیم اجازه دهیم آن‌ها حتی به داشتن یک سلاح هسته‌ای فکر کنند، و دقیقا همین چیزی است که در حال رخ دادن است. آن‌ها هرگز سلاح هسته‌ای نخواهند داشت.»
+
+رییس‌جمهوری آمریکا گفت: «ما می‌خواهیم این [جنگ] را تمام کنیم، و می‌خواهیم آن را به شکل درست انجام دهیم. اما باید کاری را که برای انجامش آمده‌ایم انجام دهیم، و آن این است که نمی‌توانیم اجازه دهیم این افراد بسیار خشونت‌طلب، چیزی را که می‌خواهند به دست بیاورند؛ یعنی سلاح هسته‌ای.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251782
+
+<div align="center"><img src="files/post_251782_VahidOOnLine_251782.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندهی مرکزی ارتش آمریکا، سنتکام، روز پنجشنبه اول مرداد اعلام کرد که از زمان از سر گیری محاصره دریایی علیه بنادر ایران، نیروهای آمریکایی به ۱۲ کشتی دستور تغییر مسیر داده و یک کشتی را که از این دستور پیروی نکرده، از کار انداخته‌اند.
+
+با برقراری این محاصره دریایی، تمامی شناورهای مرتبط با ایران و شناورهایی که مبداء یا مقصدشان بنادر ایران باشد، اجازه عبور از تنگه هرمز و ورود به آب‌های آزاد را ندارند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251781
 
@@ -235,45 +278,6 @@
 
 این اظهارات در حالی مطرح می‌شود که دونالد ترامپ در اعلام اولیه خبر توافق، چیزی درباره شرط پیوستن به پیمان ابراهیم مطرح نکرده بود. عربستان سعودی، به‌رسمیت شناختن اسرائیل را مشروط به تشکیل کشور مستقل فلسطین می‌داند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251759
-
-<div align="center"><video src="files/post_251759_VahidOOnLine_251759.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251759_VahidOOnLine_251759.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارشگرمنوتو: «اگر در جنگ پیروز شدید پس چرا آب و برق نداریم؟»
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251758
-
-<div align="center"><video src="files/post_251758_VahidOOnLine_251758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251758_VahidOOnLine_251758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارشگرمنوتو: «این وضع منه؛ اسنپ‌فود حقوقم رو نمی‌ده»
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251750
-
-<div align="center"><video src="files/post_251750_VahidOOnLine_251750.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251750_VahidOOnLine_251750.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مروری بر مهم‌ترین خبرهای پنجشنبه ۱ مرداد ۱۴۰۵؛ بر اساس پوشش و گزارش رسانه‌های خبری بین‌المللی درباره ایران و منطقه.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,40 @@
 # آرشیو کانال VahidOOnLine - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/03 02:45
+📅 آخرین بروزرسانی: 1405/06/03 03:21
 
 ---
+
+## VahidOOnLine — post 256575
+
+<div align="center"><img src="files/post_256575_VahidOOnLine_256575.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+واشنگتن می‌گوید مرحله تازه فشار اقتصادی علیه جمهوری اسلامی آغاز شده است، عملیاتی برای بستن مسیرهای فروش نفت، انتقال پول و دور زدن تحریم‌ها. اما موفقیت این طرح به همراهی کشورهایی بستگی دارد که هنوز شریان‌های اقتصادی تهران را باز نگه داشته‌اند.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256574
+
+<div align="center"><img src="files/post_256574_VahidOOnLine_256574.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[پست از کانال منبع حذف شد.]
+</div>
+
+## VahidOOnLine — post 256573
+
+<div align="center"><video src="files/post_256573_VahidOOnLine_256573.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256573_VahidOOnLine_256573.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از زنان حامی حکومت دوشنبه دوم شهریور در اصفهان تجمع کردند و شعار «قانون حفظ حجاب، اجرا باید گردد» سردادند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256572
 
@@ -252,51 +284,6 @@ IranintlTV
 وزیر خزانه‌داری ایالات متحده از آغاز مرحله‌ای تازه و گسترده در فشار اقتصادی علیه جمهوری اسلامی خبر داده و آن را «روز سرنوشت‌ساز اقتصادی» و بزرگ‌ترین تهاجم مالی سازمان‌یافته علیه یک دشمن توصیف کرده است.
 
 سخنگوی وزارت خارجه چین همچنین گفت: «تحریم‌ها و تاکتیک‌های فشار به حل مسائل کمک نمی‌کنند.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256553
-
-<div align="center"><img src="files/post_256553_VahidOOnLine_256553.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلدمارشال عاصم منیر، فرمانده ارتش پاکستان روز دوشنبه دوم شهریور ماه وارد تهران شد. محسن رضا نقوی، وزیر کشور پاکستان او را در سفر به پایتخت ایران همراهی می‌کند.
-
-ارتش پاکستان با صدور بیانیه‌ای اعلام کرد سفر این فرمانده ارشد نظامی به تهران «در راستای تلاش‌های اسلام‌آباد برای ارتقای صلح و ثبات منطقه‌ای و مذاکره با مقام‌های ایرانی بر تقویت تلاش‌های صلح و یافتن راهکاری مسالمت‌آمیز، پایدار و جامع برای حل درگیری‌های خاورمیانه متمرکز خواهد بود.»
-
-خبرگزاری صدا و سیما گزارش کرد عاصم منیر با مقام‌های ارشد جمهوری اسلامی دیدار خواهد کرد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256552
-
-<div align="center"><video src="files/post_256552_VahidOOnLine_256552.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256552_VahidOOnLine_256552.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسماعیل بقایی، سخنگوی وزرات امور خارجه جمهوری اسلامی روز دوشنبه دوم شهریور ماه و در پاسخ به پرسشی درباره تغییر الگوی رفتاری سیاست خارجی ایران از شطرنج «صبر و استقامت» به پوکر «خطر پذیری و عبور از خطوط قرمز» گفت: ما از قدیم شطرنج‌باز بوده‌ایم، در سال‌های اخیر پوکرباز هم شده‌ایم، الان هم مدتی است که ترکیبی بازی می‌کنیم.»
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256551
-
-<div align="center"><img src="files/post_256551_VahidOOnLine_256551.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عبدالناصر همتی، رییس‌کل بانک مرکزی، دوشنبه دوم شهریور در نشست با اعضای مجمع کارآفرینان ایران گفت «جنگ اقتصادی» آمریکا و محدودیت‌های اعلام‌شده، فشار تازه‌ای ایجاد نمی‌کند که «جمهوری اسلامی را به فروپاشی برساند».
-
-همتی گفت: «امروز دشمنان می‌خواهند تحریم صددرصدی را شروع کنند، ما هم بیکار ننشسته‌ایم و مشکلی برای تامین ارز نداریم.» او افزود تحریم بیشتری برای اعمال علیه کشور باقی نمانده است.
-
-رییس‌کل بانک مرکزی گفت نسبت به آینده اقتصاد خوش‌بین است و بسیاری از مشکلات موجود را قابل حل می‌داند.
-
-همتی درباره رکورد نرخ دلار و فاصله نرخ ارز در بازار گفت: «افزایش این فاصله موقتی است و نباید به دلیل نوسانات کوتاه‌مدت، مسیر سیاست‌های ارزی را تغییر دهیم.»
 IranintlTV
 
 🤖 @VahidOOnLine
