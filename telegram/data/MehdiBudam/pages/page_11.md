@@ -1,8 +1,14 @@
 # آرشیو کانال MehdiBudam - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/02 01:43
+📅 آخرین بروزرسانی: 1405/06/02 05:35
 
 ---
+
+## MehdiBudam — post 8094
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
+</div>
 
 ## MehdiBudam — post 8093
 
@@ -206,19 +212,5 @@ Pass: @MehdiBudam
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 124 123 122 121 120 119 118 117 112 111 109 107 106 104 103 99 97 91 89 77 75 74 71 70 69 65 61 59 58 53 49 48 46 37 31 30 25 21 و بقیه وصلن.
-</div>
-
-## MehdiBudam — post 8066
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دانلود برنامه
-
-تفاوت نسخه های برنامه
-
-تنظیمات پیشنهادی و نکات بیشتر
-
-نحوه اسکن دی ان اس
-
-دایرکت چنل
 </div>
 
