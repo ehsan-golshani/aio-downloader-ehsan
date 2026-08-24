@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/02 21:21
+📅 آخرین بروزرسانی: 1405/06/02 22:57
 
 ---
+
+## tasiyanc — post 8652
+
+<div align="center"><video src="files/post_8652_tasiyanc_8652.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8652_tasiyanc_8652.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹تنها جنگنده ای که آمریکا به متحدانش نمیفرشه 🗽
+
+جنگنده ی F22Raptor مرموزترین ، پیشرفته ترین ، گرانترین جنگنده آمریکا که فقط 187 فروند ازش هست و همشون در اختیار ارتش آمریکاست
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8651
+
+<div align="center"><video src="files/post_8651_tasiyanc_8651.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8651_tasiyanc_8651.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹یادی کنیم از عملیات « شوک وحشت» آمریکا در سال ۲۰۰۳ علیه رژیم صدام
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8650
 
@@ -209,43 +234,5 @@ Fact @TASIYANC ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نفت شد ۱۰۰ دلار ،،،
 ترامپ یه ساعت بعد : داریم مذاکره می‌کنیم توافق نزدیکه
-</div>
-
-## tasiyanc — post 8618
-
-<div align="center"><video src="files/post_8618_tasiyanc_8618.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8618_tasiyanc_8618.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واقعیتی تلخ از انیمیشن ماشا که جدیدا وایرال شده 💔 🤪
-
-ادامه بخونید 👇
-
-ماشا در این روایت، دختری روسی بود که تمام دنیایش در شور و هیجان خلاصه میشد؛ دختری که حتی لحظه‌ای آرام نمیگرفت و همیشه در حال جنب‌وجوش بود. در یکی از روزهای تابستان، وقتی همراه خانواده‌اش برای پیکنیک به جنگل رفته بود، روحیهٔ کنجکاو و بیقرارش باعث شد از آنها فاصله بگیرد و در میان جنگل راهش را گم کند.
-
-میگویند حقیقت پشت این داستان، غم‌انگیزتر از چیزی است که تصور میکنیم...
-
-طبق این نظریه، خرسی او را در جنگل پیدا میکند و شروع به بازی با او میکند؛ اما بازی ناخواسته بیش از حد خشن میشود و ماشا در این حادثه جانش را از دست میدهد. خرس هرگز قصد آسیب رساندن به او را نداشت و پس از آن، با عذاب وجدانی سنگین، جنگل را ترک میکند.
-
-خانوادهٔ ماشا پیکر بیجان او را پیدا میکنند، اما سالها بعد، خرس همچنان ماشا را در جنگل میبیند؛ غافل از اینکه آنچه میبیند، روح ماشاست، نه خودِ ماشای زنده.
-
-اگر این نظریه درست باشد، تمام لحظاتی که در کارتون میبینیم، در واقع روح دختر بچه ای تنها بود که برای آرام کردن خرسی که از کشته شدن نا خواسته اش عذاب وجدان داشت با اون دوست شده بود 💔
-
-Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8616
-
-<div align="center"><video src="files/post_8616_tasiyanc_8616.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8616_tasiyanc_8616.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ویدیویی شگفت انگیز از تهران قدیم ۱۰۰ سال قبل سال 1306 شمسی
-صدای ویدیو را باز کنید
-
-یکی از معتبرترین تصاویر تهران قدیم است که توسط فردریک گادامر، فیلمبردار فرانسوی در تهران ضبط شده است. در این ویدیو، تصاویری از کوچه‌ها و بازار تهران را میبینید. ویدیو را تا پایان تماشا کنید و بنویسید که تصویر آخر در کدام خیابان تهران ضبط شده است؟
-FACT @TASIYANC 💠
 </div>
 

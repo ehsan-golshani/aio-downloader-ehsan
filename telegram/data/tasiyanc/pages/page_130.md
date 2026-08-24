@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 130
 
-📅 آخرین بروزرسانی: 1405/06/02 21:21
+📅 آخرین بروزرسانی: 1405/06/02 22:57
 
 ---
+
+## tasiyanc — post 5684
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip هلند ، فرانسه  همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip اتریش گاد همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5680
 
@@ -163,21 +185,5 @@ WİFİ موشک.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گوشه ای از محبت مردم عزیز وطنم ❤️ همه رو نمیشه بزارم ، سپاس از همتون
-</div>
-
-## tasiyanc — post 5662
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود به دوستان گلم
-خسته نباشید میگم بهتون
-جا داره ازتون تشکر کنم بابت زحمات زیادی که کشیدید من به شخصه یادم میمونه که تو چه شرایطی پشت مردمتون بودید
-دم معرفتتون گرم
-امیدوارم بتونیم جبران کنیم 💙💙
-</div>
-
-## tasiyanc — post 5646
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️ پیرو اخبار بازگشت اینترنت بین المللی: درز های خیلی زیادی باز شده و یه کانفیگ نپستر درست شده که کار میکنه! دریافت کانفیگ نپسترنت مخصوص ( رایگان )
 </div>
 

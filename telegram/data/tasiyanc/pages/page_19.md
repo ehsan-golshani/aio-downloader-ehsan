@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/02 21:21
+📅 آخرین بروزرسانی: 1405/06/02 22:57
 
 ---
+
+## tasiyanc — post 9123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرگزاری تسنیم : حمیدرضا رجب‌زاده، مداحی که چند روزی بود گم شده بود، به قتل رسیده و فیلم لحظه قتلش به خانواده‌‌اش ارسال شده، پلیس فعلا داره پیگیری می‌کنه. « مشاهده »
+</div>
+
+## tasiyanc — post 9122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated location 🇹🇷━━━╮ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.141:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage…
+</div>
 
 ## tasiyanc — post 9121
 
@@ -238,26 +250,5 @@ fashion editorial photography, front shot, upper body, professional female model
 🔴قوه قضاییه : آیت‌الله خرازی به دلیل حرف های کذب و دروغش تحت تعقیب قرار گرفت و براش تشکیل پرونده دادیم.
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9099
-
-<div align="center"><img src="files/post_9099_tasiyanc_9099.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت Vip جدید 🆕
-
-Prompt 🤖🤖
-عکس دخترانه هم میشه بدید
-A person with slicked-back dark hair wearing oversized square sunglasses is shown in a dramatic, cinematic portrait. The lighting creates a strong shadow across the face, revealing only part of the skin tone and features, while the background is a vibrant gradient of deep red to orange, forming a glowing circular or sun-like halo effect behind the head. The clothing is dark, almost blending into the shadows, giving the portrait a bold, fashion-editorial, and futuristic mood.
-آموزش استفاده 👉
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9098
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از تیم اتکر تاسیان تشکر میکنم بخاطر کار خوبی ک چند روزه کردن ، خط قرمز کانال و اعضاء رد بشه تیم اتکر ورود میکنن
 </div>
 

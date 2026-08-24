@@ -1,8 +1,71 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/02 21:21
+📅 آخرین بروزرسانی: 1405/06/02 22:57
 
 ---
+
+## tasiyanc — post 9479
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ماه تولدت با کدوم رهبر ایرانی یکی بوده؟!
+
+فروردین = علی خامنه‌ای
+اردیبهشت = داریوش بزرگ
+خرداد = خشایارشاه
+تیر = ناصرالدین شاه قاجار
+مرداد = انوشیروان دادگر
+شهریور = کوروش بزرگ
+مهر = نادرشاه افشار
+آبان = محمدرضا شاه
+آذر = شاه عباس
+دی = کریم‌خان زند
+بهمن = بهرام گور
+اسفند = رضا شاه
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9478
+
+<div align="center"><video src="files/post_9478_tasiyanc_9478.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9478_tasiyanc_9478.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+سرور سرعتی مولتی لوکیشن
+⚡️
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود 
+⬇️ ترید 
+🤑 اینستاگرام 
+📸 جمینای 
+🤖
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+
+✔️ @TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9477
 
@@ -340,27 +403,5 @@ https://t.me/+J_q7c-COftQzOGM0
 میگم چیکار میکنیم
 
 https://t.me/+Iayni3h0j24yYzE0
-</div>
-
-## tasiyanc — post 9455
-
-<div align="center"><img src="files/post_9455_tasiyanc_9455.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اینترنشنال : آمریکا برای پنج هکر جمهوری اسلامی ۱۰ میلیون دلار جایزه گذاشت
-برنامه «پاداش برای عدالت» وزارت خارجه آمریکا اعلام کرد برای ارائه اطلاعات درباره پنج مرد متهم به هک و سرقت دادههای مرتبط با آمریکا و متحدانش از سوی جمهوری اسلامی، تا سقف ۱۰ میلیون دلار جایزه تعیین کرده است.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9454
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨معاونت پلیس فتا:
-
-متاسفانه یه پلتفرم فروش آنلاین طلا با ۲۰۰ هزار کاربر، ورشکسته شد و علتش هم خالی فروشی بود.
-
-+ مراقب باشید به هیچ وجه تو هیچ برنامه و سایتی طلا و نقره فیزیکی نخرید
-@Tasiyanc ⭐️
 </div>
 

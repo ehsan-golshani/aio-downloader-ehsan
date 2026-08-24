@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/02 21:21
+📅 آخرین بروزرسانی: 1405/06/02 22:57
 
 ---
+
+## tasiyanc — post 9547
+
+<div align="center"><video src="files/post_9547_tasiyanc_9547.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9547_tasiyanc_9547.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی بعد مرگ از ایرانی‌ جماعت میپرسن زندگی تو دنیا چطوری بود؟:
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9546
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇮🇳 @Tasiyanc.ovpn
+</div>
 
 ## tasiyanc — post 9545
 
@@ -279,49 +297,5 @@ sr1
 ماهد هم بعد از یه مدت شروع می‌کنه بلاگری به اسم و یاد آنیسا مظلوم نمایی کردن، آنیسا اواخر زندگیش می‌گفت ماهد داره بهم خیانت میکنه!
 ﻿
 🩸 @Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 9525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9524
-
-<div align="center"><img src="files/post_9524_tasiyanc_9524.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 
