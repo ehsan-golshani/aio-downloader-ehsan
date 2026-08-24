@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/06/02 17:52
+📅 آخرین بروزرسانی: 1405/06/02 18:56
 
 ---
+
+## tasiyanc — post 8899
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ کانفیگ ویتوری لوکیشن 🇹🇷
+
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.46:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#Hi%20%C4%B0stanbul%20%F0%9F%87%B9%F0%9F%87%B7%20%40Tasiyanc
+vmess://eyJhZGQiOiI1LjE4OC4xOTAuMjUyIiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiIiLCJpZCI6IjA0NjIxYmFlLWFiMzYtMTFlYy1iOTA5LTAyNDJhYzEyMDAwMiIsImluc2VjdXJlIjoiMCIsIm5ldCI6InRjcCIsInBhdGgiOiIiLCJwY3MiOiIiLCJwb3J0IjoiMjIzMjQiLCJwcyI6IkBUYXNpeWFuYyDwn4e58J+HtyIsInNjeSI6ImF1dG8iLCJzbmkiOiIiLCJ0bHMiOiIiLCJ0eXBlIjoibm9uZSIsInYiOiIyIiwidmNuIjoiIn0=
+
+
+🔱 @TASIYANC
+</div>
 
 ## tasiyanc — post 8898
 
@@ -293,36 +306,5 @@ a9
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @TASIYANC ⚡ 04.ovpn
-</div>
-
-## tasiyanc — post 8865
-
-<div align="center"><video src="files/post_8865_tasiyanc_8865.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8865_tasiyanc_8865.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود OpenVpn 📶
-
-
-تست شده تمام نت‌ها 
-🛜
-🛜
-🛜
-🛜🛜
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

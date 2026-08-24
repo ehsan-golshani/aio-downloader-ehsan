@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/06/02 17:52
+📅 آخرین بروزرسانی: 1405/06/02 18:56
 
 ---
+
+## tasiyanc — post 5747
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده روی همه اپراتورا ⛈ 
+
+
+رمز : ″ @Tasiyanc ″
+
+✅در صورت اختلال حالت پرواز بزارید دربیاید وصل شید
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5746
 
@@ -157,18 +173,6 @@ trojan://2238e2f3-1a01-485e-8c22-24b65764c68b@172.64.152.23:443?path=%2F51.91.25
 </div>
 
 ## tasiyanc — post 5727
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈ تست شده همه اپراتور ها ⛈ 
-
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5726
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱  سرور نامحدود اختصاصی تاسیان  📱

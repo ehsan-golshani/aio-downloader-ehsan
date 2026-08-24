@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/02 17:52
+📅 آخرین بروزرسانی: 1405/06/02 18:56
 
 ---
+
+## tasiyanc — post 9221
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طرح امتحانی بنزین ۴ نرخی آغاز شد! نرخ اول: ۶۰ لیتر بنزین با نرخ ۱۵۰۰ تومان نرخ دوم: ۵۰ لیتر با نرخ ۳۰۰۰ تومان نرخ سوم: ۴۰ لیتر با نرخ ۵۰۰۰ تومان نرخ چهارم: ۸۷,۲۰۰ تومان این طرح هنوز به طور رسمی کامل اجرا نشده و اکنون محدود به ۲۰۴ جایگاه سوخت در استان کرمان…
+</div>
 
 ## tasiyanc — post 9220
 
@@ -264,29 +270,5 @@ An ultra-realistic high-fashion editorial portrait of a person wearing an oversi
 برای ورود به سایت فیلترشکن خود را خاموش کنید!
 ‌🌐 Link 🔜 MelBet1.net
 🌐‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 9196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت
-📱
-
-•سرور سرعتی تست شده تمام اپراتور ها 
-⚡️
-
-• لوکیشن multi📍
-
-•آموزش اتصال 
-⚡️
-
-توجه :  اسکنر نپستر متاسفانه باگش برطرف نشده 
-⭕️
-
-•اتصال امن برای همه 
-🇮🇷
-
-
-✅ @TASIYANC
 </div>
 

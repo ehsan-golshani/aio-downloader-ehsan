@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/02 17:52
+📅 آخرین بروزرسانی: 1405/06/02 18:56
 
 ---
+
+## tasiyanc — post 9406
+
+<div align="center"><img src="files/post_9406_tasiyanc_9406.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
+
+💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
+sa26
+📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥💵
+
+‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
+https://t.me/+F1CivZlkxrgzMTM0
+https://t.me/+F1CivZlkxrgzMTM0
+</div>
 
 ## tasiyanc — post 9405
 
@@ -239,16 +255,5 @@ g26
 
 ⭐کانال اطلاع رسانی سایت:👇 sr26
 💠https://t.me/+K0fAOE9hCUo3OGE8
-</div>
-
-## tasiyanc — post 9378
-
-<div align="center"><img src="files/post_9378_tasiyanc_9378.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏قیمت آیفون ۱۷ پرومکس حافظه ۱ ترابایت؛ از ۷۰۰ میلیون تومن هم عبور کرد
-
-@Tasiyanc 
-⭐️
 </div>
 

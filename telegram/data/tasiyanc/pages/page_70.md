@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/06/02 17:52
+📅 آخرین بروزرسانی: 1405/06/02 18:56
 
 ---
+
+## tasiyanc — post 7478
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+توهین مجدد میثاقی به مردم ایران:
+کسایی که برای خوشحالی گل شجاع کلیپ می‌سازن همون جای خالی ان!
+</div>
 
 ## tasiyanc — post 7477
 
@@ -157,11 +164,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ آغاز حملات ایالات متحده به ایران
-</div>
-
-## tasiyanc — post 7443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام عزیزان یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید https://t.me/+DhVkjFb6qhZmYTFk
 </div>
 

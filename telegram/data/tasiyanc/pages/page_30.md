@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/06/02 17:52
+📅 آخرین بروزرسانی: 1405/06/02 18:56
 
 ---
+
+## tasiyanc — post 8840
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#کاربردی
+
+با این دو سایت میتونید آهنگهای SoundCloud & Spotify رو دانلود کنید
+کافیه لینک آهنگ رو بدید تا براتون دانلود کنه با کیفیت دلخواه ، من شخصا با ساندکلاد زیاد حال میکنم
+
+🎵 https://www.dltracks.com/en
+
+🎵https://spotmate.online/en1
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8839
 
@@ -252,14 +267,5 @@ vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?secu
 
 
 ⭐ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8805
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 معاون استاندار خوزستان:
-مناطقی در نزدیکی شهر شادگان در جنوب غربی ایران هدف حملات هوایی آمریکا قرار گرفته
-
-@TasiyanProxy
 </div>
 

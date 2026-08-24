@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/06/02 17:52
+📅 آخرین بروزرسانی: 1405/06/02 18:56
 
 ---
+
+## tasiyanc — post 8168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عجیب اما واقعی جنوب ایران زیر بمباران هست صدا سیما از جنوب لبنان میگه
+</div>
 
 ## tasiyanc — post 8167
 
@@ -208,19 +214,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فینال تموم شه خواهیم دید چه خواهد شد
-</div>
-
-## tasiyanc — post 8126
-
-<div align="center"><img src="files/post_8126_tasiyanc_8126.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال جام جهانی 🌍
-اسپانیا 🇪🇸 و آرژانتین 🇦🇷
-
-🗓 28 تیر ساعت 22.30
-🏟 استادیوم (MetLife Stadium )نیویورک نیوجرسی
-
-@Tasiyanc ⭐️ | مرجع کانفیگ
 </div>
 

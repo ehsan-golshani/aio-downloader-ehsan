@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/02 17:52
+📅 آخرین بروزرسانی: 1405/06/02 18:56
 
 ---
+
+## tasiyanc — post 9043
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ایران عوارض ۷٪ را بر تمام کشتی‌های تجاری عبوری از تنگه هرمز اعلام کرده است , این امر برای ایران ۳۸۵ میلیون دلار خالص روزانه یا بیش از ۱۰۰ میلیارد دلار خالص سالانه با حجم ترافیک پیش از جنگ ایجاد می‌کند
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9041
 
@@ -247,11 +255,5 @@ Join As @TASIYANC ✅
 💻 betinja.bet
 🌐 کانال بونوس های رایگان a14
 @betinjabet
-</div>
-
-## tasiyanc — post 9017
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت نت خرابه ، گزارش وضعیت از خطوط همراه و ایرانسل بدید...
 </div>
 

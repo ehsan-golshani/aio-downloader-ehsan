@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 125
 
-📅 آخرین بروزرسانی: 1405/06/02 17:52
+📅 آخرین بروزرسانی: 1405/06/02 18:56
 
 ---
+
+## tasiyanc — post 5797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡.npvt
+</div>
 
 ## tasiyanc — post 5796
 
@@ -168,13 +174,5 @@ kiwi Speed 🥝.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 CHATGBT ✅
 هم گویا رفع فیلتر شده
-</div>
-
-## tasiyanc — post 5774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی
-Chatgpt Grok
-برای ایرانسل الان باز شد
 </div>
 

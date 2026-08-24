@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/06/02 17:52
+📅 آخرین بروزرسانی: 1405/06/02 18:56
 
 ---
+
+## tasiyanc — post 6195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SuperFast @Tasiyanc 🪐⚡.npvt
+</div>
 
 ## tasiyanc — post 6194
 
@@ -181,13 +187,5 @@ trojan://r-_YbwF.j0TtHVewoFIppramjAnmSfqYzJ@172.238.120.124:443?security=tls&ins
 کانفیگ برای نت خانگی (وای‌فای)
 چندتا سرور پرمیوم تو گپ خودمون می‌زارم بیاید بزنید عشق کنین
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6167
-
-<div align="center"><img src="files/post_6167_tasiyanc_6167.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium GOD SV 🚀🔥.npvt
 </div>
 
