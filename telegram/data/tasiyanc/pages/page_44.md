@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/06/02 11:55
+📅 آخرین بروزرسانی: 1405/06/02 15:23
 
 ---
+
+## tasiyanc — post 8413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشاهده نود آنتونلا زن مسی ✨
+</div>
+
+## tasiyanc — post 8412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فینال جام‌جهانی 2026 🌍 اسپانیا 🇪🇸  آرژانتین 🇦🇷 ⏰‌ ساعت 22.30 @TasiyanC ✅
+</div>
 
 ## tasiyanc — post 8411
 
@@ -194,21 +206,5 @@ IP
 🚨💪 6 انفجار شدید در قشم
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8383
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۹٪ اخبار امشب فیکن و پوشش ندادیم
-</div>
-
-## tasiyanc — post 8382
-
-<div align="center"><img src="files/post_8382_tasiyanc_8382.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با دو تا نود چنل vip نیلی افشار برید بخوابید که الان داره بابت هرکدوم ۷ میلیون پول میگیره :))) 🚫
-
-📥 مشاهده 👉
 </div>
 

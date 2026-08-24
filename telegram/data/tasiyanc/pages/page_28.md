@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/06/02 11:55
+📅 آخرین بروزرسانی: 1405/06/02 15:23
 
 ---
+
+## tasiyanc — post 8894
+
+<div align="center"><img src="files/post_8894_tasiyanc_8894.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥بمب 100% آماده شد
+🔥
+
+💵دریافتی از منبع خارجی Wiliam Hills 
+
+⬅️رایگان در کانال قرار گرفت
+⬅️فقط جوین شید و تمام
+
+➡️ https://t.me/+umLw_34TXrEzYTQ0
+➡️ https://t.me/+umLw_34TXrEzYTQ0
+g10
+⚠️عضویت رایگان به مدت و تعداد محدود زودتر جوین بده⚠️
+</div>
+
+## tasiyanc — post 8893
+
+<div align="center"><video src="files/post_8893_tasiyanc_8893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8893_tasiyanc_8893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ : میدونید موشک‌های ج‌ا رو چطوری رهگیری میکنیم ؟
+بینگ،بینگ،بینگ بینگ ،بینگ 😂
+
+🔱 @TASIYANC
+</div>
 
 ## tasiyanc — post 8891
 
@@ -329,37 +361,5 @@ Restore this vintage film frame by removing scratches, dust, flicker, fading and
 آموزش استفاده از پرامپت 👉
 
 ✈️@TASIYANC ⭐
-</div>
-
-## tasiyanc — post 8860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️حتما این بازی رو تست کنید:
-
-➡️ 🤩 🤩 🤩 🤩 🤩 👈
-
-✅ دیگه حوصلت سر نمیره بهترین سرگرمی ممکن رو آوردم براتون 😍
-🙄 پر از بازی های سرگرم کننده آنلاین
-</div>
-
-## tasiyanc — post 8859
-
-<div align="center"><img src="files/post_8859_tasiyanc_8859.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖 معرفی یه بازی ساده و‌ #پولساز
-
-➡️ 🤩 🤩 🤩 🤩 🤩 👈
-
-🖱این بازی اختصاصی فقط توی‌این‌سایت هست واقعا راحت میشه ازش کلی پول دراورد.💵💰
-
-🟢 بدون ریسک و بدون پول در بازی معروف #crash پول در بیار و با هر شارژ 2️⃣1️⃣🔣 موجودی خالص بگیر بدون قیدوشرط 🔥
-
-💖تنها سایت مورد تایید
-💻آدرس سایت مورد #‌اعتماد ما:
-🌐 betinja.bet
-🌐 betinja.bet
-کانال بونوس های رایگان g9
-@betinjabet
 </div>
 

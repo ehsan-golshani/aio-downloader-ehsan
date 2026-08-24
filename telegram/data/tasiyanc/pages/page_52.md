@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/06/02 11:55
+📅 آخرین بروزرسانی: 1405/06/02 15:23
 
 ---
+
+## tasiyanc — post 8192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+🚨 یک مقام آمریکایی به ان‌بی‌سی:
+
+همانطور که رئیس جمهور گفته بود این هفته حمله به زیرساخت‌ها، پل‌ها و نیروگاه‌ها انجام میشود.
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⁉️پدافند تهران فعال شده؟
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8190
 
@@ -148,25 +168,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بندرعباس عزیز زیر حملات شدید آمریکا 💔
-</div>
-
-## tasiyanc — post 8161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاید باورتون نشه ولی تو این سه تا عکس هیچ اثری از فتوشاپ نیست🐰؛
-ابرهای نادر استراتوسفر قطبی - ایسلند🇮🇸
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8155
-
-<div align="center"><img src="files/post_8155_tasiyanc_8155.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیدی گاگا تو کنسرتش لخت پرید بقل طرفداراش 😐
-
-
-@Tasiyanc ⭐️
 </div>
 

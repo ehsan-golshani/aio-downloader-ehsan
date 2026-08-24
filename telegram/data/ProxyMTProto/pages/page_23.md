@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/02 14:37
+📅 آخرین بروزرسانی: 1405/06/02 15:21
 
 ---
+
+## ProxyMTProto — post 50012
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s010.neo-trading.org
+Port: 8443
+Secret: ee2c46ee89b4f2c79c1d8325d13091e580647a656e2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50011
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: edge2.kvakzon.top
 Port: 443
 Secret: eed6962c6820fac66c942ad857b7072ae265646765322e6b76616b7a6f6e2e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49992
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/06/02 11:55
+📅 آخرین بروزرسانی: 1405/06/02 15:23
 
 ---
+
+## tasiyanc — post 8063
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨 حمله آمریکا هم اکنون به بوشهر ۴ انفجار شدید @TasiyanProxy ☑️
+</div>
+
+## tasiyanc — post 8059
+
+<div align="center"><img src="files/post_8059_tasiyanc_8059.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سری جدید پول سلامتی نمیاره😐
+
+بانو شکیرا خواننده محبوب با ۵۰ سال سن :
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8058
 
@@ -250,26 +268,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 در حالی که داشتم سومین لیوان چاییم رو میخوردم اینو دیدم:
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7998
-
-<div align="center"><img src="files/post_7998_tasiyanc_7998.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هرکی گفت پول خوشبختی نمیاره اینو نشونش بده خفه شه؛ تعطیلات وینیسیوس با دوست دخترش:
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7997
-
-<div align="center"><img src="files/post_7997_tasiyanc_7997.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏نسل جدید چه میدونه "بقیه پول" چیه
 
 @Tasiyanc✅
 </div>

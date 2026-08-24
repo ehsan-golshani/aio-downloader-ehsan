@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/06/02 11:55
+📅 آخرین بروزرسانی: 1405/06/02 15:23
 
 ---
+
+## tasiyanc — post 7958
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزیر جنگ اسرائیل 🇮🇱: 🔻من و نتانیاهو دستور آماده شدن ارتش برای حملات مستقل به ایران را صادر کردیم @TasiyanProxy ⭐️
+</div>
+
+## tasiyanc — post 7946
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ حمله سپاه به یک کشتی غول پیکر در تنگه ، در جواب به ترامپ ک‌گفته بود باید تا آخر امشب ایران تنگه رو باز کنه کامل
+</div>
 
 ## tasiyanc — post 7944
 
@@ -228,29 +240,5 @@ home.by.me
 ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐
 
 مشاهده فیلم 👉
-</div>
-
-## tasiyanc — post 7919
-
-<div align="center"><img src="files/post_7919_tasiyanc_7919.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیستی از هوش مصنوعی‌های رایگان که اکثرا دوتای اول رو فقط میشناختید!
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7917
-
-<div align="center"><img src="files/post_7917_tasiyanc_7917.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت آوردم براتون که عکساتونو اینجوری خوشگل میکنه برای پست استوری ام خوبه
-
-
-Cinematic street photography, a person standing in a dense crowd of blurred pedestrians, looking up and to the side with a curious/wondering expression, shallow depth of field with crowd heavily out of focus (bokeh), moody overcast city atmosphere, muted cold color tones (blue-grey), soft diffused lighting, shot on 85mm lens, f
-
-
-@Tasiyanc ⭐️
 </div>
 

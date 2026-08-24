@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/02 11:55
+📅 آخرین بروزرسانی: 1405/06/02 15:23
 
 ---
+
+## tasiyanc — post 9539
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنظر میاد دلمون بزودی به همین دلار ۲۰۰ تومنی ام تنگ میشه
+</div>
+
+## tasiyanc — post 9538
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام بر دلار ۲۰۰ تومن ، سلام بر بدبخت ایرانی
+</div>
 
 ## tasiyanc — post 9537
 
@@ -326,31 +338,5 @@ til.ac/0L4vyJf
 + قیمت برخی مدل‌ها بدون ریجستر حساب شده ، منابع رو چک کنید تو بنر زدم
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9516
-
-<div align="center"><video src="files/post_9516_tasiyanc_9516.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9516_tasiyanc_9516.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📺 10 تا از بهترین فیلم های ترسناک 2026 اگه به ژانر وحشت علاقه دارید ببینید !
-
-+سایت پیشنهادی برای تماشا و دانلود بدون سانسور
-
-🔗https://www.novigrad.top
-
-
-🩸 @Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 9515
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بسیجی‌ها تو سواحل میانکاله مازندران زنجیره انسانی تشکیل دادن تا جلوی بی‌حجابی در کنار ساحل رو بگیرن:
-
-@Tasiyanc 
-💋
 </div>
 

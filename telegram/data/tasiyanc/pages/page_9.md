@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/02 11:55
+📅 آخرین بروزرسانی: 1405/06/02 15:23
 
 ---
+
+## tasiyanc — post 9370
+
+<div align="center"><video src="files/post_9370_tasiyanc_9370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9370_tasiyanc_9370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آخرین ویدیویی که مادر جاویدنام عسل شفیعی، با دخترش ضبط کرده بود رو منتشر کرد.
+
+عسل دانشجوی ۲۱ ساله مهندسی کامپیوتر بود که ۱۸ دی ماه به ضرب گلوله به قتل رسید.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 قالیباف: ۹۰ میلیون ایرانی حامی نظام جمهوری اسلامی هستن
+@Tasiyanc 🏛
+</div>
 
 ## tasiyanc — post 9368
 
@@ -228,21 +248,5 @@ g25
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 معاوضه امیر با دسته بیل
-</div>
-
-## tasiyanc — post 9349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معاوضه امیر با دسته بیل
-</div>
-
-## tasiyanc — post 9348
-
-<div align="center"><img src="files/post_9348_tasiyanc_9348.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جیسون استاتهام ستاره هالیوود : من فقط می‌خوام کار کنم ، پول دربیارم ، با آدمهای خوب غذا بخورم و هر روز عاشق ؛ یک زن باشم
-
-@Tasiyanc 🕒
 </div>
 

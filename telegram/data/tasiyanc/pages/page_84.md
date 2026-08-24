@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/06/02 11:55
+📅 آخرین بروزرسانی: 1405/06/02 15:23
 
 ---
+
+## tasiyanc — post 6951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ Dark Tunnel 🌟 میزارم براتون
+اول از همه برنامه دارک تونل رو نصب کنین از پلی استور
+https://play.google.com/store/apps/details?id=net.darktunnel.app
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 6950
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب خب دست پر اومدیم
+</div>
 
 ## tasiyanc — post 6949
 
@@ -183,25 +199,5 @@ T.me/Tasiyanc ✅
 
 کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد!
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6929
-
-<div align="center"><img src="files/post_6929_tasiyanc_6929.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زیرنویس شبکه خبر :
-توافق با امریکا را انجام شد
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6927
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نخست‌وزیر پاکستان اعلام کرد:
-مراسم امضای رسمی این توافق روز جمعه 19 ژوئن در سوئیس برگزار خواهد شد.
-@Tasiyanc 
-✅
 </div>
 
