@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/02 18:54
+📅 آخرین بروزرسانی: 1405/06/02 20:03
 
 ---
+
+## ProxyMTProto — post 50182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: ee2c46ee89b4f2c79c1d8325d13091e580647a656e2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50181
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50180
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: ee16309abd572d284b309ef26bd7a3f68570726f78792e6c6f646b69726d6d2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50179
 
@@ -154,37 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: jeremy.helloworld.surf
 Port: 443
 Secret: dd5a369539630cf83a6c2a9a9af2c1cd95
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50162
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤖 Got a working proxy? Share it 🚀
-Есть рабочий прокси? Поделись 🚀
-
-Start @SProxyRobot, send it in — we’ll test & post it for everyone.
-Запусти @SProxyRobot, отправь — проверим и выложим для всех.
-
-⚡ New time slots are now open for the next days, grab yours before they fill up!
-⚡ Новые слоты на ближайшие дни уже открыты, успей занять, пока не разобрали!
-</div>
-
-## ProxyMTProto — post 50160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8880
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 
