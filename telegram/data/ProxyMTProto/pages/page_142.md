@@ -1,8 +1,20 @@
 # آرشیو کانال ProxyMTProto - صفحه 142
 
-📅 آخرین بروزرسانی: 1405/06/02 15:21
+📅 آخرین بروزرسانی: 1405/06/02 15:46
 
 ---
+
+## ProxyMTProto — post 47621
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ Рабочие прокси сейчас быстро отключаются из-за новых ограничений
+
+Если Telegram снова плохо грузит — лучше подключиться заранее 👀
+
+Мы постоянно добавляем новые прокси и пока раздаём их бесплатно 🔥
+
+⬇️ Запусти бота и получи рабочий прокси прямо сейчас
+</div>
 
 ## ProxyMTProto — post 47620
 
@@ -173,15 +185,6 @@ Secret: 7sEXmKsAiDG0dAZsnh6_XINhdml0by5ydQ
 Server: 178.105.168.17
 Port: 443
 Secret: eeb67e98429f3ba8896ff33ab9ff9d18a1676f6f676c65617069732e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47601
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 72.56.41.35
-Port: 443
-Secret: 7sEXmKsAiDG0dAZsnh6_XINhdml0by5ydQ
 @ProxyMTProto
 </div>
 
