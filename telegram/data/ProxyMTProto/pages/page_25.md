@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/02 23:51
+📅 آخرین بروزرسانی: 1405/06/03 00:21
 
 ---
+
+## ProxyMTProto — post 49990
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 80
+Secret: 7hbZ3hNtxAbJ6L5BQipx2_std3d3LnlhaG9vLmNvbQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49989
 
@@ -172,15 +181,6 @@ Secret: ee5d12530b3304850a75f79585e946b73073796e632e666c656574686f702e6f6e6c696e
 Server: Unknown
 Port: 8443
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49970
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy1.fluxvpnguard.ru
-Port: 443
-Secret: 1a2b3c4d5e6f708192a3b4c5d6e7f809
 @ProxyMTProto
 </div>
 

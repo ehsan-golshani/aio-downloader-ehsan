@@ -1,8 +1,69 @@
 # آرشیو کانال VahidOOnLine - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/02 23:50
+📅 آخرین بروزرسانی: 1405/06/03 00:20
 
 ---
+
+## VahidOOnLine — post 256289
+
+<div align="center"><img src="files/post_256289_VahidOOnLine_256289.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روزنامه کیهان در مطلبی درباره وضعیت حجاب اجباری در کشور نوشت نمی‌توان به نام «معیشت» و مشکلات اقتصادی، آنچه تضعیف حجاب و عفاف خواند نادیده گرفت و حجاب را «از ضروریات دین اسلام» دانست. این روزنامه افزود: «نمی‌توان به اسم عدالت و معیشت، چشم را بر تضعیف عفاف و بنیان خانواده بست.»
+
+کیهان این مطلب را در واکنش به انتقاد احمد عابدینی از نامه اخیر علی مطهری به مسعود پزشکیان درباره وضعیت حجاب منتشر کرد و نوشت حجاب «نه یک امر حاشیه‌ای یا ذوقی»، بلکه از احکام اسلام است.
+
+این روزنامه گره زدن موضوع حجاب اجباری به مشکلات و ناکارآمدی‌های اقتصادی را «شانه خالی کردن از مسئولیت شرعی و بسترسازی برای ولنگاری فرهنگی» خواند.
+
+کیهان همچنین نوشت وظیفه حکومت جمهوری اسلامی تنها به تامین نیازهای معیشتی محدود نمی‌شود و حکومت باید علاوه بر معیشت، زمینه اجرای احکام دینی در جامعه را نیز فراهم کند.
+
+این روزنامه افزود: «نمی‌توان به اسم عدالت و معیشت، چشم را بر تضعیف عفاف و بنیان خانواده بست.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256280
+
+<div align="center"><video src="files/post_256280_VahidOOnLine_256280.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256280_VahidOOnLine_256280.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مروری بر مهم‌ترین اخبار و تحولات جنگ در روز شنبه ۳۱ مرداد ۱۴۰۵.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256279
+
+<div align="center"><video src="files/post_256279_VahidOOnLine_256279.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256279_VahidOOnLine_256279.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در استان مرکزی با ارسال ویدیویی توضیح می‌دهد که برخی افراد مجبور شده‌اند به خاطر فقر اقدام به سرقت کابل برق در محلات کنند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256278
+
+<div align="center"><video src="files/post_256278_VahidOOnLine_256278.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256278_VahidOOnLine_256278.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آسمان شب هنگ‌کنگ با پرواز ۲ هزار پهپاد به بوم بزرگی برای روایت یکی از قدیمی‌ترین افسانه‌های عاشقانه چین تبدیل شد. این نمایش هوایی به مناسبت جشن چی‌شی (Qixi) که از آن به‌عنوان «روز ولنتاین چینی» یاد می‌شود، بر فراز ساحل ویکتوریا هاربر برگزار شد و هزاران نفر از ساکنان و گردشگران را برای تماشای آن گرد هم آورد.
+پهپادها در آسمان هنگ‌کنگ به شکل‌های مختلفی درآمدند؛ از گاوچران و دختر بافنده، دو عاشق افسانه‌ای داستان چی‌شی، تا زوج‌هایی که یکدیگر را در آغوش گرفته‌اند، تیری که قلبی را می‌شکافد، دو قو، یک رز بزرگ و کلمه LOVE.
+در بخش دیگری از این نمایش، پهپادها به شکل یک اژدهای پرنده درآمدند و در پایان نیز عبارت‌های «جشن چی‌شی مبارک» (Happy Qixi) و «عشق در هنگ‌کنگ» (Love in Hong Kong) در آسمان نقش بست.
+جشن چی‌شی در هفتمین روز از هفتمین ماه تقویم قمری چین برگزار می‌شود و داستان آن به افسانه دیدار سالانه نیولانگ (گاوچران) و ژین‌نو (دختر بافنده) بازمی‌گردد؛ دو دلداده‌ای که در روایت اسطوره‌ای چین از یکدیگر جدا شده‌اند و تنها یک‌بار در سال، با کمک پلی از زاغ‌ها، می‌توانند یکدیگر را ببینند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256277
 
@@ -256,68 +317,6 @@ IranintlTV
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان آلمان روز جمعه در دوسلدورف تجمع حمایت از انقلاب ملی و علیه اعدام‌ها برگزار کردند.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256261
-
-<div align="center"><video src="files/post_256261_VahidOOnLine_256261.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256261_VahidOOnLine_256261.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری‌ آمریکا درباره جمهوری‌اسلامی به خبرنگاران گفت: «آن‌ها پول ندارند، نیروی دریایی ندارند، نیروی هوایی ندارند و حتی نمی‌توانند حقوق سربازان و نیروهای پلیس خود را پرداخت کنند.»
-
-او افزود آمریکا «کنترل کامل» منطقه مرتبط با تنگه هرمز را در اختیار دارد و جمهوری‌اسلامی «بسیار مایل» به توافق است، اما هنوز آماده پذیرش «توافق درست» نیست.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256260
-
-<div align="center"><video src="files/post_256260_VahidOOnLine_256260.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256260_VahidOOnLine_256260.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در آغاز فصل پذیرش دانشجویان جدید در دانشگاه ژجیانگ در شهر هانگژو، چین، این‌بار خبری از باربرهای انسانی برای جابه‌جایی چمدان‌ها نبود و سگ‌های رباتیک چهارپا وارد میدان شدند.
-روز جمعه، ۳۰ مرداد هم‌زمان با آغاز برنامه استقبال از دانشجویان ورودی سال ۲۰۲۶، چند ربات چهارپا از جمله مدل‌های «لنیکس ام بیست» (Lynx M20) و «اکس سی» (X30) ساخت شرکت چینی «دپ رباتیک» (Deep Robotics) در محوطه دانشگاه به کار گرفته شدند تا چمدان‌ها و وسایل دانشجویان و خانواده‌هایشان را از پله‌ها بالا ببرند.
-این ربات‌ها با استفاده از سامانه‌های کنترل حرکت و حسگرهای تشخیص محیط، می‌توانند روی سطوح مختلف حرکت کرده و در شرایطی که برای انسان یا تجهیزات معمولی دشوارتر است، تعادل خود را حفظ کنند. در این برنامه، نقش آنها از یک نمایش فناوری فراتر رفت و به‌عنوان بخشی از خدمات عملی استقبال و ثبت‌نام دانشجویان مورد استفاده قرار گرفت.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256259
-
-<div align="center"><video src="files/post_256259_VahidOOnLine_256259.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256259_VahidOOnLine_256259.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران اینترنشنال با اشاره به شرایط بد معیشتی و نداشتن قدرت خرید گوشت قرمز، می‌گوید که به این نتیجه رسیده که کله مرغ مصرف کند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256258
-
-<div align="center"><video src="files/post_256258_VahidOOnLine_256258.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256258_VahidOOnLine_256258.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️فرونشست متروی پرند دوباره به مرحله هشدار رسید
-
-♦️تصاویر جدید از محدوده ایستگاه متروی پرند که روز شنبه ۳۱ مرداد منتشر شده، از تکرار و تشدید فرونشست زمین در این منطقه حکایت دارد، مشکلی که نخستین‌بار در اسفند ۱۴۰۳ به‌طور جدی مطرح شد و با وجود انجام عملیات ترمیم و بتن‌ریزی، همچنان ادامه دارد.
-
-ایستگاه مترو و مسیرهای دسترسی آن از زیرساخت‌های حیاتی شهر پرند هستند و تداوم نشست زمین در اطراف چنین سازه‌ای، در صورت بی‌توجهی یا نبود پایش فنی مستمر، می‌تواند به یک مسئله جدی برای ایمنی سازه‌ای و تردد شهروندان تبدیل شود.
-
-فرونشست زمین در ایران عمدتا با افت سطح آب‌های زیرزمینی، برداشت بیش از ظرفیت از منابع آب و شرایط زمین‌شناختی مناطق خشک و نیمه‌خشک ارتباط دارد، به همین دلیل، بتن‌ریزی و ترمیم موضعی، حتی اگر برای رفع آسیب‌های سطحی ضروری باشد، لزوما علت اصلی فرونشست را برطرف نمی‌کند.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>
