@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 136
 
-📅 آخرین بروزرسانی: 1405/06/02 15:46
+📅 آخرین بروزرسانی: 1405/06/02 16:57
 
 ---
+
+## ProxyMTProto — post 47743
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: crystal.nolags.pw
+Port: 443
+Secret: dd830d4ed967d6deb679cf74c9b10d0ddb
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47742
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47741
 
@@ -163,24 +181,6 @@ Secret: ee97500cee8fa3bf21435e27cf09de8b72766b2e636f6d
 Server: sexy.arixo.shop
 Port: 443
 Secret: eec11798ab008831b474066c9e1ebf5c59617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47723
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47722
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 89.23.108.23
-Port: 443
-Secret: ee4b23e33a9d1122e920a81aef2172b5e87477697463682e7476
 @ProxyMTProto
 </div>
 

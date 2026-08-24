@@ -1,8 +1,27 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/02 15:46
+📅 آخرین بروزرسانی: 1405/06/02 16:57
 
 ---
+
+## ProxyMTProto — post 50295
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50294
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Хочешь разместить свой прокси здесь? 😏 @SProxyRobot
+Забронируй слот через бота за пару секунд.
+
+Want to post your proxy here? 😏 @SProxyRobot
+Reserve your slot through the bot in seconds.
+</div>
 
 ## ProxyMTProto — post 50293
 
@@ -163,24 +182,6 @@ Secret: ee966bd27e82ca84e00f7dcf1eecd7237c7372762e736176656c7965762e636c69636b
 Server: mc-ssh.t-proxyru.info.
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50275
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxtstar.live
-Port: 443
-Secret: eed21e15e0d7df3d811a11e2accff34eec617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50274
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 
