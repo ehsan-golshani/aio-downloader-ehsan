@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/06/02 11:00
+📅 آخرین بروزرسانی: 1405/06/02 11:55
 
 ---
+
+## tasiyanc — post 6434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡🪐 متد جدید.npvt
+</div>
 
 ## tasiyanc — post 6433
 
@@ -181,13 +187,5 @@ FAST⚡TASIYAN🚀.npvt
 آموزش اتصال ⛓
 
 🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🩷لحظات نفس‌گیر
-هم اکنون حریم های هوایی اسرائیل - سوریه - عراق - اردن بسته شده و غرب ایران آسمان کلییر شده
-@Tasiyanc ✅
 </div>
 

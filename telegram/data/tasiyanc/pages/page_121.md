@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 121
 
-📅 آخرین بروزرسانی: 1405/06/02 11:00
+📅 آخرین بروزرسانی: 1405/06/02 11:55
 
 ---
+
+## tasiyanc — post 5902
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+channel@TASIYANC.ovpn
+</div>
 
 ## tasiyanc — post 5901
 
@@ -205,22 +211,5 @@ vless://394f6981-a782-4779-9a85-e6cf22935d93@152.233.28.198:8443?security=tls&al
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 GANG 🌙 10 SERVER FAST.npvt
-</div>
-
-## tasiyanc — post 5880
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
-10سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 

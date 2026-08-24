@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/06/02 11:00
+📅 آخرین بروزرسانی: 1405/06/02 11:55
 
 ---
+
+## tasiyanc — post 8571
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ وارد سیکت*یر ( ۳۱ تیر شدیم)
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8570
 
@@ -245,13 +253,5 @@ Location 🤯 🇫🇷
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آقا این جان فداهای ما چی شد؟
-</div>
-
-## tasiyanc — post 8518
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 چابهار چندین انفجار مهیب
-
-@Tasiyanc
 </div>
 

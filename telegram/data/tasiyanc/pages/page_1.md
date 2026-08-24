@@ -1,12 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/02 11:00
+📅 آخرین بروزرسانی: 1405/06/02 11:55
 
 ---
 
-## tasiyanc — post 9556
+## tasiyanc — post 9558
 
-<div align="center"><a href="files/post_9556_[🇳🇴]@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [🇳🇴]@Tasiyanc.ovpn</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💵قیمت هر دلار 203.000 تومان ایرانی
+</div>
+
+## tasiyanc — post 9556
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 📶
@@ -289,24 +293,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سلام بر دلار ۲۰۰ تومن ، سلام بر بدبخت ایرانی
-</div>
-
-## tasiyanc — post 9537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ‌ سرعتی نپسترنت 🔐
-
-سرورهای نامحدود مولتی لوکیشن ⭕️
-
-
-آموزش اتصال ⛓
-
-🔴 کانفیگ‌های قدیمی پاک کنید یا یکجا کلیردیتا بزنید جدیدارو بریزید ⭕️
-
-
-اتصال پر سرعت برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
 </div>
 

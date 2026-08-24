@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 90
 
-📅 آخرین بروزرسانی: 1405/06/02 11:00
+📅 آخرین بروزرسانی: 1405/06/02 11:55
 
 ---
+
+## tasiyanc — post 6767
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرمنده ادمین تبادل پستهارو اشتباهی زده ❤️
+</div>
 
 ## tasiyanc — post 6762
 
@@ -185,15 +191,6 @@ INFERNO ⚡ vip.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 روز جهانی دوس داشتنو بهتون تبریک میگیم
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6714
-
-<div align="center"><img src="files/post_6714_tasiyanc_6714.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسی و رونالدو اگه ایران بدنیا میومدن :
 @Tasiyanc ✅
 </div>
 
