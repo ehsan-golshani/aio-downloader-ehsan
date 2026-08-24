@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/06/02 00:45
+📅 آخرین بروزرسانی: 1405/06/02 09:40
 
 ---
+
+## tasiyanc — post 8660
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این وسط ارتش عربستان سعودی داره تقه میزنه به یمن 😂
+</div>
+
+## tasiyanc — post 8659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹ویدیو دیده نشده از شخم زدن بغداد توسط عباس دوران خلبان ایرانی وقتی صدام اعلام کرد که هر کلاغ ایرانی بتونه به بغداد حمله کنه بودجه یک سال نیروی هوایی را پاداش می دهم... ساعتی از این خبر نگذشته بود که دلیر مردان ایران اهداف مهمی را در عمق خاک عراق مورد هدف…
+</div>
+
+## tasiyanc — post 8658
+
+<div align="center"><video src="files/post_8658_tasiyanc_8658.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8658_tasiyanc_8658.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹ویدیو دیده نشده از شخم زدن بغداد توسط عباس دوران خلبان ایرانی
+وقتی صدام اعلام کرد که هر کلاغ ایرانی بتونه به بغداد حمله کنه بودجه یک سال
+نیروی هوایی را پاداش می دهم... ساعتی از این خبر نگذشته بود که دلیر مردان ایران اهداف مهمی را در عمق خاک عراق مورد هدف قرار دادند در این عملیات خلبانان ایرانی موفق شدند پالایشگاه الدوره را با بمب 82
+بمباران کنند
+@TASIYANC 💠
+</div>
 
 ## tasiyanc — post 8657
 
@@ -192,26 +218,5 @@ Fact @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شب جمعه به این آرومی؟ مشکوکه
-</div>
-
-## tasiyanc — post 8626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احوال شما؟
-</div>
-
-## tasiyanc — post 8625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شلیك موشك به کویت
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ : در این دو جنگ ۱۸ سرباز از دست دادیم
-@Tasiyanc ⭐️
 </div>
 

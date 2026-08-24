@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/06/02 00:45
+📅 آخرین بروزرسانی: 1405/06/02 09:40
 
 ---
+
+## tasiyanc — post 6711
+
+<div align="center"><img src="files/post_6711_tasiyanc_6711.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تجمعات شبانه
+گشت ارشاد به چاک سینه توجهی نداره اگه بمالید
+@tasiyanc✅
+</div>
+
+## tasiyanc — post 6710
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن خنده بازه
+</div>
+
+## tasiyanc — post 6709
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺قوه قضایی جمهوری اسلامی حکم اعدام نتانیاهو و ترامپ صادر کرد.
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6708
 
@@ -161,27 +184,5 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 دیگر همه چیز قطعی و تمام شده
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠⭕️⭕️ ترامپ : خودم احتمالاً نمی‌تونم تو مراسم امضای توافق حضور داشته باشم و ونس به نمایندگی از آمریکا اونجا خواهد بود
-- امضای توافق ممکنه خیلی زود انجام بشه، حتی شاید همین آخر هفته
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6683
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ ترامپ : محل امضای توافق بزودی اعلام میشود
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با توجه به اخبار توافق حتمی می‌باشد ، البته قطعی نیست
 </div>
 

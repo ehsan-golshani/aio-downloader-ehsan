@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/02 00:45
+📅 آخرین بروزرسانی: 1405/06/02 09:40
 
 ---
+
+## tasiyanc — post 9490
+
+<div align="center"><img src="files/post_9490_tasiyanc_9490.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📄معرفی PDF‌ساز آنلاین رایگان
+
+🌟 با این ابزار می‌تونی PDF بسازی و ویرایش کنی خروجی PDF بگیری از قالب‌های آماده استفاده کنی
+
+🔗لینک سایت: pdfmaker.ir
+
++ بدون نیاز به نصب نرم‌افزار
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9489
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9488
+
+<div align="center"><img src="files/post_9488_tasiyanc_9488.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 9484
 
@@ -436,53 +496,5 @@ til.ac/0L4vyJf
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9463
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اینترنت چطوره؟
-</div>
-
-## tasiyanc — post 9462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عضوی از تیم اتکر ما شوید تا باهم کسانی که به حریم خصوصی مردم تجاوز می‌کنند را محو کنیم
-
-https://t.me/+Mcyp10mcfFA2MTM0
-جوین بدید
-</div>
-
-## tasiyanc — post 9461
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-
-دانلود اندروید 🕹
-
-
-دانلود آیفون 📱
-
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
 </div>
 
