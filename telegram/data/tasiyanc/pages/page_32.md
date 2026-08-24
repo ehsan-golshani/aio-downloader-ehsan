@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 8770
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی مولتی لوکیشن⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8769
 
@@ -239,12 +263,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 به وقت اذان صبح 💔
-</div>
-
-## tasiyanc — post 8745
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر هارو دنبال کنید از اینجا
-@TasiyanProxy
 </div>
 

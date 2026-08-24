@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 9133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕 اسم : Mountain Embrace 
+❤️ آموزش استفاده 
+👉 دریافت پرامپت 
+👉 @TASIYANC 
+⭐️
+</div>
 
 ## tasiyanc — post 9132
 
@@ -294,23 +304,5 @@ r18
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کارما چیزیه ک سراغ همه میاد عزیزم حتی شما دوست عزیز چه اعتقاد داشته باشی چه نه کارای خوبت و بدت پیش کسی که می‌پرستی چرتکه میندازن تعادل باید برقرار باشه😞
-</div>
-
-## tasiyanc — post 9112
-
-<div align="center"><video src="files/post_9112_tasiyanc_9112.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9112_tasiyanc_9112.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید 
-🆕
-
-prompt Cinematic Winter Fashion Portrait 
-🤖
-🤖
-cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, street, symmetrical face, look at camera, detailed face, photo studio, awesome light, muted colors :: Fashion Photographer
-@TASIYANC 
-✅
 </div>
 

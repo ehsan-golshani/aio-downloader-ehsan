@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 8265
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار از چنل اصلی پوشش بدیم ؟ همه بگن
+
+بله 👍 نه 👎
+</div>
 
 ## tasiyanc — post 8262
 
@@ -212,11 +220,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc 💠
-</div>
-
-## tasiyanc — post 8233
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر ❤️
 </div>
 

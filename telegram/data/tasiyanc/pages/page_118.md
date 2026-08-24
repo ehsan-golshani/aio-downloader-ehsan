@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 5971
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور های vip بعدی با متد جدید ساعت ۴ در حال تستشم جواب بده میزارم
+</div>
 
 ## tasiyanc — post 5970
 
@@ -167,12 +173,6 @@ TS premium Servers 🌲⚡.npvt
 ## tasiyanc — post 5948
 
 <div align="center"><img src="files/post_5948_tasiyanc_5948.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی تو راهه
-</div>
-
-## tasiyanc — post 5947
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بمب بعدی تو راهه

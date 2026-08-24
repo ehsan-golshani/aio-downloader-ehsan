@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 9556
+
+<div align="center"><a href="files/post_9556_[🇳🇴]@Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 [🇳🇴]@Tasiyanc.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+⭕️ در صورت ارور چند بار بزنید
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9555
 
@@ -19,8 +42,6 @@
 </div>
 
 ## tasiyanc — post 9554
-
-<div align="center"><a href="files/post_9554_linebet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 linebet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🪙اپلیشیکن اندروید سایت جهانی لاین بت
@@ -287,15 +308,5 @@ til.ac/0L4vyJf
 
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیا میدانید زمان اختلال باید در کانال پروکسی ما نیز عضو شوید؟
-@TasiyanProxy
-@TasiyanProxy
-@TasiyanProxy
-ارائه پروکسی های پر سرعت 📡
 </div>
 

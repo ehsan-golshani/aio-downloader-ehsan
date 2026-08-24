@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/06/02 09:38
+📅 آخرین بروزرسانی: 1405/06/02 10:58
 
 ---
+
+## ProxyMTProto — post 49479
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: login.veltura.digital
+Port: 443
+Secret: ee48a0b26b638c58ad97859fba41e9c21a6c6f67696e2e76656c747572612e6469676974616c
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49478
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49477
 
@@ -149,24 +167,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: probably.nolags.pw
 Port: 443
 Secret: ddc986c839977fd65cfbc10a931129e311
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 

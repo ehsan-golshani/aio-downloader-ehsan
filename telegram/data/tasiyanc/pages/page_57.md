@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 7995
+
+<div align="center"><video src="files/post_7995_tasiyanc_7995.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7995_tasiyanc_7995.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختره نوشته: دوس پسرم برای چند ساعت رفت بیرون و منم تصمیم گرفتم سورپرایزش کنم.
+🚬
+
+@Tasiyanc
+✅
+</div>
 
 ## tasiyanc — post 7993
 
@@ -249,13 +263,5 @@ Speed Fast ⚡ 🇩🇪.npvt
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آخرین باری که دانش اموزا همه باهم دینی میخوندن یه نفر رو خرس خورد😹😹😹
-
-@Tasiyanc✅
 </div>
 

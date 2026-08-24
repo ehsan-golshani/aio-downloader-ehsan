@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 5763
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Box 🔐 RighTel
+
+vless://da2ab05b-6b96-4d0c-96eb-7b320b343fc0@zdas.zeabur.app:443?path=%2Fsecurity%3Dtls&security=tls&encryption=none&insecure=0&host=zdas.zeabur.app&type=ws&allowInsecure=0#%40Tasiyanc%20RighTel%20%E2%9B%93%EF%B8%8F
+
+@Tasiyanc ✔️
+</div>
 
 ## tasiyanc — post 5762
 
@@ -213,10 +223,4 @@ vless://0dc22208-cea4-4423-b3c3-a36957e23233@91.225.217.26:443?security=reality&
 ## tasiyanc — post 5741
 
 <div align="center"><img src="files/post_5741_tasiyanc_5741.jpg" alt="Photo"></div>
-
-## tasiyanc — post 5740
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/Tasiyanc/5733
-</div>
 

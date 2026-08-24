@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/02 09:38
+📅 آخرین بروزرسانی: 1405/06/02 10:58
 
 ---
+
+## ProxyMTProto — post 50243
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxtstar.live
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50241
 
@@ -162,24 +180,6 @@ Secret: ee5de76052d3430f237337281a95e9cea23438343733322e70726f78796875622e636f
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown
 Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50223
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: as.mkim.click
-Port: 443
-Secret: ee2dfa3526fc70b7abd7a09eade6ccea1f61732e6d6b696d2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50222
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
 Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>

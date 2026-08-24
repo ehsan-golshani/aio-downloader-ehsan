@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/02 09:38
+📅 آخرین بروزرسانی: 1405/06/02 10:58
 
 ---
+
+## ProxyMTProto — post 50303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: irancell-mci-rightell-adsl.visalawyer.co.uk.
+Port: 443
+Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50302
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50301
 
@@ -164,24 +182,6 @@ Secret: eefc2612ff65a557fddf1d1b334395ef23617669746f2e7275
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: chestno.servera-dlya-tg-zdes-net.abrdns.com
-Port: 443
-Secret: eea65c7fc5a0d5669ba371a7ca88fc19496f7a6f6e2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50282
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: admin.valmira.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 

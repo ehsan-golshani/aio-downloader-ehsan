@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 9157
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن multi📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید بزنید وصله ⭕️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 9156
 
@@ -214,15 +232,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 کودک خردسال جاویدنام فاطمه سلطانی بجای در آغوش گرفتن مادر قهرمانش سنگ سرد ارامگاهش را میبوسد.
 
 @TASIYANC 🏛
-</div>
-
-## tasiyanc — post 9133
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕 اسم : Mountain Embrace 
-❤️ آموزش استفاده 
-👉 دریافت پرامپت 
-👉 @TASIYANC 
-⭐️
 </div>
 

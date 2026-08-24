@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 7460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال 
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7459
 
@@ -157,11 +172,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تفاهم هم رو هواس الان ، امشب احتمال داره شاهد تحرکات جدید از هر دو طرف باشیم
-</div>
-
-## tasiyanc — post 7433
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطوریددد؟
 </div>
 

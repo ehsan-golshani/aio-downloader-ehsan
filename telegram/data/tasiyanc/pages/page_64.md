@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 7698
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چه خبرا خوبید؟
+</div>
 
 ## tasiyanc — post 7697
 
@@ -229,11 +235,5 @@ Fast ⚡ Unlimited.npvt
 
  
 ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7660
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از چنلای مردمی حمایت کنید ، بناموسم بخاطر خودم نمیگم ، ما مثل اینا جیره خور نبودیم همه چیو از جیب خودمون خرج کردیم نه کانفیگ گیگی یه میلیون فروختیم ، نه سکوت کردیم مثلاً امروز گروه تعطیل کنیم یا موقع قطعی فعالیت نکرده باشیم
 </div>
 

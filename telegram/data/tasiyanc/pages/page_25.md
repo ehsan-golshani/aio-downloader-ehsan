@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 8961
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دردناک است ، زندگی در مملکتی که مردمش ؛ تاوان نفهمیِ عده ای را میدهند که حاضر نیستند حقیقت را ببینند
+
+پروکسی | پروکسی | پروکسی
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 8960
 
@@ -278,11 +289,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 8938
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت نتتون بگید؟
 </div>
 

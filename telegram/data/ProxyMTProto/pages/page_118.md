@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/06/02 09:38
+📅 آخرین بروزرسانی: 1405/06/02 10:58
 
 ---
+
+## ProxyMTProto — post 48091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48090
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: lumen.proxyux.site
+Port: 443
+Secret: ee46a405cdf38698927aa7352341e2ba0a6c756d656e2e70726f787975782e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48089
 
@@ -163,24 +181,6 @@ Secret: ee05d3d7463edfb7a674cc1d89ba24eeba617065782e70726f7879746f702e7370616365
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48071
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: apex.proxyux.site
-Port: 443
-Secret: ee1e16392ec634c2ebce9387a9edcf24e3617065782e70726f787975782e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48070
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 

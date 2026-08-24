@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 6136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+3سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6131
 
@@ -176,16 +192,5 @@ Fast2⚡@Tasiyanc.conf
 
 دانلود برنامه Wg tunnel 🕹
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6108
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ وایرگارد میزارم تست کنین
-
-برنامشو دان کنین
-
-دانلود Wg tunnel
-https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunnel
 </div>
 

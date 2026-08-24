@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 9513
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+تست شده تمام نت‌ها 
+🛜
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+
+
+💋 @Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9511
 
@@ -295,33 +317,5 @@ Negative prompt: cartoon, CGI, 3D render, illustration, painting, plastic skin, 
 💰💰💰💰💰
 📱Telegram Channel👇
 https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9491
-
-<div align="center"><img src="files/post_9491_tasiyanc_9491.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
-
-🌍 سایت بین‌المللی و معتبر LINEBET
-
-⚽️ پیش‌بینی فوتبال
-🎰 کازینو آنلاین
-💳 واریز و برداشت ریالی
-🎁 بونوس 100٪ اولین واریز
-🎁 بونوس 100٪ هر دوشنبه
-📞پشتیبانی فارسی فعال
-
-🎁کد هدیه ثبت‌نام: L5670
-
-🔗 دانلود اپلیکیشن اندروید 👉
-
-🔗 لینک سایت 👉
-✉️ https://t.me/+dukgrB6-zGsyNGM8
-
-🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
-sr30
-📚 آموزش کامل سایت👉
 </div>
 

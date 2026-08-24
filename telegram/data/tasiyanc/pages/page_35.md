@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 8690
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چخبرا ، امتحانات چطور دادید؟
+</div>
 
 ## tasiyanc — post 8689
 
@@ -206,17 +212,5 @@
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8661
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت دونالد ترامپ :
-
-ایران، باورنکردنیه، شروع کرد به شلیک کردن به همه‌جای خاورمیانه.
-اگه سلاح هسته‌ای داشت، حتما ازش استفاده میکرد.
-
-
-@Tasiyanc ☑️
 </div>
 

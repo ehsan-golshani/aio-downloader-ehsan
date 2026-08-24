@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/02 09:40
+📅 آخرین بروزرسانی: 1405/06/02 11:00
 
 ---
+
+## tasiyanc — post 9318
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
 
 ## tasiyanc — post 9317
 
@@ -256,11 +264,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 اکس هاتونو با یه ایموجی معرفی کنید
 
 کامنت بازه.
-</div>
-
-## tasiyanc — post 9294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبید چخبرا؟
 </div>
 
