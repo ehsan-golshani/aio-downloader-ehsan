@@ -1,8 +1,68 @@
 # آرشیو کانال VahidOOnLine - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/06/03 00:20
+📅 آخرین بروزرسانی: 1405/06/03 00:54
 
 ---
+
+## VahidOOnLine — post 255989
+
+<div align="center"><video src="files/post_255989_VahidOOnLine_255989.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255989_VahidOOnLine_255989.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار ایران در رسانه‌های جهان، پنجشنبه ۲۹ مرداد ۱۴۰۵
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255988
+
+<div align="center"><video src="files/post_255988_VahidOOnLine_255988.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255988_VahidOOnLine_255988.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد پدر جاویدنام محسن عباسی بر فراز قله دماوند در سوگ فرزندش اشک ریخت و یاد او را گرامی داشت.
+
+این جاویدنام ۱۸ دی ۱۴۰۴ در اعتراضات نجف‌آباد اصفهان، به‌دست ماموران جمهوری اسلامی در سن ۲۱ سالگی کشته شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255987
+
+<div align="center"><video src="files/post_255987_VahidOOnLine_255987.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255987_VahidOOnLine_255987.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️خبرگزاری فارس از مهار یک آتش‌سوزی در پالایشگاه تهران خبر داد
+
+♦️خبرگزاری فارس با انتشار تصاویری گزارش کرد، دو تانکر حمل و بارگیری فرآورده‌های نفتی صبح پنجشنبه ۲۹ مرداد در محوطه بارگیری پالایشگاه نفت تهران دچار آتش‌سوزی شدند اما این حریق مهار شده است.
+
+به گزارش خبرگزاری فارس، تانکرهای حادثه‌دیده حامل نفت سفید بودند و آتش‌سوزی در محل بارگیری رخ داده است. روابط عمومی پالایشگاه نفت تهران اعلام کرد واحدهای عملیاتی پالایشگاه آسیبی ندیده‌اند، روند تولید بدون اختلال ادامه دارد و فعالیت بخش‌های اصلی پالایشگاه با مشکل روبه‌رو نشده است.
+
+شروین تبریزی، روابط عمومی اورژانس تهران، نیز با اشاره به دود غلیظی که در جنوب تهران و آسمان باقرشهر دیده شد، گفت بر اساس گزارش‌های اولیه تاکنون یک نفر در این حادثه مصدوم شده که مصدومیت او مورد خاصی نبوده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255986
+
+<div align="center"><video src="files/post_255986_VahidOOnLine_255986.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255986_VahidOOnLine_255986.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال نشان داد که شامگاه ۲۸ مرداد برق در مشهد قطع شده است و گفت: «در عصر تکنولوژی با قطع برق احساس می‌کنم که از پشت پشت لپ‌تاپ ناگهان به عصر غارنشینی پرت شده‌ام.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255985
 
@@ -257,61 +317,6 @@ Indypersian
 
 وزیر خارجه جمهوری اسلام همچنین نوشت که «تروریسم اقتصادی آمریکا» اقتصاد جهانی و حاکمیت کشورها در سراسر جهان را تهدید می‌کند.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255968
-
-<div align="center"><video src="files/post_255968_VahidOOnLine_255968.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255968_VahidOOnLine_255968.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، گفت واشینگتن همچنان گزینه‌های زیادی برای اعمال تحریم‌های سنگین علیه جمهوری‌اسلامی در اختیار دارد و محاصره دریایی را «صددرصد موفق» توصیف کرد.
-او افزود تنگه هرمز در حال حاضر باز است و کشتی‌های زیادی از آن عبور می‌کنند.
-ترامپ همچنین گفت با پیدا شدن مسیرها و گزینه‌های جایگزین، تنگه هرمز ممکن است دیگر اهمیت گذشته را نداشته باشد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255967
-
-<div align="center"><img src="files/post_255967_VahidOOnLine_255967.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
-</div>
-
-## VahidOOnLine — post 255966
-
-<div align="center"><video src="files/post_255966_VahidOOnLine_255966.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255966_VahidOOnLine_255966.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، درباره احتمال مذاکره با جمهوری‌اسلامی گفت: «شاید در مقطعی مذاکره کنیم، اما الان فکر می‌کنم وضعیت خیلی خوب است.»
-
-او افزود: «موضوع خیلی ساده است؛ جمهوری‌اسلامی نمی‌تواند سلاح هسته‌ای داشته باشد و نخواهد داشت.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255965
-
-<div align="center"><img src="files/post_255965_VahidOOnLine_255965.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شرکت‌های دارویی مودرنا و مرک اعلام کردند یک واکسن شخصی‌سازی‌شده مبتنی بر فناوری ام‌آر‌ان‌ای (mRNA) در آزمایشی بالینی برای درمان ملانوما، یکی از خطرناک‌ترین انواع سرطان پوست، به نتایج مثبتی دست یافته است.
-
-این درمان با نام «اینتیسران اتوژن» برای هر بیمار به صورت اختصاصی طراحی می‌شود و بر اساس جهش‌های ژنتیکی موجود در تومور او ساخته می‌شود. هدف از این روش، آموزش سیستم ایمنی برای شناسایی و حمله به سلول‌های سرطانی دارای این جهش‌هاست.
-
-این آزمایش که مرحله سوم را با موفقیت پشت‌سر گذاشته است، روی ۱۱۳۷ بیمار مبتلا به ملانومای پرخطر انجام شد. ترکیب واکسن با داروی ایمنی‌درمانی کیترودا در مقایسه با مصرف کیترودا به تنهایی، خطر بازگشت سرطان و گسترش آن به سایر نقاط بدن را کاهش داد.
-
-به گزارش مجله علمی بایوفارم اینترنشنال، بیماران شرکت‌کننده در این مطالعه به ملانوما در مراحل ۲ تا ۴ مبتلا بودند و تومور آنها پیش از آغاز درمان با جراحی برداشته شده بود. نتایج نشان داد این درمان هر دو هدف اصلی مطالعه، یعنی افزایش مدت زمان بدون بازگشت سرطان و جلوگیری از گسترش به سایر اندام‌ها را محقق کرده است.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>
