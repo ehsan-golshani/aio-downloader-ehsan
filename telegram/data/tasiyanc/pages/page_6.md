@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/02 18:56
+📅 آخرین بروزرسانی: 1405/06/02 20:36
 
 ---
+
+## tasiyanc — post 9450
+
+<div align="center"><img src="files/post_9450_tasiyanc_9450.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨امروز 19 August، روز جهانی عکاسیه📸
+یه روز واسه ثبت کردن لحظه‌ها و منظره‌هایی که حالتو خوب می‌کنن امروز وقتشه انجام بدی .
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9449
 
@@ -290,18 +300,5 @@ Decarys 🔥.ovpn
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برید به ChatGpt بگید ...
-
-Roast me , no filter , no mercy
-
-اون روی سگشو می‌بینید ، جوری زخماتون باز می‌کنه گریه کنید
-
-#N
-@Tasiyanc ⭐️
 </div>
 

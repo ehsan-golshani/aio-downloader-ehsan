@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/06/02 18:56
+📅 آخرین بروزرسانی: 1405/06/02 20:36
 
 ---
+
+## tasiyanc — post 7967
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 بیانیه صفحه رسمی لیندسی گراهام: او بر اثر یه بیماری ناگهانی و کوتاه مدت درگذشت! تسلیت میگیم به خونوادش. @Tasiyanproxy ✅
+</div>
 
 ## tasiyanc — post 7966
 
@@ -209,17 +215,6 @@ home.by.me
 الان وارد نرم‌افزارهای تخصصی دیزاین شدید.
 
 اول از همه ابعاد اتاق، دیوارهاش و به‌صورت کلی متراژ رو مشخص کنید، بعدش شروع کن به دیزاینش با محصولاتی که سایت در اختیارت می‌ذاره؛ مثل مبلمان، میز و
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7928
-
-<div align="center"><img src="files/post_7928_tasiyanc_7928.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام داداش به رفقا بگو استرس نکشن، دینی رو میشه تو یک ساعت
-جمع کرد😹
 
 @Tasiyanc✅
 </div>

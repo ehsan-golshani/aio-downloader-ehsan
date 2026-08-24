@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/06/02 18:56
+📅 آخرین بروزرسانی: 1405/06/02 20:36
 
 ---
+
+## tasiyanc — post 8321
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طرف کلا نمیدونه دیتاسنتر چیه هی تو چنلش میزنه در حال قطع شدن
+</div>
 
 ## tasiyanc — post 8320
 
@@ -174,13 +180,5 @@
 🔴سپاه خورموج و اهواز مورد هدف موشکی.
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨 انفجار در اهواز
-
-@Tasiyanc ✅
 </div>
 

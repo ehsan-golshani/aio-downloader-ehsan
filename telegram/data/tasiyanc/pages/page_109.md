@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/06/02 18:56
+📅 آخرین بروزرسانی: 1405/06/02 20:36
 
 ---
+
+## tasiyanc — post 6221
+
+<div align="center"><video src="files/post_6221_tasiyanc_6221.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6221_tasiyanc_6221.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد CM  
+👑
+
+دانلود  Wg tunnel 
+🕹
+
+آموزش
+⏩
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6220
 
@@ -158,17 +178,6 @@ Proxy ✅
 tg://proxy?server=37.27.192.211&port=8443&secret=dd104462821249bd7ac519130220c25d09
 
 @Tasiyanproxy 
-✅
-</div>
-
-## tasiyanc — post 6196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  
-👑
-دانلود  Wg tunnel 🕹
-آموزش⏩
-@Tasiyanc 
 ✅
 </div>
 

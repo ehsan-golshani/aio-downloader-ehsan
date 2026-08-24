@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/06/02 18:56
+📅 آخرین بروزرسانی: 1405/06/02 20:36
 
 ---
+
+## tasiyanc — post 7565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+7سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
+
+🗝Password :  @Tasiyanc
+
+ 
+✅@Tasiyanc |  تاسیان اتصال امن
+</div>
 
 ## tasiyanc — post 7564
 
@@ -248,12 +265,5 @@ Password :  @Tasiyanc ❤️
 
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7526
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صداوسیما:
-اگر ترامپ را می‌کشتیم؛ آمریکا با ما مذاکره می‌کرد؟!
 </div>
 

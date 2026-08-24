@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/02 18:56
+📅 آخرین بروزرسانی: 1405/06/02 20:36
 
 ---
+
+## tasiyanc — post 9143
+
+<div align="center"><img src="files/post_9143_tasiyanc_9143.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ در‌تروث : 51 سال رفتار نامناسب ایران!
+حالا چرا ۵۱ سال ، ۴ سال زمان محمدرضا شاه رو هم میگه؟😐
+</div>
 
 ## tasiyanc — post 9142
 
@@ -261,11 +270,5 @@ cartoon, anime, illustration, CGI, 3D render, plastic skin, porcelain skin, exce
 آموزش استفاده ♻️
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9120
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه پرامپت VİP تاسیان برا دختر خانومای چنل ، بریم توکارش
 </div>
 
