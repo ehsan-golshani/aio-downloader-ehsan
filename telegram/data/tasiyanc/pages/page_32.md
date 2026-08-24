@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/02 20:36
+📅 آخرین بروزرسانی: 1405/06/02 21:21
 
 ---
+
+## tasiyanc — post 8784
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ سپاه : ساعاتی پیش سه نفتکش متخلف که بی‌توجه به اخطارهای ما، به حرکت در مسیر ناامن و غیرقانونی ادامه می‌دادند مورد اصابت قرار گرفته و متوقف شدند.
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8783
 
@@ -231,18 +239,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8757
-
-<div align="center"><video src="files/post_8757_tasiyanc_8757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8757_tasiyanc_8757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صنعت پهبادی اوکراین تو یه لول دیگه اس !
-🇷🇺🇺🇦 یک تانک روسی T-80BVM با ارزش تقریبی ۴ میلیون دلار، توسط یک پهپاد ۵۰۰ دلاری اوکراینی منهدم شد.
-﻿
-@TASIYANC ⭐️
 </div>
 

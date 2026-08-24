@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/02 20:36
+📅 آخرین بروزرسانی: 1405/06/02 21:21
 
 ---
+
+## tasiyanc — post 9451
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعدادی DNS برای گیمر های عزیز 😎
+
+IPv4
+DNS 1⚡️
+
+84.200.69.80
+
+DNS 2⚡️
+
+84.208.90.42
+
+
+DNS 1⚡️
+
+114.114.114.114
+
+DNS 2⚡️
+
+78.160.38.248
+
+
+IPv6
+DNS 1⚡️
+
+2a00:801::856b:0fb8:c
+
+DNS 2⚡️
+
+2a00:801::856b:5b73:b
+
+
+DNS 1 ⚡️
+
+2a02:ff01:3344::2903:91b0:c
+
+DNS 2 ⚡️
+
+2a02:ff01:3344::2903:de59:b
+
+
+لینک DNS Changer اندروید
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9450
 
@@ -282,21 +330,6 @@ Decarys 🔥.ovpn
 🔴سود های میلیارد دلاری شرکت های نفتی آمریکا بعد جنگ:
 
 پ ن : حالا شما هی تو صداسیما بگو پیروز شدیم
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9431
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 
-📶
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
 
 @Tasiyanc 
 ⭐️

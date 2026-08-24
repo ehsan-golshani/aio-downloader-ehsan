@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/06/02 20:36
+📅 آخرین بروزرسانی: 1405/06/02 21:21
 
 ---
+
+## tasiyanc — post 8445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرررررررررررررررران تووووووووووورس
+</div>
 
 ## tasiyanc — post 8444
 
@@ -138,13 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پرزیدنت ترامپ کنار اینفانتینو امشب در استادیومه و قراره جام قهرمانی رو شخصا خودش به تیم قهرمان بده
-</div>
-
-## tasiyanc — post 8421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺سایت AparatSport فینال با گزارش عادل فردوسی پور هست
-
-@TASIYANC ✅
 </div>
 

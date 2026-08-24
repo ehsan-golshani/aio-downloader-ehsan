@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/06/02 20:36
+📅 آخرین بروزرسانی: 1405/06/02 21:21
 
 ---
+
+## tasiyanc — post 8128
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠فوری علیرضا فغانی داور فینال جام‌جهانی بین اسپانیا و آرژانتین شد.
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8127
 
@@ -173,16 +182,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه مربی پرواز وسط آموزش به شاگرد 22 ساله‌اش گفته “ ازینجا به بعد خودت میدونی چیکار کنی” بعد در هواپیمارو باز کرده و پریده و خودکشی کرده،شاگرد هم در نهایت موفق شده هواپیمارو تنهایی و سالم فرود بیاره.
-
-@Tasiyanc ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8103
-
-<div align="center"><img src="files/post_8103_tasiyanc_8103.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ابوالفضل ملایی، سربازی که فقط یک روز از خدمتش مونده بود و مادرش منتظر بود برگرده خونه، اما جنازه‌شو برای مادرش آوردن💔
 
 @Tasiyanc ⭐️| مرجع کانفیگ
 </div>
