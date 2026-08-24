@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/02 15:23
+📅 آخرین بروزرسانی: 1405/06/02 17:52
 
 ---
+
+## tasiyanc — post 9301
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+
+آموزش اتصال روی اندروید⚡️
+
+آموزش اتصال روی ویندوز  ⚡️
+
+دانلود برنامه برای ویندوز 💻
+
+@TASIYANC ☑️
+</div>
+
+## tasiyanc — post 9300
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🐊 crocodile
+بعد سه ماه متولد شده عشق کنید
+تو قطعیا یادتونه دیگه چقد ترکوندیم
+</div>
+
+## tasiyanc — post 9299
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9298
 
@@ -145,10 +188,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9275
 
 ## tasiyanc — post 9274
-
-## tasiyanc — post 9273
-
-## tasiyanc — post 9272
-
-## tasiyanc — post 9271
 

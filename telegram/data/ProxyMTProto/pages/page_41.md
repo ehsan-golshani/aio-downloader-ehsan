@@ -1,8 +1,25 @@
 # آرشیو کانال ProxyMTProto - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/06/02 16:57
+📅 آخرین بروزرسانی: 1405/06/02 17:50
 
 ---
+
+## ProxyMTProto — post 49654
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📨 For advertising inquiries, contact us or email us. @Ads_ProxyMTProto
+
+📨 По вопросам размещения рекламы свяжитесь с нами или напишите нам по электронной почте. @Ads_ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49653
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: net.antitspu.com
+Port: 443
+Secret: ee24918e3782cee00f652c0018f2867ffd6e65742e616e7469747370752e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49652
 
@@ -156,24 +173,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: hello.nolagsproxy.space
 Port: 443
 Secret: dd23c4f3442902ef41986fda3e819c1417
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49634
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49633
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: syzygy.sosun4ik.top
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 

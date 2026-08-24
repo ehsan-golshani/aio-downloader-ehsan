@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/02 15:23
+📅 آخرین بروزرسانی: 1405/06/02 17:52
 
 ---
+
+## tasiyanc — post 9041
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووری 🔴 در پی حمله موشکی حوثی های یمن
+
+تعدادی از نیروهای عربستان سعودی کشته و زخمی شدند، پس از آنکه یک موشک شلیک شده از یمن مستقیماً به پایگاه‌های نیروهای تیپ واکنش سریع اصابت کرد.
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ویس های پخش شده منتسب به سالومه مجری منوتو ، با هوش مصنوعی ساخته شده دیدم وایرال داره میشه گفتم بگم
+
+پ‌ن : انقد سطحی و مبتدیانه ساخته شده بچه ۴ ساله هم میفهمه
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9039
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سازمان وظیفه عمومی فراجا شایعه معافیت سربازان فراری را تکذیب کرد
+
+اطلاعیه سازمان وظیفه عمومی:
+▫️آن دسته از کارکنان وظیفه که به هر دلیل خدمت سربازی خود را به اتمام نرسانده‌اند، می‌بایست وضعیت سربازی خود را از طریق یگان خدمتی تعیین تکلیف کنند و هیچ نوع معافیت جدیدی برای آنان در نظر گرفته نشده است.
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9038
 
@@ -223,61 +253,5 @@ Join As @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وضعیت نت خرابه ، گزارش وضعیت از خطوط همراه و ایرانسل بدید...
-</div>
-
-## tasiyanc — post 9015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم🖤
-
-کانفیگ اختصاصی نامحدود HttpCustum 📱
-
-سرور سرعتی مناسب تمام نت‌ها ⚡️
-
-آموزش اتصال ✅
-
-دانلود  📱android🕹  iOS
-
-اتصال امن برای همه 🏠
-
-💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ HttpCustum بزاریم ؟
-</div>
-
-## tasiyanc — post 9012
-
-<div align="center"><video src="files/post_9012_tasiyanc_9012.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9012_tasiyanc_9012.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎کانفیگ اختصاصی نامحدود اینجکتور
-📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی 
-⚡️
-
-سرور سرعتی‌ لوکیشن USA 
-📍
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون  
-📱
-
-آموزش اتصال 
-🔸
-
-اتصال امن برای همه 🇮🇷
-
-
-📱 @TASIYANC 
-✅
 </div>
 

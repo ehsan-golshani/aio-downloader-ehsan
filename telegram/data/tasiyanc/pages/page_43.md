@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/06/02 15:23
+📅 آخرین بروزرسانی: 1405/06/02 17:52
 
 ---
+
+## tasiyanc — post 8440
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گل شد برا اسپانیا ولی داور خطا گرف
+</div>
+
+## tasiyanc — post 8439
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نود زن مسی 😂
+</div>
+
+## tasiyanc — post 8438
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قرممممممز آرژانتین ۱۰ نفره شد
+</div>
 
 ## tasiyanc — post 8437
 
@@ -129,33 +147,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 همه چی به کنار خوب این عربارو گاییدن🤣
 بی خایه های کودن
-</div>
-
-## tasiyanc — post 8418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شبکه 13 اسرائیل: ترامپ پیامی به کشورهای خلیج ارسال کرد: «اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.» @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8416
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شبکه 13 اسرائیل: ترامپ پیامی به کشورهای خلیج ارسال کرد:
-
-«اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.»
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8415
-
-<div align="center"><video src="files/post_8415_tasiyanc_8415.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8415_tasiyanc_8415.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴🚨هدف قرار گرفتن مستقیم یک نیروگاه برق در کویت
-
-@TASIYANC ⭐️
 </div>
 

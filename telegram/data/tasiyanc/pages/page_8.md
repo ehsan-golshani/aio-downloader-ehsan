@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/02 15:23
+📅 آخرین بروزرسانی: 1405/06/02 17:52
 
 ---
+
+## tasiyanc — post 9405
+
+<div align="center"><video src="files/post_9405_tasiyanc_9405.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9405_tasiyanc_9405.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لحظه قهوه ای کردن خبرنگار CNN همین الان در کاخ سفید 😂
+
+خبرنگار : آقای رییس جمهور :
+ترامپ: ساکت، ساکت، ساکت، خیلی بی‌احترامی می‌کنید، ساکت باشید، از رسانه دروغگوی CNN هستی با من حرف نزن
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9404
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووری
+
+ترامپ: توافق با ایران را لغو خواهیم کرد
+</div>
+
+## tasiyanc — post 9403
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش اعضا وضعیت اینترنت داغون شده ، تایید یا ن؟
+</div>
 
 ## tasiyanc — post 9402
 
@@ -221,29 +250,5 @@ g26
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9374
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-تست شده تمام نت‌ها ⚡️
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9373
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اینترنت چطوره؟
-</div>
-
-## tasiyanc — post 9372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نوید محمدزاده : از فلسطین حمایت کردم ، بازم خواهم کرد ، با اسراییل حال نمیکنم ، تموم تهدید های شما هم ب تخممه
-
-بعد این حرفاش ۹۰۰ هزار نفر آنفالوش کردن فعلا
-@Tasiyanc ⭐️
 </div>
 
