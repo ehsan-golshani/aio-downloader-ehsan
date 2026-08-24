@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/06/02 13:50
+📅 آخرین بروزرسانی: 1405/06/02 14:37
 
 ---
+
+## ProxyMTProto — post 49247
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 2ca164.zipline.cc
+Port: 443
+Secret: ee5ab264a139bb00bd82c48212db75f9b33263613136342e7a69706c696e652e6363
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49246
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 103.161.35.23
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49245
 
@@ -163,24 +181,6 @@ Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49227
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: best-proxy.ink
-Port: 443
-Secret: ee3646eba8c65e0e1d4804a7f9caa6531d626573742d70726f78792e696e6b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49226
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 

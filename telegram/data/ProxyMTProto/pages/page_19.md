@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/02 13:50
+📅 آخرین بروزرسانی: 1405/06/02 14:37
 
 ---
+
+## ProxyMTProto — post 50091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Capital-of-iranian.cat-beutifull-sirooss.co.im
+Port: 4443
+Secret: 7hBEYoISSb16xRkTAiDI3QljYXQtYmV1dGlmdWxsLXNpcm9vc3MuY28uaW0=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50090
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: max.kimt.click
+Port: 443
+Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50089
 
@@ -163,24 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: chai.mikham.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50071
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hub.neo-vpn.ink
-Port: 443
-Secret: eea29dda982c54198f00ea8d440fa6f8ce6875622e6e656f2d76706e2e696e6b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50070
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: iran.vanitydomain.co.uk.
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 

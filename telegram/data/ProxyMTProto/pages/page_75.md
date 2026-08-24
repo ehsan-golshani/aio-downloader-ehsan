@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/06/02 13:50
+📅 آخرین بروزرسانی: 1405/06/02 14:37
 
 ---
+
+## ProxyMTProto — post 48961
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.acientirani-uor4.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48960
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee6217ab7cb85436e31984b28fbe64bda7657468657265616c322e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48959
 
@@ -163,24 +181,6 @@ Secret: eefe12a66db0212791c3ba09df4f6123806e65742e70656c6d6573686b612e746f70
 Server: Unknown
 Port: 443
 Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48941
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp.nowabst.net
-Port: 853
-Secret: 7oLOH4SvQDPMfnsCEGm-PVthZHMueDUucnU
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48940
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
