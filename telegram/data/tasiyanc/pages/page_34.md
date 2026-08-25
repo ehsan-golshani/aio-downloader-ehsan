@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/06/03 19:49
+📅 آخرین بروزرسانی: 1405/06/03 20:44
 
 ---
+
+## tasiyanc — post 8756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران جای عجیبیه جای لف دادن از چنل سام صابری حرومزاده ممبراش بالا اومده
+</div>
+
+## tasiyanc — post 8755
+
+<div align="center"><img src="files/post_8755_tasiyanc_8755.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسلیت.
+</div>
 
 ## tasiyanc — post 8754
 
@@ -210,18 +224,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 دوتا پنکه گذاشتن جلو عکس کیم جونگ اون و خانواده که گرمشون نشه. 😂😂😂
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8727
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺کاهش 8% درصدی قیمت نفت به ۹۱ دلار بدلیل توقف حملات جمهوری اسلامی و آمریکا
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8726
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ⚡🇹🇷.nm
 </div>
 

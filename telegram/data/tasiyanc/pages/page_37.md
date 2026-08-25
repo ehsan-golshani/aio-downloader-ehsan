@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/03 19:49
+📅 آخرین بروزرسانی: 1405/06/03 20:44
 
 ---
+
+## tasiyanc — post 8672
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب چقد آرومه 🦦
+</div>
+
+## tasiyanc — post 8671
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 انفجار در امیدیه - تایید میشه\نمیشه
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8670
 
@@ -180,42 +193,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 در صورت تداوم عدم حمایت و نداشتن جذب ، چنل بزودی بفروش خواهد رسید و اتمام فعالیت تاسیان بزودی اعلام خواهد شد ❤️
-</div>
-
-## tasiyanc — post 8647
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8646
-
-<div align="center"><video src="files/post_8646_tasiyanc_8646.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8646_tasiyanc_8646.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹وقتی یه عالمه اسباب‌بازی داری ولی هیشکی باهات بازی نمیکنه :)
-
-@TASIYANC ✅
 </div>
 

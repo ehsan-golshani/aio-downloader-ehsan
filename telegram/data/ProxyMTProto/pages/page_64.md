@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/06/03 19:48
+📅 آخرین بروزرسانی: 1405/06/03 20:42
 
 ---
+
+## ProxyMTProto — post 49232
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eeecd508d816f611bb329487809f8dac88706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49230
 
@@ -163,24 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e
 Server: Unknown
 Port: 443
 Secret: 0a9b43ea17eff45e518fa360979998e7
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: webhook.what-ever.co.uk.
-Port: 443
-Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49211
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vk.nftauctiontg.online
-Port: 8448
-Secret: ee82dd6ba1475a9793a9613364fee70e2f706574726f766963682e7275
 @ProxyMTProto
 </div>
 

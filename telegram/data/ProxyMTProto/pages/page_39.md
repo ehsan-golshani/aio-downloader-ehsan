@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/06/03 19:48
+📅 آخرین بروزرسانی: 1405/06/03 20:42
 
 ---
+
+## ProxyMTProto — post 49733
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: lazeyka-4.getvelora.space
+Port: 443
+Secret: ee8cb9b7ded45502a4f153299a621a9d3d6f7a6f6e2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49731
 
@@ -163,24 +181,6 @@ Secret: 79e344818749bd7ac519130220c25d09
 Server: link.mishkalapy.life
 Port: 443
 Secret: ee943031c5687da2dc848bf7582bf801496c696e6b2e6d6973686b616c6170792e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fast-proxy.ink
-Port: 443
-Secret: ee98e83ac6806491b9501d3a61cdd59c71666173742d70726f78792e696e6b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Now.fast.Proxy.wow
-Port: 443
-Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
 @ProxyMTProto
 </div>
 

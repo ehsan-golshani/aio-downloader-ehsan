@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/03 19:49
+📅 آخرین بروزرسانی: 1405/06/03 20:44
 
 ---
+
+## tasiyanc — post 9476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Blue Man💙 (1).ovpn
+</div>
+
+## tasiyanc — post 9475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9474
 
@@ -372,28 +391,5 @@ DNS 2 ⚡️
 لینک DNS Changer اندروید
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9450
-
-<div align="center"><img src="files/post_9450_tasiyanc_9450.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨امروز 19 August، روز جهانی عکاسیه📸
-یه روز واسه ثبت کردن لحظه‌ها و منظره‌هایی که حالتو خوب می‌کنن امروز وقتشه انجام بدی .
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
 </div>
 

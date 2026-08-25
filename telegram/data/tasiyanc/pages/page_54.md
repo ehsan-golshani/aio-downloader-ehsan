@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/06/03 19:49
+📅 آخرین بروزرسانی: 1405/06/03 20:44
 
 ---
+
+## tasiyanc — post 8169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📰تسنیم:
+
+🇺🇸💢آمریکا شروع به زدن زیرساخت ها و پل ها کرده
+اونا به شهرستان بندرخمیر و بخش کهورستان حمله کردن و پل ارتباطی بندرعباس به شیراز که معروف به پل بندرعباس - کهورستان - لار هست رو هدف قرار دادن.
+برق مناطقی از کهورستان هم قطع شده
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عجیب اما واقعی جنوب ایران زیر بمباران هست صدا سیما از جنوب لبنان میگه
+</div>
 
 ## tasiyanc — post 8167
 
@@ -202,25 +220,5 @@
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8127
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال تموم شه خواهیم دید چه خواهد شد
-</div>
-
-## tasiyanc — post 8126
-
-<div align="center"><img src="files/post_8126_tasiyanc_8126.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال جام جهانی 🌍
-اسپانیا 🇪🇸 و آرژانتین 🇦🇷
-
-🗓 28 تیر ساعت 22.30
-🏟 استادیوم (MetLife Stadium )نیویورک نیوجرسی
-
-@Tasiyanc ⭐️ | مرجع کانفیگ
 </div>
 

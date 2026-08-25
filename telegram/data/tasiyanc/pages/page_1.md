@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/03 19:49
+📅 آخرین بروزرسانی: 1405/06/03 20:44
 
 ---
+
+## tasiyanc — post 9600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ : آمریکا جهان را تحت فشار قرار می‌دهد تا ضربه اقتصادی نهایی را به ایران ورشکسته وارد کند. آمریکا در حال فشار آوردن به تمام کشورهایی است که هنوز با ایران تجارت می‌کنند تا روابط خود را به طور کامل قطع کنند.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9594
+
+<div align="center"><a href="files/post_9594_@Tasiyanc ⚡ 01.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ⚡ 01.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9593
 
@@ -282,29 +312,6 @@ sa2
 
 🚨 آموزش فعال سازی IPv6 
 ⛓
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9565
-
-<div align="center"><img src="files/post_9565_tasiyanc_9565.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨نتانیاهو:
-
-جمهوری اسلامی تلاش کرد تا یکی از پسران من (یائیر نتانیاهو) را ترور کند.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9564
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ‌ سرعتی نپسترنت🔐
-سرورهای نامحدود مولتی لوکیشن ⭕️
-
-آموزش اتصال ⛓
 
 💋 @TASIYANC
 </div>

@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/06/03 19:49
+📅 آخرین بروزرسانی: 1405/06/03 20:44
 
 ---
+
+## tasiyanc — post 6243
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطورید چخبرااااا؟
+</div>
+
+## tasiyanc — post 6242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+2سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6241
 
@@ -173,31 +195,5 @@ FAST - MCI💥.npvt
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6221
-
-<div align="center"><video src="files/post_6221_tasiyanc_6221.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6221_tasiyanc_6221.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد CM  
-👑
-
-دانلود  Wg tunnel 
-🕹
-
-آموزش
-⏩
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-nuclear bomb 💥.npvt
 </div>
 

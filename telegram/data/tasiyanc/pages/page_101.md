@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 101
 
-📅 آخرین بروزرسانی: 1405/06/03 19:49
+📅 آخرین بروزرسانی: 1405/06/03 20:44
 
 ---
+
+## tasiyanc — post 6448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+2سرور   سرعتی پرمیوم متد جدید🚀
+
+حجم 300GB - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ Fast 🚀 💥.npvt
+</div>
 
 ## tasiyanc — post 6446
 
@@ -182,17 +207,5 @@ FAST⚡TASIYAN🚀.npvt
 مجتمع پتروشیمی کارون رو زدن
 
 @TasiyanProxy
-</div>
-
-## tasiyanc — post 6421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️
-</div>
-
-## tasiyanc — post 6420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمام کانفیگای ک گذاشتیم با قدرت وصلن 🚀
 </div>
 

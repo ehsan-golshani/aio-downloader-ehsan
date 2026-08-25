@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/06/03 19:49
+📅 آخرین بروزرسانی: 1405/06/03 20:44
 
 ---
+
+## tasiyanc — post 6318
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشناروووووووو
+</div>
+
+## tasiyanc — post 6317
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+4سرور   سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+✔️ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6316
 
@@ -179,30 +199,5 @@ Password : @Tasiyanc  ⏩
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 •𝐅_𝟐𝟐_⚡💣_ᴾʳᵉᵐᶤᵘᵐ_ᶳᵉʳᵛᵉʳᶳ.npvt
-</div>
-
-## tasiyanc — post 6292
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-8سرور پرمیوم  سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6291
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به درخواست شما عزیزان معرفی میکنیم ولی بنده به شخصه از کلاینت های متن باز و مورد اعتماد و شناخته شده
-
-WireGuard • OpenVPN • Xray (VLESS / Reality) • V2Ray • Npv
-استفاده میکنم چون امنیت بسیار بالاتری نسبت به کلاینت و اپ های VPN دارند
 </div>
 
