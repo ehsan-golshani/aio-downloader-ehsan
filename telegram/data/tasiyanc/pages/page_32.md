@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/03 11:11
+📅 آخرین بروزرسانی: 1405/06/03 11:55
 
 ---
+
+## tasiyanc — post 8792
+
+<div align="center"><video src="files/post_8792_tasiyanc_8792.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8792_tasiyanc_8792.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید کاخ سفید با تصاویری از ترامپ و متن:
+
+« کار این جنگ رو یه‌سره کن »
+
+
+⭐ @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8791
 
@@ -221,15 +236,5 @@
 🔗《لینک دانلود》👉
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8765
-
-<div align="center"><img src="files/post_8765_tasiyanc_8765.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نخست‌وزیر نتانیاهو و رئیس‌جمهور ترامپ در کاخ سفید.
-
-@TASIYANc ⭐️
 </div>
 

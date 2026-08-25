@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 117
 
-📅 آخرین بروزرسانی: 1405/06/03 11:11
+📅 آخرین بروزرسانی: 1405/06/03 11:55
 
 ---
+
+## tasiyanc — post 6024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نصب نکنید دوستان
+جدی میپرونه
+</div>
 
 ## tasiyanc — post 6023
 
@@ -147,16 +154,5 @@ VİP 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ریکشن میبینم خندم میگیره🤣
-</div>
-
-## tasiyanc — post 5999
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده 🚀
-
-
-@Tasiyanc ✅
 </div>
 

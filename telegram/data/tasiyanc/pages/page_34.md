@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/06/03 11:11
+📅 آخرین بروزرسانی: 1405/06/03 11:55
 
 ---
+
+## tasiyanc — post 8741
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینم چنل جدیدمون ک بیشتر فیلم و سریال خواهیم گذاشت دوس داشتید برای حمایت جوین بشید دوستون دارم 💖
+https://t.me/TsMoviee
+</div>
 
 ## tasiyanc — post 8740
 
@@ -198,18 +205,6 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8714
-
-<div align="center"><video src="files/post_8714_tasiyanc_8714.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8714_tasiyanc_8714.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴ و ۵ مرداد سالگرد مرگ دو ابر مرد تاریخ رضاشاه کبیر و محمدرضا شاه فقید 🖤
 
 @TASIYANC ✅
 </div>

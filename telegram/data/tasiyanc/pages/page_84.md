@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/06/03 11:11
+📅 آخرین بروزرسانی: 1405/06/03 11:55
 
 ---
+
+## tasiyanc — post 6980
+
+<div align="center"><video src="files/post_6980_tasiyanc_6980.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6980_tasiyanc_6980.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ متد اختصاصی httpCustum میزارم تست کنید
+</div>
 
 ## tasiyanc — post 6979
 
@@ -252,13 +262,5 @@ T.me/Tasiyanc ✅
 ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز June 15
-روز جهانی گل گرفتنه 💐
-@Tasiyanc ✅
 </div>
 

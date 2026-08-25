@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/06/03 11:11
+📅 آخرین بروزرسانی: 1405/06/03 11:55
 
 ---
+
+## tasiyanc — post 7939
+
+<div align="center"><img src="files/post_7939_tasiyanc_7939.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اصفهان:
+
+@Tasiyanc⭐️
+</div>
 
 ## tasiyanc — post 7938
 
@@ -231,14 +241,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دونالد ترامپ 🌟 : در صورتی ک جمهوری اسلامی منو ترور کنه بلافاصله هزاران موشک تا یکسال آماده شلیک هستند
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7904
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندار پاکدشت:
-
-🔻صدای انفجارهایی که چندی پیش در شرق استان تهران شنیده شد، نتیجه یک عملیات کنترل شده برای خنثی سازی مواد منفجره بود.
-@Tasiyanc ☑️
 </div>
 
