@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/03 22:00
+📅 آخرین بروزرسانی: 1405/06/04 00:22
 
 ---
+
+## tasiyanc — post 9255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زمستان تمام شد ، بهار تمام شد ، تابستان داره تموم میشه ، اما سوز آن دِی هرگز تمام شد
+</div>
+
+## tasiyanc — post 9254
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این همه جوان به خاطر شما رفتن کشته شدن خایه نداشتید بگید جاوید شاه؟
+</div>
 
 ## tasiyanc — post 9253
 
@@ -250,21 +262,5 @@ r22
 امروز 13 آگوست روز جهانی سگ های خیابونیه 😁
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
-دانلود Dark Tunnel  🕹
-
-
-آموزش اتصال به سرور دارک⚡️
-</div>
-
-## tasiyanc — post 9224
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨معاون اقتصادی وزارت  این نرخ (بنزین ۸۷تومنی) بعد از ۱۰ روز در تمامی نقاط کشور اجرا خواهد شد. @Tasiyanc
 </div>
 

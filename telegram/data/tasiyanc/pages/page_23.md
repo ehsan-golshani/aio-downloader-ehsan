@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/03 22:00
+📅 آخرین بروزرسانی: 1405/06/04 00:22
 
 ---
+
+## tasiyanc — post 9054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم🖤
+
+کانفیگ اختصاصی نامحدود HttpCustum 📱
+
+سرور سرعتی مناسب تمام نت‌ها ⚡️
+
+آموزش اتصال ✅
+
+دانلود  📱android🕹  iOS
+
+اتصال امن برای همه🏠
+
+💙@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9049
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+سرور  سرعتی پرمیوم ⚡️
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید⛓
+
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9048
 
@@ -205,51 +245,5 @@
 
 
 ⚡️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-━━━ 🖤 کانفیگ اختصاصی نامحدود ⚡️━━━
-
-vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?security=reality&encryption=none&pbk=dNfk0sOCzOlmE61B7ur7YzU2i08RqXIBcGVBA2Ne1Ck&headerType=none&fp=chrome&spx=%2F&type=tcp&sni=www.oracle.com&sid=7548bc#%E2%9A%A1%EF%B8%8FT.me%2F%2FTasiyanc%E2%9A%A1%EF%B8%8FSW
-
-vless://0b9bcbc1-b289-4a64-86fa-a5b731b65384@est.vrsvpn.com:443?security=reality&encryption=none&pbk=SJkDT_L0eziQR2afDGrkN7-uRxjYu6bZxIGXlKeCvX4&headerType=none&fp=qq&type=tcp&flow=xtls-rprx-vision&sni=web.max.ru&sid=15aa18f971da1f81#%40Tasiyanc%20fast
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@108.162.198.5:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%F0%9F%92%96%2001
-
-vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiJAUHJveHlWUE4xMSIsImlkIjoiMDQ2MjFiYWUtYWIzNi0xMWVjLWI5MDktMDI0MmFjMTIwMDAyIiwiaW5zZWN1cmUiOiIwIiwibmV0IjoidGNwIiwicGF0aCI6Ii8gQFByb3h5VlBOMTEiLCJwY3MiOiIiLCJwb3J0IjoiMjIzMjQiLCJwcyI6IkBUYXNpeWFuYyDwn4+d77iP4pqh8J+HrPCfh6ciLCJzY3kiOiJhdXRvIiwic25pIjoiIiwidGxzIjoiIiwidHlwZSI6Im5vbmUiLCJ2IjoiMiIsInZjbiI6IiJ9
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@108.162.198.5:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc
-
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpFQkRSbzlUSHg0Q3FpRlU3aDVnZm92NzZvTnd6WlVSQWgwWndiV2pCS2RkdFVodno@103.120.178.193:31348#%40Tasiyanc%20%F0%9F%87%AE%F0%9F%87%B3
-
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.64:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20Speed%2001
-
-ANDROID 🕹
-V2box 🔐 Npv tunnel 🔐 V2rayNG 🔐
-
-iOS 📱
-V2BOX 🔐 Npv tunnel 🔐
-
-Join As @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•تقدیم به مردم سرزمینم 🖤
-
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 📍
-
-•آموزش اتصال ⚡️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 

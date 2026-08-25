@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/06/03 22:00
+📅 آخرین بروزرسانی: 1405/06/04 00:22
 
 ---
+
+## tasiyanc — post 8366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌دلار ۱۹۵رو شکست
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8365
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌انفجار در بندر عباس و بیرجند
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8364
 
@@ -215,23 +231,5 @@ Multi Location ⚡ Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
-</div>
-
-## tasiyanc — post 8324
-
-<div align="center"><img src="files/post_8324_tasiyanc_8324.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاوت‌های جنسی در دنیای جانوران 🦋
-
-پروکسی | پروکسی | پروکسی | پروکسی
-
-@Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت همراه اول/ایرانسل تو شهر شما چطوریه؟
 </div>
 

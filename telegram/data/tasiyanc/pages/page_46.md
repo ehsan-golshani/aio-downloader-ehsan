@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/06/03 22:00
+📅 آخرین بروزرسانی: 1405/06/04 00:22
 
 ---
+
+## tasiyanc — post 8392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون 📱
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8391
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر
+</div>
 
 ## tasiyanc — post 8390
 
@@ -169,22 +196,6 @@ IP
 ❌انفجار در سنندج
 
 ۴انفجار در بندر عباس
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌دلار ۱۹۵رو شکست
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8365
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌انفجار در بندر عباس و بیرجند
 
 @Tasiyanc✅
 </div>

@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/06/03 22:00
+📅 آخرین بروزرسانی: 1405/06/04 00:22
 
 ---
+
+## tasiyanc — post 8172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اونای ک لف دادن وقتی قطع شد نت نمیزارم تو چنلم قدمتون بزارید
+</div>
+
+## tasiyanc — post 8171
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چند پل دیگه رو داره میزنه که به بندرعباس راه دارن
+وقتی این پل ها زده بشه هیچ چیزی نمیتونه بره بندرعباس
+طبق چیزایی که داره اتفاق میوفته احتمالاً آمریکا می‌خواد نیرو زمینی پیاده کنه!
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8170
 
@@ -198,28 +214,5 @@
 اگر لازم بدونم نیروی زمینی به ایران اعزام خواهم کرد هنوز وضعیت رو نهایی نکردیم
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺امروز July 16، روز جهانی ماره 🌟
-
-+ این روزو به آدمای سمی زندگیت تبریک بگو
-
-@Tasiyanc ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8130
-
-<div align="center"><video src="files/post_8130_tasiyanc_8130.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8130_tasiyanc_8130.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساحل فیتوپلانکتون ، چابهار زیبا 🌴🌊
-
-@Tasiyanc 
-⭐️| مرجع کانفیگ
 </div>
 

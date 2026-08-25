@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/06/03 22:00
+📅 آخرین بروزرسانی: 1405/06/04 00:22
 
 ---
+
+## tasiyanc — post 7796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7795
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووووری
+پیت هگست وزیر جنگ آمریکا بخاطر جنگ با ایران سفرش به اسرائیل را لغو کرد
+</div>
 
 ## tasiyanc — post 7794
 
@@ -150,24 +180,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بنظرتون جنگ تمام عیار میشه اسراییل ورود می‌کنه؟ یا آتش بس میشه تا صبح
-</div>
-
-## tasiyanc — post 7750
-
-<div align="center"><img src="files/post_7750_tasiyanc_7750.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت کارمندای نت‌بلاکس الان:
-</div>
-
-## tasiyanc — post 7749
-
-<div align="center"><img src="files/post_7749_tasiyanc_7749.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارسالی از ممبرا
-
-بندر عباس هم اکنون
-@Tasiyanc
 </div>
 

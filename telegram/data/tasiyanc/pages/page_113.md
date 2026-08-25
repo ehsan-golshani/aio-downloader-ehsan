@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/06/03 22:00
+📅 آخرین بروزرسانی: 1405/06/04 00:22
 
 ---
+
+## tasiyanc — post 6147
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Premium 💙BLUE.npvt
+</div>
+
+## tasiyanc — post 6146
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید 📱
+
+3سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6145
 
@@ -198,17 +220,5 @@ Fast2⚡@Tasiyanc.conf
 
 🦁  @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند سرورNPV میزارم بعدش وایر
-</div>
-
-## tasiyanc — post 6121
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از وایرگارد راضی بودید ریکشن بزنید کانفیگ بعدیشو تا دقایقی دیگه آماده کنم بفرستم
 </div>
 
