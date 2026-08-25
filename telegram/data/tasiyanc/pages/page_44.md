@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/06/03 14:25
+📅 آخرین بروزرسانی: 1405/06/03 18:09
 
 ---
+
+## tasiyanc — post 8438
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قرممممممز آرژانتین ۱۰ نفره شد
+</div>
+
+## tasiyanc — post 8437
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+5سرور سرعتی پرمیوم دارای ۳ لوکیشن  ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8436
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش انفجار از اصفهان ، قم ، اراک
+
+تایید یا تکذیب نمیشه
+</div>
+
+## tasiyanc — post 8435
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مقابل خدمات رایگانی ک میدم انتظار حمایت دارم ، چون منم می‌تونستم مثل خیلیا فروش بزارم
+</div>
 
 ## tasiyanc — post 8434
 
@@ -107,42 +151,5 @@
 «اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.»
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8415
-
-<div align="center"><video src="files/post_8415_tasiyanc_8415.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8415_tasiyanc_8415.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴🚨هدف قرار گرفتن مستقیم یک نیروگاه برق در کویت
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشاهده نود آنتونلا زن مسی ✨
-</div>
-
-## tasiyanc — post 8412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال جام‌جهانی 2026 🌍 اسپانیا 🇪🇸  آرژانتین 🇦🇷 ⏰‌ ساعت 22.30 @TasiyanC ✅
-</div>
-
-## tasiyanc — post 8411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فینال جام‌جهانی 2026 🌍
-
-اسپانیا 🇪🇸  آرژانتین 🇦🇷
-
-⏰‌ ساعت 22.30
-
-
-@TasiyanC ✅
 </div>
 

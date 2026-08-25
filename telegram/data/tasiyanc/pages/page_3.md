@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/03 14:25
+📅 آخرین بروزرسانی: 1405/06/03 18:09
 
 ---
+
+## tasiyanc — post 9540
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درک نمیکنم چطوری برخی‌کانالها دارن مطالب طنز میزارن
+</div>
+
+## tasiyanc — post 9539
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنظر میاد دلمون بزودی به همین دلار ۲۰۰ تومنی ام تنگ میشه
+</div>
+
+## tasiyanc — post 9538
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام بر دلار ۲۰۰ تومن ، سلام بر بدبخت ایرانی
+</div>
+
+## tasiyanc — post 9537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ‌ سرعتی نپسترنت 🔐
+
+سرورهای نامحدود مولتی لوکیشن ⭕️
+
+
+آموزش اتصال ⛓
+
+🔴 کانفیگ‌های قدیمی پاک کنید یا یکجا کلیردیتا بزنید جدیدارو بریزید ⭕️
+
+
+اتصال پر سرعت برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9536
 
@@ -295,49 +332,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9517
-
-<div align="center"><img src="files/post_9517_tasiyanc_9517.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 آخرین آپدیت قیمت گوشی های پرطرفدار .
-
-+ قیمت برخی مدل‌ها بدون ریجستر حساب شده ، منابع رو چک کنید تو بنر زدم
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9516
-
-<div align="center"><video src="files/post_9516_tasiyanc_9516.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9516_tasiyanc_9516.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📺 10 تا از بهترین فیلم های ترسناک 2026 اگه به ژانر وحشت علاقه دارید ببینید !
-
-+سایت پیشنهادی برای تماشا و دانلود بدون سانسور
-
-🔗https://www.novigrad.top
-
-
-🩸 @Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 9515
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بسیجی‌ها تو سواحل میانکاله مازندران زنجیره انسانی تشکیل دادن تا جلوی بی‌حجابی در کنار ساحل رو بگیرن:
-
-@Tasiyanc 
-💋
-</div>
-
-## tasiyanc — post 9514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Mumbai 🇮🇳.ovpn
 </div>
 

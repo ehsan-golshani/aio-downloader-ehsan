@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/06/03 16:46
+📅 آخرین بروزرسانی: 1405/06/03 18:07
 
 ---
+
+## ProxyMTProto — post 48901
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gate.klyuch1k.org
+Port: 443
+Secret: eeae941a76ec4acf04faabaf8a24571080676174652e6b6c79756368316b2e6f7267
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48900
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48899
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: aerie.sosun4ik.top
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48898
 
@@ -154,33 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
 Server: 51.250.86.244
 Port: 443
 Secret: eeaa8f2cfd941607525db63d42dcc1971d617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48881
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ethereal.arixo.shop
-Port: 443
-Secret: ee5f8b31d631d413f83f1f6e8da233f69c657468657265616c2e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48880
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: net.pelmeshka.top
-Port: 443
-Secret: eefe12a66db0212791c3ba09df4f6123806e65742e70656c6d6573686b612e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48879
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,69 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/03 14:25
+📅 آخرین بروزرسانی: 1405/06/03 18:09
 
 ---
+
+## tasiyanc — post 9192
+
+<div align="center"><video src="files/post_9192_tasiyanc_9192.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9192_tasiyanc_9192.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙂بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+🔔کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+➕کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
+a20
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+FaoDjhEVG34wMWFk
+https://t.me/+FaoDjhEVG34wMWFk
+</div>
+
+## tasiyanc — post 9185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸ترامپ:
+
+ایرانی‌ها با ما بازی می‌کنند، در اتاق‌های جلسات موافقت می‌کنند و در رسانه‌ها رد می‌کنند.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
 
 ## tasiyanc — post 9182
 
@@ -294,87 +355,5 @@ Prompt 🤖🤖
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9162
-
-<div align="center"><img src="files/post_9162_tasiyanc_9162.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی کاپلی 🆕
-
-"Midnight Street Romance❤️"
-
-Prompt 🤖🤖
-
-A candid, natural night photograph of a young, stylish Middle Eastern couple embracing in a deeply affectionate hug on a city street in Tehran. The man, with a short, well-kept dark beard and a modern fade haircut, wears a black casual bomber jacket and is kissing the woman gently on her forehead. The woman, with long, dark straight hair and a gentle, smiling expression with her eyes closed, is wearing a black leather moto jacket. Her hands are wrapped around his back, and his hands are wrapped around hers. They are positioned in the foreground, filling the frame in a tight embrace. The background is a typical Tehran street at night, with concrete-faced residential buildings, lit windows, a line of parked classic and modern cars (like a Peugeot 206 and older models), and some tall coniferous and plane trees under a dark night sky. The street lighting is ambient and natural, giving the image a low-light, realistic, almost phone-camera documentary feel with a slight grain, not overly polished. The depth of field is shallow, keeping the couple sharp while the background elements blur organically. High-resolution photo. (optional: add "no text" to avoid UI elements)
-
-﻿
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9161
-
-<div align="center"><video src="files/post_9161_tasiyanc_9161.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9161_tasiyanc_9161.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی 
-🆕
-
-"Dark Luxury Noir Suit Portrait"
-
-Prompt 
-🤖🤖
-
-A high-contrast black and white studio portrait of a handsome Middle Eastern man with styled dark hair and a neat, full beard. He is wearing a tailored dark suit, crisp white dress shirt, and a sleek dark tie. He poses in a three-quarter view, looking thoughtfully away from the camera. One hand gently rests over the other, showcasing a luxury metallic wristwatch. Moody low-key studio lighting, dark seamless background, ultra-realistic, 8k resolution, cinematic atmosphere.
-
-
-آموزش استفاده 
-👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙄 همه بت باز های حرفه ای دنبال 
-🔞 شکار این بونوس ها هستن
-✅لیگ های معتبر اروپایی شروع شده بهترین فرصت برای جبران ضرر های جام جهانی 
-💯
-</div>
-
-## tasiyanc — post 9159
-
-<div align="center"><video src="files/post_9159_tasiyanc_9159.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9159_tasiyanc_9159.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤔 شروع رسمی لیگ های اروپا 
-❄️
-
-🆕 بهترین فرصت برای جبران ضرر های جام جهانی با جشنواره رویایی مرداد ماه
-
-
-⚠️هر افزایش شارژ مساوی 
-2️⃣1️⃣
-🔣 شارژ بیشتر بدون محدودیت☄️
-
-به همراه 
-🤩 
-🤩🔤 کش بک باخت همه روزه:
-
-🌐 betinja.bet
-
-🌐 betinja.bet
-کانال بونوس های رایگان g19
-@betinjabet
 </div>
 

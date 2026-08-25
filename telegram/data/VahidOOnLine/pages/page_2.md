@@ -1,8 +1,147 @@
 # آرشیو کانال VahidOOnLine - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/03 16:45
+📅 آخرین بروزرسانی: 1405/06/03 18:07
 
 ---
+
+## VahidOOnLine — post 256766
+
+<div align="center"><video src="files/post_256766_VahidOOnLine_256766.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256766_VahidOOnLine_256766.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در حالی که جلسات مجلس شورای اسلامی همچنان از بیم حملات جدید آمریکا و اسرائیل با حضور محدود اعضای هیات رئیسه و عمدتا «از راه دور» برگزار می‌شود، هفت عضو «حضوری» جلسه علنی مجلس روز سه‌شنبه سوم شهریور و در واکنش به اجرای «عملیات طرد اقتصادی» آمریکا علیه جمهوری اسلامی ایران، شعار مرگ بر آمریکا و مرگ بر اسرائیل سر دادند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256765
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک ربات انسان‌نما در جریان مسابقات جهانی ربات‌های انسان‌نما در پکن، هنگام تلاش برای بلند کردن وزنه تعادل خود را از دست داد و با سقوط به سمت جلو، به میز داوران برخورد کرد.
+این حادثه روز دوشنبه دوم شهریورماه در جریان فینال مسابقات وزنه‌برداری این رقابت‌ها رخ داد. ربات ابتدا برای برداشتن وزنه خم شد و پس از بلند کردن آن، در حالی که به نظر می‌رسید در حفظ تعادل با مشکل مواجه شده، وزنه را رها کرد و به سمت میز داوران سقوط کرد.
+پس از سقوط، افراد حاضر در محل به سرعت به سمت ربات رفتند و آن را از زمین بلند و روی برانکارد منتقل کردند.
+دومین دوره بازی‌های جهانی ربات‌های انسان‌نما از روز شنبه ٣١ مرداد در پکن آغاز شده و به مدت پنج روز ادامه دارد. این رقابت‌ها که در ابتدا بیشتر جنبه نمایشی و دانشگاهی داشت، اکنون به یکی از رویدادهای مهم چین برای نمایش توانایی‌های ربات‌های انسان‌نما تبدیل شده است، رویدادی که علاوه بر رقابت میان تیم‌های دانشگاهی و سازندگان ربات، فرصتی برای شرکت‌های تجاری است تا قابلیت‌های محصولات خود را در شرایط واقعی به نمایش بگذارند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256764
+
+<div align="center"><img src="files/post_256764_VahidOOnLine_256764.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احمد اردستانی، عضو کمیسیون امنیت ملی و سیاست خارجی مجلس، گفت مردم ایران از تبعیض، رشوه و نقش آقازاده‌ها ناراضی‌اند، اما به گفته او، همچنان خواهان ادامه کار نظام جمهوری اسلامی هستند.
+
+اردستانی گفت: «مردم از تبعیض می‌رنجند، مردم ایران از رشوه می‌رنجند، از اینکه آقازاده‌ها کار را به دست گرفته‌اند، ناراحت‌اند. این مباحث وجود دارد، ولی با این حال هنوز مردم ایران دوست دارند که این نظام سر کار باشد.»
+
+او همچنین درباره کارزار اقتصادی آمریکا علیه جمهوری اسلامی گفت و با اشاره به «روز عملیات بزرگ اقتصادی» افزود برداشت او از این نام‌گذاری این است که آمریکا قصد دارد با افزایش فشار اقتصادی، مردم ایران را از جمهوری اسلامی جدا کند تا در صورت حمله دوباره، زمینه برای سرنگونی حکومت فراهم شود.
+
+او این تصور را «تقریبا توهم» خواند و گفت: «هم دولت از مردم ایران حمایت می‌کند و هم مردم از دولتشان حمایت می‌کنند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256763
+
+<div align="center"><img src="files/post_256763_VahidOOnLine_256763.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، بار دیگر با تاکید بر «فروپاشی» جمهوری اسلامی، وضعیت ایران را «بحران انسانی در ابعادی عظیم» توصیف کرد و خواستار توقف فوری آن شد. او گفت جمهوری اسلامی معترضان را حتی زمانی که در حال اعتراض نیستند، می‌کشد.
+
+ترامپ در تروت سوشال نوشت: «جمهوری اسلامی در حال فروپاشی حقوق بخش‌های بزرگی از نیروهای نظامی خود را پرداخت نمی‌کند و هم‌زمان معترضان را، حتی زمانی که در حال اعتراض نیستند، در ابعادی بی‌سابقه می‌کشد.»
+
+رییس‌جمهوری آمریکا افزود: «این یک بحران انسانی در ابعادی عظیم است و باید همین حالا متوقف شود.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256762
+
+<div align="center"><img src="files/post_256762_VahidOOnLine_256762.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک منبع آگاه به ایران‌اینترنشنال گفت بیش از ۲۰ مامور امنیتی به‌طور هم‌زمان به سه منزل متعلق به امین طبیانی‌فرد، بهاریه عسکری‌نسب و نیما طبیانی‌فرد، از اعضای یک خانواده بهائی در اصفهان یورش بردند و پس از تفتیش گسترده، شمار زیادی از وسایل شخصی و خانوادگی آنان را ضبط کردند.
+
+این منبع گفت یورش ماموران لباس‌شخصی دوم شهریور با ارائه حکم قضایی انجام شد.
+
+عسکری‌نسب، مادر امین طبیانی‌فرد، در واحدی جداگانه در همان ساختمان محل سکونت فرزندش زندگی می‌کند و منزل نیما طبیانی‌فرد، فرزند امین طبیانی‌فرد، در محله‌ای دیگر از اصفهان قرار دارد.
+
+ماموران همچنین کارگاه سازسازی این خانواده را که در ساختمان محل سکونت امین طبیانی‌فرد قرار دارد، بازرسی کردند و تمامی ابزارها، تجهیزات و دستگاه‌های تخصصی ساخت ساز و تعدادی ساز دست‌ساز ارزشمند را ضبط کردند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256761
+
+<div align="center"><video src="files/post_256761_VahidOOnLine_256761.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256761_VahidOOnLine_256761.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال پیام صوتی به ایران‌اینترنشنال می‌گوید داروهای شرکت «سینادارو» تا چند برابر افزایش قیمت داشته است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256760
+
+<div align="center"><video src="files/post_256760_VahidOOnLine_256760.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256760_VahidOOnLine_256760.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«این وضعیت پمپ‌ بنزین‌هاست»
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256759
+
+<div align="center"><video src="files/post_256759_VahidOOnLine_256759.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256759_VahidOOnLine_256759.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشگر: «قیمت‌ها رو شما ببینید»
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256758
+
+<div align="center"><video src="files/post_256758_VahidOOnLine_256758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256758_VahidOOnLine_256758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشگر: «دریاچه خزر در مسجد سلیمان»
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256757
+
+<div align="center"><video src="files/post_256757_VahidOOnLine_256757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256757_VahidOOnLine_256757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صف بنزین در اتوبان صدر تهران
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256756
 
@@ -137,148 +276,6 @@ IranintlTV
 
 فرانسه، همچون دیگر کشورهای اروپایی، پس از یک دوره طولانی و بی‌سابقه گرما به استقبال پاییز می‌رود.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256737
-
-<div align="center"><video src="files/post_256737_VahidOOnLine_256737.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256737_VahidOOnLine_256737.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال سکه یک یورویی را در برابر اسکناس دو میلیون ریالی نشان می‌دهد و با طعنه می‌گوید: «این هم دستاورد رژیم جمهوری اسلامی بعد از سال‌ها حکومت.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256736
-
-<div align="center"><img src="files/post_256736_VahidOOnLine_256736.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معاون امور دانشجویی دانشگاه صنعتی شریف (آریامهر) روز سه‌شنبه سوم شهریورماه اعلام کرد  برای۶ تن از دانشجویان این دانشگاه به‌‌جرم مشارکت در اعتراضات اسفندماه سال گذشته، حکم اخراج صادر شده است.
-
-به گزارش خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، این مقام وزارت علوم گفت: «۲۳۶ دانشجو به شورای انضباطی معرفی شدند که برای ۱۱۵ نفر، به‌دلیل وجود مستندات کافی پرونده تشکیل شد.»
-
-فعالیت نیمسال دوم تحصیلی دانشگاه‌های ایران سال گذشته و پس از سرکوب خونین انقلاب ملی ایرانیان در ۱۸ و ۱۹ دی‌ماه متوقف شد. پس از بازگشایی دانشگاه‌ها در هفته اول اسفندماه، تجمعات گسترده‌ای در دانشگاه‌ها علیه حکومت و به‌خصوص شخص علی خامنه‌ای، رهبر پیشین جمهوری اسلامی برگزار شد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256735
-
-<div align="center"><img src="files/post_256735_VahidOOnLine_256735.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معاون امور دانشجویی دانشگاه صنعتی شریف (آریامهر) روز سه‌شنبه سوم شهریورماه اعلام کرد  برای۶ تن از دانشجویان این دانشگاه به‌‌جرم مشارکت در اعتراضات اسفندماه سال گذشته، حکم اخراج صادر شده است.
-
-به گزارش خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، این مقام وزارت علوم گفت: «۲۳۶ دانشجو به شورای انضباطی معرفی شدند که برای ۱۱۵ نفر، به‌دلیل وجود مستندات کافی پرونده تشکیل شد.»
-
-فعالیت نیمسال دوم تحصیلی دانشگاه‌های ایران سال گذشته و پس از سرکوب خونین انقلاب ملی ایرانیان در ۱۸ و ۱۹ دی‌ماه متوقف شد. پس از بازگشایی دانشگاه‌ها در هفته اول اسفندماه، تجمعات گسترده‌ای در دانشگاه‌ها علیه حکومت و به‌خصوص شخص علی خامنه‌ای، رهبر پیشین جمهوری اسلامی برگزار شد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256734
-
-<div align="center"><video src="files/post_256734_VahidOOnLine_256734.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256734_VahidOOnLine_256734.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید ۴۵ دقیقه در صف پمپ‌بنزین بوده اما قبل از آنکه نوبتش شود، جایگاه تعطیل کرده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256733
-
-<div align="center"><img src="files/post_256733_VahidOOnLine_256733.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جعفر پورکبگانی، عضو کمیسیون قضایی مجلس، سه‌شنبه سوم شهریور در گفت‌وگو با خبرگزاری خانه ملت اعلام کرد آمریکا در تلاش است با فشارهای اقتصادی، زمینه‌ساز بازگشت به تقابل نظامی شود.
-
-پورکبگانی گفت: «آمریکا تاکنون تمامی ابزارهای اقتصادی برای تسلیم کردن ملت ایران را به کار گرفته، اما توفیقی حاصل نکرده است و در آینده نیز موفق نخواهد بود.»
-
-عضو کمیسیون قضایی مجلس افزود تنها راه ایستادگی در برابر «زورگویان»، اتکا به توان بازدارنده خود است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256732
-
-<div align="center"><img src="files/post_256732_VahidOOnLine_256732.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سید مهدی طباطبایی، معاون ارتباطات و اطلاع رسانی دفتر مسعود پزشکیان، روز سه‌شنبه سوم شهریورماه با انتشار پیامی در اکس نوشت که سفر عاصم منیر به تهران، «دستاوردهای دیپلماتیک بسیار ارزشمندی» داشته است.
-
-این مقام هیات دولت جمهوری اسلامی در این پیام نوشت: «برخلاف برخی گمانه‌زنی‌های نادرست رسانه‌ای، سفر فیلد مارشال عاصم منیر فرمانده ارتش کشور دوست پاکستان به ایران بسیار ثمربخش و واجد دستاوردهای دیپلماتیک بسیار ارزشمندی بود که نتایج آن به‌زودی آشکار خواهد شد.»
-
-ارتش پاکستان و محسن نقوی، وزیر کشور پاکستان پیش از این اعلام کرده بودند که در جریان مذاکرات با مسعود پزشکیان «پیشرفت‌های بزرگی» برای بازگشایی تنگه هرمز و پایان درگیری حاصل شده است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256731
-
-<div align="center"><img src="files/post_256731_VahidOOnLine_256731.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در ادامه روند نزولی ارزش پول ملی در ایران، قیمت دلار آمریکا سه‌شنبه سوم شهریور به ۲۰۵ هزار تومان رسید. همزمان پوند بریتانیا از ۲۷۹ هزار تومان عبور کرد و یورو نیز به مرز ۲۳۸ هزار تومان رسید. قیمت هر سکه طلای طرح جدید، موسوم به «امامی» نیز از ۲۲۳ میلیون تومان فراتر رفت.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256730
-
-<div align="center"><img src="files/post_256730_VahidOOnLine_256730.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کم‌تر از یک روز پس از آغاز عملیات انزوای اقتصادی ایران، قیمت دلار در بازار آزاد تهران با بیش از دو هزار تومان افزایش به ۲۰۵ هزار و ۳۰۰ تومان رسید.
-
-افزایش نرخ ارز و سقوط پول ملی ایران در حالی ادامه دارد که عبدالناصر همتی، رئیس بانک مرکزی روز گذشته و پیش از اعلام تحریم‌های جدید گفته بود  مجازات‌های جدید تاثیری نخواهند داشت و قیمت دلار در روزهای آینده کاهش خواهد یافت.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256729
-
-<div align="center"><img src="files/post_256729_VahidOOnLine_256729.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت خزانه‌داری آمریکا هشدار داد شرکت‌های کشتیرانی و دریانوردان حتی در صورت پاسخ دادن به درخواست اطلاعات از سوی برخی نهادهای جمهوری اسلامی مرتبط با تنگه هرمز، ممکن است با تحریم یا مجازات‌های آمریکا روبه‌رو شوند.
-
-دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا، اوفک، اعلام کرد این هشدار فقط به پرداخت پول به نهادهای ایرانی محدود نمی‌شود و ارائه اطلاعات به آنها، حتی بدون انجام هیچ پرداختی، نیز می‌تواند برای شرکت‌ها و دریانوردان خطر تحریم یا مجازات به همراه داشته باشد.
-
-در این هشدار از سه نهاد با نام‌های «اداره تنگه خلیج فارس»، «شرکت بیمه دریایی خلیج فارس» و «اداره خدمات دریایی هرمز سیف» نام برده شده است.
-
-اوفک پیش‌تر نیز هشدار داده بود شرکت‌های کشتیرانی که برای عبور از تنگه هرمز به ایران عوارض پرداخت کنند، ممکن است تحریم‌های آمریکا را نقض کنند.
-
-هشدار جدید هم‌زمان با تشدید کارزار فشار اقتصادی واشینگتن علیه جمهوری اسلامی صادر شده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256728
-
-<div align="center"><video src="files/post_256728_VahidOOnLine_256728.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256728_VahidOOnLine_256728.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید شامگاه دوشنبه دوم شهریور برق کل شهر گلبهار را در استان خراسان رضوی قطع کردند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

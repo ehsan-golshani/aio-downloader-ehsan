@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/03 14:25
+📅 آخرین بروزرسانی: 1405/06/03 18:09
 
 ---
+
+## tasiyanc — post 9350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاوضه امیر با دسته بیل
+</div>
+
+## tasiyanc — post 9349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاوضه امیر با دسته بیل
+</div>
+
+## tasiyanc — post 9348
+
+<div align="center"><img src="files/post_9348_tasiyanc_9348.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جیسون استاتهام ستاره هالیوود : من فقط می‌خوام کار کنم ، پول دربیارم ، با آدمهای خوب غذا بخورم و هر روز عاشق ؛ یک زن باشم
+
+@Tasiyanc 🕒
+</div>
+
+## tasiyanc — post 9347
+
+<div align="center"><video src="files/post_9347_tasiyanc_9347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9347_tasiyanc_9347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کری های امیر علی اکبری بوکسور ایرانی واسه علیخان واخائف که تو ثانیه های اول ناك اوت شد 😂
+علیخان واخائف قهرمان کمربند سنگین‌وزن ACA در چند ثانیه اول امیرعلی اکبری رو در هم کوبید
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9346
 
@@ -217,63 +252,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دختر توپُر & اسکینی ؟ پسر توپُر & سیکس پک ؟ کامنت
-</div>
-
-## tasiyanc — post 9328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختر توپُر & اسکینی ؟
-
-پسر توپُر & سیکس پک ؟
-
-کامنت
-</div>
-
-## tasiyanc — post 9323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد 😎
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9321
-
-<div align="center"><img src="files/post_9321_tasiyanc_9321.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید نوید محمدزاده با پرچم پِلستین
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9319
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برا دوستانی ک همراه اول (اختلال) دارن
-
-ساب ۵۰ گیگی - ارسالی از Parisa
-
-https://sub.connecti24.info/roKRodKdpbqkdXXk
-
-
-ساب رو تو هاپ ، ویتوباکس ، ویتوری بزنید
-
-@Tasiyanc ⭐️
 </div>
 

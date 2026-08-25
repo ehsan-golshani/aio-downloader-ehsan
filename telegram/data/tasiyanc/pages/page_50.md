@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/06/03 14:25
+📅 آخرین بروزرسانی: 1405/06/03 18:09
 
 ---
+
+## tasiyanc — post 8270
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 انفجار مهیب در قشم
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8268
+
+<div align="center"><img src="files/post_8268_tasiyanc_8268.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 وضعیت راه آهن بندرعباس پس از حمله ارتش آمریکا
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8267
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرگزاری تسنیم: هم اکنون حمله موشکی سپاه به یک کشتی تجاری در تنگه هرمز
+
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8266
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ⭕️ سنتکام: امروز ( به وقت آمریکا ) سنگین‌ترین حمله از ابتدای جنگ به جمهوری اسلامی وارد خواهد شد
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8265
 
@@ -164,61 +201,5 @@
 
 @Tasiyanc
 ✅
-</div>
-
-## tasiyanc — post 8239
-
-<div align="center"><video src="files/post_8239_tasiyanc_8239.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8239_tasiyanc_8239.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که از یکی از سرباز های تیپ 388 بمپور ایرانشهر به شدت وایرال شده که داره آهنگ میخونه 💔
-
-@Tasiyanc ✅| بانك کانفیگ رایگان
-</div>
-
-## tasiyanc — post 8236
-
-<div align="center"><video src="files/post_8236_tasiyanc_8236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8236_tasiyanc_8236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 در حملات صبح امروز آمریکا به چابهار، برج ۸۰ متری کنترل دریایی این شهر بطور کامل فرو ریخت
-
-
-
-@Tasiyanc ✅| بانك کانفیگ رایگان
-</div>
-
-## tasiyanc — post 8235
-
-<div align="center"><img src="files/post_8235_tasiyanc_8235.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی ۲۴ ساعت اخیر، سرچِ لغو عضویت جانفدا افزایش چند هزار درصدی داشته و به سرچ اول و ترند گوگل تبدیل شده!
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور 📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ تست شده 🔸
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون 📱
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc 💠
 </div>
 
