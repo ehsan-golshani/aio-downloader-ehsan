@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/06/03 01:33
+📅 آخرین بروزرسانی: 1405/06/03 11:11
 
 ---
+
+## tasiyanc — post 8229
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هواپیمای عراقچی در حال خروج از ایران
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8228
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨لحظاتی پیش حمله به پایگاه هوایی و دریایی بوشهر
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8227
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم‌اکنون➖جنوب ایران➖هنگامه بمباران بی‌وقفه
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8226
 
@@ -153,27 +177,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سپاه جون دارن جنوب میزنن خب؟چرا گیر دادی ب کردستان عراق داری اشتباهی میزنی ها😹
-</div>
-
-## tasiyanc — post 8207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ آمریکا رفته سراغ پل های ارتباطی بوشهر - تایید نشده
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 حملات موشکی سپاه آغاز شد
-
-@Tasiyanc ⭐️
 </div>
 

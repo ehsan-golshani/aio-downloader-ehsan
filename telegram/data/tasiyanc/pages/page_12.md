@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/03 01:33
+📅 آخرین بروزرسانی: 1405/06/03 11:11
 
 ---
+
+## tasiyanc — post 9311
+
+<div align="center"><video src="files/post_9311_tasiyanc_9311.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9311_tasiyanc_9311.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حملات دیوانه وار اسرائیل به جنوب لبنان
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9310
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز August 15، روز آرامش و ریلکس کردنه.
+
+تو این روز باید استرس رو بریزین دور، و در کمال آرامش، از لحظه به لحظه زندگی، لذت ببرین.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیست افرادی که در پویش جان فدا ثبت‌نام کرده بودن توسط هکرهای اسرائیلی منتشر شد
+تا این لحظه مشخصات 4.7 میلیون نفر با اسامی کامل ، کد ملی ، شماره تلفن ، شغل ، تخصص و محدوده زندگی انتشار یافته است
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9308
 
@@ -241,27 +271,4 @@ g23
 🔥کانال اطلاع رسانی ایران:👇
 https://t.me/+fxq9NcirUag3N2Zk
 </div>
-
-## tasiyanc — post 9287
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-در صورت ارور چند بار بزنید
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اتمام چالش ، ریکشن هرکی بیشتر باشه برندس تا ساعت ۱۵😂❤️
-</div>
-
-## tasiyanc — post 9283
 

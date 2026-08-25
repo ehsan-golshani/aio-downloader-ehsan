@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/06/03 01:33
+📅 آخرین بروزرسانی: 1405/06/03 11:11
 
 ---
+
+## tasiyanc — post 8257
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت تون چطوره؟
+</div>
+
+## tasiyanc — post 8255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+6سرور سرعتی پرمیوم متد جدید ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8252
 
@@ -177,30 +215,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 واقعا مثل کشورم شدم همونطور که همه‌ جای ایران درد و غم داره منم کل بدنم درد و غم داره.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8229
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هواپیمای عراقچی در حال خروج از ایران
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8228
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨لحظاتی پیش حمله به پایگاه هوایی و دریایی بوشهر
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8227
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم‌اکنون➖جنوب ایران➖هنگامه بمباران بی‌وقفه
 
 @Tasiyanc✅
 </div>

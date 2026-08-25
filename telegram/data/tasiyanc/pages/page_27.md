@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/06/03 01:33
+📅 آخرین بروزرسانی: 1405/06/03 11:11
 
 ---
+
+## tasiyanc — post 8934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 گزارش انفجار از سیریك
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود نپسترنت 📱
+
+سرور سرعتی تست شده مولتی لوکیشن 📍
+
+آموزش اتصال ⚡️
+
+اتصال امن برای همه
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 8932
+
+<div align="center"><img src="files/post_8932_tasiyanc_8932.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#کاربردی 🆕
+
+😎 می‌خوای ببینی یه نفر با یه نام کاربری توی چه سایت‌هایی حضور داره؟
+این ابزار با کمک هوش مصنوعی صدها سایت رو می‌گرده و هرجا اون یوزرنیم پیدا بشه، برات لیست می‌کنه.
+کافیه نام کاربری رو وارد کنی؛ بعد از چند دقیقه، نتیجه و ردپای احتمالی اون توی اینترنت بهت نشون داده می‌شه.
+🔹 قابلیت‌ها: • جستجوی اکانت‌ها در شبکه‌های اجتماعی، فروم‌ها، سایت‌های گیم و سرویس‌های مختلف • جمع‌آوری همه نتایج توی یک لیست • اجرا مستقیم داخل مرورگر، بدون نیاز به نصب برنامه • استفاده رایگان از امکانات پایه
+اگه دوست داری ردپای خودت یا حتی یه یوزرنیم خاص رو توی اینترنت بررسی کنی، این ابزار می‌تونه حسابی به دردت بخوره.
+﻿
+
+👉 https://whatsmynameapp.net/
+
+
+👹@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8931
 
@@ -241,40 +283,6 @@ IPv6
 پروکسی | پروکسی | پروکسی
 پروکسی | پروکسی | پروکسی
 پروکسی | پروکسی | پروکسی
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8911
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 ترامپ:
-
-من به خاطر آینده جهان و بقای ج ا ایران موافقت کردم که در ازای احتمال دستیابی سریع به توافق، حمله را لغو کنم.
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ: رهبران قطر، عربستان سعودی و امارات متحده عربی درخواست کردند که حمله به ایران دو یا سه روز به تعویق بیفتد
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8909
-
-<div align="center"><video src="files/post_8909_tasiyanc_8909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8909_tasiyanc_8909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پیت هگست وزیر جنگ آمریکا این ویدئو رو منتشر کرد :
 
 🔱 @Tasiyanc
 </div>

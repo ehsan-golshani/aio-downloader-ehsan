@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/06/03 01:33
+📅 آخرین بروزرسانی: 1405/06/03 11:11
 
 ---
+
+## tasiyanc — post 6979
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ متد اختصاصی httpCustum میزارم تست کنید
+</div>
+
+## tasiyanc — post 6965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 سرور سرعتی NPV 
+🌟
+T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6964
+
+<div align="center"><video src="files/post_6964_tasiyanc_6964.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6964_tasiyanc_6964.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ اختصاصی دارک تانل 
+🌟
+
+حجم نامحدود - سرعتی 
+🚀
+
+تست شده رو تمام نت ها 
+✅
+
+دانلود Dark Tunnel  
+🕹
+
+آموزش اتصال به سرور دارک 
+⏩
+
+T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6963
 
@@ -219,25 +260,5 @@ T.me/Tasiyanc ✅
 امروز June 15
 روز جهانی گل گرفتنه 💐
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتونم بخیر 🥹
-</div>
-
-## tasiyanc — post 6942
-
-<div align="center"><img src="files/post_6942_tasiyanc_6942.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑ساب لینک اختصاصی تاسیان👑 https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt اینو بزنید 🔐🔐 هر ۴ ساعت کانفیگا آپدیت میشن بعد از ۴ ساعت update subscription بزنید تا آپدیت شن @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6940
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Vip SPEED ⚡⚡.npvt
 </div>
 
