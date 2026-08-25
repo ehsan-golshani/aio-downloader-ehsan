@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/06/03 20:44
+📅 آخرین بروزرسانی: 1405/06/03 22:00
 
 ---
+
+## tasiyanc — post 8364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8363
 
@@ -227,15 +233,5 @@ Multi Location ⚡ Fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وضعیت همراه اول/ایرانسل تو شهر شما چطوریه؟
-</div>
-
-## tasiyanc — post 8322
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیک نیوز زیاد شده ، اخبار رو از چنل خودمون دنبال کنین
-( رک بگم حمایت کنین جوین بدین 😂❤️)
-
-@TasiyanProxy
-@TasiyanProxy
 </div>
 

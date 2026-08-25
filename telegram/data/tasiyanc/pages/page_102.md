@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/06/03 20:44
+📅 آخرین بروزرسانی: 1405/06/03 22:00
 
 ---
+
+## tasiyanc — post 6422
+
+<div align="center"><video src="files/post_6422_tasiyanc_6422.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6422_tasiyanc_6422.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوووری فارس :
+مجتمع پتروشیمی کارون رو زدن
+
+@TasiyanProxy
+</div>
 
 ## tasiyanc — post 6421
 
@@ -200,11 +213,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ آسمان ایران کلیر شد
 @Tasiyanc
-</div>
-
-## tasiyanc — post 6398
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند تا کانفیگ خوب آماده میکنم یه کم دیگه
 </div>
 

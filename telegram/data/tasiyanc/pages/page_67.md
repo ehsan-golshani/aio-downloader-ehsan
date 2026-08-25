@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/06/03 20:44
+📅 آخرین بروزرسانی: 1405/06/03 22:00
 
 ---
+
+## tasiyanc — post 7641
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 تا سرور وایرگارد مخصوص گیم و وبگردی تو ربات تاسیان گذاشتیم برید بردارید جوین اجباری فقط برای مجموعه خودمونه تا اذیت نشید
+https://t.me/FreeConfigTsBot?start=facac4538f0c
+</div>
 
 ## tasiyanc — post 7640
 
@@ -160,11 +167,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 @Tasiyanc 
 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 7610
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc _ SuperFast⚡.npvt
 </div>
 

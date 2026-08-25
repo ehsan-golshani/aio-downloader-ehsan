@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/06/03 21:25
+📅 آخرین بروزرسانی: 1405/06/03 21:58
 
 ---
+
+## ProxyMTProto — post 49555
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49554
 
@@ -172,15 +181,6 @@ Secret: ee8a3ea77a695f1a249d693078446a137a6d6564626c6f636b2e666974
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: secure.medhata.org
-Port: 443
-Secret: ee9631908b49893251e56a84c32b9407ca7365637572652e6d6564686174612e6f7267
 @ProxyMTProto
 </div>
 

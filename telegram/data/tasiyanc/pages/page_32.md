@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/03 20:44
+📅 آخرین بروزرسانی: 1405/06/03 22:00
 
 ---
+
+## tasiyanc — post 8807
+
+<div align="center"><img src="files/post_8807_tasiyanc_8807.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبر خوب ، نوید زیادخان قره‌داغی مادرج*ده که دخترارو تو لایو اینستاگرام کتک می‌زد دستگیر شد
+
+« مشاهده ویدیو »
+
+
+⭐ @TASIYANC 
+⭐️
+</div>
 
 ## tasiyanc — post 8806
 
@@ -238,13 +252,5 @@ Multi Location ⚡
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر گلای توی خونه
-</div>
-
-## tasiyanc — post 8784
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ سپاه : ساعاتی پیش سه نفتکش متخلف که بی‌توجه به اخطارهای ما، به حرکت در مسیر ناامن و غیرقانونی ادامه می‌دادند مورد اصابت قرار گرفته و متوقف شدند.
-@Tasiyanc 
-⭐️
 </div>
 

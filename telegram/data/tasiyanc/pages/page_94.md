@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/06/03 20:44
+📅 آخرین بروزرسانی: 1405/06/03 22:00
 
 ---
+
+## tasiyanc — post 6673
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک پست : ترامپ الان اعلام کرد توافق نهایی شده و تمومه @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6672
 
@@ -197,14 +203,6 @@ Fotmob iOS
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ رویترز :
 لشکر 82 هوابرد آمریکا ملقب به لشکر شیطان به زودی جزایر نفتی ایران را تصرف خواهند کرد
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6648
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔩⭕️⭕️ امشب بمباران وحشتناکی در راه است
-
 @Tasiyanc ✅
 </div>
 

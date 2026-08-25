@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/06/03 20:44
+📅 آخرین بروزرسانی: 1405/06/03 22:00
 
 ---
+
+## tasiyanc — post 8322
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیک نیوز زیاد شده ، اخبار رو از چنل خودمون دنبال کنین
+( رک بگم حمایت کنین جوین بدین 😂❤️)
+
+@TasiyanProxy
+@TasiyanProxy
+</div>
 
 ## tasiyanc — post 8321
 
@@ -170,14 +180,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دولت عراق مجوز فعالیت استارلینک تو این کشور رو رسما امضا کرد
 .
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8297
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سپاه خورموج و اهواز مورد هدف موشکی.
 
 @Tasiyanc✅
 </div>

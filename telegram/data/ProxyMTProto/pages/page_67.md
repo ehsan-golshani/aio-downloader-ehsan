@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/06/03 21:25
+📅 آخرین بروزرسانی: 1405/06/03 21:58
 
 ---
+
+## ProxyMTProto — post 49173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gate.klyuch1k.org
+Port: 443
+Secret: eeae941a76ec4acf04faabaf8a24571080676174652e6b6c79756368316b2e6f7267
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49172
 
@@ -172,15 +181,6 @@ Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
 Server: AjaB_Sorati_Dare
 Port: 443
 Secret: BeZaN_RoooSh_Connect
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49153
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s4.postpulse.space
-Port: 443
-Secret: ee4ed06711abba996600b11cd356a7674c6164312e617269786f2e73686f70
 @ProxyMTProto
 </div>
 

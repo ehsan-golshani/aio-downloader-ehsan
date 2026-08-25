@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/06/03 20:44
+📅 آخرین بروزرسانی: 1405/06/03 22:00
 
 ---
+
+## tasiyanc — post 8244
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلاااااااااار 195 😐
+</div>
 
 ## tasiyanc — post 8243
 
@@ -179,14 +185,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وطن عشق من🇮🇷
 هموطن جان من💔
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8222
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⁉️پل ارتباطی جم سیراف رو هم زدن
 
 @Tasiyanc✅
 </div>
