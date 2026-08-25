@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 141
 
-📅 آخرین بروزرسانی: 1405/06/03 08:38
+📅 آخرین بروزرسانی: 1405/06/03 09:21
 
 ---
+
+## ProxyMTProto — post 47661
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: otklyuchi-vpn.nolags.pw
+Port: 443
+Secret: dd5a4411851bef1cf92cc9fe3ed99c72e1
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47660
 
@@ -173,14 +182,5 @@ Server: tproxy.monster
 Port: 2053
 Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47641
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌍 Staying connected to Telegram is getting harder in many regions, our proxies are actively working in Russia, Iran, and Iraq ⚡
-
-Подключайтесь и оставайтесь онлайн
-جوین شید و متصل بمونید 👇
 </div>
 

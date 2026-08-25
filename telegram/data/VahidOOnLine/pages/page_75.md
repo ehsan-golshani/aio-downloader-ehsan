@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/06/03 08:37
+📅 آخرین بروزرسانی: 1405/06/03 09:20
 
 ---
+
+## VahidOOnLine — post 254986
+
+<div align="center"><img src="files/post_254986_VahidOOnLine_254986.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فایننشال تایمز می‌گوید ایران و عمان می‌توانند به‌جای دریافت «عوارض عبور»، بابت خدمات دریایی از کشتی‌های عبوری از تنگه هرمز هزینه بگیرند.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254985
+
+<div align="center"><img src="files/post_254985_VahidOOnLine_254985.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری لبنانی «یونیوز» در گزارشی اختصاصی نوشت جمهوری اسلامی به دولت سوریه هشدار داده است هرگونه اقدام نظامی علیه حزب‌الله لبنان با پاسخ گسترده تهران روبه‌رو خواهد شد.
+
+بر اساس این گزارش، پیام جمهوری اسلامی از طریق ترکیه به دمشق منتقل شده و در آن آمده است در صورت اقدام نظامی سوریه علیه حزب‌الله، بیش از ۱۰۰ نقطه راهبردی در سوریه، از جمله کاخ ریاست‌جمهوری، ممکن است هدف قرار گیرند.
+
+یونیوز همچنین گزارش داد تهران این پیام را به شماری از پایتخت‌های منطقه، از جمله آنکارا، بغداد، دوحه و ریاض، منتقل کرده و هشدار داده است هرگونه اقدام سوریه علیه حزب‌الله می‌تواند به گسترش درگیری‌ها در منطقه منجر شود.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254984
 
@@ -285,30 +311,5 @@ IranintlTV
 Indypersian
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254941
-
-<div align="center"><video src="files/post_254941_VahidOOnLine_254941.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254941_VahidOOnLine_254941.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیت هگست، وزیر جنگ آمریکا، در جریان بازدید از «مرکز آموزش عملیات جنگلی» در پاناما، بر رویکرد متفاوت ایالات متحده در همکاری‌های منطقه‌ای در مقایسه با کشورهایی چون چین، روسیه و ایران تاکید کرد.
-
-هگست با انتقاد از عملکرد این کشورها گفت: «آنچه در رفتار کشورهایی نظیر چین، روسیه یا ایران دیده می‌شود، سوءاستفاده و منفعت‌طلبی فراوان است.»
-
-وزیر جنگ آمریکا افزود: «اما ایالات متحده آمریکا با ورود خود، به دنبال احترام به حاکمیت شما و یافتن راه‌هایی برای همکاری‌های متقابل و سودمند است؛ همکاری‌هایی که به توانمندسازی مردم و رونق کشورتان منجر شود.»
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254940
-
-<div align="center"><img src="files/post_254940_VahidOOnLine_254940.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
 </div>
 

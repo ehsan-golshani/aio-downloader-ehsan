@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 251
 
-📅 آخرین بروزرسانی: 1405/06/03 08:37
+📅 آخرین بروزرسانی: 1405/06/03 09:20
 
 ---
+
+## VahidOOnLine — post 250768
+
+<div align="center"><video src="files/post_250768_VahidOOnLine_250768.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250768_VahidOOnLine_250768.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال وقوع انفجار بامداد شنبه در سایت موشکی لار در استان فارس را نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250767
+
+<div align="center"><img src="files/post_250767_VahidOOnLine_250767.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️وزارت برق، آب و انرژی‌های تجدیدپذیر کویت، روز شنبه ۲۷ تیرماه، اعلام کرد پس از حمله نیروهای مسلح جمهوری اسلامی به یک نیروگاه تولید برق و آب‌شیرین‌کن در این کشور، آتش‌سوزی در این تاسیسات رخ داده و چند واحد تولید برق در پی این حادثه از مدار خارج شده‌اند.
+
+وزارت برق کویت روز جمعه نیز از خسارت و از کارافتادن یکی دیگر از تاسیسات تولید برق و آب این کشور در اثر حملات جمهوری اسلامی خبر داده بود.
+
+روابط عمومی سپاه پاسداران انقلاب اسلامی، صبح شنبه اعلام کرده بود: «اسکله پشتیبانی سوخت ناوگان آمریکا در بندر الاحمدی کویت» را هدف حملات پهپادی و موشکی قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250766
 
@@ -270,34 +298,6 @@ iranintl
 ♦️تصاویر منتشرشده در رسانه‌های عراق، جمعه شب ۲۶ تیرماه، از وقوع انفجار و آتش‌سوزی گسترده در استان سلیمانیه پس از یک حمله پهپادی حکایت دارد.
 در این تصاویر، شعله‌های آتش بخش قابل توجهی از منطقه را دربر گرفته و دود غلیظی به آسمان بلند شده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250748
-
-<div align="center"><img src="files/post_250748_VahidOOnLine_250748.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نیروهای مسلح اردن اعلام کردند سامانه‌های دفاعی این کشور ۱۰ موشک شلیک‌شده از ایران را رهگیری کرده‌اند.
-
-به گزارش خبرگزاری رسمی اردن، این رویداد تلفات جانی یا خسارت مالی بر جای نگذاشته است.
-
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250747
-
-<div align="center"><img src="files/post_250747_VahidOOnLine_250747.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت کشور بحرین اعلام کرد آژیرهای هشدار برای سومین بار در این کشور به صدا درآمده‌اند.
-
-تاکنون جزئیاتی درباره علت فعال شدن آژیرها یا تهدید احتمالی منتشر نشده است، اما پیش از این، نیروهای مسلح جمهوری اسلامی از حمله به کویت و بحرین خبر داده بودند.
-
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

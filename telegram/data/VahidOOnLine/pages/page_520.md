@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 520
 
-📅 آخرین بروزرسانی: 1405/06/03 08:37
+📅 آخرین بروزرسانی: 1405/06/03 09:20
 
 ---
+
+## VahidOOnLine — post 243960
+
+<div align="center"><img src="files/post_243960_VahidOOnLine_243960.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، یدالله اسکندری در جریان اعتراضات ۱۸ دی در ارسنجان استان فارس با اصابت گلوله جنگی نیروهای حکومتی به ناحیه سینه کشته شد.
+
+پیکر او حدود یک هفته بعد به خانواده تحویل داده شد و در ساعات اولیه صبح، با حضور محدود اعضای درجه‌یک خانواده به خاک سپرده شد.
+
+یدالله اسکندری ۳۳ ساله و پدر یک دختر یک‌سال‌و‌هفت‌ماهه بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243959
+
+<div align="center"><video src="files/post_243959_VahidOOnLine_243959.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243959_VahidOOnLine_243959.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان معترض در مشهد روز شنبه پس از آنکه گزارش شد تعدادی از محصلان معترض مقابل آموزش و پرورش بازداشت شدند،‌ شعار اعتراضی داده و خواستار آزادی آن‌ها شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243958
 
@@ -263,35 +291,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان مدارس تهران روز شنبه مقابل شورای عالی انقلاب فرهنگی تجمع کرده و در اعتراض به وضعیت بلاتکلیف برگزاری کنکور و امتحانات شعار دادند: «دانش‌آموز می‌میرد ذلت نمی‌پذیرد.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243940
-
-<div align="center"><img src="files/post_243940_VahidOOnLine_243940.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️وزارت امور خارجه کویت روز شنبه ۱۶ خرداد ماه حملات جدید جمهوری اسلامی ایران را محکوم کرد و آن را «تهدیدی مستقیم» علیه جان شهروندان و ساکنان این کشور دانست.
-در بیانیه وزارت خارجه کویت آمده است: «این حملات نقض آشکار حاکمیت دولت کویت به شمار می‌رود.»
-این وزارتخانه همچنین تاکید کرد که حملات اخیر «تشدید خطرناک تنش‌ها» در منطقه محسوب می‌شود و امنیت و ثبات منطقه را تهدید می‌کند.
-کویت با محکوم کردن این حملات، خواستار احترام به حاکمیت کشورها و خودداری از اقداماتی شد که می‌تواند به گسترش درگیری‌ها در منطقه منجر شود.
-روابط عمومی سپاه پاسداران جمهوری اسلامی ایران، بامداد شنبه، با انتشار بیانیه‌ای اعلام کرده بود که به «پایگاه‌های دشمن در منطقه» موشک شلیک کرده است.
-پیش از کویت، بحرین نیز در بیانیه‌ای حملات موشکی ایران را «تجاوز آشکار» و نقض حاکمیت خود و کویت توصیف کرد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243939
-
-<div align="center"><video src="files/post_243939_VahidOOnLine_243939.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243939_VahidOOnLine_243939.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز شنبه دانش‌آموزان قم همزمان با سایر استان‌ها به تاثیر معدل پایه یازدهم در کنکور و شیوه برگزاری امتحانات اعتراض کردند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
