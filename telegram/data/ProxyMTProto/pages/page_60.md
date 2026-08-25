@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/06/03 14:23
+📅 آخرین بروزرسانی: 1405/06/03 14:56
 
 ---
+
+## ProxyMTProto — post 49300
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 34.7.50.106
+Port: 443
+Secret: dd39a22112c392f0cbfb056066b429addd
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49299
 
@@ -172,15 +181,6 @@ Secret: ee0a9b43ea17eff45e518fa360979998e770726f78792e666c757876706e67756172642e
 Server: always.for.you.ir.mausjakaqd.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad3.arixo.shop
-Port: 443
-Secret: ee722fba8d97b9027b5fc4deb041b290cb6164332e617269786f2e73686f70
 @ProxyMTProto
 </div>
 

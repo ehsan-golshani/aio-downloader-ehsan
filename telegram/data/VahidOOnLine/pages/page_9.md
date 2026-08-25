@@ -1,8 +1,82 @@
 # آرشیو کانال VahidOOnLine - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/03 14:22
+📅 آخرین بروزرسانی: 1405/06/03 14:55
 
 ---
+
+## VahidOOnLine — post 256593
+
+<div align="center"><video src="files/post_256593_VahidOOnLine_256593.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256593_VahidOOnLine_256593.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال قفسه‌های خالی سوپرمارکتی را در تهران نشان می‌دهد و می‌گوید: «لبنیات و تخم‌مرغ اصلا نیست. مردم هرچه لازم دارند سریع می‌خرند انگار کم‌کم به قحطی نزدیک می‌شویم.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256592
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🗣روایت شما: وضعیت زندگی در سایه سرکوب سیاسی و تنش‌های نظامی - دوشنبه ۲ شهریور
+
+🔹قهوه از کیلویی یک میلیون و ۶۰۰ هزار تومان شده کیلویی سه میلیون و ۲۰۰ هزار تومان. دیگه خریدن و خوردن قهوه هم شد آرزو.
+
+🔹از کاشان: دیروز اول شهریورماه ۵ گیگ اینترنت گرفتم، نصف دیروز رو بیرون از خونه بودم و استفاده نکردم، امروز پیام اومده اینترنت شما تموم شده.
+
+🔹آب و برق نداریم، اما کارمندان سازمان آب و برق به‌موقع حقوق گرفتن، اون وقت کادر درمان شرکت نفت حقوقش قطع شده.
+
+🔹شرکت ان‌جی‌ال خارگ قبل و بعد از جنگ ۴۰ روزه تمام نیروهاش را اخراج کرد و کامل تعطیل شده. بسته شده. ببینند جمهوری اسلامی اشغالی با دارایی مردم ایران چه‌کار می‌کنند.
+
+🔹از کرمانشاه: کار اداری داشتم، ۳۰۰ کیلومتر رفتم کرمانشاه، میگن برق نیست و کارمندها هم رفتن خونه. با این گرونی هتل برم باید ۲ تا ۳ میلیون پول بدم. اگر برگردم، دوباره این همه راه و فردا بیام معلوم نیست برق باشه. خدا لعنت کنه جمهوری اسلامی رو.
+
+🔹گرانی داره بیداد می‌کنه، من مستأجرم و دیگه توانی برای پرداخت کرایه منزل ندارم. به خدا خسته شدیم ولی حاضرم چادر بزنم کنار پارک و به‌خاطر جاویدنامان عزیز تحمل کنم تا بالاخره این رژیم جنایتکار را به زباله‌دان تاریخ بندازیم.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256591
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احمدرضا رادان، فرمانده کل انتظامی جمهوری اسلامی، دوشنبه دوم شهریور در جمع فرماندهان و مسئولان انتظامی استان مازندران، اعلام کرد دشمن با «بهانه‌هایی مانند مشکلات معیشتی، بنزین، اقتصاد و بیکاری، به‌دنبال ایجاد آشوب در کشور است.»
+
+فرمانده کل انتظامی جمهوری اسلامی گفت: «وظایف مهم پلیس‌های تخصصی در حوزه امنیتی و انتظامی، به‌ویژه پلیس فتا و پلیس امنیت عمومی، شناسایی لایه‌های پنهان و سیاه در جامعه و شبکه‌های اجتماعی و برخورد با کسانی است که مردم را تحریک می‌کنند.»
+
+احمدرضا رادان همچنین اعلام کرد: «جنگ هنوز تمام نشده است و خیلی از غافلگیری‌ها نتیجه غفلت بوده است. دشمن از ما دست برنداشته و جایی از ما دست برمی‌دارد که ما دست برتر داشته باشیم.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256590
+
+<div align="center"><video src="files/post_256590_VahidOOnLine_256590.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256590_VahidOOnLine_256590.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در رسانه‌های اجتماعی نشان می‌دهد مادر جاویدنام نازنین‌زهرا صالحی بر سر مزار دخترش ترانه «سوغاتی» هایده را می‌خواند.
+نازنین‌زهرا، ۱۳ ساله، ۱۹ دی ۱۴۰۴ در شهرک بسیج کرمانشاه بر اثر شلیک گلوله ماموران جان باخت.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256589
+
+<div align="center"><video src="files/post_256589_VahidOOnLine_256589.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256589_VahidOOnLine_256589.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صف بنزین گازوئیل در جاده
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256588
 
@@ -217,75 +291,6 @@ IranintlTV
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوی منتشرشده در رسانه‌های اجتماعی، نمایی از داخل یک سوله در حوالی زندان دستگرد اصفهان را نشان می‌دهد؛ جایی که گفته می‌شود حدود ۴۰۰ نفر از بازداشتی‌های دی‌ماه ۱۴۰۴ بدون محاکمه و بی‌اطلاع خانواده‌هایشان نگهداری می‌شوند.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256564
-
-<div align="center"><video src="files/post_256564_VahidOOnLine_256564.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256564_VahidOOnLine_256564.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، آب آلوده لوله‌کشی را در شهر خرمشهر نشان می‌دهد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256563
-
-<div align="center"><img src="files/post_256563_VahidOOnLine_256563.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، دوشنبه دوم شهریور گزارشی از نیوزمکس درباره صحبت‌های محمدباقر قالیباف در عراق را در شبکه اجتماعی تروث سوشال منتشر و تیتر این گزارش را بازنشر کرد: «رییس مجلس ایران: ما گرسنه‌ایم، نمی‌توانیم دوام بیاوریم.»
-
-پیش‌تر نیوزمکس در گزارشی نوشت محمدباقر قالیباف، رییس مجلس جمهوری اسلامی، در نشستی با اقتصاددانان ایرانی و عراقی در بغداد درباره تاثیر مشکلات اقتصادی بر امنیت جمهوری اسلامی هشدار داده است.
-
-قالیباف در این نشست گفت: «هرقدر هم قدرت نظامی ما قوی شود، اگر گرسنه باشیم، نمی‌توانیم دوام بیاوریم.» او اقتصاد و امنیت را «دو بال» وابسته به یکدیگر خواند و گفت همان‌طور که بدون امنیت سرمایه‌گذاری شکل نمی‌گیرد، بدون رشد اقتصادی، تولید داخلی و درآمد کافی نیز حفظ امنیت ممکن نیست.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256562
-
-<div align="center"><video src="files/post_256562_VahidOOnLine_256562.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256562_VahidOOnLine_256562.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از بازنشستگان مخابرات در تهران دوشنبه دوم شهریور تجمع کردند و شعارهایی چون «این همه بی‌عدالتی، هرگز ندیده ملتی» سردادند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256561
-
-<div align="center"><video src="files/post_256561_VahidOOnLine_256561.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256561_VahidOOnLine_256561.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کریستیانو رونالدو، ستاره فوتبال باشگاه النصر عربستان شامگاه یکشنبه در کنار شاهزاده محمد بن سلمان، ولیعهد عربستان سعودی و امانوئل مکرون، رئیس جمهوری فرانسه در مراسم اختتامیه جام جهانی ورزش‌های الکترونیکی ۲۰۲۶ در پاریس شرکت کرد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256560
-
-<div align="center"><img src="files/post_256560_VahidOOnLine_256560.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رئیس جمهوری ایالات متحده روز دوشنبه دوم شهریور مقاله نیوز مکس درباره سخنان هفته گذشته محمدباقر قالیباف در عراق را بازنشر کرد.
-
-رئیس مجلس و عضو ارشد هیات مذاکره‌کننده جمهوری اسلامی ایران، هفته گذشته در جریان سخنرانی در جمع فعالان اقتصادی ایرانی و عراقی گفته بود آمریکا در جنگ نظامی شکست خورده است و حالا به سراغ جنگ اقتصادی و شناختی رفته است. اگر در میدان اقتصادی قوی نباشیم، شکست خواهیم خورد.
-
-ترامپ این مقاله را در آستانه اعمال تحریم‌های بی‌سابقه علیه ایران بازنشر کرده است.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>
