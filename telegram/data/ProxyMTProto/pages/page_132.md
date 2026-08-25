@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 132
 
-📅 آخرین بروزرسانی: 1405/06/03 14:56
+📅 آخرین بروزرسانی: 1405/06/03 15:31
 
 ---
+
+## ProxyMTProto — post 47854
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: russia.proxyprosto.sbs
+Port: 443
+Secret: eea4615b0d71ccc0fc0aa3573cdd068fde77622e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47853
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47852
 
@@ -165,24 +183,6 @@ Secret: dd6fe89c6d1f5f8b54afc931cf4f640b91
 Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47834
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: promo.dealer.ac
-Port: 443
-Secret: ee6aa3b7302162fefaffdcfafa34ab94ba7477656e7475722e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47833
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
 @ProxyMTProto
 </div>
 

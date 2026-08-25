@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 144
 
-📅 آخرین بروزرسانی: 1405/06/03 14:56
+📅 آخرین بروزرسانی: 1405/06/03 15:31
 
 ---
+
+## ProxyMTProto — post 47614
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dns.vdl.lat
+Port: 853
+Secret: ee534adcf23a16f425cbae129c4cb574cb6164732e78352e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47613
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r1.proxytg.space
+Port: 8443
+Secret: eecd671d2032569f6cea0fb4c61c32756972312e70726f787974672e7370616365
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47612
 
@@ -169,24 +187,6 @@ Secret: ee53fed7a45b8fcb2ef5a2e0223c76bb4e766b766964656f2e7275
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47594
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: another.life.mambabot.net
-Port: 4515
-Secret: eec485b564c0178c338d8bf4f3f17539c4613234382e652e616b616d61692e6e6574
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47593
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s.proxytg.space
-Port: 8443
-Secret: eefefc4f17248e59437bb451447a9170b2732e70726f787974672e7370616365
 @ProxyMTProto
 </div>
 
