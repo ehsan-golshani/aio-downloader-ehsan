@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 342
 
-📅 آخرین بروزرسانی: 1405/06/03 03:21
+📅 آخرین بروزرسانی: 1405/06/03 03:42
 
 ---
+
+## VahidOOnLine — post 248605
+
+<div align="center"><video src="files/post_248605_VahidOOnLine_248605.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248605_VahidOOnLine_248605.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده نشان می‌دهند گروهی از ایرانیان مقیم آلمان شنبه ۱۳ تیر با راهپیمایی در خیابان‌های هامبورگ علیه جمهوری اسلامی، برای مراسم دفن علی خامنه‌ای شادی می‌کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248604
 
@@ -274,19 +287,6 @@
 بر روی این پلاکارد، تصویر سر بریده و خون‌آلود ترامپ دیده می‌شود.
 
 در روزهای گذشته و در جریان برگزاری مراسم «وداع» با تابوت‌های علی خامنه‌ای و اعضای خانواده او، سرداران سپاه، نمایندگان مجلس و امامان جمعه، از «انتقام سخت و قطعی» و مجازات عاملان مرگ خامنه‌ای سخن گفته‌اند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248585
-
-<div align="center"><video src="files/post_248585_VahidOOnLine_248585.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248585_VahidOOnLine_248585.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده، گروهی از ایرانیان مقیم مجارستان شنبه ۱۳ تیر با فراخوان شاهزاده رضا پهلوی مقابل سفارت آمریکا در بوداپست تجمع کرده و خواستار بسته شدن «سفارت رژیم تروریستی جمهوری اسلامی» شدند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

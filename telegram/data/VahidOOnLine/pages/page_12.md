@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/03 03:21
+📅 آخرین بروزرسانی: 1405/06/03 03:42
 
 ---
+
+## VahidOOnLine — post 256446
+
+<div align="center"><video src="files/post_256446_VahidOOnLine_256446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256446_VahidOOnLine_256446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم ژاپن یکشنبه یکم شهریور در شهر توکیو علیه جمهوری اسلامی تجمع کردند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256445
 
@@ -270,21 +283,6 @@ IranintlTV
 
 عراقچی افزود: «جنگ اقتصادی، همان قلدری همیشگی است که در سیاست‌های آمریکا دیده‌ایم.»
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256422
-
-<div align="center"><video src="files/post_256422_VahidOOnLine_256422.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256422_VahidOOnLine_256422.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به گزارش ایرنا، کارخانه نوشابه‌سازی ایران‌کولا در ایرانشهر، بامداد یکشنبه اول شهریور دچار آتش‌سوزی گسترده شد. درباره علت این حادثه، روایت‌های متفاوتی منتشر شده است.
-ایرنا نوشت که با توجه به اطلاعات اولیه درباره نحوه آغاز حریق، احتمال خرابکاری در حال بررسی است. حال‌وش که اخبار مربوط به استان سیستان و بلوچستان را پوشش می‌دهد، گزارش داد که حدود ساعت چهار بامداد، دست‌کم ۱۲ فرد مسلح و نقاب‌دار وارد کارخانه در شهرک صنعتی ایرانشهر شده‌اند. بنا بر این روایت، مهاجمان پس از بستن دست و پای دو نگهبان، بخش‌هایی از مجموعه از جمله انبار مواد و تجهیزات بسته‌بندی را به آتش کشیده‌اند.
-حال‌وش می‌گوید دو نگهبان بیش از دو ساعت در حالت دست‌وپابسته باقی مانده و حدود ساعت ۶:۳۰ صبح توانسته‌اند خود را آزاد کنند.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>

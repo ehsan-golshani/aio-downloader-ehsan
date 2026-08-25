@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 341
 
-📅 آخرین بروزرسانی: 1405/06/03 03:21
+📅 آخرین بروزرسانی: 1405/06/03 03:42
 
 ---
+
+## VahidOOnLine — post 248634
+
+<div align="center"><video src="files/post_248634_VahidOOnLine_248634.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248634_VahidOOnLine_248634.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده نشان می‌دهند گروهی از ایرانیان مقیم اسپانیا شنبه ۱۳ تیر مقابل کنسولگری آمریکا در بارسلون تجمع کرده و خواستار پایان مماشات با جمهوری اسلامی شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248633
 
@@ -286,19 +299,6 @@
 او از مسئولان، نیروهای مسلح و تصمیم‌گیران جمهوری اسلامی خواست در عرصه‌های نظامی، دیپلماسی و دیگر حوزه‌ها در برابر دشمن ایستادگی کنند.
 
 مکارم‌شیرازی، ولایت فقیه را «محور وحدت» و «رکن استواری نظام» خواند و گفت حفظ وحدت و همبستگی ملی بیش از هر زمان ضروری است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248605
-
-<div align="center"><video src="files/post_248605_VahidOOnLine_248605.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248605_VahidOOnLine_248605.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده نشان می‌دهند گروهی از ایرانیان مقیم آلمان شنبه ۱۳ تیر با راهپیمایی در خیابان‌های هامبورگ علیه جمهوری اسلامی، برای مراسم دفن علی خامنه‌ای شادی می‌کنند.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

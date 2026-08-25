@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 491
 
-📅 آخرین بروزرسانی: 1405/06/03 03:21
+📅 آخرین بروزرسانی: 1405/06/03 03:42
 
 ---
+
+## VahidOOnLine — post 244793
+
+<div align="center"><img src="files/post_244793_VahidOOnLine_244793.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد از ساعت ۰۰:۴۵ به وقت تهران، نیروهای آمریکا در واکنش به «تجاوز بی‌دلیل و ادامه‌دار» جمهوری اسلامی حملات بیشتری را در چارچوب دفاع از خود علیه چندین هدف در ایران آغاز کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244792
 
@@ -267,17 +278,6 @@
 
 روبیو علاوه بر حضور در رویدادهای جام جهانی، در لس‌آنجلس با سانتیاگو پنیا، رئیس‌جمهوری پاراگوئه نیز دیدار و گفتگو خواهد کرد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244770
-
-<div align="center"><img src="files/post_244770_VahidOOnLine_244770.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مایک هاکبی، سفیر آمریکا در اسرائیل، با بازنشر گزارش فاکس‌نیوز درباره اظهارات دونالد ترامپ، رییس‌جمهوری آمریکا، مبنی بر اینکه ایالات متحده امروز دوباره «ضربه سختی» به جمهوری اسلامی خواهد زد، در شبکه ایکس نوشت: «ممکن است اوضاع در منطقه به‌زودی کمی داغ شود.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

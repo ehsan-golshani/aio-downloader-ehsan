@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/06/03 03:21
+📅 آخرین بروزرسانی: 1405/06/03 03:42
 
 ---
+
+## VahidOOnLine — post 254649
+
+<div align="center"><video src="files/post_254649_VahidOOnLine_254649.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254649_VahidOOnLine_254649.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال مزار حمیدرضا روحی، معترض کشته‌شده در خیزش زن، زندگی، آزادی را نشان می‌دهد و می‌گوید: «جاویدنامان راه آزادی را فراموش نمی‌کنیم.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254648
 
@@ -291,20 +304,6 @@ IranintlTV
 بر اساس اطلاعات رسیده به ایران‌اینترنشنال، بررسی درخواست‌های ویزا که پیش‌تر ارایه شده‌اند، در چارچوب ظرفیت موجود ادامه دارد و ویزاهای آماده صدور نیز در تهران تحویل داده می‌شوند.
 
 ایران‌اینترنشنال همچنین اطلاع یافته است که برای متقاضیان پیوست خانواده، مسیر جداگانه‌ای ایجاد شده و با افراد ثبت‌شده در فهرست انتظار سفارت آلمان در تهران تماس گرفته می‌شود تا درخواست‌های آنها در استانبول و از طریق برنامه کمک به خانواده سازمان بین‌المللی مهاجرت دریافت شود.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254629
-
-<div align="center"><video src="files/post_254629_VahidOOnLine_254629.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254629_VahidOOnLine_254629.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال عوامل شرکت انبوه‌سازی آرین‌سازه، دوشنبه ۱۹ مرداد با متقاضیان مسکن که در اعتراض به تحویل نگرفتن خانه‌های خود مقابل شرکت تجمع کردند، درگیر شده‌اند.
-﻿﻿بر اساس گزارش‌ها، مدت‌هاست که زمان تحویل پروژه‌های این شرکت همچون ستین، پدافند، افرا، گل مریم، پردیس شرق و آبشار گذشته و بلاتکلیف رها شده‌اند.
 IranintlTV
 
 🤖 @VahidOOnLine
