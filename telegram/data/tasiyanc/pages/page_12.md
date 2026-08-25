@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/04 01:31
+📅 آخرین بروزرسانی: 1405/06/04 02:20
 
 ---
+
+## tasiyanc — post 9340
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای همراه اول و بقیه اوپراتور ها
+
+ساب نامحدود - ارسالی از GTXll
+
+https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
+
+آموزش ویدیویی اضافه کردن ساب 💘
+
+
+@Tasiyanc 💠 | اتصال امن
+</div>
 
 ## tasiyanc — post 9339
 
@@ -258,14 +273,6 @@ https://t.me/+fxq9NcirUag3N2Zk
 🔴 امروز August 15، روز آرامش و ریلکس کردنه.
 
 تو این روز باید استرس رو بریزین دور، و در کمال آرامش، از لحظه به لحظه زندگی، لذت ببرین.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9309
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیست افرادی که در پویش جان فدا ثبت‌نام کرده بودن توسط هکرهای اسرائیلی منتشر شد
-تا این لحظه مشخصات 4.7 میلیون نفر با اسامی کامل ، کد ملی ، شماره تلفن ، شغل ، تخصص و محدوده زندگی انتشار یافته است
 @Tasiyanc ⭐️
 </div>
 

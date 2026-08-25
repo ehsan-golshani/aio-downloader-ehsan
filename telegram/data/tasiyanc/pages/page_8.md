@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/04 01:31
+📅 آخرین بروزرسانی: 1405/06/04 02:20
 
 ---
+
+## tasiyanc — post 9436
+
+<div align="center"><img src="files/post_9436_tasiyanc_9436.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پست جدید ترامپ: تنگه هرمز؛ منطقه‌ی جدید ایالات متحده
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9435
 
@@ -231,11 +242,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شمارشو تلاش میکنیم براتون بزاریم تا راحت شکایت کنین ، اگر شماره خودش نبود شماره باباشو میزارم
-</div>
-
-## tasiyanc — post 9413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-603799746347**** شماره کارت دوم
 </div>
 

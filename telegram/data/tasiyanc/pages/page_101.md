@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 101
 
-📅 آخرین بروزرسانی: 1405/06/04 01:31
+📅 آخرین بروزرسانی: 1405/06/04 02:20
 
 ---
+
+## tasiyanc — post 6455
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+new@Tasiyanc.ovpn
+</div>
 
 ## tasiyanc — post 6453
 
@@ -201,11 +207,5 @@ Fast ⚡🪐 متد جدید.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
-</div>
-
-## tasiyanc — post 6427
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST⚡TASIYAN🚀.npvt
 </div>
 

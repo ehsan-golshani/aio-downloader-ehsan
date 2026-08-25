@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/04 01:31
+📅 آخرین بروزرسانی: 1405/06/04 02:20
 
 ---
+
+## tasiyanc — post 9151
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated Multi⚡️━━━╮
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpiSU9vaTVUdUltRzJLY2N4VjctamNBN0Nleit2dW4tY19F@104.156.233.234:27116#%40Tasiyanc
+
+vless://c28ee61d-0d43-4e69-8e6a-6397ed0ffc03@109.69.218.168:443?security=reality&encryption=none&pbk=cv_KJnMzQUZruACPbH-BCgLWrYqPm2dbUymg-gW_sVc&headerType=none&fp=random&type=tcp&flow=xtls-rprx-vision&sni=agile-raptor.cdn.cachefleet.com#%40Tasiyanc
+
+vless://52b71b75-4b77-4cec-990b-046ec1938e1f@67.159.56.57:443?security=reality&encryption=none&pbk=j5qmR8E9er-0n5zZbK6s_SdvYm-tYlraXVYm49ArWS8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=uk.bvps.cloud&sid=60debb3ab744d8ce#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%92%A5
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.64:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20Speed%2001
+
+vless://52b71b75-4b77-4cec-990b-046ec1938e1f@67.159.56.57:443?security=reality&encryption=none&pbk=j5qmR8E9er-0n5zZbK6s_SdvYm-tYlraXVYm49ArWS8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=uk.bvps.cloud&sid=60debb3ab744d8ce#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%92%A5
+
+ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.167:443#%40Tasiyanc
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9150
 
@@ -206,25 +226,5 @@ https://t.me/+_btGj-rRAxs3NGVk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 همراه اول داغونه ضعیفه
-</div>
-
-## tasiyanc — post 9126
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated Multi ━━━╮
-
-vless://6f436a44-f703-93da-7e45-615824a39d3b@teain.org:1000?security=reality&encryption=none&pbk=ECxm-BdHYhxYK9MtN33NkkrFSdFZXp-OB-yhN8AleRY&headerType=none&fp=ios&type=tcp&sni=knox.cdn-apple.com&sid=a62d513cd709744a#%40TASIYANC%20%F0%9F%94%B1%2001
-
-ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.169:443#%40TASIYANC%20%F0%9F%94%B1%2002
-
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpiSU9vaTVUdUltRzJLY2N4VjctamNBN0Nleit2dW4tY19F@104.156.233.234:27116#%40TASIYANC%20%F0%9F%94%B1%2003
-
-vless://9f0285ee-20ca-4953-bcdb-86a920652923@204.216.216.23:10086?security=none&encryption=none&headerType=none&type=tcp#%40TASIYANC%20%F0%9F%94%B1%2004
-
-vless://b052df40-d51c-456c-9bd6-57af01a87e4e@cdn.pinecloud.net:443?security=reality&encryption=none&pbk=vWSgdMDirb9aDZLWijSXXXl-NCTrtBgEe9MQqcgV6h8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=cdn.pinecloud.net&sid=6a2e3af684799b19#GB%20LONDON%20%F0%9F%87%AC%F0%9F%87%A7%20%40Tasiyanc
-
-
-📍Multi location
-@TASIYANC 🔋
 </div>
 

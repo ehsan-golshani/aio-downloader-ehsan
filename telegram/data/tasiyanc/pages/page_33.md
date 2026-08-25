@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/06/04 01:31
+📅 آخرین بروزرسانی: 1405/06/04 02:20
 
 ---
+
+## tasiyanc — post 8789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴انتقال اجساد حشدالشعبی @Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8788
 
@@ -215,15 +222,5 @@
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️اکثر سایت‌ها یا آپشن‌هایی مثل «آفساید» و «مالکیت» رو ندارن، یا وقتی مبلغ سنگین میشه، موقع برداشت هزارتا بهونه میارن. ​ما بالاخره دو مقصد رو پیدا کردیم که «امنیت» و «تنوع» رو همزمان دارن
-
-🔘 @WePariFarsi
-
-🔘 @DerbyBetOfficial
 </div>
 

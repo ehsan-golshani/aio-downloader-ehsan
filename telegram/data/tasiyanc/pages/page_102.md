@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/06/04 01:31
+📅 آخرین بروزرسانی: 1405/06/04 02:20
 
 ---
+
+## tasiyanc — post 6427
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST⚡TASIYAN🚀.npvt
+</div>
 
 ## tasiyanc — post 6426
 
@@ -188,11 +194,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 آموزش اتصال ⛓
 
 🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6404
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتا داره بگ* می‌ره اختلال رو همراه اول
 </div>
 

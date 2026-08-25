@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/04 01:31
+📅 آخرین بروزرسانی: 1405/06/04 02:20
 
 ---
+
+## tasiyanc — post 8977
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 
+🖤 Config Unlimated Vip 
+👑 ━━━╮
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca20.exodnsdir.xyz:8880?mode=gun&security=none&encryption=none&type=grpc#%40Tasiyanc%20%E2%9A%A1%F0%9F%8F%9D%EF%B8%8F%F0%9F%87%AE%F0%9F%87%B9
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTo3ZTczMWVjMy1mOGUxLTQzZjYtOTJjZi0zOTc4ZDE0NzA1YzQ@r3mrcg001287h3p.cybervena.com:50099#%40Tasiyanc%20%F0%9F%8F%9D%EF%B8%8F%E2%9A%A1%F0%9F%87%B9%F0%9F%87%BC
+
+vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiJAUHJveHlWUE4xMSIsImlkIjoiMDQ2MjFiYWUtYWIzNi0xMWVjLWI5MDktMDI0MmFjMTIwMDAyIiwiaW5zZWN1cmUiOiIwIiwibmV0IjoidGNwIiwicGF0aCI6Ii8gQFByb3h5VlBOMTEiLCJwY3MiOiIiLCJwb3J0IjoiMjIzMjQiLCJwcyI6IkBUYXNpeWFuYyDwn4+d77iP4pqh8J+HrPCfh6ciLCJzY3kiOiJhdXRvIiwic25pIjoiIiwidGxzIjoiIiwidHlwZSI6Im5vbmUiLCJ2IjoiMiIsInZjbiI6IiJ9
+
+
+📍Location 🇬🇧🇮🇹🇹🇼
+
+
+👹@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8976
 
@@ -298,19 +319,5 @@ Add subtle sparkle/glitter overlay, warm soft lighting, high-resolution, ultra-r
 
 
 👹@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8954
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️8 شب وین دادیم امشبم وینه✔️✔️
-
-✅تنها کانالی که از شرطبندی پول در میاره✅
-
-https://t.me/+gTClYDoqQdhkZjY8
-
-چنل خودمونه جوین شید استفاده کنید فرمارو همه از منبع ها خارجیه😉👍
-
-#admin
 </div>
 

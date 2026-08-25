@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/04 01:31
+📅 آخرین بروزرسانی: 1405/06/04 02:20
 
 ---
+
+## tasiyanc — post 9506
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتشه درامد دلاری به جیب بزنی ✅
+همین حالا وارد کانال  Evil Bet شو👇
+https://t.me/+TmGWkUYH_8c0OWZk
+</div>
 
 ## tasiyanc — post 9505
 
@@ -342,65 +350,5 @@ til.ac/0L4vyJf
 
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9482
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 👾 GAME DNS VIP TASIYAN ━━━╮
-
-⚡️ DNS #1
-IPv4
-
-17.62.198.222
-77.160.218.160
-
-IPv6
-
-2a0e:1c80:11::c6db:ccca:d924:626f
-2a0e:1c80:11::cf20:5007:eac9:1b44
-➖➖➖➖➖➖➖
-
-⚡️ DNS #2
-IPv4
-
-140.112.232.208
-136.95.165.219
-
-IPv6
-
-2a0e:1c80:11::e431:449e:90af:3521
-2a0e:1c80:11::397e:8dbf:fee2:a9cb
-
-➖➖➖➖➖➖➖
-
-⚡️DNS #3
-IPv4
-
-189.92.99.165
-19.33.60.233
-
-IPv6
-
-2a0e:1c80:11::ab31:e1b9:40cd:78d3
-2a0e:1c80:11::bcd1:7936:75f:7d0c
-
-➖➖➖➖➖➖➖
-
-⚡️ DNS #4
-IPv4
-
-169.217.217.193
-103.216.123.101
-
-IPv6
-
-2a0e:1c80:11::572a:2f94:1164:a500
-2a0e:1c80:11::6a6c:9e8c:8e01:f608
-
-⚡️ Low Ping • Stable Connection
-╰━━━━━━━━━━━━━━━━━━╯
-
-💙@TASIYANC ✅
 </div>
 

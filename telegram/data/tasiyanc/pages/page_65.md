@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/06/04 01:31
+📅 آخرین بروزرسانی: 1405/06/04 02:20
 
 ---
+
+## tasiyanc — post 7717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP 🎯 @Tasiyanc.nm
+</div>
 
 ## tasiyanc — post 7716
 
@@ -193,11 +199,5 @@ Password @Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کارلو آنجلوتی رید برزیل و حذف کرد
-</div>
-
-## tasiyanc — post 7689
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گللللللللللل برا نروژ 🔥 هالللللند
 </div>
 

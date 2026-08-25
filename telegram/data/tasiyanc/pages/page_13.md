@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/04 01:31
+📅 آخرین بروزرسانی: 1405/06/04 02:20
 
 ---
+
+## tasiyanc — post 9309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیست افرادی که در پویش جان فدا ثبت‌نام کرده بودن توسط هکرهای اسرائیلی منتشر شد
+تا این لحظه مشخصات 4.7 میلیون نفر با اسامی کامل ، کد ملی ، شماره تلفن ، شغل ، تخصص و محدوده زندگی انتشار یافته است
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9308
 
@@ -262,6 +270,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اتمام چالش ، ریکشن هرکی بیشتر باشه برندس تا ساعت ۱۵😂❤️
 </div>
-
-## tasiyanc — post 9283
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/06/04 01:31
+📅 آخرین بروزرسانی: 1405/06/04 02:20
 
 ---
+
+## tasiyanc — post 5784
+
+<div align="center"><img src="files/post_5784_tasiyanc_5784.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+kiwi Speed 🥝.npvt
+</div>
 
 ## tasiyanc — post 5783
 
@@ -184,11 +192,5 @@ vless://ae0dd58e-e222-40bf-84ae-365a97532737@162.159.152.120:443?path=%2Fcode%2F
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پخت پز باشه
-</div>
-
-## tasiyanc — post 5756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🍓 4 server 🔥.npvt
 </div>
 

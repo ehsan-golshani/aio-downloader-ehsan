@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/04 01:31
+📅 آخرین بروزرسانی: 1405/06/04 02:20
 
 ---
+
+## tasiyanc — post 9258
+
+<div align="center"><video src="files/post_9258_tasiyanc_9258.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9258_tasiyanc_9258.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز تلگرام وارد ۱۳ سالگیش شد 
+📱
+
+
+تولدت مبارک بهترین پیام‌رسان جهان 
+💖
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9257
 
@@ -280,16 +298,5 @@ https://t.me/+MT03hkV78q9kMTc0
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9231
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
-✅اسپانسر لیگ انگلستان
-👑 امکان شارژ و برداشت با کارت بانکی
-⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
-😀Telegram Channel👇
-https://t.me/+c5jwC3lt9z45NTE0
 </div>
 
