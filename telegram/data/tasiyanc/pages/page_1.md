@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/03 12:47
+📅 آخرین بروزرسانی: 1405/06/03 14:25
 
 ---
+
+## tasiyanc — post 9584
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرمنده بچه ها واقن نایی واسه پست گذاشتن ندارم با این وضعیت
+وقتی حال همه بده مطالب طنز نمیشه گذاشت
+وقتی حال همه بده نایی نمی‌مونه برا فعالیت ، جوانی ما در این مملکت الکی بگا رفت ، طفلی دهه نودی ها ، هشتادی ها و این نوجوان‌های تازه بدوران رسیده ، باز ما به یه چیزایی رسیدیم .. ولی اینا حقشون این نبود چیز های عادی براشون بشه آرزو « دوستون دارم امیدوارم حالتون خوب باشه»
+
++کانفیگا ضعیف بشه میزارم .
+</div>
 
 ## tasiyanc — post 9583
 
@@ -11,8 +21,6 @@
 </div>
 
 ## tasiyanc — post 9582
-
-<div align="center"><a href="files/post_9582_🔥⚡ Number One Pre.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🔥⚡ Number One Pre.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ حجم نامحدود نپسترنت🔐
@@ -308,26 +316,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💵قیمت هر دلار 203.000 تومان ایرانی
-</div>
-
-## tasiyanc — post 9556
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-⭕️ در صورت ارور چند بار بزنید
-
-🩸 T.me/Tasiyanc
 </div>
 

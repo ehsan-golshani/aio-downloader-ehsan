@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/06/03 12:47
+📅 آخرین بروزرسانی: 1405/06/03 14:25
 
 ---
+
+## tasiyanc — post 7943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آخرین باری که دانش اموزا همه باهم دینی میخوندن یه نفر رو خرس خورد😹😹😹
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7942
 
@@ -226,11 +234,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عکس مربوط به انفجار دزفول فیکه.
-</div>
-
-## tasiyanc — post 7915
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🦅⚡️ WAR.npvt
 </div>
 

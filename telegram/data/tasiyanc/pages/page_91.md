@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/06/03 12:47
+📅 آخرین بروزرسانی: 1405/06/03 14:25
 
 ---
+
+## tasiyanc — post 6762
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تاسیان ( خانواده بزرگ من) ❤️
+</div>
 
 ## tasiyanc — post 6732
 
@@ -188,13 +194,6 @@ INFERNO ⚡ vip.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مسی و رونالدو اگه ایران بدنیا میومدن :
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 12 June ، روز جهانی تشکر از آدمیه که زندگی رو برات قشنگتر کرده.
 @Tasiyanc ✅
 </div>
 

@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/06/03 12:47
+📅 آخرین بروزرسانی: 1405/06/03 14:25
 
 ---
+
+## tasiyanc — post 7777
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر هارو تو چنل پروکسی دنبال کنین
+@TasiyanProxy
+</div>
 
 ## tasiyanc — post 7764
 
@@ -153,11 +160,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سوپرررررر گللللللل زد
-</div>
-
-## tasiyanc — post 7729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسییییییییی
 </div>
 

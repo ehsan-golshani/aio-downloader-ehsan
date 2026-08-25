@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/06/03 12:47
+📅 آخرین بروزرسانی: 1405/06/03 14:25
 
 ---
+
+## tasiyanc — post 8517
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+انفجار در شیراز ، تایید میکنید شیرازیا؟
+</div>
 
 ## tasiyanc — post 8516
 
@@ -244,14 +250,5 @@ Loc 🇩🇪 🇩🇪
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خب بخوابید آروم شد
-</div>
-
-## tasiyanc — post 8476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 دو انفجار در بندر امام
-
-@TASIYANC 
-✅
 </div>
 

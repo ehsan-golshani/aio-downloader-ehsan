@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/06/03 12:47
+📅 آخرین بروزرسانی: 1405/06/03 14:25
 
 ---
+
+## tasiyanc — post 5947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب بعدی تو راهه
+</div>
 
 ## tasiyanc — post 5946
 
@@ -165,11 +171,5 @@ Wifi نت خانگی⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 برم ۲۰۰ تا ری اکشن شد بیام
-</div>
-
-## tasiyanc — post 5924
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باید بگیییییم؟😭
 </div>
 
