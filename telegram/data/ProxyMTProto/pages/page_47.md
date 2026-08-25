@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/06/03 12:45
+📅 آخرین بروزرسانی: 1405/06/03 13:36
 
 ---
+
+## ProxyMTProto — post 49559
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49558
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ardesvpn1.ru
+Port: 8443
+Secret: ee05cf8e164f926f4a664b2404d276a1d6617264657376706e312e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49557
 
@@ -163,24 +181,6 @@ Secret: ee949b2f2741c1b1ebfa03e363547350167777772e6d6963726f736f66742e636f6d
 Server: server.nl-arvancloud.co.uk
 Port: 443
 Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49539
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: connect.workingproxy.xyz
-Port: 443
-Secret: ddcf4b420258503f6f189db7d39f597b4e
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49538
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

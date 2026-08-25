@@ -1,8 +1,61 @@
 # آرشیو کانال VahidOOnLine - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/03 12:44
+📅 آخرین بروزرسانی: 1405/06/03 13:35
 
 ---
+
+## VahidOOnLine — post 256751
+
+<div align="center"><video src="files/post_256751_VahidOOnLine_256751.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256751_VahidOOnLine_256751.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد برادر جاویدنام امین سلامی بر سر مزار جاویدنام مسعود ذات‌پرور رفته و از عموم مردم می‌خواهد که به مزار جاویدنام‌ها سر بزنند.
+﻿امین سلامی، ۲۶ ساله، ۱۸ دی ۱۴۰۴ با اصابت گلوله جنگی در کرمانشاه کشته شد. ﻿مسعود ذات‌پرور، ۳۹ ساله و قهرمان و مربی بدنسازی هم در اعتراضات همان روز در رشت جان باخت.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256741
+
+<div align="center"><video src="files/post_256741_VahidOOnLine_256741.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256741_VahidOOnLine_256741.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار ایران در رسانه‌های جهان: سه‌شنبه ۳ شهریور ۱۴۰۵
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256740
+
+<div align="center"><img src="files/post_256740_VahidOOnLine_256740.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+العربیه و الحدث، روز سه‌شنبه سوم شهریورماه به نقل از یک مقام رسمی آگاه به مذاکرات، گزارش کردند که عاصم منیر، فرمانده ارتش پاکستان، در جریان سفر به تهران، پیشنهاد آمریکا مبنی بر پایان محاصره و رفع تحریم‌ها را در قبال بازگشایی تنگه هرمز و پایان حملات نیروهای نیابتی جمهوری اسلامی، ارائه کرده است.
+
+براساس این گزارش، همین مقام آگاه به این دو رسانه عربستان سعودی گفته که محسن رضایی، نماینده رهبر جمهوری اسلامی و دبیر شورای عالی امنیت ملی در دیدار با عاصم منیر گفته است که مقام‌های عالی‌رتبه جمهوری اسلامی به مشورت‌های داخلی درباره این پیشنهاد ادامه می‌دهند و در اسرع وقت به آن پاسخ خواهند داد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256739
+
+<div align="center"><video src="files/post_256739_VahidOOnLine_256739.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256739_VahidOOnLine_256739.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید برای دو ورق قرص ۴۰۰ هزار تومان پرداخت کرده و باقی پول هم چسب زخم به او داده‌اند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256738
 
@@ -237,63 +290,6 @@ Indypersian
 
 به گفته او، میزان توزیع بنزین در پایتخت در روز دوشنبه رکورد سال جاری را شکست.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256722
-
-<div align="center"><video src="files/post_256722_VahidOOnLine_256722.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256722_VahidOOnLine_256722.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده نشان می‌دهد یکی از شهروندان سردیسی شنی از جاویدنام آیدا عقیلی را بر ساحلی در عمان ساخته است.
-﻿آیدا عقیلی، ۳۴ ساله، شامگاه ۱۸ دی ۱۴۰۴ به ضرب گلوله در تهران کشته شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256721
-
-<div align="center"><video src="files/post_256721_VahidOOnLine_256721.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256721_VahidOOnLine_256721.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوها و گزارش‌های منتشر شده از تهران، حاکی از آن است که کمبود بنزین پس از شهرستان‌ها به پایتخت هم رسیده است.
-
-یکی از کاربران شبکه‌های اجتماعی ویدیویی از صف طولانی پشت یک پمپ‌بنزین «تعطیل» در نزدیکی برزگراه صدر در شمال تهران را منتشر کرده است و می‌گوید «اصلا بنزینی نیست.»
-
-دولت مسعود پزشکیان رسما اعلام کرده است که با توجه به آثار جنگ و تحریم‌ها، ذخیره بنزین پاسخگوی مصرف نیست و از این پس، سهمیه‌ها کم خواهد شد و دست‌کم نرخ بنزین آزاد افزایش خواهد یافت.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256720
-
-<div align="center"><video src="files/post_256720_VahidOOnLine_256720.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256720_VahidOOnLine_256720.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید یک عدد بستنی را به قیمت ۳۰ هزار تومان خریده است ولی حجم آن نصف شده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256719
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حساب کاربری جاویدنام زهرا محمدپور، یکی از هزاران جان‌باخته انقلاب ملی ایرانیان، ویدیویی از حضور خانواده‌های داغدار چند جاویدنام بر مزار محسن عباسی را منتشر کرده است.
-
-این حساب کاربری نوشته است که از ۱۸ و ۱۹ دی‌ماه همه ما یک خانواده شدیم.
-
-جاویدنام محسن عباسی، شامگاه پنجشنبه ۱۸ دی‌ماه در جریان تظاهرات انقلاب ملی ایرانیان در نجف‌آباد اصفهان هدف شلیک مستقیم گلوله قرار گرفت و جان باخت. پیکر او در شهرکرد به خاک سپرده شد.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>

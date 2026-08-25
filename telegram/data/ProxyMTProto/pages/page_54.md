@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/06/03 12:45
+📅 آخرین بروزرسانی: 1405/06/03 13:36
 
 ---
+
+## ProxyMTProto — post 49418
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eea6484f075c2288e653a8e720280712687777772e626f6f6b696e672e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49417
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49416
 
@@ -163,24 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: PAyDaR.goooalir.co.uk
 Port: 8443
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49398
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: should.be.wake.up.ir.yfdhjderkig.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49397
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy.lodkirmm.ru
-Port: 8443
-Secret: ee16309abd572d284b309ef26bd7a3f685d0b7d0ba70726f78792e6c6f646b69726d6d2e7275
 @ProxyMTProto
 </div>
 

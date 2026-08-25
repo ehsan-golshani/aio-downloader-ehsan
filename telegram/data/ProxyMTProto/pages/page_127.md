@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/06/03 12:45
+📅 آخرین بروزرسانی: 1405/06/03 13:36
 
 ---
+
+## ProxyMTProto — post 47950
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad.canvas-proxy.com
+Port: 443
+Secret: eeb7f10957fcefd87d5e8c336fc9851d8d61642e63616e7661732d70726f78792e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: spark.proxyonline.online
+Port: 443
+Secret: eed53c649a00ade7bf1f7071d019a426a7737061726b2e70726f78796f6e6c696e652e6f6e6c696e65
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47948
 
@@ -163,24 +181,6 @@ Secret: eeeed3431eaef666469f9beb5286a544d96f7777772e636c6f7564666c6172652e636f6d
 Server: Unknown
 Port: 8443
 Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47930
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vibe.proxyonline.online
-Port: 443
-Secret: ee658ee8ba38b14db544ee2954023446d0766962652e70726f78796f6e6c696e652e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47929
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: name.nolags.pw
-Port: 443
-Secret: dd287755b048284177f71c965b016b38cc
 @ProxyMTProto
 </div>
 
