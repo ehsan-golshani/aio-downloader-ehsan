@@ -1,8 +1,62 @@
 # آرشیو کانال VahidOOnLine - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/03 09:20
+📅 آخرین بروزرسانی: 1405/06/03 09:59
 
 ---
+
+## VahidOOnLine — post 256636
+
+<div align="center"><img src="files/post_256636_VahidOOnLine_256636.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در گفت‌وگو با کانال ۱۴ اسرائیل، از اقدام جمهوری اسلامی برای ترور فرزندش خبر داد و گفت: «فکر می‌کنم اینجا با چیزی روبه‌رو هستیم که غیرقابل‌قبول است. بله. ایران یکی از پسرهایم را تهدید کرد. ایران تلاش کرد یکی از پسرهایم را پیدا کند و بکشد. تلاش کرد او را پیدا کند.»
+
+نتانیاهو در پاسخ به اینکه آیا این موضوع بر اساس اطلاعاتی بوده که درباره ایران در اختیارش قرار گرفته، توضیح بیشتری نداد و گفت که حفاظت از پسرانش یک امر تجملی نیست. او افزود: «اگر این حفاظت نباشد، آنها به‌سادگی موفق خواهند شد.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256635
+
+<div align="center"><img src="files/post_256635_VahidOOnLine_256635.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مارک کارنی، نخست‌وزیر کانادا، روز دوشنبه دوم شهریور تاکید کرد که دولتش همچنان به دنبال دستیابی به یک توافق تجاری مناسب با ایالات متحده است، اما هشدار داد که اوتاوا «به هر قیمتی» تن به توافق نخواهد داد.
+
+این اظهارات در پی بن‌بست و توقف مذاکرات تجاری میان دو کشور مطرح شد. کارنی با اشاره به تصمیم خود برای ترک میز مذاکره گفت: «هدف ما همواره دست‌یابی به بهترین توافق برای کانادایی‌ها بوده است، نه توافقی به هر قیمت یا در هر چارچوب زمانی.»
+
+در همین حال، دونالد ترامپ با متهم کردن کانادا به سواستفاده از روابط تجاری طی سال‌های گذشته و انتقاد از تعرفه‌های محصولات کشاورزی، تهدید کرد که از سال آینده تعرفه ۵۰ درصدی بر خودروها، قطعات یدکی و فولاد وارداتی از کانادا اعمال خواهد کرد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256634
+
+<div align="center"><video src="files/post_256634_VahidOOnLine_256634.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256634_VahidOOnLine_256634.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در دوشنبه دوم شهریور، آب شرب آلوده را در عظیمیه کرج نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256633
+
+<div align="center"><img src="files/post_256633_VahidOOnLine_256633.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الحدث به نقل از منابع خود گزارش داد که دولت عراق نگران فشارهای آمریکا برای اجرای تحریم‌های اعمال‌شده علیه جمهوری اسلامی از جمله اعمال محدودیت بر گذرگاه‌های مرزی زمینی با ایران و جلوگیری از فرود هواپیماهای ایرانی در فرودگاه‌های این کشور است.
+
+دولت آمریکا از آغاز عملیات بزرگ اقتصادی علیه جمهوری اسلامی از دوشنبه ۲ شهریور ۱۴۰۵ خبر داده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256632
 
@@ -220,60 +274,6 @@ Indypersian
 
 پیش از ادعای حوثی‌ها، سازمان عملیات تجارت دریایی بریتانیا (UKMTO) گزارش داده بود که یک نفتکش در ۶۳ مایل دریایی غرب بندر ینبع هدف اصابت یک پرتابه نامشخص قرار گرفته است. بندر ینبع یکی از پایانه‌های اصلی صادرات نفت عربستان سعودی در دریای سرخ به شمار می‌رود.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256616
-
-<div align="center"><img src="files/post_256616_VahidOOnLine_256616.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حسین محبی، سخنگوی سپاه پاسداران، گفت: «واقعیت میدانی نشان داد که با حذف یا تهدید افراد، خللی در ارکان اداره کشور ایجاد نمی‌شود؛ چرا که نظام اسلامی بر پایه پیوندهای عمیق میان مردم و حاکمیت استوار است، نه بر فرد.»
-
-سخنگوی سپاه گفت که دشمن با هدف قراردادن پایگاه‌های بسیج و پست‌های بازرسی، گمان می‌کرد امنیت خیابان‌ها فرو می‌پاشد، اما حضور نیروهای فراجا و بسیجیان در عرصه‌های عمومی، این سناریو را بلافاصله خنثی کرد.
-
-محبی با اشاره به استمرار تولید موشک‌های هوشمند و هدایت‌پذیر، گفت: «مهم‌ترین دستاورد این جنگ، انتقال آسیب‌پذیری به زیرساخت‌های حیاتی و مراکز وابسته به دشمن بود.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256615
-
-<div align="center"><video src="files/post_256615_VahidOOnLine_256615.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256615_VahidOOnLine_256615.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در خصوص گرانی‌ها در ایران و افزایش شدید قیمت برنج و روغن می‌گوید: «با این گرانی‌ها فقط در تلاشیم زنده بمانیم نه اینکه زندگی کنیم.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256614
-
-<div align="center"><video src="files/post_256614_VahidOOnLine_256614.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256614_VahidOOnLine_256614.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«اگر تحریم‌ها تکراریه چرا فقط گرونتر میشه؟»
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256613
-
-<div align="center"><video src="files/post_256613_VahidOOnLine_256613.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256613_VahidOOnLine_256613.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«برای متل‌قو یک کمربندی بسازید ترافیک نشه»
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

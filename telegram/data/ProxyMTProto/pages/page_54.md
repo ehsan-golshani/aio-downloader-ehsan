@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/06/03 09:21
+📅 آخرین بروزرسانی: 1405/06/03 10:00
 
 ---
+
+## ProxyMTProto — post 49410
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fleethop.online
+Port: 443
+Secret: eed82e9162b09c2ddfdbe3ddfe7d28d87a666c656574686f702e6f6e6c696e65
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49409
 
@@ -167,6 +176,4 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 </div>
 
 ## ProxyMTProto — post 49391
-
-## ProxyMTProto — post 49390
 
