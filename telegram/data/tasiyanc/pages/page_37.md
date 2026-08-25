@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 8667
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨حمله پهپادی سپاه به مواضع کردها در اربیل
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8666
 
@@ -211,13 +219,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇺🇸🇮🇱 مانور مشترک ارتش آمریکا و اسرائیل در صحرای نقب
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8642
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سپاه :
-در بیست‌وهفتمین موج عملیات «نصر ۲»، ساختمان باقی‌ماندهٔ مرکز داده شرکت آمازون که برای پشتیبانی از اطلاعات و عملیات اطلاعاتی ارتش آمریکا مورد استفاده قرار می‌گرفت، هدف قرار گرفت و منهدم شد.
-@TASIYANC ✅
 </div>
 

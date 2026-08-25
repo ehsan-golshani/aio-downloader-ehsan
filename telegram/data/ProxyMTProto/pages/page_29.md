@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/06/03 18:07
+📅 آخرین بروزرسانی: 1405/06/03 18:51
 
 ---
+
+## ProxyMTProto — post 49932
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49931
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: 6997f5.swift-cdn.net
 Port: 443
 Secret: ee77da8983d77f29210da791d3a3ace4ce3639393766352e73776966742d63646e2e6e6574
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49912
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: iran.fourie.co.uk.
-Port: 443
-Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 6691
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Rend ⚡ (1).npvt
+</div>
 
 ## tasiyanc — post 6690
 
@@ -181,11 +187,5 @@ vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=n
 https://ritsatv.ru/mobile-version/movie-id901190-trt1
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6668
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ : حملات امشب لغو کردم
 </div>
 

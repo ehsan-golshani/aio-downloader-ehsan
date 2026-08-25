@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 8753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی  ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ @TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8752
 
@@ -208,15 +236,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 
 ✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8724
-
-<div align="center"><img src="files/post_8724_tasiyanc_8724.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹20 ابزار کاربردی عالی برای دانشجویان 😐
-
-@TASIYANC ✅
 </div>
 

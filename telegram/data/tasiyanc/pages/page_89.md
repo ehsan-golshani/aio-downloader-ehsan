@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 6832
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ مخصوص روبیکا
+گیگی ۵۰۰ بدون قطعی🤣🤣🤣
+</div>
 
 ## tasiyanc — post 6826
 
@@ -221,11 +228,5 @@ Vahid online
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴🆕 حملات سایبری به زیرساخت های تمام بانکای کشور کارت و خدمات اغلب بانک ها از دسترس خارج شده است
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6799
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز فروش به احتمال زیاد باز شه ، آیپی ثابتن سرورا 🦦
 </div>
 

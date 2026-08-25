@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 7632
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهنمو ضرر ، رو برد کیپ ورد بستم
+</div>
 
 ## tasiyanc — post 7630
 
@@ -150,12 +156,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عرزشی لف بده تو چنل تاسیان نباشید
-</div>
-
-## tasiyanc — post 7601
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Saiedmusics
-برم رو مادرش یا نه؟ آیدیشو گذاشتم یه اکیپ دارم دارن کل پیامای تلگرامشو درمیارن به کل چنل ناموسی داده ببینم چیکار میکنین
 </div>
 

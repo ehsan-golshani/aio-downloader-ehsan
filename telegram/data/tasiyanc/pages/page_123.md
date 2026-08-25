@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 123
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 5884
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید قبول کنیم نپستر سرعتش بیشتره از اوپنه ، زمان اتصالش سریعه و کلی موارد دیگه
+سرور ovpn شلوغ باشه ارور متعدد روبرو میشید و و و
+</div>
 
 ## tasiyanc — post 5883
 
@@ -187,11 +194,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کالافو اپدیت کردم دمت گرم
-</div>
-
-## tasiyanc — post 5858
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیهههه خدا خیرتون بده
 </div>
 

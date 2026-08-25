@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 9473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
 
 ## tasiyanc — post 9472
 
@@ -373,18 +386,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
 
 📚 آموزش کامل سایت👉
-</div>
-
-## tasiyanc — post 9447
-
-<div align="center"><video src="files/post_9447_tasiyanc_9447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9447_tasiyanc_9447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مزاحم یک دختر توی تبریز، به سطل زباله انداخته شد!
-توی تبریز کسبه و مردم وقتی میبینن یه بچه داره واسه یه دختر مزاحمت ایجاد میکنه میریزن سرش دل سیر کتکش میزنن بعدشم میندازنش تو سطل زیاله.
-
-@Tasiyanc ⭐️
 </div>
 

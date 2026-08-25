@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 9592
+
+<div align="center"><img src="files/post_9592_tasiyanc_9592.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨عمق فاجعه برا یه کشور : این کاغذ ۱۱۷ میلیون تومان !
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9591
 
@@ -21,8 +32,6 @@ vmess://eyJhZGQiOiI4Mi4xOTguMjQ2LjM3IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 
 ## tasiyanc — post 9589
 
-<div align="center"><a href="files/post_9589_@Tasiyanc 01 ⚡.nm.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 01 ⚡.nm</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
 
@@ -36,8 +45,6 @@ vmess://eyJhZGQiOiI4Mi4xOTguMjQ2LjM3IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 </div>
 
 ## tasiyanc — post 9586
-
-<div align="center"><a href="files/post_9586_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
@@ -304,15 +311,5 @@ sa2
 + مشاهده بدون سانسور 👉
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9562
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 8610
+
+<div align="center"><video src="files/post_8610_tasiyanc_8610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8610_tasiyanc_8610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺عجیب ترین زبان جهان 🌍
+
+قبیلهٔ Kawelka در ارتفاعات پاپوا گینهٔ نو به سبک بیان پرقدرت و پرهیجانشان شناخته میشوند. گفتارشان برای بسیاری از غریبه ها شبیه فریاد یا مشاجره به نظر میرسد
+حتی وقتی فاصلهای بین افراد نیست.
+Fact @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8609
 
@@ -212,11 +226,5 @@ Fact @TASIYANC ✅
 🔺دریافت پرامپت 👉
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر وقت ایرانیا فهمیدن عادل فرقی با میساقی نداره بازیو بردن
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 8293
+
+<div align="center"><img src="files/post_8293_tasiyanc_8293.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری
+
+سنتکام از آغاز موج جدید حملات به ایران برای هفتمین شب متوالی خبر داد
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8291
 
@@ -147,13 +160,5 @@ JAVID SHAH 👑
 🚨گزارش از چهار انفجار وحشتناک در بندرعباس
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8271
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 حملات سپاه به اقلیم کردستان عراق
-
-@Tasiyanc ✅
 </div>
 

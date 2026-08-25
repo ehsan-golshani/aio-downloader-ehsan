@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 8724
+
+<div align="center"><img src="files/post_8724_tasiyanc_8724.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹20 ابزار کاربردی عالی برای دانشجویان 😐
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8723
 
@@ -244,11 +254,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 @TasiyanInfo
 
 امیدوارم روز های خوبی همواره شاد و خوب در انتظار تمام هموطنان عزیزم باشد 💖 عاشقتونم 💋
-</div>
-
-## tasiyanc — post 8695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب هم خاورمیانه آرومه
 </div>
 

@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 9497
+
+<div align="center"><img src="files/post_9497_tasiyanc_9497.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ده تا از بهترین سریال های جهان که قبل مرگتون باید ببینید !
+
+سایت پیشنهادی برای تماشا و دانلود بدون سانسور
+
+https://www.novigrad.top
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9495
 
@@ -422,18 +437,5 @@ DNS 3⚡️
 لینک DNS Changer اندروید
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
 </div>
 

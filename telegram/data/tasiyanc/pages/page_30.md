@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 8862
+
+<div align="center"><img src="files/post_8862_tasiyanc_8862.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 تعویض پس زمینه و بالابردن کیفیت عکس
+( حرفه ای و طبیعی)
+
+Prompt
+Replace the background with a realistic environment while preserving the original subject, lighting, shadows, reflections and perspective. Blend everything naturally for a seamless result.
+﻿
+آموزش استفاده از پرامپت 
+👉
+
+
+✈️@TASIYANC 💠
+</div>
 
 ## tasiyanc — post 8861
 
@@ -262,18 +280,5 @@ R8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ برا ویندوز بزارم ؟
-</div>
-
-## tasiyanc — post 8838
-
-<div align="center"><video src="files/post_8838_tasiyanc_8838.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8838_tasiyanc_8838.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سنای آمریکا با ۵۰ رأی مخالف در برابر ۴۹ رأی موافق
-طرح محدود کردن اختیارات ترامپ برای اقدام نظامی علیه ایران رو رد کرد
-
-✈️@TASIYANC ⭐️
 </div>
 

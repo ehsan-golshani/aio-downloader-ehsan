@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/03 18:09
+📅 آخرین بروزرسانی: 1405/06/03 18:53
 
 ---
+
+## tasiyanc — post 9351
+
+<div align="center"><img src="files/post_9351_tasiyanc_9351.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سرزمین های جدا شده از ایران عزیز در ۵۰۰ سال گذشته !
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9350
 
@@ -246,11 +256,5 @@ a24
 ‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
 https://t.me/+F1CivZlkxrgzMTM0
 https://t.me/+F1CivZlkxrgzMTM0
-</div>
-
-## tasiyanc — post 9329
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختر توپُر & اسکینی ؟ پسر توپُر & سیکس پک ؟ کامنت
 </div>
 
