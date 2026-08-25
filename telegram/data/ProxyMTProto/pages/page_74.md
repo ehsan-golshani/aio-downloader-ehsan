@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/06/03 20:42
+📅 آخرین بروزرسانی: 1405/06/03 21:25
 
 ---
+
+## ProxyMTProto — post 49027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: adieu.shmelproxy.top
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49026
 
@@ -172,15 +181,6 @@ Secret: eeae941a76ec4acf04faabaf8a24571080676174652e6b6c79756368316b2e6f7267
 Server: Best.Ping.ir.hdhdhfdrde.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49007
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: aa027d01.koshkaproxy.shop
-Port: 443
-Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
 @ProxyMTProto
 </div>
 

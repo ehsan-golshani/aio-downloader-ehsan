@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/06/03 20:42
+📅 آخرین بروزرسانی: 1405/06/03 21:25
 
 ---
+
+## ProxyMTProto — post 48185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: go.antitspu.com
+Port: 443
+Secret: ee31d386ef7e695ee39f4f28ecfbd28a37676f2e616e7469747370752e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48184
 
@@ -172,15 +181,6 @@ Secret: ee543c9faea80baa5803188629f133cfc5617669746f2e7275
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48165
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: get.utkanos.life
-Port: 443
-Secret: ee9657c0f5d3500ab1649000fcd8a0ad816765742e75746b616e6f732e6c696665
 @ProxyMTProto
 </div>
 

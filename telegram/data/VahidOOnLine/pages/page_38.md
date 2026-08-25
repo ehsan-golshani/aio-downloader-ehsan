@@ -1,8 +1,69 @@
 # آرشیو کانال VahidOOnLine - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/06/03 20:42
+📅 آخرین بروزرسانی: 1405/06/03 21:25
 
 ---
+
+## VahidOOnLine — post 255996
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک کاربر ایرانی در اینستاگرام به نام حمید شبانی، با انتشار ویدیویی می‌گوید او و همراهانش در مسیر بازگشت از سفر مشهد در محور قم به گرمسار، یک کره‌اسب گرفتار در باتلاق را نجات داده‌اند.
+
+به گفته این کاربر، آن‌ها در حین رانندگی در جاده متوجه حضور گله‌ای از اسب‌ها و شترها در حاشیه منطقه نمک‌زار و نیزارها شدند و پس از توقف و رفتن به پشت تپه‌های خاکی، متوجه شدند کره‌اسبی در میان لجنزار و باتلاق گیر افتاده است.
+
+او می‌گوید بر اساس وضعیت حیوان، به نظر می‌رسید کره‌اسب حدود دو تا سه روز در گل‌ولای گرفتار بوده و اسب مادر در تمام این مدت در کنار فرزندش ایستاده و او را ترک نکرده است.
+در نهایت یکی از سرنشینان وارد باتلاق شده، کره‌اسب را بیرون کشیده و به مادرش بازگردانده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255989
+
+<div align="center"><video src="files/post_255989_VahidOOnLine_255989.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255989_VahidOOnLine_255989.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار ایران در رسانه‌های جهان، پنجشنبه ۲۹ مرداد ۱۴۰۵
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255988
+
+<div align="center"><video src="files/post_255988_VahidOOnLine_255988.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255988_VahidOOnLine_255988.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد پدر جاویدنام محسن عباسی بر فراز قله دماوند در سوگ فرزندش اشک ریخت و یاد او را گرامی داشت.
+
+این جاویدنام ۱۸ دی ۱۴۰۴ در اعتراضات نجف‌آباد اصفهان، به‌دست ماموران جمهوری اسلامی در سن ۲۱ سالگی کشته شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255987
+
+<div align="center"><video src="files/post_255987_VahidOOnLine_255987.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255987_VahidOOnLine_255987.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️خبرگزاری فارس از مهار یک آتش‌سوزی در پالایشگاه تهران خبر داد
+
+♦️خبرگزاری فارس با انتشار تصاویری گزارش کرد، دو تانکر حمل و بارگیری فرآورده‌های نفتی صبح پنجشنبه ۲۹ مرداد در محوطه بارگیری پالایشگاه نفت تهران دچار آتش‌سوزی شدند اما این حریق مهار شده است.
+
+به گزارش خبرگزاری فارس، تانکرهای حادثه‌دیده حامل نفت سفید بودند و آتش‌سوزی در محل بارگیری رخ داده است. روابط عمومی پالایشگاه نفت تهران اعلام کرد واحدهای عملیاتی پالایشگاه آسیبی ندیده‌اند، روند تولید بدون اختلال ادامه دارد و فعالیت بخش‌های اصلی پالایشگاه با مشکل روبه‌رو نشده است.
+
+شروین تبریزی، روابط عمومی اورژانس تهران، نیز با اشاره به دود غلیظی که در جنوب تهران و آسمان باقرشهر دیده شد، گفت بر اساس گزارش‌های اولیه تاکنون یک نفر در این حادثه مصدوم شده که مصدومیت او مورد خاصی نبوده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255986
 
@@ -257,57 +318,6 @@ Indypersian
 میزان همچنین مدعی شده است که او پس از کشته شدن یکی از نیروهای انتظامی، با لگد به پیکر این فرد ضربه زده است.
 پیشتر از این، چهار معترض ایرانی به نام‌های عرفان اسفندیاری، گل‌محمد محمدی، امیرحسین صفری و ابوالفضل سپاهی در رابطه با پرونده میدان علیخانی اصفهان اعدام شده‌اند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255969
-
-<div align="center"><img src="files/post_255969_VahidOOnLine_255969.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس عراقچی، وزیر خارجه جمهوری اسلامی، پنج‌شنبه ۲۹ مرداد در واکنش به اظهارات دونالد ترامپ، رییس‌جمهوری آمریکا، در شبکه ایکس نوشت تهدید به شروع عملیات اقتصادی علیه علیه جمهوری اسلامی، برای انحراف افکار عمومی آمریکا «از بحران‌های مالی داخلی، از جمله بدهی بی‌سابقه و افزایش شدید هزینه‌های بهره است.»
-
-وزیر خارجه جمهوری اسلام همچنین نوشت که «تروریسم اقتصادی آمریکا» اقتصاد جهانی و حاکمیت کشورها در سراسر جهان را تهدید می‌کند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255968
-
-<div align="center"><video src="files/post_255968_VahidOOnLine_255968.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255968_VahidOOnLine_255968.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، گفت واشینگتن همچنان گزینه‌های زیادی برای اعمال تحریم‌های سنگین علیه جمهوری‌اسلامی در اختیار دارد و محاصره دریایی را «صددرصد موفق» توصیف کرد.
-او افزود تنگه هرمز در حال حاضر باز است و کشتی‌های زیادی از آن عبور می‌کنند.
-ترامپ همچنین گفت با پیدا شدن مسیرها و گزینه‌های جایگزین، تنگه هرمز ممکن است دیگر اهمیت گذشته را نداشته باشد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255967
-
-<div align="center"><img src="files/post_255967_VahidOOnLine_255967.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
-</div>
-
-## VahidOOnLine — post 255966
-
-<div align="center"><video src="files/post_255966_VahidOOnLine_255966.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255966_VahidOOnLine_255966.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، درباره احتمال مذاکره با جمهوری‌اسلامی گفت: «شاید در مقطعی مذاکره کنیم، اما الان فکر می‌کنم وضعیت خیلی خوب است.»
-
-او افزود: «موضوع خیلی ساده است؛ جمهوری‌اسلامی نمی‌تواند سلاح هسته‌ای داشته باشد و نخواهد داشت.»
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

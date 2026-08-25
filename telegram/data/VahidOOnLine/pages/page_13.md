@@ -1,8 +1,68 @@
 # آرشیو کانال VahidOOnLine - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/03 20:42
+📅 آخرین بروزرسانی: 1405/06/03 21:25
 
 ---
+
+## VahidOOnLine — post 256560
+
+<div align="center"><img src="files/post_256560_VahidOOnLine_256560.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس جمهوری ایالات متحده روز دوشنبه دوم شهریور مقاله نیوز مکس درباره سخنان هفته گذشته محمدباقر قالیباف در عراق را بازنشر کرد.
+
+رئیس مجلس و عضو ارشد هیات مذاکره‌کننده جمهوری اسلامی ایران، هفته گذشته در جریان سخنرانی در جمع فعالان اقتصادی ایرانی و عراقی گفته بود آمریکا در جنگ نظامی شکست خورده است و حالا به سراغ جنگ اقتصادی و شناختی رفته است. اگر در میدان اقتصادی قوی نباشیم، شکست خواهیم خورد.
+
+ترامپ این مقاله را در آستانه اعمال تحریم‌های بی‌سابقه علیه ایران بازنشر کرده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256559
+
+<div align="center"><img src="files/post_256559_VahidOOnLine_256559.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری رویترز به نقل از چند مقام پاکستانی اعلام کرد عاصم منیر، فرمانده ارتش پاکستان، هفته گذشته و پیش از سفر به تهران، با دونالد ترامپ تلفنی گفت‌وگو کرده است.
+
+سه منبع پاکستانی در گفت‌وگو با رویترز تاکید کردند این تماس چند روز پیش از آن انجام شد که انتظار می‌رفت منیر دوشنبه برای گفت‌وگو با مقام‌های جمهوری اسلامی به تهران سفر کند.
+
+به گزارش رویترز، این تماس که پیش از این گزارش نشده بود، در شرایطی انجام شد که آمریکا اعلام کرده است تحریم‌های اقتصادی گسترده‌ای را علیه جمهوری اسلامی و شرکای تجاری آن اعمال خواهد کرد.
+
+در این گزارش همچنین آمده است انتظار می‌رود فرمانده ارتش پاکستان، دوشنبه با افرادی نزدیک به مجتبی خامنه‌ای، دیدار کند.
+
+رویترز نوشت تنش‌های میان آمریکا و جمهوری اسلامی یکی از محورهای مورد انتظار در این سفر عنوان شده است.
+
+یک منبع دیگر در دولت پاکستان نیز گفت: «منیر همچنین قرار است درباره حملات اخیر حوثی‌های وابسته به جمهوری اسلامی به عربستان سعودی، متحد پاکستان، گفت‌وگو کند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256556
+
+<div align="center"><img src="files/post_256556_VahidOOnLine_256556.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار ایران در رسانه‌های جهان: دوشنبه ۲ شهریور ۱۴۰۵
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256555
+
+<div align="center"><video src="files/post_256555_VahidOOnLine_256555.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256555_VahidOOnLine_256555.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از شهروندان با ارسال ویدیویی به ایران‌اینترنشنال از قطع مداوم برق در شهرستان الشتر استان لرستان می‌گوید.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256554
 
@@ -241,71 +301,6 @@ IranintlTV
 
 کایل کرک‌وود، راننده آمریکایی تیم «آندراتی گلوبال» با پیروزی در نخستین دوره از این مسابقات برد خاطره‌انگیزی را به هواداران هم‌وطن خود هدیه داد.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256538
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🗣روایت شما از شرایط زندگی و بحران اقتصادی- دوشنبه دوم شهریور:
-
-🔹از اول شهریور خیلی آرام و چراغ خاموش قیمت نان را ۳۰ درصد اضافه کردن، صدای کسی هم درنمیاد.
-
-🔹شرکت واحد تهران گازوییل نداره روزی ۳۰۰ نفر راننده بیکار می‌شینن و ماشین نیست کار کنن چون گازوییل ندارن.
-
-🔹انتخاب واحد شروع شده؛ شهریه ثابت دانشگاه آزاد شده ۱۸ میلیون تومان. مثل اینکه از دانشجوها غرامت جنگی می‌گیرن تو این شرایط.
-
-🔹از شهرکرد پیام می‌دم. به‌خاطر کمبود بنزین، داخل بنزین متانول می‌ریزن که بی‌نهایت به موتور آسیب می‌زنه.
-
-🔹در شهر مشهد بنزین آزاد نمی‌دن. صف بنزین خیلی طولانی شده. برای ۱۰ لیتر بنزین ۲ ساعت باید معطل بشیم. کارت سوخت نداشته باشیم بنزین هم نمی‌دن.
-
-🔹از گوهردشت پیام می‌دم. موضوع بنزین از صف‌های طولانی گذشته. امروز برای بنزین به سه جایگاه مراجعه کردم که هر سه تعطیل بودند.
-
-🔹به‌خدا با ماهی ۲۰–۳۰ میلیون تومن دیگه نمی‌تونیم زندگی کنیم؛ دلار ۲۰۰ تومن شده، آب و برق، پوشاک و خرج زندگی هر روز گرون‌تر می‌شه.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256537
-
-<div align="center"><video src="files/post_256537_VahidOOnLine_256537.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256537_VahidOOnLine_256537.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محسن حاجی میرزایی، رئیس دفتر مسعود پزشکیان روز دوشنبه دوم شهریور به خبرنگاران گفت سهمیه بنزین قطغا کاهش خواهد یافت اما هنوز درباره قیمت جدید، تردیدهایی وجود دارد.
-
-دولت پزشکیان اعلام کرده که با توجه به جنگ و تحریم، تولید بنزین کاهش پیدا کرده و راهی جز افزایش قیمت یا کاهش سهیمه‌بندی برای کنترل مصرف وجود ندارد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256536
-
-<div align="center"><video src="files/post_256536_VahidOOnLine_256536.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256536_VahidOOnLine_256536.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، از قطع طولانی‌مدت برق و آب در طرقبه استان خراسان رضوی خبر می‌دهد و می‌گوید: «زندگی را برای مردم جهنم کرده‌اند.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256535
-
-<div align="center"><video src="files/post_256535_VahidOOnLine_256535.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256535_VahidOOnLine_256535.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال، غبار روبی مزار ستار بهشتی، معترض کشته‌شده را در سالروز تولد او نشان می‌دهد.
-﻿ستار بهشتی، وبلاگ‌نویسی بود که ۱۳ آبان ۱۳۹۱ به دلیل نوشته‌هایش به دست ماموران جمهوری اسلامی کشته شد.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>
