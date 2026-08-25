@@ -1,8 +1,27 @@
 # آرشیو کانال VahidOOnLine - صفحه 169
 
-📅 آخرین بروزرسانی: 1405/06/03 07:47
+📅 آخرین بروزرسانی: 1405/06/03 08:37
 
 ---
+
+## VahidOOnLine — post 252648
+
+<div align="center"><video src="files/post_252648_VahidOOnLine_252648.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252648_VahidOOnLine_252648.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مروری بر مهم‌ترین اخبار و تحلیل‌های رسانه‌های جهان درباره ایران در چهارشنبه ۷ مرداد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252645
+
+<div align="center"><video src="files/post_252645_VahidOOnLine_252645.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252645_VahidOOnLine_252645.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 ## VahidOOnLine — post 252644
 
@@ -265,34 +284,6 @@
 
 تالاب هورالعظیم در سال‌های گذشته و همزمان با گسترش خشکسالی، یکی از منابع گسترش ریزگردها در آسمان استان‌های غربی و جنوبی ایران بوده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252621
-
-<div align="center"><img src="files/post_252621_VahidOOnLine_252621.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدجواد اشرفی، مدیرکل حفاظت محیط زیست خوزستان، اعلام کرد آتش‌سوزی در بخش ایرانی تالاب هورالعظیم همچنان ادامه دارد، هرچند «بخش‌های عمده» حریق در قسمت شمالی تالاب مهار شده است.
-
-به گزارش خبرگزاری ایرنا، آتش‌سوزی از روز سه‌شنبه در بخشی از تالاب آغاز شد و عملیات مهار آن در سایر مناطق ادامه دارد.
-
-اشرفی گفت علت دقیق آتش‌سوزی هنوز مشخص نیست، اما بر اساس شواهد اولیه، احتمال می‌رود این حریق «منشا انسانی و عمدی» داشته باشد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252611
-
-<div align="center"><video src="files/post_252611_VahidOOnLine_252611.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252611_VahidOOnLine_252611.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فایننشال تایمز: امارات در حال احیای روابط اقتصادی با ایران است، اما هم‌زمان همکاری دفاعی خود با آمریکا و اسرائیل را گسترش می‌دهد. راهبردی پرریسک برای حفظ امنیت و رونق اقتصادی در میانه جنگ.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

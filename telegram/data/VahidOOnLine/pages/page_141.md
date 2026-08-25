@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 141
 
-📅 آخرین بروزرسانی: 1405/06/03 07:47
+📅 آخرین بروزرسانی: 1405/06/03 08:37
 
 ---
+
+## VahidOOnLine — post 253365
+
+<div align="center"><video src="files/post_253365_VahidOOnLine_253365.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253365_VahidOOnLine_253365.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای منتشرشده مراسم خاکسپاری آروین خیرخواهان، معترض اعدام‌شده را در شاهرود نشان می‌دهد.
+﻿آروین خیرخواهان، از بازداشت‌شدگان اعتراضات دی ۱۴۰۴، شنبه ۱۰ مرداد در زندان شاهرود اعدام شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253364
+
+<div align="center"><video src="files/post_253364_VahidOOnLine_253364.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253364_VahidOOnLine_253364.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️احمدرضا رادان، فرمانده کل نیروی انتظامی جمهوری اسلامی، با بیان جزییاتی تازه از حمله به جلسه شورای دفاع در ۹ اسفند ۱۴۰۴ گفت به دلیل بروز مشکلی نتوانست در این نشست شرکت کند و غلامرضا رضاییان، رئیس سازمان اطلاعات فراجا، به نمایندگی از او در جلسه حاضر شد و در جریان حمله کشته شد.
+حمله به این جلسه، یکی از مهم‌ترین رویدادهای جنگ ۹ اسفند ۱۴۰۴ بود؛ نشستی که شماری از عالی‌ترین مقام‌های سیاسی، نظامی و امنیتی جمهوری اسلامی در آن حضور داشتند و هدف حمله قرار گرفت. همچنین علی خامنه‌ای، رهبر جمهوری اسلامی نیز در حملات همان روز جان باخت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253363
 
@@ -282,32 +310,6 @@
 
 ابن الرضا که هنوز از مجلس رای اعتماد نگرفته و همچنان سرپرستی وزارت دفاع را بر عهده دارد در همین پیام نوشت: «اظهارات اخیر دشمن، هرچند در بستر عملیات روانی و جنگ محاسباتی مطرح می‌شود، اما از نگاه ما هر تهدیدی، یک تهدید واقعی و قابل اعتناست.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253337
-
-<div align="center"><video src="files/post_253337_VahidOOnLine_253337.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253337_VahidOOnLine_253337.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان ساکن آلمان شنبه ۱۰ مرداد در شهر فرانکفورت تجمع کردند و با اعتراض به اعدام‌های جمهوری اسلامی شعار دادند: «با اینکه دوریم از وطن، پشت شماییم هموطن»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253336
-
-<div align="center"><img src="files/post_253336_VahidOOnLine_253336.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجید ابن‌الرضا، سرپرست وزارت دفاع جمهوری اسلامی، در ایکس نوشت: «اظهارات اخیر دشمن، هرچند در بستر عملیات روانی و جنگ محاسباتی مطرح می‌شود، اما از نگاه ما هر تهدیدی، یک تهدید واقعی و قابل اعتناست.»
-
-او نوشت: «نه غافلگیر می‌شویم و نه منفعل؛ تهدید را مبنای افزایش آمادگی، تقویت بازدارندگی و ارتقای قدرت خود قرار می‌دهیم.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

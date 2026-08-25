@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 133
 
-📅 آخرین بروزرسانی: 1405/06/03 00:21
+📅 آخرین بروزرسانی: 1405/06/03 08:38
 
 ---
+
+## ProxyMTProto — post 47820
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 89.125.49.250
+Port: 443
+Secret: eeb40eda3c7b6561f0ef22eb54b49eacf477622e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47819
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 61016
+Secret: 7nnnAQIAAQAH8AMDhuJMOt0%3D
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47818
 
@@ -163,24 +181,6 @@ Secret: ee0f8e5e42ea0dd0f9639d851090e69760617669746f2e7275
 Server: euufo1o5.helper.website
 Port: 443
 Secret: eebb62e9f3ae0f40aa25a70c150f6d68d3636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47800
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rapid.flowstreamhub.site
-Port: 8443
-Secret: ee10a576008fd642b6e0427f9b2b22447f72617069642e666c6f7773747265616d6875622e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47799
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: some.nolags.pw
-Port: 443
-Secret: ddc63eab2c309e7915a09622cedc7c9a7d
 @ProxyMTProto
 </div>
 

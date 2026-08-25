@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 143
 
-📅 آخرین بروزرسانی: 1405/06/03 00:21
+📅 آخرین بروزرسانی: 1405/06/03 08:38
 
 ---
+
+## ProxyMTProto — post 47620
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: r6.proxytg.space
+Port: 8443
+Secret: eea66a6c939a8f1a0596bd06f17dae253772362e70726f787974672e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47619
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tproxy.ink
+Port: 443
+Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47618
 
@@ -165,28 +183,5 @@ Server: 72.56.41.35
 Port: 443
 Secret: 7sEXmKsAiDG0dAZsnh6_XINhdml0by5ydQ
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tproxy.mom
-Port: 8090
-Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47599
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Telegram опять еле дышит?
-
-BLYATNET фиксит это за минуту ⚡
-
-🚀 Быстрые MTProxy и VPN
-🛡 Стабильный доступ без мусора
-🌍 Серверы по всему миру
-
-💫 От 5 ⭐ — дешевле чем стикер 👇
 </div>
 

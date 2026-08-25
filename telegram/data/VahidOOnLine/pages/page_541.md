@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 541
 
-📅 آخرین بروزرسانی: 1405/06/03 07:47
+📅 آخرین بروزرسانی: 1405/06/03 08:37
 
 ---
+
+## VahidOOnLine — post 243435
+
+<div align="center"><video src="files/post_243435_VahidOOnLine_243435.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243435_VahidOOnLine_243435.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاهش قیمت بنزین در آمریکا فقط یک خبر اقتصادی نیست، می‌تواند نشانه‌ای از امید بازارها به کاهش تنش و ادامه مذاکرات باشد.
+
+اما در حالی که واشنگتن ممکن است برای حفظ ثبات بازار انرژی انگیزه بیشتری پیدا کرده باشد، تجربه چهار دهه گذشته نشان می‌دهد جمهوری اسلامی بارها فرصت‌های کاهش بحران را از بین برده است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243434
+
+<div align="center"><video src="files/post_243434_VahidOOnLine_243434.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243434_VahidOOnLine_243434.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️بزرگ‌ترین گروه کشتیرانی جهان، ام‌اس‌سی (MSC)، اعلام کرد که کشتی باری «ساریسکا ۵» متعلق به این شرکت، روز دوشنبه در بندر ام‌قصر عراق در خلیج فارس هدف اصابت دو پرتابه قرار گرفته و دچار آتش‌سوزی شده است، اما تمامی خدمه آن «در سلامت کامل» هستند. رویترز با انتشار تصاویری جدید از این کشتی گزارش داد، در حالی که شرکت ام‌اس‌سی این حادثه را یک «حمله بی‌دلیل» به یک شناور تجاری بی‌طرف و بدون هیچ‌گونه وابستگی به آمریکا یا اسرائیل توصیف کرده، رسانه‌های دولتی ایران گزارش دادند که سپاه پاسداران با پذیرش مسئولیت این اقدام، اعلام کرده است که این کشتی را با یک موشک کروز و در «اقدامی تلافی‌جویانه» در پاسخ به حمله قبلی به یک کشتی ایرانی هدف قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243433
 
@@ -234,32 +262,6 @@
 
 گزارش‌ها حاکی از آن است که نوبیتکس حتی در زمان قطعی اینترنت و پس از آغاز عملیات نظامی آمریکا در ایران، به جابه‌جایی دارایی‌ها برای محافظت از ثروت رژیم کمک کرده است.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243410
-
-<div align="center"><video src="files/post_243410_VahidOOnLine_243410.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243410_VahidOOnLine_243410.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان سه‌شنبه ۱۲ خرداد در اعتراض به اعدام‌های جمهوری اسلامی و در حمایت از شاهزاده رضا پهلوی در شهر هانوفر تجمع کردند و تصاویر اعدام‌شدگان و جاویدنامان را به دست گرفتند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243409
-
-<div align="center"><video src="files/post_243409_VahidOOnLine_243409.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243409_VahidOOnLine_243409.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهایی که به تازگی به ایران اینترنشنال رسیده صحنه‌هایی از درگیری ماموران حکومت با مردم معترض در گوهردشت کرج در ۱۸ دی‌ماه را نشان می‌دهد. در این صحنه ماموران اقدام به تیراندازی می کنند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
