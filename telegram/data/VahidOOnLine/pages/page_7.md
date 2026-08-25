@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/04 02:50
+📅 آخرین بروزرسانی: 1405/06/04 03:24
 
 ---
+
+## VahidOOnLine — post 256737
+
+<div align="center"><video src="files/post_256737_VahidOOnLine_256737.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256737_VahidOOnLine_256737.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال سکه یک یورویی را در برابر اسکناس دو میلیون ریالی نشان می‌دهد و با طعنه می‌گوید: «این هم دستاورد رژیم جمهوری اسلامی بعد از سال‌ها حکومت.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256736
+
+<div align="center"><img src="files/post_256736_VahidOOnLine_256736.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاون امور دانشجویی دانشگاه صنعتی شریف (آریامهر) روز سه‌شنبه سوم شهریورماه اعلام کرد  برای۶ تن از دانشجویان این دانشگاه به‌‌جرم مشارکت در اعتراضات اسفندماه سال گذشته، حکم اخراج صادر شده است.
+
+به گزارش خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، این مقام وزارت علوم گفت: «۲۳۶ دانشجو به شورای انضباطی معرفی شدند که برای ۱۱۵ نفر، به‌دلیل وجود مستندات کافی پرونده تشکیل شد.»
+
+فعالیت نیمسال دوم تحصیلی دانشگاه‌های ایران سال گذشته و پس از سرکوب خونین انقلاب ملی ایرانیان در ۱۸ و ۱۹ دی‌ماه متوقف شد. پس از بازگشایی دانشگاه‌ها در هفته اول اسفندماه، تجمعات گسترده‌ای در دانشگاه‌ها علیه حکومت و به‌خصوص شخص علی خامنه‌ای، رهبر پیشین جمهوری اسلامی برگزار شد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256735
 
@@ -271,30 +299,6 @@ Indypersian
 🔹ما روزی ۵ ساعت آب نداریم و ۲ ساعت هم برق قطع است که باز هم موجب قطعی آب می‌شود؛ یعنی روزی ۷ ساعت آب نداریم. لعنت به جمهوری اسلامی.
 
 🔹حق من نیست که مملکتم این‌همه منابع غنی، طلا و نفت داشته باشه، ولی برای خرید یه موتور چرت‌وپرت چینی به صد نفر رو بزنم و وام بگیرم.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256717
-
-<div align="center"><img src="files/post_256717_VahidOOnLine_256717.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مهدی چمران، رئیس شورای شهر تهران، روز سه‌شنبه سوم شهریور در جلسه علنی شورای شهر، درباره احتمال حمله مجدد به ایران گفت جمهوری اسلامی در صورت حمله دوباره، منتظر اقدام دشمن نخواهد ماند و «ما پیش‌دستی کرده و به آن‌ها حمله می‌کنیم.»
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256716
-
-<div align="center"><video src="files/post_256716_VahidOOnLine_256716.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256716_VahidOOnLine_256716.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد با اینکه جایگاه سوخت گوهردشت کرج چراغ‌ها را خاموش کرده و تعطیل است، خودروها برای دریافت بنزین مقابل این جایگاه صف بسته‌اند.
 IranintlTV
 
 🤖 @VahidOOnLine

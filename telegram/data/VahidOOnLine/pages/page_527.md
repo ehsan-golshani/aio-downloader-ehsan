@@ -1,8 +1,37 @@
 # آرشیو کانال VahidOOnLine - صفحه 527
 
-📅 آخرین بروزرسانی: 1405/06/04 02:50
+📅 آخرین بروزرسانی: 1405/06/04 03:24
 
 ---
+
+## VahidOOnLine — post 243965
+
+<div align="center"><video src="files/post_243965_VahidOOnLine_243965.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243965_VahidOOnLine_243965.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️در پی حمله موشکی به ساختمان استانداری اصفهان در روز۱۸ اسفندماه بخش‌هایی از مجموعه تاریخی کاخ چهلستون دچار آسیب شده است.
+ویدیوی منتشرشده از دوربین‌های مدار بسته محوطه بیرونی کاخ، لحظه تخریب ناشی از موج انفجار را در این مجموعه نشان می‌دهد؛ تصاویری که شدت آسیب واردشده به این بنای تاریخی را به‌خوبی نمایان می‌کند.
+بر اساس گزارش‌ها، در این حادثه بخش‌هایی از آینه‌کاری‌ها، درها و پنجره‌های چوبی کاخ چهلستون آسیب دیده و موج انفجار به سایر بناهای تاریخی اطراف از جمله عمارت رکیب‌خانه و تالار اشرف نیز خسارت وارد کرده است.
+گفته می‌شود بخشی از تزئینات معماری دوره صفوی در این مجموعه تاریخی در اثر این انفجار آسیب دیده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243964
+
+<div align="center"><video src="files/post_243964_VahidOOnLine_243964.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_243964_VahidOOnLine_243964.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز شنبه دانش‌آموزان معترض در مقابل شورای عالی انقلاب فرهنگی خطاب به دبیر این نهاد فریاد زدند «خسرو بیا پایین» تا به پاسخگویی به آن‌ها بپردازد. آن‌ها به مصوبه تاثیر معدل پایه یازدهم در کنکور معترض هستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 243963
 
@@ -270,32 +299,6 @@
 طراحی داخلی موزه نیز بر پایه بازی نور، آینه و جلوه‌های بصری شکل گرفته و فضایی تعاملی ایجاد کرده است که تجربه بازدید را از یک موزه تاریخی فراتر می‌برد و آن را به سفری حسی و هنری تبدیل می‌کند. بسیاری از آثار و فضاهای موزه با الهام از نقش نور در معماری ایرانی و هنر آینه‌کاری طراحی شده‌اند و بازتابی از پیوند دیرینه نور با فرهنگ این سرزمین هستند.
 این تصاویر را مجید دهقانی‌زاده ثبت کرده و در خبرگزاری مهر منتشر شده‌اند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243945
-
-<div align="center"><video src="files/post_243945_VahidOOnLine_243945.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243945_VahidOOnLine_243945.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان در استان لرستان روز شنبه همزمان با سایر استان‌ها مقابل اداره‌کل آموزش و پرورش استان تجمع کرده و به شیوه برگزاری امتحانات و تاثیر معدل در کنکور اعتراض کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 243944
-
-<div align="center"><video src="files/post_243944_VahidOOnLine_243944.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_243944_VahidOOnLine_243944.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با گسترش سراسری اعتراضات دانش‌آموزی، محصلان استان خراسان رضوی روز شنبه ۱۶ خرداد در مشهد با تجمع مقابل اداره‌کل آموزش و پرورش علیه تاثیر معدل پایه یازدهم در کنکور و شیوه برگزار کلاس‌ها و امتحانات اعتراض کردند. آن‌ها خواستار استعفای دبیر شورای عالی انقلاب فرهنگی شدند.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

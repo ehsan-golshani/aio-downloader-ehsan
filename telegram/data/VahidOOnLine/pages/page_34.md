@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/06/04 02:50
+📅 آخرین بروزرسانی: 1405/06/04 03:24
 
 ---
+
+## VahidOOnLine — post 256135
+
+<div align="center"><video src="files/post_256135_VahidOOnLine_256135.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256135_VahidOOnLine_256135.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار ایران در رسانه‌های جهان: جمعه ۳۰ مرداد ۱۴۰۵
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256134
+
+<div align="center"><video src="files/post_256134_VahidOOnLine_256134.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256134_VahidOOnLine_256134.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران اینترنشنال نشان می‌دهد جشن تولدی به همراه کیک با تصویر جاویدنام سمیه بهرامی بر مزارش برگزار شده است. او در ۳۳ سالگی در برازجان و در جریان اعتراضات انقلاب ملی در ۱۸ دی کشته شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256133
 
@@ -284,32 +310,6 @@ Indypersian
 قالیباف در بخش دیگری از سخنانش با اشاره به تحریم‌های اقتصادی گفت آمریکا و اسرائیل پس از آنکه متوجه شده‌اند در «جنگ سخت نظامی» نمی‌توانند بر ایران و عراق غلبه کنند، وارد «جنگ شناختی و جنگ اقتصادی» شده‌اند.
 او همچنین با دفاع از آمادگی نظامی جمهوری اسلامی گفت دیپلماسی زمانی ارزش دارد و پیش می‌رود که کشور برای جنگ آماده باشد و افزود: «اگر آماده جنگ نباشیم در زمان استفاده از دیپلماسی هم کسی پاسخ ما را نمی‌دهد.»
 این سخنان در حالی بیان می‌شود که دونالد ترامپ روز گذشته از «آغاز کارزار فشار اقتصادی بی‌سابقه برای انزوای ایران» خبر داده بود. اسکات بسنت،‌ وزیر خزانه‌داری آمریکا هم اعلام کرد که با تشدید تحریم‌ها و فشار اقتصادی، جمهوری اسلامی سرنگون خواهد شد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256106
-
-<div align="center"><video src="files/post_256106_VahidOOnLine_256106.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256106_VahidOOnLine_256106.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تحریم اقتصادی و محاصره دریایی بارها در تاریخ علیه حکومت‌های مختلف به کار گرفته شده است. از عراق و ونزوئلا تا رودزیا، کوبا و ژاپن. آیا این‌بار چنین فشاری جمهوری اسلامی را به عقب‌نشینی وادار می‌کند، به اعتراضات گسترده می‌انجامد یا جمهوری اسلامی عقب خواهد نشست؟
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256105
-
-<div align="center"><img src="files/post_256105_VahidOOnLine_256105.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عبور کشتی‌های تجاری از تنگه هرمز روز پنجشنبه ۲۹ مرداد ماه به ۷ عدد کاهش یافت. خبرگزاری رویترز به نقل از شرکت داده و تحلیل کشتیرانی کپلر گزارش کرد، تعداد کشتی‌های حامل کالا که روز پنجشنبه از تنگه هرمز عبور کردند، نصف روز چهارشنبه بود. از این تعداد، ۴ کشتی وارد و ۳ کشتی از تنگه خارج شدند.
-به گزارش رویترز، در میان کشتی‌های عبوری روز پنجشنبه هیچ نفتکش بسیار بزرگ یا نفتکش حمل گاز طبیعی مایع وجود نداشت. با این حال، یک کشتی بسیار بزرگ حمل گاز که حامل پروپان و بوتان بود، از مسیر ایران از تنگه هرمز خارج شد.
-تنگه هرمز پیش از آغاز جنگ، مسیر عبور نزدیک به یک‌پنجم محموله‌های نفت خام و گاز طبیعی مایع جهان بود.
 Indypersian
 
 🤖 @VahidOOnLine

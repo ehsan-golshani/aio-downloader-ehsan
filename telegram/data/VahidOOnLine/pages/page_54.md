@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/06/04 02:50
+📅 آخرین بروزرسانی: 1405/06/04 03:24
 
 ---
+
+## VahidOOnLine — post 255666
+
+<div align="center"><video src="files/post_255666_VahidOOnLine_255666.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255666_VahidOOnLine_255666.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مانور بزرگ نیروی هوایی شاهنشاهی ایران در حضور محمدرضا شاه پهلوی؛ تصاویری تاریخی از اجرای پروازهای گروهی تیم آکروجت و نمایش مهارت نیروی هوایی شاهنشاهی ایران.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255665
+
+<div align="center"><img src="files/post_255665_VahidOOnLine_255665.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ماجد الانصاری، سخنگوی وزارت امور خارجه قطر، روز سه‌شنبه ۲۷ مرداد، در یک نشست خبری اعلام کرد که کشورهای میانجی میان جمهوری اسلامی و ایالات متحده، پیش از تلاش برای بازگرداندن واشنگتن و تهران به میز مذاکرات جهت پایان دادن به جنگ، منتظر اعلام توافق دوجانبه میان ایران و عمان درباره تردد از تنگه هرمز هستند.
+
+سخنگوی وزارت خارجه قطر تاکید کرد که دستیابی به یک توافق روشن میان تهران و مسقط درباره این آبراه راهبردی، مسیر را برای ازسرگیری گفتگوهای کلان‌تر و جامع‌تر میان ایران و آمریکا هموارتر خواهد کرد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255664
 
@@ -283,30 +309,5 @@ IranintlTV
 ManotoTV
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255637
-
-<div align="center"><video src="files/post_255637_VahidOOnLine_255637.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255637_VahidOOnLine_255637.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دادگاه کیفری دمشق روز سه‌شنبه ۲۷ مردادماه وسیم اسد، پسرعموی بشار اسد را به جرم ارتکاب جنایت علیه بشریت و جنایات جنگی به اعدام محکوم کرد.
-
-هفته گذشته همین دادگاه بشار اسد، رئیس جمهوری مخلوع سوریه، ماهر اسد برادر او و همچنین ۱۰ نفر دیگر از مقام‌های امنیتی و عالی‌رتبه نظامی حکومت پیشین سوریه را به اعدام محکوم کرده بود.
-
-بشار اسد در اواخر آذرماه ۱۴۰۳ و در پی حمله برق‌آسای شورشیان به دمشق،  به مسکو گریخت.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255636
-
-<div align="center"><img src="files/post_255636_VahidOOnLine_255636.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
 </div>
 

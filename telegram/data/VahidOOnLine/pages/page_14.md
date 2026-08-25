@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/04 02:50
+📅 آخرین بروزرسانی: 1405/06/04 03:24
 
 ---
+
+## VahidOOnLine — post 256597
+
+<div align="center"><video src="files/post_256597_VahidOOnLine_256597.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256597_VahidOOnLine_256597.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با انتشار ویدیویی در رسانه‌های اجتماعی، صف طولانی خودروهای سنگین را برای دریافت گازوئیل در جاده هراز نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256596
+
+<div align="center"><img src="files/post_256596_VahidOOnLine_256596.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهور آمریکا، دوشنبه دوم شهریور در شبکه اجتماعی تروث سوشال نوشت: «ایران کاملا در حال فروپاشی است.»
+او پیش‌تر نیز گزارشی از نیوزمکس درباره صحبت‌های محمدباقر قالیباف در عراق را منتشر و تیتر این گزارش را بازنشر کرد: «رییس مجلس ایران: ما گرسنه‌ایم، نمی‌توانیم دوام بیاوریم.»
+اسکات بسنت، وزیر خزانه‌داری آمریکا، قرار است دوشنبه تحریم‌های جدید آمریکا علیه جمهوری اسلامی را اعلام کند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256595
 
@@ -275,32 +301,6 @@ IranintlTV
 صدها نفر از بازنشستگان شرکت مخابرات تهران روز دوشنبه دوم شهریور ماه تجمع و راهپیمایی اعتراضی برگزار کردند.
 
 براساس گزارش‌ها و ویدیوهای منتشر شده در شبکه‌های اجتماعی، حاضران در این تجمع به عملکرد تعاون سپاه و ستاد اجرایی اعتراض داشتند و شعار می‌دادند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256568
-
-<div align="center"><video src="files/post_256568_VahidOOnLine_256568.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256568_VahidOOnLine_256568.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارشگر: «من یه جوان ۲۵ ساله‌ام تازه ۳ روز مغازه برنج‌فروشی زدم. چند روز پیش دزد با شوتی اومده زده برده ۱ تن. بخدا بدبخت شدم».
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256567
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عبدالناصر همتی، رئیس بانک مرکزی ایران روز دوشنبه و دوم شهریورماه و همزمان با ادامه روند سقوط بی‌سابقه ارزش ریال ادعا کرد که جمهوری اسلامی ایران در جنگ با آمریکا پیروز شده و تحریم‌های جدید ایالات متحده تاثیری بر اقتصاد ایران نخواهد گذاشت.
-
-همتی گفت هدف آمریکا از جنگ از سرنگونی جمهوری اسلامی به باز کردن تنگه هرمز رسیده است.
-
-رئیس بانک مرکزی همچنین افزایش قیمت دلار به بیش از ۲۰۰ هزار تومان را نتیجه تبلیغات و جوسازی آمریکا توصیف کرد.
 Indypersian
 
 🤖 @VahidOOnLine
