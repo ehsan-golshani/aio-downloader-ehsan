@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/06/03 18:53
+📅 آخرین بروزرسانی: 1405/06/03 19:49
 
 ---
+
+## tasiyanc — post 6670
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بدون فیلتر شکن برید ببینید
+افتتاحیه و تماشای بازی افتتاحیه شبکه TRT
+https://ritsatv.ru/mobile-version/movie-id901190-trt1
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6668
 
@@ -201,11 +211,5 @@ vless://931729a8-3c20-4841-89a1-f18dc9ce0a6f@cdn7-09.vk-cdnvideo.com:8443?securi
 
 📍 🇨🇭
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6644
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بهرحال منتی نیست ، به عشق شما ادامه میدیم 🦦
 </div>
 

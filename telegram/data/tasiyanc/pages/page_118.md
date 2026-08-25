@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/06/03 18:53
+📅 آخرین بروزرسانی: 1405/06/03 19:49
 
 ---
+
+## tasiyanc — post 6008
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاریس لوئیز انریکه قهرمان جام باشگاه های اروپا شد
+</div>
 
 ## tasiyanc — post 6007
 
@@ -163,11 +169,5 @@ VİP 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 عشق تولدت مبارک ، تو گروه هم برات فرستادم ❤️ دوباره با متود جدید وصل شدم ، دمت گرم عالیهههههه
-</div>
-
-## tasiyanc — post 5978
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متد جدید 🔥.npvt
 </div>
 

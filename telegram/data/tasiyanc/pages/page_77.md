@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/06/03 18:53
+📅 آخرین بروزرسانی: 1405/06/03 19:49
 
 ---
+
+## tasiyanc — post 7256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه بجای طارمی سهراب سپهری بود با اختلاف گل میشد 😂
+</div>
 
 ## tasiyanc — post 7255
 
@@ -247,11 +253,5 @@ Wnd🍓 @Tasiyanc.conf
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/03 18:53
+📅 آخرین بروزرسانی: 1405/06/03 19:49
 
 ---
+
+## tasiyanc — post 9593
+
+<div align="center"><img src="files/post_9593_tasiyanc_9593.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨آیفون ۱۷ پرومکس ۲ ترابایت:
+۱.۰۰۰.۰۰۰.۰۰۰ تومان ناقابل!
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9592
 
@@ -295,21 +307,5 @@ sa2
 آموزش اتصال ⛓
 
 💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9563
-
-<div align="center"><video src="files/post_9563_tasiyanc_9563.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9563_tasiyanc_9563.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه دنبال فیلم سینمایی عاشقانه اید می‌تونه پیشنهاد خوبی باشه 👍
-
-🎥 فیلم The Idea of You (2024)
-
-+ مشاهده بدون سانسور 👉
-
-💋 @Tasiyanc
 </div>
 

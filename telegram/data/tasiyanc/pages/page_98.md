@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/06/03 18:53
+📅 آخرین بروزرسانی: 1405/06/03 19:49
 
 ---
+
+## tasiyanc — post 6534
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لینک گپ تاسیان ❤️‍🔥
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 6533
 
@@ -194,11 +201,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 فایل Txt رو باز کنین کانفیگ رو تو آپ NPV & V2BOX & V2RAYNG زیر بزنید پینگ بگیرید وصل شید  🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6504
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از عصر دارم بمب براتون آماده میکنم عشق کنین الان آماده شده
 </div>
 

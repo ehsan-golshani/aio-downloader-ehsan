@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/06/03 18:51
+📅 آخرین بروزرسانی: 1405/06/03 19:48
 
 ---
+
+## ProxyMTProto — post 48102
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 167.233.115.193
+Port: 100
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0YYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYY
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48101
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp.nowabst.net
+Port: 853
+Secret: ee82ce1f84af4033cc7e7b021069be3d5b6164732e78352e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48100
 
@@ -163,24 +181,6 @@ Secret: ee4459d77ba2b570d1a593a478d3cd94a4617065782e70726f78796d2e776f726c64
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48082
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lumen.proxytop.space
-Port: 443
-Secret: ee77a9c0a7c576db75ddb379ffc1ea49786c756d656e2e70726f7879746f702e7370616365
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: flux.proxyux.site
-Port: 443
-Secret: ee0a7ecff0ebda97b34dc84157b8cbfad3666c75782e70726f787975782e73697465
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 136
 
-📅 آخرین بروزرسانی: 1405/06/03 18:51
+📅 آخرین بروزرسانی: 1405/06/03 19:48
 
 ---
+
+## ProxyMTProto — post 47782
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rkn.quickrouteapp.xyz
+Port: 8443
+Secret: eeae82b9fd491e0fde6eb677e47099729b726b6e2e717569636b726f7574656170702e78797a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47781
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: kut12.mtproxygram.pro
+Port: 853
+Secret: eea3ca58d8b2b643f3ad10ebc94303ab8562726f777365722e79616e6465782e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47780
 
@@ -168,24 +186,6 @@ Secret: ee00000000000000000000000000000000766b2e636f6d
 Server: 45.150.110.32
 Port: 443
 Secret: ee1c88677acf461e09e68f4ff0cef5724a617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp7.sosproxy.space
-Port: 443
-Secret: ee77eea55483cdb42d81ab76a5ceddc28d64726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47761
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 150.241.75.150
-Port: 443
-Secret: ee636c6f7564666c6172652e636f6dcb
 @ProxyMTProto
 </div>
 

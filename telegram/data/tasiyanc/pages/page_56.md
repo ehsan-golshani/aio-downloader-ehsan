@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/06/03 18:53
+📅 آخرین بروزرسانی: 1405/06/03 19:49
 
 ---
+
+## tasiyanc — post 8100
+
+<div align="center"><img src="files/post_8100_tasiyanc_8100.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شخصیت‌های کارتونی که باهاشون خندیدیم پیر شدن....
+
+@Tasiyanc ⭐️ | بانك کانفیگ
+</div>
 
 ## tasiyanc — post 8099
 
@@ -200,11 +210,5 @@
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8067
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار 185
 </div>
 

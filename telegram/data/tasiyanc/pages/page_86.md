@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/06/03 18:53
+📅 آخرین بروزرسانی: 1405/06/03 19:49
 
 ---
+
+## tasiyanc — post 6932
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت هر تتر 💎 164000
+</div>
 
 ## tasiyanc — post 6931
 
@@ -213,15 +219,6 @@ https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فوری ترامپ
 از ایران می‌خواهم که به اسرائیل موشک شلیک نکند. توافق در ساعات آینده امضا خواهد شد
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6902
-
-<div align="center"><img src="files/post_6902_tasiyanc_6902.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خود اپارات تو یوتوب اکانت زده🤣🔥
 @Tasiyanc ✅
 </div>
 

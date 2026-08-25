@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/03 18:53
+📅 آخرین بروزرسانی: 1405/06/03 19:49
 
 ---
+
+## tasiyanc — post 9474
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعدادی DNS برای گیمر های عزیز 😎
+
+IPv4 server 🇩🇪
+DNS 1⚡️
+
+60.154.181.244
+22.137.148.153
+
+DNS 2⚡️
+
+85.0.69.240
+173.193.142.191
+
+
+IPv6 🇩🇪
+DNS 1⚡️
+
+2a0e:1c80:11::5ce4:607c:3c41:e868
+2a0e:1c80:11::dcc8:31c8:1fa2:bd89
+
+DNS 2⚡️
+
+2a0e:1c80:11::9014:410:e8bd:d8fd
+2a0e:1c80:11::cf95:da47:970b:4273
+
+DNS 3⚡️
+
+2a0e:1c80:11::ee5b:4bb1:cd6:e105
+2a0e:1c80:11::7ad2:3896:4a4e:cceb
+لینک DNS Changer اندروید
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9473
 
@@ -358,33 +395,5 @@ DNS 2 ⚡️
 💰💰💰💰💰
 📱Telegram Channel👇
 https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9448
-
-<div align="center"><img src="files/post_9448_tasiyanc_9448.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
-
-🌍 سایت بین‌المللی و معتبر LINEBET
-
-⚽️ پیش‌بینی فوتبال
-🎰 کازینو آنلاین
-💳 واریز و برداشت ریالی
-🎁 بونوس 100٪ اولین واریز
-🎁 بونوس 100٪ هر دوشنبه
-📞پشتیبانی فارسی فعال
-
-🎁کد هدیه ثبت‌نام: L5670
-
-🔗 دانلود اپلیکیشن اندروید 👉
-
-🔗 لینک سایت 👉
-✉️ https://t.me/+dukgrB6-zGsyNGM8
-
-🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
-
-📚 آموزش کامل سایت👉
 </div>
 
