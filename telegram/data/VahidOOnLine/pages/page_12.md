@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/04 02:17
+📅 آخرین بروزرسانی: 1405/06/04 02:50
 
 ---
+
+## VahidOOnLine — post 256635
+
+<div align="center"><img src="files/post_256635_VahidOOnLine_256635.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مارک کارنی، نخست‌وزیر کانادا، روز دوشنبه دوم شهریور تاکید کرد که دولتش همچنان به دنبال دستیابی به یک توافق تجاری مناسب با ایالات متحده است، اما هشدار داد که اوتاوا «به هر قیمتی» تن به توافق نخواهد داد.
+
+این اظهارات در پی بن‌بست و توقف مذاکرات تجاری میان دو کشور مطرح شد. کارنی با اشاره به تصمیم خود برای ترک میز مذاکره گفت: «هدف ما همواره دست‌یابی به بهترین توافق برای کانادایی‌ها بوده است، نه توافقی به هر قیمت یا در هر چارچوب زمانی.»
+
+در همین حال، دونالد ترامپ با متهم کردن کانادا به سواستفاده از روابط تجاری طی سال‌های گذشته و انتقاد از تعرفه‌های محصولات کشاورزی، تهدید کرد که از سال آینده تعرفه ۵۰ درصدی بر خودروها، قطعات یدکی و فولاد وارداتی از کانادا اعمال خواهد کرد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256634
+
+<div align="center"><video src="files/post_256634_VahidOOnLine_256634.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256634_VahidOOnLine_256634.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در دوشنبه دوم شهریور، آب شرب آلوده را در عظیمیه کرج نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256633
 
@@ -248,32 +276,6 @@ Indypersian
 
 محبی با اشاره به استمرار تولید موشک‌های هوشمند و هدایت‌پذیر، گفت: «مهم‌ترین دستاورد این جنگ، انتقال آسیب‌پذیری به زیرساخت‌های حیاتی و مراکز وابسته به دشمن بود.»
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256615
-
-<div align="center"><video src="files/post_256615_VahidOOnLine_256615.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256615_VahidOOnLine_256615.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در خصوص گرانی‌ها در ایران و افزایش شدید قیمت برنج و روغن می‌گوید: «با این گرانی‌ها فقط در تلاشیم زنده بمانیم نه اینکه زندگی کنیم.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256614
-
-<div align="center"><video src="files/post_256614_VahidOOnLine_256614.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256614_VahidOOnLine_256614.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«اگر تحریم‌ها تکراریه چرا فقط گرونتر میشه؟»
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

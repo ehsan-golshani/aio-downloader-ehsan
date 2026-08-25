@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/06/04 02:17
+📅 آخرین بروزرسانی: 1405/06/04 02:50
 
 ---
+
+## VahidOOnLine — post 255684
+
+<div align="center"><img src="files/post_255684_VahidOOnLine_255684.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عصر سه‌شنبه ۲۷ مرداد، وزارت کشور امارات متحده عربی با صدور هشدار فوری روی تلفن شهروندان، نسبت به احتمال وقوع حمله موشکی هشدار داد. در این پیام، وزارت کشور امارات از شهروندان خواسته است که به‌دلیل تهدید حمله موشکی، فورا در یک مکان امن در نزدیک‌ترین ساختمان پناه گرفته، از پنجره‌ها، درها و مکان‌های باز فاصله بگیرند و منتظر دستورات و توصیه‌های بعدی این وزارتخانه بمانند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255683
+
+<div align="center"><video src="files/post_255683_VahidOOnLine_255683.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_255683_VahidOOnLine_255683.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند ساکن محمودآباد با ارسال ویدیویی به ایران اینترنشنال می‌گوید که برای سومین بار در یک روز برق منزل او قطع شده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255682
 
@@ -279,38 +303,6 @@ ManotoTV
 
 سخنگوی وزارت خارجه قطر تاکید کرد که دستیابی به یک توافق روشن میان تهران و مسقط درباره این آبراه راهبردی، مسیر را برای ازسرگیری گفتگوهای کلان‌تر و جامع‌تر میان ایران و آمریکا هموارتر خواهد کرد.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255664
-
-<div align="center"><video src="files/post_255664_VahidOOnLine_255664.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255664_VahidOOnLine_255664.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسلا، اسپیس‌اکس، ایکس‌ای‌آی و اینتل در پروژه عظیم «ترافب» برای ایجاد یک مجموعه پیشرفته تولید تراشه‌های هوش مصنوعی در تگزاس مشارکت دارند. این مجموعه قرار است بیش از ۹.۳ میلیون مترمربع وسعت داشته باشد و در صورت تکمیل بر اساس برنامه اعلام‌شده، به بزرگ‌ترین ساختمان جهان تبدیل شود.
-
-ترافب قرار است بخش‌های مختلف تولید تراشه، از طراحی و ساخت تا حافظه، بسته‌بندی پیشرفته و آزمایش را در یک مجموعه متمرکز کند. هدف این پروژه دستیابی به ظرفیت تولید سالانه بیش از یک تراوات توان پردازشی هوش مصنوعی است.
-
-بخشی از تراشه‌های تولیدشده در این مجموعه برای پروژه‌های تسلا، از جمله ربات‌های انسان‌نمای اپتیموس و خودروهای خودران استفاده خواهد شد. بخش دیگری نیز برای برنامه‌های اسپیس‌اکس، از جمله توسعه مراکز داده هوش مصنوعی در فضا، در نظر گرفته شده است.
-
-تسلا و اسپیس‌اکس برای مرحله نخست ساخت ترافب حدود ۱۶.۸ میلیارد دلار سرمایه‌گذاری خواهند کرد و انتظار می‌رود با توسعه مراحل بعدی پروژه، حجم سرمایه‌گذاری افزایش یابد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255663
-
-<div align="center"><video src="files/post_255663_VahidOOnLine_255663.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_255663_VahidOOnLine_255663.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی در رسانه‌های اجتماعی منتشر شده است که نشان می‌دهد قطع مکرر برق در شهرستان فلارد استان چهارمحال و بختیاری، یک نانوا را با خسارت مالی مواجه کرده است.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

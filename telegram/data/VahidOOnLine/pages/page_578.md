@@ -1,8 +1,30 @@
 # آرشیو کانال VahidOOnLine - صفحه 578
 
-📅 آخرین بروزرسانی: 1405/06/04 02:17
+📅 آخرین بروزرسانی: 1405/06/04 02:50
 
 ---
+
+## VahidOOnLine — post 242623
+
+<div align="center"><img src="files/post_242623_VahidOOnLine_242623.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علیرضا رئیسی، معاون وزارت بهداشت، درباره «تشدید نظارت‌ها بر سقط‌های خارج از چارچوب قانون» گفت: بدون هیچ ملاحظه‌ای با هرگونه گزارش سقط غیرقانونی در مراکز درمانی و مطب‌ها برخورد می‌کنیم.
+
+او افزود: «ابطال پروانه و معرفی به قوه قضاییه»، کمترین هزینه برای متخلفان در حوزه «سقط‌جنین غیرقانونی» است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242622
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در پیامی به ایران اینترنشنال به افزایش قیمت مواد غذایی اشاره کرده و می‌گوید از خرید بسته‌های چای نیز ناتوان شده است. پیام او با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 242621
 
@@ -280,32 +302,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سخنرانی امیرعباس هویدا در جمع دانشجویان درباره نقش جوانان در توسعه و اداره کشور
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242595
-
-<div align="center"><img src="files/post_242595_VahidOOnLine_242595.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کایا کالاس، مسئول سیاست خارجی اتحادیه اروپا، در پایان نشست غیررسمی وزیران خارجه این اتحادیه در قبرس گفت که هر توافق اولیه میان آمریکا و جمهوری اسلامی، باید با مذاکرات عمیق‌تر درباره ذخایر هسته‌ای و دیگر مسائل حیاتی مرتبط با امنیت منطقه تکمیل شود.
-
-مسئول سیاست خارجی اتحادیه اروپا گفت که این اتحادیه همکاری‌های امنیتی و دفاعی خود را با کشورهای خلیج فارس افزایش می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 242588
-
-<div align="center"><video src="files/post_242588_VahidOOnLine_242588.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_242588_VahidOOnLine_242588.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینترنت در ایران فقط ابزار ارتباط نیست، میدان قدرت است. هر بار که قطع یا وصل می‌شود، حکومت در واقع در حال تنظیم سطح کنترل خود بر جامعه است، اینکه مردم چه ببینند، چه بگویند، چگونه وصل شوند و تا چه اندازه بتوانند با هم عمل کنند.
 ‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
