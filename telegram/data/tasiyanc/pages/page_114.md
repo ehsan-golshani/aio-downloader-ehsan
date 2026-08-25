@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/06/04 00:56
+📅 آخرین بروزرسانی: 1405/06/04 01:31
 
 ---
+
+## tasiyanc — post 6124
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی کانفیگ وایرگارد ✅
+
+تست شده 🎚
+
+دانلود برنامه Wg tunnel 🕹
+
+آموزش ویدیویی ⏩
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6123
 
@@ -173,13 +188,5 @@ https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunne
 پزشکیان استعفاء داد
 
 تایید شده نیست
-</div>
-
-## tasiyanc — post 6100
-
-<div align="center"><img src="files/post_6100_tasiyanc_6100.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاسیان، بلاشک مرجع قوی‌ترین کانفیگ‌هایِ نپستر در تلگرام. به صد نفر تا الان کانال شمارو معرفی کردم.
 </div>
 

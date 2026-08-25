@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/06/04 00:56
+📅 آخرین بروزرسانی: 1405/06/04 01:31
 
 ---
+
+## tasiyanc — post 8279
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگل داشت نابود میشد ،
+ولی درختان هنوز به تبر رای میدادن
+چون اون قانعشون کرده بود
+دستش چوبیه پس از خودشونه :)
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8278
 
@@ -176,16 +187,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8252
-
-<div align="center"><img src="files/post_8252_tasiyanc_8252.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل
-فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️
-
-مدیریت مجموعه تاسیان
 </div>
 

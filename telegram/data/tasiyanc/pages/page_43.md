@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/06/04 00:56
+📅 آخرین بروزرسانی: 1405/06/04 01:31
 
 ---
+
+## tasiyanc — post 8469
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ سنتکام : حملات ما به ایران آغاز شد
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8468
 
@@ -152,11 +160,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه گل صحیح اسپانیا هم آفساید گرفته شد
-</div>
-
-## tasiyanc — post 8449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی بعدی فینال ایران و امریکا
 </div>
 

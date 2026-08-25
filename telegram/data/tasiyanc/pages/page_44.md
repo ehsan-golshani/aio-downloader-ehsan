@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/06/04 00:56
+📅 آخرین بروزرسانی: 1405/06/04 01:31
 
 ---
+
+## tasiyanc — post 8449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی بعدی فینال ایران و امریکا
+</div>
 
 ## tasiyanc — post 8448
 
@@ -138,11 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این بیژن مرتضوی ما چی شد
-</div>
-
-## tasiyanc — post 8427
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه بازی کسشریه
 </div>
 

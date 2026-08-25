@@ -1,8 +1,49 @@
 # آرشیو کانال VahidOOnLine - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/04 00:53
+📅 آخرین بروزرسانی: 1405/06/04 01:29
 
 ---
+
+## VahidOOnLine — post 256556
+
+<div align="center"><img src="files/post_256556_VahidOOnLine_256556.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار ایران در رسانه‌های جهان: دوشنبه ۲ شهریور ۱۴۰۵
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256555
+
+<div align="center"><video src="files/post_256555_VahidOOnLine_256555.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256555_VahidOOnLine_256555.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از شهروندان با ارسال ویدیویی به ایران‌اینترنشنال از قطع مداوم برق در شهرستان الشتر استان لرستان می‌گوید.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256554
+
+<div align="center"><img src="files/post_256554_VahidOOnLine_256554.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لین جیان، سخنگوی وزارت خارجه چین، دوشنبه دوم شهریور و در آستانه رونمایی آمریکا از تحریم‌های جدید علیه جمهوری اسلامی، اعلام کرد که پکن تحولات را از نزدیک زیر نظر خواهد داشت و برای حفاظت از حقوق خود هر اقدامی را که لازم باشد انجام خواهد داد.
+
+اسکات بسنت، وزیر خزانه‌داری آمریکا، با انتشار مقاله‌ای در روزنامه فایننشال تایمز تاکید کرد دولت ترامپ قصد دارد با قطع همه شریان‌های مالی و تجاری جمهوری اسلامی، تهران و کشورها و نهادهای همکار با آن را در انزوای کامل اقتصادی قرار دهد.
+
+وزیر خزانه‌داری ایالات متحده از آغاز مرحله‌ای تازه و گسترده در فشار اقتصادی علیه جمهوری اسلامی خبر داده و آن را «روز سرنوشت‌ساز اقتصادی» و بزرگ‌ترین تهاجم مالی سازمان‌یافته علیه یک دشمن توصیف کرده است.
+
+سخنگوی وزارت خارجه چین همچنین گفت: «تحریم‌ها و تاکتیک‌های فشار به حل مسائل کمک نمی‌کنند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256553
 
@@ -262,47 +303,6 @@ IranintlTV
 
 دولت پزشکیان اعلام کرده که با توجه به جنگ و تحریم، تولید بنزین کاهش پیدا کرده و راهی جز افزایش قیمت یا کاهش سهیمه‌بندی برای کنترل مصرف وجود ندارد.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256536
-
-<div align="center"><video src="files/post_256536_VahidOOnLine_256536.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256536_VahidOOnLine_256536.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، از قطع طولانی‌مدت برق و آب در طرقبه استان خراسان رضوی خبر می‌دهد و می‌گوید: «زندگی را برای مردم جهنم کرده‌اند.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256535
-
-<div align="center"><video src="files/post_256535_VahidOOnLine_256535.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256535_VahidOOnLine_256535.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال، غبار روبی مزار ستار بهشتی، معترض کشته‌شده را در سالروز تولد او نشان می‌دهد.
-﻿ستار بهشتی، وبلاگ‌نویسی بود که ۱۳ آبان ۱۳۹۱ به دلیل نوشته‌هایش به دست ماموران جمهوری اسلامی کشته شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256534
-
-<div align="center"><img src="files/post_256534_VahidOOnLine_256534.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شهروندی با ارسال تصویری به ایران‌اینترنشنال خبر داد سنگ مزار جاویدنام حمیدرضا گودرزی در جاورسیان اراک شکسته شده است. حمیدرضا جوان ۳۳ ساله، کشتی‌گیر حرفه‌ای و مهندس مکانیک بود که ۱۸ دی با شلیک گلوله به ناحیه سر، در گلشهر کرج کشته شد.
-بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، این شهروند ساکن کرج بود اما نیروهای حکومتی از دفن حمیدرضا گودرزی در بهشت سکینه جلوگیری کردند و پیکر او در زادگاهش به خاک سپرده شد.
-سنگ مزار او که رویش کلمه «قهرمانم» درج شده، به تازگی شکسته شده است.
-نیروهای وابسته به حکومت پیش‌تر نیز سنگ مزار شماری از جاویدنامان انقلاب ملی ایرانیان را در شهرهای مختلف شکسته یا مخدوش کرده بودند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

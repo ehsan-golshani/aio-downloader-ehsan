@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/04 00:56
+📅 آخرین بروزرسانی: 1405/06/04 01:31
 
 ---
+
+## tasiyanc — post 9577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
 
 ## tasiyanc — post 9576
 
@@ -335,15 +348,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9549
-
-<div align="center"><img src="files/post_9549_tasiyanc_9549.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجموعه تاسیان ، روز پزشک را به تمام پزشکان و کادر درمان باشرف تبریک میگوید ، یاد و نام پزشکان و کادر درمان جاویدنام ک جانفدای ایران شدند گرامی باد ❤️
-
-🩸 @Tasiyanc
 </div>
 

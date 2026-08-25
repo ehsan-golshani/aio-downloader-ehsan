@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/04 00:56
+📅 آخرین بروزرسانی: 1405/06/04 01:31
 
 ---
+
+## tasiyanc — post 8976
+
+<div align="center"><video src="files/post_8976_tasiyanc_8976.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8976_tasiyanc_8976.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥با این سایت به راحتی میتونی کل ضرر های جام جهانی رو جبران کنی
+بونوس هاش واقعا عالیه👌🏼بدون قیدوشرط
+
+❌با هر 1 میلیون شارژ ، 
+🤩
+🤩
+🤩 هزارتومان شارژ اضافی بگیر
+🅰️
+
+
+❌
+❌طرح شارژ رایگان فقط تا پایان مرداد ماه
+</div>
 
 ## tasiyanc — post 8975
 
@@ -291,23 +312,5 @@ https://t.me/+gTClYDoqQdhkZjY8
 چنل خودمونه جوین شید استفاده کنید فرمارو همه از منبع ها خارجیه😉👍
 
 #admin
-</div>
-
-## tasiyanc — post 8953
-
-<div align="center"><img src="files/post_8953_tasiyanc_8953.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از این منبع VIP روسی هروز براتون فرم میزاریم😍🔥
-
-برای دریافت وارد کانال زیر شوید🔽🔽🔽
-
-https://t.me/+gTClYDoqQdhkZjY8
-
-g12
-
-https://t.me/+gTClYDoqQdhkZjY8
-
-     🔼🔼🔼🔼🔼🔼🔼🔼🔼
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/06/04 00:56
+📅 آخرین بروزرسانی: 1405/06/04 01:31
 
 ---
+
+## tasiyanc — post 6173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦦 سرورامون با قدرت میتازن
+</div>
 
 ## tasiyanc — post 6172
 
@@ -192,13 +198,5 @@ Premium 💙BLUE.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 New🚀@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6149
-
-<div align="center"><img src="files/post_6149_tasiyanc_6149.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو دقیقه نیست استارت خورد ، دمت گرم عشقی. بمبه
 </div>
 

@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/06/04 00:56
+📅 آخرین بروزرسانی: 1405/06/04 01:31
 
 ---
+
+## tasiyanc — post 6511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم‌ اکنون حملات ایالات متحده آمریکا به جزیره قشم و بندرعباس
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6510
 
@@ -224,17 +231,6 @@
 
 
 ✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6478
-
-<div align="center"><img src="files/post_6478_tasiyanc_6478.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هلیا خانم ایران ۵ قلو زایید 🥹
-
-@Tasiyanc 
 ✅
 </div>
 

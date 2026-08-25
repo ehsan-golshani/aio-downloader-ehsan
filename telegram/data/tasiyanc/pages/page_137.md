@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 137
 
-📅 آخرین بروزرسانی: 1405/06/04 00:56
+📅 آخرین بروزرسانی: 1405/06/04 01:31
 
 ---
+
+## tasiyanc — post 5502
+
+<div align="center"><img src="files/post_5502_tasiyanc_5502.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+WiFi 🥝.npvt
+</div>
 
 ## tasiyanc — post 5501
 
