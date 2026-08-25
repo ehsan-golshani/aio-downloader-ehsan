@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/04 00:22
+📅 آخرین بروزرسانی: 1405/06/04 00:56
 
 ---
+
+## tasiyanc — post 9203
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز ۱۲ آگوست روز جهانی بچه اول خانوادس .
+
+@Tasiyanc 🔋
+</div>
 
 ## tasiyanc — post 9201
 
@@ -343,23 +351,5 @@ https://t.me/+c5jwC3lt9z45NTE0
 r20
 🔔کانال دربی بت :👇
 ✅https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9172
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن multi📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر متاسفانه باگش برطرف نشده ⭕️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 

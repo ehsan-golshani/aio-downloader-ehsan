@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/06/04 00:22
+📅 آخرین بروزرسانی: 1405/06/04 00:56
 
 ---
+
+## tasiyanc — post 7933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حس میکنم خیلی زود اسرائیل ترامپ رو ترور میکنه 😟
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7932
 
@@ -235,17 +243,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7894
-
-<div align="center"><img src="files/post_7894_tasiyanc_7894.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺امروز 11 July، روز شاد کردن آدم‌های تنهاست.
-
-
-@Tasiyanc ⭐️
-#Navid
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/06/04 00:22
+📅 آخرین بروزرسانی: 1405/06/04 00:56
 
 ---
+
+## tasiyanc — post 8731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قلعه الموت قزوین ثبت جهانی شد؛ قزوینیا راحت میتونن خارجیا رو هم انگشت کنن
+
+@TASIYANC 🕒
+</div>
 
 ## tasiyanc — post 8730
 
@@ -217,15 +225,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc 💠
-</div>
-
-## tasiyanc — post 8704
-
-<div align="center"><img src="files/post_8704_tasiyanc_8704.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خار شباهتو ...
-
-@TASIYANC ✅
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/04 00:22
+📅 آخرین بروزرسانی: 1405/06/04 00:56
 
 ---
+
+## tasiyanc — post 9504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از کنکور چخبر چطوری بود؟
+</div>
 
 ## tasiyanc — post 9503
 
@@ -399,15 +405,5 @@ IPv6
 + تصادف با موتورسیکلت کمترین بهاش اینه که دست پای ادم می‌شکنه به خانواده هاتون رحم کنید لاقل کلاه ایمنی بزارید
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 9480
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوررری
-🚨سنتکام:
-گروه ضربت ناو هواپیمابر جورج واشنگتن به منطقه عملیاتی ما در خاورمیانه رسید
-@Tasiyanc 
-⭐️
 </div>
 

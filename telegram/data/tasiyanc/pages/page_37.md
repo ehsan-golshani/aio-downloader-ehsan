@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/04 00:22
+📅 آخرین بروزرسانی: 1405/06/04 00:56
 
 ---
+
+## tasiyanc — post 8676
+
+<div align="center"><video src="files/post_8676_tasiyanc_8676.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8676_tasiyanc_8676.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦅 جنگنده ای که از شاهین بحری تقلید میکند !
+
+اف-۱۴ تامکت و شاهین بحری در ظاهر یکی یک جنگنده ی پیچیده و دیگری یک شکارچی طبیعی هستند، اما وقتی به شیوه‌ی پروازشان نگاه کنیم، شباهت‌های شگفت‌انگیزی دیده میشود.
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8675
 
@@ -176,17 +189,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اکبر عبدی بازیگر سینما درگذشت 🖤
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8653
-
-<div align="center"><video src="files/post_8653_tasiyanc_8653.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8653_tasiyanc_8653.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«چشم‌های تمساح ؛ یکی از پیشرفته ترین چشم‌ها در قلمرو جانوران ک طی بیش از ۲۰۰ میلیون سال تکامل یافته اند » 🐊👁
-
-@TASIYANC ✅
 </div>
 
