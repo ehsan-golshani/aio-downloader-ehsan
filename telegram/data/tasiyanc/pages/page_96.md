@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 6575
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6574
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آمریکا میخواد بزنه تقصیر منه ریکشن نمیزنین؟
+</div>
 
 ## tasiyanc — post 6573
 
@@ -198,17 +218,5 @@ https://t.me/TasiyanProxy
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حتی چنلمون تو اپای ایرانی ام قراره یه جور پرایوت شه اونایی ک ممبر چنلن بیان هر ۲۴ ساعت لینکو عوض میکنم
-</div>
-
-## tasiyanc — post 6548
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منتظرم قطعی بشه پرایوت کنم چنلو اونای ک لف میدن حالشون میپرسم
-</div>
-
-## tasiyanc — post 6547
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بوی برخط شدن میاد اینبار
 </div>
 

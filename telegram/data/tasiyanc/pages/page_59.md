@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 7942
+
+<div align="center"><img src="files/post_7942_tasiyanc_7942.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیازمندی ها:🥺
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7941
+
+<div align="center"><img src="files/post_7941_tasiyanc_7941.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺یه زمانی توماج صالحی نیش پشه‌ها رو به عنوان ساچمه میکرد تو چشم مردم.
+
+
+
+@Tasiyanc ⭐️ | مرجع کانفیگ وصل
+</div>
 
 ## tasiyanc — post 7939
 
@@ -210,36 +232,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🦅⚡️ WAR.npvt
-</div>
-
-## tasiyanc — post 7914
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ 🌟 : در صورتی ک جمهوری اسلامی منو ترور کنه بلافاصله هزاران موشک تا یکسال آماده شلیک هستند
-@Tasiyanc ⭐️
 </div>
 

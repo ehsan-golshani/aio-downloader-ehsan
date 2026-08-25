@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 6157
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+3 تا سرور فول سرعتی تو راهه
+</div>
+
+## tasiyanc — post 6156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید 📱
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6155
 
@@ -176,17 +191,5 @@ vip 🚀🔥 @Tasiyanc.conf
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast2⚡@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6130
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر 💋
 </div>
 

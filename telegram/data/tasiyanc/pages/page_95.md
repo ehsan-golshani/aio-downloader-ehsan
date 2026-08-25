@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 6632
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Homayoun Shajarian & Sohrab Pournazeri – Irane Man
+</div>
+
+## tasiyanc — post 6630
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Homayoun Shajarian & Sohrab Pournazeri – Irane Man
+</div>
 
 ## tasiyanc — post 6629
 
@@ -158,25 +170,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پخت پز ب عشق خودتون ، قطعی باشه نباشه پیش همیم🩷🤝
-</div>
-
-## tasiyanc — post 6575
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6574
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آمریکا میخواد بزنه تقصیر منه ریکشن نمیزنین؟
 </div>
 

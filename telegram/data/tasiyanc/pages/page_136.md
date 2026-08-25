@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 136
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 5512
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان ۲سرور تست شده وای‌فای 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ لینک داخلی نپسترنت آپدیت نهایی
+
+🔐 NPV Tunnel 👈
+
+Password file : @Tasiyanc
+</div>
 
 ## tasiyanc — post 5510
 

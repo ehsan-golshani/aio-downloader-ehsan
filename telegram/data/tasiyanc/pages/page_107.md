@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 6282
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+4سرور پرومیوم  سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6281
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز 🦦
+</div>
 
 ## tasiyanc — post 6280
 
@@ -216,25 +238,5 @@ VIP OCTOPUS SV⚡🐙.npvt
 اتصال به سرورها ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-BabyGirl 🪐.npvt
-</div>
-
-## tasiyanc — post 6254
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB سرور آلمان  👑
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 🍏
-
-آموزش⏩
-
-@Tasiyanc ✅
 </div>
 

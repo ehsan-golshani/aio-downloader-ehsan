@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 119
 
-📅 آخرین بروزرسانی: 1405/06/03 11:53
+📅 آخرین بروزرسانی: 1405/06/03 12:45
 
 ---
+
+## ProxyMTProto — post 48108
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cloud.prx.today
+Port: 443
+Secret: eeda2d39fb15ca8ddb6582b915b149465c636c6f75642e7072782e746f646179
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48107
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: go.vingardium.co.uk.
+Port: 8443
+Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48106
 
@@ -163,24 +181,6 @@ Secret: ee46a405cdf38698927aa7352341e2ba0a6c756d656e2e70726f787975782e73697465
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: bolt.proxyonline.online
-Port: 443
-Secret: ee98741a4df96ee86a25ca542a538a3484626f6c742e70726f78796f6e6c696e652e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ%3D%3D
 @ProxyMTProto
 </div>
 

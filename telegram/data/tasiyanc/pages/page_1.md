@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 9583
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥⚡ Number One Pre.npvt
+</div>
+
+## tasiyanc — post 9582
+
+<div align="center"><a href="files/post_9582_🔥⚡ Number One Pre.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🔥⚡ Number One Pre.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+سرور سرعتی مولتی لوکیشن⚡️
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9581
 
@@ -299,32 +329,5 @@ til.ac/0L4vyJf
 ⭕️ در صورت ارور چند بار بزنید
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9555
-
-<div align="center"><img src="files/post_9555_tasiyanc_9555.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری؛ وزیر خزانه‌داری آمریکا:
-
-از بامداد امروز، حمله مالی به ایران رو آغاز میکنیم؛ بزرگ‌ترین حمله از این نوع در تاریخ.
-
-هدف ما این هست که تمام خطوط اقتصادی رو که حکومت ایران رو سرپا نگه داشته قطع کنیم.‌‌ هر کشوری که به عنوان شریان مالی برای رژیمی در آستانه فروپاشی عمل کنه، باید منتظر تحریم‌های شدید باشه.
-هرگونه اقدام نظامی علیه نیروهای ما یا علیه کشورهای خلیج فارس توسط رئیس جمهور ترامپ به سرعت و قاطعانه پاسخ خواهد داد.‌‌
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9554
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
 </div>
 

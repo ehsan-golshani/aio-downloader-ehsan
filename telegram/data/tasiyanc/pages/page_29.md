@@ -1,8 +1,86 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 8888
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ سایت‌های کاربردی در زمان قطعی اینترنت
+
+🔝 آپلود (انتقال متن، کانفیگ، فایل و برنامه)
+pastehub.ir
+m.ulni.ir
+uploadkon.ir
+picofile.com
+uupload.ir
+linklick.ir
+nixfile.com
+⬇️ دانلود فیلم و سریال (بدون سانسور)
+myf2m.info
+serialblog.blog.ir
+filmaz.ir
+movie-chi.ir (اشتراکی)
+filmjoo.xyz
+filmkio.run (اشتراکی)
+dls2.iran-gamecenter-host.com/DonyayeSerial
+simbaapp.ir (نیمه‌اشتراکی)
+movielix.ir (اشتراکی)
+kiamovie.ir (نیمه‌اشتراکی)
+📃 دانلود زیرنویس
+subkade.ir
+subzone.ir
+3fa.ir
+🎵 دانلود موسیقی
+radio.9craft.ir
+melovaz.ir
+behmelody.in
+📚 کتاب
+fidibo.com
+taaghche.com
+navaar.ir
+libra-books.com
+ebooksworld.ir
+🎮نرم‌افزار و بازی
+bazion.ir
+soft98.ir
+yasdl.com
+farsroid.com
+par30games.net
+gameq.ir
+cafebazaar.ir
+downloadha.com
+gold-team.org
+sarzamindownload.com
+dlfox.com
+🔎 جستجوگرهای داخلی
+zarebin.ir
+gerdoo.me
+shaadbin.ir
+2059.ir
+🤷‍♂️ هوش مصنوعی و Ai
+chat.boofai.com
+hooshang.ai
+chat.smartbytes.ir
+🌀مسیریابی
+neshan.org
+balad.ir
+🌐ترجمه و دیکشنری
+abadis.ir
+fastdic.com
+dic.b-amooz.com
+﻿
+🔱 @TASIYANC
+</div>
+
+## tasiyanc — post 8886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻پادگان چهارم شکاری دزفول تمامی سرباز هارو فرستادن مرخصی و به خانواده‌های نظامیا داخل پادگانم گفتن تخلیه کنید تا عصر.
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8885
 
@@ -278,28 +356,5 @@ Restore this old photograph with maximum realism. Remove scratches, dust, stains
 آموزش استفاده از پرامپت 👉
 
 ✈️ @TASIYANC
-</div>
-
-## tasiyanc — post 8856
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود نپسترنت 🔐
-
-سرور سرعتی تست شده مولتی لوکییشن 🌍
-
-آموزش اتصال 
-⛓
-
-اتصال امن برای همه 
-🇮🇷
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8855
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نت بلاکس : دولت ترکیه بصورت ناگهانی اینترنت کل مردم ترکیه رو قطع کرد.
-@Tasiyanc
 </div>
 

@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 6081
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+۲سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک سرویس خریداری کردید هر ۲۴ ساعت کانفیگ ها آپدیت میشن برید ساب لینکتون و کانفیگ های جدید رو بردارید
+</div>
 
 ## tasiyanc — post 6077
 
@@ -183,21 +205,5 @@ Hot Servers 🔥🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خب بریم به آدرس و شماره تلفن یا چیزای دیگه بدم؟
-</div>
-
-## tasiyanc — post 6050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فایل تمام پیام‌های تلگرامش
-
-@ineedknife
-</div>
-
-## tasiyanc — post 6048
-
-<div align="center"><img src="files/post_6048_tasiyanc_6048.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
 </div>
 

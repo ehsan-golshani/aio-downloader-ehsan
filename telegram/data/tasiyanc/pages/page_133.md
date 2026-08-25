@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 133
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 5602
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اقا واقعا وصل ممنون تاسيان♥️♥️♥️
+</div>
+
+## tasiyanc — post 5601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
+</div>
 
 ## tasiyanc — post 5600
 
@@ -164,17 +176,5 @@
 برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5572
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هدیه 25 کا شدن ما تمومی ندارع بازم میزارم سرور
-</div>
-
-## tasiyanc — post 5571
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باز ما پختو پز کردیمو ری اکشن ندیدیم 🥺
 </div>
 

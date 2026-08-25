@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 123
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 5878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد اتصال بدون گرفتن پینگ سریع به تلگرام بیاید خودش را میوفته
+</div>
+
+## tasiyanc — post 5877
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+ سه سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5873
 
@@ -154,17 +177,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مثل برخی چنلا باید روزی ۲۰۰ پیام واسه سرور رایگان رضایت بفرستیم؟
-</div>
-
-## tasiyanc — post 5852
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام‌ها تمومی نداره ، همچنان ما قطعیم😁❤️
-</div>
-
-## tasiyanc — post 5851
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دمت گرم داش
 </div>
 

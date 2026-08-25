@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 9156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱 ممنون ک هستید❤️
+</div>
+
+## tasiyanc — post 9155
+
+<div align="center"><img src="files/post_9155_tasiyanc_9155.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕
+
+اسم : Cozy Cat Cuddle 😒
+
+آموزش استفاده 👉
+
+دریافت پرامپت👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9154
 
@@ -202,31 +224,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 👉 دریافت پرامپت 
 👉 @TASIYANC 
 ⭐️
-</div>
-
-## tasiyanc — post 9132
-
-<div align="center"><img src="files/post_9132_tasiyanc_9132.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Mountain Embrace ❤️
-
-
-آموزش استفاده 👉
-
-دریافت پرامپت 👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زمانی به این درجه از سود توی بت میرسی که بدونی کی و کجا وارد شی🚀
-
-https://t.me/+_btGj-rRAxs3NGVk
-https://t.me/+_btGj-rRAxs3NGVk
 </div>
 

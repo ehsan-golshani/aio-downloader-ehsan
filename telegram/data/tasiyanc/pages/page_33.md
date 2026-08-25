@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 8769
+
+<div align="center"><video src="files/post_8769_tasiyanc_8769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8769_tasiyanc_8769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سام صابری که دیشب اون گندش بالا اومد، امروز با این الفاظ مردم رو خطاب کرد و به همه ناموسی داد:
+
+@TASIYANC
+</div>
+
+## tasiyanc — post 8766
+
+<div align="center"><img src="files/post_8766_tasiyanc_8766.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠  نسخه اختصاصی مود GitiVPN
+✅️سیستم عامل: اندروید
+
+تست شده با همه اینترنت ها📶📶📶🛜🛜
+
+🟢توضیحات مهم:
+وارد لیست سرور ها بشید، یکی را انتخاب کنید و متصل بشید. سرعت خوبی داره.
+
+نسخه: 111
+
+ویژگی های نسخه مود:
+• باز بودن سرور های پریمیوم
+• حذف تبلیغات اضافی
+• نامحدود شدن تایم
+
+برای دانلود روی لینک زیر کلیک کنید
+
+🔗《لینک دانلود》👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8765
 
@@ -207,31 +246,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبر هارو دنبال کنید از اینجا
 @TasiyanProxy
-</div>
-
-## tasiyanc — post 8744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 #امیرحسین_صفری #علیرضا_سپاهی #ابولفضل_سپاهی میخوان در ملا عام اعدامشون کنن💔 @TasiyanProxy
-</div>
-
-## tasiyanc — post 8742
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ تست شده 🔸
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc 💠
 </div>
 

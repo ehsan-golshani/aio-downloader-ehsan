@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 97
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 6548
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منتظرم قطعی بشه پرایوت کنم چنلو اونای ک لف میدن حالشون میپرسم
+</div>
+
+## tasiyanc — post 6547
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی برخط شدن میاد اینبار
+</div>
 
 ## tasiyanc — post 6546
 
@@ -199,20 +211,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سیرکه رسما
-
-کاخ سفید :ما معتقدیم به نتیجه نهایی مذاکرات نزدیکیم
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6522
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس جان ریدی با این مذاکره کردنات
 </div>
 

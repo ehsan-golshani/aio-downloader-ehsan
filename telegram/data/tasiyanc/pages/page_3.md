@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/03 11:55
+📅 آخرین بروزرسانی: 1405/06/03 12:47
 
 ---
+
+## tasiyanc — post 9535
+
+<div align="center"><video src="files/post_9535_tasiyanc_9535.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9535_tasiyanc_9535.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠صداوسیما در اقدامی عجیب، اطلاعات محرمانه و مکان‌های دقیق تردد پسر ترامپ و نقاطی که در تیررس است را منتشر کرد
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9534
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 👾 GAME DNS VIP TASIYAN ⚡️ ━━━╮
+
+DNS1 😎
+235.58.241.130
+49.129.66.60
+
+DNS2 😎
+36.108.70.10
+136.224.75.103
+
+DNS3 😎
+62.114.222.110
+223.42.10.179
+
+IPv4 Location 🇩🇪
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9533
 
@@ -317,29 +351,5 @@ til.ac/0L4vyJf
 
 💋 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فارس:
-
-اینستاگرام صفحه‌‌ای که واسه قبر علی خامنه‌ای و اعضای کشته‌شده خانواده‌اش ساخته شده بود رو حذف کرد.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9510
-
-<div align="center"><video src="files/post_9510_tasiyanc_9510.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9510_tasiyanc_9510.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👨‍💼 ترامپ برای بار هزارم:
-من نمی‌دانم اصلاً با چه کسی در ایران باید مذاکره کنم. این در واقع یکی از بزرگترین مشکلات من است.
-هیچ کس نمی‌خواهد رئیس‌جمهور ایران باشد. آن‌ها می‌گویند: «چه کسی می‌خواهد رئیس‌جمهور باشد؟» «نه، نه، من نمی‌خواهم رئیس‌جمهور باشم.»
-💋 @TASIYANC ✅
 </div>
 
