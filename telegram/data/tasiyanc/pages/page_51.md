@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 8262
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💪🚨 ترامپ:
+توافق اینقدر خوب پیش رفته که به زودی هزاران شهروند آمریکایی مهاجرت میکنن به ایران، منتها لباس نظامی تنشونه.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8259
 
@@ -209,11 +218,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر ❤️
-</div>
-
-## tasiyanc — post 8232
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میره جنوب لبنان و نجات بده🤨
 </div>
 

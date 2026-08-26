@@ -1,8 +1,51 @@
 # آرشیو کانال VahidOOnLine - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/04 13:51
+📅 آخرین بروزرسانی: 1405/06/04 14:38
 
 ---
+
+## VahidOOnLine — post 256779
+
+<div align="center"><video src="files/post_256779_VahidOOnLine_256779.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256779_VahidOOnLine_256779.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در ویدیویی که برای ایران‌اینترنشنال ارسال‌ کرده، خطاب به عبدالناصر همتی، رییس بانک مرکزی می‌گوید: «تو گفتی کمبود دلار نداریم ولی دروغ می‌گویی. صرافی‌ها بسته‌اند و دلاری برای خرید و فروش نیست.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256778
+
+<div align="center"><img src="files/post_256778_VahidOOnLine_256778.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک منبع نزدیک به تیم مذاکره‌کننده جمهوری اسلامی به خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران، گفت برخلاف برخی گزارش‌ها، عاصم منیر، فرمانده ارتش پاکستان، که دوشنبه به ایران سفر کرده بود، حامل پیام تهدید یا پیام مشابهی از سوی آمریکا نبود، بلکه هدف او فراهم کردن زمینه ازسرگیری مذاکرات و «انتقال شروط و مواضع تهران به واشینگتن بوده است».
+این منبع افزود مواضع جمهوری اسلامی درباره تنگه هرمز به‌طور شفاف به طرف پاکستانی اعلام شده است.
+تسنیم به نقل از این منبع نوشت بازگشت آمریکا به تفاهم‌نامه اسلام‌آباد و اجرای مفاد آن، از جمله بند پنجم درباره «ترتیبات ایران در تنگه هرمز»، از شروط تهران است. به گفته این منبع، این شروط از طریق طرف پاکستانی مطرح شده و پاکستان به دنبال انتقال آنها به طرف آمریکایی است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256777
+
+<div align="center"><video src="files/post_256777_VahidOOnLine_256777.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256777_VahidOOnLine_256777.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی ایران، روز سه‌شنبه سوم شهریور در دیدار با فائق زیدان، رئیس شورای عالی قضایی عراق، آینده منطقه را در گرو تصمیم کشورهای آن دانست و گفت آمریکا در آینده منطقه جایگاهی نخواهد داشت.
+
+در این دیدار، روابط تهران و بغداد و مسائل امنیتی میان دو کشور نیز مورد بحث قرار گرفت. محسن رضایی خواستار تعیین تکلیف گروه‌های مخالف جمهوری اسلامی ایران مستقر در مناطق مرزی شد و بر حمایت تهران از «عراق مستقل و قوی» اشاره کرد.
+
+فائق زیدان نیز بر گسترش همکاری‌های منطقه‌ای و تامین امنیت مرزهای مشترک دو کشور تاکید و از حمایت‌های جمهوری اسلامی ایران از عراق قدردانی کرد. او همچنین یاد قاسم سلیمانی و ابومهدی المهندس را گرامی داشت.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256776
 
@@ -265,45 +308,6 @@ IranintlTV
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 «این وضعیت پمپ‌ بنزین‌هاست»
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256759
-
-<div align="center"><video src="files/post_256759_VahidOOnLine_256759.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256759_VahidOOnLine_256759.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارشگر: «قیمت‌ها رو شما ببینید»
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256758
-
-<div align="center"><video src="files/post_256758_VahidOOnLine_256758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256758_VahidOOnLine_256758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارشگر: «دریاچه خزر در مسجد سلیمان»
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256757
-
-<div align="center"><video src="files/post_256757_VahidOOnLine_256757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256757_VahidOOnLine_256757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صف بنزین در اتوبان صدر تهران
 ManotoTV
 
 🤖 @VahidOOnLine

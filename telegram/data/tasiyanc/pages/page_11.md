@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 9366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر 👌
+</div>
 
 ## tasiyanc — post 9365
 
@@ -240,14 +246,5 @@ g25
 
 
 @Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-✅ @TASIYANC
 </div>
 

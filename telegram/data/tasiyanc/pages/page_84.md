@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 7017
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این ها پخت پز نیست چیه؟
+</div>
 
 ## tasiyanc — post 7016
 
@@ -244,29 +250,5 @@ NPV Tunnel
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡⚡@Taisyanc.hc
-</div>
-
-## tasiyanc — post 6982
-
-<div align="center"><video src="files/post_6982_tasiyanc_6982.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6982_tasiyanc_6982.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟اختصاصی تاسیان (جایگزین وایر) - کانفیگ HttpCustum 
-🌟
-
-Password: @Tasiyanc
-
-نامحدود سرعت بالا تست شده⚡
-
-دانلود برنامه httpCustum 
-🕹
-
-دانلود برنامه httpCustum 
-📱
-
-T.me/Tasiyanc 
-✅
 </div>
 

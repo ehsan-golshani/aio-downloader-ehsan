@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 103
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 6409
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+۲سرور پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6408
 
@@ -178,24 +197,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 
 دریافت کانفینگ  اختصاصی
 دریافت کانفنیگ اختصاصی
-</div>
-
-## tasiyanc — post 6385
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-۶سرور   سرعتی پرمیوم 🚀
-
-حجم نامحدود - تمام اپراتور ها ⚡️
-
-مناسب دانلود - وب‌گردی - اینستاگرام
-
-دانلود  NPV tunnel  ✔
-
-آموزش اتصال 🔹
-
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

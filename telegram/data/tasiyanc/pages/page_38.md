@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 8660
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این وسط ارتش عربستان سعودی داره تقه میزنه به یمن 😂
+</div>
 
 ## tasiyanc — post 8659
 
@@ -212,11 +218,5 @@ Fact @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شب جمعه به این آرومی؟ مشکوکه
-</div>
-
-## tasiyanc — post 8626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احوال شما؟
 </div>
 

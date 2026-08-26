@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 8769
+
+<div align="center"><video src="files/post_8769_tasiyanc_8769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8769_tasiyanc_8769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سام صابری که دیشب اون گندش بالا اومد، امروز با این الفاظ مردم رو خطاب کرد و به همه ناموسی داد:
+
+@TASIYANC
+</div>
 
 ## tasiyanc — post 8766
 
@@ -234,11 +246,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبر هارو دنبال کنید از اینجا
 @TasiyanProxy
-</div>
-
-## tasiyanc — post 8744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 #امیرحسین_صفری #علیرضا_سپاهی #ابولفضل_سپاهی میخوان در ملا عام اعدامشون کنن💔 @TasiyanProxy
 </div>
 

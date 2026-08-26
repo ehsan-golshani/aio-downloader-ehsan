@@ -1,8 +1,46 @@
 # آرشیو کانال VahidOOnLine - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/04 13:51
+📅 آخرین بروزرسانی: 1405/06/04 14:38
 
 ---
+
+## VahidOOnLine — post 256610
+
+<div align="center"><img src="files/post_256610_VahidOOnLine_256610.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احمدرضا رادان، فرمانده کل انتظامی جمهوری اسلامی ایران، روز دوشنبه دوم شهریور هشدار داد که «دشمنان» در صدد بهره‌برداری از نارضایتی‌های اقتصادی و اجتماعی برای ایجاد ناآرامی و آشوب در سراسر کشور هستند.
+
+به گزارش خبرگزاری تسنیم، رادان با اشاره به بهانه‌هایی نظیر مشکلات معیشتی، نوسانات اقتصادی، نرخ بنزین و بیکاری گفت: «دشمن به‌دنبال ایجاد ناآرامی در بخشی از کشور یا سراسر آن است.» این اظهارات تنها چند ساعت پیش از رونمایی وزارت خزانه‌داری آمریکا از بسته تحریمی جدید انجام شد؛ بسته‌ای که دونالد ترامپ آن را «روز دی اقتصادی» علیه تهران خوانده است.
+
+فرمانده فراجا از نیروهای پلیس خواست با اتخاذ رویکردی پیشگیرانه، شبکه‌های پنهان در سطح جامعه و فضای مجازی را شناسایی کرده و با افرادی که به دنبال تحریک افکار عمومی هستند، برخورد قاطع داشته باشند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256609
+
+<div align="center"><img src="files/post_256609_VahidOOnLine_256609.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[پست از کانال منبع حذف شد.]
+</div>
+
+## VahidOOnLine — post 256608
+
+<div align="center"><img src="files/post_256608_VahidOOnLine_256608.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حوثی‌های یمن، وابسته به جمهوری اسلامی، اعلام کردند یک نفتکش متعلق به عربستان سعودی را در شمال دریای سرخ، مقابل سواحل ینبع، با موشک بالستیک هدف قرار دادند که این حمله باعث آتش‌سوزی در این شناور شد.
+
+حوثی‌ها اعلام کردند در دو عملیات دیگر، تجمع نیروها و تجهیزات نظامی عربستان سعودی را در مناطق العبر و الکنائس با موشک‌های بالستیک و پهپادها هدف قرار دادند.
+
+این گروه وابسته به جمهوری اسلامی با تاکید بر ادامه اعمال ممنوعیت کشتیرانی دریایی علیه عربستان سعودی در محدوده عملیاتی اعلام‌شده، اعلام کرد که برای مقابله با هرگونه تشدید تنش آماده‌اند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256607
 
@@ -255,50 +293,6 @@ IranintlTV
 
 احمدرضا رادان همچنین اعلام کرد: «جنگ هنوز تمام نشده است و خیلی از غافلگیری‌ها نتیجه غفلت بوده است. دشمن از ما دست برنداشته و جایی از ما دست برمی‌دارد که ما دست برتر داشته باشیم.»
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256590
-
-<div align="center"><video src="files/post_256590_VahidOOnLine_256590.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256590_VahidOOnLine_256590.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در رسانه‌های اجتماعی نشان می‌دهد مادر جاویدنام نازنین‌زهرا صالحی بر سر مزار دخترش ترانه «سوغاتی» هایده را می‌خواند.
-نازنین‌زهرا، ۱۳ ساله، ۱۹ دی ۱۴۰۴ در شهرک بسیج کرمانشاه بر اثر شلیک گلوله ماموران جان باخت.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256589
-
-<div align="center"><video src="files/post_256589_VahidOOnLine_256589.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256589_VahidOOnLine_256589.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صف بنزین گازوئیل در جاده
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256588
-
-<div align="center"><video src="files/post_256588_VahidOOnLine_256588.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256588_VahidOOnLine_256588.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسکندر مومنی، وزیر کشور دولت مسعود پزشکیان روز دوشنبه دوم شهریورماه از فیلد مارشال عاصم منیر، فرمانده ارتش پاکستان استقبال کرد.
-
-سفر این مقام ارشد پاکستان به تهران، در روز آغاز اعمال تحریم‌های «بی‌سابقه» آمریکا علیه ایران انجام می‌شود. ترامپ روز دوشنبه را با ارجاع به روز آغاز عملیات متفقین علیه آلمان در فرانسه، «روز دی اقتصادی/ Economic D Day» توصیف کرده است.
-
-پاکستان میانجی مذاکرات آتش‌بس دور دوم جنگ آمریکا و اسرائیل با جمهوری اسلامی ایران است.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>

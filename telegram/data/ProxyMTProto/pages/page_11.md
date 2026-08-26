@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/04 13:51
+📅 آخرین بروزرسانی: 1405/06/04 14:38
 
 ---
+
+## ProxyMTProto — post 50317
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: max.kimt.click
+Port: 443
+Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50315
 
@@ -163,24 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e63
 Server: mtp1.hlebushek.com
 Port: 443
 Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50297
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ljox44lz.helper.website
-Port: 443
-Secret: eeb4f9b88528d51bd43c20e7d400020711636c6f7564666c6172652e636f6d
 @ProxyMTProto
 </div>
 

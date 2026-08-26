@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 9613
+
+<div align="center"><img src="files/post_9613_tasiyanc_9613.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨استوری فشاری هادی چوپون بعد خط خوردنش از مسابقات مستر المپیا به دلایل سیاسی
+
++ قهرمان ایران مسعود ذات‌پرور هست نه تو
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9612
 
@@ -19,8 +31,6 @@
 </div>
 
 ## tasiyanc — post 9611
-
-<div align="center"><a href="files/post_9611_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
@@ -320,11 +330,5 @@ til.ac/0L4vyJf
 وقتی حال همه بده نایی نمی‌مونه برا فعالیت ، جوانی ما در این مملکت الکی بگا رفت ، طفلی دهه نودی ها ، هشتادی ها و این نوجوان‌های تازه بدوران رسیده ، باز ما به یه چیزایی رسیدیم .. ولی اینا حقشون این نبود چیز های عادی براشون بشه آرزو « دوستون دارم امیدوارم حالتون خوب باشه»
 
 +کانفیگا ضعیف بشه میزارم .
-</div>
-
-## tasiyanc — post 9583
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥⚡ Number One Pre.npvt
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 6026
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوست من سه روز پیش اکانتش پرید
+</div>
 
 ## tasiyanc — post 6025
 
@@ -148,11 +154,5 @@ VİP 🔥.npvt
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6001
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴۰ هزار نفر ۲ تا ریکشن🤣🤣
 </div>
 

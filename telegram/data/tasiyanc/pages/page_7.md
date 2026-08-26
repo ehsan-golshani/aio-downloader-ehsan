@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 9463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت چطوره؟
+</div>
 
 ## tasiyanc — post 9462
 
@@ -317,17 +323,5 @@ til.ac/0L4vyJf
 ‌
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 9441
-
-<div align="center"><video src="files/post_9441_tasiyanc_9441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9441_tasiyanc_9441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 بدترین سرنوشت برای یک حاکم( رهبر) اینه که مردمش از دستش بنالند و دائما نفرینش کنند .... آه دل داغ دیدگان یقه کوچیک و بزرگتان را خواهد گرفت ( استاد کاکاوند)
-
-@Tasiyanc ☑️
 </div>
 

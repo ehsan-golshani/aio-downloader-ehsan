@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 9032
+
+<div align="center"><img src="files/post_9032_tasiyanc_9032.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز تولد جاویدنام شیوا جاویده که در ۱۸ سالگی به قتل رسید 🕊️
+
+شیوا جاوید ۱۸ ساله، به همراه پدرش علی‌اکبر جاوید ۳۸ ساله، هر دو در مشهد، در آغوش همدیگه به قتل رسیدن.
+
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9031
 
@@ -294,43 +307,5 @@ g14
 •اتصال امن برای همه 🇮🇷
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9006
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 این ۱۰ وب سایت هم با استفاده از هوش مصنوعی میتونن در زمینه ساخت ویدیو و تولید محتوای تصویری مفید باشن - پرامپت رو از ChatGpt بگیرید بدید به سایت های زیر درست کنه
-
-1️⃣  Fliki -
-http://fliki.ai
-
-2️⃣ Tavus -
-http://tavus.ai
-
-3️⃣ D-ID -
-http://d-id.com
-
-4️⃣ Wombo -
-http://deepart.io
-
-5️⃣ Reface -
-http://hey.reface.ai
-
-6️⃣ Hour One -
-http://hourone.ai
-
-7️⃣ Rephrase -
-http://rephrase.ai
-
-8️⃣ Synthesia -
-http://synthesia.io
-
-9️⃣ DeepBrain -
-http://deepbrain.io
-
-1️⃣0️⃣ EmbodyMe -
-http://embodyme.com
-
-Join 👹 @TASIYANC ✅
 </div>
 

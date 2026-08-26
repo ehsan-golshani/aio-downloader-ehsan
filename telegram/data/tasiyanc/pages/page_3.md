@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 9555
+
+<div align="center"><img src="files/post_9555_tasiyanc_9555.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری؛ وزیر خزانه‌داری آمریکا:
+
+از بامداد امروز، حمله مالی به ایران رو آغاز میکنیم؛ بزرگ‌ترین حمله از این نوع در تاریخ.
+
+هدف ما این هست که تمام خطوط اقتصادی رو که حکومت ایران رو سرپا نگه داشته قطع کنیم.‌‌ هر کشوری که به عنوان شریان مالی برای رژیمی در آستانه فروپاشی عمل کنه، باید منتظر تحریم‌های شدید باشه.
+هرگونه اقدام نظامی علیه نیروهای ما یا علیه کشورهای خلیج فارس توسط رئیس جمهور ترامپ به سرعت و قاطعانه پاسخ خواهد داد.‌‌
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9554
 
@@ -281,17 +295,5 @@ til.ac/0L4vyJf
 @TasiyanProxy
 @TasiyanProxy
 ارائه پروکسی های پر سرعت 📡
-</div>
-
-## tasiyanc — post 9535
-
-<div align="center"><video src="files/post_9535_tasiyanc_9535.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9535_tasiyanc_9535.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠صداوسیما در اقدامی عجیب، اطلاعات محرمانه و مکان‌های دقیق تردد پسر ترامپ و نقاطی که در تیررس است را منتشر کرد
-
-🩸 @Tasiyanc
 </div>
 

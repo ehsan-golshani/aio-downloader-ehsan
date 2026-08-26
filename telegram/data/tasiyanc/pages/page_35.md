@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 8744
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 #امیرحسین_صفری #علیرضا_سپاهی #ابولفضل_سپاهی میخوان در ملا عام اعدامشون کنن💔 @TasiyanProxy
+</div>
 
 ## tasiyanc — post 8742
 
@@ -213,11 +219,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 🔗 لینک دانلود از گیتهاب
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8716
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود @TASIYANC ✅
 </div>
 

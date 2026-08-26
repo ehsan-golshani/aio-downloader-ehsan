@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/04 13:51
+📅 آخرین بروزرسانی: 1405/06/04 14:38
 
 ---
+
+## ProxyMTProto — post 50057
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: speed2.luna-tun.site
+Port: 443
+Secret: ee6e53ed117b401c54bc880b545089e6276f7a6f6e2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50056
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50055
 
@@ -163,24 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: mt.nowabst.net
 Port: 853
 Secret: ee4e9fcd5caf6e9be2f8ec43e370e902d6766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50037
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: chai.mikham.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50036
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp.webvirt.cloud
-Port: 443
-Secret: ee938dd87467bc49301de2e9765cf20f4374656c2e776562766972742e636c6f7564
 @ProxyMTProto
 </div>
 

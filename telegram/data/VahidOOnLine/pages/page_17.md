@@ -1,8 +1,52 @@
 # آرشیو کانال VahidOOnLine - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/04 13:51
+📅 آخرین بروزرسانی: 1405/06/04 14:38
 
 ---
+
+## VahidOOnLine — post 256590
+
+<div align="center"><video src="files/post_256590_VahidOOnLine_256590.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256590_VahidOOnLine_256590.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در رسانه‌های اجتماعی نشان می‌دهد مادر جاویدنام نازنین‌زهرا صالحی بر سر مزار دخترش ترانه «سوغاتی» هایده را می‌خواند.
+نازنین‌زهرا، ۱۳ ساله، ۱۹ دی ۱۴۰۴ در شهرک بسیج کرمانشاه بر اثر شلیک گلوله ماموران جان باخت.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256589
+
+<div align="center"><video src="files/post_256589_VahidOOnLine_256589.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256589_VahidOOnLine_256589.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صف بنزین گازوئیل در جاده
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256588
+
+<div align="center"><video src="files/post_256588_VahidOOnLine_256588.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256588_VahidOOnLine_256588.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسکندر مومنی، وزیر کشور دولت مسعود پزشکیان روز دوشنبه دوم شهریورماه از فیلد مارشال عاصم منیر، فرمانده ارتش پاکستان استقبال کرد.
+
+سفر این مقام ارشد پاکستان به تهران، در روز آغاز اعمال تحریم‌های «بی‌سابقه» آمریکا علیه ایران انجام می‌شود. ترامپ روز دوشنبه را با ارجاع به روز آغاز عملیات متفقین علیه آلمان در فرانسه، «روز دی اقتصادی/ Economic D Day» توصیف کرده است.
+
+پاکستان میانجی مذاکرات آتش‌بس دور دوم جنگ آمریکا و اسرائیل با جمهوری اسلامی ایران است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256587
 
@@ -240,55 +284,6 @@ IranintlTV
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از بازنشستگان مخابرات در تهران دوشنبه دوم شهریور تجمع کردند و شعارهایی چون «این همه بی‌عدالتی، هرگز ندیده ملتی» سردادند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256561
-
-<div align="center"><video src="files/post_256561_VahidOOnLine_256561.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256561_VahidOOnLine_256561.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کریستیانو رونالدو، ستاره فوتبال باشگاه النصر عربستان شامگاه یکشنبه در کنار شاهزاده محمد بن سلمان، ولیعهد عربستان سعودی و امانوئل مکرون، رئیس جمهوری فرانسه در مراسم اختتامیه جام جهانی ورزش‌های الکترونیکی ۲۰۲۶ در پاریس شرکت کرد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256560
-
-<div align="center"><img src="files/post_256560_VahidOOnLine_256560.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رئیس جمهوری ایالات متحده روز دوشنبه دوم شهریور مقاله نیوز مکس درباره سخنان هفته گذشته محمدباقر قالیباف در عراق را بازنشر کرد.
-
-رئیس مجلس و عضو ارشد هیات مذاکره‌کننده جمهوری اسلامی ایران، هفته گذشته در جریان سخنرانی در جمع فعالان اقتصادی ایرانی و عراقی گفته بود آمریکا در جنگ نظامی شکست خورده است و حالا به سراغ جنگ اقتصادی و شناختی رفته است. اگر در میدان اقتصادی قوی نباشیم، شکست خواهیم خورد.
-
-ترامپ این مقاله را در آستانه اعمال تحریم‌های بی‌سابقه علیه ایران بازنشر کرده است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256559
-
-<div align="center"><img src="files/post_256559_VahidOOnLine_256559.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری رویترز به نقل از چند مقام پاکستانی اعلام کرد عاصم منیر، فرمانده ارتش پاکستان، هفته گذشته و پیش از سفر به تهران، با دونالد ترامپ تلفنی گفت‌وگو کرده است.
-
-سه منبع پاکستانی در گفت‌وگو با رویترز تاکید کردند این تماس چند روز پیش از آن انجام شد که انتظار می‌رفت منیر دوشنبه برای گفت‌وگو با مقام‌های جمهوری اسلامی به تهران سفر کند.
-
-به گزارش رویترز، این تماس که پیش از این گزارش نشده بود، در شرایطی انجام شد که آمریکا اعلام کرده است تحریم‌های اقتصادی گسترده‌ای را علیه جمهوری اسلامی و شرکای تجاری آن اعمال خواهد کرد.
-
-در این گزارش همچنین آمده است انتظار می‌رود فرمانده ارتش پاکستان، دوشنبه با افرادی نزدیک به مجتبی خامنه‌ای، دیدار کند.
-
-رویترز نوشت تنش‌های میان آمریکا و جمهوری اسلامی یکی از محورهای مورد انتظار در این سفر عنوان شده است.
-
-یک منبع دیگر در دولت پاکستان نیز گفت: «منیر همچنین قرار است درباره حملات اخیر حوثی‌های وابسته به جمهوری اسلامی به عربستان سعودی، متحد پاکستان، گفت‌وگو کند.»
 IranintlTV
 
 🤖 @VahidOOnLine

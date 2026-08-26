@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 111
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 6207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد CM  👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6206
 
@@ -175,21 +184,5 @@ GANG 🇳🇱🇬🇧🚀 (1).npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختلال رو خطوط همراه ادامه داره
 ولی سرورهای ما وصله 💋
-</div>
-
-## tasiyanc — post 6182
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-
-3سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
 </div>
 

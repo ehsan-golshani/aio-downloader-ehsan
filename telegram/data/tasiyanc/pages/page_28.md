@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 8937
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated ⚡️ ━━━╮
+
+vless://70df38ff-5a22-4ffc-a3f9-1725515e0ea5@205.237.109.211:448?security=reality&encryption=none&pbk=IuB1jsALd-wN_8jRTGxVLBbVG5eSxNbOXjvFyZlm3UU&headerType=none&fp=chrome&type=tcp&sni=www.samsung.com&sid=113241ad01e99a2d#GB%20%20%F0%9F%87%AC%F0%9F%87%A7%20%40Tasiyanc
+
+vless://7216b4e8-e935-4d68-b959-73d145accdee@154.222.9.240:443?security=reality&encryption=none&pbk=ISa-DZOI4LRRb9DHMFYm5oFqBXDjYzz0hVWUfWvzLmo&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=8d3293f0066e129a#DE%20%40Tasiyanc%20%E2%9A%A1
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%F0%9F%87%B9%F0%9F%87%B7%20%40Tasiyanc%20%E2%9A%A1
+
+📍Location 🇹🇷 🇬🇧 🇩🇪
+
+⚡️ By  @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8936
 
@@ -260,15 +276,5 @@ IPv6
 پروکسی | پروکسی | پروکسی
 
 🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8914
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥با این سایت به راحتی میتونی کل ضرر های جام جهانی رو جبران کنی
-بونوس هاش واقعا عالیه👌🏼
-❌با هر 1 میلیون شارژ ، 🤩🤩🤩 هزارتومان شارژ اضافی بگیر🅰️
-
-✅ اپ اختصاصی با دسترسی راحت
 </div>
 

@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 8914
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥با این سایت به راحتی میتونی کل ضرر های جام جهانی رو جبران کنی
+بونوس هاش واقعا عالیه👌🏼
+❌با هر 1 میلیون شارژ ، 🤩🤩🤩 هزارتومان شارژ اضافی بگیر🅰️
+
+✅ اپ اختصاصی با دسترسی راحت
+</div>
 
 ## tasiyanc — post 8913
 
@@ -247,76 +257,6 @@ g10
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔺ایالات متحده آمریکا از تمامی شهروندانش خواسته هرچه سریع بدون وقفه خاورمیانه رو ترک کنن
 
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8888
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ سایت‌های کاربردی در زمان قطعی اینترنت
-
-🔝 آپلود (انتقال متن، کانفیگ، فایل و برنامه)
-pastehub.ir
-m.ulni.ir
-uploadkon.ir
-picofile.com
-uupload.ir
-linklick.ir
-nixfile.com
-⬇️ دانلود فیلم و سریال (بدون سانسور)
-myf2m.info
-serialblog.blog.ir
-filmaz.ir
-movie-chi.ir (اشتراکی)
-filmjoo.xyz
-filmkio.run (اشتراکی)
-dls2.iran-gamecenter-host.com/DonyayeSerial
-simbaapp.ir (نیمه‌اشتراکی)
-movielix.ir (اشتراکی)
-kiamovie.ir (نیمه‌اشتراکی)
-📃 دانلود زیرنویس
-subkade.ir
-subzone.ir
-3fa.ir
-🎵 دانلود موسیقی
-radio.9craft.ir
-melovaz.ir
-behmelody.in
-📚 کتاب
-fidibo.com
-taaghche.com
-navaar.ir
-libra-books.com
-ebooksworld.ir
-🎮نرم‌افزار و بازی
-bazion.ir
-soft98.ir
-yasdl.com
-farsroid.com
-par30games.net
-gameq.ir
-cafebazaar.ir
-downloadha.com
-gold-team.org
-sarzamindownload.com
-dlfox.com
-🔎 جستجوگرهای داخلی
-zarebin.ir
-gerdoo.me
-shaadbin.ir
-2059.ir
-🤷‍♂️ هوش مصنوعی و Ai
-chat.boofai.com
-hooshang.ai
-chat.smartbytes.ir
-🌀مسیریابی
-neshan.org
-balad.ir
-🌐ترجمه و دیکشنری
-abadis.ir
-fastdic.com
-dic.b-amooz.com
-﻿
 🔱 @TASIYANC
 </div>
 

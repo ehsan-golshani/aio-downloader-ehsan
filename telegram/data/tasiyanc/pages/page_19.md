@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 9156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱 ممنون ک هستید❤️
+</div>
 
 ## tasiyanc — post 9155
 
@@ -218,22 +224,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 👉 دریافت پرامپت 
 👉 @TASIYANC 
 ⭐️
-</div>
-
-## tasiyanc — post 9132
-
-<div align="center"><img src="files/post_9132_tasiyanc_9132.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Mountain Embrace ❤️
-
-
-آموزش استفاده 👉
-
-دریافت پرامپت 👉
-
-@TASIYANC ⭐️
 </div>
 

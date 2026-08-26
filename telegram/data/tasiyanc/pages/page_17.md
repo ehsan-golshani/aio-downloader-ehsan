@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/04 13:17
+📅 آخرین بروزرسانی: 1405/06/04 14:40
 
 ---
+
+## tasiyanc — post 9212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐 @Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9211
 
@@ -323,15 +329,5 @@ http://til.ac/z5jcpGT
 
 🔥کانال اطلاع رسانی ایران:👇
 https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9181
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قانون جدید
-اگر مدل ماشینتون 1385به قبله، جزو خودروهای فرسوده حساب میشه و
-به این ماشین‌ها دیگه بنزین سهمیه‌ای نمیدن، حق تو اسنپ و تاکسی های اینترنتی هم ندارن!
-
-@Tasiyanc ⭐️
 </div>
 
