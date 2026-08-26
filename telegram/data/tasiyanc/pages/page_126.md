@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/06/04 15:22
+📅 آخرین بروزرسانی: 1405/06/04 18:22
 
 ---
+
+## tasiyanc — post 5813
+
+<div align="center"><img src="files/post_5813_tasiyanc_5813.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانسل
+
+گوشیم رو بروز کردم
+</div>
 
 ## tasiyanc — post 5812
 
@@ -190,13 +200,5 @@ Fast ⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♨️ فعال شدن پدافند در بندرعباس
-</div>
-
-## tasiyanc — post 5791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارشات از صدای انفجار در بندرعباس
-
-@Tasiyanc ✅
 </div>
 

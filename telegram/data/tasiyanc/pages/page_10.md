@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/04 15:22
+📅 آخرین بروزرسانی: 1405/06/04 18:22
 
 ---
+
+## tasiyanc — post 9396
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢مدیرعامل آسیاتک: مردم بی‌رویه اینترنت مصرف می‌کنند چون قیمت هر گیگ اینترنت ناچیز است!
+
+زمینه سازی میکنید گرون کنید جا*شا؟
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9395
 
@@ -221,14 +231,5 @@ g26
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 قالیباف: ۹۰ میلیون ایرانی حامی نظام جمهوری اسلامی هستن
 @Tasiyanc 🏛
-</div>
-
-## tasiyanc — post 9368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ناو هواپیمابر جورج بوش از ژاپن سمت خاورمیانه راه افتاده و ۱۰ روز دیگه به سواحل جنوبی ایران میرسه
-
-گفته میشه قراره جانشین ناو لینکلن بشه
-@Tasiyanc ⭐️
 </div>
 

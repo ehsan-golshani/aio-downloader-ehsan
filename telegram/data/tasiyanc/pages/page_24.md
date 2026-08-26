@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/04 15:22
+📅 آخرین بروزرسانی: 1405/06/04 18:22
 
 ---
+
+## tasiyanc — post 9035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 6 آگوست روز جهانی فوت فتیش هاست 🐸
+
+بفرست برا کسی که میخوای عکس پاشو برات بده 😂
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9034
 
@@ -279,27 +288,5 @@ g14
 
 https://t.me/+cBQ8n7zLQiUzN2U0
 https://t.me/+cBQ8n7zLQiUzN2U0
-</div>
-
-## tasiyanc — post 9009
-
-<div align="center"><img src="files/post_9009_tasiyanc_9009.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-40 میلیون تومن برداشت روزانه ی کانال تراست بت 
-🎁
-پول دراوردن از بت تجربه و استراتژی میخواد نه ادعا
-
-برایند ماه تیر توی کانال تراست بت: 78 درصد رشد سرمایه بود
-✅
-
-40 بازی اخیر 34 برد 
-📊
-
-
-💠https://t.me/+cBQ8n7zLQiUzN2U0
-g14
-
-💠 https://t.me/+cBQ8n7zLQiUzN2U0
 </div>
 

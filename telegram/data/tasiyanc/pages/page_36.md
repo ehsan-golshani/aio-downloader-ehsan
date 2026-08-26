@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/06/04 15:22
+📅 آخرین بروزرسانی: 1405/06/04 18:22
 
 ---
+
+## tasiyanc — post 8718
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وارد 5/5/5 شدیم ، برنامتون چیه؟
+</div>
 
 ## tasiyanc — post 8717
 
@@ -249,18 +255,6 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔺صحبت های شگفت‌انگیز پدر بمب اتم «رابرت اوپنهایمر» ...
 اکنون من خود مرگ شده ام .... نابودگر جهان!
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8691
-
-<div align="center"><img src="files/post_8691_tasiyanc_8691.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه عکسیه که چند روزه از اعتراضات دی ماه وایرال شده، پیکر بی جان یه پسر جوون افتاده وسط خیابون و خون ازش سرازیر شده.
-
-این عکس مربوط به جاویدنام علی احمدیه که فقط ۱۴ سال سن داشت و خرج خواهر معلولش رو میداد.
 
 @TASIYANC ⭐️
 </div>

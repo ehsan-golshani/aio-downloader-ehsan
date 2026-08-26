@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/06/04 15:22
+📅 آخرین بروزرسانی: 1405/06/04 18:22
 
 ---
+
+## tasiyanc — post 8747
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به وقت اذان صبح 💔
+</div>
 
 ## tasiyanc — post 8745
 
@@ -202,11 +208,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بنظرم زیباترین هدیه 5/5/5 به من شمایید ک دارمتون 💘
-</div>
-
-## tasiyanc — post 8718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وارد 5/5/5 شدیم ، برنامتون چیه؟
 </div>
 

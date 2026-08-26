@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/06/04 15:22
+📅 آخرین بروزرسانی: 1405/06/04 18:22
 
 ---
+
+## tasiyanc — post 5791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارشات از صدای انفجار در بندرعباس
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5790
 
@@ -168,20 +176,5 @@ vless://4dc0eec9-f0e1-4755-be7e-7ba628522d1b@91.99.145.207:443?path=%2F&security
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 PREMIUM 💥.npvt
-</div>
-
-## tasiyanc — post 5764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  
-📱
-
-⛈4 سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید 
-✅
-
-
-🚀 @Tasiyanc ✅
 </div>
 

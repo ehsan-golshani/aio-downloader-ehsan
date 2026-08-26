@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/06/04 15:22
+📅 آخرین بروزرسانی: 1405/06/04 18:22
 
 ---
+
+## tasiyanc — post 6137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی کانفیگ وایرگارد متد جدید 👑
+
+تست شده 🎚
+دانلود برنامه Wg tunnel 🕹
+آموزش ویدیویی ⏩
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6136
 
@@ -181,16 +193,5 @@ Fast2⚡@Tasiyanc.conf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این کانفیگا برای تست هست اگر اوکی باشه روش کار میکنیم
-</div>
-
-## tasiyanc — post 6109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی کانفیگ وایرگارد ✅
-
-تست شده 🎚
-
-دانلود برنامه Wg tunnel 🕹
-@Tasiyanc ✅
 </div>
 

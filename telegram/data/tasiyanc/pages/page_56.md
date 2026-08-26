@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/06/04 15:22
+📅 آخرین بروزرسانی: 1405/06/04 18:22
 
 ---
+
+## tasiyanc — post 8119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴قرارگاه مرکزی سپاه پاسداران در راسک توسط آمریکا هدف قرار گرفت
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8118
 
@@ -216,17 +224,6 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دوس پسرم جوابمو نمی‌ده حتما داره بهم خیانت می‌کنه ، دوس پسرش :
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8092
-
-<div align="center"><img src="files/post_8092_tasiyanc_8092.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیس و دیس بک😂
-
 
 @Tasiyanc ⭐️
 </div>
