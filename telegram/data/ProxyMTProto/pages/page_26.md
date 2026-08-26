@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/04 16:01
+📅 آخرین بروزرسانی: 1405/06/04 17:38
 
 ---
+
+## ProxyMTProto — post 50023
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 2083
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50021
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 65.21.205.29
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50020
 
@@ -154,33 +181,6 @@ Secret: ee24b3e49b9d33101f2c34e5e893bd90d17777772e6d6963726f736f66742e636f6d
 Server: beer.crona-extra.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp1.hlebushek.com
-Port: 443
-Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50001
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: happy.whiteproxy.baby
-Port: 443
-Secret: ddf1284a8137961061b01ca4ace364b422
 @ProxyMTProto
 </div>
 

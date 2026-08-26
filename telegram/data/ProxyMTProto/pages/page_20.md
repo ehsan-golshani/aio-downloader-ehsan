@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/04 16:01
+📅 آخرین بروزرسانی: 1405/06/04 17:38
 
 ---
+
+## ProxyMTProto — post 50143
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: iran.connectina.co.uk.
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: freeinternet.skin
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50141
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50140
 
@@ -154,33 +181,6 @@ Secret: ee77e833a4cf612b12af5c86614cc5291a656467652e6361747370726f78792e73686f70
 Server: fresh.t-proxy.info.
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 2053
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50121
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gamerpr.cfd
-Port: 8880
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 

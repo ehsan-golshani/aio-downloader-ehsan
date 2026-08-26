@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/04 16:01
+📅 آخرین بروزرسانی: 1405/06/04 17:38
 
 ---
+
+## ProxyMTProto — post 50363
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50362
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: edge2.medhata.org
+Port: 2443
+Secret: ee210a1476d9f3374fed48b19ccd3ad7b665646765322e6d6564686174612e6f7267
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50361
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50360
 
@@ -154,33 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e
 Server: topproxt.asia
 Port: 443
 Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50343
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxtstar.live
-Port: 443
-Secret: eed21e15e0d7df3d811a11e2accff34eec617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: irancell-mci-rightell-adsl.nowhearthis.co.uk.
-Port: 443
-Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/06/04 16:01
+📅 آخرین بروزرسانی: 1405/06/04 17:38
 
 ---
+
+## ProxyMTProto — post 48893
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48892
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: swag.caxero.ru
+Port: 443
+Secret: 8f3c7a1d4b92e6c51a7d0fb843c2e91f
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48891
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48890
 
@@ -154,33 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: thebestone.nolags.pw
 Port: 443
 Secret: dd500852dff560b32a1580986b7f43cd28
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48873
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48872
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/06/04 16:01
+📅 آخرین بروزرسانی: 1405/06/04 17:38
 
 ---
+
+## ProxyMTProto — post 48631
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: get.utkanos.life
+Port: 443
+Secret: eef09a7a4c51b6bc6caf4d3134b312b0f56765742e75746b616e6f732e6c696665
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48630
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 92.246.87.243
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: net.freetg.pw
+Port: 443
+Secret: eebd79a03bd57944c4830f41e0f2fb94626e65742e6672656574672e7077
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48628
 
@@ -154,33 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e
 Server: mtp.nowabst.net
 Port: 853
 Secret: 7oLOH4SvQDPMfnsCEGm-PVthZHMueDUucnU
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48611
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48610
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: secure.gorbushkin.click
-Port: 443
-Secret: eee90419f865de23f95a859171396bc3d47365637572652e676f72627573686b696e2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48609
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
 @ProxyMTProto
 </div>
 
