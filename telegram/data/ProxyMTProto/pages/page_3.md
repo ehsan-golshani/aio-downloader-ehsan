@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/04 23:07
+📅 آخرین بروزرسانی: 1405/06/05 02:10
 
 ---
+
+## ProxyMTProto — post 50496
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50495
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: itis.startnetwork.shop
+Port: 443
+Secret: dde306a0dff7bda73245c6020644335ad1
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50494
 
@@ -163,24 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: way.mtproto.baby
 Port: 443
 Secret: dd187b4224150d9b3c9485d133801395be
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 135.181.74.178
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy.vechnostnet.study
-Port: 443
-Secret: ddc646025a400b371427cc76dcf472fe1d
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/04 23:09
+📅 آخرین بروزرسانی: 1405/06/05 02:12
 
 ---
+
+## tasiyanc — post 9435
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با #کد های هدیه کسب درآمد میکنید 🤑
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 9434
+
+<div align="center"><img src="files/post_9434_tasiyanc_9434.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☝فاصله ی تو با پول دراوردن فقط یک کلیک
+
+🔺فقط فوتبال تماشا نکن از پبشبینی فوتبال پول در بیار چطوری ⁉️ بیا تا بهت بگم
+
+⚡️ پلتفرم جهانی ریتزوبت به کاربران فارسی زبان خودش 100% هدیه شارژ اولیه میده
+
+🔺 یعنی اگه 1.000.000 داشته باشی 1.000.000 هم ریتزوبت بهت میده
+
+☑️ این یه بیزنس بین المللی و جهانی شرط بندی اما در محیط امن و سالم
+
+🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇g27
+
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 9433
+
+<div align="center"><video src="files/post_9433_tasiyanc_9433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9433_tasiyanc_9433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز تولد جاویدنام و بچه قهرمان ایران ملینا اسدی ؛
+
+دختر بچه ی ۳ ساله ای که به ضرب گلوله در ۱۸ دیماه غرق در خون شد و برای همیشه چشمان زیبایش را بست
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 9432
+
+<div align="center"><img src="files/post_9432_tasiyanc_9432.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سود های میلیارد دلاری شرکت های نفتی آمریکا بعد جنگ:
+
+پ ن : حالا شما هی تو صداسیما بگو پیروز شدیم
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9431
 
@@ -172,36 +237,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 603799746347**** شماره کارت دوم
-</div>
-
-## tasiyanc — post 9412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی نظام آبادی - کد ملی : 3100474*** شهر بم شماره کارت: 589210170532**** فقط امشب فرصت داری چنلتو پاک کنی عکس ناموس مردم حذف کنی و بری پی زندگیت
-</div>
-
-## tasiyanc — post 9411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
-</div>
-
-## tasiyanc — post 9410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
-</div>
-
-## tasiyanc — post 9409
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇
-@wWwWwWwWwWwWwWwWwWwWwW26
-
-من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه
-
-هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این شخص بدست بیارید سریع بفرستید پیوی ادمین هزینشو ... هم میدیم
-
-@TSSUB
 </div>
 

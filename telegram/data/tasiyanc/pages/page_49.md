@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/06/04 23:09
+📅 آخرین بروزرسانی: 1405/06/05 02:12
 
 ---
+
+## tasiyanc — post 8335
+
+<div align="center"><img src="files/post_8335_tasiyanc_8335.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زیبایي کوههای مریخيِ چابهارِ زیبا
+
+پروکسی | پروکسی | پروکسی | پروکسی
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
+</div>
+
+## tasiyanc — post 8324
+
+<div align="center"><img src="files/post_8324_tasiyanc_8324.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تفاوت‌های جنسی در دنیای جانوران 🦋
+
+پروکسی | پروکسی | پروکسی | پروکسی
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8323
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت همراه اول/ایرانسل تو شهر شما چطوریه؟
+</div>
 
 ## tasiyanc — post 8322
 
@@ -146,41 +182,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8302
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاطمه مهاجرانی، سخنگوی دولت:
-
-دولت پزشکیان تا پای جان کنار مردم خونگرم جنوبه و از صبر و ایستادگیشون تو دوران متشنج جنگی تشکر میکنه
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 کویت اعلام کرد که موشک‌های بالستیک و پهپادهای ایرانی را که وارد فضای هوایی این کشور شده بودند، رهگیری کرده است.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8300
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺ صداوسیما : ۳ انفجار در سیریک شنیده شد.
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دولت عراق مجوز فعالیت استارلینک تو این کشور رو رسما امضا کرد
-.
-
-@Tasiyanc✅
 </div>
 

@@ -1,8 +1,80 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/04 23:09
+📅 آخرین بروزرسانی: 1405/06/05 02:12
 
 ---
+
+## tasiyanc — post 9577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
+
+## tasiyanc — post 9576
+
+<div align="center"><img src="files/post_9576_tasiyanc_9576.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️اولین سایت جهانی برای کاربران ایران با واریز برداشت مستقیم⬇️
+
+🪙سایت بین المللی و معتبر لاین بت
+
+❤️‍🔥اسپانسر لیگ  فرانسه
+💳 واریز و برداشت ریالی
+👀بازگشت باخت ب صورت هفتگی
+📣دارای پشتیبانی فارسی فعال
+🎁بونوس 💯 روز های دوشنبه
+sa2
+🎡کدهدیه ثبت نام ➡️ L5670
+
+🔗《 لینک سایت برای کاربران ایرانی》
+
+👍《 دانلود اپلیکیشن اندروید》
+❤️https://telegram.me/+dukgrB6-zGsyNGM8
+🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
+
+✔️ آموزش کامل و جامع شرطبندی👉
+</div>
+
+## tasiyanc — post 9573
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ پرس تی وی:
+ایران مستقیماً پیشنهاد مورد حمایت ترامپ که چند ساعت پیش از طریق پاکستان به ایران ارائه شد را رد کرد
+ایران از سرگیری مذاکرات با ایالات متحده را نیز نپذیرفت
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  😎
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9566
 
@@ -276,47 +348,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9549
-
-<div align="center"><img src="files/post_9549_tasiyanc_9549.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجموعه تاسیان ، روز پزشک را به تمام پزشکان و کادر درمان باشرف تبریک میگوید ، یاد و نام پزشکان و کادر درمان جاویدنام ک جانفدای ایران شدند گرامی باد ❤️
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9548
-
-<div align="center"><video src="files/post_9548_tasiyanc_9548.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9548_tasiyanc_9548.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واکنش تند علاحضرت شاهنشاه آریامهر محمدرضاشاه پهلوی به استفاده واژه جعلی خلیج به جای خلیج‌فارس
-
-اعراب را وادار به عقب نشینی و گفتن کلمه غلط کردیم دیگه تکرار نمیکنیم وادار کرد
-
-🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9547
-
-<div align="center"><video src="files/post_9547_tasiyanc_9547.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9547_tasiyanc_9547.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتی بعد مرگ از ایرانی‌ جماعت میپرسن زندگی تو دنیا چطوری بود؟:
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9546
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇮🇳 @Tasiyanc.ovpn
 </div>
 
