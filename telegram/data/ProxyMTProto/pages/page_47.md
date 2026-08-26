@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/06/04 12:04
+📅 آخرین بروزرسانی: 1405/06/04 13:15
 
 ---
+
+## ProxyMTProto — post 49591
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49590
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: media1.happtg.org
+Port: 443
+Secret: ee73e7d7fe41b49d9091f78c8c92c22de4766b2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49589
 
@@ -163,24 +181,6 @@ Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49571
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fleethop.online
-Port: 443
-Secret: eed82e9162b09c2ddfdbe3ddfe7d28d87a666c656574686f702e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49570
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/06/04 12:04
+📅 آخرین بروزرسانی: 1405/06/04 13:15
 
 ---
+
+## ProxyMTProto — post 48122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: moh.kingproxynewdomailasiatech.ink
+Port: 25565
+Secret: FgMBAgABAAH8AxOG4kw63Q
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48121
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: web.prxtoday.store
+Port: 443
+Secret: ee7a5660b84770213722fe3581bcb17faa7765622e707278746f6461792e73746f7265
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48120
 
@@ -163,24 +181,6 @@ Secret: eed2430edff0d3fc503099f982282bd0066c6976652e70726f787976706e2e73697465
 Server: mt.nowabst.net
 Port: 853
 Secret: 7hKJP_0gRM7NMRBO3AKn5VhhZHMueDUucnU
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48102
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 167.233.115.193
-Port: 100
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0YYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYY
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp.nowabst.net
-Port: 853
-Secret: ee82ce1f84af4033cc7e7b021069be3d5b6164732e78352e7275
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/06/04 09:28
+📅 آخرین بروزرسانی: 1405/06/04 13:17
 
 ---
+
+## tasiyanc — post 7623
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تیم انور سادات فقید 2 , استرالیا 1
+</div>
+
+## tasiyanc — post 7622
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به امید برد تیم بزرگ مصر میراث انور سادات فقید رفیق واقعی ایرانیان
+</div>
+
+## tasiyanc — post 7621
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تیم انور سادات بزرگ شاهنشاه فقید مصر و استرالیا رفت پنالتی
+</div>
 
 ## tasiyanc — post 7620
 
@@ -148,29 +166,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
  
 ✅@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کاپل امروز رفتن بالای empire state و پسره از دختره خواستگاری کرد چقدررر خفن و سکسی بود @TasiyanProxy✅
-</div>
-
-## tasiyanc — post 7580
-
-<div align="center"><img src="files/post_7580_tasiyanc_7580.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کاپل امروز رفتن بالای empire state و پسره از دختره خواستگاری کرد
-
-چقدررر خفن و سکسی بود
-
-@TasiyanProxy✅
-</div>
-
-## tasiyanc — post 7578
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 💠
 </div>
 

@@ -1,8 +1,19 @@
 # آرشیو کانال ProxyMTProto - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/06/04 12:04
+📅 آخرین بروزرسانی: 1405/06/04 13:15
 
 ---
+
+## ProxyMTProto — post 49531
+
+## ProxyMTProto — post 49530
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49529
 
@@ -163,24 +174,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: link.mishkalapy.life
 Port: 443
 Secret: ee593055789a7706cf0634b2ca4acb8f046c696e6b2e6d6973686b616c6170792e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49510
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: net.freetg.pw
-Port: 443
-Secret: ee274f39871728289d47ac1318434218c16e65742e6672656574672e7077
 @ProxyMTProto
 </div>
 

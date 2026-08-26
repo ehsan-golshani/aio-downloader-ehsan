@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/06/04 12:04
+📅 آخرین بروزرسانی: 1405/06/04 13:15
 
 ---
+
+## ProxyMTProto — post 49671
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49670
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: medblock.fit
+Port: 443
+Secret: ee56f78cfdeedfc4562c048fe36e92f8976d6564626c6f636b2e666974
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49669
 
@@ -162,24 +180,6 @@ Secret: ee24918e3782cee00f652c0018f2867ffd6e65742e616e7469747370752e636f6d
 Server: Unknown
 Port: 4443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gate.soluqent.pro
-Port: 443
-Secret: eebdbd1f66a7c00e7bf92c6436d457861d676174652e736f6c7571656e742e70726f
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49650
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 6775
-Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

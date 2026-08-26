@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/06/04 09:28
+📅 آخرین بروزرسانی: 1405/06/04 13:17
 
 ---
+
+## tasiyanc — post 6945
+
+<div align="center"><video src="files/post_6945_tasiyanc_6945.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6945_tasiyanc_6945.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 
+📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال 
+⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز June 15
+روز جهانی گل گرفتنه 💐
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتونم بخیر 🥹
+</div>
 
 ## tasiyanc — post 6942
 
@@ -159,57 +193,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 <div align="center"><video src="files/post_6924_tasiyanc_6924.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_6924_tasiyanc_6924.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 
-😎
-
-۳سرور سرعتی تست شده  
-🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 
-🕹 IOS 
-📱 Android 
-
-آموزش اتصال 
-🔹
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6921
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑ساب لینک اختصاصی تاسیان
-👑
-
-https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-اینو بزنید 🔐
-🔐 هر ۴ ساعت کانفیگا آپدیت میشن
-بعد از ۴ ساعت update subscription بزنید تا آپدیت شن
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟢 ساب لینک اختصاصی تاسیان 🔹پر سرعت و نامحدود 🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt 
-🔐 🔐 
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6919
-
-<div align="center"><video src="files/post_6919_tasiyanc_6919.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6919_tasiyanc_6919.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📶 اختصاصی تاسیان 

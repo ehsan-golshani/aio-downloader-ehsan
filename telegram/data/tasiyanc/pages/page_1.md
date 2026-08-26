@@ -1,12 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/04 09:28
+📅 آخرین بروزرسانی: 1405/06/04 13:17
 
 ---
 
-## tasiyanc — post 9608
+## tasiyanc — post 9612
 
-<div align="center"><a href="files/post_9608_@Tasiyanc 🔥.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🔥.ovpn</a></div>
+<div align="center"><video src="files/post_9612_tasiyanc_9612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9612_tasiyanc_9612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑 امروز ۴ شهریور زادروز کوروش بزرگ هست 🤴
+
++ وطن پرستی شفا نمی‌دهد ، شرافت میدهد !
+
+🩸 @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9611
+
+<div align="center"><a href="files/post_9611_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9610
+
+<div align="center"><img src="files/post_9610_tasiyanc_9610.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9608
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 📶
@@ -268,57 +326,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥⚡ Number One Pre.npvt
-</div>
-
-## tasiyanc — post 9582
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-سرور سرعتی مولتی لوکیشن⚡️
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9581
-
-<div align="center"><img src="files/post_9581_tasiyanc_9581.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تغییر دامنه بانک‌ها؛ دردسر تازه برای مشتریانشون
-
-بعد از بانک ملی، حالا نام بانک ملت و چند بانک دیگر هم در ارتباط با محدودیت‌های گواهی‌های Let’s Encrypt مطرح شده است.
-
-در مورد بانک ملت، آدرس قدیمی ebanking.bankmellat.ir در حال هدایت کاربران به ebanking.mellat.ir است.
-
-
-تغییر دامنه شاید در کوتاه‌مدت راه‌حل به نظر برسد، اما تبعات خودش را دارد؛ از لینک‌های قدیمی و اپلیکیشن‌ها گرفته تا نتایج جست‌وجو و سردرگمی کاربران درباره اینکه آدرس رسمی بانک دقیقاً کدام است.
-
-این موضوع از نظر امنیتی هم حساس است؛ چون وقتی کاربران به تغییر مداوم آدرس‌های بانکی عادت کنند، تشخیص دامنه‌های جعلی و صفحات فیشینگ سخت‌تر می‌شود.
-در چنین شرایطی، اطلاع‌رسانی شفاف بانک‌ها و معرفی دقیق دامنه‌های رسمی اهمیت بسیار بیشتری پیدا می‌کند.
-چون کوچک‌ترین سردرگمی در آدرس یک سامانه بانکی می‌تواند فرصت مناسبی برای کلاهبرداری ایجاد کند.
-
-
-﻿
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9580
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نرخ هر دلار کف طهران 205000
 </div>
 

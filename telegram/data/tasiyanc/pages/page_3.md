@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/04 09:28
+📅 آخرین بروزرسانی: 1405/06/04 13:17
 
 ---
+
+## tasiyanc — post 9554
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
+
+## tasiyanc — post 9553
+
+<div align="center"><img src="files/post_9553_tasiyanc_9553.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️اولین سایت جهانی برای کاربران ایران با واریز برداشت مستقیم⬇️
+
+🪙سایت بین المللی و معتبر لاین بت
+
+❤️‍🔥اسپانسر لیگ  فرانسه
+💳 واریز و برداشت ریالی
+👀بازگشت باخت ب صورت هفتگی
+📣دارای پشتیبانی فارسی فعال
+🎁بونوس 💯 روز های دوشنبه
+sr2
+🎡کدهدیه ثبت نام ➡️ L5670
+
+🔗《 لینک سایت برای کاربران ایرانی》
+
+👍《 دانلود اپلیکیشن اندروید》
+❤️https://telegram.me/+dukgrB6-zGsyNGM8
+🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
+
+✔️ آموزش کامل و جامع شرطبندی👉
+</div>
+
+## tasiyanc — post 9552
+
+<div align="center"><img src="files/post_9552_tasiyanc_9552.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📡 10 تا از بهترین سایتهای کاریابی آنلاین ایرانیان
+
+اگر جویای کار هستید ۱۰۰٪ میتونید کار مناسب حرفه خودتون پیدا کنید تو شهر مورد نظر خودتون !
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9551
 
@@ -241,60 +293,5 @@ til.ac/0L4vyJf
 🟠صداوسیما در اقدامی عجیب، اطلاعات محرمانه و مکان‌های دقیق تردد پسر ترامپ و نقاطی که در تیررس است را منتشر کرد
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9534
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 👾 GAME DNS VIP TASIYAN ⚡️ ━━━╮
-
-DNS1 😎
-235.58.241.130
-49.129.66.60
-
-DNS2 😎
-36.108.70.10
-136.224.75.103
-
-DNS3 😎
-62.114.222.110
-223.42.10.179
-
-IPv4 Location 🇩🇪
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9533
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون دلار 198000
-هم اکنون طلا 21.900.000
-
-کجا داریم میریم ؟
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9531
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-⭕️ در صورت ارور چند بار بزنید
-
-🩸 T.me/Tasiyanc
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/04 12:04
+📅 آخرین بروزرسانی: 1405/06/04 13:15
 
 ---
+
+## ProxyMTProto — post 50054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eeddff05e65a69a6a7fd1a28a28a121fff7765622e62616c652e6169
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: edge.catsproxy.shop
+Port: 443
+Secret: ee77e833a4cf612b12af5c86614cc5291a656467652e6361747370726f78792e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50052
 
@@ -163,24 +181,6 @@ Secret: ee938dd87467bc49301de2e9765cf20f4374656c2e776562766972742e636c6f7564
 Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50034
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: api2.kvakzon.top
-Port: 443
-Secret: eef6cce71eb4d775d3d908fef1301395b5617069322e6b76616b7a6f6e2e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50033
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

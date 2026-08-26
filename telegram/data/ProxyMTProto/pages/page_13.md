@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/04 12:04
+📅 آخرین بروزرسانی: 1405/06/04 13:15
 
 ---
+
+## ProxyMTProto — post 50274
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50273
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: beam.whitelist.cyou
+Port: 443
+Secret: ee96671dab2ecd8b178da5371b6081550b6265616d2e77686974656c6973742e63796f75
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50272
 
@@ -163,24 +181,6 @@ Secret: eeecd508d816f611bb329487809f8dac88706574726f766963682e7275
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50254
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: relay.rknsosi.shop
-Port: 443
-Secret: ee93e8816b5fd5c054bc95442701329e0072656c61792e726b6e736f73692e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50253
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 135.181.74.154
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

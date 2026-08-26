@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/04 09:28
+📅 آخرین بروزرسانی: 1405/06/04 13:17
 
 ---
+
+## tasiyanc — post 9211
+
+<div align="center"><img src="files/post_9211_tasiyanc_9211.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حالتون چطوره ، شما ک حالمو نمیپرسید باید من بپرسم
+</div>
+
+## tasiyanc — post 9207
+
+<div align="center"><img src="files/post_9207_tasiyanc_9207.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📞 با پروکسی هم میشه تماس تلگرامی گرفت؟
+
+⚡️ بله حتماً! شاید تا حالا اگه میخواستید به کسی زنگ بزنید مجبور بودید فیلترشکن قوی وصل کنید و کلی دردسر بکشید؛ ولی الان میخوام یه ترفند خوب بهتون بگم که دیگه به هیچ VPN اضافی نیاز ندارید.
+
+⚡️ قدم اول: برید تو تنظیمات و بخش Privacy and security رو باز کنید. بعد Call رو انتخاب کنید، گزینه Use Peer-to-Peer with رو بزنید و My Contacts رو انتخاب کنید.
+
+⚡️ حالا برگردید عقب و به بخش Data and Storage برید. گزینه Use less data for calls رو پیدا کنید و روی حالت Always بذارید تا مصرف اینترنت کم بشه.
+
+⚡️ کافیه فقط یه پروکسی MTPROTO خوب و پایدار وصل باشید و تماس بگیرید. فقط یه نکته مهم: حتماً طرف مقابل باید آنلاین باشه و شماره شما توی لیست مخاطبانشون ذخیره شده باشه.
+
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 9206
 
@@ -299,61 +333,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 به این ماشین‌ها دیگه بنزین سهمیه‌ای نمیدن، حق تو اسنپ و تاکسی های اینترنتی هم ندارن!
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9180
-
-<div align="center"><img src="files/post_9180_tasiyanc_9180.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Ethereal Lake Muse 🤍
-
-آموزش استفاده 👉
-
-دریافت پرامپت 👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9178
-
-<div align="center"><img src="files/post_9178_tasiyanc_9178.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی 
-🆕
-
-" 🖤 Silent Noir Portrait "
-
-Prompt 🤖🤖
-
-
-Use uploaded images as face reference. Absolute face lock. Black-and-white minimalist portrait of an adult man sitting in a chair, waist-up, right profile/three-quarter profile, head slightly lowered, looking down. Wearing a black baseball cap (visor casting shadow over eyes), oversized black T-shirt, light shorts/pants, and a metal wristwatch. Calm, thoughtful mood. Plain light-gray textured wall background with negative space above and on the right; edge of a leather chair visible on the left. Soft diffused light from upper left, moderate contrast, deep facial shadows, realistic fabric/skin texture, subtle film grain. Studio/interior photography, 50mm, f/2.8, ISO 200, high detail, natural proportions, clean composition, 1:1 aspect ratio. Negative: color, bright tones, smile, eye contact, text/logos, extra people, heavy retouching, glossy look, overexposure, blur, artifacts, face/hand distortions, extra fingers, watermark.
-
-
-آموزش استفاده 
-👉
-
-
-@TASIYANC 
-⭐️
-</div>
-
-## tasiyanc — post 9177
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated Multi⚡️━━━╮
-
-vless://06d44c57-8e1a-41f4-b9c4-65d35869e078@78.17.126.222:13868?security=reality&encryption=none&pbk=sgpya-5ohMKCjzyrDe4RWz7b8O9XegDzQ88oHCV45Gk&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=booking.com&sid=e852dc#%F0%9F%94%A5%20%40Tasiyanc
-
-vless://06d44c57-8e1a-41f4-b9c4-65d35869e078@78.17.125.201:13868?security=reality&encryption=none&pbk=sgpya-5ohMKCjzyrDe4RWz7b8O9XegDzQ88oHCV45Gk&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=booking.com&sid=e852dc#%F0%9F%94%A5%20%40Tasiyanc
-
-vless://e4514801-0d5a-42ba-869f-39bd605aef9e@18.153.84.121:22222?security=&encryption=none&headerType=none&type=tcp#%F0%9F%A1%A0%20%40Tasiyanc
-
-vless://e4514801-0d5a-42ba-869f-39bd605aef9e@63.178.105.116:22224?security=&encryption=none&headerType=none&type=tcp#%F0%AA%9A%82%20%40Tasiyanc
-
-@TASIYANC ⭐️
 </div>
 

@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/06/04 09:28
+📅 آخرین بروزرسانی: 1405/06/04 13:17
 
 ---
+
+## tasiyanc — post 8187
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سخنرانی مهم پرزیدنت ترامپ ۳ ساعت دیگه در کاخ سفید شروع میشه
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8186
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حملات امشب بی سابقه اس
+</div>
+
+## tasiyanc — post 8185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
+</div>
 
 ## tasiyanc — post 8184
 
@@ -169,48 +189,5 @@
 تو این سایت هر کلمه‌ای که سرچ کنید، تمام لحظاتی که در ویدئوهای یوتیوب از این کلمه استفاده شده رو نشونتون میده تا با کاربرد صحیحش در مکالمات آشنا بشید.
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8150
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زندگی در میان گروهی نادان دشوار است ، اما زندگی در جایی که قدرت در دست همان نادان ها باشد ، هولناك است
-آلبر کامو
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8148
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8145
-
-<div align="center"><img src="files/post_8145_tasiyanc_8145.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏔 روستای کندوان تبریز از معدود روستاهای صخره‌ای جهان است طبیعت زیبا، آب‌وهوای خنک و معماری منحصربه‌فرد، کندوان را به یکی از محبوب‌ترین جاذبه‌های گردشگری ایران تبدیل کرده است.
-
-@Tasiyanc ⭐️
 </div>
 

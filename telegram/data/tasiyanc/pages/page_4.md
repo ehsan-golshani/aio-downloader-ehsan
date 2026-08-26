@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/04 09:28
+📅 آخرین بروزرسانی: 1405/06/04 13:17
 
 ---
+
+## tasiyanc — post 9534
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 👾 GAME DNS VIP TASIYAN ⚡️ ━━━╮
+
+DNS1 😎
+235.58.241.130
+49.129.66.60
+
+DNS2 😎
+36.108.70.10
+136.224.75.103
+
+DNS3 😎
+62.114.222.110
+223.42.10.179
+
+IPv4 Location 🇩🇪
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9533
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون دلار 198000
+هم اکنون طلا 21.900.000
+
+کجا داریم میریم ؟
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9531
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+⭕️ در صورت ارور چند بار بزنید
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9530
 
@@ -295,59 +350,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9510
-
-<div align="center"><video src="files/post_9510_tasiyanc_9510.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9510_tasiyanc_9510.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👨‍💼 ترامپ برای بار هزارم:
-من نمی‌دانم اصلاً با چه کسی در ایران باید مذاکره کنم. این در واقع یکی از بزرگترین مشکلات من است.
-هیچ کس نمی‌خواهد رئیس‌جمهور ایران باشد. آن‌ها می‌گویند: «چه کسی می‌خواهد رئیس‌جمهور باشد؟» «نه، نه، من نمی‌خواهم رئیس‌جمهور باشم.»
-💋 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9508
-
-<div align="center"><img src="files/post_9508_tasiyanc_9508.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
-
-🌍 سایت بین‌المللی و معتبر LINEBET
-
-⚽️ پیش‌بینی فوتبال
-🎰 کازینو آنلاین
-💳 واریز و برداشت ریالی
-🎁 بونوس 100٪ اولین واریز
-🎁 بونوس 100٪ هر دوشنبه
-📞پشتیبانی فارسی فعال
-
-🎁کد هدیه ثبت‌نام: L5670
-
-🔗 دانلود اپلیکیشن اندروید 👉
-
-🔗 لینک سایت 👉
-✉️ https://t.me/+dukgrB6-zGsyNGM8
-
-🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
-sr31
-📚 آموزش کامل سایت👉
 </div>
 

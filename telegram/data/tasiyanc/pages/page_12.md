@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/04 09:28
+📅 آخرین بروزرسانی: 1405/06/04 13:17
 
 ---
+
+## tasiyanc — post 9344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙂این بازی خیلی این روزا ترند💥
+راحت میتونی پولت چند برابر کنی💖
+فرصت از دست ندین فیلم بازی نگاه کنید و شروع کنید😁💵
+</div>
+
+## tasiyanc — post 9343
+
+<div align="center"><video src="files/post_9343_tasiyanc_9343.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9343_tasiyanc_9343.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟ویدئوبازی محبوب Chicky choice🌟
+
+فقط کافیه مرغ از خیابون رد کنی و پولت افزایش بدی😍💵
+
+💖توی سایت بت اینجا بازی کن و پیش بینی کن و پول در بیار😍
+⬅️امکان شارژ با کارت بانکی راحت و امن
+⬅️تسویه حساب سریع بدون احراز
+
+🎁هربار شارژ کنی 12% بیشتر شارژ میشی✅
+🎁اگ باختی هم 10% باختت سایت بهت برگشت میده✅
+🚨ادرس ورود به سایت:
+💠http://betinja.bet/affiliates/?btag=2760677
+
+⚠️فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،امریکا،ترکیه،سنگاپور،فنلاند و...
+
+⭐کانال اطلاع رسانی سایت:👇 sr25
+💠https://t.me/+K0fAOE9hCUo3OGE8
+</div>
+
+## tasiyanc — post 9342
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 9341
 
@@ -248,39 +291,5 @@ http://til.ac/z5jcpGT
 g24
 🔥کانال اطلاع رسانی ایران:👇
 https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نپسترنت📱📍
-
-•آموزش اتصال ⚡️
-
-🔴پینگ نگیرید
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9315
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡ناو هواپیمابر ابراهام لینکلن پس از بیش از 260 روز عملیات و در پی بررسی شرایط گزارش‌شده، این ناو در حال بازگشت به خانه است
-
-@Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 9311
-
-<div align="center"><video src="files/post_9311_tasiyanc_9311.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9311_tasiyanc_9311.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حملات دیوانه وار اسرائیل به جنوب لبنان
-
-
-@TASIYANC ⭐️
 </div>
 

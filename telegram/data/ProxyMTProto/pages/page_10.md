@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/04 12:04
+📅 آخرین بروزرسانی: 1405/06/04 13:15
 
 ---
+
+## ProxyMTProto — post 50334
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: should.be.wake.up.ir.yfdhjderkig.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 853
+Secret: ee55aabc9752a9d9d379e02943cf811795766b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50332
 
@@ -163,24 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: Unknown
 Port: 14443
 Secret: ee9e28cf588967add684c5e759fea036d47777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50314
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 80
-Secret: 7hbZ3hNtxAbJ6L5BQipx2_std3d3LnlhaG9vLmNvbQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50313
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: x.shmelproxy.top
-Port: 443
-Secret: eefc2612ff65a557fddf1d1b334395ef23617669746f2e7275
 @ProxyMTProto
 </div>
 
