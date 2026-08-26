@@ -1,8 +1,32 @@
 # آرشیو کانال VahidOOnLine - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/04 03:24
+📅 آخرین بروزرسانی: 1405/06/04 03:44
 
 ---
+
+## VahidOOnLine — post 256599
+
+<div align="center"><img src="files/post_256599_VahidOOnLine_256599.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رویترز به نقل از یک منبع آگاه گزارش داد انتظار می‌رود وزارت خزانه‌داری آمریکا دامنه تحریم‌های ثانویه‌ای را که می‌تواند علیه نهادها و کشورهای دارای روابط تجاری با جمهوری اسلامی اعمال کند، گسترش دهد؛ اقدامی که دولت ترامپ با هدف افزایش فشار اقتصادی بر تهران در دستور کار دارد.
+
+به گفته یک منبع مطلع از این طرح، هدف از این اقدام دادن یک هشدار نهایی به کشورها برای قطع روابط تجاری خود با جمهوری اسلامی است تا از این طریق به درگیری نزدیک به شش‌ماهه پایان داده شود؛ درگیری که تردد در تنگه هرمز و صادرات انرژی از منطقه خلیج فارس را مختل کرده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256598
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رئیس‌جمهوری چین روز دوشنبه دوم شهریور ماه، طی مراسمی رسمی در پکن از ملک عبدالله دوم، پادشاه اردن استقبال کرد.
+شی جین‌پینگ در دیدار با پادشاه اردن گفت، چین آماده است با اردن برای تعمیق اعتماد متقابل راهبردی، گسترش همکاری‌های عملی و تقویت هماهنگی در مجامع چندجانبه همکاری کند.
+دو رهبر پس از مذاکرات در تالار بزرگ خلق در پکن، شاهد امضای چندین توافق و یادداشت تفاهم میان دو کشور بودند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256597
 
@@ -274,34 +298,6 @@ IranintlTV
 
 او درباره «طرح کنترل ایران بر تنگه هرمز» گفت که این طرح باید هرچه سریع‌تر از سوی هیات‌رییسه به صحن مجلس آورده شود تا مدیریت این آبراه استراتژیک، «به‌طور کامل بر اساس قوانین و مصوبات جمهوری اسلامی اجرا شود.»
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256570
-
-<div align="center"><video src="files/post_256570_VahidOOnLine_256570.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256570_VahidOOnLine_256570.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با انتشار ویدیویی در رسانه‌های اجتماعی می‌گوید جایگاه‌های سوخت در مشهد حتی با کارت سوخت هم بنزین نمی‌دهند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256569
-
-<div align="center"><video src="files/post_256569_VahidOOnLine_256569.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256569_VahidOOnLine_256569.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صدها نفر از بازنشستگان شرکت مخابرات تهران روز دوشنبه دوم شهریور ماه تجمع و راهپیمایی اعتراضی برگزار کردند.
-
-براساس گزارش‌ها و ویدیوهای منتشر شده در شبکه‌های اجتماعی، حاضران در این تجمع به عملکرد تعاون سپاه و ستاد اجرایی اعتراض داشتند و شعار می‌دادند.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>

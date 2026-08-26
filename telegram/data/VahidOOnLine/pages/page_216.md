@@ -1,8 +1,39 @@
 # آرشیو کانال VahidOOnLine - صفحه 216
 
-📅 آخرین بروزرسانی: 1405/06/04 03:24
+📅 آخرین بروزرسانی: 1405/06/04 03:44
 
 ---
+
+## VahidOOnLine — post 251698
+
+<div align="center"><video src="files/post_251698_VahidOOnLine_251698.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251698_VahidOOnLine_251698.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود فرهیخته، معلم زندانی و فعال صنفی، برای هفتمین بار از زندان مرکزی کرج به مکانی نامعلوم منتقل شده است. شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران گزارش داد این انتقال در حالی انجام شده که او سه روز پیش، پس از ۲۰ روز حبس در سلول انفرادی، به بند عمومی بازگشته بود.
+
+گفت‌‌وگو با اسماعیل عبدی، فعال صنفی معلمان
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 251697
+
+<div align="center"><video src="files/post_251697_VahidOOnLine_251697.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_251697_VahidOOnLine_251697.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️مسعود پزشکیان، روز پنجشنبه اول مهر ماه، در مراسمی رسمی در تهران، از علی فالح الزیدی، نخست وزیر عراق استقبال کرد.
+سخنگوی دولت عراق، پیشتر اعلام کرده بود که الزایدی به دعوت پزشکیان و برای گفتگو درباره «همکاری‌های گازی و بررسی تحولات منطقه‌ای در راستای منافع ملی عراق» به تهران سفر می‌کند.
+
+فالح الزیدی، روز ۲۳ تیرماه نیز در سفری رسمی به واشنگتن با دونالد ترامپ، رئیس جمهوری آمریکا دیدار کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251696
 
@@ -257,36 +288,6 @@
 مارکو روبیو، وزیر خارجه آمریکا، در حاشیه نشست آسه‌آن در مانیل گفت تفاهم‌نامه با جمهوری اسلامی بر پایه پایبندی به تعهدات شکل گرفته بود، اما تهران آن را نقض کرد و در نتیجه، این توافق دیگر معتبر نیست.
 
 گزارش علیرضا محبی، خبرنگار ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251678
-
-<div align="center"><video src="files/post_251678_VahidOOnLine_251678.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251678_VahidOOnLine_251678.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی فالح الزیدی، نخست‌وزیر عراق، روز پنجشنبه راهی تهران می‌شود و این در حالی است که به گفته منابع آگاه، بغداد تلاش دارد با بهره‌گیری از روابط متوازن خود با تهران و واشینگتن، نقش میانجی را ایفا کند.
-
-تروسکه صادقی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251677
-
-<div align="center"><video src="files/post_251677_VahidOOnLine_251677.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_251677_VahidOOnLine_251677.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-الی کوهن، وزیر انرژی و زیرساخت‌های اسرائیل در گفت‌وگو با رادیو ۱۰۳ اف‌ام گفت اسرائیل برای هر سناریوی احتمالی آماده است و هشدار داد در صورت حمله جمهوری اسلامی به اسرائیل، با پاسخی قاطع و قدرتمند روبه‌رو خواهد شد.
-
-گفت‌وگو با بابک اسحاقی، خبرنگار ایران‌اینترنشنال
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

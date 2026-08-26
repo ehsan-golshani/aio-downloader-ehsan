@@ -1,8 +1,30 @@
 # آرشیو کانال VahidOOnLine - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/06/04 03:24
+📅 آخرین بروزرسانی: 1405/06/04 03:44
 
 ---
+
+## VahidOOnLine — post 255816
+
+<div align="center"><img src="files/post_255816_VahidOOnLine_255816.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مهم‌ترین خبرها و تحلیل‌های رسانه‌های جهان درباره ایران در ۲۴ ساعت گذشته
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 255811
+
+<div align="center"><img src="files/post_255811_VahidOOnLine_255811.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نائینی فقط زبان یک شهر نیست، حافظهٔ زندهٔ نسل‌هایی است که جهان را با واژه‌هایی متفاوت روایت کرده‌اند. آیا این صدای کهن به نسل بعد خواهد رسید؟
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 255810
 
@@ -276,34 +298,6 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چو هیون، وزیر خارجه کره جنوبی، چهارشنبه گفت به نظر می‌رسد پیام دونالد ترامپ، رییس‌جمهوری آمریکا، درباره کاهش رزمایش‌های مشترک نظامی، حاوی فشاری بر سئول برای مشارکت در جنگ با ایران نیز بوده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255779
-
-<div align="center"><img src="files/post_255779_VahidOOnLine_255779.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روزنامه وال‌استریت ژورنال به نقل از مقام‌های کشورهای خلیج فارس نوشت متحدان عرب آمریکا احساس می‌کنند در میانه تنش میان تهران و واشینگتن گرفتار شده‌اند.
-
-به گفته این مقام‌ها، متحدان عرب آمریکا از یک سو خواهان ازسرگیری درگیری‌های شدیدتر نیستند، اما از سوی دیگر معتقدند نبود واکنش واشینگتن، جمهوری اسلامی را به افزایش حملات خود تشویق می‌کند.
-
-وال‌استریت ژورنال به نقل از این مقام‌ها نوشت کشورهای عربی خلیج فارس بر این باورند که حکومت ایران در نهایت به افزایش فشارهای اقتصادی با واکنش نظامی پاسخ خواهد داد و در نتیجه، صرف‌نظر از شرایط، درگیری‌ها بار دیگر تشدید خواهد شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 255778
-
-<div align="center"><img src="files/post_255778_VahidOOnLine_255778.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری رویترز گزارش داد تردد کشتی‌ها از طریق تنگه هرمز همچنان در سطح پایینی قرار دارد.
-
-به نوشته رویترز، داده‌های اولیه نشان می‌دهد روز سه‌شنبه تنها شش کشتی از این تنگه عبور کرده‌اند.
 IranintlTV
 
 🤖 @VahidOOnLine

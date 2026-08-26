@@ -1,8 +1,37 @@
 # آرشیو کانال VahidOOnLine - صفحه 360
 
-📅 آخرین بروزرسانی: 1405/06/04 03:24
+📅 آخرین بروزرسانی: 1405/06/04 03:44
 
 ---
+
+## VahidOOnLine — post 248392
+
+<div align="center"><img src="files/post_248392_VahidOOnLine_248392.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش سایت هرانا الهام زراعت‌پیشه، وکیل دادگستری، از سوی شعبه اول دادگاه انقلاب شیراز به شش سال حبس، دو سال ممنوعیت خروج از کشور و ابطال گذرنامه محکوم شده است.
+بر اساس این گزارش، شعبه اول دادگاه انقلاب شیراز الهام زراعت‌پیشه را به اتهام «اجتماع و تبانی علیه امنیت ملی» به پنج سال حبس و به اتهام «تبلیغ علیه نظام» به یک سال حبس محکوم کرده است. این دادگاه همچنین او را به مدت دو سال از خروج از کشور منع و گذرنامه‌اش را باطل کرده است.
+الهام زراعت‌پیشه ۱۴ اردیبهشت ۱۴۰۵ در محدوده دادسرای اجرای احکام شیراز بازداشت شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248391
+
+<div align="center"><video src="files/post_248391_VahidOOnLine_248391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248391_VahidOOnLine_248391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️یک افسر ارشد فعال در نیروی هوایی ایالات متحده با حضور در مقابل ساختمان کنگره آمریکا ، در اقدامی اعتراضی علیه دونالد ترامپ، رئیس‌جمهور این کشور،  خواستار برکناری ترامپ شد.
+این افسر که درجه «سرگرد» دارد، با در دست داشتن پلاکاردی با شعار «استیضاح، محکومیت، برکناری» (IMPEACH, CONVICT, REMOVE) خواستار کنار گذاشتن ترامپ از قدرت شد.
+جزئیات بیشتری درباره هویت این فرد یا واکنش مقام‌های نظامی آمریکا به این اقدام منتشر نشده است.
+بر اساس قوانین نظامی ایالات متحده، نیروهای فعال نظامی معمولا از مشارکت علنی در فعالیت‌های سیاسی منع شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248390
 
@@ -236,36 +265,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک شهروند در پیامی صوتی به ایران اینترنشنال گفت ساختمان فعلی شهرداری در خیابان پیروزی که پیش‌تر پادگان جنگ‌افزار و محل نگهداری مهمات بوده، همزمان با تشییع علی خامنه‌ای آماده‌سازی شده است. به گفته او، با اتلاف هزینه زیاد در سوله‌های این مجموعه فرش و موکت نو پهن شده است تا شرکت‌کنندگان در این مراسم حکومتی در آن اسکان یابند. صدای این شهروند برای حفظ هویتش با هوش مصنوعی تغییر داده شده است.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248372
-
-<div align="center"><video src="files/post_248372_VahidOOnLine_248372.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248372_VahidOOnLine_248372.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️شهباز شریف، نخست‌وزیر پاکستان با همراهی عاصم منیر، فرمانده ارتش این کشور و محسن نقوی، وزیر کشور، روز جمعه ۱۲ تیرماه بر تابوت رهبر پیشین ایران حاضر شد و به آن ادای احترام کرد.
-
-فیلد مارشال عاصم منیر و شهباز شریف، ظهر جمعه برای حضور در مراسم تشییع علی خامنه‌ای و گفتگو با مقام‌های ایران وارد تهران شدند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248371
-
-<div align="center"><video src="files/post_248371_VahidOOnLine_248371.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_248371_VahidOOnLine_248371.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️امام علی رحمان به تابوت علی خامنه‌ای ادای احترام کرد
-
-♦️امام علی رحمان، رئیس جمهوری تاجیکستان که برای حضور در مراسم تشییع رهبر پیشین جمهوری اسلامی به تهران سفر کرده است، روز جمعه ۱۲ تیرماه با حضور در مصلی تهران، به تابوت علی خامنه‌ای ادای احترام کرد.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

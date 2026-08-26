@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/04 03:24
+📅 آخرین بروزرسانی: 1405/06/04 03:44
 
 ---
+
+## VahidOOnLine — post 256570
+
+<div align="center"><video src="files/post_256570_VahidOOnLine_256570.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256570_VahidOOnLine_256570.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با انتشار ویدیویی در رسانه‌های اجتماعی می‌گوید جایگاه‌های سوخت در مشهد حتی با کارت سوخت هم بنزین نمی‌دهند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256569
+
+<div align="center"><video src="files/post_256569_VahidOOnLine_256569.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256569_VahidOOnLine_256569.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صدها نفر از بازنشستگان شرکت مخابرات تهران روز دوشنبه دوم شهریور ماه تجمع و راهپیمایی اعتراضی برگزار کردند.
+
+براساس گزارش‌ها و ویدیوهای منتشر شده در شبکه‌های اجتماعی، حاضران در این تجمع به عملکرد تعاون سپاه و ستاد اجرایی اعتراض داشتند و شعار می‌دادند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256568
 
@@ -258,42 +286,6 @@ Indypersian
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از بازنشستگان مخابرات در تهران دوشنبه دوم شهریور تجمع کردند و شعارهایی چون «بازنشسته داد بزن، حقتو فریاد بزن» سردادند.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256548
-
-<div align="center"><video src="files/post_256548_VahidOOnLine_256548.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256548_VahidOOnLine_256548.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی روز دوشنبه دوم شهریورماه گزارش‌ها درباره دعوت از ایران برای پیوستن به پیمان سه‌جانبه دفاعی مکه میان عربستان سعودی، پاکستان و ترکیه را تکذیب کرد.
-
-بقایی در نشست خبری هفتگی وزارت امور خارجه به خبرنگاران گفت: «ما دعوت‌نامه رسمی در این خصوص دریافت نکرده‌ایم.»
-
-سخنگوی وزارت امور خارجه جمهوری اسلامی افزود: «پیشنهادهای مطرح‌شده از سوی کشورهای منطقه صرفا معطوف به گفتگو و رایزنی با این کشورها در مورد مباحث مرتبط با امنیت دسته‌جمعی در منطقه بوده است.»
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256547
-
-<div align="center"><video src="files/post_256547_VahidOOnLine_256547.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256547_VahidOOnLine_256547.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امانوئل مکرون، رئیس‌جمهوری فرانسه به همراه شاهزاده محمد بن سلمان، ولیعهد عربستان سعودی، یکشنبه اول شهریور ماه در مراسم اختتامیه جام جهانی بازی‌های الکترونیک (Esports World Cup) در «قصر بزرگ (گراند پاله)» پاریس شرکت کردند.
-
-مکرون جام قهرمانی این مسابقات را به تیم برنده، AGAL اهدا کرد؛ تیمی که پیروزی عضو فرانسوی آن، گوندال گوئن دوپارک، در رقابت‌های مسابقه اتومبیل‌رانی «ترک‌مانیا» (Trackmania) آن‌ها را به صدر جدول فرستاد.
-
-جام جهانی بازی‌های الکترونیک که بزرگ‌ترین رقابت چندرشته‌ای ورزش‌های الکترونیک در جهان است، از اواسط تیرماه تا اول شهریور در پاریس برگزار شد و بیش از ۲۰۰۰ بازیکن و ۲۰۰ باشگاه از بیش از ۱۰۰ کشور را دور هم جمع کرد.
-
-این رقابت‌ها شامل ۲۴ بازی در قالب ۲۵ قهرمانی مختلف از جمله عناوین پرطرفداری مانند «لیگ آف لجندز»، «کانتر استرایک ۲»، «فورتنایت» و «کال آو دیوتی» بود و مجموع جوایز آن به رقم بی‌سابقه بیش از ۷۵ میلیون دلار رسید.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>

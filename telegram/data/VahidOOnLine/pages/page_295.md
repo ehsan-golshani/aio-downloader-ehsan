@@ -1,8 +1,37 @@
 # آرشیو کانال VahidOOnLine - صفحه 295
 
-📅 آخرین بروزرسانی: 1405/06/04 03:24
+📅 آخرین بروزرسانی: 1405/06/04 03:44
 
 ---
+
+## VahidOOnLine — post 249848
+
+<div align="center"><video src="files/post_249848_VahidOOnLine_249848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_249848_VahidOOnLine_249848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال، گروهی از حامیان حکومت را نشان می‌دهد که در خیابان یکی از شهرهای ایران راهپیمایی شبانه راه انداخته، با بلندگو شعار «انتقام» می‌دهند و برای مردم مزاحمت ایجاد می‌کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 249847
+
+<div align="center"><img src="files/post_249847_VahidOOnLine_249847.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، دوشنبه، ۲۲ تیر به نقل از برخی منابع خبری و ساکنان محلی گزارش داد صدای چند انفجار در حوالی بندرعباس و قشم شنیده شده است.
+
+به نوشته این خبرگزاری، صدای انفجارها از فاصله‌ای دور از شهر بندرعباس به گوش رسیده و به نظر می‌رسد به ساحل غربی این شهر مربوط باشد. مهر همچنین از احتمال وقوع درگیری در پهنه آبی خلیج فارس و تنگه هرمز خبر داد.
+
+استانداری هرمزگان نیز اعلام کرد در حملات تازه آمریکا به بندرعباس و قشم، هیچ مصدوم غیرنظامی یا خسارتی به زیرساخت‌های مسکونی و تجاری گزارش نشده است.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 249846
 
@@ -259,28 +288,6 @@ iranintl
 🔹ما نیروهای تاسیساتی بیمارستان‌های شهرهای لرستان از اسفند سال گذشته هیچ حقوقی دریافت نکرده‌ایم.
 
 🔹هزینه‌های دندانپزشکی آن‌چنان زیاد شده که خیلی از جوان‌ها مجبور می‌شوند به‌جای برطرف کردن مشکلات ابتدایی، دندان‌شان را بکشند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249827
-
-<div align="center"><video src="files/post_249827_VahidOOnLine_249827.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_249827_VahidOOnLine_249827.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«کارنامه اردشیر بابکان» یکی از مهم‌ترین متون بازمانده به زبان پهلوی و روایتی از برآمدن بنیان‌گذار شاهنشاهی ساسانی است. این پادکست به مفهوم فرّه ایزدی، ایران‌شهر، داستان هفتواد و پیوند این اثر با شاهنامه فردوسی می‌پردازد.
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 249826
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال، وقوع آتش‌سوزی را در فرودگاه امیدیه خوزستان پس از حملات آمریکا در بامداد دوشنبه ۲۲ تیر نشان می‌دهد.
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

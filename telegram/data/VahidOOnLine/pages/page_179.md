@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 179
 
-📅 آخرین بروزرسانی: 1405/06/04 03:24
+📅 آخرین بروزرسانی: 1405/06/04 03:44
 
 ---
+
+## VahidOOnLine — post 252581
+
+<div align="center"><video src="files/post_252581_VahidOOnLine_252581.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252581_VahidOOnLine_252581.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوها و تصاویر منتشرشده در حساب کاربری «وحید آنلاین»، موشک‌های شلیک‌شده از سوی جمهوری اسلامی را بر فراز شهر خمین در بامداد چهارشنبه هفتم مرداد نشان می‌دهند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252580
+
+<div align="center"><img src="files/post_252580_VahidOOnLine_252580.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احد شکوهیان، معترض ۳۸ ساله بازداشت‌شده در اعتراضات دی‌ماه ۱۴۰۴ که با حکم قاضی ایمان افشاری در شعبه ۲۶ دادگاه انقلاب تهران به سه بار اعدام محکوم شده است، در یک فایل صوتی از زندان قزلحصار کرج با تاکید بر بی‌گناهی خود، خواستار کمک مدافعان حقوق بشر برای نجات جان خود شد.
+این شهروند اهل پاکدشت در این فایل گفت او کارگر ساده بازار گل تهران است و سرپرست مادر سالخورده و برادر ناتوان جسمی خود است. او با اشاره به اینکه همواره در زندگی خود شرایط مالی بسیار سختی را تجربه کرده است، گفت در دی‌ماه مانند بسیاری از مردم برای بهبود شرایط اقتصادی در اعتراضات شرکت کرده بود.
+احد شکوهیان گفت در ۱۸ دی‌ماه برای مدتی کمتر از دو دقیقه تلاش کرده بود برای باز کردن در محلی که گفته می‌شد دو نفر در آن گرفتار شده‌اند به بقیه مردم کمک کند، اما بعدها فهمیده که این مکان مسجد بوده است. او با اشاره به اینکه این مسجد در اعتراضات آتش گرفته بود، گفت با وجودی‌که ویدیوهای دوربین‌های مداربسته نشان می‌دهد که او نقشی در تخریب مسجد نداشته است، اما قاضی و بازپرس پرونده بدون توجه به شواهد موجود او را به اشد مجازات محکوم کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252579
 
@@ -244,32 +270,6 @@
 
 او گفت: «ما در برابر ایران در موقعیت بسیار خوبی قرار داریم و امپراتوری بزرگ و متکبر پارس که برای نابودی اسرائیل تلاش می‌کرد، فروپاشیده است.»
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252555
-
-<div align="center"><video src="files/post_252555_VahidOOnLine_252555.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252555_VahidOOnLine_252555.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مروری بر تازه‌ترین خبرها، مواضع سیاسی و دیپلماتیک در روز سه‌شنبه ۶ مرداد ۱۴۰۵
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252554
-
-<div align="center"><video src="files/post_252554_VahidOOnLine_252554.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252554_VahidOOnLine_252554.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برگزاری مراسم تولد جاویدنام ایلیا دهقانی بر مزارش
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

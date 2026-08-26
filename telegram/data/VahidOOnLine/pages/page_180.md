@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 180
 
-📅 آخرین بروزرسانی: 1405/06/04 03:24
+📅 آخرین بروزرسانی: 1405/06/04 03:44
 
 ---
+
+## VahidOOnLine — post 252555
+
+<div align="center"><video src="files/post_252555_VahidOOnLine_252555.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252555_VahidOOnLine_252555.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مروری بر تازه‌ترین خبرها، مواضع سیاسی و دیپلماتیک در روز سه‌شنبه ۶ مرداد ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252554
+
+<div align="center"><video src="files/post_252554_VahidOOnLine_252554.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252554_VahidOOnLine_252554.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برگزاری مراسم تولد جاویدنام ایلیا دهقانی بر مزارش
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252553
 
@@ -315,33 +341,6 @@
 سخنگوی قرارگاه مرکزی خاتم‌الانبیا در بیانیه‌ای اعلام کرد: «تمام شرکت‌ها و کشورهایی که از پیشنهاد ترامپ استقبال کرده و از دارایی‌های بلوکه‌شده ایران استفاده کنند»، از عبور از این تنگه استراتژیک محروم خواهند شد.
 
 در ادامه این بیانیه تاکید شده است که تهدید ترامپ مبنی بر مصادره و استفاده از این منابع، یک «اقدام غیرقانونی» محسوب می‌شود.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252525
-
-<div align="center"><img src="files/post_252525_VahidOOnLine_252525.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک منبع آگاه به ایران‌اینترنشنال گفت مصطفی رمضانی، زندانی سیاسی محبوس در زندان قزلحصار کرج، هنگام مراجعه به بهداری مرکزی این زندان از سوی ماموران مورد فحاشی و ضرب‌وجرح قرار گرفته است.
-
-بر اساس این اطلاعات، رمضانی روز یکشنبه ۴ مردادماه پس از مراجعه به بهداری مرکزی قزلحصار، از سوی چند مامور مورد ضرب‌وجرح قرار گرفت. به گفته این منبع، یکی از ماموران نیز با فحاشی و توهین به مصطفی رمضانی و خانواده‌اش، روند درمان او را مختل کرد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252524
-
-<div align="center"><img src="files/post_252524_VahidOOnLine_252524.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️علی فالح الزیدی، نخست‌وزیر عراق، روز سه‌شنبه ششم مرداد، در راس یک هیئت بلندپایه دولتی و به دعوت رجب طیب اردوغان، رئیس‌جمهوری ترکیه، برای یک سفر رسمی وارد آنکارا شد.
-علی فالح الزیدی، در پیامی در صفحه ایکس خود، اعلام کرد این سفر با هدف تقویت روابط سیاسی و اقتصادی میان عراق و ترکیه انجام می‌شود. او نوشت دو کشور با پیوندهای تاریخی، جغرافیایی و تمدنی و همچنین منافع مشترک به یکدیگر مرتبط هستند.
-نخست‌وزیر عراق افزود در جریان این سفر، موضوع‌هایی از جمله سرمایه‌گذاری، منابع آب، پروژه «جاده توسعه»، تقویت ثبات منطقه و تعدادی از پرونده‌های اقتصادی و امنیتی با مقام‌های ترکیه بررسی خواهد شد.
-دفتر نخست‌وزیر عراق نیز اعلام کرد او در این سفر با رجب طیب اردوغان و تعدادی از مقام‌های ارشد ترکیه درباره گسترش همکاری‌های دوجانبه گفتگو خواهد کرد.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

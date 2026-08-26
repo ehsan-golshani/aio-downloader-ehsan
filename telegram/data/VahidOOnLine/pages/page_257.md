@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 257
 
-📅 آخرین بروزرسانی: 1405/06/04 03:24
+📅 آخرین بروزرسانی: 1405/06/04 03:44
 
 ---
+
+## VahidOOnLine — post 250795
+
+<div align="center"><video src="files/post_250795_VahidOOnLine_250795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250795_VahidOOnLine_250795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در رسانه‌های اجتماعی وضعیت تونل «شهید میرزایی»‌ بندرعباس پس از حملات تازه آمریکا را نشان می‌دهد. این تونل در استان هرمزگان و در محور مواصلاتی بندرعباس به حاجی‌آباد (در امتداد جاده استراتژیک بندرعباس - سیرجان) قرار دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250794
+
+<div align="center"><img src="files/post_250794_VahidOOnLine_250794.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️شرکت نفت کویت (Kuwait Petroleum Corporation) روز شنبه ۲۷ تیرماه اعلام کرد یکی از تاسیسات نفتی این کشور روز شنبه هدف «حملات مکرر» جمهوری اسلامی قرار گرفته است.
+بر اساس این گزارش که رسانه‌های رسمی کویت منتشر کرده است، این حملات خسارت‌های قابل‌توجهی به تاسیسات نفتی وارد کرده و تعدادی زخمی بر جا گذاشته است.
+پیش از این وزارت برق و انرژی کویت از آسیب و آتش‌سوزی یکی از تاسیسات تولید برق و آب شیرین در این کشور خبر داده بود. آتش‌نشانی کویت نیز اعلام کرد، چند آتش‌نشان حین اطفای آتش ناشی از حملات جمهوری اسلامی زخمی شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250793
 
@@ -282,35 +308,6 @@ iranintl
 
 لبنان و اسرائیل در هفته‌های اخیر با میانجی‌گری آمریکا درباره اجرای چارچوبی برای پایان دادن به درگیری‌ها، استقرار ارتش لبنان در جنوب، عقب‌نشینی تدریجی نیروهای اسرائیلی و خلع سلاح گروه‌های مسلح، از جمله حزب‌الله، مذاکره کرده‌اند. مقام‌های آمریکایی و لبنانی این روند را بخشی از تلاش برای تثبیت آتش‌بس و کاهش نفوذ حزب‌الله در ساختار امنیتی لبنان می‌دانند.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250775
-
-<div align="center"><video src="files/post_250775_VahidOOnLine_250775.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250775_VahidOOnLine_250775.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد که زادروز جاویدنام سودا اکرمی‌فرد بر مزارش برگزار شد.
-
-این جاویدنام ۱۹ دی ۱۴۰۴ در اعتراضات مارلیک کرج در سن ۱۶ سالگی به دست سرکوبگران جمهوری اسلامی کشته شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250774
-
-<div align="center"><img src="files/post_250774_VahidOOnLine_250774.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرزانه صادق، وزیر راه و شهرسازی، گفت: «جنگ امروز، جنگ کریدورهاست و دشمن می‌خواهد ایران را نه تنها در داخل کشور به بن‌بست برساند، بلکه ارتباطات ما را با سایر کشورها قطع کند.»
-
-او ادامه داد: «ما وظیفه داریم به سرعت این ویرانی‌ها را مرمت کنیم.»
-iranintl
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

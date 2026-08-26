@@ -1,8 +1,30 @@
 # آرشیو کانال VahidOOnLine - صفحه 130
 
-📅 آخرین بروزرسانی: 1405/06/04 03:24
+📅 آخرین بروزرسانی: 1405/06/04 03:44
 
 ---
+
+## VahidOOnLine — post 253836
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ با اشاره به مذاکرات با تهران گفت مقام‌های ایرانی خواهان گفتگو و دستیابی به توافق هستند و اگر «باهوش باشند» توافق خواهند کرد. او افزود که مقام‌های ایرانی با واشنگتن تماس گرفته‌اند، پیشرفت زیادی در مذاکرات حاصل شده و تهران نمی‌خواهد هدف حمله قرار بگیرد. رئیس‌جمهوری آمریکا همچنین با اشاره به احتمال بازگشایی تنگه هرمز در روزهای آینده، گفت که توافق تصمیمی «بسیار هوشمندانه» خواهد بود، هرچند باید منتظر ماند و دید در نهایت چه اتفاقی رخ می‌دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 253835
+
+<div align="center"><video src="files/post_253835_VahidOOnLine_253835.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_253835_VahidOOnLine_253835.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال دیوارنویسی اعتراضی شهروندان علیه جنگ‌طلبی مجتبی خامنه‌ای و احمد وحیدی را در پیرانشهر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 253834
 
@@ -300,34 +322,6 @@
 
 بر اساس این داده‌ها، همزمان با کاهش شمار عبور کشتی‌ها از تنگه هرمز، تردد شناورها در باب‌المندب افزایش یافته است.
 iranintl
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253816
-
-<div align="center"><video src="files/post_253816_VahidOOnLine_253816.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253816_VahidOOnLine_253816.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ارتش ژاپن تصاویری از نخستین شلیک آزمایشی موشک کروز تاماهاوک را منتشر کرد. این شلیک روز ۷ مرداد در جریان رزمایش مشترک ژاپن و آمریکا انجام شد و نخستین شلیک این موشک توسط نیروهای ژاپنی به شمار می‌رود.
-این رزمایش با واکنش تند کیم یو جونگ، خواهر رهبر کره شمالی، همراه شد. او ژاپن را «کشوری جنایتکار در جنگ» خواند و گفت دستیابی توکیو به توان حمله پیش‌دستانه، تهدیدی جدی برای صلح و ثبات بین‌المللی است.
-او همچنین تاکید کرد پیونگ‌یانگ هرگز روند تقویت توان نظامی ژاپن را که می‌تواند امنیت کره شمالی را تهدید کند، نادیده نخواهد گرفت و در برابر آن از گزینه‌های نظامی خود استفاده خواهد کرد.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 253815
-
-<div align="center"><video src="files/post_253815_VahidOOnLine_253815.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_253815_VahidOOnLine_253815.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدجواد اکبرین، عضو تحریریه ایران‌اینترنشنال، با اشاره به تضعیف نیروهای نیابتی جمهوری اسلامی، گفت حکومت ایران تلاش می‌کند اندک نیروهای باقی‌مانده خود را در یک نقطه متمرکز کند تا از آخرین توانایی‌های آن‌ها علیه منطقه و جهان استفاده کند
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,40 @@
 # آرشیو کانال VahidOOnLine - صفحه 515
 
-📅 آخرین بروزرسانی: 1405/06/04 03:24
+📅 آخرین بروزرسانی: 1405/06/04 03:44
 
 ---
+
+## VahidOOnLine — post 244331
+
+<div align="center"><video src="files/post_244331_VahidOOnLine_244331.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_244331_VahidOOnLine_244331.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️بیماران بیمارستان‌ها در اسرائیل همزمان با حملات موشکی ایران به زیرزمین منتقل شدند
+
+♦️در پی ازسرگیری حملات موشکی جمهوری اسلامی، بیمارستان‌های اسرائیل فعالیت بخشی از واحدهای درمانی خود را به فضاهای محافظت‌شده و زیرزمینی منتقل کردند.
+
+وزارت بهداشت اسرائیل اعلام کرده است که مراکز درمانی در وضعیت اضطراری قرار گرفته‌اند و برخی بیمارستان‌ها بیماران و کادر درمان را به بخش‌های زیرزمینی منتقل کرده‌اند.
+همچنین عمل‌های جراحی غیرضروری لغو شده و روند ترخیص بیماران با شرایط پایدار تسریع شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244330
+
+<div align="center"><img src="files/post_244330_VahidOOnLine_244330.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علاءالدین بروجردی، عضو کمیسیون امنیت ملی مجلس گفت: «محاصره دریایی را اقدام غیرقانونی آمریکا می‌دانیم و با آن مقابله خواهیم کرد.»
+
+او افزود توصیه ما به آمریکایی‌ها این است که «عاقلانه‌تر» عمل کنند، «جمهوری اسلامی در جنگ دوم و سوم پیروز شد» و اگر بخواهند جنگ چهارم را آغاز کنند، قطعا باز هم پیروز خواهیم بود.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 244329
 
@@ -289,30 +321,6 @@ iranintl
 
 اکنون تصمیم‌گیرندگان اسرائیلی در انتظار نحوه ادامه اقدامات ایران و نیروهای نیابتی آن هستند و انتظار می‌رود دولت آمریکا نیز نقش مهمی در تعیین گام‌های بعدی اسرائیل داشته باشد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244281
-
-<div align="center"><img src="files/post_244281_VahidOOnLine_244281.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مدیرکل بحران آذربایجان شرقی اعلام کرد در پی حمله ساعت ۵ صبح دوشنبه، ۱۸ خرداد به یک مرکز نظامی در تبریز، هیچ‌گونه تلفات جانی گزارش نشده است.
-
-پیش‌تر اخباری در خصوص حملات اسرائیل به اهدافی در ایران گزارش شده بود.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 244280
-
-<div align="center"><img src="files/post_244280_VahidOOnLine_244280.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رادیو ارتش اسرائیل گزارش داد برآورد ارتش اسرائیل نشان می‌دهد درگیری با جمهوری اسلامی احتمالا چند روز ادامه خواهد داشت. در این گزارش آمده است که ارتش اسرائیل برای فراخوان گسترده نیروهای ذخیره آماده می‌شود.
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
