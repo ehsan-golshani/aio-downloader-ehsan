@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/04 14:38
+📅 آخرین بروزرسانی: 1405/06/04 15:20
 
 ---
+
+## VahidOOnLine — post 256651
+
+<div align="center"><img src="files/post_256651_VahidOOnLine_256651.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود پزشکیان، رییس دولت جمهوری اسلامی، در دیدار با عاصم منیر، رییس ستادکل ارتش پاکستان، گفت: «آمریکا باید لحن و رویکرد خود در تعامل با حکومت ایران را اصلاح کند، چراکه تکیه بر زورگویی و قلدری، تنها فرآیندهای اجرایی را با پیچیدگی مواجه خواهد ساخت.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256650
 
@@ -285,19 +296,6 @@ IranintlTV
 
 او در ادامه این پیام با اشاره مستقیم به وضعیت ایران گفت: «ما در برابر همگان در حال پیروزی هستیم؛ از جمله ایران که کشورش در مارپیچ مرگ اقتصادی و نظامی قرار گرفته است.» ترامپ این اظهارات را در شرایطی مطرح کرده است که فشارها و تحریم‌های واشنگتن علیه تهران همچنان ابعاد جدیدی به خود می‌گیرد.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256631
-
-<div align="center"><video src="files/post_256631_VahidOOnLine_256631.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256631_VahidOOnLine_256631.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، یخچال خالی خانه‌اش را نشان می‌دهد و می‌گوید: «درآمدی نداریم و قرار است بنزین را هم گران‌تر کنند.»
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

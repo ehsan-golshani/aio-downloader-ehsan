@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/04 14:38
+📅 آخرین بروزرسانی: 1405/06/04 15:20
 
 ---
+
+## VahidOOnLine — post 256631
+
+<div align="center"><video src="files/post_256631_VahidOOnLine_256631.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256631_VahidOOnLine_256631.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، یخچال خالی خانه‌اش را نشان می‌دهد و می‌گوید: «درآمدی نداریم و قرار است بنزین را هم گران‌تر کنند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256630
 
@@ -258,19 +271,6 @@ ManotoTV
 روابط عمومی سازمان غذا و دارو اعلام کرد که محصول طبیعی اسپری بینی «کلدانیز» تولید شرکت نفس زیست فارمد، به دلیل عدم انطباق کیفی و آلودگی میکروبی، غیرمجاز شناخته شده و دستور جمع‌آوری فوری سری‌های ساخت مشخص‌شده از سراسر کشور صادر شده است.
 
 این سازمان اعلام کرد که بر اساس این ابلاغیه، اسپری بینی «کلدانیز» با سری ساخت‌های ۲۵AF۰۰۷ (با تاریخ انقضای ۲۰۲۷/۰۷/۰۱) و ۲۴AF۰۰۸ (با تاریخ انقضای ۲۰۲۶/۱۲/۰۱) به دلیل آلودگی میکروبی مشمول جمع‌آوری فوری هستند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256611
-
-<div align="center"><video src="files/post_256611_VahidOOnLine_256611.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256611_VahidOOnLine_256611.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد یک شهروند در رامسر با نوشتن «۴۰ هزار، ایران» بر ساحل، یاد جاویدنامان انقلاب ملی را گرامی داشته است.
 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 7514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ARABICA ☕⚡️HoT.npvt
+</div>
 
 ## tasiyanc — post 7499
 
@@ -189,20 +195,5 @@ ESPRESSO 🔥☕.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز 28 June، روزِ  LGBTQ یا همون همجنسگراست
 بفرست واسه رفیق گِیت🤣
-</div>
-
-## tasiyanc — post 7460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال 
-
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

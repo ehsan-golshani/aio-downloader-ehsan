@@ -1,8 +1,23 @@
 # آرشیو کانال VahidOOnLine - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/04 14:38
+📅 آخرین بروزرسانی: 1405/06/04 15:20
 
 ---
+
+## VahidOOnLine — post 256780
+
+<div align="center"><img src="files/post_256780_VahidOOnLine_256780.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محسن نقوی، وزیر کشور پاکستان، روز سه‌شنبه سوم شهریور، پس از بازگشت از سفر به تهران، با سرپرست سفارت ایالات متحده در اسلام‌آباد دیدار و گفتگو کرد. این دیدار به‌دنبال گفتگوهای هیات پاکستانی در ایران با هدف میانجی‌گری و پایان دادن به مناقشه میان واشنگتن و تهران انجام شد.
+
+وزارت کشور پاکستان در بیانیه‌ای اعلام کرد که در این دیدار، وضعیت کلی منطقه و موضوعات مربوط به صلح و ثبات مورد بحث و بررسی قرار گرفته است. نقوی در این سفر، فیلدمارشال عاصم منیر، فرمانده ارشد ارتش پاکستان را که نقش مستقیم در تلاش‌های میانجی‌گرانه میان آمریکا و ایران دارد، همراهی می‌کرد.
+
+وزیر کشور پاکستان با مثبت ارزیابی کردن نتایج گفتگوهای تهران تاکید کرد: «پیشرفت‌های چشمگیری حاصل شد و این نشست با فضایی بسیار مثبت به پایان رسید. امیدواریم این روند زمینه را برای پیشرفت‌های بیشتر و تحقق صلح پایدار در منطقه هموار کند.»
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256779
 
@@ -296,19 +311,6 @@ IranintlTV
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک شهروند با ارسال پیام صوتی به ایران‌اینترنشنال می‌گوید داروهای شرکت «سینادارو» تا چند برابر افزایش قیمت داشته است.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256760
-
-<div align="center"><video src="files/post_256760_VahidOOnLine_256760.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256760_VahidOOnLine_256760.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«این وضعیت پمپ‌ بنزین‌هاست»
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,19 @@
 # آرشیو کانال VahidOOnLine - صفحه 253
 
-📅 آخرین بروزرسانی: 1405/06/04 14:38
+📅 آخرین بروزرسانی: 1405/06/04 15:20
 
 ---
+
+## VahidOOnLine — post 250946
+
+<div align="center"><img src="files/post_250946_VahidOOnLine_250946.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️خبرگزاری تسنیم از حمله مجدد جنگنده‌های آمریکایی به مناطقی در قشم در ساعت ۶:۱۰ صبح یکشنبه خبر داد که در پی آن، دست‌کم صدای دو انفجار مهیب در نقاطی از این جزیره شنیده شده است. پیش از این نیز، خبرگزاری سپاه از اصابت ۶ موشک به نقاطی در قشم خبر داده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250945
 
@@ -277,19 +288,6 @@ ht
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️به گزارش مهر، بامداد یکشنبه، صدای پرواز چند جنگنده در آسمان جزیره کیش شنیده شد. براساس این گزارش، تا این لحظه هیچ‌گونه صدای انفجار گزارش نشده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250917
-
-<div align="center"><video src="files/post_250917_VahidOOnLine_250917.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250917_VahidOOnLine_250917.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️منابع امنیتی به خبرگزاری رویترز اعلام کردند، بامداد یکشنبه، یک پهپاد مهاجم و انتحاری در نزدیکی کنسولگری ایالات متحده آمریکا در غرب شهر اربیل واقع در اقلیم کردستان عراق سرنگون شده است.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

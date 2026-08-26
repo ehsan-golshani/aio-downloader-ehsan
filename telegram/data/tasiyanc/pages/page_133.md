@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 133
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 5636
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈4 سرور وی ای پی تست شده نت خانگی⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5634
 
@@ -178,11 +191,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حرف نداری پسر/دختر🫶😂
-</div>
-
-## tasiyanc — post 5603
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یدونه هستش درست ۲ هفته وصلم 😂😂
 </div>
 

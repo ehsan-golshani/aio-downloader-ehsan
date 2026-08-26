@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 6333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دولت شیرکاکائوئیا (پاکستانی ها) اینترنت بین الملل رو بخاطر فراخوان اعتراضی بستند
+</div>
 
 ## tasiyanc — post 6332
 
@@ -193,16 +199,5 @@ Password : @Tasiyanc  ⏩
 پروکسی • پروکسی
 
 @Tasiyanproxy ✅
-</div>
-
-## tasiyanc — post 6306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB  👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش⏩
-
-@Tasiyanc ✅
 </div>
 

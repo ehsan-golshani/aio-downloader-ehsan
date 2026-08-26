@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 125
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 5853
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مثل برخی چنلا باید روزی ۲۰۰ پیام واسه سرور رایگان رضایت بفرستیم؟
+</div>
 
 ## tasiyanc — post 5852
 
@@ -178,11 +184,5 @@ Premium Fast servers 🔥🌱.npvt
 ایرانسل
 
 گوشیم رو بروز کردم
-</div>
-
-## tasiyanc — post 5812
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیا حق این سرور ۱۶ ریکشن است؟؟
 </div>
 

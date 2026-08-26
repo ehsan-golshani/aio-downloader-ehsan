@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 9087
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 
+📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 9086
 
@@ -349,11 +368,5 @@ r16
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9065
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[SuperFast] @Tasiyanc 🔥.npvt
 </div>
 

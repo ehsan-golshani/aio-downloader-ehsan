@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 9420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان عزیز توجه کنید جهت طرح شکایت چون اطلاعات تایید ۱۰۰٪ نمیشه ، فقط کانال و شماره اکانت تلگرام و شماره عددی اکانت طرف کافیه تا طرح شکایت کنید پلیس فتا درجا پیگیری می‌کنه @wWwWwWwWwWwWwWwWwWwWwW26 آیدی عددی 8973915004
+</div>
 
 ## tasiyanc — post 9419
 
@@ -195,12 +201,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 زمینه سازی میکنید گرون کنید جا*شا؟
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9395
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قدیمی ترین سایت فعال در ایران✅
-امنیت،امکانات،تضمین پرداخت💎
 </div>
 

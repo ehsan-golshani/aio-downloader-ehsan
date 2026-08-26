@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 9346
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب لینک اختصاصی تاسیان 🚀
+
+🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+
+پروتکل Trojan سرعتی
+( هر ۸ ساعت آپدیت خواهد شد )
+
+
+آموزش ویدیویی اضافه کردن ساب
+
+
+@Tasiyanc 💠 | اتصال امن
+</div>
 
 ## tasiyanc — post 9345
 
@@ -258,13 +275,5 @@ https://sub.connecti24.info/roKRodKdpbqkdXXk
 ساب رو تو هاپ ، ویتوباکس ، ویتوری بزنید
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+fxq9NcirUag3N2Zk
 </div>
 

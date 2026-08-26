@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/04 14:38
+📅 آخرین بروزرسانی: 1405/06/04 15:20
 
 ---
+
+## VahidOOnLine — post 256562
+
+<div align="center"><video src="files/post_256562_VahidOOnLine_256562.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256562_VahidOOnLine_256562.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از بازنشستگان مخابرات در تهران دوشنبه دوم شهریور تجمع کردند و شعارهایی چون «این همه بی‌عدالتی، هرگز ندیده ملتی» سردادند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256561
 
@@ -288,18 +301,6 @@ IranintlTV
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم بریتانیا یکشنبه یکم شهریور علیه جمهوری اسلامی در شهر لندن تجمع کردند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256540
-
-<div align="center"><img src="files/post_256540_VahidOOnLine_256540.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی، دوشنبه دوم شهریور خطاب به اسکات بسنت، وزیر خزانه‌داری آمریکا، در شبکه ایکس نوشت می‌گویید توان نظامی جمهوری اسلامی برچیده شده، ۱۰۰ درصد کارخانه‌های نظامی نابود شده و برنامه هسته‌ای دفن شده است؛ اما برای همین جمهوری اسلامی، بزرگ‌ترین تهاجم مالی تاریخ و بسیج تمام نهادها و اختیارات آمریکا لازم شده است.
-او افزود: «این پیروزی است یا اعتراف به شکست آمریکا؟»
 IranintlTV
 
 🤖 @VahidOOnLine

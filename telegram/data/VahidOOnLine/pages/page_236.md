@@ -1,8 +1,22 @@
 # آرشیو کانال VahidOOnLine - صفحه 236
 
-📅 آخرین بروزرسانی: 1405/06/04 14:38
+📅 آخرین بروزرسانی: 1405/06/04 15:20
 
 ---
+
+## VahidOOnLine — post 251319
+
+<div align="center"><img src="files/post_251319_VahidOOnLine_251319.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش بلومبرگ، پس از حمله به دو کشتی تحت مدیریت شرکت کشتیرانی یونانی دیناکوم، تردد در تنگه هرمز عملا متوقف شده است.
+
+بلومبرگ گزارش داد، مالکان و خدمه کشتی‌ها در تنگه هرمز برای جلوگیری از حمله، موقعیت خود را مخفی می‌کنند، از این رو ممکن است ابعاد واقعی تردد در این آبراه تا هفته‌ها یا ماه‌ها مشخص نشود.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 251318
 
@@ -281,18 +295,6 @@ iranintl
 
 لیونل مسی، کاپیتان و ستاره آرژانتینی‌ها از نیوجرسی به خانه بازنگشت.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 251295
-
-<div align="center"><img src="files/post_251295_VahidOOnLine_251295.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سازمان حقوق بشر ایران گزارش داد دادگاه انقلاب شیراز، مجتبی دهبندی و کیانوش همزه‌ای کازرونی را به اتهام «محاربه از طریق آتش زدن اماکن عمومی و سوزاندن قرآن» و «اقدام علیه امنیت ملی از طریق پناه دادن و کمک‌رسانی پزشکی به معترضان زخمی» در جریان اعتراضات دی‌ماه، به اعدام محکوم کرد.
-iranintl
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>

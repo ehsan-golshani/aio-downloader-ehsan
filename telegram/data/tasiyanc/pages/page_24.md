@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 9034
+
+<div align="center"><video src="files/post_9034_tasiyanc_9034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9034_tasiyanc_9034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این سکانس GOT برای دنیا معمولیه برای ما ایرانیا نه
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9032
 
@@ -289,23 +301,5 @@ https://t.me/+cBQ8n7zLQiUzN2U0
 g14
 
 💠 https://t.me/+cBQ8n7zLQiUzN2U0
-</div>
-
-## tasiyanc — post 9008
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•تقدیم به مردم سرزمینم 🖤
-
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 📍
-
-•آموزش اتصال ⚡️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 

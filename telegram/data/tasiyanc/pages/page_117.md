@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 117
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 6051
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب بریم به آدرس و شماره تلفن یا چیزای دیگه بدم؟
+</div>
 
 ## tasiyanc — post 6050
 
@@ -126,11 +132,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 منم لیمیت خوردم
-</div>
-
-## tasiyanc — post 6027
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم اکانتم پرید
 </div>
 

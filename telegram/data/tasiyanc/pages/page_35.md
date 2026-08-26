@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 8745
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر هارو دنبال کنید از اینجا
+@TasiyanProxy
+</div>
 
 ## tasiyanc — post 8744
 
@@ -201,23 +208,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وارد 5/5/5 شدیم ، برنامتون چیه؟
-</div>
-
-## tasiyanc — post 8717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ آخرین نسخه ی V2rayNG اندروید
-
-نسخه 2.2.6
-
-● تغییرات مهم:
-• جایگزینی allowInsecure منسوخ با PinnedPeerCertSha256
-• حذف Tcping ping و بهبود تست پینگ
-• آپدیت هسته ایکس ری
-• رفع برخی باگ ها
-
-🔗 لینک دانلود از گیتهاب
-
-@TASIYANC ⭐️
 </div>
 

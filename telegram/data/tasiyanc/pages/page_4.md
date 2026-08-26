@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 9536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا میدانید زمان اختلال باید در کانال پروکسی ما نیز عضو شوید؟
+@TasiyanProxy
+@TasiyanProxy
+@TasiyanProxy
+ارائه پروکسی های پر سرعت 📡
+</div>
 
 ## tasiyanc — post 9535
 
@@ -329,27 +339,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc Mumbai 🇮🇳.ovpn
-</div>
-
-## tasiyanc — post 9513
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 
-📶
-
-تست شده تمام نت‌ها 
-🛜
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-
-
-💋 @Tasiyanc 
-⭐️
 </div>
 

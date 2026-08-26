@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 5812
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا حق این سرور ۱۶ ریکشن است؟؟
+</div>
 
 ## tasiyanc — post 5811
 
@@ -192,18 +198,5 @@ Fast ⚡.npvt
 🚨گزارشات از صدای انفجار در بندرعباس
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5790
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈3سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
 </div>
 

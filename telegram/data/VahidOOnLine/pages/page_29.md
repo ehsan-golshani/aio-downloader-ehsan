@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/06/04 14:38
+📅 آخرین بروزرسانی: 1405/06/04 15:20
 
 ---
+
+## VahidOOnLine — post 256316
+
+<div align="center"><video src="files/post_256316_VahidOOnLine_256316.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256316_VahidOOnLine_256316.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند در اعتراض به وضعیت بد معیشتی خطاب به مسئولان یخچال خانه خود را نشان می‌دهد و می‌گوید:‌ «بسه! وا بدهید، ملت گرسنه است.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256315
 
@@ -306,19 +319,6 @@ Indypersian
 
 احسان بدیعیان، فرمانده انتظامی شهرستان شاهین‌شهر و میمه این جزئیات را اعلام کرده و گفته است دو متهم پس از دستگیری برای طی مراحل قانونی در اختیار مراجع قضایی قرار گرفته‌اند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256296
-
-<div align="center"><img src="files/post_256296_VahidOOnLine_256296.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حسین طائب، رییس سازمان بسیج مستضعفین، شنبه ۳۱ مرداد درباره احتمال ازسرگیری مذاکرات هشدار داد و گفت: «ملت ایران فریب این بازگشت ظاهری به مذاکره را نخورد.»
-
-طائب در مراسم «تکریم فعالان مساجد کشور» گفت: «دشمن در سند تفاهم متعهد شده بود در بازه ۶۰ روزه به تعهدات خود عمل کند، تهدید نکند، به محور مقاومت حمله نداشته باشد و مدیریت تنگه هرمز را به ایران بسپارد؛ اما هیچ‌یک از این تعهدات را نپذیرفت و بار دیگر به نقض عهد و فشار روی آورد.»
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

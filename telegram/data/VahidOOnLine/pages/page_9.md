@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/04 14:38
+📅 آخرین بروزرسانی: 1405/06/04 15:20
 
 ---
+
+## VahidOOnLine — post 256760
+
+<div align="center"><video src="files/post_256760_VahidOOnLine_256760.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256760_VahidOOnLine_256760.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«این وضعیت پمپ‌ بنزین‌هاست»
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256759
 
@@ -262,17 +275,6 @@ IranintlTV
 
 ارتش پاکستان و محسن نقوی، وزیر کشور پاکستان پیش از این اعلام کرده بودند که در جریان مذاکرات با مسعود پزشکیان «پیشرفت‌های بزرگی» برای بازگشایی تنگه هرمز و پایان درگیری حاصل شده است.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256731
-
-<div align="center"><img src="files/post_256731_VahidOOnLine_256731.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در ادامه روند نزولی ارزش پول ملی در ایران، قیمت دلار آمریکا سه‌شنبه سوم شهریور به ۲۰۵ هزار تومان رسید. همزمان پوند بریتانیا از ۲۷۹ هزار تومان عبور کرد و یورو نیز به مرز ۲۳۸ هزار تومان رسید. قیمت هر سکه طلای طرح جدید، موسوم به «امامی» نیز از ۲۲۳ میلیون تومان فراتر رفت.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

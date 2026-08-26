@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 9468
+
+<div align="center"><video src="files/post_9468_tasiyanc_9468.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9468_tasiyanc_9468.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+
+تست شده تمام نت‌ها 
+🛜
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+
+⭕️ تمام برنامه هارو ببندید بعد وصل بشید
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9463
 
@@ -309,19 +343,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9442
-
-<div align="center"><img src="files/post_9442_tasiyanc_9442.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توی قائمشهر یک مرد همسر و دختر خردسال خودش رو خفه کرد و به قتل رسوند!!
-
-وقتی همسر و دخترش خواب بودن جفتشون رو با فشار بر مجرای تنفسی خفه میکنه بعدش سعی میکنه این قتل رو نشت گاز جلوه بده ولی در نهایت لو میره!
-انگیزش قتلش هم اختلافات خانوادگی بوده.
-‌
-@Tasiyanc 
-✅
 </div>
 

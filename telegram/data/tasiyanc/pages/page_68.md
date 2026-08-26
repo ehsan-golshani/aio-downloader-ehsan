@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 7625
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گلللللل
+</div>
 
 ## tasiyanc — post 7624
 
@@ -151,11 +157,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 حالتون چطوره؟
-</div>
-
-## tasiyanc — post 7586
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🍊⚡ Fast Orange.npvt
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/04 14:40
+📅 آخرین بروزرسانی: 1405/06/04 15:22
 
 ---
+
+## tasiyanc — post 9008
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•تقدیم به مردم سرزمینم 🖤
+
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 📍
+
+•آموزش اتصال ⚡️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 9006
 
@@ -386,16 +404,6 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 🔴ساغر غلامی طی یک ویدیویی خبر اعدام و داستان عقد شدنش با سپاهی را تکذیب کرد
 
 +من چند ماهه با قید وثیقه بیرونم، به شایعات توجه نکنید
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8986
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نتانیاهو:
-اگه گوشی موبایل دارید یعنی بخشی از اسرائیل رو دارید با خودتون حمل میکنید. ما اونجاییم
 
 @Tasiyanc 
 ⭐️

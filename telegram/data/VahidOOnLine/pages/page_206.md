@@ -1,8 +1,21 @@
 # آرشیو کانال VahidOOnLine - صفحه 206
 
-📅 آخرین بروزرسانی: 1405/06/04 14:38
+📅 آخرین بروزرسانی: 1405/06/04 15:20
 
 ---
+
+## VahidOOnLine — post 252029
+
+<div align="center"><video src="files/post_252029_VahidOOnLine_252029.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252029_VahidOOnLine_252029.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️رویترز، تصاویری جدید از انفجارهای مربوط به بامداد جمعه، دوم مردادماه، در اهواز را منتشر کرد. براساس این ویدیو، نورهای شدیدی در افق شهر اهواز رویت شده و صدای انفجارهای مهیب به گوش می‌رسد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252028
 
@@ -237,17 +250,6 @@
 
 رئیس‌جمهوری آمریکا همچنین گفت ایران دیگر «یک قدرت بزرگ» در منطقه نیست و مشکلی که باقی مانده، «روزبه‌روز در حال ناپدید شدن است».
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252008
-
-<div align="center"><img src="files/post_252008_VahidOOnLine_252008.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، با اشاره به اینکه جمهوری اسلامی هنوز برای دستیابی به توافق آماده نیست، گفت: «در حال گفت‌وگو با آنها هستیم. فکر می‌کنم جدی هستند. تاکنون بسیار جدی‌تر از هر زمان دیگری که دیده‌ایم رفتار می‌کنند، اما این به آن معنا نیست که حتما به توافق می‌رسیم.»
-‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
 </div>
