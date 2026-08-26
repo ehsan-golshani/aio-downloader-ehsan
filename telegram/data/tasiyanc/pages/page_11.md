@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/04 18:22
+📅 آخرین بروزرسانی: 1405/06/04 19:49
 
 ---
+
+## tasiyanc — post 9373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت چطوره؟
+</div>
+
+## tasiyanc — post 9372
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نوید محمدزاده : از فلسطین حمایت کردم ، بازم خواهم کرد ، با اسراییل حال نمیکنم ، تموم تهدید های شما هم ب تخممه
+
+بعد این حرفاش ۹۰۰ هزار نفر آنفالوش کردن فعلا
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9370
+
+<div align="center"><video src="files/post_9370_tasiyanc_9370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9370_tasiyanc_9370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آخرین ویدیویی که مادر جاویدنام عسل شفیعی، با دخترش ضبط کرده بود رو منتشر کرد.
+
+عسل دانشجوی ۲۱ ساله مهندسی کامپیوتر بود که ۱۸ دی ماه به ضرب گلوله به قتل رسید.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 قالیباف: ۹۰ میلیون ایرانی حامی نظام جمهوری اسلامی هستن
+@Tasiyanc 🏛
+</div>
 
 ## tasiyanc — post 9368
 
@@ -212,37 +247,5 @@ g25
 رهایت نکردند
 مگر بعد از آن‌که
 نور و روشنایی را به تو باز گرداندند.
-</div>
-
-## tasiyanc — post 9351
-
-<div align="center"><img src="files/post_9351_tasiyanc_9351.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سرزمین های جدا شده از ایران عزیز در ۵۰۰ سال گذشته !
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9350
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معاوضه امیر با دسته بیل
-</div>
-
-## tasiyanc — post 9349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معاوضه امیر با دسته بیل
-</div>
-
-## tasiyanc — post 9348
-
-<div align="center"><img src="files/post_9348_tasiyanc_9348.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جیسون استاتهام ستاره هالیوود : من فقط می‌خوام کار کنم ، پول دربیارم ، با آدمهای خوب غذا بخورم و هر روز عاشق ؛ یک زن باشم
-
-@Tasiyanc 🕒
 </div>
 

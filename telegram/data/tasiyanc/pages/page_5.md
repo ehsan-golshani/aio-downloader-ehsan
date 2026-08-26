@@ -1,8 +1,80 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/04 18:22
+📅 آخرین بروزرسانی: 1405/06/04 19:49
 
 ---
+
+## tasiyanc — post 9518
+
+<div align="center"><img src="files/post_9518_tasiyanc_9518.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9517
+
+<div align="center"><img src="files/post_9517_tasiyanc_9517.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 آخرین آپدیت قیمت گوشی های پرطرفدار .
+
++ قیمت برخی مدل‌ها بدون ریجستر حساب شده ، منابع رو چک کنید تو بنر زدم
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9516
+
+<div align="center"><video src="files/post_9516_tasiyanc_9516.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9516_tasiyanc_9516.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📺 10 تا از بهترین فیلم های ترسناک 2026 اگه به ژانر وحشت علاقه دارید ببینید !
+
++سایت پیشنهادی برای تماشا و دانلود بدون سانسور
+
+🔗https://www.novigrad.top
+
+
+🩸 @Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 9515
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بسیجی‌ها تو سواحل میانکاله مازندران زنجیره انسانی تشکیل دادن تا جلوی بی‌حجابی در کنار ساحل رو بگیرن:
+
+@Tasiyanc 
+💋
+</div>
 
 ## tasiyanc — post 9514
 
@@ -244,71 +316,5 @@ til.ac/0L4vyJf
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9497
-
-<div align="center"><img src="files/post_9497_tasiyanc_9497.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️ده تا از بهترین سریال های جهان که قبل مرگتون باید ببینید !
-
-سایت پیشنهادی برای تماشا و دانلود بدون سانسور
-
-https://www.novigrad.top
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9495
-
-<div align="center"><video src="files/post_9495_tasiyanc_9495.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9495_tasiyanc_9495.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید تاسیان 
-🆕
-
-" Golden Hour Red Puffer Editorial ✨ "
-
-Prompt 
-🤖
-🤖
-
-A cinematic high-fashion editorial portrait of a naturally beautiful young woman with a short wavy dark bob haircut and wispy bangs, wearing round orange-tinted sunglasses with thin metal frames, elegant pearl drop earrings, a fitted black ribbed turtleneck, and a bold oversized red puffer jacket. Soft glossy lips, natural makeup, realistic skin texture with visible pores and subtle facial details. Wind gently moves her short wavy hair and loose strands around her face.
-Photographed from a dramatic low angle, intimate close-up to upper-body framing, 85mm portrait lens, f/1.8, extremely shallow depth of field, tack-sharp focus on the face, warm golden-hour sunlight illuminating her skin and hair, soft natural shadows, clean cloudless blue sky in the background. Cinematic color grading, rich warm highlights, realistic contrast, subtle analog film texture, premium Vogue-style fashion editorial photography, ultra-photorealistic, professional photography, extremely detailed skin texture, natural facial proportions, authentic optical rendering, high dynamic range, sophisticated luxury fashion aesthetic.
-Negative prompt: cartoon, CGI, 3D render, illustration, painting, plastic skin, over-smoothed skin, excessive retouching, artificial makeup, distorted face, deformed anatomy, bad eyes, asymmetrical glasses, extra fingers, low resolution, blurry face, harsh shadows, oversaturated colors, watermark, text, logo, cropped head.
-
-آموزش استفاده 
-👉
-
-
-@TASIYANC 
-⭐️
-</div>
-
-## tasiyanc — post 9494
-
-<div align="center"><img src="files/post_9494_tasiyanc_9494.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏛 راز مجسمه‌های غول‌پیکر یک معبد باستانی در ترکیه!
-در کوه نمرود، پیکره‌های عظیمی پیدا شدند که سرهایشان از بدن جدا شده بود؛ اما با پیدا شدن سرها، ماجرا عجیب‌تر شد!
-در این مجموعه، نشانه‌هایی از اهورامزدا و ایزدان مهر، بهرام و آناهیتا در کنار نمادهای شیر و شاهین دیده می‌شود؛ ترکیبی که پیوندهای فرهنگی و دینی ایران باستان را در این منطقه نشان می‌دهد.
-👑 سنگ‌ها ساکت‌اند، اما داستانی چند هزار ساله برای گفتن دارند...
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9493
-
-<div align="center"><img src="files/post_9493_tasiyanc_9493.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران عالیه، کتاب شیطان پرستی نوشتن، بعد صفحه اولش: بسم الله الرحمن الرحیم.
-
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/06/04 18:22
+📅 آخرین بروزرسانی: 1405/06/04 19:49
 
 ---
+
+## tasiyanc — post 8195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
+</div>
+
+## tasiyanc — post 8194
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه
+
+دریافت کانفیگ 👉
+</div>
+
+## tasiyanc — post 8192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+🚨 یک مقام آمریکایی به ان‌بی‌سی:
+
+همانطور که رئیس جمهور گفته بود این هفته حمله به زیرساخت‌ها، پل‌ها و نیروگاه‌ها انجام میشود.
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⁉️پدافند تهران فعال شده؟
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8190
 
@@ -136,37 +170,5 @@
 نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8165
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️حمله به فرودگاه ایرانشهر در سیستان و بلوچستان @TasiyanProxy
-</div>
-
-## tasiyanc — post 8163
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بندرعباس عزیز زیر حملات شدید آمریکا 💔
-</div>
-
-## tasiyanc — post 8161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاید باورتون نشه ولی تو این سه تا عکس هیچ اثری از فتوشاپ نیست🐰؛
-ابرهای نادر استراتوسفر قطبی - ایسلند🇮🇸
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8155
-
-<div align="center"><img src="files/post_8155_tasiyanc_8155.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیدی گاگا تو کنسرتش لخت پرید بقل طرفداراش 😐
-
-
-@Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/04 18:22
+📅 آخرین بروزرسانی: 1405/06/04 19:49
 
 ---
+
+## tasiyanc — post 9351
+
+<div align="center"><img src="files/post_9351_tasiyanc_9351.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سرزمین های جدا شده از ایران عزیز در ۵۰۰ سال گذشته !
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاوضه امیر با دسته بیل
+</div>
+
+## tasiyanc — post 9349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاوضه امیر با دسته بیل
+</div>
+
+## tasiyanc — post 9348
+
+<div align="center"><img src="files/post_9348_tasiyanc_9348.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جیسون استاتهام ستاره هالیوود : من فقط می‌خوام کار کنم ، پول دربیارم ، با آدمهای خوب غذا بخورم و هر روز عاشق ؛ یک زن باشم
+
+@Tasiyanc 🕒
+</div>
 
 ## tasiyanc — post 9347
 
@@ -224,54 +256,5 @@ a24
 ‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
 https://t.me/+F1CivZlkxrgzMTM0
 https://t.me/+F1CivZlkxrgzMTM0
-</div>
-
-## tasiyanc — post 9329
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختر توپُر & اسکینی ؟ پسر توپُر & سیکس پک ؟ کامنت
-</div>
-
-## tasiyanc — post 9328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختر توپُر & اسکینی ؟
-
-پسر توپُر & سیکس پک ؟
-
-کامنت
-</div>
-
-## tasiyanc — post 9323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد 😎
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9321
-
-<div align="center"><img src="files/post_9321_tasiyanc_9321.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید نوید محمدزاده با پرچم پِلستین
-
-@Tasiyanc ☑️
 </div>
 

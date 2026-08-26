@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/06/04 18:20
+📅 آخرین بروزرسانی: 1405/06/04 19:47
 
 ---
+
+## ProxyMTProto — post 48395
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: news.future.ir.balabolanda.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48394
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.233.94.9
+Port: 443
+Secret: eee3727d72c23452d6928e9a5ea16f0940676f6f676c65617069732e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gorbeye-7000-sale.asiaadomainsshatelhamrahaval.co.uk.
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48392
 
@@ -154,33 +181,6 @@ Secret: ee4b626208a4a1f7bf6ed78ba01c5a4cd263646e2e746f636f6e76656c2e646967697461
 Server: Unknown
 Port: 443
 Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48375
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: portal.malevich7.top
-Port: 443
-Secret: ee1ed92f1fc75ce363d61dd9310b3c1f3b706f7274616c2e6d616c6576696368372e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48374
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48373
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 194.233.79.77
-Port: 443
-Secret: ee1c0eea3b7ab2529f5ebf8b67852ba490676f6f676c65617069732e636f6d
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,74 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/04 18:22
+📅 آخرین بروزرسانی: 1405/06/04 19:49
 
 ---
+
+## tasiyanc — post 9427
+
+<div align="center"><video src="files/post_9427_tasiyanc_9427.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9427_tasiyanc_9427.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا می‌دانستید که پس از اولین لیوان آب گرم صبحگاهی، چه اتفاقی در بدن ما می‌افتد؟👌
+
+#R
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9426
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
+
+## tasiyanc — post 9425
+
+<div align="center"><img src="files/post_9425_tasiyanc_9425.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️اولین سایت جهانی برای کاربران ایران با واریز برداشت مستقیم⬇️
+
+🪙سایت بین المللی و معتبر لاین بت
+
+❤️‍🔥اسپانسر لیگ  فرانسه
+💳 واریز و برداشت ریالی
+👀بازگشت باخت ب صورت هفتگی
+📣دارای پشتیبانی فارسی فعال
+🎁بونوس 💯 روز های دوشنبه
+
+🎡کدهدیه ثبت نام ➡️ L5670
+
+🔗《 لینک سایت برای کاربران ایرانی》
+
+👍《 دانلود اپلیکیشن اندروید》
+❤️https://telegram.me/+dukgrB6-zGsyNGM8
+🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
+
+✔️ آموزش کامل و جامع شرطبندی👉
+</div>
+
+## tasiyanc — post 9422
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان گل ایشون چنل و گپشو Restiract save کرده نمیشه اسکرین ویدیو گرفت ، سریع از تمام محتویات چنل و گپ و پیویش با گوشی دیگتون فیلم بگیرید تا پاک نکرده
+
+اطلاعات دقیق و آدرس اینا رو تو چنل نمیزنم بخاطر الگوریتم تلگرام مجبورم دایرکت چنل فردا باز کنم بفرستم
+
+آیدی
+@wWwWwWwWwWwWwWwWwWwWwW26
+
+آیدی عددی
+8973915004
+</div>
 
 ## tasiyanc — post 9421
 
@@ -149,53 +215,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 ترامپ: ساکت، ساکت، ساکت، خیلی بی‌احترامی می‌کنید، ساکت باشید، از رسانه دروغگوی CNN هستی با من حرف نزن
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9404
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووری
-
-ترامپ: توافق با ایران را لغو خواهیم کرد
-</div>
-
-## tasiyanc — post 9403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به گزارش اعضا وضعیت اینترنت داغون شده ، تایید یا ن؟
-</div>
-
-## tasiyanc — post 9402
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ العربیه :
-
-ایران و آمریکا بر سر تمدید مجدد ۶۰ روزه ی آتش بس موافقت کردن.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9397
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایرگارد  😎
-
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

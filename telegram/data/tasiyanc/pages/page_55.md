@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/06/04 18:22
+📅 آخرین بروزرسانی: 1405/06/04 19:49
 
 ---
+
+## tasiyanc — post 8165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️حمله به فرودگاه ایرانشهر در سیستان و بلوچستان @TasiyanProxy
+</div>
+
+## tasiyanc — post 8163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بندرعباس عزیز زیر حملات شدید آمریکا 💔
+</div>
+
+## tasiyanc — post 8161
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاید باورتون نشه ولی تو این سه تا عکس هیچ اثری از فتوشاپ نیست🐰؛
+ابرهای نادر استراتوسفر قطبی - ایسلند🇮🇸
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8155
+
+<div align="center"><img src="files/post_8155_tasiyanc_8155.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیدی گاگا تو کنسرتش لخت پرید بقل طرفداراش 😐
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8154
 
@@ -205,31 +237,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کامبککککک میزنه آرژانتین
-</div>
-
-## tasiyanc — post 8123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آرژانتین زددد
-</div>
-
-## tasiyanc — post 8122
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انگلیس زددددد
-</div>
-
-## tasiyanc — post 8120
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ حمله شدید آمریکا به کرمان
-
-@Tasiyanc ⭐️
 </div>
 
