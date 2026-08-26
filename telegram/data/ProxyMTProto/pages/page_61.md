@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/06/04 08:44
+📅 آخرین بروزرسانی: 1405/06/04 09:26
 
 ---
+
+## ProxyMTProto — post 49302
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: api.medhata.org
+Port: 443
+Secret: ee32bc9ea34e230a726f9364c05e4ea2086170692e6d6564686174612e6f7267
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49301
 
@@ -172,15 +181,6 @@ Secret: ee663b5fc7e34e5b0ce56906c27ea0bc3063646e2e746f636f6e76656c2e646967697461
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49282
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxy.fluxvpnguard.ru
-Port: 443
-Secret: ee0a9b43ea17eff45e518fa360979998e770726f78792e666c757876706e67756172642e7275
 @ProxyMTProto
 </div>
 

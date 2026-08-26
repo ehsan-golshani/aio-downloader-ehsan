@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 110
 
-📅 آخرین بروزرسانی: 1405/06/04 02:20
+📅 آخرین بروزرسانی: 1405/06/04 09:28
 
 ---
+
+## tasiyanc — post 6228
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@TASIYANC 🔥X1B.conf
+</div>
 
 ## tasiyanc — post 6227
 
@@ -176,11 +182,5 @@ VIP 🚀@Tasiyanc GhdMethod .conf
 دانلود  Wg tunnel 🕹
 آموزش⏩
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-NEW FAST ⚡ 🚀.npvt
 </div>
 

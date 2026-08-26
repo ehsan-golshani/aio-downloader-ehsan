@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 95
 
-📅 آخرین بروزرسانی: 1405/06/04 02:20
+📅 آخرین بروزرسانی: 1405/06/04 09:28
 
 ---
+
+## tasiyanc — post 6656
+
+<div align="center"><video src="files/post_6656_tasiyanc_6656.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6656_tasiyanc_6656.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+😎
+
+3سرور سرعتی همه نت ها 
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+🔹
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6655
 
@@ -183,13 +211,5 @@ Homayoun Shajarian & Sohrab Pournazeri – Irane Man
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرعت سرویس ساب نامحدود ک براتون گذاشتیم 🚀 داخل چنل پروکسی پین شده ❤️ https://t.me/+v0wRP5SGNrg5MThk 👆
-</div>
-
-## tasiyanc — post 6621
-
-<div align="center"><img src="files/post_6621_tasiyanc_6621.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk
 </div>
 

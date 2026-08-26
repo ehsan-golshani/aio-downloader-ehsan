@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/04 02:20
+📅 آخرین بروزرسانی: 1405/06/04 09:28
 
 ---
+
+## tasiyanc — post 9175
+
+<div align="center"><img src="files/post_9175_tasiyanc_9175.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 
+🆕
+
+" Golden Sunflower Gaze "
+
+Prompt 🤖🤖
+
+Ultra realistic beauty portrait using the reference image as identity anchor, preserve exact facial features, bone structure, eye shape, lips, skin tone, natural asymmetry and overall likeness. Extreme close-up, direct eye contact, sunflower covering half the face, petals softly touching cheek, nose and lips, delicate floral shadows on skin. Luxury skincare campaign, Vogue Beauty cover style, intimate editorial photography, shallow depth of field, ultra detailed flower texture, crisp iris details, warm cinematic highlights, soft shadows, natural window light, Canon EOS R5, RF 85mm f/1.2L, subtle film grain, fine art floral portrait, luxury beauty advertisement, elegant feminine mood, Pinterest-worthy composition.Photorealistic 8K, realistic anatomy, no Al look, no beauty filter, no skin smoothing, visible pores, authentic skin texture, vertical 5:7.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9174
 
@@ -314,21 +334,5 @@ A high-contrast black and white studio portrait of a handsome Middle Eastern man
 فقط ایران ››››
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9152
-
-<div align="center"><img src="files/post_9152_tasiyanc_9152.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Fine Art Romance ❤️
-
-آموزش استفاده 👉
-
-دریافت پرامپت👉
-
-@TASIYANC ⭐️
 </div>
 

@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/04 02:20
+📅 آخرین بروزرسانی: 1405/06/04 09:28
 
 ---
+
+## tasiyanc — post 9459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همگی عمو خسرو رو حمایت کنید عشقا ✅
+https://t.me/+J_q7c-COftQzOGM0
+</div>
 
 ## tasiyanc — post 9458
 
@@ -299,18 +306,6 @@ Decarys 🔥.ovpn
 آموزش اتصال 
 ⛓
 
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9437
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ترامپ :
-
-دیگه هیچ مذاکره یا گفت‌وگویی با جمهوری اسلامی ایران در جریان نیست و هیچ مذاکره‌ای هم برنامه‌ریزی نشده؛
-
-محاصره دریایی همچنان با تمام قدرت ادامه داره و همچنین تنگه هرمز بازه و همه مین‌های دریایی  یا جمع‌آوری شدن یا منفجرشون کردیم.
 
 @Tasiyanc ⭐️
 </div>

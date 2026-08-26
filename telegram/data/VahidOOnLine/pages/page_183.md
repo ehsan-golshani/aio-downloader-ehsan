@@ -1,8 +1,64 @@
 # آرشیو کانال VahidOOnLine - صفحه 183
 
-📅 آخرین بروزرسانی: 1405/06/04 07:49
+📅 آخرین بروزرسانی: 1405/06/04 09:26
 
 ---
+
+## VahidOOnLine — post 252501
+
+<div align="center"><video src="files/post_252501_VahidOOnLine_252501.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252501_VahidOOnLine_252501.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اعدام ابوالفضل سپاهی و امیرحسین صفری در میدان علیخانی اصفهان، تلاشی بود از سوی حکومت برای نمایش قدرت با پیامی هم‌زمان برای مخالفان و حامیان جمهوری اسلامی. اما تجمع معترضان و شعارهای اعتراضی در محل اجرای حکم، روایت دیگری از این رویداد ساخت؛ روایتی که نشان داد حتی اعدام در ملا عام نیز نمی‌تواند صدای اعتراض و دادخواهی را خاموش کند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252500
+
+<div align="center"><img src="files/post_252500_VahidOOnLine_252500.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس اطلاعات رسیده به ایران اینترنشنال، شروین باقری، از معترضان پرونده اصفهان، در آستانه اجرای حکم اعدام قرار دارد. به خانواده‌ او گفته شده برای آخرین ملاقات به زندان مراجعه کنند . شروین باقری نیز در حال انتقال به سلول انفرادی است.
+
+روز سه‌شنبه اقدام جمهوری اسلامی در اجرای حکم اعدام ابوالفضل سپاهی و امیرحسین صفری، دو تن از معترضان دی‌ماه، در خیابان‌های اصفهان، با واکنش‌های گسترده شهروندان و کاربران شبکه‌های اجتماعی روبه‌رو شد. بسیاری این اقدام حکومت را «وحشیانه» و «جنایتی علیه بشریت» خواندند و از آن ابراز انزجار کردند.
+
+یک منبع آگاه به ایران‌اینترنشنال خبر داد قائم حسینی، امیرحسین ملکی و علی دشتی، سه تن از معترضان انقلاب ملی در اصفهان، در آستانه اجرای حکم اعدام قرار دارند. در پی تشدید موج سرکوب‌ها در ایران، کارزار «سه‌شنبه‌های نه به اعدام» از جامعه جهانی خواست صدای زندانیان محکوم به اعدام باشد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252499
+
+<div align="center"><img src="files/post_252499_VahidOOnLine_252499.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، قائم حسینی، امیرحسین ملکی و علی دشتی، متهمان پرونده میدان علیخانی اصفهان، در آستانه اجرای حکم اعدام قرار دارند. از خانواده‌های این معترضان دی خواسته شده برای آخرین ملاقات به زندان مراجعه کنند.
+
+قائم حسینی پسرعمه گل‌محمد محمدی است که ۲۸ تیر اعدام شد.
+
+این پرونده ۱۲ متهم دارد که علاوه بر محمدی، تاکنون سه تن دیگر از آنان به نام‌های عرفان اسفندیاری، ابوالفضل سپاهی و امیرحسین صفری نیز اعدام شده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252498
+
+<div align="center"><video src="files/post_252498_VahidOOnLine_252498.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252498_VahidOOnLine_252498.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد معترضان در شیراز تصویر رهبران جمهوری را که روی بنری در پل عابرپیاه نصب شده، آتش زده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252497
 
@@ -240,58 +296,6 @@
 
 او با اشاره به وضعیت بخش انرژی پس از جنگ افزود: «در حملاتی که در جنگ صورت گرفت، ۲۳۰ میلیون متر مکعب از ظرفیت تولید گاز از دست رفته است.»
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252475
-
-<div align="center"><video src="files/post_252475_VahidOOnLine_252475.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252475_VahidOOnLine_252475.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال در سه‌شنبه ششم مرداد، گریه خانواده یکی از معترضان بازداشتی در دی‌ماه را هنگام اجرای حکم اعدام نشان می دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252474
-
-<div align="center"><video src="files/post_252474_VahidOOnLine_252474.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252474_VahidOOnLine_252474.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال در سه‌شنبه ششم مرداد، لحظه اعدام یکی از بازداشتی‌های دی‌ماه ۱۴۰۴ را در میدان علیخانی اصفهان همزمان با پخش اذان صبح نشان می‌دهد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم آلمان دوشنبه پنجم مرداد به مناسبت سالروز درگذشت رضاشاه و محمدرضا شاه در ۴ و ۵ مرداد، در هامبورگ تجمع کردند و یادشان را گرامی داشتند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252472
-
-<div align="center"><img src="files/post_252472_VahidOOnLine_252472.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️سرگئی سوبیانین شهردار مسکو روز سه‌شنبه ششم مرداد و در آستانه دیدار ولودیمیر زلنسکی، رئیس جمهوری اوکراین با دونالد ترامپ از حمله گسترده اوکراین به پایتخت روسیه با ۳۹۰ پهپاد تهاجمی خبر داد.
-
-به گزارش خبرگزاری فرانسه، شهردار مسکو در تلگرام نوشت: «بین ساعت ۸:۳۰ شب و ۶:۳۰ صبح، بیش از ۳۹۰ پهپاد به سمت مسکو در حال پرواز بودند. اکثر آنها قبل از رسیدن به شهر توسط نیروهای پدافند هوایی خنثی شدند. ۸۱ پهپاد دشمن هنگام نزدیک شدن به مسکو منهدم شدند.»
-
-با این حال، وزارت دفاع روسیه بعدا اعلام کرد که در مجموع ۳۵۶ پهپاد اوکراینی در بیش از دوازده منطقه، از جمله در نزدیکی پایتخت، سرنگون شده‌اند.
-
-نه وزارت دفاع و نه شهردار مسکو توضیحی در مورد این اختلاف ارقام ارائه نکرده‌اند.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

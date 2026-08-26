@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/06/04 02:20
+📅 آخرین بروزرسانی: 1405/06/04 09:28
 
 ---
+
+## tasiyanc — post 8400
+
+<div align="center"><img src="files/post_8400_tasiyanc_8400.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂
+
+دریافت رسانه 👉
+</div>
 
 ## tasiyanc — post 8398
 
@@ -181,30 +191,5 @@ IP
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امشب زیادی ساکته اوضاع و این موضوع بیشتر ترسناک و دلهره آوره
-</div>
-
-## tasiyanc — post 8372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-5سرور سرعتی پرمیوم دارای ۳ لوکیشن  ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/04 02:20
+📅 آخرین بروزرسانی: 1405/06/04 09:28
 
 ---
+
+## tasiyanc — post 9127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همراه اول داغونه ضعیفه
+</div>
 
 ## tasiyanc — post 9126
 
@@ -293,15 +299,5 @@ fashion editorial photography, front shot, upper body, professional female model
 آموزش استفاده 👉
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9105
-
-<div align="center"><img src="files/post_9105_tasiyanc_9105.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خورخه مسی، پدر لیونل مسی درگذشت
-
-@Tasiyanc ⭐️
 </div>
 

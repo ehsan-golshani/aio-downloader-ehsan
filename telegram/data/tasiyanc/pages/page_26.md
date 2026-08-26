@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/04 02:20
+📅 آخرین بروزرسانی: 1405/06/04 09:28
 
 ---
+
+## tasiyanc — post 8978
+
+<div align="center"><video src="files/post_8978_tasiyanc_8978.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8978_tasiyanc_8978.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید خواهر جاویدنام دانیال مرادی‌زاده، قلب هر انسانی رو بدرد میاره ...
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8977
 
@@ -292,32 +305,5 @@ vless://29ca503d-e6b8-4509-b666-48133f450857@one-for-all.levikogjgfdd.ir:443?pat
 اکثریت قاطع ایرانیان اسرائیل را تحسین می‌کنند.
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8955
-
-<div align="center"><img src="files/post_8955_tasiyanc_8955.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اینفوگرافیک ( وایب) اسم 🆕
-قسمت NAME اسم خودتون رو بزنید!
-
-Prompt For only ChatGpt 🤖
-
-Create a trendy Pinterest-style aesthetic collage graphic, vertical format 9:16, dreamy and elegant design with soft pastel gradient background (blush pink, cream, and gold tones), decorative botanical elements (dried flowers, gold leaf accents), minimalist elegant Persian calligraphy-inspired typography.
-
-At the top, display the name “[NAME]” in large, elegant Persian script as the main title.
-
-Below it, arrange the content in a clean magazine-style layout divided into 4 soft-edged sections/cards, each with a small icon (a feather, a flame, a compass, a tree-root symbol), and Persian text (nice readable font, right-to-left) describing:
-
-1. وایب اسم (شخصیت و حس اسم)
-2. انرژی اسم
-3. ریشه و معنی اسم
-4. اصالت و خاستگاه اسم
-
-Add subtle sparkle/glitter overlay, warm soft lighting, high-resolution, ultra-realistic aesthetic photography style mixed with elegant flat-lay design elements, Instagram-worthy composition, no visible text errors, clean and balanced spacing.
-
-
-👹@TASIYANC ✅
 </div>
 

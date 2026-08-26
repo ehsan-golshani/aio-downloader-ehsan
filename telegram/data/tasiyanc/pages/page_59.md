@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/06/04 02:20
+📅 آخرین بروزرسانی: 1405/06/04 09:28
 
 ---
+
+## tasiyanc — post 7987
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر شب جنگ خلیج فارس داریم همو میزنن روزا آروم میشن😐
+</div>
 
 ## tasiyanc — post 7986
 
@@ -242,15 +248,5 @@ Speed Fast ⚡ 🇩🇪.npvt
 Take a photo taken with a Polaroid camera. The photo should look like an ordinary photograph, without an explicit subject or property. The photo should have a slight blur and consistent light source, like a flash from a dark room, scattered throughout the photo.Don't change the face.
 Change the background behind those two people with white curtains. With hugging me.
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7937
-
-<div align="center"><img src="files/post_7937_tasiyanc_7937.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏جوری که این مدت گذشت:
-
-@Tasiyanc✅
 </div>
 
