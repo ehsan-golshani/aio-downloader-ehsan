@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 98
 
-📅 آخرین بروزرسانی: 1405/06/04 15:20
+📅 آخرین بروزرسانی: 1405/06/04 16:01
 
 ---
+
+## VahidOOnLine — post 254697
+
+<div align="center"><img src="files/post_254697_VahidOOnLine_254697.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گیدئون سعار، وزیر خارجه اسرائیل، پس از گفت‌وگو با اد میلیبند، وزیر خارجه بریتانیا، در شبکه ایکس نوشت حکومت ایران از دستیابی به سلاح هسته‌ای دست نکشیده است.
+
+او از تصمیم دولت بریتانیا برای قرار دادن سپاه پاسداران در فهرست سازمان‌های ممنوعه استقبال کرد و خواستار قرار گرفتن موسسه مالی قرض الحسن، وابسته به حزب‌الله، در این فهرست شد.
+
+وزیر خارجه اسرائیل اضافه کرد پیشرفت در اجرای طرح دونالد ترامپ برای غزه به خلع سلاح حماس و دیگر گروه‌های تروریستی و غیرنظامی‌سازی نوار غزه بستگی دارد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 254696
+
+<div align="center"><video src="files/post_254696_VahidOOnLine_254696.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_254696_VahidOOnLine_254696.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به اییران‌اینترنشنال از قطعی مداوم آب در شهر گرگان می‌گوید. به گفته او قطع آب و برق هم در این شهر طبق جدول زمانی نیست.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 254695
 
@@ -261,33 +289,6 @@ Indypersian
 
 این سفر و دیدار در حالی رخ می‌دهد که در بحبوحه گمانی‌زنی‌ها برای از سرگیری مذاکرات میان ایران و آمریکا، خواجه آصف، وزیر دفاع پاکستان در گفتگو با بلومبرگ از نزدیک شدن دو طرف به «نوعی تفاهم» خبر داده بود.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254677
-
-<div align="center"><video src="files/post_254677_VahidOOnLine_254677.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_254677_VahidOOnLine_254677.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در سه‌شنبه ۲۰ مرداد، می‌گوید: «من بچه کوچک در خانه دارم اما یخچال کاملا خالی است.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 254676
-
-<div align="center"><img src="files/post_254676_VahidOOnLine_254676.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محسن نقوی، وزیر کشور پاکستان، روز سه‌شنبه ۲۰ مرداد در سفر به تهران با عباس عراقچی، وزیر خارجه جمهوری اسلامی دیدار کرد.
-بر اساس این گزارش‌ها، اسکندر مومنی، وزیر کشور، از همتای پاکستانی خود استقبال کرد.
-
-اسلام‌آباد از زمان آغاز مذاکرات تهران و واشینگتن در نقش میانجی ظاهر شده و وزیر کشور پاکستان نیز طی ماه‌های اخیر چندین بار به ایران سفر کرده است.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

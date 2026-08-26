@@ -1,8 +1,35 @@
 # آرشیو کانال VahidOOnLine - صفحه 270
 
-📅 آخرین بروزرسانی: 1405/06/04 15:20
+📅 آخرین بروزرسانی: 1405/06/04 16:01
 
 ---
+
+## VahidOOnLine — post 250568
+
+<div align="center"><video src="files/post_250568_VahidOOnLine_250568.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_250568_VahidOOnLine_250568.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارش‌ها بامداد ۲۶ تیرماه، پایگاه دریایی بوشهر هدف حمله قرار گرفت. ویدیوی رسیده به ایران‌اینترنشنال، آتش ناشی از انفجار در محدوده این پایگاه را نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 250567
+
+<div align="center"><img src="files/post_250567_VahidOOnLine_250567.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم‌زمان با تشدید حملات نظامی در ایران، پیام‌های متعددی از شهرهای مختلف به ایران اینترنشنال رسیده که حاکی از افزایش اختلال در دسترسی به اینترنت است.
+بر اساس روایت‌های شهروندان، کاربران در تهران، شیراز، اهواز، اراک، همدان، بندر ماهشهر و بخش‌هایی از استان هرمزگان از کاهش شدید سرعت اینترنت، قطع و وصل شدن مکرر ارتباط و دشوار شدن استفاده از بسیاری از پلتفرم‌های اینترنتی خبر می‌دهند.
+برخی نیز گفته‌اند که هم‌زمان با قطعی برق، ارتباط اینترنت نیز از دسترس خارج شده و در برخی مناطق امکان استفاده از ابزارهای دور زدن فیلترینگ نیز به‌شدت محدود شده است.
+پیش از این نیز در جریان جنگ پیشین جمهوری اسلامی با اسرائیل و آمریکا و ماه‌های پس از آن، دسترسی سراسری به اینترنت با قطع گسترده سه ماهه مواجه بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 250566
 
@@ -324,33 +351,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ♦️سپاه پاسداران صبح جمعه در بیانیه‌ای از «حمله غافلگیرانه» به سوریه خبر داد. در این اطلاعیه هدف حمله منطقه تنف و پایگاه نیروهای آمریکایی عنوان شده است. هنوز ارتش آمریکا یا دولت سوریه در این زمینه اظهارنظر نکرده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250544
-
-<div align="center"><img src="files/post_250544_VahidOOnLine_250544.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روابط عمومی سپاه پاسداران در بیانیه‌ای اعلام کرد نیروهای هوافضای این سازمان، به اهدافی در سوریه حمله کرده‌ است.
-
-سپاه پاسداران در این بیانیه اعلام کرد «کنترل کامل» تنگه هرمز در اختیار این نهاد است و تا زمانی که حملات آمریکا ادامه داشته باشد، «یک قطره نفت و گاز» از این منطقه صادر نخواهد شد.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 250543
-
-<div align="center"><video src="files/post_250543_VahidOOnLine_250543.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_250543_VahidOOnLine_250543.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️ویدیوها و تصاویر منتشر شده در شبکه‌های اجتماعی نشان می‌دهد پهپاد آمریکایی در حال گشت‌زنی بر فراز آسمان چابهار است.
-کانال تلگرامی وحید آنلاین با انتشار ویدیویی از پرواز این پهپاد و صدای تیراندازی به سمت آن را نشان می‌دهد.
 ‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine

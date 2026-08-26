@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/06/04 15:20
+📅 آخرین بروزرسانی: 1405/06/04 16:01
 
 ---
+
+## ProxyMTProto — post 48408
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.garden-troll.life
+Port: 443
+Secret: eef947210c4a3bc988fb15a3d32918ce4c666173742e67617264656e2d74726f6c6c2e6c696665
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48407
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: kha8shen.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48406
 
@@ -163,24 +181,6 @@ Secret: eeb3109e4d758b0eb45731a6ff4d2c12b163646e2e736176656c7965762e636c69636b
 Server: 194.120.230.26
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48388
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: get.utkanos.life
-Port: 443
-Secret: ee20a5ef2d379cb45bcedd56e7092a93d36765742e75746b616e6f732e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48387
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

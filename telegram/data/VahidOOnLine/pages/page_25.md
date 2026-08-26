@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/04 15:20
+📅 آخرین بروزرسانی: 1405/06/04 16:01
 
 ---
+
+## VahidOOnLine — post 256410
+
+<div align="center"><video src="files/post_256410_VahidOOnLine_256410.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256410_VahidOOnLine_256410.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در شنبه ۳۱ مرداد می‌گوید برق شهرستان الشتر در استان لرستان، ساعت‌هاست که قطع شده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256409
+
+<div align="center"><img src="files/post_256409_VahidOOnLine_256409.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانشجویان متحد گزارش داد امین هادوی، دانشجوی سابق ورودی ۱۴۰۰ دانشگاه صنعتی شریف بازداشت شده است.
+
+بنا بر این گزارش او از حدود یک‌ماه پیش در بازداشت به‌سر می‌برد و تاکنون اطلاعی از وضعیت پرونده این دانشجوی پیشین منتشر نشده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256408
 
@@ -275,33 +301,5 @@ IranintlTV
 Indypersian
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256390
-
-<div align="center"><img src="files/post_256390_VahidOOnLine_256390.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️افراد مسلح در نیجریه چندین نمازگزار را ربودند
-
-♦️به گزارش رویترز، پلیس نیجریه روز شنبه، ۳۰ مرداد اعلام کرد افراد مسلح روز جمعه، در جریان نماز جمعه، به مسجد کپنیا در منطقه دکارا از حوزه حکومت محلی بورگو حمله کردند.
-
-به گفته واسیو ابیودون، سخنگوی پلیس، مهاجمان حدود ساعت ۲ بعدازظهر به وقت محلی وارد مسجد شدند، اما این حمله پس از آن رخ داد که افراد مسلح ابتدا به روستاهای گیدان-زانا و کپنیا حمله کرده بودند.
-
-سخنگوی پلیس در بیانیه‌ای گفت گزارش‌های اولیه نشان می‌دهد هیچ‌کس در این حملات کشته نشده است و یک واحد مشترک نیروهای امنیتی برای ارزیابی وضعیت و آغاز عملیات نجات به منطقه اعزام شده است.
-با این حال، پلیس هنوز تعداد دقیق افراد ربوده‌شده را تایید نکرده است.
-
-این حادثه در شرایطی رخ داده که مناطق شمالی و مرکزی نیجریه طی سال‌های اخیر با افزایش حملات گروه‌های مسلح و آدم‌ربایی برای اخاذی مواجه بوده‌اند. مهاجمان در بسیاری از این موارد با حمله به روستاها، جاده‌ها و اماکن عمومی، افراد را ربوده و در ازای آزادی آنها درخواست پول می‌کنند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256389
-
-<div align="center"><img src="files/post_256389_VahidOOnLine_256389.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
 </div>
 

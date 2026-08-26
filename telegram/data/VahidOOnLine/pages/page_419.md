@@ -1,8 +1,36 @@
 # آرشیو کانال VahidOOnLine - صفحه 419
 
-📅 آخرین بروزرسانی: 1405/06/04 15:20
+📅 آخرین بروزرسانی: 1405/06/04 16:01
 
 ---
+
+## VahidOOnLine — post 247142
+
+<div align="center"><video src="files/post_247142_VahidOOnLine_247142.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_247142_VahidOOnLine_247142.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ سفر منطقه‌ای وزیر امور خارجه آمریکا؛
+روبیو پس از ترک امارات وارد کویت شد
+
+♦️مارکو روبیو، وزیر امور خارجه ایالات متحده، پس از پایان دیدارها و رایزنی‌های خود در امارات متحده عربی، وارد کویت شد و دومین ایستگاه از سفر منطقه‌ای خود در خلیج فارس را آغاز کرد. این سفر در حالی انجام می‌شود که پرونده ایران، امنیت منطقه و اجرای تفاهم‌نامه اخیر میان تهران و واشنگتن در کانون گفتگوهای آمریکا با کشورهای عربی قرار دارد.
+روبیو در ابوظبی با شیخ محمد بن زاید آل نهیان دیدار و درباره مفاد تفاهم‌نامه میان ایران و آمریکا، امنیت تنگه هرمز و حفظ ثبات منطقه رایزنی کرد. او همچنین تاکید کرد که آینده این توافق و روند صلح در خاورمیانه، به نحوه اجرای تعهدات از سوی جمهوری اسلامی ایران بستگی دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247141
+
+<div align="center"><img src="files/post_247141_VahidOOnLine_247141.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️ سفارت ایالات متحده آمریکا در کویت که در زمان جنگ در خاورمیانه، هدف قرار گرفته و تعطیل شده بود، فعالیت خود را از سر گرفته است. سخنگوی وزارت خارجه آمریکا، روز چهارشنبه سوم تیرماه، همزمان با سفر مارکو روبیو به این کشور، خبر بازگشایی سفارت را اعلام کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 247140
 
@@ -275,34 +303,6 @@ iranintl
 روسیه در سال ۲۰۱۴ با برگزاری یک همه‌پرسی کریمه را از اوکراین جدا کرد.
 جامعه جهانی این «تغییر اراضی» را به رسمیت نمی‌شناسد.
 ‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247115
-
-<div align="center"><img src="files/post_247115_VahidOOnLine_247115.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی، در شبکه ایکس نوشت: «با وجود درخواست رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، هیچ نشستی با او در سوئیس برگزار نکردیم.»
-
-غریب‌آبادی اضافه کرد: «هیچ برنامه‌ای برای دسترسی به تاسیسات هدف حمله قرار گرفته و مواد هسته‌ای وجود ندارد و این موضوع تنها در چارچوب توافق نهایی و پس از پایان همه تحریم‌ها بررسی خواهد شد.»
-
-او در ادامه خطاب به طرف آمریکایی نوشت: «نمی توانید با هیاهوی رسانه‌ای، سیاست راه بینداز و جا بینداز را پیش ببرید.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 247105
-
-<div align="center"><video src="files/post_247105_VahidOOnLine_247105.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_247105_VahidOOnLine_247105.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روایت راه‌آهن سراسری، از رویای تجددخواهان تا پروژه‌ای که با کوشش رضاشاه، ایران را به هم پیوند زد.
-‌🏁 🇬🇧 ManotoTV
 
 🤖 @VahidOOnLine
 </div>

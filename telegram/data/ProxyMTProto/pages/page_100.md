@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/06/04 15:20
+📅 آخرین بروزرسانی: 1405/06/04 16:01
 
 ---
+
+## ProxyMTProto — post 48528
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ethereal4.arixo.shop
+Port: 443
+Secret: ee46a1111ddd4e14df06045987bd9c3036657468657265616c342e617269786f2e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48527
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: coffee.sattarbox.co.uk
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48526
 
@@ -163,24 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: 34.6.97.246
 Port: 443
 Secret: dde15c0efa2f77bf7378cb3dc8cea5ddde
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48508
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48507
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: portal.balalaika.click
-Port: 443
-Secret: eed9b57dfbf5b124dd877540301c89c774706f7274616c2e62616c616c61696b612e636c69636b
 @ProxyMTProto
 </div>
 

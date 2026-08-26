@@ -1,8 +1,41 @@
 # آرشیو کانال VahidOOnLine - صفحه 455
 
-📅 آخرین بروزرسانی: 1405/06/04 15:20
+📅 آخرین بروزرسانی: 1405/06/04 16:01
 
 ---
+
+## VahidOOnLine — post 246242
+
+<div align="center"><video src="files/post_246242_VahidOOnLine_246242.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246242_VahidOOnLine_246242.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌
+ترامپ در پاسخ به پرسشی درباره حمله به مدرسه میناب در روز نخست جنگ که به کشته شدن بیش از ۱۰۰ کودک منجر شد، گفت این موضوع در دست بررسی است و «هیچ‌کس عمداً چنین کاری نکرده است.»
+
+او با تأکید بر این‌که «در جنگ اشتباه رخ می‌دهد» و «جنگ کثیف است»، در ادامه به کشته‌شدگان حملات ایران اشاره کرد و گفت گزارش این پرونده می‌تواند به‌زودی منتشر شود. ترامپ همچنین خبرنگاران را برای جزئیات بیشتر به پیت هگست، وزیر جنگ آمریکا، ارجاع داد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246241
+
+<div align="center"><video src="files/post_246241_VahidOOnLine_246241.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246241_VahidOOnLine_246241.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ در پاسخ به پرسشی درباره باقی ماندن بخشی از توان موشکی جمهوری اسلامی گفت آمریکا «۸۴ تا ۸۵ درصد» موشک‌های ایران را منهدم کرده و آنچه باقی مانده، عمدتاً زیر زمین است و بیرون آوردنش برای ایران آسان نخواهد بود.
+
+او همچنین گفت بازسازی توان موشکی ایران زمان‌بر خواهد بود و تأکید کرد هدفش کشاندن جنگ به مرحله‌ای نبود که مردم ایران با بحران انسانی روبه‌رو شوند یا حمله به زیرساخت‌های نفتی و آب‌شیرین‌کن‌ها بازار جهانی را دچار بحران کند.
+
+ترامپ در بخش دیگری از سخنانش، درباره برنامه هسته‌ای غیرنظامی جمهوری اسلامی گفت ایران از بزرگ‌ترین ذخایر نفت جهان برخوردار است و پرسید: «اصلاً برای چه به انرژی هسته‌ای نیاز دارد؟»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246240
 
@@ -252,35 +285,6 @@
 
 او گفت اگر آمریکا دارایی کشورها را نگه دارد، دیگر کسی به دلار اعتماد نمی‌کند و نظام مالی جهانی آسیب می‌بیند. ترامپ در ادامه، منتقدان توافق را هدف گرفت و گفت ایران از نظر نظامی شکست خورده، اما ادامه بمباران می‌توانست عبور کشتی‌ها را مختل کند و روزانه صدها میلیون دلار هزینه به اقتصاد جهانی تحمیل کند.
 ‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246204
-
-<div align="center"><video src="files/post_246204_VahidOOnLine_246204.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246204_VahidOOnLine_246204.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توافقی که با پول و رفع تحریم تعریف شود، بر این فرض بناست که جمهوری اسلامی در برابر امتیاز اقتصادی از تقابل عقب می‌نشیند. اما مسئله اصلی این است: تهران پول را می‌خواهد، اما آیا حاضر است منطق قدرت خود را هم تغییر دهد؟
-‌🏁 🇬🇧 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246190
-
-<div align="center"><video src="files/post_246190_VahidOOnLine_246190.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246190_VahidOOnLine_246190.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ساسان حیدری معروف به «ساسی» در ورزشگاه لس‌آنجلس تماشاگر بازی ایران و نیوزیلند بود
-
-♦️ساسان حیدری با اسم هنری «ساسی»، خواننده سرشناس موسیقی رپ و پاپ ایران، ویدیویی از حضور خود در ورزشگاه سوفای لس‌آنجلس در جریان دیدار تیم ملی ایران و نیوزیلند را منتشر کرد.
-ایران پس از تساوی ۲-۲ با نیوزیلند روز ۳۱ خرداد در ورزشگاه اینگلوود لس‌آنجلس به مصاف بلژیک می‌رود.
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

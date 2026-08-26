@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 338
 
-📅 آخرین بروزرسانی: 1405/06/04 15:20
+📅 آخرین بروزرسانی: 1405/06/04 16:01
 
 ---
+
+## VahidOOnLine — post 248932
+
+<div align="center"><video src="files/post_248932_VahidOOnLine_248932.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248932_VahidOOnLine_248932.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال، دود و انفجار ناشی از حمله آمریکا به مواضع جمهوری اسلامی را در بندرعباس در بامداد چهارشنبه ۱۷ تیر نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248931
+
+<div align="center"><video src="files/post_248931_VahidOOnLine_248931.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_248931_VahidOOnLine_248931.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی در شبکه‌های اجتماعی منتشر شده که نشان می‌دهد در پی حمله آمریکا به مواضع حکومت در بندرعباس در بامداد چهارشنبه ۱۷ تیر، یک شهروند می‌گوید بندرعباس را به‌شدت هدف قرار داده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 248930
 
@@ -226,30 +252,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم آلمان، سه‌‌شنبه ۱۶ تیر در اعتراض به اعدام‌های جمهوری اسلامی در ایران، در شهر هانوفر تجمع کردند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248912
-
-<div align="center"><img src="files/post_248912_VahidOOnLine_248912.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکسیوس به نقل از یک مقام آمریکایی گزارش داد اهداف حمله‌های جدید آمریکا به ایران شامل سامانه‌های پدافند هوایی، سامانه‌های پایش ساحلی، موشک‌های زمین‌به‌هوا، پایگاه‌های موشک‌های کروز ضدکشتی، محل‌های پرتاب پهپاد و تاسیسات بندری بوده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 248911
-
-<div align="center"><img src="files/post_248911_VahidOOnLine_248911.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسکان نیوز گزارش داد که ستون دود از سمت پایگاه هوایی بندرعباس مشاهده شده است. پیش‌تر نیز رسانه‌های ایران از شنیده شدن صداهای انفجار در قشم و سیریک خبر دادند.
-ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد که بامداد چهارشنبه مجموعه‌ای از حملات سنگین علیه جمهوری اسلامی را آغاز کرده‌ تا بابت هدف قرار دادن و حمله به کشتی‌های تجاری با خدمه غیرنظامی و بی‌گناه در یک آبراه بین‌المللی، هزینه سنگینی بر حکومت ایران تحمیل کنند.
-
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine
