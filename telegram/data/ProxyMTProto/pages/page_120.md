@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/06/04 00:20
+📅 آخرین بروزرسانی: 1405/06/04 08:44
 
 ---
+
+## ProxyMTProto — post 48113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: static.prxtoday.store
+Port: 443
+Secret: ee3740849efd941157c45810d974fd66097374617469632e707278746f6461792e73746f7265
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48112
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: form.quickdl.info
+Port: 22
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48111
 
@@ -163,24 +181,6 @@ Secret: ddc7540aa41b7e49710c19cb8a2a1426d3
 Server: Unknown
 Port: 25565
 Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48093
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: comet.proxytelega.store
-Port: 443
-Secret: ee6ee3f38ac1fe7874f5eab381736e7eaa636f6d65742e70726f787974656c6567612e73746f7265
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48092
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: flux.proxytelega.store
-Port: 443
-Secret: eec57f379567b25a79cbd1fa0ad73b98d9666c75782e70726f787974656c6567612e73746f7265
 @ProxyMTProto
 </div>
 

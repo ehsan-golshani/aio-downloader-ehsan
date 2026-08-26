@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/04 00:20
+📅 آخرین بروزرسانی: 1405/06/04 08:44
 
 ---
+
+## ProxyMTProto — post 50465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50464
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: small.startnetwork.shop
+Port: 443
+Secret: dd50db933e09b161878d2225787ad1dd21
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50463
 
@@ -163,24 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: node2.librava.click
 Port: 443
 Secret: ee0bbeba170f295eef00b7b9be814e218b6e6f6465322e6c6962726176612e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50445
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 65.21.205.41
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: kostyanchekloh.lol
-Port: 443
-Secret: ee3f72634c46d320aaa30d8bb2682e9b49617669746f2e7275
 @ProxyMTProto
 </div>
 
