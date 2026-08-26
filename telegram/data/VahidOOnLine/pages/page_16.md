@@ -1,8 +1,66 @@
 # آرشیو کانال VahidOOnLine - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/04 06:58
+📅 آخرین بروزرسانی: 1405/06/04 07:49
 
 ---
+
+## VahidOOnLine — post 256571
+
+<div align="center"><img src="files/post_256571_VahidOOnLine_256571.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قاسم روانبخش، نایب‌رییس کمیسیون امور داخلی کشور در مجلس، در گفت‌وگو با خبرگزاری ایسنا اعلام کرد آمریکا باید بداند که جمهوری اسلامی «در میدان جهانی تنها نیست و حضور اثرگذار کشورهایی نظیر چین و روسیه در کنار ایران، منجر به شکست استراتژی تحریم خواهد شد.»
+
+روانبخش گفت: «اقدام اخیر ایالات متحده در زمینه محاصره دریایی ایران فراتر از یک تصمیم سیاسی، بلکه یک اقدام غیربشری است.»
+
+نایب‌رییس کمیسیون امور داخلی کشور در مجلس همچنین افزود: «جمهوری اسلامی باید با اتخاذ رویکردی قاطع در تنگه هرمز و باب‌المندب و جلوگیری از عبور نفت، فشار را بر رگ‌های حیاتی اقتصاد آمریکا افزایش دهد.»
+
+او درباره «طرح کنترل ایران بر تنگه هرمز» گفت که این طرح باید هرچه سریع‌تر از سوی هیات‌رییسه به صحن مجلس آورده شود تا مدیریت این آبراه استراتژیک، «به‌طور کامل بر اساس قوانین و مصوبات جمهوری اسلامی اجرا شود.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256570
+
+<div align="center"><video src="files/post_256570_VahidOOnLine_256570.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256570_VahidOOnLine_256570.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با انتشار ویدیویی در رسانه‌های اجتماعی می‌گوید جایگاه‌های سوخت در مشهد حتی با کارت سوخت هم بنزین نمی‌دهند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256569
+
+<div align="center"><video src="files/post_256569_VahidOOnLine_256569.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256569_VahidOOnLine_256569.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صدها نفر از بازنشستگان شرکت مخابرات تهران روز دوشنبه دوم شهریور ماه تجمع و راهپیمایی اعتراضی برگزار کردند.
+
+براساس گزارش‌ها و ویدیوهای منتشر شده در شبکه‌های اجتماعی، حاضران در این تجمع به عملکرد تعاون سپاه و ستاد اجرایی اعتراض داشتند و شعار می‌دادند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256568
+
+<div align="center"><video src="files/post_256568_VahidOOnLine_256568.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256568_VahidOOnLine_256568.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشگر: «من یه جوان ۲۵ ساله‌ام تازه ۳ روز مغازه برنج‌فروشی زدم. چند روز پیش دزد با شوتی اومده زده برده ۱ تن. بخدا بدبخت شدم».
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256567
 
@@ -232,68 +290,6 @@ IranintlTV
 
 رویترز می‌گوید جزئیاتی از محتوای این مکالمه در دست نیست و کاخ سفید هنوز واکنشی به این خبر نشان نداده است.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256549
-
-<div align="center"><video src="files/post_256549_VahidOOnLine_256549.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256549_VahidOOnLine_256549.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از بازنشستگان مخابرات در تهران دوشنبه دوم شهریور تجمع کردند و شعارهایی چون «بازنشسته داد بزن، حقتو فریاد بزن» سردادند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256548
-
-<div align="center"><video src="files/post_256548_VahidOOnLine_256548.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256548_VahidOOnLine_256548.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی روز دوشنبه دوم شهریورماه گزارش‌ها درباره دعوت از ایران برای پیوستن به پیمان سه‌جانبه دفاعی مکه میان عربستان سعودی، پاکستان و ترکیه را تکذیب کرد.
-
-بقایی در نشست خبری هفتگی وزارت امور خارجه به خبرنگاران گفت: «ما دعوت‌نامه رسمی در این خصوص دریافت نکرده‌ایم.»
-
-سخنگوی وزارت امور خارجه جمهوری اسلامی افزود: «پیشنهادهای مطرح‌شده از سوی کشورهای منطقه صرفا معطوف به گفتگو و رایزنی با این کشورها در مورد مباحث مرتبط با امنیت دسته‌جمعی در منطقه بوده است.»
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256547
-
-<div align="center"><video src="files/post_256547_VahidOOnLine_256547.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256547_VahidOOnLine_256547.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امانوئل مکرون، رئیس‌جمهوری فرانسه به همراه شاهزاده محمد بن سلمان، ولیعهد عربستان سعودی، یکشنبه اول شهریور ماه در مراسم اختتامیه جام جهانی بازی‌های الکترونیک (Esports World Cup) در «قصر بزرگ (گراند پاله)» پاریس شرکت کردند.
-
-مکرون جام قهرمانی این مسابقات را به تیم برنده، AGAL اهدا کرد؛ تیمی که پیروزی عضو فرانسوی آن، گوندال گوئن دوپارک، در رقابت‌های مسابقه اتومبیل‌رانی «ترک‌مانیا» (Trackmania) آن‌ها را به صدر جدول فرستاد.
-
-جام جهانی بازی‌های الکترونیک که بزرگ‌ترین رقابت چندرشته‌ای ورزش‌های الکترونیک در جهان است، از اواسط تیرماه تا اول شهریور در پاریس برگزار شد و بیش از ۲۰۰۰ بازیکن و ۲۰۰ باشگاه از بیش از ۱۰۰ کشور را دور هم جمع کرد.
-
-این رقابت‌ها شامل ۲۴ بازی در قالب ۲۵ قهرمانی مختلف از جمله عناوین پرطرفداری مانند «لیگ آف لجندز»، «کانتر استرایک ۲»، «فورتنایت» و «کال آو دیوتی» بود و مجموع جوایز آن به رقم بی‌سابقه بیش از ۷۵ میلیون دلار رسید.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256546
-
-<div align="center"><img src="files/post_256546_VahidOOnLine_256546.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سازمان عملیات تجارت دریایی بریتانیا، دوشنبه دوم شهریور اعلام کرد یک نفتکش در ۶۳ مایلی شهر بندری ینبع در عربستان سعودی با یک پرتابه ناشناس هدف قرار گرفت و دچار آتش‌سوزی شد.
-
-بر اساس این گزارش، همه خدمه نفتکش در سلامت هستند. این سازمان همچنین اعلام کرد گزارشی درباره پیامدهای زیست‌محیطی این حادثه منتشر نشده است.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>
