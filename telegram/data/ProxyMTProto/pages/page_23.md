@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/04 19:47
+📅 آخرین بروزرسانی: 1405/06/04 21:35
 
 ---
+
+## ProxyMTProto — post 50091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Capital-of-iranian.cat-beutifull-sirooss.co.im
+Port: 4443
+Secret: 7hBEYoISSb16xRkTAiDI3QljYXQtYmV1dGlmdWxsLXNpcm9vc3MuY28uaW0=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50090
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: max.kimt.click
+Port: 443
+Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50089
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50088
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: edge.catsproxy.shop
+Port: 443
+Secret: ee77e833a4cf612b12af5c86614cc5291a656467652e6361747370726f78792e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50087
 
@@ -145,42 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: chai.mikham.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50071
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hub.neo-vpn.ink
-Port: 443
-Secret: eea29dda982c54198f00ea8d440fa6f8ce6875622e6e656f2d76706e2e696e6b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50070
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: iran.vanitydomain.co.uk.
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50069
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: nevspy.corph.ru
-Port: 443
-Secret: eeb84c4dd66de8cfc70f103d43748431ec7777772e6d6963726f736f66742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50068
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

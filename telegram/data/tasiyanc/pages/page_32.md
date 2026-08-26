@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/04 19:49
+📅 آخرین بروزرسانی: 1405/06/04 21:37
 
 ---
+
+## tasiyanc — post 8840
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#کاربردی
+
+با این دو سایت میتونید آهنگهای SoundCloud & Spotify رو دانلود کنید
+کافیه لینک آهنگ رو بدید تا براتون دانلود کنه با کیفیت دلخواه ، من شخصا با ساندکلاد زیاد حال میکنم
+
+🎵 https://www.dltracks.com/en
+
+🎵https://spotmate.online/en1
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ برا ویندوز بزارم ؟
+</div>
 
 ## tasiyanc — post 8838
 
@@ -246,34 +267,5 @@ vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?secu
 
 
 ⭐ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8805
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 معاون استاندار خوزستان:
-مناطقی در نزدیکی شهر شادگان در جنوب غربی ایران هدف حملات هوایی آمریکا قرار گرفته
-
-@TasiyanProxy
-</div>
-
-## tasiyanc — post 8803
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور 📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ لوکیشن آلمان و اسپانیا 💥
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC 💠
 </div>
 

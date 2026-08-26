@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/06/04 19:49
+📅 آخرین بروزرسانی: 1405/06/04 21:37
 
 ---
+
+## tasiyanc — post 8671
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 انفجار در امیدیه - تایید میشه\نمیشه
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8670
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 بهبهان صدای انفجاررررررر
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8667
 
@@ -198,26 +212,5 @@
 اتصال امن برای همه 🇮🇷
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8646
-
-<div align="center"><video src="files/post_8646_tasiyanc_8646.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8646_tasiyanc_8646.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹وقتی یه عالمه اسباب‌بازی داری ولی هیشکی باهات بازی نمیکنه :)
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8643
-
-<div align="center"><img src="files/post_8643_tasiyanc_8643.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🇮🇱 مانور مشترک ارتش آمریکا و اسرائیل در صحرای نقب
-@TASIYANC ⭐️
 </div>
 

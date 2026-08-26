@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/04 19:49
+📅 آخرین بروزرسانی: 1405/06/04 21:37
 
 ---
+
+## tasiyanc — post 9564
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ‌ سرعتی نپسترنت🔐
+سرورهای نامحدود مولتی لوکیشن ⭕️
+
+آموزش اتصال ⛓
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 9563
+
+<div align="center"><video src="files/post_9563_tasiyanc_9563.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9563_tasiyanc_9563.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه دنبال فیلم سینمایی عاشقانه اید می‌تونه پیشنهاد خوبی باشه 👍
+
+🎥 فیلم The Idea of You (2024)
+
++ مشاهده بدون سانسور 👉
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9562
 
@@ -299,30 +326,5 @@ til.ac/0L4vyJf
 تو کشوری که دنیا جهان‌بخت ۱۰ میلیون فالور داره اینم باید ۱ میلیون فالور بگیره ، ایران درست نمیشه.
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9543
-
-<div align="center"><video src="files/post_9543_tasiyanc_9543.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9543_tasiyanc_9543.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توی تهران و برخی شهر ها جدیدا سایکو پارتی مد شده
-
-تو این پارتی باید مثل دیوونه و کصخلا برقصی فقط بی معنی
-اتحادیه روانپزشکی هشدار داده این نوع پارتی ها در حال افزایش هست و باعث مریضی های روانی میشه
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9542
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

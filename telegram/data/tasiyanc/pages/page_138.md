@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 138
 
-📅 آخرین بروزرسانی: 1405/06/04 19:49
+📅 آخرین بروزرسانی: 1405/06/04 21:37
 
 ---
+
+## tasiyanc — post 5496
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Password @Tasiyanc
+
+📶اختصاصی تاسیان 2 سرور تست شده 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5495
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5494
 

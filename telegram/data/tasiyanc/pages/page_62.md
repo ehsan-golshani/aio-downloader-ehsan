@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/06/04 19:49
+📅 آخرین بروزرسانی: 1405/06/04 21:37
 
 ---
+
+## tasiyanc — post 7884
+
+<div align="center"><img src="files/post_7884_tasiyanc_7884.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 جدیدا دخترای ایرانی توی توییتر، با انتشار این تصاویر دارن پسرا رو به کتابخوانی دعوت میکنن😂
+
+@Tasiyanc ⭐️
+#Navid
+</div>
+
+## tasiyanc — post 7883
+
+<div align="center"><img src="files/post_7883_tasiyanc_7883.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc✅
+#Mobina
+</div>
 
 ## tasiyanc — post 7882
 
@@ -296,18 +316,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اخبار جدید درباره تعویق امتحانات 👉 🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
-</div>
-
-## tasiyanc — post 7838
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جدید درباره تعویق امتحانات 👉
-🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
-</div>
-
-## tasiyanc — post 7834
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ رسما و شرعا آغاز شد
 </div>
 

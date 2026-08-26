@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/06/04 19:47
+📅 آخرین بروزرسانی: 1405/06/04 21:35
 
 ---
+
+## ProxyMTProto — post 50011
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50010
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp1.hlebushek.com
+Port: 443
+Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50009
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: SaLam.BaCheha.miomio
+Port: 7980
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50008
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s010.neo-trading.org
+Port: 8443
+Secret: ee2c46ee89b4f2c79c1d8325d13091e580647a656e2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50007
 
@@ -144,42 +180,6 @@ Secret: eed6962c6820fac66c942ad857b7072ae265646765322e6b76616b7a6f6e2e746f70
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown
 Port: 443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49991
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dev.nowabst.net
-Port: 853
-Secret: ee54079943a5db4dc9163650c09dfc806d766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 80
-Secret: 7hbZ3hNtxAbJ6L5BQipx2_std3d3LnlhaG9vLmNvbQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49989
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49988
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>

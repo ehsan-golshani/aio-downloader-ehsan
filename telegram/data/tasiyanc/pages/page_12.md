@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/04 19:49
+📅 آخرین بروزرسانی: 1405/06/04 21:37
 
 ---
+
+## tasiyanc — post 9353
+
+<div align="center"><video src="files/post_9353_tasiyanc_9353.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9353_tasiyanc_9353.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیث لجر ستاره هالیوود ، افسانه ای که در نقش «جوکر» غرق شد و در نهایت در ۲۸ سالگی و چند ماه پس از اکران فیلم از دنیا رفت !
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9352
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام بر آن‌هایی که
+وقتی تو را خاموش یافتند
+رهایت نکردند
+مگر بعد از آن‌که
+نور و روشنایی را به تو باز گرداندند.
+</div>
 
 ## tasiyanc — post 9351
 
@@ -234,27 +256,5 @@ sr25
 
 
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9331
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانال از نون شب واجب تر 👌
-</div>
-
-## tasiyanc — post 9330
-
-<div align="center"><img src="files/post_9330_tasiyanc_9330.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
-
-💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
-a24
-📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥💵
-
-‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
-https://t.me/+F1CivZlkxrgzMTM0
-https://t.me/+F1CivZlkxrgzMTM0
 </div>
 

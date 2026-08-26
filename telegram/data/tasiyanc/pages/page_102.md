@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/06/04 19:49
+📅 آخرین بروزرسانی: 1405/06/04 21:37
 
 ---
+
+## tasiyanc — post 6447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ Fast 🚀 💥.npvt
+</div>
+
+## tasiyanc — post 6446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد   👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود  Wg tunnel 🕹
+
+دانلود iOS 📱
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6444
 
@@ -172,19 +194,5 @@ FAST⚡TASIYAN🚀.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️
-</div>
-
-## tasiyanc — post 6420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمام کانفیگای ک گذاشتیم با قدرت وصلن 🚀
-</div>
-
-## tasiyanc — post 6419
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+RTGtcYWb8HdkNjdk
-
-بیاید گپمون
 </div>
 

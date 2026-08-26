@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/04 19:49
+📅 آخرین بروزرسانی: 1405/06/04 21:37
 
 ---
+
+## tasiyanc — post 9043
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ایران عوارض ۷٪ را بر تمام کشتی‌های تجاری عبوری از تنگه هرمز اعلام کرده است , این امر برای ایران ۳۸۵ میلیون دلار خالص روزانه یا بیش از ۱۰۰ میلیارد دلار خالص سالانه با حجم ترافیک پیش از جنگ ایجاد می‌کند
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9041
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووری 🔴 در پی حمله موشکی حوثی های یمن
+
+تعدادی از نیروهای عربستان سعودی کشته و زخمی شدند، پس از آنکه یک موشک شلیک شده از یمن مستقیماً به پایگاه‌های نیروهای تیپ واکنش سریع اصابت کرد.
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9040
 
@@ -238,29 +255,5 @@ Join As @TASIYANC ✅
 💻 betinja.bet
 🌐 کانال بونوس های رایگان a14
 @betinjabet
-</div>
-
-## tasiyanc — post 9017
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت نت خرابه ، گزارش وضعیت از خطوط همراه و ایرانسل بدید...
-</div>
-
-## tasiyanc — post 9015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم🖤
-
-کانفیگ اختصاصی نامحدود HttpCustum 📱
-
-سرور سرعتی مناسب تمام نت‌ها ⚡️
-
-آموزش اتصال ✅
-
-دانلود  📱android🕹  iOS
-
-اتصال امن برای همه 🏠
-
-💙@TASIYANC ✅
 </div>
 

@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/06/04 19:49
+📅 آخرین بروزرسانی: 1405/06/04 21:37
 
 ---
+
+## tasiyanc — post 7966
+
+<div align="center"><img src="files/post_7966_tasiyanc_7966.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤 در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره…
+</div>
+
+## tasiyanc — post 7965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤
+
+در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره بسیار سخت را دارند.
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 7960
 
@@ -203,39 +220,6 @@ home.by.me
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سلام داداش به رفقا بگو استرس نکشن، دینی رو میشه تو یک ساعت
 جمع کرد😹
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد
-
-مناسب دانلود⬇️ &  گیم 🎮
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe ⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7924
-
-<div align="center"><img src="files/post_7924_tasiyanc_7924.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز روز جهانی کبابه😍
-
-بفرس برا رفیقت برات بخره☺️
 
 @Tasiyanc✅
 </div>

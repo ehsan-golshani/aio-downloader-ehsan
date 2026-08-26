@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/06/04 19:49
+📅 آخرین بروزرسانی: 1405/06/04 21:37
 
 ---
+
+## tasiyanc — post 8755
+
+<div align="center"><img src="files/post_8755_tasiyanc_8755.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسلیت.
+</div>
+
+## tasiyanc — post 8754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Vip for TS ⚡🔥.npvt
+</div>
 
 ## tasiyanc — post 8753
 
@@ -211,30 +225,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔺کاهش 8% درصدی قیمت نفت به ۹۱ دلار بدلیل توقف حملات جمهوری اسلامی و آمریکا
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8726
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ⚡🇹🇷.nm
-</div>
-
-## tasiyanc — post 8725
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-تست شده روی همه نت ها
-
-آموزش اتصال روی اندروید
-⛓
-آموزش اتصال روی ویندوز  
-⛓
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ @TASIYANC ⭐️
 </div>
 

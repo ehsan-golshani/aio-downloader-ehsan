@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 146
 
-📅 آخرین بروزرسانی: 1405/06/04 19:47
+📅 آخرین بروزرسانی: 1405/06/04 21:35
 
 ---
+
+## ProxyMTProto — post 47619
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tproxy.ink
+Port: 443
+Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47618
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowaboost.com
+Port: 443
+Secret: 4fd95a487c5c87ae82b6639a9b6b5ff2
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47617
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47616
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 146.103.96.129
+Port: 443
+Secret: ee627bdd42b085906e41105ddd7dab8cca706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47615
 
@@ -146,47 +182,6 @@ Secret: 7sEXmKsAiDG0dAZsnh6_XINhdml0by5ydQ
 Server: tproxy.mom
 Port: 8090
 Secret: ee104462821249bd7ac519130220c25d09617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47599
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Telegram опять еле дышит?
-
-BLYATNET фиксит это за минуту ⚡
-
-🚀 Быстрые MTProxy и VPN
-🛡 Стабильный доступ без мусора
-🌍 Серверы по всему миру
-
-💫 От 5 ⭐ — дешевле чем стикер 👇
-</div>
-
-## ProxyMTProto — post 47598
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dreams.nolags.pw
-Port: 443
-Secret: dd2d558135931b5e0c5da5e7501724b32c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47597
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 62.60.228.136
-Port: 443
-Secret: ee4fdb47b5c93d2b46c0c155b90106418379616e6465782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47596
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: server-1.shustrik.world
-Port: 443
-Secret: ee53fed7a45b8fcb2ef5a2e0223c76bb4e766b766964656f2e7275
 @ProxyMTProto
 </div>
 
