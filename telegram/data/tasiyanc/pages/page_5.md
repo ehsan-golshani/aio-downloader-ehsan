@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 9523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی مولتی لوکیشن⚡️
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
+
+(دارای محدودیت حجمی ⭕️ )
+
+اتصال امن برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9522
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+
+تست شده تمام نت‌ها 
+🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+⭕️ در صورت ارور چند بار بزنید
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9520
 
@@ -267,28 +314,5 @@ Prompt 🤖🤖
 
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9501
-
-<div align="center"><img src="files/post_9501_tasiyanc_9501.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گرانترین شهر های ایران برای زندگی
-( بر اساس قدرت خرید ملک و ... ) !
-
-آخرین آپدیت خرداد ماه ۱۴۰۵ - قیمت ها میانگین گرفته شدن.
-منبع: مرکز آمار ایران و سامانه های املاک معتبر
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9500
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

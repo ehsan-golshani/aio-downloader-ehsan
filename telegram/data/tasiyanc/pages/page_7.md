@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 9477
+
+<div align="center"><video src="files/post_9477_tasiyanc_9477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9477_tasiyanc_9477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست موقت
+
+🪙 کاربردی - کسب درامد
+
+⚡️معرفی ربات کسب درامد ماینر (استخراج) تون کوین (گرام) - برداشت داره تایید شدست میتونید با انجام تسک ها به درآمد برسید
+
+👉https://t.me/GramHashes72Bot
+
+
+@Tasiyanc⭐️
+</div>
+
+## tasiyanc — post 9476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Blue Man💙 (1).ovpn
+</div>
 
 ## tasiyanc — post 9475
 
@@ -336,64 +361,6 @@ https://t.me/+Iayni3h0j24yYzE0
 متاسفانه یه پلتفرم فروش آنلاین طلا با ۲۰۰ هزار کاربر، ورشکسته شد و علتش هم خالی فروشی بود.
 
 + مراقب باشید به هیچ وجه تو هیچ برنامه و سایتی طلا و نقره فیزیکی نخرید
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9451
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تعدادی DNS برای گیمر های عزیز 😎
-
-IPv4
-DNS 1⚡️
-
-84.200.69.80
-
-DNS 2⚡️
-
-84.208.90.42
-
-
-DNS 1⚡️
-
-114.114.114.114
-
-DNS 2⚡️
-
-78.160.38.248
-
-
-IPv6
-DNS 1⚡️
-
-2a00:801::856b:0fb8:c
-
-DNS 2⚡️
-
-2a00:801::856b:5b73:b
-
-
-DNS 1 ⚡️
-
-2a02:ff01:3344::2903:91b0:c
-
-DNS 2 ⚡️
-
-2a02:ff01:3344::2903:de59:b
-
-
-لینک DNS Changer اندروید
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9450
-
-<div align="center"><img src="files/post_9450_tasiyanc_9450.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨امروز 19 August، روز جهانی عکاسیه📸
-یه روز واسه ثبت کردن لحظه‌ها و منظره‌هایی که حالتو خوب می‌کنن امروز وقتشه انجام بدی .
 @Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 8650
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در صورت تداوم عدم حمایت و نداشتن جذب ، چنل بزودی بفروش خواهد رسید و اتمام فعالیت تاسیان بزودی اعلام خواهد شد ❤️
+</div>
+
+## tasiyanc — post 8647
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8646
 
@@ -216,21 +247,5 @@ Fact @TASIYANC ✅
 
 یکی از معتبرترین تصاویر تهران قدیم است که توسط فردریک گادامر، فیلمبردار فرانسوی در تهران ضبط شده است. در این ویدیو، تصاویری از کوچه‌ها و بازار تهران را میبینید. ویدیو را تا پایان تماشا کنید و بنویسید که تصویر آخر در کدام خیابان تهران ضبط شده است؟
 FACT @TASIYANC 💠
-</div>
-
-## tasiyanc — post 8615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-پینگ نگیرید
-vless://4bde007a-f683-4a43-83ad-e11eff35e6b4@tasiyanc.nova-5e611f.workers.dev:443?path=%2F&security=tls&encryption=none&insecure=0&host=tasiyanc.nova-5e611f.workers.dev&fp=chrome&type=ws&allowInsecure=0&sni=tasiyanc.nova-5e611f.workers.dev#%40TASIYANC%20%F0%9F%9A%80
-Location 🇺🇸
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8614
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
 </div>
 

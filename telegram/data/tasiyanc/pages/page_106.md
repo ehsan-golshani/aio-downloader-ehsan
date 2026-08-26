@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 6345
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST @Tasiyanc servers.txt
+</div>
+
+## tasiyanc — post 6344
+
+<div align="center"><img src="files/post_6344_tasiyanc_6344.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST @Tasiyanc servers.txt
+</div>
 
 ## tasiyanc — post 6343
 
@@ -192,26 +206,5 @@ Password : @Tasiyanc 
 ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6320
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN♻️
-
-تست شده  🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشناروووووووو
 </div>
 

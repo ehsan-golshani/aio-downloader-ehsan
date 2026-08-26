@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 9075
+
+<div align="center"><img src="files/post_9075_tasiyanc_9075.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مردی در کشور ولز لباس عزرائیل میپوشید هر صبح می‌رفت روبروی بیمارستان به پنجره بیماران زل میزد ، توسط پلیس دستگیر شد 😞
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 7 آگوست روز جهانی ترویج شیردهی هست
+
++بفرست برا کسی که میخوای بت شیر بده 😞
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9073
 
@@ -332,28 +352,5 @@ Join @TASIYANC
 اتصال امن برای همه 🇮🇷
 
 📱 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9048
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش از وضعیت اینترنت خطوط همراه و ایرانسل بدید
-</div>
-
-## tasiyanc — post 9044
-
-<div align="center"><video src="files/post_9044_tasiyanc_9044.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9044_tasiyanc_9044.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سوتی جدید. پزشکیان:
-
-پزشکیان: ما بچه که بودیم پنکه نداشتیم
-مجری: آخه آذربایجان خنکه
-پزشکیان: من تو زابل خدمت میکردم
-مجری: آخه شما میگی وقتی بچه بودم
-پزشکیان: من تو زابل خدمت میکردم و پنکه‌ام نداشتم، حالا چی میگی؟
-@Tasiyanc
 </div>
 

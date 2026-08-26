@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 7930
+
+<div align="center"><img src="files/post_7930_tasiyanc_7930.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سایت کاربردی بهتون معرفی کنم:
+
+اگر یه خونه خالی یا حتی یه اتاق خالی دارید
+و نمیدونی چجوری دیزاینش کنید
+وارد این وبسایت خارجی بشید:
+home.by.me
+یه فضایی در اختیارتون میذاره که تصور می‌کنید
+الان وارد نرم‌افزارهای تخصصی دیزاین شدید.
+
+اول از همه ابعاد اتاق، دیوارهاش و به‌صورت کلی متراژ رو مشخص کنید، بعدش شروع کن به دیزاینش با محصولاتی که سایت در اختیارت می‌ذاره؛ مثل مبلمان، میز و
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7928
+
+<div align="center"><img src="files/post_7928_tasiyanc_7928.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام داداش به رفقا بگو استرس نکشن، دینی رو میشه تو یک ساعت
+جمع کرد😹
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7925
 
@@ -214,20 +244,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 @Tasiyanc ⭐️
 #Navid
-</div>
-
-## tasiyanc — post 7891
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جای خالیشان قدر یک وطن درد میکند ؛ نه فقط در خانه هایشان که در دل تمام ایران
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7890
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای فرزندانی که سهمشان از وطن یک گلوله بود 🖤
-
-@Tasiyanc ☑️
 </div>
 

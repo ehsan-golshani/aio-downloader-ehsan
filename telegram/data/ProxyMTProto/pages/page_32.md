@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/04 21:35
+📅 آخرین بروزرسانی: 1405/06/04 23:07
 
 ---
+
+## ProxyMTProto — post 49914
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49913
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 6997f5.swift-cdn.net
+Port: 443
+Secret: ee77da8983d77f29210da791d3a3ace4ce3639393766352e73776966742d63646e2e6e6574
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: iran.fourie.co.uk.
+Port: 443
+Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49911
 
@@ -154,33 +181,6 @@ Secret: ee4b0955a40972e28dc3e76df92e9a3f1e766b2e636f6d
 Server: offers.wrenshire.co.uk
 Port: 7980
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49894
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s2.postpulse.space
-Port: 443
-Secret: ee263bf8f7de3c2b04aa1c008ab21e4a566164322e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49893
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fresh.t-proxy.info.
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49892
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 8972
+
+<div align="center"><video src="files/post_8972_tasiyanc_8972.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8972_tasiyanc_8972.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Fast Tekno💥.npvt
+</div>
+
+## tasiyanc — post 8970
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم 
+🖤
+🇮🇷
+
+کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+سرور سرعتی تست شده  لوکیشن امارات ، لهستان ، انگلیس 
+📍
+
+آموزش اتصال 
+⚡️
+فعالسازی IPV6 
+⚡️
+
+اتصال امن برای همه
+
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 8969
 
@@ -259,32 +293,5 @@ Location ⚡️🇮🇹
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🏴🇮🇷
-</div>
-
-## tasiyanc — post 8948
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود نپسترنت📱
-
-۶ سرور سرعتی تست شده  لوکیشن ایتالیا 📍
-
-آموزش اتصال ⚡️
-
-اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 8947
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دزدی از جیب مردم تا کی ؟
-
-
-🔴جدیدا اینترنت مردم به طرز وحشتناکی خیلی زود و عجیب تموم میشه!
-برای استفاده از اینترنت بین الملل دارن ضریب ۲.۷ حساب میکنن واقعا خنده داره ، نمی‌دونم چی بگم واقن
-
-@Tasiyanc 
-⭐️
 </div>
 

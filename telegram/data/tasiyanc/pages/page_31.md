@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 8875
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8869
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@TASIYANC ⚡ 04.ovpn
+</div>
 
 ## tasiyanc — post 8865
 
@@ -291,41 +305,5 @@ R8
 اتصال امن برای همه 🇮🇷
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8844
-
-<div align="center"><video src="files/post_8844_tasiyanc_8844.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8844_tasiyanc_8844.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موقعیت؛ ترامپ وقتی به کشتی‌ها حمله می‌شه تو هرمز :
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8842
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
-
-سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید⛓
-
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ⭐️
 </div>
 

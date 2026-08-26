@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 9408
+
+<div align="center"><img src="files/post_9408_tasiyanc_9408.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اینترنت گوشی رو به ساده ترین راه ممکن بفرست روی لپ تاپ!
+
+📰اگه روی گوشیت VPN روشنه و میخوای همون اینترنت و VPN رو روی ویندوز داشته باشی، Relay کار رو خیلی ساده میکنه. این پروژه متن بازه و گوشی و لپ تاپ مستقیما به هم وصل میشن و ترافیک از طریق یک تونل WireGuard منتقل میشه.
+
+❓ چطوری ازش استفاده کنیم ؟!
+
+1️⃣اپ Relay رو روی گوشی و ویندوز نصب کن ؛ هات اسپات گوشی رو روشن کن و Relay رو اجرا کن.
+
+2️⃣روی گوشی Start Sharing رو بزن تا QR Code نمایش داده بشه ؛ Relay رو روی ویندوز باز کن و Scan QR رو بزن.
+
+3️⃣در نهایت QR رو با دوربین لپ تاپ اسکن کن و اتصال رو روی گوشی تایید کن. تمام!
+
+📥 دانلود و کد پروژه : لینک گیت‌هاب
+
+🔐 طبق توضیحات پروژه، اکانت، سرور واسطه، تله متری یا اشتراک نداره و لاگ ها هم به صورت خودکار آپلود نمیشن.
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9407
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر 👌
+</div>
 
 ## tasiyanc — post 9406
 
@@ -221,39 +251,5 @@ g26
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9380
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙂این بازی خیلی این روزا ترند💥
-راحت میتونی پولت چند برابر کنی💖
-فرصت از دست ندین فیلم بازی نگاه کنید و شروع کنید😁💵
-</div>
-
-## tasiyanc — post 9379
-
-<div align="center"><video src="files/post_9379_tasiyanc_9379.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9379_tasiyanc_9379.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟ویدئوبازی محبوب Chicky choice🌟
-
-فقط کافیه مرغ از خیابون رد کنی و پولت افزایش بدی😍💵
-
-💖توی سایت بت اینجا بازی کن و پیش بینی کن و پول در بیار😍
-⬅️امکان شارژ با کارت بانکی راحت و امن
-⬅️تسویه حساب سریع بدون احراز
-
-🎁هربار شارژ کنی 12% بیشتر شارژ میشی✅
-🎁اگ باختی هم 10% باختت سایت بهت برگشت میده✅
-🚨ادرس ورود به سایت:
-💠http://betinja.bet/affiliates/?btag=2760677
-
-⚠️فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،امریکا،ترکیه،سنگاپور،فنلاند و...
-
-⭐کانال اطلاع رسانی سایت:👇 sr26
-💠https://t.me/+K0fAOE9hCUo3OGE8
 </div>
 

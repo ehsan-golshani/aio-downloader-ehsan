@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 9501
+
+<div align="center"><img src="files/post_9501_tasiyanc_9501.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گرانترین شهر های ایران برای زندگی
+( بر اساس قدرت خرید ملک و ... ) !
+
+آخرین آپدیت خرداد ماه ۱۴۰۵ - قیمت ها میانگین گرفته شدن.
+منبع: مرکز آمار ایران و سامانه های املاک معتبر
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9500
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9499
 
@@ -410,30 +433,5 @@ IPv6
 
 ✔️ @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9477
-
-<div align="center"><video src="files/post_9477_tasiyanc_9477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9477_tasiyanc_9477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست موقت
-
-🪙 کاربردی - کسب درامد
-
-⚡️معرفی ربات کسب درامد ماینر (استخراج) تون کوین (گرام) - برداشت داره تایید شدست میتونید با انجام تسک ها به درآمد برسید
-
-👉https://t.me/GramHashes72Bot
-
-
-@Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Blue Man💙 (1).ovpn
 </div>
 

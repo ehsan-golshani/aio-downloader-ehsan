@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/04 21:35
+📅 آخرین بروزرسانی: 1405/06/04 23:07
 
 ---
+
+## ProxyMTProto — post 50074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s010.neo-trading.org
+Port: 8443
+Secret: ee2c46ee89b4f2c79c1d8325d13091e580647a656e2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: chai.mikham.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50071
 
@@ -154,33 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: ardesvpn1.ru
 Port: 8443
 Secret: ee05cf8e164f926f4a664b2404d276a1d6617264657376706e312e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eeddff05e65a69a6a7fd1a28a28a121fff7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50053
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: edge.catsproxy.shop
-Port: 443
-Secret: ee77e833a4cf612b12af5c86614cc5291a656467652e6361747370726f78792e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

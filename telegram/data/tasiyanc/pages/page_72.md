@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 7481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگر خاک ایران برفتد ز دست
+هنوز آخرین پر سیمرغ هست
+بگیرید ، بگیرید تیر و کمان را به دست
+جهنم بسازید بر هرچه پست .
+</div>
+
+## tasiyanc — post 7480
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ESPRESSO 🔥☕.npvt
+</div>
 
 ## tasiyanc — post 7478
 
@@ -152,17 +167,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ ۳ انفجار در قشم
-</div>
-
-## tasiyanc — post 7445
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ ۴ انفجار شدید در سیریك
-</div>
-
-## tasiyanc — post 7444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ آغاز حملات ایالات متحده به ایران
 </div>
 

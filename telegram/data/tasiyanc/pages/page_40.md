@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 8615
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐
+پینگ نگیرید
+vless://4bde007a-f683-4a43-83ad-e11eff35e6b4@tasiyanc.nova-5e611f.workers.dev:443?path=%2F&security=tls&encryption=none&insecure=0&host=tasiyanc.nova-5e611f.workers.dev&fp=chrome&type=ws&allowInsecure=0&sni=tasiyanc.nova-5e611f.workers.dev#%40TASIYANC%20%F0%9F%9A%80
+Location 🇺🇸
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8614
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
+</div>
 
 ## tasiyanc — post 8612
 
@@ -205,25 +221,5 @@ Fact @TASIYANC ✅
 
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8588
-
-<div align="center"><video src="files/post_8588_tasiyanc_8588.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8588_tasiyanc_8588.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☄️ مرگ دایناسورها؛ داستان یک برخورد مرگبار
-
-شهاب‌سنگی عظیم به منطقه‌ای در مکزیک امروزی برخورد کرد و انفجاری با قدرتی باورنکردنی به وجود آورد. گردوغبار ناشی از این برخورد، آتش سوزی جنگلها و... زنجیره غذایی از هم پاشید و در نهایت حدود ۷۵ درصد از گونه‌های زنده زمین، از جمله دایناسورها، منقرض شدند.
-امروز دهانه عظیم چیکشلوب زیر خاک و آب‌های مکزیک مدفون است؛ یادگاری خاموش از یکی از سرنوشت‌سازترین لحظات تاریخ زمین🌍
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8587
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 حمله به عربستان هم اکنوننننننن
 </div>
 

@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/06/04 21:37
+📅 آخرین بروزرسانی: 1405/06/04 23:09
 
 ---
+
+## tasiyanc — post 8010
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قضیه داره پیچیده میشه
+🚨حمله موشکی حوثی ها به فرودگاه بین‌المللی «ابها» در جنوب عربستان
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8007
+
+<div align="center"><video src="files/post_8007_tasiyanc_8007.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8007_tasiyanc_8007.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشماتون بریزه ، آمریکا دیشب اینجوری با قایق انتحاری عملیات انجام داده :
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8005
 
@@ -244,32 +265,5 @@ A true friend of the Iranian people, may your soul rest in peace. You will alway
 
 👉@StarTasiyan 
 ⭐️
-</div>
-
-## tasiyanc — post 7968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  📶
-
-سه سرور سرعتی‌ تست شده💥
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-آموزش اتصال ⛓
-
-مناسب دانلود ⬇️ وب‌گردی 🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7967
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 بیانیه صفحه رسمی لیندسی گراهام: او بر اثر یه بیماری ناگهانی و کوتاه مدت درگذشت! تسلیت میگیم به خونوادش. @Tasiyanproxy ✅
 </div>
 
