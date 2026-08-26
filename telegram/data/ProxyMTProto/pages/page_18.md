@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/04 13:15
+📅 آخرین بروزرسانی: 1405/06/04 13:51
 
 ---
+
+## ProxyMTProto — post 50175
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Kingdom-persia.ir.hey-gardash.info.
+Port: 1080
+Secret: 79e344818749bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50174
 
@@ -176,15 +185,6 @@ Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 Server: max.kimt.click
 Port: 443
 Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

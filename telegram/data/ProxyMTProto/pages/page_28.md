@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/06/04 13:15
+📅 آخرین بروزرسانی: 1405/06/04 13:51
 
 ---
+
+## ProxyMTProto — post 49975
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: ee16309abd572d284b309ef26bd7a3f68570726f78792e6c6f646b69726d6d2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49974
 
@@ -172,15 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: Unknown
 Port: 443
 Secret: eed9cf709eb48bb5a37471fba84864bd7e766b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49955
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: iran-download.shentaichiacademy.co.uk.
-Port: 443
-Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
 @ProxyMTProto
 </div>
 

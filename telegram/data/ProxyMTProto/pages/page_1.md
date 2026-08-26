@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/04 13:15
+📅 آخرین بروزرسانی: 1405/06/04 13:51
 
 ---
+
+## ProxyMTProto — post 50516
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50515
 
@@ -172,15 +181,6 @@ Secret: ee4b0955a40972e28dc3e76df92e9a3f1e766b2e636f6d
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50495
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: itis.startnetwork.shop
-Port: 443
-Secret: dde306a0dff7bda73245c6020644335ad1
 @ProxyMTProto
 </div>
 
