@@ -1,8 +1,34 @@
 # آرشیو کانال VahidOOnLine - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/04 10:03
+📅 آخرین بروزرسانی: 1405/06/04 11:11
 
 ---
+
+## VahidOOnLine — post 256759
+
+<div align="center"><video src="files/post_256759_VahidOOnLine_256759.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256759_VahidOOnLine_256759.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشگر: «قیمت‌ها رو شما ببینید»
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256758
+
+<div align="center"><video src="files/post_256758_VahidOOnLine_256758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256758_VahidOOnLine_256758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشگر: «دریاچه خزر در مسجد سلیمان»
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256757
 
@@ -246,38 +272,6 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 در ادامه روند نزولی ارزش پول ملی در ایران، قیمت دلار آمریکا سه‌شنبه سوم شهریور به ۲۰۵ هزار تومان رسید. همزمان پوند بریتانیا از ۲۷۹ هزار تومان عبور کرد و یورو نیز به مرز ۲۳۸ هزار تومان رسید. قیمت هر سکه طلای طرح جدید، موسوم به «امامی» نیز از ۲۲۳ میلیون تومان فراتر رفت.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256730
-
-<div align="center"><img src="files/post_256730_VahidOOnLine_256730.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کم‌تر از یک روز پس از آغاز عملیات انزوای اقتصادی ایران، قیمت دلار در بازار آزاد تهران با بیش از دو هزار تومان افزایش به ۲۰۵ هزار و ۳۰۰ تومان رسید.
-
-افزایش نرخ ارز و سقوط پول ملی ایران در حالی ادامه دارد که عبدالناصر همتی، رئیس بانک مرکزی روز گذشته و پیش از اعلام تحریم‌های جدید گفته بود  مجازات‌های جدید تاثیری نخواهند داشت و قیمت دلار در روزهای آینده کاهش خواهد یافت.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256729
-
-<div align="center"><img src="files/post_256729_VahidOOnLine_256729.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت خزانه‌داری آمریکا هشدار داد شرکت‌های کشتیرانی و دریانوردان حتی در صورت پاسخ دادن به درخواست اطلاعات از سوی برخی نهادهای جمهوری اسلامی مرتبط با تنگه هرمز، ممکن است با تحریم یا مجازات‌های آمریکا روبه‌رو شوند.
-
-دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا، اوفک، اعلام کرد این هشدار فقط به پرداخت پول به نهادهای ایرانی محدود نمی‌شود و ارائه اطلاعات به آنها، حتی بدون انجام هیچ پرداختی، نیز می‌تواند برای شرکت‌ها و دریانوردان خطر تحریم یا مجازات به همراه داشته باشد.
-
-در این هشدار از سه نهاد با نام‌های «اداره تنگه خلیج فارس»، «شرکت بیمه دریایی خلیج فارس» و «اداره خدمات دریایی هرمز سیف» نام برده شده است.
-
-اوفک پیش‌تر نیز هشدار داده بود شرکت‌های کشتیرانی که برای عبور از تنگه هرمز به ایران عوارض پرداخت کنند، ممکن است تحریم‌های آمریکا را نقض کنند.
-
-هشدار جدید هم‌زمان با تشدید کارزار فشار اقتصادی واشینگتن علیه جمهوری اسلامی صادر شده است.
 IranintlTV
 
 🤖 @VahidOOnLine
