@@ -1,8 +1,70 @@
 # آرشیو کانال VahidOOnLine - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/04 09:26
+📅 آخرین بروزرسانی: 1405/06/04 10:03
 
 ---
+
+## VahidOOnLine — post 256559
+
+<div align="center"><img src="files/post_256559_VahidOOnLine_256559.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری رویترز به نقل از چند مقام پاکستانی اعلام کرد عاصم منیر، فرمانده ارتش پاکستان، هفته گذشته و پیش از سفر به تهران، با دونالد ترامپ تلفنی گفت‌وگو کرده است.
+
+سه منبع پاکستانی در گفت‌وگو با رویترز تاکید کردند این تماس چند روز پیش از آن انجام شد که انتظار می‌رفت منیر دوشنبه برای گفت‌وگو با مقام‌های جمهوری اسلامی به تهران سفر کند.
+
+به گزارش رویترز، این تماس که پیش از این گزارش نشده بود، در شرایطی انجام شد که آمریکا اعلام کرده است تحریم‌های اقتصادی گسترده‌ای را علیه جمهوری اسلامی و شرکای تجاری آن اعمال خواهد کرد.
+
+در این گزارش همچنین آمده است انتظار می‌رود فرمانده ارتش پاکستان، دوشنبه با افرادی نزدیک به مجتبی خامنه‌ای، دیدار کند.
+
+رویترز نوشت تنش‌های میان آمریکا و جمهوری اسلامی یکی از محورهای مورد انتظار در این سفر عنوان شده است.
+
+یک منبع دیگر در دولت پاکستان نیز گفت: «منیر همچنین قرار است درباره حملات اخیر حوثی‌های وابسته به جمهوری اسلامی به عربستان سعودی، متحد پاکستان، گفت‌وگو کند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256556
+
+<div align="center"><img src="files/post_256556_VahidOOnLine_256556.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار ایران در رسانه‌های جهان: دوشنبه ۲ شهریور ۱۴۰۵
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256555
+
+<div align="center"><video src="files/post_256555_VahidOOnLine_256555.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256555_VahidOOnLine_256555.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از شهروندان با ارسال ویدیویی به ایران‌اینترنشنال از قطع مداوم برق در شهرستان الشتر استان لرستان می‌گوید.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256554
+
+<div align="center"><img src="files/post_256554_VahidOOnLine_256554.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لین جیان، سخنگوی وزارت خارجه چین، دوشنبه دوم شهریور و در آستانه رونمایی آمریکا از تحریم‌های جدید علیه جمهوری اسلامی، اعلام کرد که پکن تحولات را از نزدیک زیر نظر خواهد داشت و برای حفاظت از حقوق خود هر اقدامی را که لازم باشد انجام خواهد داد.
+
+اسکات بسنت، وزیر خزانه‌داری آمریکا، با انتشار مقاله‌ای در روزنامه فایننشال تایمز تاکید کرد دولت ترامپ قصد دارد با قطع همه شریان‌های مالی و تجاری جمهوری اسلامی، تهران و کشورها و نهادهای همکار با آن را در انزوای کامل اقتصادی قرار دهد.
+
+وزیر خزانه‌داری ایالات متحده از آغاز مرحله‌ای تازه و گسترده در فشار اقتصادی علیه جمهوری اسلامی خبر داده و آن را «روز سرنوشت‌ساز اقتصادی» و بزرگ‌ترین تهاجم مالی سازمان‌یافته علیه یک دشمن توصیف کرده است.
+
+سخنگوی وزارت خارجه چین همچنین گفت: «تحریم‌ها و تاکتیک‌های فشار به حل مسائل کمک نمی‌کنند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256553
 
@@ -246,62 +308,6 @@ Indypersian
 🔹از گوهردشت پیام می‌دم. موضوع بنزین از صف‌های طولانی گذشته. امروز برای بنزین به سه جایگاه مراجعه کردم که هر سه تعطیل بودند.
 
 🔹به‌خدا با ماهی ۲۰–۳۰ میلیون تومن دیگه نمی‌تونیم زندگی کنیم؛ دلار ۲۰۰ تومن شده، آب و برق، پوشاک و خرج زندگی هر روز گرون‌تر می‌شه.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256537
-
-<div align="center"><video src="files/post_256537_VahidOOnLine_256537.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256537_VahidOOnLine_256537.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محسن حاجی میرزایی، رئیس دفتر مسعود پزشکیان روز دوشنبه دوم شهریور به خبرنگاران گفت سهمیه بنزین قطغا کاهش خواهد یافت اما هنوز درباره قیمت جدید، تردیدهایی وجود دارد.
-
-دولت پزشکیان اعلام کرده که با توجه به جنگ و تحریم، تولید بنزین کاهش پیدا کرده و راهی جز افزایش قیمت یا کاهش سهیمه‌بندی برای کنترل مصرف وجود ندارد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256536
-
-<div align="center"><video src="files/post_256536_VahidOOnLine_256536.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256536_VahidOOnLine_256536.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، از قطع طولانی‌مدت برق و آب در طرقبه استان خراسان رضوی خبر می‌دهد و می‌گوید: «زندگی را برای مردم جهنم کرده‌اند.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256535
-
-<div align="center"><video src="files/post_256535_VahidOOnLine_256535.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256535_VahidOOnLine_256535.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال، غبار روبی مزار ستار بهشتی، معترض کشته‌شده را در سالروز تولد او نشان می‌دهد.
-﻿ستار بهشتی، وبلاگ‌نویسی بود که ۱۳ آبان ۱۳۹۱ به دلیل نوشته‌هایش به دست ماموران جمهوری اسلامی کشته شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256534
-
-<div align="center"><img src="files/post_256534_VahidOOnLine_256534.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شهروندی با ارسال تصویری به ایران‌اینترنشنال خبر داد سنگ مزار جاویدنام حمیدرضا گودرزی در جاورسیان اراک شکسته شده است. حمیدرضا جوان ۳۳ ساله، کشتی‌گیر حرفه‌ای و مهندس مکانیک بود که ۱۸ دی با شلیک گلوله به ناحیه سر، در گلشهر کرج کشته شد.
-بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، این شهروند ساکن کرج بود اما نیروهای حکومتی از دفن حمیدرضا گودرزی در بهشت سکینه جلوگیری کردند و پیکر او در زادگاهش به خاک سپرده شد.
-سنگ مزار او که رویش کلمه «قهرمانم» درج شده، به تازگی شکسته شده است.
-نیروهای وابسته به حکومت پیش‌تر نیز سنگ مزار شماری از جاویدنامان انقلاب ملی ایرانیان را در شهرهای مختلف شکسته یا مخدوش کرده بودند.
 IranintlTV
 
 🤖 @VahidOOnLine
