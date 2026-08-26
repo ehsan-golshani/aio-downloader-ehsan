@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/06/04 11:11
+📅 آخرین بروزرسانی: 1405/06/04 12:04
 
 ---
+
+## ProxyMTProto — post 49992
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49991
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dev.nowabst.net
+Port: 853
+Secret: ee54079943a5db4dc9163650c09dfc806d766b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49990
 
@@ -163,24 +181,6 @@ Secret: eecf1c1606226e0962ad67b541a145b9c6666173742e67617264656e2d74726f6c6c2e6c
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49972
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: sync.fleethop.online
-Port: 443
-Secret: ee5d12530b3304850a75f79585e946b73073796e632e666c656574686f702e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49971
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

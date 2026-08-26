@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/04 11:11
+📅 آخرین بروزرسانی: 1405/06/04 12:04
 
 ---
+
+## ProxyMTProto — post 50092
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: t.meow-network.com
+Port: 443
+Secret: ee5622e11fff3e49bcc85280197a6106b5742e6d656f772d6e6574776f726b2e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Capital-of-iranian.cat-beutifull-sirooss.co.im
+Port: 4443
+Secret: 7hBEYoISSb16xRkTAiDI3QljYXQtYmV1dGlmdWxsLXNpcm9vc3MuY28uaW0=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50090
 
@@ -163,24 +181,6 @@ Secret: ee2c46ee89b4f2c79c1d8325d13091e580647a656e2e7275
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50072
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: chai.mikham.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50071
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hub.neo-vpn.ink
-Port: 443
-Secret: eea29dda982c54198f00ea8d440fa6f8ce6875622e6e656f2d76706e2e696e6b
 @ProxyMTProto
 </div>
 

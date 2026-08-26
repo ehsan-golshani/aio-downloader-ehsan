@@ -1,8 +1,49 @@
 # آرشیو کانال VahidOOnLine - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/04 11:11
+📅 آخرین بروزرسانی: 1405/06/04 12:03
 
 ---
+
+## VahidOOnLine — post 256633
+
+<div align="center"><img src="files/post_256633_VahidOOnLine_256633.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الحدث به نقل از منابع خود گزارش داد که دولت عراق نگران فشارهای آمریکا برای اجرای تحریم‌های اعمال‌شده علیه جمهوری اسلامی از جمله اعمال محدودیت بر گذرگاه‌های مرزی زمینی با ایران و جلوگیری از فرود هواپیماهای ایرانی در فرودگاه‌های این کشور است.
+
+دولت آمریکا از آغاز عملیات بزرگ اقتصادی علیه جمهوری اسلامی از دوشنبه ۲ شهریور ۱۴۰۵ خبر داده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256632
+
+<div align="center"><img src="files/post_256632_VahidOOnLine_256632.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در پیامی در شبکه اجتماعی «تروث سوسیال»، با حمله شدید به دموکرات‌ها، آن‌ها را به انتشار «نظرسنجی‌های جعلی» متهم کرد و این اقدامات را بخشی از «عملیات تضعیف روحیه» جمهوری‌خواهان برای کاهش مشارکت آن‌ها در انتخابات دانست.
+
+ترامپ با اشاره به اینکه «نظرسنجی‌های واقعی فوق‌العاده هستند» و روحیه ملی در آمریکا به بالاترین حد خود رسیده است، پیروزی‌های کشورش در عرصه‌های مختلف را یادآور شد.
+
+او در ادامه این پیام با اشاره مستقیم به وضعیت ایران گفت: «ما در برابر همگان در حال پیروزی هستیم؛ از جمله ایران که کشورش در مارپیچ مرگ اقتصادی و نظامی قرار گرفته است.» ترامپ این اظهارات را در شرایطی مطرح کرده است که فشارها و تحریم‌های واشنگتن علیه تهران همچنان ابعاد جدیدی به خود می‌گیرد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256631
+
+<div align="center"><video src="files/post_256631_VahidOOnLine_256631.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256631_VahidOOnLine_256631.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، یخچال خالی خانه‌اش را نشان می‌دهد و می‌گوید: «درآمدی نداریم و قرار است بنزین را هم گران‌تر کنند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256630
 
@@ -233,45 +274,6 @@ IranintlTV
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 «اگر تحریم‌ها تکراریه چرا فقط گرونتر میشه؟»
 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256613
-
-<div align="center"><video src="files/post_256613_VahidOOnLine_256613.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256613_VahidOOnLine_256613.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«برای متل‌قو یک کمربندی بسازید ترافیک نشه»
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256612
-
-<div align="center"><img src="files/post_256612_VahidOOnLine_256612.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روابط عمومی سازمان غذا و دارو اعلام کرد که محصول طبیعی اسپری بینی «کلدانیز» تولید شرکت نفس زیست فارمد، به دلیل عدم انطباق کیفی و آلودگی میکروبی، غیرمجاز شناخته شده و دستور جمع‌آوری فوری سری‌های ساخت مشخص‌شده از سراسر کشور صادر شده است.
-
-این سازمان اعلام کرد که بر اساس این ابلاغیه، اسپری بینی «کلدانیز» با سری ساخت‌های ۲۵AF۰۰۷ (با تاریخ انقضای ۲۰۲۷/۰۷/۰۱) و ۲۴AF۰۰۸ (با تاریخ انقضای ۲۰۲۶/۱۲/۰۱) به دلیل آلودگی میکروبی مشمول جمع‌آوری فوری هستند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256611
-
-<div align="center"><video src="files/post_256611_VahidOOnLine_256611.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256611_VahidOOnLine_256611.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد یک شهروند در رامسر با نوشتن «۴۰ هزار، ایران» بر ساحل، یاد جاویدنامان انقلاب ملی را گرامی داشته است.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>
