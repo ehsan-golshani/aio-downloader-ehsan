@@ -1,8 +1,115 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/06/05 02:12
+📅 آخرین بروزرسانی: 1405/06/05 18:35
 
 ---
+
+## tasiyanc — post 9137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروه تاسیان فعاله جوین بشید
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 9136
+
+<div align="center"><video src="files/post_9136_tasiyanc_9136.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9136_tasiyanc_9136.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کودک خردسال جاویدنام فاطمه سلطانی بجای در آغوش گرفتن مادر قهرمانش سنگ سرد ارامگاهش را میبوسد.
+
+@TASIYANC 🏛
+</div>
+
+## tasiyanc — post 9133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕 اسم : Mountain Embrace 
+❤️ آموزش استفاده 
+👉 دریافت پرامپت 
+👉 @TASIYANC 
+⭐️
+</div>
+
+## tasiyanc — post 9132
+
+<div align="center"><img src="files/post_9132_tasiyanc_9132.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕
+
+اسم : Mountain Embrace ❤️
+
+
+آموزش استفاده 👉
+
+دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زمانی به این درجه از سود توی بت میرسی که بدونی کی و کجا وارد شی🚀
+
+https://t.me/+_btGj-rRAxs3NGVk
+https://t.me/+_btGj-rRAxs3NGVk
+</div>
+
+## tasiyanc — post 9130
+
+<div align="center"><img src="files/post_9130_tasiyanc_9130.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پول درآوردن از بت دقیقا جاییه که فرق استراتژی داشتن و ادعا داشتن رو مشخص میکنه 👌
+
+15 بازی 15 برد ✅
+
+من به پول شما نیاز ندارم و چیزیم به شما نمیخوام بفروشم
+g18
+لینک چنل
+https://t.me/+_btGj-rRAxs3NGVk
+https://t.me/+_btGj-rRAxs3NGVk
+</div>
+
+## tasiyanc — post 9129
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️دادسرای جنایی تهران :
+
+ساعاتی پیش جنازه حمیدرضا رجب‌زاده(مداح) اطراف تهران کشف شد،جنازه رجب‌‌زاده توسط قاتلین تکه تکه شده و سپس سوخته.
+
+🌎 @Tasiyanc
+</div>
+
+## tasiyanc — post 9127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همراه اول داغونه ضعیفه
+</div>
+
+## tasiyanc — post 9126
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated Multi ━━━╮
+
+vless://6f436a44-f703-93da-7e45-615824a39d3b@teain.org:1000?security=reality&encryption=none&pbk=ECxm-BdHYhxYK9MtN33NkkrFSdFZXp-OB-yhN8AleRY&headerType=none&fp=ios&type=tcp&sni=knox.cdn-apple.com&sid=a62d513cd709744a#%40TASIYANC%20%F0%9F%94%B1%2001
+
+ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.169:443#%40TASIYANC%20%F0%9F%94%B1%2002
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpiSU9vaTVUdUltRzJLY2N4VjctamNBN0Nleit2dW4tY19F@104.156.233.234:27116#%40TASIYANC%20%F0%9F%94%B1%2003
+
+vless://9f0285ee-20ca-4953-bcdb-86a920652923@204.216.216.23:10086?security=none&encryption=none&headerType=none&type=tcp#%40TASIYANC%20%F0%9F%94%B1%2004
+
+vless://b052df40-d51c-456c-9bd6-57af01a87e4e@cdn.pinecloud.net:443?security=reality&encryption=none&pbk=vWSgdMDirb9aDZLWijSXXXl-NCTrtBgEe9MQqcgV6h8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=cdn.pinecloud.net&sid=6a2e3af684799b19#GB%20LONDON%20%F0%9F%87%AC%F0%9F%87%A7%20%40Tasiyanc
+
+
+📍Multi location
+@TASIYANC 🔋
+</div>
 
 ## tasiyanc — post 9125
 
@@ -204,93 +311,5 @@ r18
 🇮🇷
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متاسفانه توسعه دهنده های NPV TUNNEL بیشتر از ۳ ماه هست که رو آپدیت جدید و رفع باگ های این برنامه محبوب کار نکردن ، جوری شده کانفیگ ها با پینگ Real 60 رو برنامه های دیگه با سرعت وصله ولی تو نپستر پینگ Out میده و علاوه بر این سرعت مورد نظر مارو نمیدن
-</div>
-
-## tasiyanc — post 9113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کارما چیزیه ک سراغ همه میاد عزیزم حتی شما دوست عزیز چه اعتقاد داشته باشی چه نه کارای خوبت و بدت پیش کسی که می‌پرستی چرتکه میندازن تعادل باید برقرار باشه😞
-</div>
-
-## tasiyanc — post 9112
-
-<div align="center"><video src="files/post_9112_tasiyanc_9112.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9112_tasiyanc_9112.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید 
-🆕
-
-prompt Cinematic Winter Fashion Portrait 
-🤖
-🤖
-cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, street, symmetrical face, look at camera, detailed face, photo studio, awesome light, muted colors :: Fashion Photographer
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9111
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرگزاری تسنیم : حمیدرضا رجب‌زاده، مداحی که چند روزی بود گم شده بود، به قتل رسیده و فیلم لحظه قتلش به خانواده‌‌اش ارسال شده، پلیس فعلا داره پیگیری می‌کنه. « مشاهده »
-</div>
-
-## tasiyanc — post 9110
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی پرسرعت نپسترنت📱
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9109
-
-<div align="center"><img src="files/post_9109_tasiyanc_9109.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9106
-
-<div align="center"><img src="files/post_9106_tasiyanc_9106.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید 🆕
-
-Prompt 🤖🤖
-
-fashion editorial photography, front shot, upper body, professional female model, shot with hasselblad x2d 100c, xcd 90mm f/2.5 lens, cinematic sepia color grading with golden hour warmth, dramatic black silhouette against burnt umber to honey amber gradient backdrop, avant-garde composition with tilted head pose, staring to camera, profound gaze, elongated body stance, flowing black turtleneck, professional main fresnel light at 60 degree angle with silk diffusion, rim light with cto gel at 75 degree angle, haze machine for ethereal atmosphere, feathered shadows, contrast curve manipulation, selective dodge and burn, grain texture overlay, color temperature adjustment at 5500k to 3200k gradient, ultra sharp details, raw format, inspired by paolo roversi lighting technique, hyper realistic, 16K, rich detail --ar 9:16 --quality 2 --style raw --personalize nq7rq2j --stylize 500 --v 6.1
-
-آموزش استفاده 👉
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9105
-
-<div align="center"><img src="files/post_9105_tasiyanc_9105.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خورخه مسی، پدر لیونل مسی درگذشت
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9104
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری سپاه پاسداران:
-بازگشایی تنگه هرمز منوط به پذیرش کامل شرایط ما از سوی ایالات متحده است.
-بازگشایی تنگه هرمز تابع سازوکارها و شرایط تعیین‌شده توسط جمهوری اسلامی ایران است و ارتباطی با مذاکرات ایران و عمان ندارد.
-@Tasiyanc ⭐️
 </div>
 

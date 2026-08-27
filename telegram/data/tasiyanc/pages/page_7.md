@@ -1,8 +1,225 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/05 02:12
+📅 آخرین بروزرسانی: 1405/06/05 18:35
 
 ---
+
+## tasiyanc — post 9493
+
+<div align="center"><img src="files/post_9493_tasiyanc_9493.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران عالیه، کتاب شیطان پرستی نوشتن، بعد صفحه اولش: بسم الله الرحمن الرحیم.
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9492
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
+
+## tasiyanc — post 9491
+
+<div align="center"><img src="files/post_9491_tasiyanc_9491.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
+
+🌍 سایت بین‌المللی و معتبر LINEBET
+
+⚽️ پیش‌بینی فوتبال
+🎰 کازینو آنلاین
+💳 واریز و برداشت ریالی
+🎁 بونوس 100٪ اولین واریز
+🎁 بونوس 100٪ هر دوشنبه
+📞پشتیبانی فارسی فعال
+
+🎁کد هدیه ثبت‌نام: L5670
+
+🔗 دانلود اپلیکیشن اندروید 👉
+
+🔗 لینک سایت 👉
+✉️ https://t.me/+dukgrB6-zGsyNGM8
+
+🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
+sr30
+📚 آموزش کامل سایت👉
+</div>
+
+## tasiyanc — post 9490
+
+<div align="center"><img src="files/post_9490_tasiyanc_9490.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📄معرفی PDF‌ساز آنلاین رایگان
+
+🌟 با این ابزار می‌تونی PDF بسازی و ویرایش کنی خروجی PDF بگیری از قالب‌های آماده استفاده کنی
+
+🔗لینک سایت: pdfmaker.ir
+
++ بدون نیاز به نصب نرم‌افزار
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9489
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9488
+
+<div align="center"><img src="files/post_9488_tasiyanc_9488.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) 
+😞
+
+مشاهده فیلم 👉
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9483
+
+<div align="center"><video src="files/post_9483_tasiyanc_9483.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9483_tasiyanc_9483.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت
+🔐
+سرور سرعتی مولتی لوکیشن⚡️
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9482
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 👾 GAME DNS VIP TASIYAN ━━━╮
+
+⚡️ DNS #1
+IPv4
+
+17.62.198.222
+77.160.218.160
+
+IPv6
+
+2a0e:1c80:11::c6db:ccca:d924:626f
+2a0e:1c80:11::cf20:5007:eac9:1b44
+➖➖➖➖➖➖➖
+
+⚡️ DNS #2
+IPv4
+
+140.112.232.208
+136.95.165.219
+
+IPv6
+
+2a0e:1c80:11::e431:449e:90af:3521
+2a0e:1c80:11::397e:8dbf:fee2:a9cb
+
+➖➖➖➖➖➖➖
+
+⚡️DNS #3
+IPv4
+
+189.92.99.165
+19.33.60.233
+
+IPv6
+
+2a0e:1c80:11::ab31:e1b9:40cd:78d3
+2a0e:1c80:11::bcd1:7936:75f:7d0c
+
+➖➖➖➖➖➖➖
+
+⚡️ DNS #4
+IPv4
+
+169.217.217.193
+103.216.123.101
+
+IPv6
+
+2a0e:1c80:11::572a:2f94:1164:a500
+2a0e:1c80:11::6a6c:9e8c:8e01:f608
+
+⚡️ Low Ping • Stable Connection
+╰━━━━━━━━━━━━━━━━━━╯
+
+💙@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9481
 
@@ -234,180 +451,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 Join As @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9469
-
-<div align="center"><video src="files/post_9469_tasiyanc_9469.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9469_tasiyanc_9469.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃😃
-😃
-😃
-         
-😃😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9468
-
-<div align="center"><video src="files/post_9468_tasiyanc_9468.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9468_tasiyanc_9468.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 
-📶
-
-
-تست شده تمام نت‌ها 
-🛜
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-
-⭕️ تمام برنامه هارو ببندید بعد وصل بشید
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9463
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اینترنت چطوره؟
-</div>
-
-## tasiyanc — post 9462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عضوی از تیم اتکر ما شوید تا باهم کسانی که به حریم خصوصی مردم تجاوز می‌کنند را محو کنیم
-
-https://t.me/+Mcyp10mcfFA2MTM0
-جوین بدید
-</div>
-
-## tasiyanc — post 9461
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-
-دانلود اندروید 🕹
-
-
-دانلود آیفون 📱
-
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو صداسیما جایزه جمع کردن برای کسی که ترامپ بکشه، ۱۸۱ میلیون جمع شده، بعد بلیط هواپیما تا امریکا ۴۰۰ میلیونه 😂
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همگی عمو خسرو رو حمایت کنید عشقا ✅
-https://t.me/+J_q7c-COftQzOGM0
-</div>
-
-## tasiyanc — post 9458
-
-<div align="center"><img src="files/post_9458_tasiyanc_9458.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥃 خسرو خان هستم و با همکاری مافیای روس، از شرط‌بندی و پیش‌بینی درآمد دارم
-
-⭕️با من همراه باش تا بتونی روزانه بالای ۵۰ دلار درآمد ثابت داشته باشی 🔥
-
-💵با عمو خسرو، آروم آروم به آرزوهات برس
-
-🔗 آدرس عضویت کانال vip:
-https://t.me/+J_q7c-COftQzOGM0
-https://t.me/+J_q7c-COftQzOGM0
 </div>
 

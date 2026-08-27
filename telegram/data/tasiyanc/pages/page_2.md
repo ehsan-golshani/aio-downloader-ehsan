@@ -1,8 +1,173 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/05 02:12
+📅 آخرین بروزرسانی: 1405/06/05 18:35
 
 ---
+
+## tasiyanc — post 9616
+
+<div align="center"><img src="files/post_9616_tasiyanc_9616.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9615
+
+<div align="center"><img src="files/post_9615_tasiyanc_9615.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ:
+
+اعتراض کردن در ایران بسیار دشوار است، به خصوص زمانی که افرادی حاضرند شما را به قتل برسانند. به همین دلیل است که مردم در ایران اعتراض نمی‌کنند.
+و این احتمال وجود دارد که [رژیم] ایران به شدت تضعیف شود... بسیاری از سربازان آنها حقوق دریافت نمی‌کنند.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9614
+
+<div align="center"><img src="files/post_9614_tasiyanc_9614.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هکر ها دوس دارن شما این 5 کار رو انجام بدید تا به راحتی به اطلاعاتتون دسترسی پیدا کنند
+
++ حتما مراقب باشید این روزا ممکنه سر همه بیاد
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9613
+
+<div align="center"><img src="files/post_9613_tasiyanc_9613.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨استوری فشاری هادی چوپون بعد خط خوردنش از مسابقات مستر المپیا به دلایل سیاسی
+
++ قهرمان ایران مسعود ذات‌پرور هست نه تو
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9612
+
+<div align="center"><video src="files/post_9612_tasiyanc_9612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9612_tasiyanc_9612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑 امروز ۴ شهریور زادروز کوروش بزرگ هست 🤴
+
++ وطن پرستی شفا نمی‌دهد ، شرافت میدهد !
+
+🩸 @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9611
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9610
+
+<div align="center"><img src="files/post_9610_tasiyanc_9610.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9607
+
+<div align="center"><img src="files/post_9607_tasiyanc_9607.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ممکنه در آینده تولد پسرها متوقف بشه ؟
+یک مطالعه علمی هشدار داده که کروموزوم Y، عامل اصلی تعیین جنسیت مردانه، در طول میلیون‌ها سال به‌شدت کوچک شده و بخش بزرگی از ژن‌های خود را از دست داده است؛ روندی که این سؤال نگران‌کننده را مطرح کرده: اگر این روند در آینده ادامه پیدا کند، آیا ممکن است روزی تولد پسرها متوقف شود؟!
++منبع داخل بنر
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9606
 
@@ -172,148 +337,5 @@ vmess://eyJhZGQiOiI4Mi4xOTguMjQ2LjM3IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 دانلود برنامه برای ویندوز 💻
 
 @TASIYANC ☑️
-</div>
-
-## tasiyanc — post 9586
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9585
-
-<div align="center"><img src="files/post_9585_tasiyanc_9585.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شرمنده بچه ها واقن نایی واسه پست گذاشتن ندارم با این وضعیت
-وقتی حال همه بده مطالب طنز نمیشه گذاشت
-وقتی حال همه بده نایی نمی‌مونه برا فعالیت ، جوانی ما در این مملکت الکی بگا رفت ، طفلی دهه نودی ها ، هشتادی ها و این نوجوان‌های تازه بدوران رسیده ، باز ما به یه چیزایی رسیدیم .. ولی اینا حقشون این نبود چیز های عادی براشون بشه آرزو « دوستون دارم امیدوارم حالتون خوب باشه»
-
-+کانفیگا ضعیف بشه میزارم .
-</div>
-
-## tasiyanc — post 9583
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥⚡ Number One Pre.npvt
-</div>
-
-## tasiyanc — post 9582
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-سرور سرعتی مولتی لوکیشن⚡️
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9581
-
-<div align="center"><img src="files/post_9581_tasiyanc_9581.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تغییر دامنه بانک‌ها؛ دردسر تازه برای مشتریانشون
-
-بعد از بانک ملی، حالا نام بانک ملت و چند بانک دیگر هم در ارتباط با محدودیت‌های گواهی‌های Let’s Encrypt مطرح شده است.
-
-در مورد بانک ملت، آدرس قدیمی ebanking.bankmellat.ir در حال هدایت کاربران به ebanking.mellat.ir است.
-
-
-تغییر دامنه شاید در کوتاه‌مدت راه‌حل به نظر برسد، اما تبعات خودش را دارد؛ از لینک‌های قدیمی و اپلیکیشن‌ها گرفته تا نتایج جست‌وجو و سردرگمی کاربران درباره اینکه آدرس رسمی بانک دقیقاً کدام است.
-
-این موضوع از نظر امنیتی هم حساس است؛ چون وقتی کاربران به تغییر مداوم آدرس‌های بانکی عادت کنند، تشخیص دامنه‌های جعلی و صفحات فیشینگ سخت‌تر می‌شود.
-در چنین شرایطی، اطلاع‌رسانی شفاف بانک‌ها و معرفی دقیق دامنه‌های رسمی اهمیت بسیار بیشتری پیدا می‌کند.
-چون کوچک‌ترین سردرگمی در آدرس یک سامانه بانکی می‌تواند فرصت مناسبی برای کلاهبرداری ایجاد کند.
-
-
-﻿
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9580
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نرخ هر دلار کف طهران 205000
-</div>
-
-## tasiyanc — post 9579
-
-<div align="center"><video src="files/post_9579_tasiyanc_9579.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9579_tasiyanc_9579.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی برنامه زیگیل ابدی آمریکا یک شرکت کننده ایرانی به نام پارمیدا حضور داشت یه دور بغل همه مردا رفت بقیشو خودتون ببینید .
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9578
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گزارش اکسیوس از ۵ نشانه فروپاشی اقتصاد ایران زیر فشارهای ترامپ:
-
-سقوط ریال؛ دلار به حدود ۲.۰۲ میلیون ریال رسیده.
-تورم شدید؛ پیش‌بینی تورم ۲۰۲۶ به حدود ۶۹٪ رسیده.
-فشار معیشتی؛ گرونی و افت ارزش پول، خرید مایحتاج روزمره رو برای مردم سخت‌تر کرده.
-سقوط صادرات نفت؛ محاصره و فشار آمریکا درآمد نفتی ایران رو به‌شدت کاهش داده.
-رکود و بیکاری؛ فعالیت اقتصادی و اشتغال افت کرده و پیش‌بینی میشه اقتصاد ایران امسال حدود ۵.۴٪ کوچک‌تر بشه.
-
-
-
-🟠با این حال، هنوز خبری از تسلیم تهران نیست و برخی کارشناسان معتقدن جمهوری اسلامی ممکنه قبل از پذیرفتن خواسته‌های آمریکا، دوباره دست به اقدام نظامی بزند
-
-💋 @Tasiyanc
 </div>
 
