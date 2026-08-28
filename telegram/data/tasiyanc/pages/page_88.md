@@ -1,8 +1,97 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/06/05 18:35
+📅 آخرین بروزرسانی: 1405/06/06 04:07
 
 ---
+
+## tasiyanc — post 6937
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آخرش یکی به این ترامپ کسخل نگفت قبل اینکه حمله کنی تنگه باز بود عوارضم نداشت ، الان باز شدن تنگه رو دست آورد بزرگ می‌دونه برا خودش کسخل کله زرد املاکی
+</div>
+
+## tasiyanc — post 6936
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6935
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حالتون خوبه قربونتون برم من 🥹؟
+</div>
+
+## tasiyanc — post 6934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی تست شده  🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسنیم
+لحظاتی دیگر مقامات راجب توافق با مردم صحبت خواهند کرد
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6932
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت هر تتر 💎 164000
+</div>
+
+## tasiyanc — post 6931
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️ ترامپ: توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم! من بدینوسیله اجازه کامل بازگشایی تنگه هرمز را می‌دهم و همزمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دارم. کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید…
+</div>
+
+## tasiyanc — post 6930
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️ ترامپ:
+
+توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم!
+
+من بدینوسیله اجازه کامل بازگشایی تنگه هرمز را می‌دهم و همزمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دارم.
+
+کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد!
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6929
+
+<div align="center"><img src="files/post_6929_tasiyanc_6929.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زیرنویس شبکه خبر :
+توافق با امریکا را انجام شد
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6927
 
@@ -136,96 +225,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بخاطر شرایط احتمالا جنگی‌امشب یه چنتا سرور اختصاصی بریم؟
-</div>
-
-## tasiyanc — post 6910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این endpoit هارو جایگزین قبلی کنین (وایرگارد)
-8.6.112.235:1070
-8.6.112.228:1843
-8.6.112.19:908
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6908
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟢 ساب لینک اختصاصی تاسیان 🔹پر سرعت و نامحدود 🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt 🔐 🔐 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟢 ساب لینک اختصاصی تاسیان
-
-🔹پر سرعت و نامحدود
-
-🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید
-
-https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
-
-🔐 🔐
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6904
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب براتون آماده کردم
-</div>
-
-## tasiyanc — post 6903
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوری ترامپ
-از ایران می‌خواهم که به اسرائیل موشک شلیک نکند. توافق در ساعات آینده امضا خواهد شد
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6902
-
-<div align="center"><img src="files/post_6902_tasiyanc_6902.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خود اپارات تو یوتوب اکانت زده🤣🔥
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6901
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی تست شده  🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6900
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[51] @Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6898
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
 </div>
 

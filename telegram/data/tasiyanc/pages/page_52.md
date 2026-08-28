@@ -1,8 +1,86 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/06/05 18:35
+📅 آخرین بروزرسانی: 1405/06/06 04:07
 
 ---
+
+## tasiyanc — post 8277
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺فاکس نیوز: یک گزارش محرمانه که برای ریاست‌ جمهوری اسلامی تهیه شده، نشان می‌دهد تنها ۹ درصد ایرانیان از حفظ وضع موجود حمایت می‌کنند.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8276
+
+<div align="center"><img src="files/post_8276_tasiyanc_8276.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بریم به کی بگیم این ایرانِ ۵۰ سال پیش ما بود !
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8275
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ انفجار در یگان امداد سنندج ، تایید / تکذیب نمیشه
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8274
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ انفجار شدید در بوشهر
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8273
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 حملات بی سابقه سپاه به مواضع کرد ها در سلیمانیه ، دلیلش چی می‌تونه باشه 🤔
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8272
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش از چهار انفجار وحشتناک در بندرعباس
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8271
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 حملات سپاه به اقلیم کردستان عراق
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8270
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 انفجار مهیب در قشم
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8268
+
+<div align="center"><img src="files/post_8268_tasiyanc_8268.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 وضعیت راه آهن بندرعباس پس از حمله ارتش آمریکا
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8267
 
@@ -109,103 +187,5 @@
 کامنت آزاد ☺️
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8246
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-3سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید ⛓
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8245
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلاااااااااار 195 😐
-</div>
-
-## tasiyanc — post 8244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلاااااااااار 195 😐
-</div>
-
-## tasiyanc — post 8243
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش اعضا : اصفهان و استان های جنوبی اینترنت بشدت ضعیفه ،
-
-کامنت بزارید وضعیت نتتون چطوره
-</div>
-
-## tasiyanc — post 8242
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨اخبار منتشر شده راجب قطعی اینترنت و دیتا سنترا فعلا کذبه نگران نباشید
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8241
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک نفت کش سپاهی توسط کماندو های امریکا به اسارت گرفته شد.
-
-با اعلام سنت‌کام تمام خدمه نفتکش سپاهی توسط تفنگداران آمریکایی بازداشت شدند
-
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 8240
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رئیس مرکز روابط عمومی وزارت بهداشت: تا ساعت ۶:۳۰صبح ۲۶ تیر، شمار مصدومین حملات آمریکا از ۴۰۰ نفر عبور و ۳۸ نفر هموطن جانشان را از دست دادند
-
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 8239
-
-<div align="center"><video src="files/post_8239_tasiyanc_8239.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8239_tasiyanc_8239.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که از یکی از سرباز های تیپ 388 بمپور ایرانشهر به شدت وایرال شده که داره آهنگ میخونه 💔
-
-@Tasiyanc ✅| بانك کانفیگ رایگان
-</div>
-
-## tasiyanc — post 8236
-
-<div align="center"><video src="files/post_8236_tasiyanc_8236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8236_tasiyanc_8236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 در حملات صبح امروز آمریکا به چابهار، برج ۸۰ متری کنترل دریایی این شهر بطور کامل فرو ریخت
-
-
-
-@Tasiyanc ✅| بانك کانفیگ رایگان
 </div>
 

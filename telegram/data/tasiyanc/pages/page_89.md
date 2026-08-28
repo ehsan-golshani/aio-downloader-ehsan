@@ -1,8 +1,99 @@
 # آرشیو کانال tasiyanc - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/06/05 18:35
+📅 آخرین بروزرسانی: 1405/06/06 04:07
 
 ---
+
+## tasiyanc — post 6910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این endpoit هارو جایگزین قبلی کنین (وایرگارد)
+8.6.112.235:1070
+8.6.112.228:1843
+8.6.112.19:908
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢 ساب لینک اختصاصی تاسیان 🔹پر سرعت و نامحدود 🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt 🔐 🔐 ✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6905
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢 ساب لینک اختصاصی تاسیان
+
+🔹پر سرعت و نامحدود
+
+🔹لینک را کپی کنین بزنید v2RayNG یا V2box تست بگیرید وصل شید
+
+https://cdn.jsdelivr.net/gh/navidtasiyan-debug/Tasiyanc@main/@Tasiyanc.txt
+
+🔐 🔐
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6904
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب براتون آماده کردم
+</div>
+
+## tasiyanc — post 6903
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوری ترامپ
+از ایران می‌خواهم که به اسرائیل موشک شلیک نکند. توافق در ساعات آینده امضا خواهد شد
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6902
+
+<div align="center"><img src="files/post_6902_tasiyanc_6902.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خود اپارات تو یوتوب اکانت زده🤣🔥
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6901
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+4سرور سرعتی تست شده  🔥
+
+دانلود  وب‌گردی ، اینستاگرام🚀
+
+دانلود برنامه 🕹 IOS 📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6900
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[51] @Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6898
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6897
 
@@ -108,101 +199,5 @@ T.me/Tasiyanc ✅
 کانال ۱۲ اسرائیل ⭕️⭕️ ❌
 نعیم قاسم فرمانده حزب الله ترور شد
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[46] 🪐@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6870
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.0.1:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%40Tasiyanc%20DE%20%E2%9A%A1%F0%9F%9A%80 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path…
-</div>
-
-## tasiyanc — post 6868
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 
-🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6866
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.0.1:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%40Tasiyanc%20DE%20%E2%9A%A1%F0%9F%9A%80
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc%20%E2%9A%A1
-vless://0058c215-ab1e-400c-a403-b5b2fda7e846@pishdad.org:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA02%20%40Tasiyanc%20%E2%9A%A1
-100 GB fast servers 🚀 🇩🇪
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6865
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-trojan://humanity@104.16.174.121:443?path=%2Fassignment&security=tls&insecure=0&host=www.ignitelimit.com&type=ws&allowInsecure=0&sni=www.ignitelimit.com#%40Tasiyanc%20%F0%9F%8C%8E%E2%9A%A1
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6862
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ربات دانلودر اختصاصی کانال تاسیان بدون جوین اجباری 💬📹💬
-
-دانلود با سرعت بالا , همراه با ارسال جدای فایل موزیک ریلز ها
-
-🟢 @TasiyanAploadBot
-</div>
-
-## tasiyanc — post 6860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.218:8080#%40Tasiyanc%20%F0%9F%94%B0%F0%9F%87%B3%F0%9F%87%B1
-Loc 🇳🇱
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6858
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 
-🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.214:8080#%E2%9A%A1%40Tasiyanc%2001%E2%9A%A1
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.189:8080#%E2%9A%A1%40Tasiyanc%2002%E2%9A%A1
-
-
-✔️ T.me/Tasiyanc 
-✅
 </div>
 
