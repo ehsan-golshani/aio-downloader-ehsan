@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/06/06 04:07
+📅 آخرین بروزرسانی: 1405/06/06 15:50
 
 ---
+
+## tasiyanc — post 6302
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به هرحال فشار میاد و تردید میکنم برای ادامه فعالیت
+</div>
+
+## tasiyanc — post 6301
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما ک از اولش گفتم Ovpn تو حیطه من نی و نمیزارم ،چیزای ام ک میزاریم از Ovpn بیشتر از vpnbook یا vpnjantit که اشتراکشو دارم
+</div>
+
+## tasiyanc — post 6300
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
+</div>
+
+## tasiyanc — post 6298
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+2سرور   سرعتی 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام
+
+دانلود  NPV tunnel  🌐
+
+اتصال به سرورها 
+⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6297
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•𝐅_𝟐𝟐_⚡💣_ᴾʳᵉᵐᶤᵘᵐ_ᶳᵉʳᵛᵉʳᶳ.npvt
+</div>
 
 ## tasiyanc — post 6295
 
@@ -167,52 +208,5 @@ MCI - SamanTel - wifi تست شده
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6277
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده با سامانتل و ایرانسل🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6276
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم ⏩ @TasiyanProxy ⏩ @TasiyanProxy
-</div>
-
-## tasiyanc — post 6275
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم
-⏩ @TasiyanProxy
-⏩ @TasiyanProxy
-</div>
-
-## tasiyanc — post 6273
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ON TARGET ⚡✅.npvt
-</div>
-
-## tasiyanc — post 6272
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3سرور پرمیوم  آلمان 🇩🇪
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 🚀
-
-✔️ @Tasiyanc ✅
 </div>
 

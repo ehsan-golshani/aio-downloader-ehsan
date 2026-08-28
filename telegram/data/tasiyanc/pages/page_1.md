@@ -1,16 +1,128 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/06 04:07
+📅 آخرین بروزرسانی: 1405/06/06 15:50
 
 ---
+
+## tasiyanc — post 9661
+
+<div align="center"><video src="files/post_9661_tasiyanc_9661.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9661_tasiyanc_9661.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_9661_@Tasiyanc Fast 🔥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc Fast 🔥.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید نسخه جدید
+
+دانلود آیفون نسخه جدید
+
+دانلود نسخه 123.1 اندروید
+
+
+مناسب دانلود 
+⬇️ ترید 
+🤑 اینستاگرام 
+📸 جمنای 
+🤖
+
+
+
+
+🩸 @TASIYANC
+</div>
+
+## tasiyanc — post 9659
+
+## tasiyanc — post 9658
+
+<div align="center"><a href="files/post_9658_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9657
+
+<div align="center"><video src="files/post_9657_tasiyanc_9657.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9657_tasiyanc_9657.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9656
+
+<div align="center"><img src="files/post_9656_tasiyanc_9656.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📡 سوغاتی شهرهای ایران در قدیم
+
++شما کدوم شهری سوغاتتون چیه؟
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9653
 
 <div align="center"><video src="files/post_9653_tasiyanc_9653.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_9653_tasiyanc_9653.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_9653_@Tasiyanc 🇮🇷 01.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🇮🇷 01.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  اختلال شکن OpenVpn 
@@ -113,8 +225,6 @@ https://t.me/+J_q7c-COftQzOGM0
 
 ## tasiyanc — post 9646
 
-<div align="center"><a href="files/post_9646_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
 
@@ -182,8 +292,6 @@ til.ac/0L4vyJf
 <div align="center"><video src="files/post_9643_tasiyanc_9643.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_9643_tasiyanc_9643.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_9643_Fast 🇮🇷 ⁰¹.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Fast 🇮🇷 ⁰¹.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  اختلال شکن OpenVpn 
@@ -297,121 +405,5 @@ til.ac/0L4vyJf
 💳 آموزش شارژ با کارت بانکی
 💸آموزش شارژ با یو ووچر
 💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9632
-
-<div align="center"><img src="files/post_9632_tasiyanc_9632.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         
-😃
-😃😃
-😃
-         
-😃
-😃😃
-😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9631
-
-<div align="center"><video src="files/post_9631_tasiyanc_9631.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9631_tasiyanc_9631.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آپدیت جدید برنامه نپستر را دانلود کنید
-
-کانفیگ حجم نامحدود نپسترنت
-سرور سرعتی مولتی لوکیشن
-
-تست شده روی همه نت ها ⚡️
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9630
-
-<div align="center"><img src="files/post_9630_tasiyanc_9630.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 امروز 5 شهریور ماه، زادروز اسطوره بزرگ و منجی یگانه مستی حضرت زکریا رازی هست
-
-این اتفاق مبارك همزمان با شب جمعه‌س ، بفرست واسه رفیقت از الان برنامه رو بچین
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9628
-
-<div align="center"><img src="files/post_9628_tasiyanc_9628.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📹20 تا فیلم برتر سینمایی پیشنهادی که میتونید ببینید !
-در دو ژانر متفاوت « عاشقانه و اکشن »
-
-سایت پیشنهادی دانلود و پخش بدون سانسور
-https://www.novigrad.top
-
-
-🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه اهل پیش بینی فوتبال و بت زدن هستی کانال بالارو یه نگاه بنداز
-😉
-
-با ربات هوش مصنوعی فوتبال ماهانه حداقل 50 میلیون درآمد ثابت داری
-🔥
-
-بازی های تبانی فوتبال رو این ربات پیدا می‌کنه و با خیال راحت شرط میبندین😳
-JOIN JOIN JOIN
-JOIN JOIN JOIN
 </div>
 
