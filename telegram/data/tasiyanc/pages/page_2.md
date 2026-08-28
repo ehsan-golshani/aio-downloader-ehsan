@@ -1,8 +1,239 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/06 15:50
+📅 آخرین بروزرسانی: 1405/06/07 02:10
 
 ---
+
+## tasiyanc — post 9649
+
+<div align="center"><video src="files/post_9649_tasiyanc_9649.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9649_tasiyanc_9649.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق گفته کارشناسان اقتصادی؛
+
+مدارس کشور ممکنه حضوری آغاز بشه ولی این حضوری بودن احتمالا فقط تا آبان ماه باشه و از آذرماه با سرد شدن هوا و وجود ناترازی گاز مجددا آموزش غیرحضوری میشه.
+
++ برای دانشگاه ها هم همین ماجرا محتمله.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9648
+
+<div align="center"><video src="files/post_9648_tasiyanc_9648.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9648_tasiyanc_9648.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری: اولین تریلر GTA 6 منتشر شد.
+
+مشاهده 27 دقیقه تریلر کامل GTA 6
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9647
+
+<div align="center"><video src="files/post_9647_tasiyanc_9647.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9647_tasiyanc_9647.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨این بادکنک ماهی کوچولو برای خواستگاری از عشقش ، آثار هنری خلق می‌کنه :)
+
+
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9646
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9645
+
+<div align="center"><video src="files/post_9645_tasiyanc_9645.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9645_tasiyanc_9645.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9643
+
+<div align="center"><video src="files/post_9643_tasiyanc_9643.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9643_tasiyanc_9643.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 
+📶
+
+•سرور ایران مخصوص گیم( پایداری پینگ )
+
+•مناسب دانلود - وبگردی - اینستاگرام 
+📸
+
+آموزش اتصال 
+
+در صورت ارور چند بار بزنید
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9639
+
+<div align="center"><video src="files/post_9639_tasiyanc_9639.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9639_tasiyanc_9639.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 
+📶
+
+مناسب برای دانلود ، اینستاگرام 📸 یوتوب 
+🎥
+
+تست شده تمام نت‌ها
+
+آموزش اتصال 
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+در صورت ارور چند بار بزنید
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9637
+
+<div align="center"><video src="files/post_9637_tasiyanc_9637.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9637_tasiyanc_9637.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تصاویر آخرالزمانی از سیل امروز در نپال ، خانه ها ، پل‌ها ، ۴۰ کیلومتر جاده ، ۱۹ سد نابود شدند و ۳۰۰ نفر مفقود هستند
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9636
+
+<div align="center"><video src="files/post_9636_tasiyanc_9636.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9636_tasiyanc_9636.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 
+📶
+
+مناسب برای گیم - دانلود - وبگردی
+
+تست شده تمام نت‌ها
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+⭕️ در صورت ارور چند بار بزنید
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9635
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توییت عجیب علی کریمی - از هیچ شخص یا حزب سیاسی حمایت نمیکنم 💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9634
+
+<div align="center"><img src="files/post_9634_tasiyanc_9634.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توییت عجیب علی کریمی
+- از هیچ شخص یا حزب سیاسی حمایت نمیکنم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9633
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9632
 
@@ -169,178 +400,5 @@ https://t.me/+86B34ioXJtUwODg6
 
 
 🩸 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9623
-
-## tasiyanc — post 9621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کامنت یه پسر ایرانی زیر پست یه بلاگر ، دوس دخترشو تگ کرده نوشته : دلیل کنسل کردن خواستگاری اینه که از این بدن‌ها می‌خوام یا رابطه رو تموم کن یا به این کیفیت برس.
-
-+ آیدی اینستاگرامشون نزدم ک مردم احساسی باز یه بلاگر جدید تحویل ما ندن
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9620
-
-<div align="center"><img src="files/post_9620_tasiyanc_9620.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ: ماموریت به پایان رسید / ماموریت با موفقیت انجام شد .
-
-+ دو معنی میده
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9619
-
-<div align="center"><video src="files/post_9619_tasiyanc_9619.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9619_tasiyanc_9619.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی اختلال شکن OpenVpn 
-📶
-
-
-تست شده تمام نت‌ها 
-🛜
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-⭕️ در صورت ارور چند بار بزنید
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سخنگوی نیروهای مسلح:
-
-ایران اینترنشنال و کارمندانش رو باید در بانک اهداف نظامی قرار بدیم.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9617
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9616
-
-<div align="center"><img src="files/post_9616_tasiyanc_9616.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9615
-
-<div align="center"><img src="files/post_9615_tasiyanc_9615.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ:
-
-اعتراض کردن در ایران بسیار دشوار است، به خصوص زمانی که افرادی حاضرند شما را به قتل برسانند. به همین دلیل است که مردم در ایران اعتراض نمی‌کنند.
-و این احتمال وجود دارد که [رژیم] ایران به شدت تضعیف شود... بسیاری از سربازان آنها حقوق دریافت نمی‌کنند.
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9614
-
-<div align="center"><img src="files/post_9614_tasiyanc_9614.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هکر ها دوس دارن شما این 5 کار رو انجام بدید تا به راحتی به اطلاعاتتون دسترسی پیدا کنند
-
-+ حتما مراقب باشید این روزا ممکنه سر همه بیاد
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9613
-
-<div align="center"><img src="files/post_9613_tasiyanc_9613.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨استوری فشاری هادی چوپون بعد خط خوردنش از مسابقات مستر المپیا به دلایل سیاسی
-
-+ قهرمان ایران مسعود ذات‌پرور هست نه تو
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9612
-
-<div align="center"><video src="files/post_9612_tasiyanc_9612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9612_tasiyanc_9612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑 امروز ۴ شهریور زادروز کوروش بزرگ هست 🤴
-
-+ وطن پرستی شفا نمی‌دهد ، شرافت میدهد !
-
-🩸 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9611
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

@@ -1,8 +1,124 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/06/06 15:50
+📅 آخرین بروزرسانی: 1405/06/07 02:10
 
 ---
+
+## tasiyanc — post 6196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  
+👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SuperFast @Tasiyanc 🪐⚡.npvt
+</div>
+
+## tasiyanc — post 6194
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+4سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+2سرور  سرعتی تست شده 🚀
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چنل پروکسی های وصل تاسیان
+https://t.me/TasiyanProxy
+
+از امروز شروع بکار کرد
+</div>
+
+## tasiyanc — post 6190
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Proxy 1 ✅ proxy 2
+Proxy 3 ✅ proxy 3
+@TasiyanProxy ✅
+</div>
+
+## tasiyanc — post 6185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+
+دانلود اندروید  Wg tunnel 🕹
+
+دانلود iOS 📱
+آموزش⏩
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GANG 🇳🇱🇬🇧🚀 (1).npvt
+</div>
+
+## tasiyanc — post 6183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال رو خطوط همراه ادامه داره
+ولی سرورهای ما وصله 💋
+</div>
+
+## tasiyanc — post 6182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+3سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6180
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریکشن چنگی به دل نمیزنه نپستر بزاریم
+</div>
+
+## tasiyanc — post 6178
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 📱
+آموزش⏩
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6176
 
@@ -74,133 +190,5 @@ trojan://VPTFm%3DoZ%2B%2BSuNT%2BjMRqGZqrAnWq-r8KJyY@172.104.237.100:443?security
 trojan://r-_YbwF.j0TtHVewoFIppramjAnmSfqYzJ@172.238.120.124:443?security=tls&insecure=0&headerType=none&fp=chrome&type=tcp&allowInsecure=0#Wifi%20%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc%20%F0%9F%9A%803
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ برای نت خانگی (وای‌فای)
-چندتا سرور پرمیوم تو گپ خودمون می‌زارم بیاید بزنید عشق کنین
-https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6167
-
-<div align="center"><img src="files/post_6167_tasiyanc_6167.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium GOD SV 🚀🔥.npvt
-</div>
-
-## tasiyanc — post 6166
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-
-4سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6165
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رو دوتا کانفیگ آخری( وایرگارد - نپستر)
-ریکشن رو هر کدوم بیشتر باشه پست بعدی از اون کانفیگ میزارم
-</div>
-
-## tasiyanc — post 6163
-
-<div align="center"><video src="files/post_6163_tasiyanc_6163.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6163_tasiyanc_6163.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  
-👑
-
-تست شده 
-🎚
-
-دانلود Wg tunnel 
-🕹
-
-آموزش ویدیویی 
-⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6161
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-
-2سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنا اگه زیاد باشه یه وایرم میزارم
-</div>
-
-## tasiyanc — post 6159
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP تاسیان 🪙 GOLD.npvt
-</div>
-
-## tasiyanc — post 6158
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-
-3سرور  سرعتی تست شده 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-3 تا سرور فول سرعتی تو راهه
-</div>
-
-## tasiyanc — post 6156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید 📱
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium 💙BLUE.npvt
 </div>
 

@@ -1,8 +1,149 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/06/06 15:50
+📅 آخرین بروزرسانی: 1405/06/07 02:10
 
 ---
+
+## tasiyanc — post 7368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل عوض شد
+مرسی از آرمان موسس بانک خاورمیانه
+</div>
+
+## tasiyanc — post 7357
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ نپسترنت 
+🔐
+
+۴ سرور نامحدود سرعتی ⚡️
+
+آموزش اتصال 💘
+</div>
+
+## tasiyanc — post 7356
+
+<div align="center"><img src="files/post_7356_tasiyanc_7356.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ Summer Vip.npvt
+</div>
+
+## tasiyanc — post 7355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆پخش زنده مسابقات جام جهانی 2026
+
+https://roxiestreams.su/soccer
+
+https://streamcorner.fyi/fifa-world-cup
+
+https://totalsportek.tips/football
+
+https://www.bintv.net
+
+https://soccerstreams.sbs
+
+https://strumyk.net
+سایت هایی که باز نمیشه رو باید با وی پی ان باز کنید
+💘@Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 7352
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Melody 🚀.npvt
+</div>
+
+## tasiyanc — post 7351
+
+<div align="center"><video src="files/post_7351_tasiyanc_7351.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7351_tasiyanc_7351.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود مولتی لوکیشن
+
+3سرور سرعتی ⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 💘
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 7350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ دارک تانل رو از این به بعد تو گروه تاسیان میزارم پین میکنم یکم دیگه ۲.۳ تا می‌زارم ، هرکی خواست جوین بشه لینک عوض میشه https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ دارک تانل رو از این به بعد تو گروه تاسیان میزارم پین میکنم
+یکم دیگه ۲.۳ تا می‌زارم ، هرکی خواست جوین بشه لینک عوض میشه
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7348
+
+<div align="center"><video src="files/post_7348_tasiyanc_7348.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7348_tasiyanc_7348.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود مولتی لوکیشن
+
+۴سرور سرعتی 
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+💘
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+ 💘@Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 7347
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned a photo
+</div>
+
+## tasiyanc — post 7345
+
+<div align="center"><img src="files/post_7345_tasiyanc_7345.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت تست (اسکن) سرورها از آدرس Gstatic استفاده کنید ، برید تنظیمات ( تو شات نشون دادم) نپستر و ویتوری لینک زیر رو پست کنید بعدش اسکن و تست بگیرید
+https://www.gstatic.com/generate_204
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 7344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 18.30 والیبال 😐
+ایران Vs آمریکا 🦦
+</div>
 
 ## tasiyanc — post 7341
 
@@ -105,117 +246,5 @@ trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&ins
 💘.ایران در سال 1352 تنها کشور اسیا بود که در تمام دنیا پاسپورتش نیاز به ویزا نداشت
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7330
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو تا کانفیگ نپستر بالا وصلن بدون اینکه پینگ بگیرید وصل شید
-</div>
-
-## tasiyanc — post 7325
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ دارک تانل 🇮🇹 Milan📍
-
-
-برای گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای 🤖 
-
-
-دانلود Dark Tunnel  🕹
-
-
-آموزش اتصال به سرور دارک ⏩
-
-
-✅@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود NPV لوکیشن Nuremberg 🇩🇪
-
-4سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- ✅@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7322
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود NPV لوکیشن 🇩🇪
-
-3سرور سرعتی متد جدید⚡️
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- ✅@Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 7321
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دبل کرد حضرت عشق
-</div>
-
-## tasiyanc — post 7319
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللللللللللللل
-</div>
-
-## tasiyanc — post 7318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روناااااااااالدوووووووووووو زد
-</div>
-
-## tasiyanc — post 7317
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡@Tasiyanc⚡️.ovpn
-</div>
-
-## tasiyanc — post 7316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی پرتغال شروع شروع شد
-به امید گلزنی و درخشش ستاره بی بدیل جهان حضرت رونالدو کبیر🤩❤️‍🔥
-</div>
-
-## tasiyanc — post 7309
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال 
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7308
-
-## tasiyanc — post 7307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مردم خوبی داریم ، از چنلای حمایت میکنن ک تو ۳ ماه قطعی یه کانفیگم نزاشتن 😂😂
 </div>
 

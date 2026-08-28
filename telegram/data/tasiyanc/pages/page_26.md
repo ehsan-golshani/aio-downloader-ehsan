@@ -1,8 +1,144 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/06 15:50
+📅 آخرین بروزرسانی: 1405/06/07 02:10
 
 ---
+
+## tasiyanc — post 9044
+
+<div align="center"><video src="files/post_9044_tasiyanc_9044.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9044_tasiyanc_9044.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سوتی جدید. پزشکیان:
+
+پزشکیان: ما بچه که بودیم پنکه نداشتیم
+مجری: آخه آذربایجان خنکه
+پزشکیان: من تو زابل خدمت میکردم
+مجری: آخه شما میگی وقتی بچه بودم
+پزشکیان: من تو زابل خدمت میکردم و پنکه‌ام نداشتم، حالا چی میگی؟
+@Tasiyanc
+</div>
+
+## tasiyanc — post 9043
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ایران عوارض ۷٪ را بر تمام کشتی‌های تجاری عبوری از تنگه هرمز اعلام کرده است , این امر برای ایران ۳۸۵ میلیون دلار خالص روزانه یا بیش از ۱۰۰ میلیارد دلار خالص سالانه با حجم ترافیک پیش از جنگ ایجاد می‌کند
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9041
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووری 🔴 در پی حمله موشکی حوثی های یمن
+
+تعدادی از نیروهای عربستان سعودی کشته و زخمی شدند، پس از آنکه یک موشک شلیک شده از یمن مستقیماً به پایگاه‌های نیروهای تیپ واکنش سریع اصابت کرد.
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ویس های پخش شده منتسب به سالومه مجری منوتو ، با هوش مصنوعی ساخته شده دیدم وایرال داره میشه گفتم بگم
+
+پ‌ن : انقد سطحی و مبتدیانه ساخته شده بچه ۴ ساله هم میفهمه
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9039
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سازمان وظیفه عمومی فراجا شایعه معافیت سربازان فراری را تکذیب کرد
+
+اطلاعیه سازمان وظیفه عمومی:
+▫️آن دسته از کارکنان وظیفه که به هر دلیل خدمت سربازی خود را به اتمام نرسانده‌اند، می‌بایست وضعیت سربازی خود را از طریق یگان خدمتی تعیین تکلیف کنند و هیچ نوع معافیت جدیدی برای آنان در نظر گرفته نشده است.
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9038
+
+<div align="center"><img src="files/post_9038_tasiyanc_9038.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کوثری ؛ از فرماندهان سپاه:
+پسر لاریجانی یه لحظه گوشیش رو روشن میکنه و یه تماسی با یه نفر میگیره که همون موقع جاشون لو میره و میزننشون.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9036
+
+<div align="center"><video src="files/post_9036_tasiyanc_9036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9036_tasiyanc_9036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشماتون بریزه جدیدا تو تهران مهدکودک زدن واسه افراد بالای ۳۰ سال 😂
+
+شما ممکنه وقتی صبح تو خیابون راه میری یه سری مرد سیبیلو و زن ببینید که با کیف باب اسفنجی و عروسکی دارن میرن مهد کودک
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 6 آگوست روز جهانی فوت فتیش هاست 🐸
+
+بفرست برا کسی که میخوای عکس پاشو برات بده 😂
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9034
+
+<div align="center"><video src="files/post_9034_tasiyanc_9034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9034_tasiyanc_9034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این سکانس GOT برای دنیا معمولیه برای ما ایرانیا نه
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9032
+
+<div align="center"><img src="files/post_9032_tasiyanc_9032.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز تولد جاویدنام شیوا جاویده که در ۱۸ سالگی به قتل رسید 🕊️
+
+شیوا جاوید ۱۸ ساله، به همراه پدرش علی‌اکبر جاوید ۳۸ ساله، هر دو در مشهد، در آغوش همدیگه به قتل رسیدن.
+
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9031
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود پزشکیان درباره 18 و 19 دی : هنوز که هنوزه من اون حادثه رو نمی‌تونم فراموش کنم، نباید کارمون به اينجا می‌رسید!
+
+البته خود ترامپ نامرد هم گفت که ما اینا رو مسلح کردیم.
+یه عده بی‌گناه هم با اینا قاطی شده بودن. وقتی شورش میشه، آدم نمی‌تونه دوست و دشمن رو تشخیص بده.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9028
+
+<div align="center"><img src="files/post_9028_tasiyanc_9028.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو اربعین یه موکب زدن که هرکسی تنها بوده میتونسته شب بره اینجا یه نفرو به یه مبلغ خوب صیغه کنه حتی از اینجا میتونسته زن ایندشو هم انتخاب کنه 😞
+
+
+@TASIYANC 🕒
+</div>
 
 ## tasiyanc — post 9027
 
@@ -117,251 +253,5 @@ Join As @TASIYANC ✅
 ⚠️ #پیشنهاد_ویژه ⚠️
 🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
 دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
-</div>
-
-## tasiyanc — post 9018
-
-<div align="center"><video src="files/post_9018_tasiyanc_9018.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9018_tasiyanc_9018.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖱به راحتی کسب درامد کن 💵💰
-
-🟢 ویدیو #آموزش بازی chicky choice رو براتون گذاشتم خیلی راحت و بدون ریسک و میتونی بازی کنی و کلی پول دربیاری🔥
-
-💖 حتما ویدیو رو تا انتها ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان a14
-@betinjabet
-</div>
-
-## tasiyanc — post 9017
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت نت خرابه ، گزارش وضعیت از خطوط همراه و ایرانسل بدید...
-</div>
-
-## tasiyanc — post 9015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم🖤
-
-کانفیگ اختصاصی نامحدود HttpCustum 📱
-
-سرور سرعتی مناسب تمام نت‌ها ⚡️
-
-آموزش اتصال ✅
-
-دانلود  📱android🕹  iOS
-
-اتصال امن برای همه 🏠
-
-💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ HttpCustum بزاریم ؟
-</div>
-
-## tasiyanc — post 9012
-
-<div align="center"><video src="files/post_9012_tasiyanc_9012.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9012_tasiyanc_9012.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎کانفیگ اختصاصی نامحدود اینجکتور
-📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی 
-⚡️
-
-سرور سرعتی‌ لوکیشن USA 
-📍
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون  
-📱
-
-آموزش اتصال 
-🔸
-
-اتصال امن برای همه 🇮🇷
-
-
-📱 @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9011
-
-<div align="center"><img src="files/post_9011_tasiyanc_9011.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺ موبایل سامسونگ A26؛ پنجشنبه 52 میلیون بود و امروز شده 87 میلیون!فقط در عرض 2 روز، 35 میلیون گرون شده!
-
-
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9010
-
-<div align="center"><video src="files/post_9010_tasiyanc_9010.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9010_tasiyanc_9010.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خفن ترین تیپستر های ایران با هم جمع شدن و TRUST BET رو تشکیل دادن
-👍
-
-هیچ سایت بتی دوست نداره شما این کانال رو پیدا کنین
-رایگان بهترین شرط هارو براتون میذاره
-حتی هزار تومن هم دریافت نمیکنه
-سریع از این لینک جوین بدین کانالشون
-👇(این پست پاک میشه)
-g14
-
-https://t.me/+cBQ8n7zLQiUzN2U0
-https://t.me/+cBQ8n7zLQiUzN2U0
-</div>
-
-## tasiyanc — post 9009
-
-<div align="center"><img src="files/post_9009_tasiyanc_9009.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-40 میلیون تومن برداشت روزانه ی کانال تراست بت 
-🎁
-پول دراوردن از بت تجربه و استراتژی میخواد نه ادعا
-
-برایند ماه تیر توی کانال تراست بت: 78 درصد رشد سرمایه بود
-✅
-
-40 بازی اخیر 34 برد 
-📊
-
-
-💠https://t.me/+cBQ8n7zLQiUzN2U0
-g14
-
-💠 https://t.me/+cBQ8n7zLQiUzN2U0
-</div>
-
-## tasiyanc — post 9008
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•تقدیم به مردم سرزمینم 🖤
-
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 📍
-
-•آموزش اتصال ⚡️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9006
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 این ۱۰ وب سایت هم با استفاده از هوش مصنوعی میتونن در زمینه ساخت ویدیو و تولید محتوای تصویری مفید باشن - پرامپت رو از ChatGpt بگیرید بدید به سایت های زیر درست کنه
-
-1️⃣  Fliki -
-http://fliki.ai
-
-2️⃣ Tavus -
-http://tavus.ai
-
-3️⃣ D-ID -
-http://d-id.com
-
-4️⃣ Wombo -
-http://deepart.io
-
-5️⃣ Reface -
-http://hey.reface.ai
-
-6️⃣ Hour One -
-http://hourone.ai
-
-7️⃣ Rephrase -
-http://rephrase.ai
-
-8️⃣ Synthesia -
-http://synthesia.io
-
-9️⃣ DeepBrain -
-http://deepbrain.io
-
-1️⃣0️⃣ EmbodyMe -
-http://embodyme.com
-
-Join 👹 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 معرفی سایت های کاریابی و استخدامی (فریلنسری) ایران 
-⚡️
-
-
-🟠جابینجا
-https://jobinja.ir
-
-
-🟠پونیشا
-https://ponisha.ir
-
-
-🟠ایران تلنت
-https://www.irantalent.com
-
-
-🟠جاب ویژن
-https://jobvision.ir
-
-
-🟠کارلنسر
-https://www.karlancer.com
-
-
-🟠برای استخدام
-https://www.e-estekhdam.com
-
-
-🟠برای معلم زبان
-https://oteacher.org
-
-بفرستید برای کسایی که دنبال کار هستن خیلی خوبن سایتهای که گفتم .
-
-
-⚡️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9004
-
-<div align="center"><img src="files/post_9004_tasiyanc_9004.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کروکودیل ( تمساح) ها بعد از خوردن طعمه ، به دلیل محبوس شدن هوا در سینوس هایشان اشک می‌ریزند ، نه پشیمانی
-بخاطر همین اصطلاح « اشک تمساح » برای کسایی بکار میرود که فقط تظاهر به ناراحتی میکنند
-
-@TASIYANC 
-✅
 </div>
 

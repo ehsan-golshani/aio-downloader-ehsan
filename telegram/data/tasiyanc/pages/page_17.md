@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/06 15:50
+📅 آخرین بروزرسانی: 1405/06/07 02:10
 
 ---
+
+## tasiyanc — post 9275
+
+## tasiyanc — post 9274
+
+## tasiyanc — post 9273
+
+## tasiyanc — post 9272
+
+## tasiyanc — post 9271
+
+## tasiyanc — post 9270
+
+## tasiyanc — post 9269
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیوی اد بفرستید ویسارو @Tssub
+</div>
+
+## tasiyanc — post 9267
+
+## tasiyanc — post 9266
+
+## tasiyanc — post 9265
+
+## tasiyanc — post 9264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرایط
+
+میو میکنید ، ویسشو میدید پیوی ادمین تو کانال میزاریم اگر ریکشن زیاد بگیرید برنده میشید
+
+جایزه
+نفر اول: کانفیگ نامحدود اوپن VPN دو کاربر - وایرگارد
+
+نفر دوم وایرگارد - ویتوری
+
+نفر سوم وایرگارد
+
+Admin : @Tssub
+</div>
+
+## tasiyanc — post 9263
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چالش میو بزاریم؟
+</div>
 
 ## tasiyanc — post 9262
 
@@ -124,182 +171,5 @@ r23
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تا ابد و یک روز؟؟؟؟
-</div>
-
-## tasiyanc — post 9252
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا ابد و یک روز؟؟؟؟
-</div>
-
-## tasiyanc — post 9249
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱Android🕹  iOS
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9248
-
-<div align="center"><video src="files/post_9248_tasiyanc_9248.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9248_tasiyanc_9248.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک دانشجوی ۲۱ ساله آمریکایی در یک ماه با یک دوست دختر مجازی مبتنی بر هوش مصنوعی ۴۳,۰۰۰ دلار درآمد کسب کرد
-.
-
-یه حساب OnlyFans به نام Maya راه‌اندازی کرده با برچسب ترک تحصیل کرده رشته روانشناسی UCF، با ۱,۱۴۷ مشترک پول
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9247
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9246
-
-<div align="center"><img src="files/post_9246_tasiyanc_9246.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی⁉️
-
-🔥کمپانی بین المللی We pari همون انتخاب🔥
-
-            👑سایتی برای حرفه ای ها👑
-
-🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
-
-🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
-💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
-💖واریز اول و هر شنبه 2 برابر شارژ میشین
-💖تسویه حساب سریع و بدون احراز
-💖دارای مجوز رسمی Anjuan و curacao
-💖فعالیت بدون تخلف در کشورهای مختلف دنیا
-💖بازگشت بخشی از باخت به صورت هفتگی
-💖اسپانسر سوپر  لیگ ترکیه
-😃😃😃😃
-👑کد هدیه ثبت نام:GG007
-
-👑ادرس سایت:
-http://til.ac/z5jcpGT
-ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
-
-👑دانلود اپلیکیشن اندروید➡️
-g22
-🔥کانال اطلاع رسانی ایران:👇
-https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9242
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از اوپن ها راضی اید؟
-</div>
-
-## tasiyanc — post 9241
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶 
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-⭕️ در صورت برقرار نشدن اتصال دو سه بار بزنید
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9240
-
-<div align="center"><img src="files/post_9240_tasiyanc_9240.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اقدام به خودکشی چند ملوان آمریکایی!
-
-باتوجه به نهمین ماه حضور 5 هزار خدمه ناو آبراهام لینکلن روی دریا، خدمه این ناو دچار بحران روحی روانی شدن!
-هفته پیش 200 نفر از اعضای خانواده این خدمه، با مقامات نیروی دریایی آمریکا جلسه گذاشتن و نگرانی‌هاشون رو گفتن.
-همسر یکی از ملوان‌ها گفته که شوهرم چند روز پیش بهم پیام داد که "امیدوارم دیگه فردا از خواب بلند نشم!".
-همچنين Navy Times گزارش داده که چندتا ملوان قصد داشتن خودشون رو تو دریا پرت کنن و به زندگیشون پایان بدن ولی رفیق‌هاشون اجازه ندادن...
-🇺🇸مایک لوین نماینده دموکرات کنگره درباره شرایط ناو میگه :
-حمام‌ها کپک زده، توالت‌ها خراب شده، ماشین‌های لباسشویی هفته‌هاست که از کار افتادن، آب گرم نیست و غذا هم که بعضی وقت‌ها فقط نصف لیوان برنج و دو تا نونِ تورتیلاست، دیگه حتى صابون و خمیردندون هم ندارن!
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9239
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📌فقط ۲۴ ساعت عضویت رایگان باز شده از همین امشب چک کن ببین چجوری میشه پول دراورد💵💸
-🛒این فرصت محدود رو از دست ندید
-https://t.me/+MT03hkV78q9kMTc0
-</div>
-
-## tasiyanc — post 9238
-
-<div align="center"><video src="files/post_9238_tasiyanc_9238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9238_tasiyanc_9238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💯تنها کانالی که حتما باید توش عضو باشی
-
-✅چون راه پول درآوردن رو بهت نشون میده
-
-📝 حتما آمار کانالشو ببینید فعلا به مدت محدود عضویت رایگان باز شده فقط تا پایان فردا شب🚫⚠️
-
-نمونه آموزش بازی Apple of Furtuneکه سودش تضمینیه رو براتون گذاشتیم پیش بینی های معتبر فوتبالی هم دارن z22:
-📶https://t.me/+MT03hkV78q9kMTc0
-📶https://t.me/+MT03hkV78q9kMTc0
-</div>
-
-## tasiyanc — post 9237
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶 🇳🇱
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9235
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

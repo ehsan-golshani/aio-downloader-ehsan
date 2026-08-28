@@ -1,8 +1,213 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/06/06 15:50
+📅 آخرین بروزرسانی: 1405/06/07 02:10
 
 ---
+
+## tasiyanc — post 9166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+a19
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9165
+
+<div align="center"><img src="files/post_9165_tasiyanc_9165.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷 a19
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9164
+
+<div align="center"><video src="files/post_9164_tasiyanc_9164.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9164_tasiyanc_9164.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏬اینارو کسی به شما نمیگه !!!
+
+اگر مشکل خروجی در ChatGpt دارید و عکسی که میدید شبیه شما نیست تنها راهکار و روششو تاسیان بهتون میگه
+
+ویدیو رو نگاه کنید قدم به قدم برید جلو و پرامپت زیر رو کپی کنید جایی ک نشون دادم قرار بدید تا مشکلتون کامل حل شه !
+
+پرامپت زیر رو در قسمت Custom Instructions بزنید سیو کنید تمام
+
+For every image generation, treat uploaded reference images as the permanent identity anchor. Maintain extremely high facial consistency and preserve the subject’s exact facial structure, proportions, skin tone, eye shape, nose, lips, jawline, and all distinctive features with maximum accuracy. Ensure the person remains instantly recognizable across all generations. Allow changes only to pose, facial expression, clothing, hairstyle (when explicitly requested), lighting, camera angle, and background. Never alter age, ethnicity, face shape, or defining facial characteristics unless explicitly instructed. Prioritize identity preservation above artistic style, creative interpretation, or visual enhancements.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9163
+
+<div align="center"><img src="files/post_9163_tasiyanc_9163.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی کاپلی 🆕
+
+"Girl with White Bow"
+
+Prompt 🤖🤖
+
+> Ultra-realistic close-up portrait of a beautiful young woman indoors during golden hour. She is facing the camera with a slight head tilt and a soft, natural expression. Warm sunlight enters through a nearby window, casting dramatic diagonal shadows across one side of her face while illuminating the other with rich golden light. She has long dark brown hair styled half-up in a high ponytail, secured with a large sheer white organza bow. A few loose wispy strands fall naturally across her forehead. Thick, well-defined dark eyebrows, hazel-brown eyes with shimmering champagne eyeshadow, long curled eyelashes, glowing skin with subtle blush and natural highlights, soft matte pink lips, and minimal elegant makeup. She wears large silver hoop earrings and a loose chocolate-brown button-up linen shirt with the collar slightly open. Neutral light gray background, cinematic golden-hour lighting, shallow depth of field, ultra-detailed skin texture, realistic hair strands, soft shadows, editorial fashion photography, DSLR, 85mm lens, f/1.8, natural color grading, photorealistic, ultra high resolution, 8K.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9162
+
+<div align="center"><img src="files/post_9162_tasiyanc_9162.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی کاپلی 🆕
+
+"Midnight Street Romance❤️"
+
+Prompt 🤖🤖
+
+A candid, natural night photograph of a young, stylish Middle Eastern couple embracing in a deeply affectionate hug on a city street in Tehran. The man, with a short, well-kept dark beard and a modern fade haircut, wears a black casual bomber jacket and is kissing the woman gently on her forehead. The woman, with long, dark straight hair and a gentle, smiling expression with her eyes closed, is wearing a black leather moto jacket. Her hands are wrapped around his back, and his hands are wrapped around hers. They are positioned in the foreground, filling the frame in a tight embrace. The background is a typical Tehran street at night, with concrete-faced residential buildings, lit windows, a line of parked classic and modern cars (like a Peugeot 206 and older models), and some tall coniferous and plane trees under a dark night sky. The street lighting is ambient and natural, giving the image a low-light, realistic, almost phone-camera documentary feel with a slight grain, not overly polished. The depth of field is shallow, keeping the couple sharp while the background elements blur organically. High-resolution photo. (optional: add "no text" to avoid UI elements)
+
+﻿
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9161
+
+<div align="center"><video src="files/post_9161_tasiyanc_9161.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9161_tasiyanc_9161.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 
+🆕
+
+"Dark Luxury Noir Suit Portrait"
+
+Prompt 
+🤖🤖
+
+A high-contrast black and white studio portrait of a handsome Middle Eastern man with styled dark hair and a neat, full beard. He is wearing a tailored dark suit, crisp white dress shirt, and a sleek dark tie. He poses in a three-quarter view, looking thoughtfully away from the camera. One hand gently rests over the other, showcasing a luxury metallic wristwatch. Moody low-key studio lighting, dark seamless background, ultra-realistic, 8k resolution, cinematic atmosphere.
+
+
+آموزش استفاده 
+👉
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9160
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙄 همه بت باز های حرفه ای دنبال 
+🔞 شکار این بونوس ها هستن
+✅لیگ های معتبر اروپایی شروع شده بهترین فرصت برای جبران ضرر های جام جهانی 
+💯
+</div>
+
+## tasiyanc — post 9159
+
+<div align="center"><video src="files/post_9159_tasiyanc_9159.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9159_tasiyanc_9159.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤔 شروع رسمی لیگ های اروپا 
+❄️
+
+🆕 بهترین فرصت برای جبران ضرر های جام جهانی با جشنواره رویایی مرداد ماه
+
+
+⚠️هر افزایش شارژ مساوی 
+2️⃣1️⃣
+🔣 شارژ بیشتر بدون محدودیت☄️
+
+به همراه 
+🤩 
+🤩🔤 کش بک باخت همه روزه:
+
+🌐 betinja.bet
+
+🌐 betinja.bet
+کانال بونوس های رایگان g19
+@betinjabet
+</div>
+
+## tasiyanc — post 9157
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن multi📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید بزنید وصله ⭕️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱 ممنون ک هستید❤️
+</div>
+
+## tasiyanc — post 9155
+
+<div align="center"><img src="files/post_9155_tasiyanc_9155.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕
+
+اسم : Cozy Cat Cuddle 😒
+
+آموزش استفاده 👉
+
+دریافت پرامپت👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱
+ممنون ک هستید❤️
+</div>
 
 ## tasiyanc — post 9153
 
@@ -121,121 +326,5 @@ A high-contrast, moody black and white portrait photograph. A handsome young man
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9143
-
-<div align="center"><img src="files/post_9143_tasiyanc_9143.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در‌تروث : 51 سال رفتار نامناسب ایران!
-حالا چرا ۵۱ سال ، ۴ سال زمان محمدرضا شاه رو هم میگه؟😐
-</div>
-
-## tasiyanc — post 9142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش وضعیت اینترنت همراه و ایرانسل
-</div>
-
-## tasiyanc — post 9141
-
-<div align="center"><video src="files/post_9141_tasiyanc_9141.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9141_tasiyanc_9141.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شعله های آتش نفتکش در سواحل عمان که مورد اصابت موشک قرار گرفته
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 یه نفت کش تو تنگه هرمز میخواست راهشو کج کنه از مسیر آمریکا (عمان) رد شه که با ۴ موشک مورد اصابت قرار گرفت
-</div>
-
-## tasiyanc — post 9139
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴متهمین قتل «حمیدرضا رجب‌زاده» دستگیر شدند طبق اعلام مقام‌های قضایی، خودرویی که او آخرین‌بار سوار شده بود شناسایی و مالک آن دستگیر شد. این فرد اعتراف کرده که به همراه ۴ نفر دیگر و با تحریک یک شبکه خارج از کشور، اقدام به ربایش و قتل رجب‌زاده کرده‌اند @TASIYANC…
-</div>
-
-## tasiyanc — post 9138
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گروه تاسیان فعاله جوین بشید https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 9137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گروه تاسیان فعاله جوین بشید
-https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 9136
-
-<div align="center"><video src="files/post_9136_tasiyanc_9136.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9136_tasiyanc_9136.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کودک خردسال جاویدنام فاطمه سلطانی بجای در آغوش گرفتن مادر قهرمانش سنگ سرد ارامگاهش را میبوسد.
-
-@TASIYANC 🏛
-</div>
-
-## tasiyanc — post 9133
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕 اسم : Mountain Embrace 
-❤️ آموزش استفاده 
-👉 دریافت پرامپت 
-👉 @TASIYANC 
-⭐️
-</div>
-
-## tasiyanc — post 9132
-
-<div align="center"><img src="files/post_9132_tasiyanc_9132.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Mountain Embrace ❤️
-
-
-آموزش استفاده 👉
-
-دریافت پرامپت 👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زمانی به این درجه از سود توی بت میرسی که بدونی کی و کجا وارد شی🚀
-
-https://t.me/+_btGj-rRAxs3NGVk
-https://t.me/+_btGj-rRAxs3NGVk
-</div>
-
-## tasiyanc — post 9130
-
-<div align="center"><img src="files/post_9130_tasiyanc_9130.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پول درآوردن از بت دقیقا جاییه که فرق استراتژی داشتن و ادعا داشتن رو مشخص میکنه 👌
-
-15 بازی 15 برد ✅
-
-من به پول شما نیاز ندارم و چیزیم به شما نمیخوام بفروشم
-g18
-لینک چنل
-https://t.me/+_btGj-rRAxs3NGVk
-https://t.me/+_btGj-rRAxs3NGVk
 </div>
 

@@ -1,8 +1,116 @@
 # آرشیو کانال tasiyanc - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/06/06 15:50
+📅 آخرین بروزرسانی: 1405/06/07 02:10
 
 ---
+
+## tasiyanc — post 5887
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا جای ک یادمه زمان قطعی همتون openvpn پاک کرده بودید الان شده بهتر از نپستر ، تازه این همه کانفیگ npv میزنیم بخدا ع پولی بیشتر سرعتش
+</div>
+
+## tasiyanc — post 5886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر کدوم بیشتر رای بیاره از اون بیشتر میزاریم
+</div>
+
+## tasiyanc — post 5885
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیشتر با ovpn تا حالا وصل شدید یا با npv ؟ زمان قطعی کدوم به دادتون رسیده یادتون رفت؟
+
+Npv ❤️
+
+Ovpn 🔥
+</div>
+
+## tasiyanc — post 5884
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید قبول کنیم نپستر سرعتش بیشتره از اوپنه ، زمان اتصالش سریعه و کلی موارد دیگه
+سرور ovpn شلوغ باشه ارور متعدد روبرو میشید و و و
+</div>
+
+## tasiyanc — post 5883
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده روی رایتل ـ سامانتل _ ایرانسل🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SamanTel 🛜 🏳
+vless://394f6981-a782-4779-9a85-e6cf22935d93@152.233.28.198:8443?security=tls&alpn=h2&encryption=none&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=uk1.fromblancwithlove.com#%F0%9F%8F%B3%EF%B8%8F%20Samantel%20-%20%40Tasiyanc
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5881
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GANG 🌙 10 SERVER FAST.npvt
+</div>
+
+## tasiyanc — post 5880
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+10سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+تست کنین بگین
+@Tasiyanc
+</div>
+
+## tasiyanc — post 5878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد اتصال بدون گرفتن پینگ سریع به تلگرام بیاید خودش را میوفته
+</div>
+
+## tasiyanc — post 5877
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📶
+
+ سه سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5873
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب خب.. یه کانفیگ اوکی کردیم برای همه اپراتور ها جوابه و همه چیو پرسرعت میاره. فقط برای 500 نفر اولی که سریعترن در دسترسه! ⚠️ دریافت رایگان کانفیگ اختصاصی
+</div>
 
 ## tasiyanc — post 5872
 
@@ -77,94 +185,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc 💫 4Server vip.npvt
-</div>
-
-## tasiyanc — post 5861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑 رمز @Tasiyanc ″
-
-📶  اختصاصی تاسیان  📶
-
- 4 سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجب سرعتی داره داداش کیرتو بخورم دمت گرم❤️
-</div>
-
-## tasiyanc — post 5859
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کالافو اپدیت کردم دمت گرم
-</div>
-
-## tasiyanc — post 5858
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیهههه خدا خیرتون بده
-</div>
-
-## tasiyanc — post 5857
-
-<div align="center"><img src="files/post_5857_tasiyanc_5857.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این سرعتی هم عالیه
-</div>
-
-## tasiyanc — post 5856
-
-<div align="center"><img src="files/post_5856_tasiyanc_5856.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی همین الان وصل کردم ببین سرعت دانلود
-</div>
-
-## tasiyanc — post 5855
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدایی دمتون گرم هرچی بگم کم گفتم همیشه قوی پر سرعت پایدار مرسی بابت زحماتتون
-</div>
-
-## tasiyanc — post 5854
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بهرحال ما ک قطعیم
-</div>
-
-## tasiyanc — post 5853
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مثل برخی چنلا باید روزی ۲۰۰ پیام واسه سرور رایگان رضایت بفرستیم؟
-</div>
-
-## tasiyanc — post 5852
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیام‌ها تمومی نداره ، همچنان ما قطعیم😁❤️
-</div>
-
-## tasiyanc — post 5851
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دمت گرم داش
-</div>
-
-## tasiyanc — post 5850
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایول کارت حرف نداره تاسیان عشقی
 </div>
 

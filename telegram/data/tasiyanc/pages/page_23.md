@@ -1,8 +1,147 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/06 15:50
+📅 آخرین بروزرسانی: 1405/06/07 02:10
 
 ---
+
+## tasiyanc — post 9120
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه پرامپت VİP تاسیان برا دختر خانومای چنل ، بریم توکارش
+</div>
+
+## tasiyanc — post 9119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated location 🇹🇷━━━╮
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.141:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%87%B9%F0%9F%87%B7
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.55:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%87%B9%F0%9F%87%B7%E2%9A%A1
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.154:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%87%B9%F0%9F%87%B7
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.67:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&host=storage.yandex.net&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%F0%9F%87%B9%F0%9F%87%B7%20Turkey%2C%20Tasiyanc
+
+
+Android 🕹 : V2box🔐  Npv tunnel 🔐  V2rayNG 🔐
+
+iOS  📱: V2BOX 🔐  Npv tunnel 🔐
+
+Join As @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9118
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+r18
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9117
+
+<div align="center"><img src="files/post_9117_tasiyanc_9117.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+r18
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9116
+
+## tasiyanc — post 9115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن Turkey📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+•اتصال امن برای همه 
+🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متاسفانه توسعه دهنده های NPV TUNNEL بیشتر از ۳ ماه هست که رو آپدیت جدید و رفع باگ های این برنامه محبوب کار نکردن ، جوری شده کانفیگ ها با پینگ Real 60 رو برنامه های دیگه با سرعت وصله ولی تو نپستر پینگ Out میده و علاوه بر این سرعت مورد نظر مارو نمیدن
+</div>
+
+## tasiyanc — post 9113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارما چیزیه ک سراغ همه میاد عزیزم حتی شما دوست عزیز چه اعتقاد داشته باشی چه نه کارای خوبت و بدت پیش کسی که می‌پرستی چرتکه میندازن تعادل باید برقرار باشه😞
+</div>
+
+## tasiyanc — post 9112
+
+<div align="center"><video src="files/post_9112_tasiyanc_9112.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9112_tasiyanc_9112.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید 
+🆕
+
+prompt Cinematic Winter Fashion Portrait 
+🤖
+🤖
+cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, street, symmetrical face, look at camera, detailed face, photo studio, awesome light, muted colors :: Fashion Photographer
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9111
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرگزاری تسنیم : حمیدرضا رجب‌زاده، مداحی که چند روزی بود گم شده بود، به قتل رسیده و فیلم لحظه قتلش به خانواده‌‌اش ارسال شده، پلیس فعلا داره پیگیری می‌کنه. « مشاهده »
+</div>
+
+## tasiyanc — post 9110
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی پرسرعت نپسترنت📱
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9109
+
+<div align="center"><img src="files/post_9109_tasiyanc_9109.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
+</div>
 
 ## tasiyanc — post 9106
 
@@ -79,179 +218,5 @@ A person with slicked-back dark hair wearing oversized square sunglasses is show
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پرامپت کاپلی VIP اختصاصی تاسیان 
 🆕 😎 عکس خودتون و پارتنرتون بدید به AI Prompt 🤖🤖 "Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim…
-</div>
-
-## tasiyanc — post 9095
-
-<div align="center"><img src="files/post_9095_tasiyanc_9095.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت کاپلی VIP اختصاصی تاسیان 
-🆕 😎
-
-عکس خودتون و پارتنرتون بدید به AI
-
-Prompt 🤖🤖
-"Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim shirt, driving with a lit cigar in his mouth, hand on the wheel. Woman with dark, shaggy hair and bangs, wearing gold-framed aviator sunglasses and a denim shirt, leaning her head on the man's shoulder. View is framed by the car's windshield and wipers. The red hood is prominent in the foreground. Gritty film grain, warm color correction, vintage photography. Shot with Kodak Portra film."
-آموزش استفاده 👉
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9094
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-90% پرامپتا VIP و بیشتر کانالها بابتش پول میگیرن ، براتون رایگان میزاریم ، استفاده کنین
-</div>
-
-## tasiyanc — post 9093
-
-<div align="center"><video src="files/post_9093_tasiyanc_9093.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9093_tasiyanc_9093.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت VIP 
-🆕
-«پرتره سینمایی با نور گرم کرکره‌ای»
-
-Prompt 
-🤖
-🤖
-اگر پسر هستید جای Woman کلمه Man بزارید
-Close-up portrait of a woman illuminated by soft, warm afternoon light streaming through window blinds, creating striking shadow patterns across her face. She has a natural, glowing complexion with dewy skin and subtly highlighted cheekbones. Her expressive eyes are accented with long lashes and a hint of soft eyeshadow, while her full lips are painted in a soft peach shade. The background features muted teal walls that enhance the warmth of the scene. She wears a dark, pinstriped blazer, adding a touch of elegance. The overall aesthetic is hyperrealistic, capturing intricate details like the texture of her skin and the delicate play of light and shadow, with a color palette of warm neutrals and soft pastels.
-آموزش استفاده 
-👉
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9092
-
-<div align="center"><video src="files/post_9092_tasiyanc_9092.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9092_tasiyanc_9092.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پیشنهاد_ویژه 
-⚠️
-
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
-دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید
-⭐
-</div>
-
-## tasiyanc — post 9091
-
-<div align="center"><video src="files/post_9091_tasiyanc_9091.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9091_tasiyanc_9091.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖱اگر #تندو تیز هستی اینو ببین 
-💵
-💰
-
-
-✊این بازی فقط سرعت عمل بالا میخواد😍
-
-
-🟢 ویدیو #آموزش بازی AVI رو براتون گذاشتم خیلی راحت با سرعت عمل بالا بدون ریسک کلی پول دراورد به همراه 
-🤩
-🤩% شارژ اضافی🔥
-
-
-💖 حتما ویدیو رو تا انتها ببینید
-💻لینک سایت بازی:
-
-💻 betinja.bet
-
-💻 betinja.bet
-
-🌐 کانال بونوس های رایگان r17
-@betinjabet
-</div>
-
-## tasiyanc — post 9090
-
-<div align="center"><img src="files/post_9090_tasiyanc_9090.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩 پرامپت VIP مادر فرزندی
-
-عکس فرزند و مادر بدید ChatGpt یا Gemini پرامپت زیر را بزنید
-Prompt
-
-Строго сохранить внешность 1:1 по загруженным фото: черты лица, пропорции, возраст, форму глаз, носа, губ, естественную асимметрию лица; без идеализации, морфинга, face swap и beautify. Формат 9:16. Фотореалистичный студийный семейный портрет в минималистичном стиле. Черный бесшовный фон. Мама сидит ближе к камере, опираясь подбородком на обе ладони, локти слегка сведены, спокойная нежная улыбка и прямой взгляд в объектив. Сын стоит позади мамы, наклонившись вперед, обе ладони лежат на макушке мамы, подбородок опирается на руки. Мальчик улыбается, взгляд направлен прямо в камеру. Между ними чувствуется искренняя теплота и легкая игровая атмосфера. На маме легкое платье с мелким цветочным принтом, на сыне простая светлая футболка без принтов. Макияж у мамы: сияющая кожа, легкий контуринг, естественный румянец, нюдовые губы, длинные ресницы, подчеркнутые глаза. Волосы объемно уложены. Мягкий студийный свет через большой октабокс, плавные объемные тени, глубокий черный фон, классическая портретная обработка в черно-белой гамме с мягким контрастом, высокой детализацией кожи и волос, атмосферная fine art photography. 85 mm, f/2.0, shallow depth of field, photorealistic skin texture, black and white portrait, fine art studio photography, ultra realistic, high detail, 8K.
-
-
-🤩 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اتاق جنگ ارتش اسرائیل:
-آمریکا امروز فروش بیش از ۵ هزار فروند موشک رهگیر را به بحرین، کویت، قطر و امارات متحده عربی تأیید کرد تا ذخایر سامانه‌های پدافند هوایی این کشورها دوباره تأمین شود.
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9088
-
-<div align="center"><img src="files/post_9088_tasiyanc_9088.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایید نشده :
-🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن تا جان بده!
-
-@Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 
-📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سنایِ آمریکا طرح تحریم‌های جدید علیه روسیه و ایران با نام «لیندسی گراهام» رو تصویب کرد.
-
-86 رأی موافق ، 11 رأی مخالف.
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9085
-
-<div align="center"><video src="files/post_9085_tasiyanc_9085.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9085_tasiyanc_9085.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نورا وینسنت ، زنی که تصور میکرد زندگی برای مردان بسیار راحت تر است ، ظاهر خود را به مرد تغییر داد ، اما ۱۸ ماه بعد ، بدلیل تحمل نکردن فشار های زندگی به عنوان یک مرد ، به زندگی خود پایان داد
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9084
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش از وضعیت اینترنت خطوط همراه ، ایرانسل بدید عشقا
 </div>
 

@@ -1,8 +1,139 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/06 15:50
+📅 آخرین بروزرسانی: 1405/06/07 02:10
 
 ---
+
+## tasiyanc — post 8756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران جای عجیبیه جای لف دادن از چنل سام صابری حرومزاده ممبراش بالا اومده
+</div>
+
+## tasiyanc — post 8755
+
+<div align="center"><img src="files/post_8755_tasiyanc_8755.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تسلیت.
+</div>
+
+## tasiyanc — post 8754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Vip for TS ⚡🔥.npvt
+</div>
+
+## tasiyanc — post 8753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی  ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙄 همه بت باز های حرفه ای دنبال 🔞 شکار این بونوس ها هستن
+✅لیگ‌جهانی والیبال رو میتونید از اینجا پیشبینی کنید
+👇کافیه یه سر بزنی اینجا خودت میفهمی چه خبره 💯
+</div>
+
+## tasiyanc — post 8751
+
+<div align="center"><img src="files/post_8751_tasiyanc_8751.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیش بینی اختصاصی لیگ جهانی #والیبال رو از دست ندید.
+
+اسلوونی Vs ترکیه
+ژاپن Vs چین
+
+🤔 یک سایت کامل برا حرفه ای ها
+
+⚠️هر افزایش شارژ مساوی 2️⃣1️⃣🔣 شارژ بیشتر بدون محدودیت☄️
+
+به همراه 🤩 🤩🔤 کش بک باخت همه روزه
+
+🆕 هر رشته ورزشی که بخوای اینجا هست:
+🌐 betinja.bet
+🌐 betinja.bet
+کانال بونوس های رایگان r6
+@betinjabet
+</div>
+
+## tasiyanc — post 8750
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Multi Loc ⚡ @Tasiyanc.npvt
+</div>
+
+## tasiyanc — post 8747
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به وقت اذان صبح 💔
+</div>
+
+## tasiyanc — post 8745
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر هارو دنبال کنید از اینجا
+@TasiyanProxy
+</div>
+
+## tasiyanc — post 8744
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 #امیرحسین_صفری #علیرضا_سپاهی #ابولفضل_سپاهی میخوان در ملا عام اعدامشون کنن💔 @TasiyanProxy
+</div>
+
+## tasiyanc — post 8742
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ تست شده 🔸
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 💠
+</div>
+
+## tasiyanc — post 8741
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینم چنل جدیدمون ک بیشتر فیلم و سریال خواهیم گذاشت دوس داشتید برای حمایت جوین بشید دوستون دارم 💖
+https://t.me/TsMoviee
+</div>
 
 ## tasiyanc — post 8740
 
@@ -92,125 +223,6 @@ Multi Loc ⚡ @Tasiyanc.npvt
 عکس و فیلمبرداری توسط توریست‌ها تو کره شمالی ممنوعه، ولی یه توریست روسی یواشکی این ویدیو رو گرفته و بعد از خروجش از خاک کره شمالی منتشرش کرده.
 
 دوتا پنکه گذاشتن جلو عکس کیم جونگ اون و خانواده که گرمشون نشه. 😂😂😂
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8727
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺کاهش 8% درصدی قیمت نفت به ۹۱ دلار بدلیل توقف حملات جمهوری اسلامی و آمریکا
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8726
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ⚡🇹🇷.nm
-</div>
-
-## tasiyanc — post 8725
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-تست شده روی همه نت ها
-
-آموزش اتصال روی اندروید
-⛓
-آموزش اتصال روی ویندوز  
-⛓
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8724
-
-<div align="center"><img src="files/post_8724_tasiyanc_8724.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹20 ابزار کاربردی عالی برای دانشجویان 😐
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8723
-
-<div align="center"><img src="files/post_8723_tasiyanc_8723.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قبل اینترنت آدما همدیگه رو اینجوری انفالو میکردن.. 😐
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8720
-
-<div align="center"><img src="files/post_8720_tasiyanc_8720.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹می‌دونستین همه دندونای دلفینایی که در مکان‌هایی به اسم "پارک دلفینها" برای سرگرمی مردم زندونی میشن، یکی‌یکی کشیده میشه و بعدش توی پارکا به مردم نمایش داده میشن.
-
-به این پارک ها نرید و تو آزار و شکنجشون شریک نشین!!!
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8719
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنظرم زیباترین هدیه 5/5/5 به من شمایید ک دارمتون 💘
-</div>
-
-## tasiyanc — post 8718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وارد 5/5/5 شدیم ، برنامتون چیه؟
-</div>
-
-## tasiyanc — post 8717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ آخرین نسخه ی V2rayNG اندروید
-
-نسخه 2.2.6
-
-● تغییرات مهم:
-• جایگزینی allowInsecure منسوخ با PinnedPeerCertSha256
-• حذف Tcping ping و بهبود تست پینگ
-• آپدیت هسته ایکس ری
-• رفع برخی باگ ها
-
-🔗 لینک دانلود از گیتهاب
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8716
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8714
-
-<div align="center"><video src="files/post_8714_tasiyanc_8714.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8714_tasiyanc_8714.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴ و ۵ مرداد سالگرد مرگ دو ابر مرد تاریخ رضاشاه کبیر و محمدرضا شاه فقید 🖤
-
 @TASIYANC ✅
 </div>
 

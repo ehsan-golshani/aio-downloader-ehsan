@@ -1,8 +1,138 @@
 # آرشیو کانال tasiyanc - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/06/06 15:50
+📅 آخرین بروزرسانی: 1405/06/07 02:10
 
 ---
+
+## tasiyanc — post 6344
+
+<div align="center"><img src="files/post_6344_tasiyanc_6344.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+FAST @Tasiyanc servers.txt
+</div>
+
+## tasiyanc — post 6343
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪼 اختصاصی تاسیان 👑
+
+85 کانفیگ Fast پروتکل Trojan ⚡
+
+بریزید ویتوباکس یا ویتوری پینگ بگیرید وصل شید 💚
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6342
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب تو راهه
+</div>
+
+## tasiyanc — post 6341
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معرفی کلاینت جدید VPN ساعت 18 🐾
+</div>
+
+## tasiyanc — post 6339
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست کاربردی
+⚡️ دانلودرهای تلگرامی
+
+با این بات‌ها می‌تونید لینک ویدیو یا پست از شبکه‌های مختلف رو بفرستید و فایل رو با کیفیت‌ها و فرمت‌های مختلف دانلود کنید؛ حتی تبدیل به فایل صوتی هم انجام میدن 🎧
+
+💬 اینستاگرام — استوری & ریلز
+📹 تیک‌تاک — ویدیو بدون واترمارک
+📹 یوتیوب — ویدیو، Shorts و فایل صوتی
+💬 ایکس (توییتر) — عکس و ویدیو
+📍 پینترست — عکس و ویدیو
+💬 فیسبوک — ویدیو
+📱 ردیت — عکس و ویدیو
+
+Robot's 🤖
+@MegaSaverBot
+@YoutubeDownloader_l_Bot
+@govd_bot
+@downloadlyio_bot
+@MultiSaverXbot
+@catdlbot
+@InstaMediaDownloaderBot
+@download_it_bot
+@instagramersbot
+@YoutubeDoBot
+@MrDragar_AudioBot
+@SaveMedia_bot
+@instadowbot
+@FullSavebot
+@tikloadtokbot
+@PicTubeBot
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6337
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+🔺@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید چخبرا ؟
+</div>
+
+## tasiyanc — post 6334
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور   سرعتی  🇮🇹 🇩🇪 🇳🇱
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  🚀
+
+دانلود  NPV tunnel  🌐
+
+Password : @Tasiyanc  ⏩
+
+✔️ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دولت شیرکاکائوئیا (پاکستانی ها) اینترنت بین الملل رو بخاطر فراخوان اعتراضی بستند
+</div>
+
+## tasiyanc — post 6332
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حال ندارید ریکشن بزنید بریم بخوابیم
+</div>
+
+## tasiyanc — post 6331
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد   👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 🍏
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6330
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید گپمون - تبادل کانفیگ & ...
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
 
 ## tasiyanc — post 6328
 
@@ -85,123 +215,5 @@ Password : @Tasiyanc 
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشناروووووووو
-</div>
-
-## tasiyanc — post 6317
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6314
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6311
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطوره؟
-</div>
-
-## tasiyanc — post 6310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لوگو چنل مرتبط با اسم تغییراتی کوچک دادیم ، گممون نکنین ❤️
-</div>
-
-## tasiyanc — post 6308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-3 سرور   سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-Password : @Tasiyanc  ⏩
-
-✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سندروم Survivor's Guilt:
-حالت روانی‌ای که فرد پس از زنده موندن از یه فاجعه یا تجربه مرگبار با وجود بی تقصیر بودن، دچار احساس گناه از زنده موندن میشه، به ویژه وقتی دیگران آسیب دیده یا جان باختن.
-
-پروکسی • پروکسی
-
-@Tasiyanproxy ✅
-</div>
-
-## tasiyanc — post 6306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد XB  👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قصد حاشیه با هیچ بنی بشری ام ندارم چون نه حوصله ن وقتشو دارم درکل گفتم زحمتای بقیه رو بعضیا با دو تکست بگ* ندن
-با قدرت در خدمت شما هستیم❤️
-</div>
-
-## tasiyanc — post 6304
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شما باشید فشار نمیخورید؟
-</div>
-
-## tasiyanc — post 6303
-
-<div align="center"><video src="files/post_6303_tasiyanc_6303.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6303_tasiyanc_6303.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
 </div>
 
