@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/06/07 22:42
+📅 آخرین بروزرسانی: 1405/06/08 01:27
 
 ---
+
+## tasiyanc — post 8897
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 کاخ سفید : خداوند سربازان ما را حفظ کند
+
+جنگ سهمگین در راهه؟
+
+🔱 @TASIYANC
+</div>
+
+## tasiyanc — post 8896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📌 آمار دیروز کانال تراست بت :
+
+✅✅✅ 3.46⬅️
+✅✅✅ 3.94⬅️
+✅✅✅ 3.46⬅️
+✅✅✅ 4.67⬅️
+✅✅✅ 2.76⬅️
+✅✅✅ 7.43⬅️
+✅✅✅ 1.30⬅️
+👇بدو جوین شو فرم بعدی بگیر👇
+🆔 https://t.me/+umLw_34TXrEzYTQ0
+🆔 https://t.me/+umLw_34TXrEzYTQ0
+</div>
+
+## tasiyanc — post 8894
+
+<div align="center"><img src="files/post_8894_tasiyanc_8894.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥بمب 100% آماده شد
+🔥
+
+💵دریافتی از منبع خارجی Wiliam Hills 
+
+⬅️رایگان در کانال قرار گرفت
+⬅️فقط جوین شید و تمام
+
+➡️ https://t.me/+umLw_34TXrEzYTQ0
+➡️ https://t.me/+umLw_34TXrEzYTQ0
+g10
+⚠️عضویت رایگان به مدت و تعداد محدود زودتر جوین بده⚠️
+</div>
 
 ## tasiyanc — post 8893
 
@@ -309,49 +355,5 @@ Text:
 
 ✈️@TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8862
-
-<div align="center"><img src="files/post_8862_tasiyanc_8862.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 تعویض پس زمینه و بالابردن کیفیت عکس
-( حرفه ای و طبیعی)
-
-Prompt
-Replace the background with a realistic environment while preserving the original subject, lighting, shadows, reflections and perspective. Blend everything naturally for a seamless result.
-﻿
-آموزش استفاده از پرامپت 
-👉
-
-
-✈️@TASIYANC 💠
-</div>
-
-## tasiyanc — post 8861
-
-<div align="center"><img src="files/post_8861_tasiyanc_8861.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 بازسازی عکس یا فیلم های قدیمی - جدید آسیب دیده با حفظ هویت و نوستالژیک
-
-prompt
-Restore this vintage film frame by removing scratches, dust, flicker, fading and damage while preserving authentic film grain, original contrast, natural texture and historical authenticity.
-
-آموزش استفاده از پرامپت 👉
-
-✈️@TASIYANC ⭐
-</div>
-
-## tasiyanc — post 8860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️حتما این بازی رو تست کنید:
-
-➡️ 🤩 🤩 🤩 🤩 🤩 👈
-
-✅ دیگه حوصلت سر نمیره بهترین سرگرمی ممکن رو آوردم براتون 😍
-🙄 پر از بازی های سرگرم کننده آنلاین
 </div>
 

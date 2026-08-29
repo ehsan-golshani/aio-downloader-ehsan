@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/06/07 22:42
+📅 آخرین بروزرسانی: 1405/06/08 01:27
 
 ---
+
+## tasiyanc — post 6240
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[12]⚡@Tasiyanc 🚀.conf
+</div>
+
+## tasiyanc — post 6239
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد متد CMR  👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6238
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc _ Speed servers 🥇⚡.npvt
+</div>
 
 ## tasiyanc — post 6237
 
@@ -172,26 +194,5 @@ nuclear bomb 💥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 NEW FAST ⚡ 🚀.npvt
-</div>
-
-## tasiyanc — post 6218
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ میشه یا آتش بس برقراره؟
-</div>
-
-## tasiyanc — post 6217
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پوشش اخبار جنگ در چنل پروکسی
-زیر هر خبر ادمینا و خودم پروکسی های وصل قرار میدیم
-https://t.me/TasiyanProxy
-https://t.me/TasiyanProxy
-</div>
-
-## tasiyanc — post 6214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وایر های قبلی ک‌گذااشتم مثل موشك وصلن نیازی به جدید نی فعلا
 </div>
 
