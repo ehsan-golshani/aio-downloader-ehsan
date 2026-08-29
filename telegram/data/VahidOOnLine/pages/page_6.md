@@ -1,8 +1,81 @@
 # آرشیو کانال VahidOOnLine - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/08 01:25
+📅 آخرین بروزرسانی: 1405/06/08 03:21
 
 ---
+
+## VahidOOnLine — post 257327
+
+<div align="center"><img src="files/post_257327_VahidOOnLine_257327.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نعیم قاسم، دبیرکل حزب‌الله لبنان، گفت گروه‌های موسوم به «مقاومت» در فلسطین، لبنان، عراق، یمن و دیگر نقاط منطقه در کنار جمهوری اسلامی قرار دارند و فشارهای نظامی، اقتصادی و تبلیغاتی علیه این جریان‌ها نتیجه‌ای نخواهد داشت.
+
+قاسم در مراسمی در ضاحیه جنوبی بیروت از عملکرد دولت لبنان انتقاد کرد و گفت مسیری که این دولت انتخاب کرده، شایسته لبنان و فداکاری‌های مردم این کشور نیست. او خطاب به دولت لبنان گفت: «به دنبال میانجی دیگری غیر از میانجی آمریکایی باشید. آمریکا بی‌طرف نیست.»
+
+دبیرکل حزب‌الله همچنین از کشورهای عربی و اسلامی و مردم این کشورها خواست برای وحدت تلاش کنند و در برابر تحولات و درگیری‌های منطقه «تماشاگر» نباشند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257326
+
+<div align="center"><video src="files/post_257326_VahidOOnLine_257326.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257326_VahidOOnLine_257326.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران، جمعه‌شب ششم شهریورماه در گفتگو با صداوسیمای جمهوری اسلامی اعلام کرد نرخ سوم بنزین پس از هماهنگی با همه نهادها و ارگان‌های مربوطه، از پنج هزار تومان به ۱۰ هزار تومان افزایش خواهد یافت.
+
+پزشکیان با رد گزارش‌ها درباره افزایش شدید قیمت بنزین تاکید کرد نرخ سوم بیش از ۱۰ هزار تومان نخواهد شد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257325
+
+<div align="center"><img src="files/post_257325_VahidOOnLine_257325.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود پزشکیان، رییس دولت جمهوری اسلامی، در گفت‌وگو با صداوسیما با اشاره به آسیب‌های اقتصادی وارد شده از جنگ، گفت که ما پول نداریم، درآمد نداریم، در جنگ زدند و خراب کردند و حتی نمی‌توانیم به آن‌ها که بیکار شدند پولی بدهیم. او افزود: «ارز کم داریم و قیمت دلار می‌تواند خیلی بالاتر از این هم برود.»
+
+پزشکیان گفت: «تحریم ادامه پیدا کند، گرانی هم بیشتر می‌شود.»
+
+رییس دولت جمهوری اسلامی با اشاره به اینکه «واردات و صادرات ما به شدت کاهش یافته است»، گفت: «دخل و خرج ما با هم هم‌خوان نیست.»
+
+پزشکیان افزود: «واقعیت این است که ما پول نداریم، درآمدمان هم کمتر شده، مشکلات‌مان هم بیشتر شده و باید جواب هم پس بدهیم.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257324
+
+<div align="center"><video src="files/post_257324_VahidOOnLine_257324.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257324_VahidOOnLine_257324.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید به جایگاه‌های سوخت در فرمانیه و پاسداران تهران رفته ولی بنزین موجود نبوده است: «از هر کس که سئوال می‌کنم می‌گویند نتوانستند بنزین پیدا کنند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257323
+
+<div align="center"><img src="files/post_257323_VahidOOnLine_257323.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود پزشکیان، رییس دولت جمهوری اسلامی، در گفت‌وگو با صدا و سیمای جمهوری اسلامی اعلام کرد که نرخ سوم قیمت بنزین پس از هماهنگی با همه نهادها و ارگان‌ها از پنج هزار تومان به ۱۰ هزار تومان خواهد رسید.
+
+پزشکیان گفت که نرخ سوم قیمت بنزین بیش از ۱۰ هزار تومان نخواهد شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 257265
 
@@ -230,72 +303,6 @@ IranintlTV
 
 در بخش دیگری از گزارش، انتقادهایی درباره رفتار یکی از قضات و کمبود امکانات نیروی انتظامی برای رسیدگی به سرقت مطرح شده است.
 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257250
-
-<div align="center"><video src="files/post_257250_VahidOOnLine_257250.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_257250_VahidOOnLine_257250.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارشگر منوتو: «بیشتر حقوق این ماه همسرم برای یک هفته خرج شد»
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257247
-
-<div align="center"><video src="files/post_257247_VahidOOnLine_257247.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_257247_VahidOOnLine_257247.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار ایران در رسانه‌های جهان: جمعه ۶ شهریور ۱۴۰۵
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257246
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی از جایگاه سوخت در رفسنجان در شبکه‌های اجتماعی خبرساز شده که نشان می‌دهد تعدادی از خودروها و موتورسیکلت‌ها پس از سوخت‌گیری با مشکل مواجه شده و در خیابان از حرکت بازمانده‌اند.
-
-بر اساس توضیحات منتشرشده همراه ویدیو، از حدود ساعت ۱۱:۱۷ ظهر روز چهارشنبه، آب آلوده وارد مخازن جایگاه شده و همراه بنزین به باک وسایل نقلیه منتقل شده است.
-
-مسئول پمپ بنزین در توضیح این اتفاق گفت که مشکل از تجهیزات جایگاه سوخت نبوده و احتمال داده محموله تحویلی از سوی نفتکش حاوی آب بوده باشد. او همچنین گفته منشا دقیق آلودگی باید از سوی شرکت پخش فرآورده‌های نفتی بررسی و اعلام شود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257204
-
-<div align="center"><img src="files/post_257204_VahidOOnLine_257204.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد پنجشنبه ۶ شهریور با انتشار پیامی در «تروث سوشال»، از گزارش جاناتان هانت، خبرنگار فاکس نیوز، درباره ایران انتقاد کرد و آن را «به‌شدت نادرست» خواند. ترامپ نوشت: «من نمی‌خواهم دیدار کنم، آنها می‌خواهند. در واقع، آنها برای رسیدن به توافق التماس می‌کنند.»
-رئیس‌جمهوری آمریکا پس از آن در پیام کوتاه دیگری در تروث سوشال نوشت: «ایران کشوری رو به شکست است».
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257203
-
-<div align="center"><video src="files/post_257203_VahidOOnLine_257203.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_257203_VahidOOnLine_257203.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که خبرگزاری فرارو منتشر کرده، لحظه سقوط یک درخت بر روی یک خودروی ال‌۹۰ در خیابان فرشته تهران را در پی وزش باد شدید نشان می‌دهد.
-در این ویدیو، فیلم‌بردار با اشاره به شدت حادثه می‌گوید: «خدا را شکر کسی آنجا نبود» و توضیح می‌دهد که خودروی ال‌۹۰ بر اثر سقوط درخت به‌شدت آسیب دیده و تقریبا له شده است.
-تاکنون گزارشی از مصدوم یا کشته شدن افراد در این حادثه منتشر نشده است.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>
