@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/06/07 19:23
+📅 آخرین بروزرسانی: 1405/06/07 22:42
 
 ---
+
+## tasiyanc — post 8629
+
+<div align="center"><img src="files/post_8629_tasiyanc_8629.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات توافق :
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8628
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پلیس فتای استان خراسان رضوی، از دستگیری زوجی که فیلم جنسی ارباب و برده ضبط می‌کردند و سپس آنها را در تلگرام با قیمت های نجومی می‌فروختند، خبر داد
+@Tasiyanc 😐
+</div>
 
 ## tasiyanc — post 8627
 
@@ -216,23 +233,5 @@ Fact @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
-</div>
-
-## tasiyanc — post 8607
-
-<div align="center"><video src="files/post_8607_tasiyanc_8607.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8607_tasiyanc_8607.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیه به هر کدوم فک کنی اونو می‌شنوی 😂😂😂
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چخبر امتحانتونو چطور دادید؟
 </div>
 

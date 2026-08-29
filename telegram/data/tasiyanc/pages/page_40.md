@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/06/07 19:23
+📅 آخرین بروزرسانی: 1405/06/07 22:42
 
 ---
+
+## tasiyanc — post 8692
+
+<div align="center"><video src="files/post_8692_tasiyanc_8692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8692_tasiyanc_8692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺صحبت های شگفت‌انگیز پدر بمب اتم «رابرت اوپنهایمر» ...
+اکنون من خود مرگ شده ام .... نابودگر جهان!
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8691
+
+<div align="center"><img src="files/post_8691_tasiyanc_8691.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه عکسیه که چند روزه از اعتراضات دی ماه وایرال شده، پیکر بی جان یه پسر جوون افتاده وسط خیابون و خون ازش سرازیر شده.
+
+این عکس مربوط به جاویدنام علی احمدیه که فقط ۱۴ سال سن داشت و خرج خواهر معلولش رو میداد.
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8690
 
@@ -193,24 +218,5 @@
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 مقر حوثی ها در جزیره کمران توسط عربستان بمباران شد
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8662
-
-<div align="center"><img src="files/post_8662_tasiyanc_8662.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تکمیلی
-نیروی هوایی عربستان بندر الحدید مواضع حوثی هارو بمبارون کرد
-
-
-@Tasiyanc ⭐️
 </div>
 

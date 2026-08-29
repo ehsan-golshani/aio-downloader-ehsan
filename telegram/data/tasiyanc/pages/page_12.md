@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/07 19:23
+📅 آخرین بروزرسانی: 1405/06/07 22:42
 
 ---
+
+## tasiyanc — post 9422
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان گل ایشون چنل و گپشو Restiract save کرده نمیشه اسکرین ویدیو گرفت ، سریع از تمام محتویات چنل و گپ و پیویش با گوشی دیگتون فیلم بگیرید تا پاک نکرده
+
+اطلاعات دقیق و آدرس اینا رو تو چنل نمیزنم بخاطر الگوریتم تلگرام مجبورم دایرکت چنل فردا باز کنم بفرستم
+
+آیدی
+@wWwWwWwWwWwWwWwWwWwWwW26
+
+آیدی عددی
+8973915004
+</div>
+
+## tasiyanc — post 9421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت اطلاع ساعت ۲ پست ها پاک میشه
+</div>
 
 ## tasiyanc — post 9420
 
@@ -166,40 +186,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 
 ایران و آمریکا بر سر تمدید مجدد ۶۰ روزه ی آتش بس موافقت کردن.
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9397
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایرگارد  😎
-
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢مدیرعامل آسیاتک: مردم بی‌رویه اینترنت مصرف می‌کنند چون قیمت هر گیگ اینترنت ناچیز است!
-
-زمینه سازی میکنید گرون کنید جا*شا؟
-
-@Tasiyanc ⭐️
 </div>
 

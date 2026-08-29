@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/07 19:23
+📅 آخرین بروزرسانی: 1405/06/07 22:42
 
 ---
+
+## tasiyanc — post 9515
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بسیجی‌ها تو سواحل میانکاله مازندران زنجیره انسانی تشکیل دادن تا جلوی بی‌حجابی در کنار ساحل رو بگیرن:
+
+@Tasiyanc 
+💋
+</div>
+
+## tasiyanc — post 9514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Mumbai 🇮🇳.ovpn
+</div>
 
 ## tasiyanc — post 9513
 
@@ -294,28 +309,5 @@ Negative prompt: cartoon, CGI, 3D render, illustration, painting, plastic skin, 
 👑 سنگ‌ها ساکت‌اند، اما داستانی چند هزار ساله برای گفتن دارند...
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9493
-
-<div align="center"><img src="files/post_9493_tasiyanc_9493.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران عالیه، کتاب شیطان پرستی نوشتن، بعد صفحه اولش: بسم الله الرحمن الرحیم.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9492
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
 </div>
 

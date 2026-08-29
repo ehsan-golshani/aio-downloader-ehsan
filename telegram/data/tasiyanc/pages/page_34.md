@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/06/07 19:23
+📅 آخرین بروزرسانی: 1405/06/07 22:42
 
 ---
+
+## tasiyanc — post 8859
+
+<div align="center"><img src="files/post_8859_tasiyanc_8859.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 معرفی یه بازی ساده و‌ #پولساز
+
+➡️ 🤩 🤩 🤩 🤩 🤩 👈
+
+🖱این بازی اختصاصی فقط توی‌این‌سایت هست واقعا راحت میشه ازش کلی پول دراورد.💵💰
+
+🟢 بدون ریسک و بدون پول در بازی معروف #crash پول در بیار و با هر شارژ 2️⃣1️⃣🔣 موجودی خالص بگیر بدون قیدوشرط 🔥
+
+💖تنها سایت مورد تایید
+💻آدرس سایت مورد #‌اعتماد ما:
+🌐 betinja.bet
+🌐 betinja.bet
+کانال بونوس های رایگان g9
+@betinjabet
+</div>
+
+## tasiyanc — post 8858
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡𝐓𝐀𝐒𝐈𝐘𝐀𝐍_𝐕𝐈𝐏_𝐌𝐔𝐋𝐓𝐈⚡.npvt
+</div>
 
 ## tasiyanc — post 8857
 
@@ -252,37 +279,5 @@ R8
 
 مادر آیدا بعد از فوت دخترش، هر شب به بالکن میره و زار زار گریه می‌کنه.
 ⭐ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8832
-
-<div align="center"><img src="files/post_8832_tasiyanc_8832.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید مالک تلگرام پاول دروف توی چنل تلگرامش:
-
-عکس خودشو گذاشته نوشته به من میگن تروریست.
-بعد به طالبان میگن شرکای تجاری😂
-⭐ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8826
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ لوکیشن ترکیه و ایتالیا 💥
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC 💠
 </div>
 
