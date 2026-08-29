@@ -1,8 +1,92 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/06/07 02:10
+📅 آخرین بروزرسانی: 1405/06/07 14:46
 
 ---
+
+## tasiyanc — post 8933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود نپسترنت 📱
+
+سرور سرعتی تست شده مولتی لوکیشن 📍
+
+آموزش اتصال ⚡️
+
+اتصال امن برای همه
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 8932
+
+<div align="center"><img src="files/post_8932_tasiyanc_8932.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#کاربردی 🆕
+
+😎 می‌خوای ببینی یه نفر با یه نام کاربری توی چه سایت‌هایی حضور داره؟
+این ابزار با کمک هوش مصنوعی صدها سایت رو می‌گرده و هرجا اون یوزرنیم پیدا بشه، برات لیست می‌کنه.
+کافیه نام کاربری رو وارد کنی؛ بعد از چند دقیقه، نتیجه و ردپای احتمالی اون توی اینترنت بهت نشون داده می‌شه.
+🔹 قابلیت‌ها: • جستجوی اکانت‌ها در شبکه‌های اجتماعی، فروم‌ها، سایت‌های گیم و سرویس‌های مختلف • جمع‌آوری همه نتایج توی یک لیست • اجرا مستقیم داخل مرورگر، بدون نیاز به نصب برنامه • استفاده رایگان از امکانات پایه
+اگه دوست داری ردپای خودت یا حتی یه یوزرنیم خاص رو توی اینترنت بررسی کنی، این ابزار می‌تونه حسابی به دردت بخوره.
+﻿
+
+👉 https://whatsmynameapp.net/
+
+
+👹@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8931
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا یک ساعت دیگه یه سایت عالی براتون معرفی میکنم ( که هیچ جایی به شما معرفی نشده) که احتمالا خیلی بکارتون بیاد
+</div>
+
+## tasiyanc — post 8930
+
+## tasiyanc — post 8929
+
+<div align="center"><img src="files/post_8929_tasiyanc_8929.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#کاربردی 🆕
+
+🔎 اگه همیشه استرس اینو داشتید که یه سایت کلاهبرداریه یا نه، این ابزار آنلاین کمکتون می‌کنه هر سایتی رو زیر و رو کنید، درصد احتمال کلاهبردار بودنشو ببینید و دلیلشم بفهمید.
+
+
+• سایت‌ها رو کامل بررسی می‌کنه و نمره اعتماد میده
+• درصد احتمال اسکم بودن رو نشون میده
+• دلیل این تحلیل‌ها رو واضح و راحت توضیح میده
+👉 https://scamminder.com/
+
+👹 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8928
+
+<div align="center"><video src="files/post_8928_tasiyanc_8928.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8928_tasiyanc_8928.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 شبی که مردم ایران با آمریکا ابراز همدردی کردند
+
+یازدهم سپتامبر 2001 بعد از فاجعه بزرگ برخورد ۲ هواپیمای ربوده شده توسط «گروهک تروریستی القائده» به برج های دوقلو تجارت جهانی که منجر به کشته شدن تعداد زیادی غیرنظامی شد مردم ایران برای ابراز همدردی به خیابان ها آمدند و شعار « آمریکا تسلیت ؛ مرگ بر القائده» سر دادند و به یاد کشته شده ها شمع روشن کردند
+﻿
+📱@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8927
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴احمدرضا رادان، فرمانده کل نیروی انتظامی:
+
+من یه مشکلی برام پیش اومد که گفتم نمیتونم در جلسه شورای دفاع در نهم اسفندماه شرکت کنم و غلامرضا رضاییان، رییس سازمان اطلاعات فراجا به جای من در جلسه شرکت کرد و کشته شد.
+
+💙@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8926
 
@@ -207,83 +291,5 @@ IPv6
 پروکسی | پروکسی | پروکسی
 
 🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ: رهبران قطر، عربستان سعودی و امارات متحده عربی درخواست کردند که حمله به ایران دو یا سه روز به تعویق بیفتد
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8909
-
-<div align="center"><video src="files/post_8909_tasiyanc_8909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8909_tasiyanc_8909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پیت هگست وزیر جنگ آمریکا این ویدئو رو منتشر کرد :
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New Wallpapers ✨ HD
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8904
-
-<div align="center"><img src="files/post_8904_tasiyanc_8904.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#سرگرمی - #کاربردی
-
-🪐 می‌خوای منظومه شمسی رو زنده ببینی؟
-
-ناسا یک سایت فوق‌العاده ساخته که می‌تونی حرکت سیاره‌ها، فضاپیماها و مأموریت‌های فضایی رو به‌صورت سه‌بعدی و تعاملی تماشا کنی.
-
-🌐 https://eyes.nasa.gov
-
-بعد از باز کردن سایت ، رو هر کدوم از سیاره ها ، شهاب سنگ و ... بزنید با جزییات براتون میاره
-
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8903
-
-<div align="center"><img src="files/post_8903_tasiyanc_8903.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری: پست جدید اتاق جنگ اسرائیل
-
-تیک تاک⌛ دقیقا قبل از جنگ ۴۰ روزه، همچین توییتی زده بود.
-
-🔱 @TASIYANc
-</div>
-
-## tasiyanc — post 8902
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺قیمت دلار  ۱۹۶ هزار تومان  شد
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8901
-
-<div align="center"><img src="files/post_8901_tasiyanc_8901.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ:
-
-در حال نابودی کامل ارزش پول ایران هستم. در شروع دوران ریاست جمهوری من دلار ۹۰ هزار تومن بوده و الان شده ۱۹۶ هزار تومن.
-
-🔱 @TASIYANC
 </div>
 
